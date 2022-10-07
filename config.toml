@@ -1,0 +1,4 @@
+baseURL = "https://quotes-and-sayings.onrender.com/"
+languageCode = "en-us"
+title = "quotes-and-sayings"
+theme = "quotes-and-sayings"
