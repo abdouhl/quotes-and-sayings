@@ -1,0 +1,14 @@
++++
+author = "Edward Ball"
+title = "Edward Ball Quotes"
+quotes_len = "8"
+description = "the best 8 Edward Ball Quotes"
++++
+- If you read the memoirs of slave-owning families, you'd be hard pressed to find evidence of black people in the lives of the whites, even though for most of the time on the plantations black people outnumbered whites by a ratio of seven to one.
+- There are, after all, between seventy-five thousand and a hundred thousand descendants of the Ball-family slaves. If I were to begin apologizing to every one of these families, it would quickly become a meaningless act.
+- The topic of slavery is like an electric fence. Touch it and people will react.
+- It's not a common thing for a Southern white family to go out and seek their black cousins.
+- There was a uniqueness to the American case of slavery. 10 million people, a conservative estimate, were brought to America... hundreds of people were set up in work camps, and hereditary-forced labor was put in place. That's a very different thing than the personal slavery that existed elsewhere.
+- All of us in the Ball family in South Carolina, from the time we're children, hear stories about our ancestors, the slave owners.
+- Before the American Revolution there were frequent slave uprisings, and a lot of people would run away.
+- Slavery in West Africa, and in Rome and in the Mediterranean, was something different than slavery in America.

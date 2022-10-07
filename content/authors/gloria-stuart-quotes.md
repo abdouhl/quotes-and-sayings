@@ -1,0 +1,28 @@
++++
+author = "Gloria Stuart"
+title = "Gloria Stuart Quotes"
+quotes_len = "22"
+description = "the best 22 Gloria Stuart Quotes"
++++
+- It never occurred to me that it would be a big hit internationally and forever.
+- I just finished my 11th book last week, so I'm ready to start the next one.
+- I quit after my seven-year contract with Universal was up. I quit for 33 years.
+- I've been very, very successful. It's very satisfying to me.
+- The great actresses and actors receive awards for great roles in great films.
+- When I graduated from Santa Monica High in 1927, I was voted the girl most likely to succeed. I didn't realize it would take so long.
+- I have enjoyed acting very much, because I know it's not for real!
+- A woman's heart is a deep ocean of secrets.
+- When I went back to New York with somewhat of a name, they didn't want movie actresses.
+- There's no point in working if I'm not involved and interested.
+- I never had a great role in a great film.
+- In the '60s, '70s and '80s, everybody was pretty tense on the set.
+- I had been told by so many people that I was going to be nominated, that I should be nominated, that there wasn't any question about my being nominated. I don't think it was a surprise.
+- I wanted to be on the stage, doing very important emotional roles.
+- The John Ford pictures I made are highly regarded, but at the time they didn't seem like that.
+- Claude Rains was what we call an actor's actor. He was very involved with himself and his performance.
+- It was a struggle treating Claude Rains as my lover, but we were friendly. It was no great love affair.
+- I have a private press. I'm a book artist. I publish books of other authors and artists. I do the illustrating. I set the type. I print it myself on my press. I do everything but bind it.
+- I'm amazed. When I was 40, I thought I'd never make 50. And at 50 I thought the frosting on the cake would be 60. At 60, I was still going strong and enjoying everything.
+- When I was little I thought, isn't it nice that everybody celebrates on my birthday? Because it's July 4th.
+- I wanted to be a theater actress, but I thought it would be easier to get to New York and the theater if I had a name than if I just walked the streets as a little girl from California.
+- I love working.

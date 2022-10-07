@@ -1,0 +1,63 @@
++++
+author = "Eddie Murphy"
+title = "Eddie Murphy Quotes"
+quotes_len = "57"
+description = "the best 57 Eddie Murphy Quotes"
++++
+- My first concert makes me sound like a real old man. My very first concert was Jackie Wilson.
+- There's a bunch of places in the world I haven't been to, 'cause I can only be on a plane for a little bit. I'm like, 'How long is it to get there? Two days on a plane? What? No.'
+- I love 'Trading Places,' but 'Coming to America' has one of the things I like to do - I like the multiple characters.
+- I started out as a stand-up comedian. And that's what I'm most comfortable doing.
+- I think I have enough of a sense to know what works for me and what doesn't, without going into some big thing and analyzing what I do. I'm in a position that allows me to do what I want to do, and I do it.
+- I've always had confidence. It came because I have lots of initiative. I wanted to make something of myself.
+- I leave my house all the time! But I'm not at all the Hollywood parties. I'm grown, and where else am I supposed to be? I'm supposed to be home.
+- There's this little box that African-American actors have to work in, in the first place, and I was able to rise above that box. I could have done a bunch of movies where I stayed as the Axel Foley or Reggie Hammond persona. But I didn't want to be doing the same thing all the time. Every now and then, you crash and burn, but that's part of it.
+- I only want to do what I really want to do; otherwise, I'm content to sit here and play my guitar all day.
+- I started out as an impressionist and that's all about observing - how people move, their voice quality, their attitudes and quirks.
+- From the very beginning, I always tried to make dialogue flow comfortably; I always did that to make it seem more authentic.
+- In the original script, my character was a basketball player rather than a boxer. I didn't think I could pull that off. I'm a little short to be a basketball player!
+- The thing about kids is that they express emotion. They don't hold back. If they want to cry, they cry, and if they are in a good mood, they're in a good mood.
+- You know why they think I'm reclusive? I don't do the Hollywood stuff. I've never been on the circuit.
+- I haven't read a newspaper in 20 years. I don't look at the computer or anything. You have to have a filter on what you let in.
+- You know, making a movie is a collaborative effort and sometimes all the ingredients don't work out. I know that every now and again I am going to make a movie that won't work.
+- Growing up, I liked all the stuff that everyone else was listening to, like Motown, but the biggest group of all was The Beatles.
+- 'Nutty Professor' was me going, 'Say what you want to say, but I can do this, and you can't, and nobody else in the town can do this.'
+- I'm the artist when I'm doing music that I am when I'm acting. I'm everything.
+- I don't think more concentration is required for Robert De Niro to do what he does as for Jim Carrey to do what he does.
+- The studios gotta start making more stuff where black folks get quality stuff. But I can't trip about that because I've been making movies for 35 years, and I've played everything from an old lady to a donkey, so I can't be on here talking about, 'They don't give us enough roles' and diversity.
+- The economy in Ireland has been rampaging ahead for the last 15 years. Barring an international, political or natural catastrophe, things can only get better for the Irish.
+- I'm kind of long in the tooth to fly in in a cape now, so I'd have to be, like, the voice of reason or somebody. 'Don't do that, super-fellow!'
+- Getting divorced didn't sour me on the institution of marriage. I'll tell you what I'll never do: I'll never get divorced again.
+- If you're involved in with something that's original, you know, you'll always go back and try to rehash it.
+- You know, if you look all my stuff... If you go back to 'Saturday Night Live,' my stuff always has music, even a bunch of my comedy stuff - like in 'Shrek,' the donkey is always singing. Music is always there.
+- Making movies is time-consuming and it's boring. You spend most of your time waiting between takes. It's like a big machine that moves slowly.
+- I stopped doing standup because it stopped being fun. And the reason it stopped being fun was it was harder to write - and this was before the Internet - it was harder to write new stuff. It had gotten so crazy.
+- I've been a big Bob Marley fan forever. Forever. Like big, huge. Bob Marley and the Beatles, that's my big, giant music influence. I can listen to them all the time.
+- I'm a comedian who got into movies, so I don't really think of myself as an actor.
+- I'm in a position that allows me to do what I want to do, and I do it.
+- The advice I would give to someone is to not take anyone's advice.
+- The same way you can see me sit at a table in a movie and be six different people, the mother and the uncle and all these different things, when I'm in the studio, I can do that, too. I'm not trying to be a recording artist and have a certain type of music for the radio.
+- I never hated hip-hop. It became the new rock and roll. It became the biggest thing that Africans have ever done in the history of the Americas. Hip-hop put more black Americans on than anything before it. It fed more people. It allowed them to diversify into clothing lines and billion-dollar headphone companies.
+- I'd like to produce, direct, write, score, and star in a film in exactly the way Chaplin did. I'll do that before I'm thirty.
+- I'm relaxed about my career. I've been making movies for over 20 years, so I've earned at least the right to relax.
+- I used to be the hippest of them all. I used to know everything about everything. I used to read about everything that was going on, and I knew everybody's name and anybody in pop culture. Anything that was written about me, I would read.
+- 'SNL' is part of my history. I got on the show as a kid. That's the show I got known from.
+- Music has always been around with me.
+- I had a band before I did standup - I've always done music. I got known for being funny, and that's how I make a living - and from acting - but I never stopped playing and producing and recording music.
+- I've made 30 movies and for the most part my movies work. In a business where success is an exception and not the rule, I've mostly been successful.
+- However wack anyone thought 'Whatzupwitu' was, there's not a lot of people that have footage of themselves dancing around in the clouds with Michael Jackson. I do have that forever.
+- As you get older, you get different, and I'm a mushier, softer person as I get older.
+- I'm 42 and the age of a guy who has kids, so I guess I'm playing right where I'm supposed to be. I'm comfortable with that, but in the same breath I'd do something edgy. If someone came to me and offered me an edgy and funny story, then I'd do it.
+- In a movie like this, the relationship between the two guys is crucial. It sinks or swims on how these two guys are together. I think we did a good job.
+- If I don't die in a plane crash or something, this country has a rare opportunity to watch a great talent grow.
+- I love the Beatles.
+- After all these years, I've done well and I'm cool. I feel comfortable in my skin, I've saved some paper, everybody's healthy, my kids are beautiful and smart, doing different things, it's all good.
+- I keep telling people I'll make movies until I'm fifty and then I'll go and do something else. I'm going to be a professional gentleman of leisure.
+- If you have a flop movie, so what? And if you have a hit movie, it's 'so what,' too - it's on to the next movie.
+- I'm not performing anymore. I reveal myself to the audience. I reveal myself. That's the show now.
+- Ultimately, when I go back to the stage, I want to be able to do everything. I want to be able to do music and comedy and all that stuff; that's what all this stuff is leading to.
+- I don't know what my Death Row meal would be. I'm surprised that people can even eat when they're on Death Row.
+- If you interact with anyone, ultimately, all people are the same. However they're dressed, when you're in the house with a person, they're going to be a regular human being.
+- Being on 'SNL' gives you a unique experience that almost no one else has. It's like Harvard for the comic actor.
+- I can go to a country song, go right into it and make it sound authentic. And I think that's because of my ear as an impressionist.
+- Every now and then, when I think about it, I think, 'What would I even talk about onstage?' It's never been, 'I wonder if I'm funny. I wonder if I can come up with jokes.' It's more, 'What would it be like without the leather suit and the anger?'

@@ -1,0 +1,48 @@
++++
+author = "Paul Bettany"
+title = "Paul Bettany Quotes"
+quotes_len = "42"
+description = "the best 42 Paul Bettany Quotes"
++++
+- No one I know works in the industry. No, that's not true - Liv Tyler.
+- I think when you're trying to produce a relationship on screen that doesn't actually exist, perhaps sometimes there's a temptation to look at each other more, to touch each other more.
+- In marriage, there's a lot of ignoring each other, which is hard to fake on-screen.
+- I was born a Catholic and now I'm a lapsed Catholic. I'm something but I'm not a believer any more.
+- You can end up living your life pretty incrementally, and that's boring.
+- Up until like five seconds ago, I just took what jobs came along.
+- I was bullied about everything, from the way I looked to the fact that my father had been a dancer.
+- Paul is an awful name. I might as well be Bob.
+- I loved working with Peter Weir. I think he's one of the greats and will be remembered as one of the greats.
+- I get bored easily.
+- The only thing I think I can be accused of about paparazzi is being really naive. I didn't think about it coming along with the job and I never, during my three years at drama school, fantasized about one bit of it.
+- For some ungodly reason, I end up being naked in a lot of stuff. But there is a certain grace and kudos that come with taking your clothes off on the first day, a respect that is given by the rest of the cast.
+- The difficulty of looking at a system like natural selection if you have any sort of moral sense yourself, is almost what makes it beautiful.
+- I'm an immigrant - I've got to be in the city: London, Vienna, or Rome, but always a city.
+- I got a phone call from Jon Favreau saying, 'I need the voice of a personality-less robot, and I thought of you immediately.' I thought that was the funniest thing I ever heard, so I said, 'Yes.'
+- In America, they shoot budgets and schedules, and they don't shoot films any more. There's more opportunity in Europe to make films that at least have a purity of intent.
+- I feel safe in saying this, and that is that Peter Weir is without a doubt one of the greatest filmmakers of all time. I'd open a door in a movie for him if he asked me to.
+- I find parties difficult. I like a dinner party, but I find being at parties difficult, so I choose not to go to parties.
+- It's weird, because usually if you're British and you go to America you play baddies; but I play naughty people here and goodies in America.
+- I resist the idea of there being on-screen chemistry. I think it's something that people like to say without thinking.
+- I'm sure some people have an absolute grasp of where they are in their careers. I just don't think about it that much.
+- My relationship with 'Star Wars' is that I'm old enough that I saw it when it first came out - 'A New Hope,' that is - and it was like when Dorothy steps out of black and white into Technicolor. I was transported from a gray, miserable 1970s London into a different galaxy, and I didn't know what it was, but I wanted to be a part of it.
+- Yeah, I love history and I loved it as a kid.
+- Trying to be a good actor has to be involved with placing yourself imaginatively in different people's circumstances.
+- I think the success of the Marvel films comes from the fact that they're made by fans. They really love those characters. When I first came out dressed as Vision, Kevin Feige nearly cried.
+- Film used to have to be niche and find its audience in a little art house cinema, and TV had to work for everybody. And now it's kind of flipped where there's so many platforms that TV can be incredibly niche.
+- I'm never late, and I love that. Because when you've got three kids and a life to be living, and somebody's half an hour late to set, you start to get a little bit like, 'Come on. Come on, let's get this done.'
+- So the actual privilege is that you can then take time off - and if you don't, you're a fool. You're earning all this money to support children whom you then don't see, which is absurd.
+- I know great actors whom nothing has ever happened for.
+- I did eight months of training for 'Wimbledon,' and then, by the time I finished the movie another four months later, I was like, 'That's me. I'm done with tennis.'
+- But I feel truly wowed by the architecture and the meaning of the architecture if you get lost in it and think about the man hours in the smallest little chapel, and the love involved. God it's fantastic.
+- For a while, I stopped enjoying making movies and I stopped enjoying acting, because I made a few decisions that I wish I hadn't made.
+- The trouble with talking about acting is that it's like sex. It's enormously fun to do but just dreadfully embarrassing when you have to talk about it.
+- You can fudge a lot as an actor, but you can't fudge being a parent.
+- Sure, you can do something frothy and ridiculous, but you should probably be confident that it's going to be a sure-fire hit. Then it's sensible, because it enables you to make smaller movies. But if you make something frothy and ridiculous that doesn't work, it's not worth it.
+- The fact that in America bread lasts so long. You buy bread, and then it's bread forever - it's Forever Bread!
+- There are lots of people that make movies. It's not just the director.
+- We all have different thresholds for sentimentality. For me, it's a hard won happy ending.
+- I still read the British papers, but I've never been a Royalist, ever. It's funny, there always seems to be much more of a fascination with the Royal Family over here then there does in England.
+- Actors can be many things - vain, venal, self-serving, obnoxious, bullies - but all of the good ones are great storytellers.
+- I've noticed, in the ebbs and flows of success and popularity, so much of it is fraudulent and to be distrusted.
+- I don't enjoy watching action films, but I loved films like 'Rust and Bone' and 'The Beat That My Heart Skipped.'

@@ -1,0 +1,19 @@
++++
+author = "Wil S. Hylton"
+title = "Wil S. Hylton Quotes"
+quotes_len = "13"
+description = "the best 13 Wil S. Hylton Quotes"
++++
+- Exactly who does use the safe-haven laws is difficult to discern. Most states make no effort to study the cases or compile any data, and the anonymous nature of the process makes outside research nearly impossible.
+- The park lies directly downwind from a slew of coal plants. Virtually all of the major contaminants in the local air and water are direct results of coal emissions. Coal produces ozone, which kills trees. Coal produces sulfates, which kill fish. No other park in the country has more ozone or sulfates than Shenandoah National Park.
+- I have never considered myself anything other than an environmentalist. I have spent the better part of my life either in the wilderness, or trying desperately to get there.
+- The tragedy of Eliot Spitzer is almost Greek: Ascendant son of wealth and privilege dedicates his life to social justice, warns of the corruption lurking among us, and falls victim to his inner demons at the very moment of vindication.
+- If Yucca Mountain had not been designated as a dumpsite for radioactive waste in 1987, it might easily have become a scenic overlook on the long drive between Tonopah and Las Vegas.
+- Desertion is the army's dirty little secret. Since the beginning of the Iraq war, more than 20,000 American soldiers have given up the fight. Most of them disappear while at home on leave, fading into a network of family and friends, and the army does not typically chase them down.
+- Many experts are concerned that the parents who need safe havens the most are the least likely to use them.
+- Since losing his reelection in 2002, Barr has lost not only his power but also many of his friends. It doesn't help that after alienating nearly every Democrat with impeachment, he spent the next five years alienating his fellow Republicans - railing against the invasion of Iraq, the PATRIOT Act, and the Bush administration in general.
+- The tension between public and private science is powerful.
+- Way up high in the Shenandoah Mountains where I live, it is difficult to maintain illusions about the natural world. It is dying.
+- During the Vietnam era, more than 30,000 draft dodgers and deserters sought harbor in cities like Montreal and Toronto, where public opposition to the war was strong and most residents didn't question their motives.
+- Apart from the most obvious cases, like the Oriental Bittersweet vine, escaped from private gardens and smothering the mountains one acre at a time, the most painful proof of man's destruction is not what you can see right in front of you; it's what you will never see again.
+- In an instant, the law was transformed: from the last passenger on the safe-haven bandwagon to a pioneer into uncharted territory. For the first time in American history, it was not only legal to relinquish a baby; in Nebraska, it was okay to abandon any child of any age for any reason at any time - with the full protection of the law.

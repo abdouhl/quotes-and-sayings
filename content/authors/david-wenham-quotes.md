@@ -1,0 +1,35 @@
++++
+author = "David Wenham"
+title = "David Wenham Quotes"
+quotes_len = "29"
+description = "the best 29 David Wenham Quotes"
++++
+- My life at the moment is a bit like my wardrobe. Organized chaos.
+- I would love to direct a feature and have Robert Connolly produce it. That would be really fab.
+- There's different ways of getting into character. There's what's called 'the outside,' in which is finding the physicality of the character first. To give an example, in 'Gettin' Square' - Johnny Spitieri - that's how I found that character. I knew those people that I'd seen up at Kings Cross. I knew how they sounded.
+- I think actors do make really, really wonderful directors.
+- I like cooking, but I like other people cooking more.
+- I'd love to work with the people who really got the film industry going again through the '70s: Peter Weir, Bruce Beresford, Gillian Armstrong, Fred Schepisi.
+- My biggest ambition when I was younger was to appear on stage at what was then Nimrod, which is the theatre where my father used to take me on Sunday afternoons to see matinees. The most extraordinary things used to occur on that stage.
+- I always loved putting on shows - when you're the youngest of seven and five are older sisters, you've got to get noticed somehow! I did puppet shows and magic shows... even ventriloquism. My doll's name was 'Dan,' and I used to write these scripts, and my schoolmate hid under the table and supplied Dan's voice.
+- My representation overseas can't stand me doing theatre because it takes me out of action. But it's what I want to do. If it means passing up other possibilities, them's the breaks.
+- I do regard myself as very lucky.
+- Acting, to me, is being given the freedom and ability to play, and that's - that's what I love most about it. I feel very comfortable in playing, whether it be in front of a camera or on stage.
+- I have a sort of long-term plan to direct. I'm pragmatic about it. I realize I don't need to rush it or force it.
+- In all honesty, if somebody asked me the secret of auditioning for Americans, I don't know. Often, I do what's called self-taping for America. I go over there quite a lot to sit in a room and do stuff in front of people. You feel like a performing monkey. It's bizarre.
+- Listening and hearing are two different things, and acting is comprehending what the person is saying, thinking how it makes you feel and responding. That's the key to really honest, truthful, compelling performance.
+- Some people have heard of The Method, which originally goes back to Stanislavski... he gave you six major pointers whereby you became that character and tried to fool your mind psychologically. That's it in a nutshell. Daniel Day Lewis is an example of somebody like that who stays in character between takes.
+- Well you just have to own it, I suppose. Own the character, which is difficult.
+- I'm becoming a frustrated director, I think, in an actor's body.
+- Hollywood's a big place, and they make all sorts of different movies. Some movies I'm attracted to; a lot of the movies I'm not. But there are some terrifically talented people over there that I'd love to work with.
+- I'll never forget anything about Middle Earth. That's part of my memory now so I won't miss anything.
+- Australia is a phenomenally beautiful country, and every time I go away and come back, it never ceases to amaze me.
+- I think you have to find the humanity in the character and then the deterioration is a part of the process - the journey of the character. It's like playing King Lear. You can start off as a nice old man who finishes up crazy.
+- In very general terms 'Top Of The Lake' is about good and evil. It's a deep dark mystery. It also deals with lots of fascinating human relationships, and it's also about the battle of the sexes.
+- As we mature and grow older we collect a lot of baggage, and a lot of that stuff you collect on life's journey gets in the way of acting. My kids can imagine a character and transform in the blink of an eye. It's so simple for kids, so complex for adults.
+- I've ended up spending more time in front of a camera than on stage, but the stage is where I come from.
+- Some people would say I've made it now.
+- You can't manufacture a career as an actor because you aren't in control of what projects come to you, unless you are No. 1, two, three or four in the world.
+- People who have never done theatre before, and have only worked in front of a camera, would find it very difficult, I think, to know how to command a stage and work with the logistics of being on stage. They're very different. The theatre is quite tricky, actually.
+- I used to do impersonations: Harry Butler in the wild, or I'd do Gough Whitlam.
+- I was 11 when a teacher suggested to my parents that they should send me to drama classes to curb my disruptive ways in the classroom. The next Saturday I was acting, and thereafter it became a ritual of my youth to see a show at the Belvoir on Sundays and, if I was lucky, another at the Opera House on Monday after school.

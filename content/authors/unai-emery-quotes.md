@@ -1,0 +1,65 @@
++++
+author = "Unai Emery"
+title = "Unai Emery Quotes"
+quotes_len = "59"
+description = "the best 59 Unai Emery Quotes"
++++
+- I have met Stan and Josh Kroenke, and it's clear they have great ambitions for the club and are committed to bringing future success. I'm excited about what we can do together, and I look forward to giving everyone who loves Arsenal some special moments and memories.
+- A smile is better when you win.
+- I am very demanding of myself.
+- To become a good coach, you need to win a lot.
+- My idea is to know every player and to know, also, the personality of the players.
+- I need to learn to smile more.
+- I was the coach in Valencia, and this was when Pochettino was finishing his playing career. And we met in Valencia watching the Chile training sessions. And a few months later, he took over as coach of Espanyol.
+- Wherever I've been, I've tried to soak up the essence of the club, the town, and to transmit that to the players.
+- I'm not the kind of coach who says, 'Let's do a few piggy-in-the-middle exercises and go home for lunch.'
+- I speak to lots of coaches, but those are private conversations.
+- You need confidence to play under pressure.
+- The Premier League is at the top, and everyone wants to be in the top leagues.
+- The Premier League is very difficult.
+- I know my ambition and my passion and to know how I want to grow up with Arsenal.
+- Fans want their emotions to come to the surface. How? By their team transmitting intensity, attacking, scoring goals, competing, winning. That awakens them.
+- In my career, I do not stop for news when it's not true.
+- Being manager means living in the middle of the media attention, through praise and critics. This is something I live with. It's intense and very demanding.
+- When we are thinking in an attacking moment, I want the goalkeeper thinking, for that, he is the first. The same when we are thinking defensively - I want our strikers to be thinking, 'We need to protect the goalkeepers.' I want those two moments to feel the same for all players.
+- My concentration with players is the next match, focus only to work for the next match and how we can win.
+- Our demands are very high, very great, but I want to ask every player every day to give us more.
+- I like to make a tour round the pitch before games to look at the architecture, the colours in the stadium, the sky, to feel the atmosphere growing.
+- We need to push. We need to have ambition. We need to have desire to improve every day.
+- There's a decision each match. I decide how we are going to play, and it depends on the opposition 30 per cent, their structure, and 70 per cent is for us.
+- Arsenal was in a decline. We had to stop this and begin climbing.
+- PSG signed me for my CV, for what I've achieved in the Europa League, how I've grown as a manager, and how I've made players grow. I'm essentially here because I have a winning record.
+- When I work with players, whether their level is higher or lower, for me the most important thing is to know the person, what is in their heart.
+- I was a second-division B player, and I've had to work very hard. I tell the players, 'The moment we stop working hard on this, as soon as we stop dedicating hours to this, we'll fall.'
+- Usually, I don't look behind; every day, I'm looking at the next matches - what's in front.
+- My first message is clear. Enjoy the challenges of each match.
+- Every player has their challenge to help the team. They all have a challenge individually and collectively to improve.
+- The best success, for me, is not one trophy. It's not harmony. It's when players improve and grow.
+- I live football as passion and emotion.
+- Before Wenger came, Arsenal celebrated 1-0 and were based on defensive solidity. With Arsene, joy came from attacking, with players of good standing. And the perfect combination was the Invincibles. But over time, only technical quality and offensive freedom were taken care of, losing the defensive structure.
+- Implication is a cumulative process that generates union in the team and mutual respect. Either we all work, or let's just burst the ball.
+- We all need to give 100%, and that's what I'm looking for from every player and myself.
+- PSG has got a solid project. Neymar wants to improve and grow with the club.
+- Every coach wants to win, but it's not easy to do that.
+- My first thing with every club I have worked in is to get a personal relationship with the players and then build a professional one.
+- I know how you can feel when you are playing under pressure.
+- I want to say thank you Arsene Wenger for your legacy. For all the coaches in the world, he is a reference. We learned, I learned from him all the things in football.
+- I think, in football, you need to be competitive. You need quality. You need to be organised and to push.
+- I respect a lot the players: their hair and their hair colour.
+- I want every player to stay with the mentality and preparation to play together to win.
+- When I'm asked to define football, I always talk about emotions, the heart, love. It's something you feel deep down inside when you enter a stadium, raise your eyes, and look at the stands, the fans coming in.
+- Defensive moments are for each and every player.
+- It was very risky and quite courageous to write a book about winning when I was still to win my first title. But for me, the one who possesses a winning mentality isn't necessarily the one who wins in the end but the one who wants to win the most.
+- Each player has this quality, this characteristic to help the team as a collective. For me, that is very important.
+- If you play every time, long balls, you lose possession and you lose momentum. I don't want to be like that.
+- For every game we play, I might have spent 12 hours working on the video alone. In an hour, the players have to understand everything you have seen in 12 hours.
+- I need to continue reading books, and I like to learn about different people in the world, different people with success in and outside of football.
+- My first target is not to win: it's to develop young players with our work. That was my first idea when I started as a coach, because with this work come results.
+- I respect Bielsa a lot. For me, he is a special coach. I think the best coaches in the world work in different things, and a lot of coaches, we cannot train like Bielsa. It's difficult to train like Bielsa. But every coach can learn from different coaches. But with Bielsa, I think all coaches learn something from him.
+- My dad always said you have to value and respect the responsibility you've been given. When I coach, I take that responsibility seriously because I know people have trusted in me, and there are thousands of supporters whose emotions are bound up in what we do.
+- Arsenal is known and loved throughout the world for its style of play, its commitment to young players, the fantastic stadium, the way the club is run.
+- For me, whether we win or lose, every match is giving me a lot of information about how to improve.
+- How do you develop? I think that's about battling for every title. That's something that is in Arsenal's history, and it's in my history as well. And I want that to continue.
+- When I was a player, all the pressures I felt created a lot of anxiety in me. I didn't know how to manage that on my own. I think I was missing someone - a manager, no doubt - who could teach me to control my emotions.
+- In each profession, you need to feel passion for that in order to give it your best performance. Football is my passion.
+- Success is to improve, grow up, build one team with personality, and then I want to win.

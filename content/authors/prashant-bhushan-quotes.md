@@ -1,0 +1,106 @@
++++
+author = "Prashant Bhushan"
+title = "Prashant Bhushan Quotes"
+quotes_len = "100"
+description = "the best 100 Prashant Bhushan Quotes"
++++
+- During Manmohan Singh's formative years, it was a matter of great pride to be called to the Indian Civil Service for serving the Empire.
+- I have had the greatest respect for the institution of the Supreme Court. I have always believed it to be the last bastion of hope, particularly for the weak and the oppressed who knock at its door for the protection of their rights, often against a powerful executive.
+- The only procedure under the Constitution to deal with judicial misconduct is impeachment, which needs to be initiated by at least 100 MPs and has been found to be totally impractical and virtually useless.
+- For any unbiased and realistic enquiry against judges, one needs a full time body, independent of the government as well as of the judiciary, with an investigative machinery under its control, through which it can get complaints investigated.
+- India is a land of minorities. Everyone belongs to some minority.
+- Both Pakistan and India stand to suffer severe losses in the event of India using military force within Pakistan.
+- No insurrection bred out of desperation can be quelled by strong-arm tactics.
+- Joseph Stiglitz was the chief economist of the World Bank for three years till January 2000. Before that he was the chairman of President Clinton's Council of Economic Advisers. No one can speak more authoritatively or with greater inside knowledge about the functioning of the Washington consensus institutions.
+- I am pained that I have been held guilty of committing contempt of the Court whose majesty I have tried to uphold - not as a courtier or cheerleader but as a humble guard - for over three decades, at some personal and professional cost. I am pained, not because I may be punished, but because I have been grossly misunderstood.
+- Far from curbing terror, we find that draconian laws used by a corrupt and communal police are creating conditions which will only exacerbate the problem.
+- The court's reputation is affected by what people say only if it seems to have a ring of fairness and authenticity.
+- The question of burden of proof is relevant only in a situation where there is no evidence either way.
+- Long live democracy!
+- Having enjoyed enormous powers, including the power of contempt, without any accountability, the higher judiciary has over the years, trampled the toes of many persons and institutions, particularly the media.
+- The Aam Aadmi party is of the view that Kashmir is an integral part of India. Needless to say that I share this view.
+- In any food crisis, it is the top of the food chain that suffers the most. In the case of farmer's distress, the top of food chain is us - the end consumer.
+- The U.S. economy will tank if either China withdraws its money from the U.S. Banks, or Saudi Arabia stops depositing its oil money in U.S. bonds, or even if the oil trade goes off the dollar.
+- I had said impunity of APSPA should be removed in order to win the hearts of the people of Kashmir.
+- The public disclosure of assets by judges, though a welcome first step, is certainly not the end all of the serious problem of judicial accountability or the lack of it.
+- The Supreme Court's non-transparent attitude on the disclosure of assets is in line with the judiciary's steadfast refusal to allow any transparency in the matter of appointment of judges, or for that matter, in the judiciary as a whole.
+- Any unfair and scandalous allegations made by disgruntled litigants will be ignored and recognised for what they are by the public, and can be dealt with under the law of civil and criminal defamation.
+- Ultimately, it is only a powerful civil society movement which can break the vicious cycle of corruption in any society.
+- In no civilised country is the head of the government immune from corruption investigation.
+- Indeed, public scrutiny is desirable for healthy functioning of judiciary itself.
+- Stiglitz is not a Left economist. Indeed, it would be difficult to find a more authentic insider and establishment figure than Stiglitz.
+- It is well settled in our Constitutional scheme that all Parliamentary Acts and mandates bind the executive. Any executive act, which violates any express or implied mandate of the Parliament, is unconstitutional and void.
+- The illegitimate money made by corrupt public servants and the power that it gives them is then also used to perpetuate them in office. This corrupt money is one of the main factors responsible for the continued reelection of such politicians. They become masters of the people they are supposed to serve.
+- I said that there is considerable alienation among the people of Kashmir which is primarily because of the human rights excesses by the security forces in Kashmir and the impunity from prosecution given to them by the Armed Forces Special Powers Act.
+- It is true that there have been excesses of judicial activism.
+- I first met Mr Tarkunde in 1976 during the Emergency, when Civil Liberties had been extinguished and the Habeas Corpus case was being heard by the Supreme Court, which would decide whether one could even approach the courts against illegal detention by the State, during the Emergency.
+- Every Indian wants a strong and independent judiciary. Obviously if the courts get weakened, it weakens the republic and harms every citizen.
+- Diet sodas contain a chemical sweetener called Aspartame, which is a potent neurotoxin and endocrine disrupter. Another key ingredient of soft drinks is phosphoric acid, which is added to give it 'bite.' Phosphoric acid is well known to cause tooth rot, bone loss, osteoporosis and gastro intestinal distress.
+- PM Narendra Modi had promised to bring back black money, which he said could put Rs 15 lakh in each of our pockets. If he wants to repair his damaged credibility in this regard, we need to see swift and visible action on the Panama Papers.
+- No public servant or legislator can claim any privacy to take money for conducting their official functions.
+- When I said that the court should be willing to suffer even intemperate criticism, I did not mean that people should level intemperate criticism. What I said is even if criticism is intemperate or unfair and bordering on scurrilous and abusive, it will be understood for what it is by the people.
+- I am extremely grateful and humbled by the solidarity and support expressed by countless persons, ex-judges, lawyers, activists and fellow citizens who encouraged me to remain firm and true to my beliefs and conscience.
+- There exists a cell of policemen within the Delhi Police which is accountable to no one but itself. Operating without uniforms, these are the dreaded encounters specialists of Delhi.
+- Though the Income Tax Act obliges even non-residents to pay tax on incomes earned in India, many foreign institutional investors avoided paying taxes citing the Double Taxation Treaty with Mauritius.
+- How we decide the vexed issue of the method of selection of judges of the Supreme Court and the high courts would determine the future of our democracy and the rule of law in the country. We are faced with the twin problem of selecting the best judges and also ensuring that the judiciary would be insulated from executive interference.
+- I believe that open criticism of any institution is necessary in a democracy, to safeguard the constitutional order.
+- One should at least have some self-righteous ego. Not in the sense that you refuse to apologise even when judges reason with you to apologise. Self-righteous ego in the sense that nobody can force you to apologise if there is no reason to do so.
+- The retention of the power to punish for contempt for acts of speech alone, which do not directly interfere with the administration of justice, has removed the last shred of accountability of the higher judiciary in the country.
+- The rule of law is the most basic principle on which our Constitution is based.
+- Bringing accountability to the judiciary must be preceded by frank public discussion and debate. Unfortunately that cannot get started with the threat of contempt looming over people.
+- Gujarat, which Modi has made the laboratory of Hindutva, is the leading edge of the onslaught of communal fascism in this country.
+- Eventually, understanding the motivations of the terrorists and dealing with the injustices that pervade our society, and repairing the institutions of justice, particularly the police and the judiciary, will be a much more effective way of fighting terror, than laws which give more draconian powers to corrupt and insensitive police organisations.
+- A Judicial Bureau of Investigation under an independent Judicial Complaints Commission, should be set up to investigate complaints against judges.
+- In order to keep the judiciary independent of the executive, the constitution provided impeachment as the only method for disciplining errant judges.
+- Normally, the secrecy and lack of transparency surrounding the appointment of judges of the higher judiciary ensures that citizens come to know of these appointments only after the Presidential notification, announcing the appointments, is issued.
+- Not wanting to suffer criticism, the judiciary has used its power of contempt to stifle criticism.
+- We must learn the correct lessons from the U.S. war on terror, which, far from making the U.S., its citizens and interests safe across the world has only increased insecurity worldwide and has led to many more terror attacks on U.S. interests and citizens across the world.
+- The wide and unregulated power of contempt given to the courts has been deliberately interpreted by the courts in a manner which has served to intimidate the media from exposing corruption and misbehaviour by the courts and judges.
+- Unless there is a strong movement of citizens, who are the consumers of justice, we are hardly likely to see any serious judicial reforms in this country.
+- Implementation of reforms within the Police and Intelligence agencies should certainly improve security and reduce terror attacks. But that will not eliminate the problem. Israel, with the most efficient intelligence, security and police has not been able to eliminate the problem, despite the small size of the country.
+- Though all soft drinks are acidic, dark ones like Coke and Pepsi are the most acidic and it has been found that it takes 32 glasses of high PH alkaline water to neutralize a glass of cola. So acidic are some of these drinks that they can be and are often used to clean corrosion of car battery terminals, and can even be used to clean toilet bowls.
+- It is argued by our GDP obsessed policy planners that eventually the money being made by the stock market operators or the IT industry would trickle down to the poor farmers in terms of ancillary jobs that would be created. But the fact is, that this has not happened, despite the boom in the stock market and the IT industry.
+- Every institution, including the judiciary has its share of black sheep and corrupt judges.
+- Since environmental and health damage is not factored into reducing GDP - and in fact the resulting health costs and the costs of cleaning up the environment would also inflate GDP, a GDP obsessed government would try and dismantle environmental and health regulations.
+- The Dinakaran episode has brought to the surface the vexed problem of the arbitrary and totally unsatisfactory manner of selecting and appointing judges as well as the unresolved problem of dealing with complaints of misconduct and corruption against judges.
+- It does not take much technical knowledge to understand why the interlinking of rivers is an absurd idea and a ruinous project.
+- When a few people control the bulk of money, they can not only influence elections by money power - which enables various forms of advertising and propaganda campaigns - they can also corrupt and misuse all institutions of the state to influence elections.
+- The judiciary is the only institution in the country which remains totally unaccountable. There is no institution with disciplinary powers over the judiciary.
+- In order to provide for their independence, the Constitution made judges of the superior courts immune from removal except by impeachment.
+- It is this obsession with GDP and FDI growth and a facile belief that this growth in the GDP would trickle down to the poor as well, that has led to the neglect of the genuine concerns of the poor in the country.
+- If only Rs.10 lakhs on an average were given to each of the less than 1 million villages in the country for rainwater harvesting on the lines pioneered by the Tarun Bharat Sangh in Rajasthan, much of the agricultural land in the country could be irrigated.
+- It is true that the battle for secularism must be fought in the hearts and minds of people, but how does one reach out to the hearts and minds in a fascist state?
+- In India, all public servants employed by the central or a state government or any other public authority under their control are required under the relevant civil service rules to submit returns of movable and immovable assets owned by them and their immediate family.
+- The Ramaswami case and subsequent attempts to impeach judges have demonstrated the total impracticality of that instrument to discipline judges.
+- Selecting about 100 judges of the higher judiciary every year in a rational and fair manner is an onerous task requiring a full-time and not an ex-officio body. An ex-officio body of sitting judges and ministers cannot devote the kind of time required for this job.
+- Those is power being largely corrupt, recognize that a non functional and corrupt judiciary will allow them to escape punishment even when they get caught.
+- With the passing away of Mr Tarkunde, India has lost the father of the Civil Liberties movement in the country.
+- The sword of contempt has kept the judiciary away from searching public scrutiny, particularly within the mainstream media. The judiciary is obviously happy to live with this situation as well.
+- Over the years, the judiciary has expanded its own powers by creative interpretations of the Constitution, particularly Article 21 which guarantees the right to life. This has been interpreted by the Supreme Court to include the right to a healthy environment, to health, primary education, livelihood and shelter.
+- In the Constitution of India the Supreme Court and the High Courts were seen as watchdog bodies, independent of the executive, and entrusted with the task of seeing that all institutions function in accordance with the Constitution, and the Rule of Law.
+- Some are motivated by a desire to mould the law to expand the rights of the downtrodden, while other may be motivated by a desire to maintain the Status Quo. Some may even be motivated by a desire to protect what they perceive to be their class interest. And such motives may not always even be conscious to the judges.
+- The judiciary is peopled by judges who are human, and being human, they are occasionally motivated by considerations other than an objective view of law and justice.
+- The secreting of wealth in tax havens is often justified as 'legitimate tax planning.'
+- When the entire administration of the state connives with the perpetrators of violence to thwart justice at every step, clearly there is no rule of law in that state.
+- The problem of illegal migrants into India, particularly from Bangladesh has been a longstanding and vexed political and legal problem, particularly since 1971 when there was a large scale influx of Bangladeshi refugees into India.
+- The main reasons for the growth and institutionalization of corruption are: a culture of secrecy with lack of transparency, and weak institutions for securing the accountability of public servants, such as the Vigilance bodies, the criminal investigative agencies and the judiciary.
+- It is a fundamental principle that every institution must be accountable to an authority which is independent of that institution. Yet somehow, the judiciary has propagated a view that the judiciary can only be accountable to itself.
+- A corrupt judiciary is hardly likely to hold a corrupt executive to account.
+- Our courts must send a clear signal that India is not a banana republic where foreign companies can be invited to loot our resources and even avoid paying taxes on their windfall gains from the sale of those resources.
+- Man's endeavour to cross even the most difficult terrain with railway lines has produced some of the most stunning marvels of engineering of the modern age.
+- No one can say that there are no monopolistic or restrictive trade practices in India.
+- It is inexplicable as to why the Chief Justice or other judges of the Supreme Court are unwilling to disclose their assets, particularly when they had themselves directed even candidates contesting elections to publicly declare their assets.
+- With the passing of Justice V.R. Krishna Iyer, who had just entered his 100th year, the world has lost one of the greatest judges and jurists of all time and also a fine human beings. He used his extraordinary juristic and intellectual gifts to help everyone he could and to address all forms of human suffering.
+- It has always been accepted, even in pronouncements by the Supreme Court that the Court and its judgements can be subjected to strong, even trenchant criticism. Is the same yardstick not available for comments on the use or abuse of the Court's powers of contempt?
+- It is difficult to believe that parties are unaware of the crimes that their M.P.'s are committing. But there is no effort to take action against them, till they are caught and publicly exposed.
+- In-house bodies of lawyers i.e. the Bar Council, and of doctors i.e. the Medical Council have notoriously failed to seek accountability of lawyers and doctors who have been misconducting themselves.
+- When the fascists are through with the Muslims and Christians, they will turn on the others.
+- You cannot cave in saying something that is against your conscience and belief. That self-righteous ego is a must for any self-respecting, truth-loving person.
+- The lack of judicial accountability exemplified by the lack of a system of selecting judges and of dealing with complaints against them, has indeed led to the system gradually losing its integrity.
+- Independence of Judiciary means independence from Executive and Legislature, but not independence from accountability.
+- A large part of the income of the 'Big 5' accountancy and consultancy firms derives from tax avoidance schemes which flourish in the name of tax planning. Their legality has agitated courts in India and abroad for a long time.
+- If public servants are freely allowed to take up lucrative post retirement jobs with companies to whom they have awarded contracts while they were in government, it would open up an easy way for companies to bribe public servants by offering them lucrative post retirement jobs.
+- The U.S. diplomacy in trying to bring around small-undecided nations to support its resolution to attack Iraq has been marked by threats and blandishments. The blandishments held out are a piece of the pie of the post-war reconstruction of Iraq.
+- Chinese engineers have spent years finding solutions to the problems of building a railway line on permafrost ground at altitudes above 4,000 metre.
+- No amount of intelligence or security can stop terrorists who are willing to give up their lives. They can only be stopped if their motivation is eliminated.
+- A serious flaw found by the Court in the IMDT Act was that it did not place the burden of proving his Indian citizenship on the person accused of being a foreigner, unlike in the Foreigner's Act.

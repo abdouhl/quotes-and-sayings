@@ -1,0 +1,48 @@
++++
+author = "Daniel Wu"
+title = "Daniel Wu Quotes"
+quotes_len = "42"
+description = "the best 42 Daniel Wu Quotes"
++++
+- For Cantonese - because there's no standardized pinyin system - I have to have someone read it to me, and then I rewrite the whole script in my own Cantonese pinyin.
+- Because my master was this renaissance man, I wasn't just learning a fighting style, I was learning how kung fu permeates all aspects of life, from eating to healthy living to mental state.
+- After working on 'Europa,' I found it incredibly freeing to speak English in a film, so it kind of sparked an interest in me as an artist to improve my acting.
+- We'll see what I do after 'Badlands' to show audiences that I have more in my repertoire besides martial arts.
+- I turned 40, got married, got a kid, and my mother passed away. I experienced life and death, with the enjoyment of creating life and the loss, within one year.
+- I wanted to try every style available to me - large productions, small productions, studio films, low-budget. You just can't sit around and wait for every big-budget film to come along.
+- I came from doing Wushu and other martial arts, and then I got into movies, and I had to learn that as well - the language of martial arts movie fighting. It's a different thing; it's a different kind of logic.
+- Part of the Hong Kong style is the fact that a lot of the performers can perform the moves, and we don't over-rehearse this stuff.
+- I've been lucky enough to build a career outside of America, where I got 18 years and over 60 films of experience.
+- I was a hyperactive kid, and it took awhile for me to find the right teacher. My master was a Shaolin kung fu teacher, but he also taught tai chi, Chinese medicine, brush painting - he was adept at all facets of Chinese culture.
+- Asian Americans haven't had as many opportunities as other people to build their careers in Hollywood, just because there hasn't been that much of an interest, especially in Asian American males.
+- I think filmmaking is a gamble anyway, right? You never know the results from the start.
+- What I miss from the States, I guess, is going to museums and to see small rock shows in small bars. We don't have that in Hong Kong. Unfortunately because the property market is so high, all rent is so expensive, they can't afford to have a rock music bar because those things don't make a lot of money, and they're paying a lot of rent.
+- I've built a career in Asia for 18 years, playing roles that had nothing to do with my race because everybody's Chinese in the films.
+- I went to Hong Kong in '97 to witness the handover after graduating university, and then I was gonna backpack around Asia and then come back here and look for a job.
+- At Diversion, we want to do genres that people are not doing - or, if we're doing genres that people are doing, to do them in a fresh way.
+- I worked with Jackie Chan for a long time, and seeing how much pain he's in, I realized that that might not be a sustainable career for me. So I started to develop my career as a dramatic actor rather than as an action actor.
+- When I was a kid, I loved watching kung fu movies - in San Francisco, we had 'Kung Fu Theater' on TV on Saturdays, and they'd air old Shaw Brothers movies with English dubbing, things like that.
+- It was 'Shaolin Temple,' Jet Li's first movie. That was the movie that got me to want to learn martial arts. Then I became a huge Jet Li/Jackie Chan fan after that.
+- If you're down to 6% body fat, which I've done before, you burn out really quickly. Like, in a couple hours, you're pretty much done, and then you're useless.
+- I really dislike the fact that Asian males are constantly emasculated, whether it's American TV or films. You see it all the time, and it's so weird that they don't see sexuality in Asian men.
+- It's not at all my objective to become an Asian-American star.
+- I really want to take time and be in the moment with my kid for at least the first year. I know she's not going to remember that, but it's really for the family chemistry.
+- I really feel that Hong Kong is my home, and Hong Kong is my identity as an actor.
+- The two don't necessarily translate, especially if you're a prize fighter: you've fought all your life, you've fought all these fights, and now you're trying to do a movie. You see that happen a lot - a lot of professional fighters don't necessarily make it so well into the movie world.
+- I graduated from university with a degree in architecture and then ended up doing a series of internships with different firms. And once I was in an office environment, I realized that at school what I was doing was 98 percent creative, 2 percent makework, but in the real world, it was the other way around.
+- What we did with 'Tai Chi Zero' and 'Tai Chi Hero' was break down the martial-arts genre and make it younger, hipper, and kind of cooler for the younger kids.
+- For Mandarin scripts, there's software now where you can just insert the Chinese script, and it comes out all in pinyin.
+- I ended up falling in love with the whole movie-making experience.
+- I definitely don't think I'm going to have a mid-life crisis.
+- In 'The Matrix,' you see the fight between Keanu Reeves and Lawrence Fishburne. It's an amazing fight. But I know that they've rehearsed it for months beforehand. Because in some of the moves you can see them anticipating blocks before they actually happen.
+- I miss the Bay Area - the kind of laid-back lifestyle. Because in Hong Kong, you're going, like, 90 miles an hour, which is fun when you're young.
+- In my 20s, it was easy. In your 40s, it's a lot more challenging. You have to look at it like you're an actor, but you're also a professional athlete. You have to train.
+- For us as Asian-Americans, I think the bane of our existence is one stereotype - 'Sixteen Candles,' the Long Duk Dong character.
+- I think growing up in the States and Australia, we were exposed to a lot of different types of things. I used to go to Gilman to watch punk shows, and it's a complete different environment - you were inspired by so many different things, whereas in Hong Kong, there is nothing for anybody.
+- You've gotta understand camera angles, camera movement - a kick that may not be very powerful may look very powerful from a certain angle.
+- In my 20s, I could just power through stuff and be fine, but now, in your 40s? It's kind of like Kobe Bryant. He plays basketball a little bit differently than he did when he first started out.
+- To do eleven fights in four months is pretty crazy. In some shows that we do in Asia, there are three or four fights over a six-month period, so you have time to recover and gain your stamina.
+- There's a huge interest in the Chinese market, and Hollywood has a huge interest in the Chinese market with films like 'Transformers' making more money over there than here.
+- My sister Gloria asked me to try modeling.
+- Bruce Lee was the first star I idolized. Growing up as a Chinese American, there weren't many people like me on the big screen.
+- For most normal people, deadlifts stretch your hamstrings, but in my case, it tightened them, because I was already very flexible.

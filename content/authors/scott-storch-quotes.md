@@ -1,0 +1,64 @@
++++
+author = "Scott Storch"
+title = "Scott Storch Quotes"
+quotes_len = "58"
+description = "the best 58 Scott Storch Quotes"
++++
+- You can't be 'on' everyday, no one is a hit machine all the time. But if you're loving the music it will happen. It shouldn't be laborious.
+- I think it's just sad in this industry that sometimes the pressures of being successful make you say things that are untrue.
+- My goal is get those chart positions, doing something good in music, and seeing that money in the bank.
+- I'm crossing the EDM barrier.
+- People don't go to the record store anymore. It's crazy. The culture used to be so much stronger. People would go and support you, and go pick up the album. Not just for the music, but for the liner notes, for the artwork, just for the whole thing and to have it, and be able to say, 'I have this album.'
+- You can't count me out.
+- I live in the studio and I'm inspired.
+- My father didn't believe in my music. I don't blame him.
+- I drive something different every day. It's just my hobby.
+- If people are given the right circumstances and the right track and the right melody, it's about the conviction. It's not necessarily about being a God-given virtuoso.
+- You should be able to deliver what the artist you're working with wants.
+- Music has changed, but there will always be a demand for amazing music.
+- I don't ever want to be considered some vanilla sherbet kinda guy.
+- I've always taken it upon myself to be a pioneer or a leader, and create a different sound, not just go by what the radio is playing at the time.
+- It's great to work with a group from Miami.
+- I'm always making tracks. I find that when you make tons of tracks, you stumble upon genius. You can't always turn the drum machine on and right away there's a hot track. Sometimes you luck out. But it can take a lot of time between thinking about the artist, listening to music for inspiration or going to clubs.
+- I never went out. I was not the guy at the club. I was almost scared of going to the club. All of a sudden, I found myself working with certain artists from L.A. and hanging out in L.A. and being introduced to a whole new lifestyle... and getting in trouble with them.
+- I keep my hip-hop as hip-hop, my R&B as R&B and my pop as pop. The ability to cross those boundaries and do all these things effectively is not commonly done.
+- Ne-Yo and I are great friends and we've worked on a bunch of stuff together back in the day.
+- The touring life wasn't for me. I like to wake up in the same place most days. And I'm really into sitting behind a mixing console and listening to music all night and making music all night. I'm a studio rat.
+- I watched my own father, he went bankrupt and had problems with the IRS. He was living beyond his means, and I guess I was doing the same thing and not even realizing it.
+- Every time I hit it with Big Boi, we always have good love. I was a huge fan of the 'Shutterbugg' record he did.
+- As soon as 'Still D.R.E.' starts playing, you know what it is because of the melody. Most of the world's biggest records are less chord-driven. They have that instantly recognizable sound.
+- Because I am white, I feel like certain opportunities were thrown to me through all of the people from the white community who prey on hip-hop culture.
+- Certain people, you just don't want to be around them.
+- I'm not the guy trying to be all up in the videos and be a celebrity. I feel like I'm going to lose a certain amount of my privacy if I do that.
+- As a kid, I used to sit there and figure out how to play everybody's song, and through learning all those songs I learned how to put chords together, and it evolved till I could say, 'Hey, I just wrote that.'
+- I want to delve into the world of performing.
+- I would take one of 15 half-million-dollar cars I owned and go to the mall and spend that much money. Stupid, stupid stuff. It's like it didn't make a difference. They were ego investments. I would have been great with three or four cars. I didn't need a 117-foot boat.
+- I wanted to be the man, the King of Miami.
+- I would always be going from L.A. to Miami to New York, to Russia, St-Tropez. Costs about $50,000 for a domestic flight, $250,000 for overseas. Yeah, that's an expensive habit.
+- Neo soul, hip-hop jazz, we started that.
+- Biggie was to me the guy who was the best at painting the picture and making you visualize something, Pac was the best poet, and I feel like Jay Z is all of the above. Then Rick Ross is just, every line he spits is just perfect, and he's one of my favorite MCs of all time.
+- I don't sample. I'm not like one of these guys who concoct some beat on my sampler and just turns it in.
+- Shyne's my man. I've been talking to him and I was talking to him all through his prison sentence. He's always remained a loyal person to me.
+- It's rare when you stumble upon this amazing melody. We'd love to make a 'Let Me Love You' every time we go into the studio, but it's definitely a special one.
+- I've been around a lot of greats I seen in this industry that have problems, but the comeback can be that much greater.
+- I spend six to seven days a week in the studio making records. I don't have time to go do a lot of things that you have to play the political game to get recognition with the Grammy crew.
+- Hip-hop is always what's the coolest, and people want to touch that. A lot of the Pop artists always want to get that stamp of approval and be down.
+- I always said that someday I'm going to sing on a record.
+- People just want the hottest records. It's not really about all the names attached to the project. It's about the work.
+- I would see musicians performing at weddings and bar mitzvahs, and I knew that at the very worst I could do that.
+- I had a long run for, like, probably 10 years with no vacation.
+- Me and Dr. Dre didn't speak for a while because I was going through my problems.
+- There's certain artists who are loyal and certain ones don't really care and don't give you the opportunity to follow through with them again. I'm insulted by a lot of the artists I delivered hits to.
+- I'm from New York. I was born in Long Island.
+- Let Me Love You' is one of my favorite records from my catalogue. It's one of those songs that just happened magically.
+- I make records from top to bottom. Bring the best out of the vocalist. I deal with live instrumentation on all our records.
+- I think most I regret the way I treated Dr. Dre after he so graciously opened the doors to his kingdom to me.
+- It's not always about working with the hottest artist. I sometimes go for challenges although people look at me strangely like, 'Why are you doing that?!' However, with a risk sometimes comes a huge reward. It's about having the vision to be able to turn a challenge into something, and then you win the Heisman.
+- You always want to be innovating and creating what's next. Versatility is also really important for a producer.
+- When I first heard 'Let Me Love You,' I knew immediately it was going to be a hit. I believed in it and I had to literally force it down the throats of his record label, who weren't believers at first.
+- When I work with Dre, he usually does more than 100 records and then picks his favorites.
+- I've never been to Canada in my life.
+- You can call me a beat-maker, but I'm a record producer.
+- Things that are truly great will be timeless.
+- You've got to continue to be patient and get all your ducks in a row in order to make a success within this business. It's not an easy thing to get into. It takes years and years and years.
+- I have fallen back in love with music, which has allowed me to get back to my roots and create sounds without borders.

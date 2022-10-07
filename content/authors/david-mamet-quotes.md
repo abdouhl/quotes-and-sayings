@@ -1,0 +1,111 @@
++++
+author = "David Mamet"
+title = "David Mamet Quotes"
+quotes_len = "105"
+description = "the best 105 David Mamet Quotes"
++++
+- The liberals in my neighbourhood wouldn't give away Brentwood to the Palestinians, but they want to give away Tel Aviv.
+- Mixed martial arts was invented by Brazilians, whose families had been trained by the Japanese. Those Brazilians came to the U.S., where their invention was bought out, gussied up and presented to the world, which found it good.
+- The surprise is half the battle. Many things are half the battle, losing is half the battle. Let's think about what's the whole battle.
+- I look back on my liberal political beliefs with a sort of wonder - as another exercise in self-involvement - rewarding myself for some superiority I could not logically describe.
+- It's hard to write a good plot, it's very hard.
+- I don't really have a social life.
+- Each culture has its own form of staged combat, evolved from its particular method of street fighting and cleaned up for presentation as a spectacle, e.g. savate, Cornish wrestling, karate, kung-fu.
+- The essence of jiu-jitsu is philosophy.
+- War is tragedy. The great war stories are tragedies. It's the failure of diplomacy. 'War and Peace,' 'A Farewell to Arms,' 'For Whom the Bell Tolls.' Those are some of the greatest tragedies.
+- I've been alienating my public since I was 20 years old. When 'American Buffalo' came out on Broadway, people would storm out and say, 'How dare he use that kind of language!' Of course I'm alienating the public! That's what they pay me for.
+- I understand that computers, which I once believed to be but a hermaphrodite typewriter-cum-filing cabinet, offer the cyber literate increased ability to communicate. I do not think this is altogether a bad thing, however it may appear on the surface.
+- I took the liberal view for many decades, but I believe I have changed my mind.
+- I grew up in a tough neighborhood and we used to say you can get further with a kind word and a gun than just a kind word.
+- I'm greedy and ambitious like everybody else.
+- My tendency as an actor was to correct people, was to say, 'What if we tried it this way, what about if we tried that way?' That's terrible habit for an actor, but that's a good habit for director. So I became a director.
+- A good film script should be able to do completely without dialogue.
+- The poker player learns that sometimes both science and common sense are wrong; that the bumblebee can fly; that, perhaps, one should never trust an expert; that there are more things in Heaven and Earth than are dreamt of by those with an academic bent.
+- Here's what happens in a play. You get involved in a situation where something is unbalanced. If nothing's unbalanced, there's no reason to have a play. If Hamlet comes home from school, and his dad's not dead and asks him if he's had a good time, it's boring. But if something's unbalanced, it must be returned to order.
+- Writing a novel is an incredibly free experience. One puts one's self in a narrative mode. You can go off in any direction - the past, the future, or go laterally, or include one's own beliefs. It's total freedom.
+- I didn't knowingly meet a conservative until, to my shame, I was 60 years old and sat down and said, 'Wow, I don't understand what this guy's talking about, but he has a great civility about him. Perhaps I better investigate this thing.'
+- My dad was an immigrant kid and a Democrat and a Jew, and we didn't know any Republicans in our group. So I grew up Democratic. My dad was a labor lawyer - a very hardworking guy, a one-horse labor lawyer - and then I went to hippie college and lived in the bubble.
+- What I value most in my friends is loyalty.
+- Roll back the clock, and every possession of every great country started with a crime.
+- The main question in drama, the way I was taught, is always, 'What does the protagonist want?' That's what drama is. It comes down to that. It's not about theme, it's not about ideas, it's not about setting, but what the protagonist wants.
+- The Israelis would like to live in peace within their borders; the Arabs would like to kill them all.
+- People may or may not say what they mean... but they always say something designed to get what they want.
+- President Obama seems to understand the Constitution as a 'set of suggestions.'
+- Being among my people is a delight. We Jews live among ourselves. I love it.
+- In a world we find terrifying, we ratify that which doesn't threaten us.
+- A stage play is basically a form of uber-schizophrenia. You split yourself into two minds - one being the protagonist and the other being the antagonist. The playwright also splits himself into two other minds: the mind of the writer and the mind of the audience.
+- I'm afraid of only two things: being lazy and being cowardly.
+- A play is basically a long, formalistic polemic. You can write it without the poetry, and if you do, you may have a pretty good play. We know this because we see plays in translation. Not many people speak Norwegian or Danish or whatever guys like Ibsen spoke, or Russian - yet we understand Chekhov and the others.
+- Policemen so cherish their status as keepers of the peace and protectors of the public that they have occasionally been known to beat to death those citizens or groups who question that status.
+- I've been alienating my public since I was 20 years old.
+- You can't write about history without writing about politics at some point. History is about movements of people. 'What is criminality and what is government' is a theme that runs through every history.
+- I hate the computer. I hate their spell-check. I won't ever do e-mail.
+- I love working on a typewriter - the rhythm, the sound; it's like playing the piano, which I do, too.
+- Old age and treachery will always beat youth and exuberance.
+- The Founders recognized that Government is quite literally a necessary evil, that there must be opposition, between its various branches, and between political parties, for these are the only ways to temper the individual's greed for power and the electorates' desires for peace by submission to coercion or blandishment.
+- The quality I most admire in a man is steadfastness.
+- When the three branches of government have failed to represent the citizenry and the mass of the media has failed to represent the citizenry, then the citizenry better represent the citizenry.
+- I'm not the guy to ask about politics. I'm a gag writer.
+- I've always been more comfortable sinking while clutching a good theory than swimming with an ugly fact.
+- One person may need (or want) more leisure, another more work; one more adventure, another more security, and so on. It is this diversity that makes a country, indeed a state, a city, a church, or a family, healthy. 'One-size-fits-all,' and that size determined by the State has a name, and that name is 'slavery.'
+- I love all insider memoirs. It doesn't matter whether it's truck-drivers or doctors. I think everybody likes to go backstage, find out what people think and what they talk about and what specialised job they have.
+- There's something in me that just wants to create dialogue.
+- There's nothing in the world more silent than the telephone the morning after everybody pans your play. It won't ring from room service; your mother won't be calling you. If the phone has not rung by 8 in the morning, you're dead.
+- In Chicago, we love our crooks!
+- I'm not an ascetic.
+- It's upsetting to be a man in our society.
+- Obama is a tyrant the same way FDR was a tyrant. He has a view of presidential power that states: the government is in control of the country, and the president is in charge of the government. He's taken an imperial view of the presidency.
+- Culture exists and evolves to relegate to habit categories of interactions the constant conscious reference to which would make human interaction impossible.
+- When we leave the play saying how spectacular the sets or costumes were, or how interesting the ideas, it means we had a bad time.
+- My dad was a labour lawyer, and the ideas that I grew up with - bad management, bad capitalism, robber barons - when I applied this to my own life, I saw that we are all on both sides of the coin.
+- There's no such thing as talent; you just have to work hard enough.
+- The individual is not only best qualified to provide his own personal defense, he is the only one qualified to do so: and his right to do so is guaranteed by the Constitution.
+- American football seems to resemble soccer in that one scores by putting the ball through the opponent's goal; but football, truly is about land. The Settlers want to move the line of scrimmage Westward, the Native Americans want to move it East.
+- My greatest fear is that the audience will beat me to the punch line.
+- Conservatives believe in smaller government and in the power of the electorate. So I think that we're less likely to try to use a dramatic forum to warp people's political views.
+- My idea of perfect happiness is a healthy family, peace between nations, and all the critics die.
+- They say you can't study Kabbalah until you are at least 40 years old. You know why? You have to have experienced at least one generation making the same mistakes as the previous one.
+- We respond to a drama to that extent to which it corresponds to our dreamlife.
+- Films have degenerated to their original operation as carnival amusement - they offer not drama but thrills.
+- A liberal pretending to be a conservative? That's like a straight person pretending to be gay to get greater acceptance.
+- The honest man might observe... that no one gets something for nothing; that politicians go in poor and go out rich; that the Government screws up everything it touches; and that the Will to Believe is best confined to the Religious Venue, as to practice it elsewhere is just too damned expensive.
+- I like Bach. I like Randy Newman.
+- It's hard for a Jew of my generation, an American Jew, who is philo-Zionistic, not to romanticize Israel.
+- The basis of drama is... the struggle of the hero towards a specific goal at the end of which he realises that what kept him from it was, in the lesser drama, civilisation and, in the great drama, the discovery of something that he did not set out to discover but which can be seen retrospectively as inevitable.
+- Liberalism is a religion. Its tenets cannot be proved, its capacity for waste and destruction demonstrated. But it affords a feeling of spiritual rectitude at little or no cost.
+- If, indeed, a firearm were more dangerous to its possessors than to potential aggressors, would it not make sense for the government to arm all criminals, and let them accidentally shoot themselves? Is this absurd? Yes, and yet the government, of course, is arming criminals.
+- I love the British.
+- There is a profound and ineradicable taint of antisemitism in the British.
+- I look back upon my Liberal political beliefs with a sort of wonder - as another exercise in self-involvement - rewarding myself for some superiority I could not logically describe.
+- I've always been fascinated by the picaresque.
+- I don't think there's any information to be gotten from television.
+- When I started out I was a failed actor.
+- Art and mass entertainment and propaganda, they can all be plotted on the same graph, but there is a difference.
+- The so-called assault weapons ban is a hoax. It is a political appeal to the ignorant. The guns it supposedly banned have been illegal for 78 years. Did the ban make them 'more' illegal? The ban addresses only the appearance of weapons, not their operation.
+- I'm entitled to my political opinions, and I get to vote because I'm an American.
+- It's only words... unless they're true.
+- People only speak to get something.
+- I know very well what it is to be out of work and to be cheated by employers and I know what it is to be an employer.
+- Our job, as writers is to do our jobs.
+- Always tell the truth - it's the easiest thing to remember.
+- Movies were never an art form, they were entertainment. It just evolved into an art form from there, and it's still evolving in different ways.
+- I used to think I'd like to be a fireman - in fact, I still would - and the only drawback I could see was coming back to the firehouse, after a day of fighting fires, and still having to put in an eight-hour day writing.
+- I won't ever do e-mail.
+- You know, young actors say all the time, 'Should I use my own life experience?' And my response is, 'What choice do you have?'
+- I'm afraid of only two things: being lazy and being cowardly. I get up early in the morning and go to work. I love to write.
+- Every reiteration of the idea that nothing matters debases the human spirit.
+- You get rich through luck. You get rich through crime. You get rich through fulfilling the needs of another. You can be as greedy as you like. If you can't do one of those three things, you ain't going to get any money.
+- If you're writing an opinion piece, it's your job to write your opinion. If, on the other hand, you wrote a novel, as Virginia Woolf tells us, it would be inappropriate if you let your novel be influenced by your political opinions.
+- My definition of a 'friend' is, coming from Chicago, someone who says, 'Yeah, sure. You know what? Let's talk about what we can talk about. Let's help each other out. Your politics are none of my business.'
+- The government, for example, has determined that black people (somehow) have fewer abilities than white people, and, so, must be given certain preferences. Anyone acquainted with both black and white people knows this assessment is not only absurd but monstrous. And yet it is the law.
+- It's hard to write a good play because it's hard to structure a plot. If you can think of it off the top of your head, so can the audience.
+- In practice we, in the world, must do business with each other.
+- We Americans have always considered Hollywood, at best, a sinkhole of depraved venality. And, of course, it is. It is not a protective monastery of aesthetic truth. It is a place where everything is incredibly expensive.
+- Listen, here's the thing about an English degree - if you sat somebody down and asked them to make a list of the writers they admire over the last hundred years, see how many of them got a degree in English.
+- I always thought the real violence in Hollywood isn't what's on the screen. It's what you have to do to raise the money.
+- The product of the artist has become less important than the fact of the artist. We wish to absorb this person. We wish to devour someone who has experienced the tragic. In our society this person is much more important than anything he might create.
+- I hate vacations. There's nothing to do.
+- People ask me, 'What do you do?' And I tell them I'm a writer, but always with the silent reservation, 'I am, of course, not really a writer. Hemingway was a writer.'
+- It is not the constitutional prerogative of the Government to determine needs.
+- I was fortunate enough to have a rambling youth.
+- In my family, in the days prior to television, we liked to while away the evenings by making ourselves miserable, solely based on our ability to speak the language viciously.

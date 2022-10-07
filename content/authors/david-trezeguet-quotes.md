@@ -1,0 +1,82 @@
++++
+author = "David Trezeguet"
+title = "David Trezeguet Quotes"
+quotes_len = "76"
+description = "the best 76 David Trezeguet Quotes"
++++
+- I love scoring.
+- Juventus has been the most important team in my career. I have done eight beautiful years there. I have won a lot there.
+- It is true I know Buffon well, but I didn't change my style of taking penalties because of that.
+- Teams like Marseille or Paris, I'm interested in.
+- I have heard a lot of good stories about the UAE through my colleagues and those who have been here.
+- Juve are made to win.
+- I joined a big club like Monaco and it was extraordinary for my growth as a player. That gave me the chance to break into the national squad, win the 1998 World Cup, the EURO in 2000, and make the leap to Italian football.
+- The FFF decided to continue with Domenech, too bad for them!
+- I want to leave Juventus as a winner.
+- Dani Alves made it clear that he wanted to join Juventus and that says a lot. If players of his caliber join the club, that shows people believe in this project.
+- There is no need to hide the fact that the Champions League is very important to us. We want the Scudetto, Coppa Italia and Supercoppa Italiana, but the Champions League is very important.
+- I want to finish my story with Juventus by winning something.
+- I've always been Argentinian at heart and I've always been very fond of its football.
+- At Juve, I learned to always want to win and be a protagonist.
+- The foreign players have arrived in India to give our contribution in order to improve the Indian League, to make it more smart, more well-known, more open, and also to prove our quality along with Indian players.
+- According to me, Indian players have a lot of will-power and this ability to learn will definitely put them on the right track. One day the Indians will jump to the European levels and to the levels that count.
+- Ligue 1 attracts me very much.
+- To win ISL would be great. We came to India with the desire to make good things, and we hope our efforts will be rewarded.
+- The Champions League has been the prime objective of my career.
+- Having caught up with a myth like Sivori is something I will treasure forever. I am proud. He used to entertain and bamboozle defenders with his exceptional technique.
+- Asian football is the future of football.
+- Emotionally, I love Monaco. This is my club.
+- I want to give some advice; to win you need champions who are used to winning and who have the winning mentality.
+- Everybody respected my choice to join the ISL. I was the one to decide to come to India and then many other foreign players decided to do the same.
+- It's a massive honour for me to be playing for Juventus.
+- I live for goals. That's what you are judged by.
+- I would defend, just so long as I play.
+- Ten years with Juve was a great love story and I will forever be a fan of Juventus.
+- I've got a lot of affection for the people at River and I think it's mutual. The fans quickly understood that I came here hoping to play football.
+- River? They are a very strong club, and I don't think there would be many players that would reject the opportunity to play there.
+- Losing is part of football.
+- I am very happy to be playing in the United Arab Emirates.
+- It's always a pleasure to know clubs like Chelsea, with their ambitious owner, are interested in you.
+- The Italian one is the toughest league of all for the attackers.
+- I would have definitely loved to have continued with the French national team. Having said that, perhaps when I left, it opened the doors of the national side for young talented players.
+- India is a special country in so many ways and I have always had the desire to go to India.
+- Yes, I can confirm that the Rossoneri made an offer for me, it was really an honour to be coveted by them, but my desire was to remain with Hercules.
+- I am not someone who forgets things and changes his way of thinking.
+- The France team still has a place in my heart.
+- Penalties are part of the game.
+- I know my body perfectly well.
+- It is obvious that it is nice for any player to know he is wanted by a team like Barcelona, with Guardiola as coach, and with players like Messi or Puyol.
+- When a World Cup is held in France, it's such an incredible even.
+- It was a winning team and there were lots of important footballing lessons that I learned in Juventus.
+- For all that Zidane has done for the national team, you have to say 'Thank you and well done.'
+- Football is a passion and I could not live that in Arabian football.
+- Historically, Juve are a very ambitious club.
+- When a coach arrives at Juve, he has to win every Sunday, no draw matters, all that matters are the three points.
+- French people love sport, and they love their national teams even more.
+- The Champions League is our obsession, the No. 1 objective for Juventus.
+- Namely I'm a fan of sides like Lyon, Marseille, PSG, but there is no preference. All these clubs, as well as Bordeaux, have a great history.
+- I like Sarri as a coach.
+- I came here to Hercules with a willingness to do well, and my objective is to demonstrate my worth and my ambition.
+- I will always be in love with Juve.
+- Juventus have to go and win everywhere.
+- In Italy they judge you above all on your efficiency.
+- I always say that someone who doesn't score isn't a forward.
+- It's part of football to accept your responsibility.
+- Criticism of me has been unfair. Only goals count - and I have plenty of those.
+- I think Griezmann has all the quality to overcome Thierry Henry, as Mbappe has too.
+- When Tigana took me on at Monaco he didn't know much about me but he gave me a chance, and then he was very patient and allowed me to develop. Under him, I became braver.
+- At Juve you were first or you were nothing. If we went out of the Champions League it was a tragedy. I saw team-mates who did not eat for a week.
+- The Indian players put in a lot of efforts and are eager to learn as much as possible which is very important.
+- Every time France has the chance of doing something big in the world of sport, it always carries it off well.
+- I didn't want to quit the national team.
+- Financially, it's true that France does not have the same pulling power as England, Spain or Italy. But this is not the aspect that matters most to me.
+- I am not selfish.
+- We have a strong relationship, Juve and I, even after I left in 2010.
+- Players such as Gianluigi Buffon, Andrea Pirlo and Mirko Vucinic are all world-class.
+- Personally, I would like to face Barcelona in every game because it gives you so much motivation and you learn a lot from it. Pep Guardiola is a really important person in the history of their club. He has a winning mentality and that is fundamental.
+- That's where I spent the biggest chunk of my career, having been at Juventus for ten years. That was the best thing that happened to me because it was where I got to know real football, at an ambitious club with ambitious players.
+- Even as an Argentinian, I've been very clear in my attitude towards France: I've always had a huge amount of respect toward a country that took me in and gave me so much.
+- European teams have always shied away from South American football. They struggle to get to grips with it. The South American game is more technical and about keeping possession, while European football is more dynamic, physical and direct.
+- Sooner or later everything has to come to an end.
+- When you've got enough enthusiasm, and don't overthink, things turn out well.
+- Playing at River is a unique experience for any player.

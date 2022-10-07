@@ -1,0 +1,54 @@
++++
+author = "William Feather"
+title = "William Feather Quotes"
+quotes_len = "48"
+description = "the best 48 William Feather Quotes"
++++
+- Many of our prayers were not answered, and for this we are now grateful.
+- Wealth flows from energy and ideas.
+- He isn't a real boss until he has trained subordinates to shoulder most of his responsibilities.
+- Any man who makes a speech more than six times a year is bound to repeat himself, not because he has little to say, but because he wants applause and the old stuff gets it.
+- Don't let ambition get so far ahead that it loses sight of the job at hand.
+- Women lie about their age; men lie about their income.
+- Temporary success can be achieved in spite of lack of other fundamental qualities, but no advancements can be maintained without hard work.
+- Finishing a good book is like leaving a good friend.
+- The philosophy behind much advertising is based on the old observation that every man is really two men - the man he is and the man he wants to be.
+- If you're naturally kind, you attract a lot of people you don't like.
+- Setting a good example for your children takes all the fun out of middle age.
+- Every social injustice is not only cruel, but it is economic waste.
+- Business is always interfering with pleasure - but it makes other pleasures possible.
+- Not a tenth of us who are in business are doing as well as we could if we merely followed the principles that were known to our grandfathers.
+- The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.
+- One of the many things nobody ever tells you about middle age is that it's such a nice change from being young.
+- One way to get the most out of life is to look upon it as an adventure.
+- The wisdom of the wise and the experience of the ages is preserved into perpetuity by a nation's proverbs, fables, folk sayings and quotations.
+- If people really liked to work, we'd still be plowing the land with sticks and transporting goods on our backs.
+- One of the funny things about the stock market is that every time one person buys, another sells, and both think they are astute.
+- Some of us might find happiness if we quit struggling so desperately for it.
+- An invitation to a wedding invokes more trouble than a summons to a police court.
+- When ordering lunch, the big executives are just as indecisive as the rest of us.
+- Back of ninety-nine out of one-hundred assertions that a thing cannot be done is nothing, but the unwillingness to do it.
+- Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.
+- Some people are making such thorough preparation for rainy days that they aren't enjoying today's sunshine.
+- The tragedy is that so many have ambition and so few have ability.
+- Success seems to be largely a matter of hanging on after others have let go.
+- A budget tells us what we can't afford, but it doesn't keep us from buying it.
+- Concentrate on your job and you will forget your other troubles.
+- The reward of energy, enterprise and thrift is taxes.
+- The prizes go to those who meet emergencies successfully. And the way to meet emergencies is to do each daily task the best we can.
+- If we do not discipline ourselves the world will do it for us.
+- We always admire the other person more after we've tried to do his job.
+- Here is the secret of inspiration: Tell yourself that thousands and tens of thousands of people, not very intelligent and certainly no more intelligent than the rest of us, have mastered problems as difficult as those that now baffle you.
+- One of the indictments of civilizations is that happiness and intelligence are so rarely found in the same person.
+- An idea isn't worth much until a man is found who has the energy and ability to make it work.
+- Next to a sincere compliment, I think I like a well-deserved and honest rebuke.
+- Early morning cheerfulness can be extremely obnoxious.
+- Most of us regard good luck as our right, and bad luck as a betrayal of that right.
+- Something that has always puzzled me all my life is why, when I am in special need of help, the good deed is usually done by somebody on whom I have no claim.
+- Few of us get anything without working for it.
+- Beware of the person who can't be bothered by details.
+- A man must not deny his manifest abilities, for that is to evade his obligations.
+- When lying, be emphatic and indignant, thus behaving like your children.
+- That they may have a little peace, even the best dogs are compelled to snarl occasionally.
+- No man is a failure who is enjoying life.
+- Books open your mind, broaden your mind, and strengthen you as nothing else can.

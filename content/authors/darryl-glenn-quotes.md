@@ -1,0 +1,86 @@
++++
+author = "Darryl Glenn"
+title = "Darryl Glenn Quotes"
+quotes_len = "80"
+description = "the best 80 Darryl Glenn Quotes"
++++
+- I open my mind and allow the Holy Spirit to come in.
+- Racism in America is real.
+- I'm somebody who has a military background, grew up in Colorado Springs, and has been a Colorado resident basically since I was two and a half.
+- The one thing I'm absolutely tired of hearing is 'Republicans reaching across the aisle.' We need to step up and lead, ladies and gentlemen. I'm tired of reaching across the aisle.
+- Where are Jesse Jackson and Rev. Al Sharpton? They don't speak for Black America, and they don't speak for me.
+- My life will not be defined by a single political campaign. Those will come and go. But what has driven me to run for elected office in the past still drives me today: the knowledge that heroes do walk among us with tremendous strength and power.
+- As a kid, there was not much I could do to stop the violence in our home. When I got older, as a father, I did everything I could to raise my children with a father that loved them, protected them, and made them feel safe.
+- I say exactly what I am going to do and how I am going to vote, and I have a 13-year record to back it up.
+- I want to make sure that when we're talking about health care, you want to make sure that women have the ability and access to health care so that they understand all the different options that are out there.
+- I would say a successful campaign reflects the desire of the people who are there to support a candidate.
+- As conservatives, we cannot just concede education over to the Democrats. We really need to be actively involved. And that's why I've been such a proponent of school choice and the other options that are out there, because the Left is clearly out there driving the agenda, trying to shape the minds of the next generation.
+- The threat from radical Islam is real.
+- All of my life, I've been told no. That I was too poor, too short, too black. I enjoy it when people underestimate me.
+- There is no constitutional basis for the federal government to be mandated to assist with student debt.
+- I am not a Republican apologist.
+- I will absolutely be supporting the Republican platform and voting for Mr. Trump.
+- I am the Democratic Party's absolutely worst nightmare. Why is that? Well, you see, I am a black conservative Republican running against one of the most vulnerable Democrats in America in 2016.
+- I trust Colorado families and teachers way more than I trust D.C. central planners who think they know better than parents do.
+- I have nothing negative to say about Congressman Lamborn.
+- I am an unapologetic Christian, constitutional conservative, pro-life, Second Amendment-loving American!
+- My election results speak to my level of service.
+- Climate change - we can debate that until the cows come home, for lack of a better way of stating that. The bottom line is, I do not believe that man is contributing to that factor.
+- When you grow up in a violent home, the fights, the screaming, the pain all blur together. To survive, you block as much of it out of your head as you can in the moment. You try to forget it going forward.
+- When we put country first, it's amazing that we're going to be able to bring people together instead of dividing America.
+- My experience as a county commissioner has taught me that the best ideas often come from our neighbors, church groups, and community.
+- I'm tired of politicians saying one thing to get elected and then going to Washington, D.C., or Denver or wherever and completely forgetting about you.
+- Michael Bennet can't possibly understand the impact of flooding our job market with workers that aren't citizens of this country, and when we fight, they call us racist. When did wanting to feed your family become racist?
+- You have to have enough conviction to stand for something. It doesn't matter if it's the opposing party or your own party.
+- Hillary Clinton is a threat to the rule of law and to our safety and security.
+- I'm a strong man of faith.
+- If you are going to stand for the rule of law, if you are going to raise your hand and support the constitution, then you need to follow the law.
+- I went to, while I was in the military, Western New England College for my MBA and New England School of Law for my law degree.
+- Donald Trump went through the process, he earned the vote, and I am not in support of overturning the will of the voters.
+- I'm willing to work with anybody that will put the country first.
+- Nobody wants bad cops off the street more than good cops.
+- My life is an open book.
+- While I might not agree with everything Donald Trump says, I proudly stand with Donald Trump.
+- I'm accountable to my God, and I haven't done anything I'm embarrassed of.
+- If you really want to heal our communities, more men to step it up to take care of their children. Safe neighbors happen when fathers and mothers are at home.
+- Here's a fact: I absolutely understand the humiliation of being stopped for no reason other than driving while black.
+- I don't know any elected Democrats that I get along with.
+- Better educating our college students on the risks of high student debt and helping them to find alternatives to taking out student loans would help make the difference to their financial future.
+- I'm running against the Democrats. I'm running against evil.
+- My priority is to repeal the Iran Nuclear Deal and vote to do that. I think it's extremely dangerous... you don't negotiate with terrorists.
+- What I'm in favor of is making sure we have security for our country and we can control access to our country.
+- This era of political correctness out there needs to go.
+- I tell people all the time: All I need is gas money.
+- I knew I always wanted to get involved in politics.
+- If your neighbor is doing something wrong, let's call it. Let's say this person is doing wrong, and let's notify our law enforcement so we can actually vet that individual.
+- I'll absolutely be focusing in on the defense of this nation and making sure that our men and women have the proper tools, training, and equipment to do their jobs, that they have clear rules of engagement and, in the event that something happens to them, that we have a VA system that actually works.
+- We need to show the fact that when you start thinking about freedom and liberty, personal responsibility, and opportunity to achieve the American Dream, the Republican party is the best party to do that.
+- If you are a black person growing up in America, chances are pretty good that you have experienced the police pulling you over in front of your mother's house because you 'had a headlight out.'
+- Someone with a nice tan needs to say this: All lives matter.
+- Ladies and gentlemen, there is evil in this world.
+- I grew up in a military family. My father spent 26 years in the Air Force.
+- When you spend almost two years out talking to people, praying with them, and really finding out some of those tough issues that are impacting them, it makes a lasting impression on you.
+- I grew up in a broken home.
+- I run a campaign where we do not take on debt.
+- We can bring this country together. But we must realize that our heroes in blue are part of the solution and not the problem.
+- Open borders would be clear access to this country without going through a legal immigration process, and that's exactly what Mrs. Clinton is wanting us to do.
+- I support the elimination and defunding of all agencies like the Education and Energy Departments because they fall outside of the framework of the Constitution.
+- I have been going into the underserved neighborhoods and talking to people and letting them know that the conservative message does work. Conservatives need to realize that you actually have to go in there and ask for the vote.
+- We have to stop the cycle of violence affecting so many of our communities. We have to love each other.
+- We need to start standing up for freedom and liberty.
+- Al Sharpton doesn't even pay for his own suits.
+- I have a track record of going out and talking to my constituents and then standing up and representing them. That's what people want.
+- America needs to step up and lead for once.
+- I don't look at polls. It's about results. And every single time that people have had an opportunity to vote for me, we've been on top.
+- I'm sick of hearing white liberals claim that if you call them out for their failed liberal programs, you're a racist. It makes my blood boil - which is part of why I am running.
+- I believe Colorado needs representation from a conservative who has worked his way through the types of obstacles with which nearly all middle-class and lower-income people struggle.
+- The next generation is going to have to understand that Social Security is just one leg of a stool. We need to actually bring back that savings incentive, and the only way you're going to be able to do that is if you have a job.
+- I, for one, want to see Mr. Cruz as a Supreme Court appointee.
+- I told the truth when I said I have never been arrested. I have never been handcuffed or fingerprinted. I have never appeared in court as a defendant.
+- Like anything, I remember who I work for. You work for the people who sent you to office.
+- I'm dedicated to healing the wounds between police and minority communities so both sides feel safe again.
+- Islam and the Constitution are in clear conflict.
+- I'm standing up for the American people.
+- I love being the underdog.
+- I'm pro-life. I believe in life at conception.
+- We should all be proud of who and what we are.

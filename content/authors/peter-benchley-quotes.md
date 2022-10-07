@@ -1,0 +1,41 @@
++++
+author = "Peter Benchley"
+title = "Peter Benchley Quotes"
+quotes_len = "35"
+description = "the best 35 Peter Benchley Quotes"
++++
+- If you're young and wild, you tend to believe your clippings. One day you're Hemingway. The next day you're nothing.
+- I'm a babe in the woods when it comes to the Internet.
+- If you take away the predators in the prairies and the national parks, you suddenly have an explosion of elk, and then you have a lack of the food source for the elk, so they strip all the ground bare and that takes away the cover, on and on and on and on. The whole food chain is disrupted.
+- We provoke a shark every time we enter the water where sharks happen to be, for we forget: The ocean is not our territory - it's theirs.
+- Almost any shark, three or four feet long, could kill a human being if it chose to do it. It could make you bleed to death. But they don't.
+- Ideas for stories come to me based on my life, so who knows? If somebody sends me to become an astronaut, that's what I'll end up writing.
+- I don't believe in blaming inanimate objects for anything.
+- I read very widely, both non-fiction and fiction, so I don't think there's a single writer who influences me.
+- Twenty-five years ago nobody knew much about white sharks.
+- If man doesn't learn to treat the oceans and the rain forest with respect, man will become extinct.
+- Without the oceans there would be no life on Earth.
+- We do not just fear our predators, we are transfixed by them. We are prone to weave stories and fables and chat endlessly about them.
+- If we choose to walk into a forest where a tiger lives, we are taking a chance. If we swim in a river where crocodiles live, we are taking a chance. If we visit the desert or climb a mountain or enter a swamp where snakes have managed to survive, we are taking a chance.
+- I dive as much as I can.
+- It is not that I don't have a fear of sharks, it is that I have a respect for them, so that I know any more than if I were to go into the jungle, I would have a fear of tigers, that I would try to lower the odds.
+- Reputations rise and fall almost as regularly as the tides.
+- I guess I'm a hopeful optimist, because to be a pessimist is to be suicidal.
+- I believe implicitly that every young man in the world is fascinated with either sharks or dinosaurs.
+- We are already perilously close to killing off the top of the oceanic food chain - with catastrophic consequences that we can't begin to imagine. Let us not, in the heat of anger, reduce the already devastated population of great white sharks by one more member.
+- It's hard to care deeply for something that might turn on you and eat you.
+- In a deeply tribal sense, we love our monsters, and I think that is the key to it right there. It is monsters; it is learning about them: it is both thrill and safety. You can think of them without being desperately afraid because they are not going to come into your living room and eat you. That is 'Jaws.'
+- Without sharks, you take away the apex predator of the ocean, and you destroy the entire food chain.
+- I don't think there's such a thing as an unprovoked shark attack.
+- I hope that 'Jaws' will have brought sharks into the public interest at a time when we desperately need to reevaluate our care for the environment.
+- Writing is sweat and drudgery most of the time. And you have to love it in order to endure the solitude and the discipline.
+- We should be afraid of sharks half as much as sharks should be afraid of us.
+- A human being is still more likely to die of a bee sting, snake bite or, Lord knows, automobile accident than by shark attack. We do not execute the perpretrators of death by car. We should not butcher an animal for an inadvertent homicide.
+- I didn't invent the fear of sharks; it's as old as mankind, and that - to take that responsibility would mean that Mario Puzo should take the blame for the Mafia.
+- I've never been hurt by a sea creature, except for jellyfish and sea urchins.
+- Because the Asian market is so omnivorous, it affects all the shark populations up and down the Central and South American coast, and to a certain extent the East Coast of the United States as well.
+- Everything I've written is based on something that has happened to me or something that I know a great deal about.
+- Fascinations breeds preparedness, and preparedness, survival.
+- There was a minor burst of macho nuttiness after 'Jaws' came out, in which people would go off in shark tournaments and come back holding the bloody heads of these animals and say, 'Look what I did.' But they've been doing that for hundreds of thousands of years anyway.
+- Since writing JAWS, I've been lucky enough to do close to forty television shows about wildlife in the oceans, and yes, I have been attacked by sea creatures once in a while.
+- Sharks don't target human beings, and they certainly don't hold grudges.

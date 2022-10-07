@@ -1,0 +1,36 @@
++++
+author = "Pat Brown"
+title = "Pat Brown Quotes"
+quotes_len = "30"
+description = "the best 30 Pat Brown Quotes"
++++
+- Without solid connections between homicides, we may have the reverse problem of believing three local murders are the work of one serial killer when they may actually be the work of three!
+- There are two kinds of serial killers as far as the victim is concerned: the kind that you don't see before they pounce on you and the kind you see and don't expect to pounce on you.
+- The accepted definition of a serial killer is a person who kills at least three times with a cooling off period in between his murders.
+- While we are being fascinated by the tales of famous serial killers and how they were brought to justice, the real serial killer goes about his business with hardly a thought to being caught.
+- While there are many wonderful police investigators out there doing some very fine work, the majority of the time it is not brains that catches serial killers.
+- Police are reluctant to label a murder as a possible serial homicide.
+- What does signature mean? Supposedly these are the added touches that make the crime personal to the killer.
+- There are many more serial killers living outside the prison walls than inside.
+- The most important issue for the killer is the ability to get a victim easily and successfully.
+- Outside of dumb luck, the number one way serial killers are caught is through the help of the public.
+- In reality, those rare few cases with good forensic evidence are the ones that make it to court.
+- Using MO to link crimes can be problematic.
+- Serial killers kill for the power and control they experience during the murders and for the added ego boost they get in the aftermath from community fears, media coverage, and the police investigations.
+- Most well-known serial killers have victims numbering in the dozens, have sent taunting letters to the police or have done bizarre things to the bodies.
+- The one noticeable similarity with almost all serial killer victims is their short height and low weight.
+- Serial killing is not about sex at all, but about power and control and revenge on society.
+- We assume people we know can't be serial killers.
+- Nowadays, with much more racial and ethnic mixing, we are seeing serial killers murdering a variety of victims; whoever comes along will most likely do.
+- Serial killers are everywhere! Well, perhaps not in our neighborhood, but on our television screens, at the movie theatres, and in rows and rows of books at our local Borders or Barnes and Noble Booksellers.
+- Telling the community a serial killer is out there stirs up a lot of unpleasant attention.
+- Last but not least among serial killer methodologies, we have women who kill their own children.
+- Since there are only so many ways to kill a person, a good portion of homicides look pretty much alike.
+- All serial killers want to win. They choose victims they can kill successfully.
+- Killers can seem smart when you can't figure out who they are.
+- Evidence can vary depending on the circumstances, the weather, and how long it has been hanging around.
+- We struggle to understand how any mother could kill her own children.
+- In reality, serial killers are of average intelligence.
+- Often I am asked if there is any such thing as a female serial killer.
+- Often, a serial killer has no felony record.
+- Many of the less prolific killers' stories go unheard because they simply don't make good books.

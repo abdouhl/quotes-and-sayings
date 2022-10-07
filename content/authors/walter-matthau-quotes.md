@@ -1,0 +1,31 @@
++++
+author = "Walter Matthau"
+title = "Walter Matthau Quotes"
+quotes_len = "25"
+description = "the best 25 Walter Matthau Quotes"
++++
+- When I was about eighteen, I saw myself as a rather sensitive, delicate, poetic, romantic figure. And then I got into the Civilian Conservation Corps and into the army, and I started smoking and drinking and being tough and getting muscles, and I had a whole different image of myself.
+- Doing a good play on the stage is like eating a good meal at home - assuming your wife is a great cook or that she's hired a great cook.
+- I wanted to be a pharmacist. I liked the way our local pharmacist was always dressed in a nice white coat; he looked very calm, you'd give him money, and he'd give you something that you wanted to buy.
+- Sometimes it takes me six months before I find out what a line means, even if the writing is superficial... To do a play right, really, I'd like to take two years of rehearsal. You study the character by living with him.
+- Working for the screen is almost like being in the Army: you set your mind to it, and you do it.
+- I wasn't handsome. I didn't have good clothes. I used to wonder why people would hire me when they could get college graduates and Oxford scholars. Then it became apparent that when I got up on a stage, people actually wanted to look at me.
+- I was playing Russell Long, the senator from Louisiana. I had 12 speech teachers watching me. All the other passengers on the airplane were speech teachers, and every time I got it wrong, one of the speech teachers would jump up and correct it.
+- If you're sitting around and doing Chekhov and the cat walks in, you must pay attention to the cat. You cannot continue the dialogue of Chekhov without including the cat. So on live television, we'd automatically go into ad-lib gear.
+- I lay 11-10 because I know the bookie needs that 5 percent that I give him. Otherwise, he wouldn't be able to make a living and go down to Florida with his family.
+- I retired once a couple of times.
+- I still think I'm 28. I'm 73. I think I'm 28, though, except that I won't get into a fight with anybody because I just had a pacemaker put in.
+- I've made $50 million over the years as a movie star, if you'll pardon the expression, and I've given most of it to the bookies.
+- I told Simon, 'I don't want to play Oscar. I want to play Felix because Oscar is too easy. He gets all the laughs. Felix is a hard part; that's the part I want to play.'
+- We're writing a book together. She just finished one. Did you read it? Among the Porcupines?
+- It's very easy to live here. You're anonymous here. Nobody knows who you are.
+- Of course I gamble, to make the games interesting. But five hundred dollars a game, tops. Or sometimes a thousand. No heart attack bets.
+- My doctor gave me six months to live, but when I couldn't pay the bill he gave me six months more.
+- Doing a movie is like eating five hundred canapes at a cocktail party - you're never really full. You don't feel as though you've eaten a meal, and yet you can't eat any more.
+- The only guy that was ever affected by climactic conditions in his acting was Kirk Douglas. He did a superb job in 'Lonely Are the Brave' because we were shooting that picture up at about 12,000 feet, and the rarefied atmosphere sapped him of any energy or strength that he had. That was his best performance.
+- People say, 'When are you going to do serious stuff?' I look at them as though they were crazy. My serious stuff is my comedy. That's how I make my points.
+- I can relate to anything. I once played Macbeth. I got a lot of laughs, so I quit.
+- Perfection, to me ,means you spend much too much time trying to be perfect.
+- I don't know how you can tell a good actor in the movies. I really don't. I think you simply just do the part and hope to God that the director has a good cutter and a good editor, and it'll all get cut and put together so that you look good in it.
+- Every actor looks all his life for a part that will combine his talents with his personality... 'The Odd Couple' was mine. That was the plutonium I needed. It all started happening after that.
+- The first girl you go to bed with is always pretty.

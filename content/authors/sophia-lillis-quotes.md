@@ -1,0 +1,19 @@
++++
+author = "Sophia Lillis"
+title = "Sophia Lillis Quotes"
+quotes_len = "13"
+description = "the best 13 Sophia Lillis Quotes"
++++
+- Juggling your personal life, your social life, and your work is hard, especially when you're in school like I am, but I think it's worth it.
+- You have to have a lot of skills when you act; you might not have it when you start, but you definitely end up with a few skills along the way.
+- One thing I learned about Jean-Marc is that he's very good with kids. He's very nice to the kids, especially.
+- To be honest, I think I would like a really fun, quirky character with an interesting background.
+- I love to learn new things, even though I might not master it. That takes a lot of time.
+- There's scenes where I really want to get things right, and all the kids know me as the person who says, 'Sorry.' I think I've gotten a lot better with that, but it's still the thing that I'm still worried about, trying to get the scene perfect.
+- I've always wanted to be - I know people think this is an insult - but a jack of all trades.
+- I always have roles with a depressing childhood for some reason. I have a nice childhood, so I don't know why.
+- I'm not really a redhead, but I keep playing these redhead actresses. Which I don't mind; I think it's fun.
+- I have a friend who's extremely into politics, and I learned a lot from them.
+- 'Junebug' is my favorite Amy Adams movie. I remember watching 'Mama' a lot.
+- When I first started acting, I knew that you have to learn different skills for different roles.
+- I would like a comedy. A comedy would be nice.

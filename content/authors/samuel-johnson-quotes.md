@@ -1,0 +1,198 @@
++++
+author = "Samuel Johnson"
+title = "Samuel Johnson Quotes"
+quotes_len = "192"
+description = "the best 192 Samuel Johnson Quotes"
++++
+- If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.
+- I have always considered it as treason against the great republic of human nature, to make any man's virtues the means of deceiving him.
+- There are few ways in which a man can be more innocently employed than in getting money.
+- It is better to suffer wrong than to do it, and happier to be sometimes cheated than not to trust.
+- Every man has a right to utter what he thinks truth, and every other man has a right to knock him down for it. Martyrdom is the test.
+- Books like friends, should be few and well-chosen.
+- To be idle and to be poor have always been reproaches, and therefore every man endeavors with his utmost care to hide his poverty from others, and his idleness from himself.
+- It is not true that people are naturally equal for no two people can be together for even a half an hour without one acquiring an evident superiority over the other.
+- Disease generally begins that equality which death completes.
+- Poetry is the art of uniting pleasure with truth.
+- Whoever thinks of going to bed before twelve o'clock is a scoundrel.
+- Adversity leads us to think properly of our state, and so is most beneficial to us.
+- Actions are visible, though motives are secret.
+- There is no private house in which people can enjoy themselves so well as at a capital tavern... No, Sir; there is nothing which has yet been contrived by man by which so much happiness is produced as by a good tavern or inn.
+- Everything that enlarges the sphere of human powers, that shows man he can do what he thought he could not do, is valuable.
+- Few enterprises of great labor or hazard would be undertaken if we had not the power of magnifying the advantages we expect from them.
+- Great works are performed not by strength but by perseverance.
+- You hesitate to stab me with a word, and know not - silence is the sharper sword.
+- From the middle of life onward, only he remains vitally alive who is ready to die with life.
+- A man is in general better pleased when he has a good dinner upon his table, than when his wife talks Greek.
+- The wretched have no compassion, they can do good only from strong principles of duty.
+- I have found men to be more kind than I expected, and less just.
+- The return of my birthday, if I remember it, fills me with thoughts which it seems to be the general care of humanity to escape.
+- Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others.
+- Dictionaries are like watches, the worst is better than none and the best cannot be expected to go quite true.
+- Classical quotation is the parole of literary men all over the world.
+- Worth seeing? Yes; but not worth going to see.
+- Treating your adversary with respect is striking soft in battle.
+- Adversity has ever been considered the state in which a man most easily becomes acquainted with himself.
+- Paradise Lost is a book that, once put down, is very hard to pick up again.
+- If pleasure was not followed by pain, who would forbear it?
+- Money and time are the heaviest burdens of life, and... the unhappiest of all mortals are those who have more of either than they know how to use.
+- You cannot spend money in luxury without doing good to the poor. Nay, you do more good to them by spending it in luxury, than by giving it; for by spending it in luxury, you make them exert industry, whereas by giving it, you keep them idle.
+- The world is like a grand staircase, some are going up and some are going down.
+- We are long before we are convinced that happiness is never to be found, and each believes it possessed by others, to keep alive the hope of obtaining it for himself.
+- Wine gives a man nothing... it only puts in motion what had been locked up in frost.
+- Agriculture not only gives riches to a nation, but the only riches she can call her own.
+- It matters not how a man dies, but how he lives. The act of dying is not of importance, it lasts so short a time.
+- Life affords no higher pleasure than that of surmounting difficulties, passing from one step of success to another, forming new wishes and seeing them gratified.
+- To strive with difficulties, and to conquer them, is the highest human felicity.
+- There are goods so opposed that we cannot seize both, but, by too much prudence, may pass between them at too great a distance to reach either.
+- Almost every man wastes part of his life attempting to display qualities which he does not possess.
+- We love to expect, and when expectation is either disappointed or gratified, we want to be again expecting.
+- He that fails in his endeavors after wealth or power will not long retain either honesty or courage.
+- Self-confidence is the first requisite to great undertakings.
+- I am a great friend of public amusements, they keep people from vice.
+- Power is not sufficient evidence of truth.
+- I had rather see the portrait of a dog that I know, than all the allegorical paintings they can show me in the world.
+- So far is it from being true that men are naturally equal, that no two people can be half an hour together, but one shall acquire an evident superiority over the other.
+- Books that you carry to the fire, and hold readily in your hand, are most useful after all.
+- To get a name can happen but to few; it is one of the few things that cannot be brought. It is the free gift of mankind, which must be deserved before it will be granted, and is at last unwillingly bestowed.
+- Of all noises, I think music is the least disagreeable.
+- There are some sluggish men who are improved by drinking; as there are fruits that are not good until they are rotten.
+- All travel has its advantages. If the passenger visits better countries, he may learn to improve his own. And if fortune carries him to worse, he may learn to enjoy it.
+- A man ought to read just as inclination leads him, for what he reads as a task will do him little good.
+- Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.
+- There are few things that we so unwillingly give up, even in advanced age, as the supposition that we still have the power of ingratiating ourselves with the fair sex.
+- Being in a ship is being in a jail, with the chance of being drowned.
+- It is a most mortifying reflection for a man to consider what he has done, compared to what he might have done.
+- The two offices of memory are collection and distribution.
+- Knowledge is of two kinds. We know a subject ourselves, or we know where we can find information upon it.
+- We are inclined to believe those whom we do not know because they have never deceived us.
+- Curiosity is one of the most permanent and certain characteristics of a vigorous intellect.
+- When any calamity has been suffered the first thing to be remembered is, how much has been escaped.
+- Many things difficult to design prove easy to performance.
+- So many objections may be made to everything, that nothing can overcome them but the necessity of doing something.
+- It is more from carelessness about truth than from intentionally lying that there is so much falsehood in the world.
+- No place affords a more striking conviction of the vanity of human hopes than a public library.
+- The true art of memory is the art of attention.
+- Nothing flatters a man as much as the happiness of his wife; he is always proud of himself as the source of it.
+- A man will turn over half a library to make one book.
+- No money is better spent than what is laid out for domestic satisfaction.
+- Melancholy, indeed, should be diverted by every means but drinking.
+- Bounty always receives part of its value from the manner in which it is bestowed.
+- All theory is against freedom of the will; all experience for it.
+- Such is the state of life, that none are happy but by the anticipation of change: the change itself is nothing; when we have made it, the next wish is to change again.
+- In order that all men may be taught to speak the truth, it is necessary that all likewise should learn to hear it.
+- He that overvalues himself will undervalue others, and he that undervalues others will oppress them.
+- The advice that is wanted is commonly not welcome and that which is not wanted, evidently an effrontery.
+- Almost all absurdity of conduct arises from the imitation of those who we cannot resemble.
+- What makes all doctrines plain and clear? About two hundred pounds a year. And that which was proved true before, prove false again? Two hundred more.
+- Between falsehood and useless truth there is little difference. As gold which he cannot spend will make no man rich, so knowledge which cannot apply will make no man wise.
+- Were it not for imagination a man would be as happy in arms of a chambermaid as of a duchess.
+- The world is seldom what it seems; to man, who dimly sees, realities appear as dreams, and dreams realities.
+- I would not give half a guinea to live under one form of government other than another. It is of no moment to the happiness of an individual.
+- The natural flights of the human mind are not from pleasure to pleasure, but from hope to hope.
+- A man may be so much of everything that he is nothing of anything.
+- The love of life is necessary to the vigorous prosecution of any undertaking.
+- To be happy at home is the ultimate result of all ambition, the end to which every enterprise and labor tends, and of which every desire prompts the prosecution.
+- A fly, Sir, may sting a stately horse and make him wince; but, one is but an insect, and the other is a horse still.
+- Let me smile with the wise, and feed with the rich.
+- The use of travelling is to regulate imagination by reality, and instead of thinking how things may be, to see them as they are.
+- I never desire to converse with a man who has written more than he has read.
+- Love is only one of many passions.
+- Some desire is necessary to keep life in motion, and he whose real wants are supplied must admit those of fancy.
+- Kindness is in our power, even when fondness is not.
+- The true measure of a man is how he treats someone who can do him absolutely no good.
+- He that will enjoy the brightness of sunshine, must quit the coolness of the shade.
+- One of the disadvantages of wine is that it makes a man mistake words for thoughts.
+- No man can taste the fruits of autumn while he is delighting his scent with the flowers of spring.
+- Those who attain any excellence, commonly spend life in one pursuit; for excellence is not often gained upon easier terms.
+- Your manuscript is both good and original; but the part that is good is not original, and the part that is original is not good.
+- He who has so little knowledge of human nature as to seek happiness by changing anything but his own disposition will waste his life in fruitless efforts.
+- Nobody can write the life of a man but those who have eat and drunk and lived in social intercourse with him.
+- Language is the dress of thought.
+- When a man is tired of London, he is tired of life; for there is in London all that life can afford.
+- No man will be a sailor who has contrivance enough to get himself into a jail; for being in a ship is being in a jail, with the chance of being drowned... a man in a jail has more room, better food, and commonly better company.
+- Patriotism is the last refuge of the scoundrel.
+- When making your choice in life, do not neglect to live.
+- Praise, like gold and diamonds, owes its value only to its scarcity.
+- A man seldom thinks with more earnestness of anything than he does of his dinner.
+- Every man is rich or poor according to the proportion between his desires and his enjoyments.
+- Nothing is more hopeless than a scheme of merriment.
+- Bachelors have consciences, married men have wives.
+- The happiest part of a man's life is what he passes lying awake in bed in the morning.
+- I look upon every day to be lost, in which I do not make a new acquaintance.
+- Life is a progress from want to want, not from enjoyment to enjoyment.
+- What is easy is seldom excellent.
+- There is nothing, Sir, too little for so little a creature as man. It is by studying little things that we attain the great art of having as little misery and as much happiness as possible.
+- Wine makes a man more pleased with himself; I do not say it makes him more pleasing to others.
+- To keep your secret is wisdom; but to expect others to keep it is folly.
+- By taking a second wife he pays the highest compliment to the first, by showing that she made him so happy as a married man, that he wishes to be so a second time.
+- It is dangerous for mortal beauty, or terrestrial virtue, to be examined by too strong a light. The torch of Truth shows much that we cannot, and all that we would not, see.
+- When a man knows he is to be hanged in a fortnight, it concentrates his mind wonderfully.
+- Depend upon it that if a man talks of his misfortunes there is something in them that is not disagreeable to him; for where there is nothing but pure misery there never is any recourse to the mention of it.
+- What we hope ever to do with ease, we must learn first to do with diligence.
+- It generally happens that assurance keeps an even pace with ability.
+- No man was ever great by imitation.
+- A man of genius has been seldom ruined but by himself.
+- Man alone is born crying, lives complaining, and dies disappointed.
+- He who does not mind his belly, will hardly mind anything else.
+- At seventy-seven it is time to be in earnest.
+- The chief glory of every people arises from its authors.
+- I will be conquered; I will not capitulate.
+- A wise man is cured of ambition by ambition itself; his aim is so exalted that riches, office, fortune and favour cannot satisfy him.
+- The mind is never satisfied with the objects immediately before it, but is always breaking away from the present moment, and losing itself in schemes of future felicity... The natural flights of the human mind are not from pleasure to pleasure, but from hope to hope.
+- Read over your compositions, and when you meet a passage which you think is particularly fine, strike it out.
+- There are minds so impatient of inferiority that their gratitude is a species of revenge, and they return benefits, not because recompense is a pleasure, but because obligation is a pain.
+- I would be loath to speak ill of any person who I do not know deserves it, but I am afraid he is an attorney.
+- There is, indeed, nothing that so much seduces reason from vigilance, as the thought of passing life with an amiable woman.
+- Words are but the signs of ideas.
+- Surely a long life must be somewhat tedious, since we are forced to call in so many trifling things to help rid us of our time, which will never return.
+- Nothing will ever be attempted if all possible objections must first be overcome.
+- Promise, large promise, is the soul of an advertisement.
+- A man who has not been in Italy, is always conscious of an inferiority.
+- You find no man, at all intellectual, who is willing to leave London. No, Sir, when a man is tired of London, he is tired of life; for there is in London all that life can afford.
+- When a man says he had pleasure with a woman he does not mean conversation.
+- All the arguments which are brought to represent poverty as no evil show it evidently to be a great evil.
+- Integrity without knowledge is weak and useless, and knowledge without integrity is dangerous and dreadful.
+- Life cannot subsist in society but by reciprocal concessions.
+- The greatest part of a writer's time is spent in reading in order to write. A man will turn over half a library to make a book.
+- When men come to like a sea-life, they are not fit to live on land.
+- What is written without effort is in general read without pleasure.
+- Life is not long, and too much of it must not pass in idle deliberation how it shall be spent.
+- My dear friend, clear your mind of cant.
+- You can't be in politics unless you can walk in a room and know in a minute who's for you and who's against you.
+- To love one that is great, is almost to be great one's self.
+- Without frugality none can be rich, and with it very few would be poor.
+- It is reasonable to have perfection in our eye that we may always advance toward it, though we know it can never be reached.
+- Small debts are like small shot; they are rattling on every side, and can scarcely be escaped without a wound: great debts are like cannon; of loud noise, but little danger.
+- Prepare for death, if here at night you roam, and sign your will before you sup from home.
+- Exercise is labor without weariness.
+- Where grief is fresh, any attempt to divert it only irritates.
+- Revenge is an act of passion; vengeance of justice. Injuries are revenged; crimes are avenged.
+- Leisure and curiosity might soon make great advances in useful knowledge, were they not diverted by minute emulation and laborious trifles.
+- Getting money is not all a man's business: to cultivate kindness is a valuable part of the business of life.
+- The feeling of friendship is like that of being comfortably filled with roast beef; love, like being enlivened with champagne.
+- It is better that some should be unhappy rather than that none should be happy, which would be the case in a general state of equality.
+- The vanity of being known to be trusted with a secret is generally one of the chief motives to disclose it.
+- Subordination tends greatly to human happiness. Were we all upon an equality, we should have no other enjoyment than mere animal pleasure.
+- The chains of habit are too weak to be felt until they are too strong to be broken.
+- A wise man will make haste to forgive, because he knows the true value of time, and will not suffer it to pass away in unnecessary pain.
+- There are charms made only for distant admiration.
+- He who praises everybody, praises nobody.
+- Every man who attacks my belief, diminishes in some degree my confidence in it, and therefore makes me uneasy; and I am angry with him who makes me uneasy.
+- Love is the wisdom of the fool and the folly of the wise.
+- By seeing London, I have seen as much of life as the world can show.
+- You teach your daughters the diameters of the planets and wonder when you are done that they do not delight in your company.
+- It is better to live rich than to die rich.
+- Human life is everywhere a state in which much is to be endured, and little to be enjoyed.
+- There is nothing which has yet been contrived by man, by which so much happiness is produced as by a good tavern.
+- The usual fortune of complaint is to excite contempt more than pity.
+- Of the blessings set before you make your choice, and be content.
+- Allow children to be happy in their own way, for what better way will they find?
+- The future is purchased by the present.
+- The happiest conversation is that of which nothing is distinctly remembered, but a general effect of pleasing impression.
+- No man but a blockhead ever wrote except for money.
+- That we must all die, we always knew; I wish I had remembered it sooner.
+- Nature has given women so much power that the law has very wisely given them little.
+- If your determination is fixed, I do not counsel you to despair. Few things are impossible to diligence and skill. Great works are performed not by strength, but perseverance.
+- Resolve not to be poor: whatever you have, spend less. Poverty is a great enemy to human happiness; it certainly destroys liberty, and it makes some virtues impracticable, and others extremely difficult.
+- He who waits to do a great deal of good at once will never do anything.

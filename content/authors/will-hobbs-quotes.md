@@ -1,0 +1,24 @@
++++
+author = "Will Hobbs"
+title = "Will Hobbs Quotes"
+quotes_len = "18"
+description = "the best 18 Will Hobbs Quotes"
++++
+- My seventeen years of teaching inform my sense of audience in every line I write.
+- I do have two wonderful awards from the Western Writers of America, one for 'Beardance' and the other for 'Far North.' The award is called the Spur, and the plaques really do have spurs on them!
+- My first job out of college was six weeks of picking fruit alongside a dozen or so men from Mexico. The orchard was in Emmett, Idaho. The men spent almost nothing on themselves. Their paychecks went directly to their families back home.
+- I love to read about the exploits of technical mountain climbers, but I've never done any vertical climbing.
+- For 'The Big Wander,' I probably had ten different outlines before I made myself start writing. I would sleep on each one, thinking it was wonderful, but I would always awake perceiving some flaw.
+- I was astounded to learn that Alaskan caves might be hiding secrets about the earliest people ever to enter the Americas. That's when I began to picture a story that would start with kayaking and lead into the caves.
+- I love weird science. I learned in an article in 'National Geographic' that there are trillions of bacteria in our guts that help us digest food. These are non-human creatures.
+- I've been collecting articles on extremophile bacteria for at least the last ten years. I find them fascinating, whether they live in boiling pools at Yellowstone, around thermal vents at the floors of the oceans, or on Mars, where NASA has been searching for them as the first evidence of life beyond Earth.
+- I've been reading about Crazy Horse and Custer for a long, long time, and I thought that if I was going to write a story that took place in the Black Hills, I should find a way to include this history in it.
+- My youngest brother and I went on a ten-day canoe trip in Bowron Provincial Park in British Columbia years ago. Believe it or not, we took only granola, thinking we'd be eating a lot of lake trout. Well, we neglected to bring along a net, and our fishing line was only 8-lb. test.
+- Seven of my novels take place in the Southwest, in the Four Corners area which has been my home since 1973. I know these mountains, rivers, mesas and canyons well, so it's been natural for me to draw on my own personal experiences here.
+- 'Changes in Latitudes' began when I was looking at a photograph of a sea turtle swimming underwater. I had such a strong feeling for the beauty of this ancient creature, at home in the sea. On the spot, I wanted to swim with that turtle. I began to imagine a character who would do just that.
+- 'Ghost Canoe' takes place on the storm-tossed tip of Washington's Olympic Peninsula, where I spent a lot of time hiking and exploring.
+- In a lot of cases, writers discover that the novel needs to begin later in the action than they'd first thought.
+- I've been under the spell of the North ever since my childhood in Alaska. More and more, I've been returning to Alaska, and sometimes my adventures inspire a story.
+- Researching and writing about the Klondike Gold Rush of 1897-98 was one of the most exciting and involving projects I've undertaken.
+- Choosing the narrator for a first-person story like 'Downriver' is a crucial decision because the voice has to be one the reader wants to listen to, and the voice has to be a match for the emotion you want the story to carry.
+- Pacing has become more important than ever, largely because of other media. I've always tried to start my stories out with a bang, something that will hook their attention.

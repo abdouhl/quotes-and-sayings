@@ -1,0 +1,15 @@
++++
+author = "Vernon L. Smith"
+title = "Vernon L. Smith Quotes"
+quotes_len = "9"
+description = "the best 9 Vernon L. Smith Quotes"
++++
+- After my stellar first grade academic achievements, I continued to perform well in the city primary schools - except for penmanship, which was not my forte.
+- In the 9th grade I began my first wage work for the West Side Drug store delivering prescriptions and sundries on my bicycle to customers who called in orders.
+- In 1941 I finished at Allison Intermediate School (grades 7-9), and started at North High School, commuting by bicycle about 5 miles from home to school.
+- I still have my original social security card signed when I was 13.
+- Yes, long hours and a hard life for my parents, but for a six to seven year old every new day dawned with fresh excitement when you have not a care in the world, and so much to learn and witness.
+- After graduating in engineering I went to the University of Kansas to get an MA in economics as a vehicle for allowing me to decide if I wanted to continue in economics.
+- I can still memory - taste the fresh buttermilk pancakes and hot buttermilk biscuits - both made with lard! - that were cooked on the top, or in the oven, of that ancient iron stove.
+- I gradually became persuaded that the subjects, without intending to, had revealed to me a basic truth about markets that was foreign to the literature of economics.
+- Caltech was a meat grinder like I could never have imagined.

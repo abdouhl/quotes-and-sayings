@@ -1,0 +1,66 @@
++++
+author = "Daniel Cameron"
+title = "Daniel Cameron Quotes"
+quotes_len = "60"
+description = "the best 60 Daniel Cameron Quotes"
++++
+- This is the Ben Crump model: He goes into a city, creates a narrative, cherry picks facts to establish, to prove that narrative, creates chaos in a community, misrepresents the facts, and then he leaves with his money, and then asks the community to pick up the pieces.
+- The politics of identity, cancellation, and mob rule are not acceptable to me.
+- I'm voting for President Trump because ultimately he has done everything he possibly can in terms of our economy - to build an economy that works for everyone, and minorities obviously benefited from that economy.
+- There are a lot of folks that look like me that aren't scared anymore, that are tired of the comments and the derogatory remarks that are made because of our political philosophy.
+- You can't tell me how to vote because of the color of my skin.
+- My parents voted conservative for as long as I could remember, so it was an easy decision when I registered at 18 to register as a Republican. In fact, I've often told people I was under the impression that everybody voted Republican.
+- The values that I hold are consistent with the party of Lincoln, the party of Reagan, and the party of Trump, of the Republican Party, and so I'm honored to stand with the president.
+- I identify with a different political ideology and therefore that shades the way people view me.
+- Well, let me just say that I condone violence in all of its forms.
+- When I come to work in this capital, I'll visit Mr. Lincoln every day. I've been walking in his footsteps my entire life.
+- Mob justice is not justice. Justice sought by violence is not justice.
+- I hope that folks that look like me, regardless candidly of their political affiliation, not only look at me and say that, you know, I want to vote for him at the ballot box, but also make the decision that perhaps they want to put their name up for public service and for public office.
+- I think often about my ancestors who struggled for freedom, and as I think of those giants and their broad shoulders, I also think about Joe Biden, who says, 'If you are not voting for me, you ain't black.'
+- The criminal law is not meant to respond to every sorrow and grief.
+- Do we really want the truth, or do we want a truth that fits our narrative?
+- I was honored to have the endorsement of the Kentucky Fraternal Order of Police, and they expect me to really advocate for our law enforcement community for a commonwealth and county attorneys.
+- Democracy is a system that recognizes the equality of humans before the law. Whether you are the family of Breonna Taylor or David Dorn, these are the ideals that will heal our nation's wounds.
+- We cannot have chaos reign in the streets.
+- The grand jury process is secretive for a reason, to protect the safety and anonymity of all the grand jurors, witnesses, and innocent persons involved in the proceedings.
+- Even as anarchists mindlessly tear up American cities while attacking police and innocent bystanders, we Republicans do recognize those who work in good faith towards peace, justice, and equality.
+- That's my Republican Party, the Party of Lincoln, that believes America is an indispensable nation... an Evergreen Tree, standing tall in a turbulent world.
+- I grew up in Elizabethtown, Kentucky, Harden County, which is not too far from the birthplace of Abraham Lincoln.
+- The decision before my office is not to decide if the loss of Breonna Taylor's life was a tragedy. The answer to that question is unequivocally yes.
+- My parents are conservatives. Owning a small business lent itself to that viewpoint.
+- Let's be honest: no one is excited about Joe Biden.
+- In my judgment, there is great diversity within the Black community. And Joe Biden doesn't seem to get that message nor understand it.
+- The fact that someone would get on national television and make disparaging comments about me because I'm simply trying to do my job is disgusting.
+- Our investigation found that Mattingly and Cosgrove were justified in their use of force after having been fired upon by Kenneth Walker. This justification bars us from pursuing charges in Ms. Breonna Taylor's death.
+- My ultimate responsibility is to the folks that elected me here in the commonwealth, so I am acutely aware of that obligation and commitment.
+- I think that we need to make sure that we have frank conversations about race and color and discrimination within this country.
+- Our responsibility in the AG's office is to the truth and to the facts.
+- Republicans will never turn a blind eye to unjust acts, but neither will we accept an all-out assault on Western civilization.
+- At the end of the day, my responsibility is to provide facts and truth and represent and stand up for justice.
+- Indictments obtained in the absence of sufficient proof under the law do not stand up and are not fundamentally fair to anyone.
+- I certainly understand the pain that has been brought about by the tragic death of Breonna Taylor. I understand that as a Black man.
+- My values were shaped by my faith, and by my parents. I worked at their small coffee shop, meeting people from all walks of life. And I realized something: everyone needs a cup of coffee.
+- On criminal justice reform: Joe Biden couldn't do it, but President Trump did. On the economy: Joe Biden couldn't do it, but President Trump did build an economy that worked for everyone, especially minorities, and he will do it again.
+- There's not a lot of black Republicans that are willing to openly identify.
+- The time I spent working with our law enforcement community when I was Senator McConnell's general counsel gave me the breadth of relationships, helping them confront what I, in many ways, think has become the public safety challenge of our lifetime - the drug epidemic.
+- I recognized when I ran for the office of attorney general that there would be... challenges and that there are things that you cannot predict.
+- Like many Kentuckians, I've seen too many families torn apart by drug abuse. The attorney general should be the leading voice in confronting this challenge, and I believe that I am the right candidate for the job.
+- I had the opportunity to serve as Senator McConnell's legal counsel in D.C. and it was a phenomenal and transformative experience.
+- It was hard to imagine a little boy who looked like me could someday help a president confirm a Supreme Court justice, or even run for attorney general. But here we are.
+- The Democratic Party needs to stop telling black Americans how to think.
+- I am not in chains. My mind is my own.
+- I believe, President Trump is best for this country.
+- In our system, criminal justice isn't the quest for revenge. It's the quest for truth, evidence and facts, and the use of that truth as we fairly apply our laws.
+- Republicans trust you to think for yourselves and to pursue your American dream however you see fit.
+- As I've stated prior, I have no concerns with a grand juror sharing their thoughts or opinions about me and my office's involvement in the matter involving the death of Ms. Breonna Taylor. However, I have concerns with a grand juror seeking to make anonymous and unlimited disclosures about the grand jury proceedings.
+- Our connection to faith and church and that background sort of lent itself in our views to the Republican Party and our views on smaller government. It wasn't until I got to undergrad that I realized that not everybody held those views.
+- I'm a proud Republican, I've certainly been a Republican all my life.
+- I'm here to say enough is enough, and that folks who look like me should feel that there is an opportunity for them in the Republican Party. I'm proud to be in this party, I'm proud to be endorsed by President Trump.
+- If we simply act on emotion or outrage, there is no justice.
+- Joe Biden is a backwards thinker in a world craving forward-looking leadership.
+- My mother, if something was to happen to me, would find it very hard.
+- Justice is not easy. It does not fit the mold of public opinion.
+- Joe Biden articulated... a very narrow view of Black folks.
+- Joe Biden would destroy jobs, raise our taxes, and throw away the lives of countless unborn children.
+- As a black Republican you sort of find yourself in unique territory.
+- You have confidence in the abilities of the team that you put around you.

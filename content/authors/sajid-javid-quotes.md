@@ -1,0 +1,60 @@
++++
+author = "Sajid Javid"
+title = "Sajid Javid Quotes"
+quotes_len = "54"
+description = "the best 54 Sajid Javid Quotes"
++++
+- My mother was a tremendous influence - and still is - on my brothers and me in terms of the work ethic and values and making sure that we never forget where we've come from and are grateful for what we've got.
+- My background wasn't an issue for her or for her family. But if someone had said to my parents back in the 1970s that one of their children would have a mixed marriage, I think they'd have thought that was very unusual.
+- When I heard about grooming gangs where almost every individual involved is of Pakistani heritage, I can't help noting that. But I can't helping noting the fact that Rochdale is a town that means something to me, and I'm also of Pakistani heritage.
+- I do think there are some big questions here about approach, about how people are treated. I was brought up in very challenging areas.
+- There were, of course, ups and downs. But whenever my parents were knocked down, in business or anything else, they picked themselves up and started again.
+- We have a workforce crisis across the NHS with around 100,000 vacancies.
+- You get a lot of stick in this job, and I don't mean political opposition that is part of your job but real abuse. And unfortunately, if you are from an ethnic minority, that may include racial or religious abuse.
+- It might sound strange coming from a home secretary - I'm a big fan of immigration and what it means for our country, in terms of how it makes us stronger.
+- Our streets should be safe at all times. You shouldn't have to worry about things like knife or other crime.
+- For all its bluster, the BDS campaign is most notable, I think, for its lack of success. Trade is booming; tourism is soaring. The media campaign is full of sound and fury, but to the majority of Britain today, it signifies nothing.
+- I want to start by making a pledge, a pledge to those from the Windrush generation who have been in this country for decades and yet have struggled to navigate through the immigration system: This never should have been the case, and I will do whatever it takes to put it right.
+- Setting an immigration target reduced to the tens of thousands is one thing when unemployment is running at 8 per cent. Refusing to review it when the country nears full employment and sectors are reporting skills shortages is quite another.
+- I've used the word 'compliant' environment, and what that means is it's absolutely right that we have an environment in terms of our immigration policy that distinguishes between people that are here legally and those that are here illegally.
+- As long as I'm in government, as long as I'm in politics, I will do everything in my power to fight back against those who seek to undermine Israel.
+- The most urgent task I have is to help those British citizens who came from the Caribbean, the so-called Windrush generation, and make sure they are all treated with the decency and the fairness they deserve.
+- People only attempt perilous journeys like crossing the Channel because they are desperate. It is deeply concerning that men, women, and children feel they have no choice but to put their lives at risk in their search for a safe place to live.
+- If I were transported into my father's shoes, I would have been a Labour supporter, too, because in the 1960s and even in the 1970s, the Conservatives weren't standing up for working people; there was too much of an interest in corporatism, and that didn't start to change till Margaret Thatcher came along.
+- I am a proud, British-born Muslim, and I love my country more than any other place on earth.
+- I see people all the time today, and they really don't care if their doctor is of Pakistani origin; what they care about is that they are getting a good service, and these are people that they do really see as British. I do think society has changed very positively like that.
+- A question has to be asked: if you are a genuine asylum seeker, why have you not sought asylum in the first safe country that you arrived in? Because France is not a country where anyone would argue it is not safe in any way whatsoever, and if you are genuine, then why not seek asylum in your first safe country?
+- Like the Caribbean Windrush generation, my parents came to this country from the Commonwealth in the 1960s. They, too, came to help rebuild this country and offer all that they had.
+- To apologize for the Balfour Declaration would be to apologize for the existence of Israel and to question its right to exist. Here in Britain, we will not merely mark the centenary - we will celebrate it with pride.
+- Growing up in Rochdale, I think, all the kids in my street, pretty much every boy was playing cricket. I had four brothers as well, and we played a lot together. When it was just me on my own, I was bowling at a drainpipe.
+- I want Britain to be that kind of opportunity society where the Government is your friend, working with you, enabling rather than holding you back, intentionally or not.
+- I see neither the sense nor the need to stick to an immigration figure devised nearly a decade ago, which has never been met and does not fit the requirements of the country.
+- I'm going to start by making a confession. My name's Sajid Javid. And I used to be a banker. No point denying it.
+- I'm the British home secretary. My job is to protect the British public.
+- Please look at the response to Windrush, and the apology, in terms of trying to put things right and, secondly, the bigger picture about how this government has been committed to trying to deal with the injustices in society, some of which matter more to people from ethnic minorities.
+- I think people vote Ukip from a frustration with politics, which is legitimate, and which politicians have to listen to.
+- If you don't speak English, then there is no way you can take full advantage of the opportunities that modern Britain has to offer you.
+- I'm a second-generation migrant. My parents came to this country from Pakistan, just like the Windrush generation.
+- When it comes to gang-based child exploitation, it is self-evident to anyone who cares to look that if you look at all the recent high-profile cases, there is a high proportion of men that are of Pakistani heritage.
+- Today, I don't think anyone would think that a mixed-race couple looks odd; I think it's considered perfectly normal. In a very short time frame, the country has changed so much, and for the better. Britain has become, I think, the most tolerant and open-minded country in the world.
+- What we're going to do is have an immigration system that's in our national interest, and that's not what we've had up until now, We've had freedom of movement, which means we haven't been in control of who enters our country - those individuals have, just because of their nationality. And that's going to change.
+- I have three girls, and that makes me think more about what sort of country I want my kids to grow up in.
+- My parents were immigrants from Pakistan. My father has passed away now, but my father and mother were very proud of Britain, and they have always respected the country and always wanted to make a contribution.
+- What people want - and they will get - is control of our own system, with a lower and sustainable level of net migration. And, above all, that has to mean one thing: an end to freedom of movement.
+- People want to see politicians who are not afraid to speak the truth. They want them to be honest, no matter how uncomfortable it is.
+- When people go to vote still in Britain, they will look at their local representatives, but I don't think there is a sort of cult of personality politics. Obviously, they want to know who the leader is for each party, but I think there is a lot of identification with their local candidates.
+- I'm very much aware of the need for politicians to be careful with language as well as what they do.
+- Let trusts get on and recruit internationally and stopping blocking medics from coming here to care for our sick.
+- My decision to appoint an inspector is not taken lightly. I hope it sends a strong signal that robust processes are in place to investigate allegations of failures in financial management and governance in local government.
+- I want to send a very strong signal to people who do think about making this journey - we will do everything we can to make sure it is not a success in the sense that I don't want people to think that if they leave a safe country like France that they can get to Britain and just get to stay.
+- When I heard about the Windrush issue, I thought, 'That could be my mum... it could be my dad... it could be my uncle... it could be me.'
+- When it comes to human life, clearly I want to make sure we are doing all we can to protect people, and we must remember that this is one of the most treacherous stretches of water that there is - 21 miles, people taking grave risks.
+- Imagine what we could achieve if we had more Conservative MEPs in the European Parliament in terms of getting a better deal for Britain and negotiating fundamental reform and putting that in a referendum to the British people.
+- When I was 11, I had just started my comprehensive school.
+- I was six or seven and an interpreter.
+- I've huge responsibilities in this job. The biggest is to keep everyone safe. Like many others, I've seen the effects of crime close up, and I worry about my kids.
+- I used to live in a street in Bristol which was, depending on your tabloid of choice, either Britain's most dangerous street or a moral cesspit. People made judgments about me on where I lived. It affected me - it affected my life chances. That is going on today with people in social housing. That, to me, isn't acceptable.
+- Sending genuine refugees to face persecution in order to dissuade others from seeking to come here is plainly illegal.
+- As Culture Secretary, I realised how you can use sport to do so many other good things for society.
+- I've already made some changes. I have suspended certain things. Certainly, opening bank accounts, and whether you can or cannot as an illegal immigrant, I'm not sure that the data that we have is accurate enough, so I have suspended that for the time being.
+- Some people say these aren't huge numbers, but let's also remember that our job here is to make sure this doesn't turn into a new route for ever-increased illegal migration, so I want to stop it now as much as I possibly can.

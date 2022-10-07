@@ -1,0 +1,101 @@
++++
+author = "Peter Morgan"
+title = "Peter Morgan Quotes"
+quotes_len = "95"
+description = "the best 95 Peter Morgan Quotes"
++++
+- The films of which I'm most proud I've written are the ones that pivot on forgiveness.
+- I'm not an artist, and I want to take risks, and when the possibility of failure occurs, it's because the idea is all exciting or interesting as a high wire act, and sometimes you've got to fall off, just by virtue of the fact that you're constantly trying to evolve and do new things.
+- As a child, I grew up the son of German immigrant parents, so I grew up being teased and called 'Fritz' at school. When I married my wife and went to live in Vienna, I was teased for being a Brit.
+- It is devastating, losing a parent. I don't really know what the effect is, but I suppose people might call me an ambitious man, and I'd say that an ambitious man is a damaged man.
+- I can't imagine anyone thinking, 'Oh good, it's awards season!'
+- Movies feel like work, and reading fiction feels like work, whereas reading nonfiction feels like pleasure.
+- There are many, many things in my work that need redoing - never the structure.
+- I don't want to become too self-conscious - it's why I never read reviews, even the good ones.
+- If you start to analyze what you do, it can paralyze you.
+- As any showrunner will tell you, it is crushing work. It is around the clock. It is like a monastic commitment that you make.
+- The first and primary requirement for me in a director that I'd want to work with is: do they love writing, and do they love the collaboration process with writers?
+- I'm quick to be upset. My feelings are close to the surface. There is not much gap between a thought and a feeling with me. It makes it difficult for some people. I feel too much.
+- Most of the things I write, I write on spec. And because I write them on spec, there's less interference. Because there's less interference, they tend to be better.
+- I am not a politics wonk. I like the idea of my writing reflecting more about who I am or other people.
+- You're either a person with a conscience, or you're not. I think I've got quite a fine conscience.
+- Truth is an illusory notion.
+- When I started writing the screenplay for 'The Queen,' about the aftermath of the death of Princess Diana, both Stephen Frears, the director, and Andy Harries, the producer, begged me not to put Tony Blair in it.
+- I quite like the idea - just as an abstract idea - of 12 people's collective life experience and wisdom being this formidable thing. People say juries can be led - I think 12 people from different backgrounds, different races, different genders, different ages, it's hard to hoodwink.
+- For 'Frost/Nixon,' everyone I spoke to told the story their way. Even people in the room tell different versions. There's no one truth about what happened in those interviews, so I feel very relaxed about bringing my imagination to the piece. God knows everyone else has.
+- The minute you become a leader of a country, you go into a very small club. You join that sort of pantheon of other world leaders.
+- There is something fantastically post-modern about David Frost.
+- I'm not good at fantasy, no. I have been offered stuff, and I can't get my head around it.
+- Sometimes you are lucky enough to get offered things, and there is no rhyme or reason. I am very lucky because I come from England, and you have a whole range of things offered to you, from television plays and shows and theatre, so much more to explore, so it's never really money.
+- I don't understand and don't enjoy sci-fi, and it's just that if people aren't real, and they don't live in a real and recognizable society, I don't understand what to do.
+- You can be far more challenging, articulate and intelligent writing for television than you can writing for the cinema.
+- The irony of what I do is that the more you reveal someone in their frailties and shortcomings, the more we feel drawn to them and forgiving we feel of them.
+- There's nothing wrong with anybody from any other country having a perspective on the British royal family. It would be interesting. But I just doubt that they would get the dialogue right.
+- There were a couple of things I lost sleep over with the play 'Frost/Nixon,' so I went back and addressed them a bit more in the film.
+- I am drawn to characters so full of internal contradictions. Idi Amin was one. I loved writing him.
+- I insist to this day that if you read the screenplay to 'The Queen,' it leaves you in no doubt that we considered her an isolated, out-of-touch, cold, emotionally inaccessible, overprivileged, deluded woman, heading an institution that should immediately be dismantled in any free and fair society.
+- I do have an innate understanding of where a story should or shouldn't go, in a way that I don't think can be taught.
+- My experience is, I do a table reading, and it's literally like it's written in colossal neon lights what's wrong with the screenplay.
+- For a younger generation to imagine a time where there was no security at airports - going around the world in the bar of a jumbo jet, 'Tell the plane to wait, I'm running late!' - there is something very Austin Powers about David Frost, a man who, in all seriousness, would approach women in a safari suit, with sideburns.
+- Sometimes it's okay for an audience not to understand everything that's going on.
+- It is a fairly serious thing that you're doing if you're writing about people who are still alive and who still have a role in public life. Sometimes you don't want to be reminded too much of the responsibility.
+- I'm constantly having to check my conscience about what I'm writing and the responsibility of what I'm saying.
+- I don't think of the crown as this glamorous thing. It's this murderous, bejeweled thing, the crown.
+- As historians write more and more histories, it's a sort of self-fulfilling prophecy that other historians read their histories and then make synthesis, and certain things just get forgotten and left out and neglected.
+- Authorised royal biographers are so straitjacketed, deferential, fawning, and unadventurous that they can only be after a knighthood. Or they're completely scurrilous and insolent, like Andrew Morton or Paul Burrell.
+- It's important to me what the viewers think.
+- The real beauty in my professional experience has been friendships and collaborations with filmmakers.
+- It's madness to hand in a script to a director, leave them alone, and for the director not to want the writer there with rehearsals and the shoot.
+- There is no inherent contradiction between being right-wing and being intelligent.
+- The film 'The Queen' came about with a producer saying to me that he wanted me to write about the circumstances behind Diana's death. I think he was hoping that I would come up with some journalistic scoop that would identify an MI5 covert plot.
+- I have always cited the decision by director Stephen Frears to shoot 'Mrs. Henderson Presents' before my script of 'The Queen' as the reason for my taking the plunge as a playwright.
+- People test movies within an inch of their life so that the entire audience experience is a uniform one.
+- As a European from a different, younger generation, the trauma that was Nixon's presidency never really had a hold over me. For one thing, I never voted for him.
+- Nixon had lists upon lists upon lists. They were tragic lists saying, 'Smile more,' or, 'Be stronger - remember, it is your job to spiritually uplift the nation.' This understanding of his limitations is heartbreaking.
+- No family is complete without an embarrassing uncle.
+- If you have distance from the events, then your story can work as an analogy or parable rather than its literal narrative.
+- I think I stumbled upon a voice people associate with me with 'The Deal.'
+- There's something about the soul of a country that is somehow connected to the head of state.
+- It was so interesting to discover Nixon was a Californian. I always think Nixon should come from a cold place.
+- I wrote 'Hereafter' quickly and without mapping it out too much or being too schematic. As an exercise, I think that was incredibly important.
+- I've done a lot of work in Hollywood and theatre, but to be honest, the biggest pleasure I've ever got is from the TV single plays I've written. It's a format where you don't mind saying, 'I want to tackle some important themes head on.'
+- You can't ask someone to act middle-aged. Someone has to bring their own fatigue to it.
+- I can't relax when I'm watching a biographical drama because it's so close to what it is that I do that I just long for more fiction - so that I can switch off.
+- Once I start writing about somebody, I become very protective of them.
+- I just feel that if I'm English and writing about an American president, I have got to have someone on my side who can help me out when I'm lapsing into lazy or obvious European skepticism.
+- I make a point of not reading reviews because of the old adage, if you read the good ones then you have to read the bad ones, and if you read the bad ones, you have to, you know... And also because it's a very, very bewildering and exposing thing.
+- Belief in God is so deranged that it makes absolutely no sense, but it holds people together somehow.
+- I'm not being presumptuous, I hope, when I say that 'The Crown' is little bit like 'The Godfather.' It is essentially about a family in power and survival.
+- Barack Obama winning the election had an instant impact on everything - race relations, national self-esteem, tolerance. It also had an instant affect on 'Frost/Nixon.' At a stroke, instead of being a piece that reminded people of the agony they were in, it became an uplifting message about the agony they had escaped.
+- Most leading actresses have this energy, this 'Look at me. Here I am.' They're powerful; they're beautiful.
+- Everything I write, I've written the first draft in Austria.
+- I actually speak fluent German. And I live in Vienna, and I'm married to a Viennese woman.
+- I watch drama on DVD because I can't stand ad breaks.
+- I can't help slightly falling in love with every character I write about. And I quite like writing about people who are vilified.
+- Ambition interests me because it's such a surefire indicator of damage.
+- Self-destruction is such an interesting thing for a dramatist, and what's particular to Nixon is how human the failings were that led to his downfall.
+- The feelings we all have as 50-year-olds are different than the feelings we all have as 30-year-olds. That informs everything we do.
+- I prefer my writing to do all the talking for me.
+- For 'Frost/Nixon,' I had eight people who were present at those interviews - they were all in the room - and when I interviewed each of them, they had a totally different narrative of events, to the degree where you thought, 'Were you all really in the same room?'
+- Robert Bolt's storytelling is the kind that I grew up with and aspired to.
+- I wrote a draft of 'Playboy' for Warner Brothers, and it was impossible to really be independent of Hugh Hefner. In the end, Hugh Hefner was unable to take the back seat required to be able to write something about him that I felt I could do.
+- Most historians are engaged in fiction.
+- As a dramatist, you have 200 choices at every fork in the road. But the audience will reject it if you make the wrong choice, if they feel you are trying to shape the character in a way that suits you. It rings false immediately. People can sense when you're being cynical or schematic.
+- By nature of the job, most actors are striking, remarkable, and alpha.
+- People bang on all the time about whether what I've done is the truth or not. Well, to me, history is just a series of elaborate fictions.
+- In my peaceful moments, I yearn to write a bank heist like the one in 'Heat.'
+- In a way, I think of the press as my colleagues. I don't want to throw hand grenades at people who do something that's pretty similar to what I do. But at the same time, we all need to take ourselves seriously and be responsible as professionals. And there was a collective failure in the treatment of Christopher Jefferies.
+- I have a great deal of compassion for those in public life and what we have done to them.
+- Generally, I read nonfiction. There's very little fiction that I enjoy enough to spend my time reading. I am generally a nonfiction guy.
+- Every dramatist will tell you that they know deep down what happened in the course of making that film and to what degree they took steps that were convenient and to what degree they took steps in telling their story that were dishonest. You know in your heart of hearts.
+- I have no directing ambition whatsoever. And as long as I meet filmmakers like Tom Hooper, Stephen Frears, and others who allow that collaboration, I can't see why I would ever want to direct.
+- I'm very happy for others to engage in conjecture, but if I was ever conscious of what I'm thinking about when I'm writing, oh my God, I'd be totally lost.
+- I'm not a vindictive person. But I do want to shine a light on human frailty and heroism in equal measure.
+- There are so many projects that I've written and had to abort because either I felt too distressed by what I was doing to the people who I was writing about, or they couldn't cope with it because their view of themselves was so far removed from reality.
+- There are people who are bound journalistically to a code of ethics that means they can't quote something that isn't sourced, whereas what I do is entirely unsourced. I effectively fictionalise history and yet somehow aim at a greater truth.
+- I don't think I'm an unhappy person. It's just an intensity, not a depressive thing. It's just not having enough layers of skin. It's exhausting.
+- Some of the things I have written about are a way of connecting with my father - I know he knew who Idi Amin was, and I know he knew who Longford was. And I know he knew who Nixon was, because shortly before he died, I talked to him about Watergate.
+- If you don't belong somewhere, that outsider status you have gives you perspective. Of course, another word for outsider is 'exile,' and that's not fun at all.
+- Sometimes if biography is too head-on, it can feel too obvious.
+- If you think about what you do, if you become self-conscious about it, you've got to be very careful. Because I really like to write without self-awareness of what I'm doing.
+- In some shape or form, we do have an emotional connection to our head of state, even if, for the most part, they seem very remote.

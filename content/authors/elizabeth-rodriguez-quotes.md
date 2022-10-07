@@ -1,0 +1,20 @@
++++
+author = "Elizabeth Rodriguez"
+title = "Elizabeth Rodriguez Quotes"
+quotes_len = "14"
+description = "the best 14 Elizabeth Rodriguez Quotes"
++++
+- Like anyone, you could love someone, and it doesn't mean that you're equipped or you were taught or have the patience or the love or the wherewithal to be a good parent. One has nothing to do with the other.
+- I grew up in a broken home, working class. My paternal grandmother raised me and my brother; my father was with us, and my mother lived in Jersey.
+- I have a little bit of extra testosterone, and it's good to put it to work when I can.
+- When you have a tough childhood, you either cry or make a joke.
+- Parts of you die with every decision you have to make. It becomes about making decisions between bad decisions and worse decisions.
+- I have incredible friends. Life is good.
+- I know that for me, whenever I'm in a situation where there's death or sickness, my personality is to come in and do whatever I can to ease anything I can, in terms of offering to take care of things. Cooking, organizing, things like that.
+- I'm not an immigrant - I was born and raised in New York. My parents are Puerto Rican, and Puerto Rico is a part of the U.S., for the people that don't know. So my whole life, I've identified as an American. There are times when I've gone to Puerto Rico, and there, I'm seen as the American cousin.
+- I'm sort of a straight shooter.
+- I love being super-tough, but if I need to put on a dress and do my hair and makeup, I can do that, too.
+- I think the things about being with someone and knowing someone so well is that the things you love about them, you always will. The things that drive you crazy will always drive you crazy about them.
+- I don't watch the news because I wouldn't leave the house. I would not leave the house.
+- As a human being, you can't not connect to the chaos that exists around the world on a day-to-day, or things that you've seen on the news just here domestically.
+- We all have them, those parts of us that are the greatest parts of us and the worst parts of us. Sometimes we're put in circumstances and bad choices are made.

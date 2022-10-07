@@ -1,0 +1,73 @@
++++
+author = "Elia Kazan"
+title = "Elia Kazan Quotes"
+quotes_len = "67"
+description = "the best 67 Elia Kazan Quotes"
++++
+- The more ambivalent you are and the more uncertain you are, then you can get something that you cannot anticipate.
+- I was not what you'd call a first-class actor, but I did all right.
+- There was no doubt that there was a vast organization which was making fools of all the liberals in Hollywood and taking their money, that there was a police state among the Left element in Hollywood and Broadway.
+- I was even superior to the Communists and when they didn't go along with me, I quit them.
+- A good director's not sure when he gets on the set what he's going to do.
+- Stylized acting and direction is to realistic acting and direction as poetry is to prose.
+- I was taken in by what might be called the Hard Times version of the Communists' advertising or recruiting technique.
+- I knew the exuberance of playing before an admiring audience and hearing my secret voice.
+- I was always a self-conscious person.
+- I would rather do what I did than crawl in front of a ritualistic Left and lie the way those other comrades did betray my own soul.
+- Whatever hysteria exists is inflamed by mystery, suspicion and secrecy. Hard and exact facts will cool it.
+- I'm small, but I'm neither compliant nor agreeable.
+- I may be getting old, but not foolish.
+- When you know what an actor has, you can reach in and arouse it. If you don't know what he has, you don't know what the hell is going on.
+- The Communists automatically violated the daily practices of democracy to which I was accustomed.
+- I don't remember anything anybody said in any Jack Ford picture. Nothing happens except action.
+- For years after I resigned, I was still faithful to their way of thinking. But not in the American Communists.
+- The essence of the stage is concentration and penetration. Of the screen action, movement, sweep.
+- Our relationship was cursed by the fact that we agreed on everything.
+- I gave my life to the Group Theatre, because in it I'm building something for myself. What I build, I am.
+- I will say nothing to an actor that cannot be translated into action.
+- I value peace when it is not bought at the price of fundamental decencies.
+- I wouldn't go up on a stage now if you paid a thousand dollars for one minute of acting. It's a nasty experience. You're up there all by yourself. You're so damn exposed.
+- A film director has to get a shot, no matter what he does. We're desperate people.
+- I joined the Communist Party late in 1934. I got out a year and a half later.
+- The world was like a huge red carpet out ahead of me to be walked on. And it stretched on and on, no end.
+- I've lost many of my best friends... I'm going to satisfy myself now, not the critics, not even my friends.
+- I'm going to make a film where not one word is really important. I'm going to make it all action.
+- I like directors who come on the set and create something that's a little dangerous, difficult or unusual.
+- You've got to keep fighting - you've got to risk your life every six months to stay alive.
+- The physical life of the scene is determined by whether the set squeezes people together or whether the set has an escape place in it.
+- I used to spend most of my time straining to be a nice guy so people would like me.
+- I was both very successful and very left; the living demonstration of how you could be on the left and still be in the gossip columns and be envied for the money you made.
+- The first thing you should do with an actor is not sign a contract with him. Take him to dinner. And take him for a walk afterwards.
+- I was the hero of the young insurgent working class art movement.
+- The belief that the good in American society will finally win out... I don't believe any more.
+- I have no spy stories to tell, because I saw no spies. Nor did I understand, at that time, any opposition between American and Russian national interest.
+- I was an outsider... but I was also sympathetic with people that were struggling to get up, because I struggled to get up.
+- I spoke without fear of contradiction. I simply did not suffer self-doubt.
+- Hey, you must be doin' good, 'cause I never hear from you.
+- I truly believe that all power corrupts. Such is probably the thinking behind every political film ever made in Hollywood.
+- I owe Bankhead a gift; she made a director out of me.
+- The thing about Brando was that I'd make these directions, and he'd walk away. He'd heard enough... to get the machine going.
+- What's called a difficult decision is a difficult decision because either way you go there are penalties.
+- I was very intense. I think it's a privilege to be an actor.
+- You have to remind people of their own struggles. It's a responsibility.
+- I didn't have that much confidence. Maybe it looks that way. I'm glad it does.
+- To be a member of the Communist Party is to have a taste of the police state. It is a diluted taste but is bitter and unforgettable.
+- You can't just sit there and do the lines. You have to do something revealing or unusual.
+- Acting... was the biggest charge I ever had. What other artist has it so good? Approval so quick?
+- Every picture that is successful has one little miracle in it.
+- I question the value of stars. I think they're overrated. They get too much money, too much praise.
+- I think there should be collaboration, but under my thumb.
+- There is only one thing I respect in so-called Broadway actors... and that is their competitive sense.
+- The writer, when he is also an artist, is someone who admits what others don't dare reveal.
+- The motion pictures I have made and the plays I have chosen to direct represent my convictions.
+- I was not a collective person or a bohemian; I was an elitist.
+- The makers of entertainment must try, in our field, to be honest and grown-up.
+- Every fighter has one fight that makes or breaks him.
+- I was the true future. I understood Communism better than they did.
+- I said to Tennessee, this thing is becoming the Marlon Brando show.
+- I hate the Communists and have for many years and don't feel right about giving up my career to defend them. I will give up my film career if it is in the interests of defending something I believe in, but not this.
+- You have no idea how fragile an actor's self-worth is.
+- I want to thank the Academy for its courage and generosity.
+- Anybody who informs on other people is doing something disturbing and even disgusting.
+- Miller didn't write Death of a Salesman. He released it. It was there inside him, waiting to be turned loose. That's the measure of its merit.
+- Very often the Group actor is a critic when he's acting and an actor when he's criticizing.

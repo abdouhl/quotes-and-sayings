@@ -1,0 +1,101 @@
++++
+author = "Denise Morrison"
+title = "Denise Morrison Quotes"
+quotes_len = "95"
+description = "the best 95 Denise Morrison Quotes"
++++
+- The leader is the person who brings a little magic to the moment.
+- The single most important ingredient in the recipe for success is transparency because transparency builds trust.
+- You embrace disruption. I think it's a good thing.
+- You need to be strategic about how you define your leadership journey and where that takes you.
+- When I was growing up, my father helped kindle my passion for innovation and technology. He was a high-ranking executive at AT&T and used our family dinner table as a focus group.
+- Through his deferential yet decidedly determined demeanor, Pope Francis is not only setting a superior spiritual standard, but he is also leading a thorough transformation of the Catholic Church - rivaling any brand revitalization or corporate turnaround you could name.
+- I have observed that people make strategic plans for brands, businesses, and companies, but they are not always strategic about themselves.
+- We must form public-private partnerships to collectively improve children's health.
+- Set ambitious goals and don't be afraid to declare and aim for them. You need to know where you want to go in order to get there. It is important to have a destination in mind.
+- Working with some outside consultants or people that really can bring you an external perspective or a benchmarking to identify opportunities is a really good way to work.
+- Leadership is service to others.
+- The attitude of giving a full commitment to the partnership will usually result in getting the same commitment in return.
+- My mother taught us that ambition is part of femininity and really taught us to have substance but also style.
+- It's okay to fail if you learn from it.
+- Moving with the times is an important idea for strategy today.
+- I learned marketing at my dinner table.
+- We've navigated a lot of change at Campbell's. The best thing for me to be able to do is to discuss that change with people.
+- When Dad came home from work, he'd turn our family dinners into tutorials on business, money, sales, and profit margins. He shared fascinating stories about his customers, marketing, and my favorite topic when I was a kid - new product launches. Our father also took us to his office before the advent of 'Take Your Child to Work Day.'
+- We need to be in front of consumer trends and translate those trends into insights and foresights.
+- The thing that I learned early on is you really need to set goals in your life, both short-term and long-term, just like you do in business. Having that long-term goal will enable you to have a plan on how to achieve it.
+- I see the world through Irish eyes, and they are smiling.
+- Don't just let your career happen to you.
+- You need to walk the talk, because you can't expect your organization to behave a certain way that you're not willing to behave.
+- I describe my career path as a zigzag, not a ladder.
+- If you want a CEO role, you have to prepare for it with a vengeance.
+- Networking is working.
+- Sustainability is important because we all are responsible to nourish our planet. And real food should be delicious, safe, affordable, and accessible to all. All without compromise.
+- For me, if I knew that I wanted to be a CEO and I set that final destination right up front, that helped me develop a career track.
+- I want to treat people the way I like to be treated and be very straight with them.
+- I've always believed consumers have a right to know what's in their food.
+- There are going to be priorities and multiple dimensions of your life, and how you integrate that is how you find happiness.
+- Women often are so focused on getting their jobs done well that they forget that building relationships is a key part of being a leader - and increasingly so, the higher you go.
+- We tend to treat eating and diets as one size fits all. But the human body is very personalized.
+- Innovation requires an experimental mindset.
+- The personal mission statement was important for me because I believe that you can't lead others unless you have a strong sense of who you are and what you stand for.
+- Transparency doesn't mean much if the consumer doesn't understand what they're looking at.
+- When I was a manager, I was incredibly results-driven - on a mission at all times.
+- The business world needs the best talent from both genders to compete in an ever-changing environment and drive innovation.
+- I was so results-oriented.
+- At Campbell's, we're listening to consumers. We recognize that real and healthier food is better for our consumers and our business. Our goal is to be the leading health and well-being food company.
+- I believe women need to take charge.
+- The things that worked for us in the past wasn't going to work the same way going forward.
+- The best thing you can do as a leader when people are pressed is get the obstacles out of their way.
+- For me, living a balanced life means nurturing the academic, physical, and spiritual aspects of my life so I can maintain a sense of well-being and self-esteem.
+- I loved multi-tasking. I loved being involved in a lot of things. To me, the more complex the better, and so being a leader of a business to me was like, 'Wow, that's what I want to be.'
+- Through the Internet of things, 'connected kitchens' will alert consumers if they're running low on broth and when their salad dressing needs to be replenished.
+- I know there are no sure bets or overnight miracles.
+- Not every great idea needs to be Campbell-generated. It's clear that partners and vendors and other external sources will generate innovative ideas for us.
+- I can cite numerous sponsors at different places in my career that made a huge difference for me just in terms of pulling me aside and giving me a tip or some coaching, or just watching what I was doing and not being afraid to tell me the truth about it.
+- I talk to my parents a couple of times a week. I talk to my daughters every day.
+- I purposely put myself in new, stressful situations so that I can continuously learn.
+- Consumer preferences for food have changed... Changed radically. I call them seismic shifts.
+- The best companies will build culturally diverse leadership teams and workforces with divergent backgrounds, perspectives, and ideas.
+- People are literally tracking everything. People are becoming more empowered and knowing what's going into their body.
+- I don't know if it's unique to women or not, but I do know that women think that they join a company, and the company will take care of them, as opposed to taking charge.
+- We are exploring creative models to pursue innovation outside the confines of our normal process, taking calculated risks and learning from them.
+- We believe GMOs are safe.
+- Life's a balancing act. You have multiple roles and goals, and you can do it all - just not all at once.
+- The path to diversity begins with supporting, mentoring, and sponsoring diverse women and men to become leaders and entrepreneurs.
+- The next frontier in nutrition will be about reconfiguring diets according to individual specific physiology, lifestyle, and health goals.
+- I think you have to see two steps ahead of things. That's just the way I roll.
+- I'm from a generation of women that shattered the glass ceiling. We didn't wait for doors to open. The lesson I learned is that you need to open some doors for yourself in pursuit of career advancement.
+- Evolving our culture to operate and think differently is no small task. We are challenging our employees to be the best of both small and big companies - they should operate with the soul and spirit of a startup, while leveraging the scale, resources and capabilities of Campbell - with the goal of ultimately becoming the biggest small company.
+- Women need to think about where they've been, where they are, where they're going, and how they're going to get there.
+- I feel strongly about the need for diversity, and with good reason. I'm from a generation of women that found it exhilarating to shatter the glass ceiling. We viewed obstacles as opportunities and earned our seat at the leadership table.
+- Trust implies that both parties participate in the relationship with both 'gives' and 'gets.'
+- You can't become a CEO without working hard and delivering results, but that will only take you so far. Building and leveraging strong relationships with mentors and sponsors will take you the rest of the way.
+- The world of marketing has changed. You can lead the change or be a victim of change.
+- You need to set a tone at the top that inspires trust - and encourages open and honest 2-way communication. So you hear the brutal facts, and you listen to the good news and the bad news - so that, in the spirit of continuous improvement, you can make changes.
+- I've been preparing to run a big company all my life.
+- The entrepreneurial spirit has moved from the garage in high-tech to the kitchen in food.
+- With the growth of both urbanization and globalization, consumers are becoming increasingly disconnected from their food.
+- My parents had job jars because my father would say, 'Kids today have too much time, too much money and no responsibility. You're going to have no time, no money and a lot of responsibility.'
+- It is not about finding a work-life balance, but, rather, it's about work-life integration. I've learned to integrate my work and life so that the two exist as harmoniously as possible and priorities can be set.
+- There is power in helping people get excited about what they do and inspiring and motivating them to unleash their full potential.
+- I see more people taking charge of their well-being through the use of data and digital sensors, wearable health bands, and smartphone apps that can track and quantify everything from their heart rate, blood pressure, and sleep quality to steps walked and calories consumed.
+- I do think the position I play is a powerful position.
+- We're all different ages, sizes, shapes, genders, and we all have different lifestyles. We're quickly moving to bespoke diets that enable tailored and informed nutritional food choices.
+- I am one of four girls and was inspired by my father to dream big. Some girls want to be doctors, but I wanted to run a company.
+- Health and wellness does mean different things to different people.
+- The top principle for disruptive and sustaining innovation is that it has to have a laser focus on customers. Innovation begins with their needs and expectations.
+- I think leadership is service and there is power in that giving: to help people, to inspire and motivate them to reach their fullest potential.
+- Being an iconic food company can be both a blessing and a curse. It can be a curse if, amidst change, you maintain the status quo. It is a blessing if you leverage the change coupled with capability to seize new opportunities.
+- As the leader, you're empowering talent. Once you've given the direction, it's a joy to see it put into action, to see people on every level of the company carrying out the strategy.
+- We are moving closer to a future where quantified lives will become the norm.
+- Most corporations have human-resources processes that involve discussions with your manager, performance evaluations, calibrations for performance and potential succession planning.
+- The first step in changing a culture, I believe, starts with the senior leadership team - and with the CEO.
+- What people look for in their leaders is authenticity. You say, 'I'm not going to ask you to do anything that I'm not going to do myself.'
+- Food is art and science. So, you take something out, you have to work with the recipe to make sure that you're providing delicious food with cleaner labels.
+- I think of feedback as constructive, not positive or negative. You choose to do what you want with it.
+- People need to be in charge of their development plan. They need to seek out their sponsors and their mentors and be very strategic.
+- For us, giving back is not an extracurricular activity.
+- There's no one way to the top. Make your own opportunities. See around corners. Raise your hand for assignments.
+- Bolthouse is a great strategic fit with Campbell.
+- I've bought companies in response to the seismic shifts - the consumer preference for food and health and well-being and a gravitation toward more fresh and natural and organic.

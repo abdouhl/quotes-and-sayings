@@ -1,0 +1,97 @@
++++
+author = "David Lynch"
+title = "David Lynch Quotes"
+quotes_len = "91"
+description = "the best 91 David Lynch Quotes"
++++
+- Happy accidents are real gifts, and they can open the door to a future that didn't even exist. It's kind of nice sometimes to set up something to encourage or allow happy accidents to happen.
+- Life is very, very complicated, and so films should be allowed to be, too.
+- To me, a story can be both concrete and abstract, or a concrete story can hold abstractions. And abstractions are things that really can't be said so well with words.
+- I'm not a musician, but I play music. So it's a strange thing.
+- If we didn't want to upset anyone, we would make films about sewing, but even that could be dangerous. But I think finally, in a film, it is how the balance is and the feelings are. But I think there has to be those contrasts and strong things within a film for the total experience.
+- Life should be blissful, and blissful doesn't mean just a small happiness. It's huge. It is profound.
+- Meditation is to dive all the way within, beyond thought, to the source of thought and pure consciousness. It enlarges the container, every time you transcend. When you come out, you come out refreshed, filled with energy and enthusiasm for life.
+- I'm not a real film buff. Unfortunately, I don't have time. I just don't go. And I become very nervous when I go to a film because I worry so much about the director and it is hard for me to digest my popcorn.
+- See, a painting is much cheaper than making a film. And photography is, you know, way cheap. So if I get an idea for a film, there are many ways to get it together and go realise that film. There's really nothing to be afraid of.
+- I don't like Thomas Edison. I'm a fan of Nicolai Tesla.
+- Transcendental meditation is like a car, a vehicle that allows you to go within. It's a mental technique.
+- It makes me uncomfortable to talk about meanings and things. It's better not to know so much about what things mean. Because the meaning, it's a very personal thing, and the meaning for me is different than the meaning for somebody else.
+- Sometimes I get ideas for lyrics in anyplace, but I work a lot in the studio. So I collect little bits of lyrics. I go through the box of lyrics I have and see if something fits.
+- A poet could write volumes about diners, because they're so beautiful. They're brightly lit, with chrome and booths and Naugahyde and great waitresses. Now, it might not be so great in the health department, but I think diner food is really worth experiencing periodically.
+- I don't remember my dreams too much. I hardly have ever gotten ideas from nighttime dreams. But I love daydreaming and dream logic and the way dreams go.
+- The concept of absurdity is something I'm attracted to.
+- I like cappuccino, actually. But even a bad cup of coffee is better than no coffee at all.
+- I like watercolours. I like acrylic paint... a little bit. I like house paint. I like oil-based paint, and I love oil paint. I love the smell of turpentine and I like that world of oil paint very, very, very much.
+- Sex is a doorway to something so powerful and mystical, but movies usually depict it in a completely flat way.
+- I don't think that people accept the fact that life doesn't make sense. I think it makes people terribly uncomfortable. It seems like religion and myth were invented against that, trying to make sense out of it.
+- Negativity is the enemy of creativity.
+- Cinema is a medium that can translate ideas.
+- Television provides the opportunity for an ongoing story - the opportunity to meld the cast and the characters and a world, and to spend more time there.
+- In Hollywood, more often than not, they're making more kind of traditional films, stories that are understood by people. And the entire story is understood. And they become worried if even for one small moment something happens that is not understood by everyone.
+- Film can't just be a long line of bliss. There's something we all like about the human struggle.
+- The cinema is really built for the big screen and big sound, so that a person can go into another world and have an experience.
+- I like L.A. because of the light. The light makes me feel so good. It's really beautiful. And there's something about L.A. being so spread out that gives you a feeling of freedom. Light and freedom.
+- I think that commercials can really ruin a song. You know that the person sold the song for a good deal of money, and that was the tradeoff. But, music and picture can marry in a beautiful way, and the reverse also.
+- To make the script, you need ideas, and for me a lot of times, a final script is made up of many fragments of ideas that came at different times.
+- Music as background to me becomes like a mosquito, an insect. In the studio we have big speakers, and to me that's the way music should be listened to. When I listen to music, I want to just listen to music.
+- If you stay true to your ideas, film-making becomes an inside-out, honest kind of process.
+- An artist makes a painting, and nobody bugs him or her about it. It's just you and your painting. To me, that's the way it should be with film as well.
+- The ideas dictate everything, you have to be true to that or you're dead.
+- I believe in creative control. No matter what anyone makes, they should have control over it.
+- I love super crispy, almost burned, snapping-crispy bacon.
+- This whole world is wild at heart and weird on top.
+- There are only 24 hours in a day, and my top priority is working on my films, but I love short film experiments.
+- I've said many, many, many unkind things about Philadelphia, and I meant every one.
+- I didn't really grow up listening to blues, because I grew up in the Northwest. It wasn't really the center for blues.
+- Somewhere in talking and rehearsing, there is a magical moment where actors catch a current, they're on the right road. If they really catch it, then whatever they do from then on is correct and it all comes out of them from that point on.
+- You don't need a special place to meditate. You can transcend anywhere in the world. The unified field is here, and there, and everywhere.
+- I was raised Presbyterian, but I'm not really going to church. I think the experience in meditation is pretty much where it's at for me.
+- The business side of film has goofed up so many things, but even that's changing. It happened to the music industry and now it's happening to the film studios. It's crazy what's going on. But artists should have control of their work; especially if, as I always say, you never turn down a good idea and never take a bad idea.
+- Digital video is so beautiful. It's lightweight, modern, and it's only getting better. It's put film into the La Brea Tar Pits.
+- A filmmaker doesn't have to suffer to show suffering. You just have to understand it. You don't have to die to shoot a death scene.
+- More and more people are seeing the films on computers - lousy sound, lousy picture - and they think they've seen the film, but they really haven't.
+- Building a set is like building a place, but it's a temporary place, because sets usually get torn down. Kind of unfortunate.
+- I love music, of course, and many, many, many genres. There are hardly any songs I would say that I hate. There's a couple, and I don't even know exactly why I don't like them.
+- I love Bob Dylan. Who doesn't? He tapped into some kind of vein and it keeps on keeping on. There's nobody like him. He's unique, and just... way out cool.
+- I always loved smokestack industry, and I love towns or cities that have grown up around factories.
+- I've always loved the electric guitar: to hold it and work it and hear what it does is unreal.
+- A lot of artists think they want anger. But a real, strong, bitter anger occupies the mind, leaving no room for creativity.
+- The mantra that you're given in Transcendental Meditation you keep to yourself. The reason being, true happiness is not out there, true happiness lies within.
+- Some things we forget. But many things we remember on the mental screen, which is the biggest screen of all.
+- What I really like is to be at home, working.
+- A lot of music doesn't do one thing or another. It just doesn't do anything. Then there are those pieces of music that thrill your soul. It's such a wide range, and it's really interesting that we all love different things.
+- I love the quality, feel and history of film. I love the pictures of the giant cameras and the way it was.
+- I think part of the reason ideas haven't come in is that the world of cinema is changing so drastically, and in a weird way, feature films I think have become cheap. Everything is kind of throwaway. It's experienced and then forgotten.
+- Transcendental meditation is an ancient mental technique that allows any human being to dive within, transcend and experience the source of everything. It's such a blessing for the human being because that eternal field is a field of unbounded intelligence, creativity, happiness, love, energy and peace.
+- The greatest thing my father left me was a love for cutting wood - my love for sawing, especially pine wood.
+- Humor is very interesting to me. My films are not comedies, but there's comedy in them from time to time, absurdities, just like in real life.
+- I thought when I started meditation that I was going to get real calm and peaceful and it's going to be over. It's not that way; it's so energetic. That's where all the energy and creativity is.
+- I think that ideas exist outside of ourselves. I think somewhere, we're all connected off in some very abstract land. But somewhere between there and here ideas exist.
+- As a kid, I was always building things. My father had a shop in the house, and we built things - we were kind of a project family. I started out as a painter, and then painting led to cinema, and in cinema, you get to build so many things, or help build them.
+- You're right on the money with that. We're all like detectives in life. There's something at the end of the trail that we're all looking for.
+- Francis Bacon is one of my giant inspirations. I just love him to pieces.
+- Music deals with time and timing. It's so magical, but when you get into it, every little sound and every little space between the sounds, it's critical, so critical. And if it's not there, it not only feels wrong, but it ruins things.
+- I don't paint the town red. But when I do go out, people always want to touch my hair. It happens every time.
+- You get a painting idea, and you go do that. You get a cinema idea, and you go in to do that. The difference is, even though the paintings might take some time to make, with cinema you are booked for a year and a half, minimum.
+- My cow is not pretty, but it is pretty to me.
+- Intuition is the key to everything, in painting, filmmaking, business - everything. I think you could have an intellectual ability, but if you can sharpen your intuition, which they say is emotion and intellect joining together, then a knowingness occurs.
+- I love paint. I like watercolours. I like acrylic paint... a little bit. I like house paint. I like oil-based paint, and I love oil paint. I love the smell of turpentine and I like that world of oil paint very, very, very much.
+- I supported myself by delivering the 'Wall Street Journal' and doing odd jobs. I love plumbing and carpentry.
+- Somehow, the French got this idea of the starving artist. Very romantic, except it's not so romantic for the starving artist.
+- I always say Philadelphia, Pennsylvania is my biggest influence. But for painters, I like many, many painters, but I love Francis Bacon the most, and Edward Hopper.
+- I discovered that if one looks a little closer at this beautiful world, there are always red ants underneath.
+- I've loved music always, and my music fire was lit by Elvis Presley, really, and all that was happening back then.
+- Every viewer is going to get a different thing. That's the thing about painting, photography, cinema.
+- People think in Hollywood there's a family, where everybody gets together talks about stuff and we all know each other, and it's just not that way at all to me.
+- Most of Hollywood is about making money - and I love money, but I don't make the films thinking about money.
+- Everyone is on the internet but they're not all talking with each other. There are groups upon groups out there, but they don't talk to one another. So while the internet brings everyone into a shared space, it does not necessarily bring them together.
+- I have no problem getting financing. I have a problem catching ideas that I fall in love with for the next feature.
+- Sugar does make people happy, but then you fall off the edge after a few minutes, so I've really pretty much cut it out of my diet. Except for cupcakes. I like those.
+- I love Christmas tree bulbs, and I started putting them in my paintings. You've got to plug this painting in, and it's got a rig in the back, so that each one can be replaced if it burns out.
+- Stories hold conflict and contrast, highs and lows, life and death, and the human struggle and all kinds of things.
+- Absurdity is what I like most in life, and there's humor in struggling in ignorance. If you saw a man repeatedly running into a wall until he was a bloody pulp, after a while it would make you laugh because it becomes absurd.
+- Sometimes I get an idea for cinema. And when you get an idea that you fall in love with, this is a glorious day.
+- A lot of painters listen to music, I think, while they paint. But I hate to do that. It's a horror. I can't really listen to the music. I'm not really concentrating on it, and I'm not really concentrating on the painting.
+- I like things to be orderly.
+- I didn't watch much TV as a kid and I don' t watch it now. I don' t find anything beautiful or unique to the medium, and the only thing you can do on TV that you can't do in film is make a continuing story - which is so cool!
+- A film - especially when it's a personal film - is going to hit somebody or it's not. There's nothing you can do about it.

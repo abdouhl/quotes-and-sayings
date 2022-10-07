@@ -1,0 +1,104 @@
++++
+author = "Eddie Griffin"
+title = "Eddie Griffin Quotes"
+quotes_len = "98"
+description = "the best 98 Eddie Griffin Quotes"
++++
+- I've never actually sat down and written a joke.
+- The whole world is one big dysfunctional family. But no matter how dysfunctional we are, we can still have a positive impact on each other's lives. We can still try to get along together.
+- What am I selling? Joy, happiness, a way to turn the ugliest ills of life on their head so you can laugh at it and not take it too serious.
+- The devil is a fun character to play because he's everywhere and no where all the time.
+- In Hollywood, you serve no wine before it's time, give the haters no time to hate until it's too late.
+- My family is an open book. They don't hide.
+- We don't live in reverse. We live forward.
+- Some might call my style pro-black, but I think of the basis of all my material as truth.
+- We here a blink of an eye, even if we make it 75, 80 years, you still here a blink of an eye. Enjoy it.
+- When I first got here, Vegas still felt like a destination. Now it's become a real city.
+- That was my first Hollywood lesson: Just because you filmed a movie doesn't necessarily mean that you're in it.
+- I've been on stage since I was six years old... Street dancing, bugaloo, moonwalking.
+- I'd always do bits on street corners like Richard Pryor's Mudbone character. And my friends kept telling me, You could make money doing that.'
+- I love Parliament Funkadelic.
+- I'm one of the greatest storytellers ever.
+- It's not always easy to go from funny on the page to funny on the screen.
+- There are no 'Leave It to Beaver' families. Everybody's family's got that one nut that comes to the family reunion and you're like, OK, that guy's here.
+- People are just people; the only thing that's different is the form of government that leads them astray.
+- I grew up watching 'The Jeffersons' and 'Good Times' as much as I watched The Mary Tyler Moore Show' and 'All in the Family.'
+- Even the brokest Saudi got a Mercedes.
+- All artists are a little off.
+- We went to open-mike night at a comedy club called Stanford & Sons and the comics were terrible. My cousin dared me to get up there and, well, he was challenging my manhood. I had to do it.
+- One night I went to this comedy club and paid a hard-earned $5 to get in, and every comic that came up was dry as an old turkey wishbone, as in not even close to being funny. When you're broke and you pay $5 to see somebody, you want them to be funny.
+- Platform shoes will come back.
+- Everybody's family is dysfunctional.
+- I didn't want to be a comedian. I was just funny. I jumped on stage and found out I was good at it.
+- There is a systematic effort to destroy every black male entertainer's image. They want us all to have an asterisk by our name.
+- Getting on stage doing standup anytime is hard. You never know what you're going to say. You live and die on your next word.
+- Comedy is a tool to be used so that people can relate to each other.
+- I have the idea of cool, but at the end of the day, I'm a pushover.
+- You got access to nothing, you want to use everything.
+- The criminal justice system is rigged against African Americans.
+- As far as best comedy show, Richard Prior live. The Long Beach show. That's the apex, that's the pinnacle. That's what everybody's trying to reach for. When he walked on that stage he had the red shirt on in Long Beach and when he walked on that stage to the time he left, he was on fire.
+- Everyone says, 'What is it like to wreck a Ferrari?' Man, it felt good, especially when you don't have to pay for it.
+- My inspiration is the one and only godfather of comedy himself, Richard Pryor. He's the greatest.
+- I had some major league help. Andrew Dice Clay and Robert Townsend were there for me.
+- I've panhandled before, and I can panhandle again.
+- Some people are looking for the big scene in their movie called life.
+- Me, I'm an avid CNN watcher.
+- I'm truly a believer that Satan was behind everything that happened in that White House, and now, the Republican party. Anything that is good for the people, they're against it.
+- I don't go to the running of the bulls because I don't like being chased by bulls.
+- We need more intellect and humor back on television, instead of the lowest common denominator of comedy - like the fart joke!
+- Those series from the '70s and '80s with a studio audience are dead.
+- Why censor yourself? You got to tell the truth as you see it.
+- My mama whupped me away from the penitentiary.
+- Stand-up is good therapy.
+- America is one big dysfunctional family and we are still trying to figure out how to live together.
+- You know what TV is? It's 22 minutes of selling soap.
+- I am telling you, Lebanon was fun. I played for 5,000 people in a sold-out venue. The clubs there don't even open until 4 A.M. If a bomb goes off, people don't get excited. They live every day like it's their last because it could possibly be.
+- The Tea Party ain't nothing but the Klan in street clothes. I liked 'em better when they were in the sheets, at least I could spot them.
+- I feel great about coming to Saudi Arabia.
+- Me and Dave Chappelle were at Charlie Murphy's funeral. I got up there and I got to preaching, and I took over the church.
+- If there are things that are off limits, why would you do standup?
+- The international launch of 'Undeniable' is special because now fans all across the globe can laugh along to some of the funniest jokes in history.
+- Austin Powers' is a huge success. If we get half of those numbers we will be elated. I think this film is more an 'Austin Powers' meets 'Shaft.' But, 'Undercover Brother' is totally unique.
+- Money isn't that important to me.
+- I've wanted to do a Sammy Davis Jr. story for a long time. It's one of those pet projects that has to be done.
+- I'm more comfortable on stage than I am off.
+- I'm a comic and I'm having way too much fun with the comedy. I do the music for myself.
+- Life is all about cycles.
+- Women are empowered, and they got better jobs than their husbands.
+- Comedy has a way of dealing with serious issues and finding humour in it.
+- You only live once but in my case, twice. I'm indestructible.
+- I take a subject, then I go on stage, and whatever is in there comes out. You can edit as you go and continue to work it out on stage until it's something you like, but I never think about it. I just go up and flow.
+- Stereotypes start somewhere. There's different sides to all of us.
+- When I was 6, my mother put me on a picnic table in front of the whole family and told me to do my James Brown impression. I realized it was a great way of getting attention.
+- I'm not that cool in real life. I'm only cool in a goofy way.
+- People are people no matter where the hell you go. People still want to find relationships, fall in and out of love... that's what I've noticed as I've travelled around the world.
+- I remember asking my mom when I was 10 if I was adopted because I didn't look like my brothers and sisters. She said, 'Are you crazy? You think I am gonna go buy another mouth to feed?' So that settled that.
+- I like racism above the ground so it can be dealt with, but when it's subversive and subjugated, it gets real dangerous.
+- Stand-up is dangerous. That's what I like. You're out there on your own.
+- Steven Segal's a cool dude. He's basically a blues man. He loves playing his guitar.
+- Biggest man law - be a man. Simple: be a man, definition of being a man is being a man. And don't let your woman turn you into a little boy.
+- I feel I have audiences on my side, and that's what keeps the movie machine going for me.
+- I raise successful children.
+- After my first 'One Night Stand' on HBO, I lost my focus. I was mad at the world. I would have meetings with directors and agents and cuss them out. I was a hothead.
+- Malcolm and Eddie Show,' a lot of other people came and went, but Malcolm and Eddie were steady on the case.
+- I also know you're only as good as your last show.
+- I am definitely scary to a lot of people. I talk about realities that some folks just don't want to hear.
+- Life is an endless journey through stupidity.
+- If I can relate the black experience to white people, then they can understand us better and not be so afraid.
+- No matter how dysfunctional we are, we can still have a positive impact on each other's lives.
+- Nobody wants people following them around 24 hours a day with a camera.
+- You have to watch CNN, MSNBC, Fox and then the local news and then Al Jazeera. The truth is somewhere in the middle, because all of them are lying. It's what they're not saying that's really going on. What they're saying is called television programming. They're telling you this is the program. You are being programmed.
+- When you watch CNN, you see the custom graphics - 'War in the Desert,' or 'Showdown: Iraq,' and it's being presented like a TV show, like 'The Cosby Show' or 'Roseanne.'
+- George Clinton was my first concert ever.
+- I'm old enough to remember the '70s. The '70s is a different time.
+- If you got love and you believe in yourself, anything is possible.
+- I was born black in this country. Trust me, I've seen the government.
+- My thing is to talk about life, about experiences I've had.
+- I don't like country music, so I won't buy a ticket. That doesn't mean I should be outside protesting.
+- Being poor gets you thinking quicker.
+- They are trying to lock up as many of us up as possible to put us in penitentiaries for free labor. You have the government paying private prisons to feed and clothe each inmate, turning it into a damn business. And African Americans are set up for getting arrested.
+- Of course, I like Miami. What's not to like?
+- When you come out of the NBA, you get a hundred million-dollar contract and a white woman!
+- When I'm telling jokes, I'm constantly in motion. I can't stand in one place.
+- You know, if James Brown is the godfather of soul then Richard Pryor is the godfather of comedy, period. That man knocked down all those last freedom of speech doors.
+- I'm a storyteller. My whole family is storytellers. I'm just a product of my environment.

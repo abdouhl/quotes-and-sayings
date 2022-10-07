@@ -1,0 +1,53 @@
++++
+author = "Peter Carey"
+title = "Peter Carey Quotes"
+quotes_len = "47"
+description = "the best 47 Peter Carey Quotes"
++++
+- My father left school at the age of fourteen, so this was a man with no deep experience of formal education.
+- I got a job in advertising. So even though I was writing, I was always supporting myself. That's the thing that would matter for my father, who was absolutely a creature of the Great Depression.
+- My mother was the daughter of a poor schoolteacher - well, that's a tautology - a country schoolteacher.
+- When I was young and easily outraged, I would be upset when every fictional character I created was somehow reduced to 'autobiography.'
+- I woke up in Australia almost every day for the first 47 years of my life. When I left, I didn't discard that, didn't reject that, didn't forget that. Not even New York City can wipe that out.
+- I like how they are. I think they're great. And their communities are communities. I have a greater sense of community in New York than almost anywhere I've ever lived. Really, it's terrific.
+- I'm always the one with the activist friends. I've been an activist very little.
+- I think there was, and there is, a real Commonwealth culture. It's different. America doesn't really feel to be a part of that.
+- I have no interest in writing, generally speaking, about America at all - even if it does continue to terrify me.
+- I'm someone who always wants to do everything differently. If I have a pattern, I'd rather I didn't have a pattern. I want every book to be unpredictable and new. Damn it!
+- Being famous as a writer is like being famous in a village. It's not really any very heady fame.
+- I would be the worst person on earth to be called to write an account of someone else's life.
+- I have never begun a novel which wasn't going to stretch me further than I had ever stretched before.
+- It's not like I've got 100 ideas. I finish a book, and I've got none.
+- Good writing of course requires talent, and no one can teach you to have talent.
+- My greatest pleasure is to invent. My continual mad ambition is to make something true and beautiful that never existed in the world before.
+- Writers, at least writers of fiction, are always full of anxiety and worry.
+- The failure of the U.S.'s foreign adventures often seems to have its roots in the U.S.'s total ignorance of things on the ground, of the countries that they fiddle with.
+- I used to say when I was younger, 'I'm exhausted; writers can only write for four hours a day and that's done.' Now I find, as I'm getting older and I'm more aware of time, I can actually write all day.
+- I thought I would be an organic chemist. I went off to university, and when I couldn't understand the chemistry lectures I decided that I would be a zoologist, because zoologists seemed like life-loving people.
+- I never base characters on real people. There are people who do that but I really don't know how to do it.
+- Australia is my lens. I cannot see the world any other way.
+- At the very end of a book I can manage to work for longer stretches, but mostly, making stuff up for three hours, that's enough. I can't do any more. At the end of the day I might tinker with my morning's work and maybe write some again. But I think three hours is fine.
+- When I finished 'True History of the Kelly Gang,' I realised that Faulkner had not lost his power over me.
+- At school, I was fanatical about being a scientist.
+- I think that thing about the destruction of the world is there all the time, it's there every day when we look out the window.
+- I was very anxious when I was writing 'Oscar And Lucinda.' I would take other books off the shelf to check my chapter length was OK.
+- It's true: one of the things that I've always thought about American society is that you never get the sort of natural politicisation of class consciousness that you would get in the United Kingdom or even in Australia.
+- I don't separate my books into historical novels and the rest. To me, they're all made-up worlds, and both kinds are borne out of curiosity, some investigation into the past.
+- I always pity people who have to write my plot synopses.
+- I don't think you have the right to shout about other people's private life.
+- The Australian cast of mind is not something I would want to be without - and I couldn't be without. It's not a choice.
+- There are people that you don't like because you're jealous of them until you meet them. And you haven't read their book because it's had so much attention. Then you meet them and discover they've been jealous of you, and you become friends.
+- The great thing about using the past is that it gives you the most colossal freedom to invent. The research is necessary, of course, but no one writes a novel to dramatically illustrate what everybody already knows.
+- When I went to live in New York, I didn't mean to stay there, but here I am.
+- In about 1975-76, I lived with a woman in a little hut with some fruit trees, and I had some of the most extraordinary, happy times of my life. Apart from the horrendous Queensland police, who were corrupt and venal, it really was like living in paradise.
+- When I finally began to publish, my father never read my work. He'd say, 'Oh, that's your mother's sort of thing.' But my mother found the books rather upsetting. I figure she read just enough to know that she didn't want to go there.
+- What I find really attractive is something that's going to be a little dangerous. Something that might get me into trouble; you know, you turn up in London and you've just rewritten Dickens. And, of course, then you think, 'What have I done?'
+- And it's always possible that you will not get a nice review. So - and that's enraging of course, to get a bad review, you can't talk back, and it's sort of shaming in a way.
+- One has to be able to twist and change and distort characters, play with them like clay, so everything fits together. Real people don't permit you to do that.
+- Faulkner's 'As I Lay Dying' had an immense effect on me, and most of my novels bear the burn marks of this experience, those short chapters with their conflicting points of view, truth expressed by multiple perspectives. The other attractive thing about 'As I Lay Dying' was the way it gave rich voices to the poor.
+- Nostalgia is something we think of as fuzzy. But it's pain. Pain concerning the past.
+- So in the first draft, I'm inventing people and place with a broad schematic idea of what's going to happen. In the process, of course, I discover all sorts of bigger and more substantial things.
+- I have written a memoir here and there, and that takes its own form of selfishness and courage. However, generally speaking, I have no interest in writing about my own life or intruding in the privacy of those around me.
+- I'm interested in where we are, where we're going, where we've come from.
+- Culture is the way for a country to know itself.
+- I went to work in 1962, and by '64 I was writing all the time, every night and every weekend. It didn't occur to me that, having read nothing and knowing nothing, I was in no position to write a book.

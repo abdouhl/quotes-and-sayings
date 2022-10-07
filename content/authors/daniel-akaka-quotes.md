@@ -1,0 +1,15 @@
++++
+author = "Daniel Akaka"
+title = "Daniel Akaka Quotes"
+quotes_len = "9"
+description = "the best 9 Daniel Akaka Quotes"
++++
+- I have witnessed how education opens doors, and I know that when sound instruction takes place, students experience the joys of new-found knowledge and the ability to excel.
+- I do not believe, given her past decisions and comments on the reasons to go to war in Iraq, that Dr. Rice will be able to represent the United States without a predetermined bias from the war.
+- As it has for America's other indigenous peoples, I believe the United States must fulfill its responsibility to Native Hawaiians.
+- New drugs and surgical techniques offer promise in the fight against cancer, Alzheimer's, tuberculosis, AIDS, and a host of other life-threatening diseases. Animal research has been, and continues to be, fundamental to advancements in medicine.
+- It is imperative that we make consumers more aware of the long-term effects of their financial decisions, particularly in managing their credit card debt, so that they can avoid financial pitfalls that may lead to bankruptcy.
+- There is a human capital crisis in the federal government. Not only are we losing the decades of talent as civil servants retire, we are not doing enough to develop and nurture the next generation of public servants.
+- Unlike most major American cities, Honolulu is geographically insulated from the rest of the country. When disaster strikes we cannot call on neighboring states for assistance.
+- A tremendous amount of needless pain and suffering can be eliminated by ensuring that health insurance is universally available.
+- A more effective international disease surveillance system is essential for global security both against a bioterrorist attack or a naturally occurring disease.

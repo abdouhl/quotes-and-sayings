@@ -1,0 +1,201 @@
++++
+author = "Yoko Ono"
+title = "Yoko Ono Quotes"
+quotes_len = "195"
+description = "the best 195 Yoko Ono Quotes"
++++
+- People make music to get a reaction. Music is communication.
+- Every drop in the ocean counts.
+- This society is driven by neurotic speed and force accelerated by greed and frustration of not being able to live up to the image of men and woman we have created for ourselves; the image has nothing to do with the reality of people.
+- The thing that would most improve my life is 27 hours in a day. I could meet all my deadlines.
+- Great Art is Great because it inspired you greatly. If it didn't, no matter what the critics, the museums and the galleries say, it's not great art for you.
+- When I got pregnant, I had to concentrate on being pregnant for a whole nine months, even though I knew it was ruining my career at the time.
+- Many of my songs were dance orientated from way back. That's because I love dance! When I hear a dance number, just hearing the first eight bars, it immediately makes my bod start moving and dancing.
+- I am aware of the sufferings of women in India, which is also the suffering of women in many, many countries on our planet. My heart is filled with empathy and love for them.
+- Everybody's an artist. Everybody's God. It's just that they're inhibited.
+- When Orientals are attacked, they don't hit back.
+- I never thought I would go into the dance charts.
+- The human race is a very, very magical race. We have a magic power of witches and wizards. We're here on this earth to unravel the mystery of this planet. The planet is asking for it.
+- The regret of my life is that I have not said 'I love you' often enough.
+- I don't think you should always stay calm in a tense situation, because you might not ever confront the problem. Maybe it's better to actually let yourself be tense - and find a solution.
+- All my concerts had no sounds in them; they were completely silent. People had to make up their own music in their minds!
+- It's a waste of time to think that if you colored a painting red what might have happened if you painted it black.
+- There's many women now who think, 'Surely we don't need feminism anymore, we're all liberated and society's accepting us as we are'. Which is just hogwash. It's not true at all.
+- It is very difficult for us to know we love somebody because it is an insecure position to be in. But in the end, it is important to be honest about your love because life is not that long.
+- I'm very thankful that I can make people happy just by signing my name.
+- When I turned 60, it didn't bother me at all.
+- Women have become stronger, and there's a backlash. Men have become terribly possessive. I find it much easier to get on with women.
+- I just want to be healthy and stay alive and keep my family going and everything and keep my friends going and try to do something so that this world will be peaceful. That is the most ambitious and the most difficult thing, but I'm there trying to do it.
+- I admire all people who are trying to be a good power in this chaotic world.
+- Japanese are very proud and workaholics. Proud workaholics.
+- But only art and music have the power to bring peace.
+- Society tells you that when you're old you have to retire. You have to defy that.
+- I did not break up the Beatles. You can't have it both ways. If you're going to blame me for breaking the Beatles up, you should be thankful that I made them into myth rather than a crumbling group.
+- If you go back to all my albums, they're all confessional.
+- What the Beatles did was something incredible, it was more than what a band could do. We have to give them respect.
+- A dream you dream alone is only a dream. A dream you dream together is reality.
+- My father was a banker, but he was an independent spirit. He was a very good pianist and very much into music.
+- We live too long for one marriage.
+- In the '60s, people were still very protective of each field that they belonged to. Avant-garde artists didn't know about rock or pop or jazz. And the jazz people of course didn't want to know about any other music. They were all just kind of protecting their territory.
+- I see so many activists... who are artists because they feel that they have the power of communication.
+- My husband John Lennon was a very special man. A man of humble origin, he brought light and hope to the whole world with his words and music.
+- Energy is so important. If you don't have it, don't bother with rock and roll.
+- Life with another person is always difficult.
+- No one person could have broken up a band, especially one the size of the Beatles.
+- To me, the concept of distance is not important. Distance doesn't exist, in fact, and neither does time. Vibrations from love or music can be felt everywhere, at all times.
+- In the '60s we fought for peace, when the Vietnam war was on. We were against the cops and against the politicians, and there was a lot of waving banners and all that. And I think in a way, just as they were enjoying that machoism of war, we were enjoying the machismo of being anti-war, you know?
+- Performance art is going to be the future. Plays on Broadway are so restricted. But performance art is like haikus, just one line thing. And it's more casual but more interesting.
+- My first husband met me as a career woman, and the second did, too. I was lucky.
+- All I can say is, it's not very easy for a woman to be associated with The Beatles.
+- My heart is mysteriously alive in the world of sounds - a totally different dimension from the daily life.
+- After I was 70, I realized that, 'Okay, I would like to have another 50 years, and I probably could.' But part of me is saying, 'Maybe I'm not going to have that much time.'
+- I don't have a goal. I don't limit myself to a goal.
+- Events are the best teacher for us. You try to learn from people, there is always some bend to it.
+- I think there is a big difference between the music business and music. And my relationship is to music, not music business. I think the business will keep changing, but music won't. Music will be there.
+- People don't remember each tree in a park but all of us benefit from the trees. And in a way, artists are like trees in a park.
+- Bad stories are written about me because the press knows they can make me into a weeping dog and few people will object.
+- You can be lonely when you have a guy living with you.
+- Controversy is part of the nature of art and creativity.
+- Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.
+- Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.
+- John wrote with a very deep love for the human race and a concern for its future.
+- When you go to war, both sides lose totally.
+- I'm a very obsessive type. If I do get into it, I'll soon be there 12 hours a day. I just don't want to do that.
+- The whole world is starting to realize that it was the most unwise thing for our society to have ignored women power, to run the society with male priorities.
+- Healing yourself is connected with healing others.
+- You can be very wild and still be very wise.
+- Losing my daughter was a very serious pain. There was always some empty space in my heart.
+- I'm kind of honored to be a dragon lady. The dragon is a very powerful, mythical animal.
+- People think that their world will get smaller as they get older. My experience is just the opposite. Your senses become more acute. You start to blossom.
+- I never want projects to be finished; I have always believed in unfinished work. I got that from Schubert, you know, the 'Unfinished Symphony.'
+- I just like to explore all sorts of different forms - no, 'explore' is not even the word - enjoy. You don't want to limit yourself to a particular form.
+- I think energy is the most important thing that we can give to people as performers. Anything else is a little bit pretentious. But energy is not.
+- I like artists who have something to say, not wallpaper.
+- I trust myself. You need that to survive.
+- You change the world by being yourself.
+- The nice thing about the gallery shows is that without having to pay any money you can just go and see it.
+- I don't think about the future. I don't think about the past. I just think of what comes into my head at the time. So that might be about the past, that might be about the future. Or, the present.
+- Many people do remember their births, but they deny it.
+- The war industry people are very together; they know exactly what they want; they don't even have to talk to each other. The peace industry people are just intellectuals who are very critical of each other... Unless the peace industry is powerful, we're always going to have war. It is as simple as that.
+- Chemically speaking or biologically, we research things, but we don't know half of them. We only know our half of it - symbolically - and we don't know ourselves more than half.
+- Most of the fans of John Lennon and maybe John and Yoko are younger than me.
+- Art is a mind-game that we do to make our lives easier. If it isn't for that, it becomes superfluous.
+- The 1960s were about releasing ourselves from conventional society and freeing ourselves.
+- I'm not interested so much in collaboration. You see that from the history of my albums.
+- I get very nervous before I get on the stage, but once I'm on the stage, I'm just, you know, me. Nothing hurts me.
+- Nobody's life is a bed of roses. We all have crosses to bear, and we all just do our best. I would never claim to have the worst situation. There are many widows, and many people dying of AIDS, many people killed in Lebanon, people starving all over the planet. So we have to count our lucky stars.
+- I have only one life, so I want to make sure it's a good one.
+- We artists have the dignity to tell the truth to the people, unlike politicians.
+- I'm free from holding personal anger because I can express what I want through my music.
+- I travel a lot, so when I arrive in a city, I like to go to good local bookshops and make a selection based on how I'm feeling and what I'm thinking. The book I pick usually seems to have a definite karmic connection!
+- When I was four years old, my mother put me into a school for early music education where you get perfect pitch and harmony and composition.
+- Art is my life and my life is art.
+- People are still thinking of solving problems by violence and war, and that has to stop.
+- I thought art was a verb, rather than a noun.
+- The sky is always there for me, while my life has been going through many, many changes. When I look up the sky, it gives me a nice feeling, like looking at an old friend.
+- When I'm putting some communication out on Twitter or Facebook or Instagram, I think that it's helping me, my brain, you know, because it's always somehow stimulated by people who are sending things to me. And it works both ways. It's great. My brain is very happy about it.
+- I feel that my work is not in vain, that it does have a place in society, even though it may not be considered that it has a place in society - it doesn't matter.
+- We're growing up together, the human race. And we've discovered a lot of things that we didn't know. We're finding our way. Instead of thinking about doomsday all the time, think about how beautiful the world is. We're all together, and together we're getting wiser.
+- When I speak out against the guns or against the big corporations, some of my friends say, 'Oh Yoko, be careful. These people have all the power.' But, you know, most people don't speak out because they are frightened.
+- People just love to be entertained, and in order to entertain them, you have to do things in a way that they understand.
+- The only instrument I can play is piano. Whenever I make songs at home, I play the piano and make them on the piano.
+- I think that there is a sort of spiritual power that is translating into our bodies as we perform. Performers give, and giving is so important. It can heal. That is my experience, anyway.
+- The art world was not initially really accepting my kind of work. I was ahead of my time.
+- I'm just being normal. A normal woman. Well, I don't know what a normal woman is, but I'm a woman and I'm Yoko and I've never changed that.
+- We are all dreamers creating the next world, the next beautiful world for ourselves and for our children.
+- Our public officials have forgotten that they are ultimately accountable to the people who put them in office, that the information they keep in secrecy belongs to all of us.
+- Women are put in a position of feeling embarrassed about their bodies. It's so ridiculous, but also astounding - we have to always be apologetic about having created the human race.
+- I have been known as the minimal and conceptual artist for over five decades. I think I haven't changed much.
+- I always believed that my work should be unfinished in the sense that I encourage people to add their creativity to it, either conceptually or physically. Back in the 1960s, I was calling for 'Unfinished Music,' number one, and number two, with my artwork - I was taking unfinished work into the gallery. And that's how I was looking at it.
+- Dancing is a very healthy thing to do for our body.
+- Being alone is very difficult.
+- I'm not going to doubt my life.
+- What we do really affects the world. Most of us think we can't do anything, but it really isn't true.
+- My career? I never think of it as a 'career.' Art and music and all those things that I'm creating are just part of me.
+- I respect Lady Gaga very much.
+- There is an incredible love in creating art unless somebody is saying, 'Hey, let's just make money,' because it doesn't work when you do it that way. If you are aiming for that, forget it.
+- I think if you give in and accept society's stereotypes, then you start thinking, 'I cannot dance till late at night because I'm 70.'
+- I just wish that people will be kinder to me when I pass away.
+- There's a long life ahead of you and it's going to be beautiful, as long as you keep loving and hugging each other.
+- If your life changes, we can change the world, too.
+- Please know that being 80 is not a scary thing. When you're 80, your life is much freer.
+- Money is not everything. We don't need billions and trillions of dollars.
+- War is over if you want it.
+- My beauty secret is... nothing! I don't drink too much water. I don't eat very well. Sometimes I cheat and grab some chocolate. The best thing is to eat what you want, but not very much.
+- I was born into a very important family in Japan. My grandfather was a descendant of the Emperor, and we were very wealthy.
+- Why do they cover Paul's songs but never mine?
+- Artists and musicians of the Sixties were definitely into clothes.
+- Reality can be elastic, and I want to see how elastic it can be, you know?
+- You can't always measure the effects of activist work; you just have to wish and pray that the message gets through.
+- Distance doesn't exist, in fact, and neither does time. Vibrations from love or music can be felt everywhere, at all times.
+- I relate to happiness as an ecstatic moment - something you don't create, you encounter.
+- The Beatles were a group made up of four very complex men, and my small hand could not have broken these men up.
+- Most people like to hear sounds they are used to.
+- If a woman writes about a domestic situation, everyone automatically assumes that it's about her.
+- Marriage is a difficult project. When seven years have passed and all your body's cells have been replaced, you're meant to experience that seven-year itch.
+- We don't live by just sleeping and eating. We need pride and dignity in our lives. Work gives you that.
+- The computer is my favourite invention. I feel lucky to be part of the global village. I don't mean to brag, but I'm so fast with technology. People think it all seems too much, but we'll get used to it. I'm sure it all seemed too much when we were learning to walk.
+- You can't always be in awe of someone's talent, living with them.
+- People say that this new generation is so used to the Internet that their heads are already different. They can't read a book from beginning to end. That is not a tragedy. The book changes form.
+- The process is always the same. I get an inspiration for a new song, I put it down on paper immediately so I won't lose it. When I am ready to go to the studio with it, I play it a few times on the piano and edit, add, and type the lyrics and take it to the studio. Sometimes I don't have anything on paper.
+- I've always said that I use my voice as an instrument. It was something I created myself, and I said, 'Have voice, will travel.'
+- Music is like my security blanket.
+- Sometimes the father feels pushed out because of the connection between the mother and the child.
+- Women are very intelligent and not appreciated. We try to pretend that we are not clever, and it's such a pity that we can't show how clever we are.
+- Fracking is an incredible risk to the human race, I don't know why they even thought of doing it.
+- True artists are prophets. I don't want to be that prophetic in that sense because it's so lonely.
+- Even my mother told me: 'You are a handsome woman, but you're not pretty. Pretty girls don't have those big bones.'
+- I just go with the flow, so any style can be in my music - that makes it exciting.
+- If everybody thinks of something, then it will happen. Your mind is part of the universe. It is connected, you can use its energy.
+- Having a son is not all pleasure.
+- Some people think that movements, such as the movements in ballet, are a higher cultural expression, whereas some are just dirt. I think it is elitist to think that a trained movement is more acceptable than untrained and possibly unrehearsed movements.
+- You know, something happened to me when I became 70. I started to feel a tremendous love for the human race, and life and this planet, the universe, the whole shebang.
+- Women artists are still treated differently from men.
+- When you're imagining peace, you can't kill anyone. That's good isn't it?
+- We know that our cells are speaking to each other.
+- Art for me is like breathing.
+- When people don't understand my work, I don't feel like explaining.
+- It's a waste to not say anything with art.
+- One day, the dance charts will be the biggest chart in the music world. Because we all need to dance. This planet will be a fun planet when the judges in court will end the day with a dance!
+- I don't have time to listen to anybody's music. I'm making it, you know.
+- Your private life is really very important for you. You know, all of us, you know.
+- If you have too many quotes from other people in your head, you can't create. You have to keep your head empty. That's why I am constantly enjoying the sky, the park, the walk.
+- When you are totally depressed, you should try giggling. Just make yourself laugh. Force yourself to laugh.
+- Marriage is a gamble, let's be honest.
+- When you go through a negative situation, don't think about it. Make it positive.
+- When you are suffering, you become more understanding about yourself, but also about other people's sufferings too. That's the first step to understand somebody is to understand their sufferings. So then love follows.
+- Sound as medium has an incredible elasticity. So, of course, it is tempting for artists of other fields to try something with sounds. Why not? We are living in the age when there is no limit in gathering all forms of art and music to mix it together if you so desire.
+- Every moment in our lives is a miracle we should enjoy instead of ignoring.
+- To have a relationship that is pure and passionate and beautiful - I think people are scared of having that now. Especially guys.
+- I am extremely rebellious. I have this strong, defiant spirit.
+- Nothing is written in stone. So don't prepare yourself for a long and lucrative career. You might die tomorrow. Your gold holdings might become dust. Just make the music you want to make now and enjoy it.
+- I think it's nice to let people know that there is an invisible part of the world. I think there are many people now who are interested in the invisible world.
+- I realized that if my thoughts immediately affect my body, I should be careful about what I think. Now if I get angry, I ask myself why I feel that way. If I can find the source of my anger, I can turn that negative energy into something positive.
+- A lot of things have been thrown at me in life, and I've got through it all without a rule book, taking it one day at a time.
+- Artists are going to be the metronome of this society.
+- After my husband John Lennon passed away, I tried to smile for my health.
+- I must say that I always thought I had a voice, even when I was 4 years old.
+- People accuse artists of being narcissists - of course we are! If we don't like ourselves, who's going to like us?
+- Art is like breathing for me. If I don't do it, I start to choke.
+- At least I had that, one guy understood me.
+- DJs are in incredible competition, musically. And they are the most musically creative and sensitive people in all the music charts. I am amazed how they are.
+- Fracking kills, and it doesn't just kill us. It kills the land, nature and, eventually, the whole world.
+- Experiencing sadness and anger can make you feel more creative, and by being creative, you can get beyond your pain or negativity.
+- I always thought that I was an important musician. If you don't have that confidence, why would you go on and do it?
+- Many incredible artists die before they were famous.
+- I was being hated for about 40 or 50 years by the whole world, but it did not destroy me, and it did not ruin my health. And the reason is because I just did not answer them. I had my own life.
+- I saw that nothing was permanent. You don't want to possess anything that is dear to you because you might lose it.
+- My life was pretty rough.
+- Power is power. It's energy. And if you get big, big energy, you can use that in a good way.
+- Countries have lost their culture because what they wanted was money. Money became the running theme in every country and culture was sacrificed.
+- Words are power. And a book is full of words. Be careful what power you get from it. But know that you do.
+- I think of John every day. I do try to block it, but December 8th is not the only day I think of him.
+- The universe, when you leave it alone, is going to be beautiful.
+- I think that there is incredible prejudice about witches while there is no prejudice about wizards. Words are very important, and I'm really into destroying myths.
+- I don't believe in a chronological way of doing things.
+- Mothers are not supposed to give guidance.
+- Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.
+- When people ask me what the most important thing is in life, I answer: 'Just breathe.'
+- Is truth always positive? Of course. Once the truth comes out, you know, it's all right. We're scared that if the truth comes out that it's not all right. It's the other way around.
+- The cynicism that you have is not your real soul.
+- In the Second World War, I was a little girl. I was evacuated in my country.

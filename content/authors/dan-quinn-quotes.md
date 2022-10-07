@@ -1,0 +1,62 @@
++++
+author = "Dan Quinn"
+title = "Dan Quinn Quotes"
+quotes_len = "56"
+description = "the best 56 Dan Quinn Quotes"
++++
+- I think different teams have different challenges as you go through.
+- Part of what we talk about is, toughness is a talent.
+- When you have that connection to say, 'I'm going to play for something bigger than myself,' man, you have a chance to do something good.
+- You love for a quarterback to sometimes make the decision as the rush is coming and make the decision as the play, as opposed to where that computer is hitting it fast and he's knowing where to go with the ball at the right time.
+- Personally, it was a big honor for me meeting so many families of the fallen soldiers and hearing their stories.
+- Sometimes there are some matchups and man-to-mans that you like to match up on.
+- Adrian Clayborn is somebody that relentlessly brings that attitude, energy, and toughness.
+- Each game we play, every game is a championship-game mindset.
+- One of these topics we talk about with the team on our 'Competition Wednesday' is iron sharpening iron. That's the process we go through to get each other ready, and that's why we have some periods where we get to compete against one another.
+- R. C. Buford has been a huge help to me with his support.
+- The third-down sacks are critical ones, 'cause that's getting off the field.
+- The term we use on our team is 'reset': when you go through, whether it's a negative play or a negative drive, and you get your next opportunity - not focusing on the past, but going back into your attack mode.
+- Iron sharpens iron, and that's one man getting another guy ready to play.
+- What we can control is our readiness.
+- Going to the Super Bowl is not the reward. It's playing really well and winning.
+- We talk about toughness as a quarterback: it's not sometimes the physical part that you see; it's the mental toughness and the 'I'm going to stand in here, take this shot,' and 'I'm going to deliver it to my guy.'
+- I think, No. 1, I still have a long way to go.
+- We don't spend so much time on the opponent that we forget it's really about us.
+- I think some people have a rare ability to focus. As a player, Earl Thomas has it. When he was at practice or in a game, he was always on; he was right there.
+- I would never recommend losing on a bye, so that one definitely stays with you.
+- We're not Seattle East. We're our own Atlanta, and there are definitely things I learned from Coach Carroll. He had probably the single biggest influence on my coaching career.
+- We want to play a really physical style ball, and so, for us tackling, we know we are shoulder-based tackling team, and we want to hit that strike zone just like you're throwing fastballs into that catchers' mitt just as hard as you can.
+- For me, trying to connect our team together is so important. I know we'll play really well when our team gets really tight. So I want to make sure I connect with the players so that I can help them be at their best.
+- It's that preparation that goes into each week. We have a term: 'Trust your training, trust your teammate, and trust yourself.'
+- Their practice habits are terrific. I've been around some really good guys from different teams in terms of bringing it to practice. When I was in San Francisco, Bryant Young was that way. Every practice on it.
+- We want to let our play be the judges.
+- One of my strengths is connecting with the players.
+- I've been around some really good guys from different teams.
+- I think that's the ultimate sign of a teammate and respect is that they compete against one another so hard at practice that here's a chance to share some knowledge inside. It takes some humility to do that.
+- As far as the fouls go, we are not going to rely on anyone else to make the calls for us.
+- Communication isn't just directing a guy on what to do: it's passing the information along to the guy that's next to you, and that's where we make the calls come to life.
+- I think it's important that we go through everything together as a team.
+- The longer we keep looking back in the rearview mirror, it takes away from everything that's moving forward.
+- Forever, we all had a real clear understanding of what Parcells' teams looked like and played like: tough as hell and didn't beat themselves.
+- Number one, from a tackling standpoint, we teach strike zone hits, and we want to hit absolutely as hard as we can in that strike zone, and that's absolutely what we call a batter in the batters box from the chest all the way down to the knees.
+- Our central theme is, How good you can get? How hard can I go to see how good you can get?
+- Tackling still comes down to leverage and owning that leverage and making your hits.
+- Oftentimes, you have to be able to throw it in order to run it.
+- Our intent of how we're going to play doesn't change.
+- The attitude and identity that we want to play with doesn't change.
+- I think you have to go deep into the bag of tricks, so to speak, to try and slow down the quarterback.
+- As coaches, any work you may do, it's been done long ago.
+- When you have too much scheme, sometimes it's hard to work on all the things you have to, and you can make effort the top priority of your game.
+- When you are hoping for a call or want something different, I think you lose your edge.
+- That attitude and toughness that we want to play with, that, to me, is the most critical thing.
+- At the beginning of the week, when we do our game planning, we look at the opponent and all the unique things they do.
+- With the coaches, you don't want to hear everybody saying, 'Move over! Back up! Do this!' Let's find out what the players know.
+- We can learn from everybody, man.
+- I don't second-guess our playcalling or wanting to throw it. Honestly, we've got terrific guys. We know how to matchup. We know how to get open. That part of our game is so intact.
+- Winning the NFC championship affords you a chance at the next opportunity.
+- Every game, we're going to go for it, so when we get into playoff time, it's not like, 'You've really got to ratchet it up. You've really got to do something different.' Then what have I been doing the whole time?
+- When it's those division games, that's when it gets ramped up for me.
+- The most important thing to me is how hard we go after the ball and take care of it.
+- In our league, it comes right down to the end.
+- I do know some missed tackles usually that comes down to leverage, and I know those are correctable and fixable.
+- For me, it was watching the New York Giants growing up, with Bill Parcells and Lawrence Taylor and that whole crew coming up through the '80s. And then, as I moved on to college, I thought I'd want to coach for sure.

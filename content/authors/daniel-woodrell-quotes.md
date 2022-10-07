@@ -1,0 +1,72 @@
++++
+author = "Daniel Woodrell"
+title = "Daniel Woodrell Quotes"
+quotes_len = "66"
+description = "the best 66 Daniel Woodrell Quotes"
++++
+- If I weren't so lazy, I would have 14 books, not eight.
+- I am well aware that the writers of New York, London, and Toronto are more readily noticed, though the shadowy and potent Ozarks Literary Cabal does what it can for me, then nightly joins me for dinner and calls me 'honey.'
+- I'm always writing about character first. Plot, such as it is, comes from the characters.
+- This happens to me all the time: I think I'm working on one thing, but this other thing, whether I want it to or not, keeps coming through.
+- I like the idea of everybody knowing each other; you know why you're doing things.
+- It was in a grim room on Eddy Street that I finally opened 'A Moveable Feast.' I read it all overnight. I read it again the next day.
+- The opening novel of the 'Bayou Trilogy' was the first one I finished.
+- I don't want to be callous about it, but we all seemed to get over the Oklahoma bombing pretty quickly, and we're never going to get over 9/11.
+- The town of St. Charles near St. Louis was founded by a trapper named Blanchette. There is a section that's called Frenchtown on historical markers.
+- If you don't allow yourself to change from book to book - take chances - it turns into a dullish job with no health benefits or pension plan and only intermittent paychecks.
+- Most of my characters aren't hillbillies anyway. Let's just call them proletariat with a disposition towards criminal activity.
+- I just really like the verve and muscle of good crime fiction, the narrative punch of it. The underlying principle of good crime fiction is an insistence on a kind of root democracy. I've always responded to that notion.
+- My father was a salesman, and I always said I wouldn't be one.
+- I remember all the writers I started with who I was embarrassed to be around - they were so much better than me. A lot of them are no longer writing. I guess they were better rounded and had other options. Due to social discomfort, I only had the one road.
+- I'd just lie around all day. It's the chemo, the poison they pump into you. Sometimes I'd be walking across the room and think, 'There it is; I got to rest.' And I had to, right then.
+- I've bumped into at least three people in town who all insist 'Winter's Bone' is about them.
+- I'm not from the movie world. I'm from the book world.
+- You want to hear an agent scream, say, 'I'm thinking about doing a collection of short stories set in the Ozarks.'
+- I had gone to enlist in the Navy, but they had a long waiting list and no need for high-school dropouts.
+- Earned a bachelor's at 27, then an M.F.A. that is still completely unused and in mint condition, never taken out of the box.
+- There are people so alienated from the mainstream of American culture that it's like a parallel universe. They don't expect anything but trouble from the square world. Every time they interact with that world, they're given a ticket, sent to jail, drafted. It's never good. So they live by a separate value system.
+- When poetry is on the money, 12 words can slay you. I admire that greatly.
+- I rise near dawn, make a strong cup of coffee, wander to my desk and come fully awake by reading something written the day before.
+- I realized there might be monetary or financial reasons to jump in and write a 'Winter's Bone Retriumphs' or something, and nobody would object to me doing that in publishing. But it would be a waste of my time, and they always take a little longer than you thought they would take.
+- But I've been at writing long enough now to know that every three or four books I have to start a new direction.
+- I don't think I can write a book as nihilistic as some of my early ones. They're so bleak. I don't think I would enjoy that as much anymore. You really become fixated on ways out.
+- I'm very attracted to poetry for all the reasons someone likes poetry. The notion of compression seems to fit my personality.
+- In February of 1972, a snowstorm blew into Kansas City, and I decided to hitchhike to California. The roads were icy, snowflakes howling, and nobody would drive me to the highway, so I humped through the snow and ice and caught a ride with a concerned cop to the Kansas Turnpike.
+- It's called 'The Outlaw Album,' not 'The Ozarks Album.' These are stories that delve into different kinds of outlawry, from criminal acts to interior, or psychological, outlawry. The book is not meant to be a tapestry of the Ozarks.
+- You realize you're alive while you're alive, and you better notice it then, because later, it's hard to see.
+- We'd been living in the Arkansas Ozarks, then the Missouri Ozarks, because it is so inexpensive and does have natural wonders, but we shuffled things and moved to San Francisco, the corner of Dashiell Hammett and Pine.
+- I had bill collectors chasing me. We were skipping from town to town, not leaving forwarding addresses. The agent couldn't find me when he sold my book. He finally found me.
+- I love Shakespeare and the Greeks - learned a lot studying them at one time.
+- I know people who have, until recently, lived with dirt floors. There are people who live way back off the grid, without electricity. Not a whole lot, but quite a few. That's a choice for a lot of them. There might be a religious element in their isolation, at least with some of them.
+- I was reading newspaper front pages from the 1930s, and I was taken aback. I'm not naive about American history, but I was a bit knocked off my feet by things that used to be on the front pages of newspapers.
+- I guess it's ridiculously romantic, but I wanted to be a full tilt, sink-or-swim writer.
+- When I started to be a writer, I was not going to run the risk of boring you.
+- I learned my values. It's better to be poor than to be beholden. Wealth is not the object of life. You should be polite as long as possible, and when you can't be polite anymore, don't run.
+- I always gravitate towards anything from Ireland. With Irish lit, I love the use of language, but also in many instances, the Irish writers are writing about people and circumstances that I can relate to.
+- I tell the story by feel most of the time, and I am not much given to labyrinthian digressions but seem to be naturally drawn to compression and pace, and the feelings come about on their own.
+- Texas humor and Southern humor are pretty similar.
+- I think all regions have had their peculiarities of speech rounded off by television, radio, and people travel so much more now.
+- I think my grandmother Woodrell was most responsible for my becoming a writer. She wasn't quite literate, but was very proud that she attended school as far as the third grade. She worked as a maid, housekeeper and cook.
+- I have a Ford Taurus, and I don't care who knows it.
+- I was thinking of my father's family. I can find their graves, but not that much about them. They didn't do anything notable enough to be in the records of newspapers.
+- I was born in West Plains, and we lived here till I was one. Then my dad needed to get a job, so we moved to the St. Louis area. I lived in St. Charles, on the Missouri River, till I was 15.
+- I came back when I'd had a taste of other places and realized that I would never feel the same sense of connection to any place other than the Ozarks.
+- Just because it's got a gun doesn't make it a crime novel, and just because there's a horse doesn't make it a western.
+- I was basically raised to look for chances to get even with several families for stuff that happened 30 or 40 years before I was born.
+- There's an overlap between social-realist fiction and crime fiction - a sweet spot there.
+- I've been at writing long enough now to know that every three or four books, I have to start a new direction.
+- I always loved the verve and vivacity of pulp and I kind of merged it with my own interest in family stories.
+- I think there are some folks who don't particularly like what I have to say, but on the whole, the reaction has been very positive.
+- I liked my fellow Marines. I didn't like pointless orders.
+- For a long time, I didn't think I wanted to live in the Ozarks or write about the region. It seemed to be a sure recipe for obscurity, and to be obscure was not my conscious ambition.
+- I'd met some awfully tough gals in my life, and I find them compelling, if I don't have to socialize with them too much.
+- As a high-school drop-out, I knew I wanted to write, but I wasn't overly confident that I was going to be writing anything serious. I was happy enough with the idea that I could be a penny-a-word guy and survive.
+- I didn't really expect to be coming to the Oscars.
+- I can't say that dropping out of school at 16 to join the Marines was my best idea. On the other hand, maybe it was. Who knows?
+- I have a book in the pipeline of short stories. You want to hear an agent scream, say 'I'm thinking about doing a collection of short stories set in the Ozarks.'
+- I joined the Marines the week I turned 17, and that led to a few experiences that might qualify as adventure - eye of the beholder.
+- One of the interesting things about the Ozarks is you just about don't have street crime. It's strictly between people who know each other. It really isn't indiscriminate; it's kind of between themselves.
+- I've always been fascinated by the Mississippi River and the way of life in these small river towns.
+- I have always loved short stories. I have been at least as influenced by the short story masters as I have been by novelists.
+- I felt like a number of things in me as a writer just clicked.
+- I'm surviving and developing as a writer. I don't know what brings you to mass attention in terms of sales. But I've gotten more and more comfortable with it. Of course if that changes, I'll be comfortable with that. All I can do is write the best books I can.

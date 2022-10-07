@@ -1,0 +1,51 @@
++++
+author = "Elodie Yung"
+title = "Elodie Yung Quotes"
+quotes_len = "45"
+description = "the best 45 Elodie Yung Quotes"
++++
+- I'd guess that every American action film would be different. It's just training, training hard, training a lot. Then trying to give your best performance on the day, and I've been lucky so far.
+- You want to enjoy your night, and you don't want to suffer in your heels too long. Lipstick compensates for the lack of heels. It's a good option, and it works.
+- On paper, I refuse to position myself as a victim and say, 'Oh, see, this is hard for me, and I'm never going to get any work because they're never gonna look for a half-French, half-Cambodian girl.' I've always said, 'Carry on and work on your job, and at some point, it'll come.'
+- I didn't want to make a caricature version of Elektra.
+- Personally, I've always had to face casting directors or producers saying, 'You're right for the part, but nahh, you're not quite what we're looking for.'
+- I got 'Elektra: Assassin,' and that's where I learned that she was a tortured soul. She's been through a lot and was possibly psychologically unstable.
+- When I was auditioning, I didn't know it was 'Daredevil.' Everything was secret. They're secret agents. They wouldn't give you any clues. I was a big fan of the show, and I think it helped me, once I got the part, to really understand the world that they live in. It helped me during shooting.
+- It's been great to travel because I really enjoyed being 'Elektra', so it's not a problem talking about it.
+- I had no idea who Elektra was. When the producers asked me before I booked the job, I had to tell them. It was a great surprise when I actually got the job.
+- I did a bit of karate - I'm a blackbelt - so I know how to move.
+- I never do things fearing I could do right or wrong. I just do it because I just follow my guts. This is really how I did it for 'Elektra' because I was just amazed by all the comics. I was good for me to get inspired by them, and I just follow my guts for the rest.
+- This is not the story of Elektra from the comics. We're telling the story of 'Daredevil.' In this aspect, the storylines accentuate the sociopathic tendencies in her. The writers wanted to highlight that Elektra is quite manipulative and doesn't seem to have a conscience.
+- I wanted to have some disdain in the way that she fights sometimes, because I think Elektra is a bit careless, like, 'You're in my way - get out.'
+- Having my own show - it's not something that I think of. It's not.
+- I don't carry sai blades for the sake of it in my personal life. I had to learn how to manipulate the sais. It was very tricky, because it's a weird shape. It's like a big fork. There's a lot of ways that you can use them, but it's not like a sword.
+- I always work with a coach. That's just a personal thing that I like to do. During interviews, you'll hear more of my accent, and I'll stress the wrong words.
+- The Asian culture has to be a part of what we see on TV and in movies.
+- A first love is something that lasts forever in your heart. It's something that marks you.
+- No, I'm not a student of Snake Eyes, but we trained in the same dojo.
+- I've done some movies before when you have months, or three weeks at least, to train and to learn choreography.
+- We're telling the story of 'Daredevil'. In this aspect, the storylines accentuate the sociopathic tendencies in her. The writers wanted to highlight that Elektra is quite manipulative and doesn't seem to have a conscience.
+- I learned about the psychology behind Elektra and that excited me. And then I read the 'Daredevil' comics, especially when they met because I wanted to get an understanding of the relationship between Elektra and Matthew.
+- I think I would choose to do things because they are interesting, because I like a character or because it's very well-written. Or because it makes sense.
+- I would love to appear in 'The Defenders.' I don't know - because hopefully she'll maybe be on the bad side. I don't know - I don't know what they'd do with Elektra in 'The Defenders,' but that would be a good dynamic, I think - to be confronted by these four superheroes, and I think it would be interesting - I'd be curious to see what they do.
+- For Elektra, I just wanted to be very clear. She's traveled the world. She didn't go to boarding school, but that's the type of girl that she'd be. So, I just wanted to make sure that I could bring that to her, which goes through the language.
+- I think acting is a work of imagination.
+- I really think I tried to capture the essence of the comics: what I thought would be the essence of Elektra. And then, as any character that I play, I really tried to dig inside me and try to reach real emotions and transpose that in her world, in who she is.
+- It's not often that I'm being called femme fatale.
+- For me, being comfortable is the best way to express my personality. Some days I like to be chill and wear my Stan Smiths with a cool little jacket, a blouse, and some lipstick for night, and that's it.
+- I love Elektra. I really have a special place in my heart for her. It was very enjoyable for me to discover her and to adapt her for this project and bring myself to this character. So I have a special spot for her.
+- I'm lucky to play Elektra. So far, it's the most exciting part I've ever had to play. I've done the physicality a bit before, and I enjoy it.
+- I've experienced all the food and restaurants in New Orleans. I've been doing a bit of touristing when I have the day off, just walking in the French Quarter. To me, it's very, very surprising how people are so friendly. But no, it's very different from Paris.
+- I don't see myself as exotic.
+- You can't identify 100% with your character.
+- Elektra met Matt, and she fell in love with him. And I think he brought some good out of her at some point in her life, and maybe she wants to figure out, by coming back to him, who she really is. She comes back because she misses him, and she's alone, and the only person she's ever loved is Matt.
+- I'm a girl, so I didn't really know about 'G.I. Joe' as a kid. I didn't watch the show.
+- I would ask to tweak stuff during the action, because I thought Elektra would more likely express herself with a slap, for example. I wanted to keep the characteristics of my character even during the fights and express the violence as she would do it, not like somebody else would.
+- When I was nine, my father said 'You can take piano lessons or do karate' - I had a black belt and was competing before I was 19.
+- I'm a black belt in karate. I grew up on the outskirts of Paris, and it was rough.
+- Some of the writers definitely got inspired by some of the story lines, but we are evolving in the 'Daredevil' story. So when it comes to 'Elektra', they didn't follow one of her specific story lines, you know. They really tried to capture what comes through the comics, but there's not one specific storyline.
+- Marvel's very secretive, and I'm not hiding anything, I'm not lying; it's just the way they are.
+- Elektra isn't a villain and isn't a good girl, but as Frank Miller said, she is one of the villains with a weak streak in them, and that's a failure that I tried to explore.
+- That's the Elektra I tried to portray: one that's always in the grey. She is a tortured soul.
+- I do feel privileged to play Elektra, because definitely she is a strong female character. She's a strong character. It would be nice if eventually we'd just say she's a strong character, not a strong female character.
+- We can list a bunch of actors who have embodied characters that aren't their nationalities, and I think that's the beauty of acting.

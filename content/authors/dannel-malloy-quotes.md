@@ -1,0 +1,39 @@
++++
+author = "Dannel Malloy"
+title = "Dannel Malloy Quotes"
+quotes_len = "33"
+description = "the best 33 Dannel Malloy Quotes"
++++
+- We found that Central Americans and Hispanics are somewhat reluctant to send their children off to school as early as Anglo-Americans born in this country. There are some cultural differences.
+- I have just been the man in the middle, trying to make sure that we steer the right course.
+- Religious freedom is already protected in the United States. It's in our Constitution. It's in most state constitutions.
+- The early development of the human brain is extremely important for setting the table, if you will, for potential future accomplishment.
+- There's a difference between expanding someone's potential and expanding their actual performance. Performance may measure other things, whether one's culture supports education, other socio-economic factors.
+- I don't think that we'll support any state that is prepared to discriminate against the citizens of Connecticut.
+- If you look at suburban education in New Jersey and New York, it's pretty strong, intact, doing a pretty good job. You cap taxes for those communities, can we reasonably predict it's going to be as strong 20 years from now?
+- You can't separate me from my upbringing as a child overcoming learning disabilities and having to make my way through that.
+- What I'm hoping to do is see Democrats get elected. That's what I'm trying to contribute to.
+- Simply because you're a Democrat doesn't mean you can't speak to these issues in language that appeals to voters, particularly independent voters.
+- I'm not sure that some governors just don't want to lay off people for the sake of laying off people and being able to say they did.
+- A state that houses the NCAA headquarters. Quite frankly, if Indiana doesn't say that they're going to ban discrimination based on sexual orientation, the NCAA needs to move out of Indiana.
+- If we stand idly by while states legalize bigotry, we are responsible for allowing it to happen.
+- No one is confused about what a Democrat is in a presidential election. In every election other than a presidential election, our voters are confused. We've given out too many different messages.
+- Being bombastic for the sake of being bombastic has just never been my take on the world.
+- When we protect our children in their schools or on our streets, we are living up to our obligations - obligations which we should take solemnly.
+- Democrats tend to think of elections as cycles. Republicans don't: It's ongoing and constant.
+- I have to tell you, I'll be right up front about it: I'm the governor of the state of Connecticut, and I can't write anything well.
+- Whenever people say, 'You should be president,' I say, 'I thought you liked me.' Listen, I thought being mayor of Stamford was a wonderful job. Being governor of a state for a period of time is a wonderful job, and I'm not sure I'm at all attracted to Washington.
+- I don't mind the rich getting richer, but the poor shouldn't be getting poorer, and there should be more people moving into the middle class.
+- I was diagnosed as mentally retarded as late as the fourth grade.
+- I am a person of faith who believes deeply in the right to exercise religious beliefs.
+- What we want to do is guarantee all 4-year-old children in the City of Stamford a prekindergarten experience regardless of their financial circumstances.
+- If you're nice, if you like yourself, if you treat other people well, you're going to be successful. I guarantee it.
+- Codifying discrimination in our laws should be something we read about in American history, not on the front pages of today's American newspapers and magazines.
+- Indiana houses the home offices of most fraternities and sororities in the country. If Indiana doesn't pass a law that guarantees people that they'll be free of discrimination, those fraternities and sororities need to move out of Indiana.
+- Connecticut would not be Connecticut if we cut $3.5 billion out of the budget. We are a strong, generous, hopeful people. We'd be taking $800 million out of education. You can't do that in this state.
+- You know and I know and economists know that trickle-down economics doesn't work.
+- We have to expose Republicans for the frauds that they are when it comes to what they want to do for working men and women.
+- I was not going to balance the budgets on the backs of communities.
+- I can't write things. I'm embarrassed all the time about that, particularly if people don't know that about me.
+- If a Democrat took Republicans on rudely, they wouldn't be elevated in the Democratic Party. There's a different standard. We're supposed to be polite to people.
+- No state, as a matter of public policy, should turn back the clock on progress by, in effect, legalizing and relitigating the same types of discriminatory laws and debates that took America centuries to overcome.

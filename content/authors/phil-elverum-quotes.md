@@ -1,0 +1,106 @@
++++
+author = "Phil Elverum"
+title = "Phil Elverum Quotes"
+quotes_len = "100"
+description = "the best 100 Phil Elverum Quotes"
++++
+- I consume the news daily. I'm not avoiding it.
+- I want to create a life that is just healthy and peaceful - an enclave, really, of retreat. It's not helpful for the big picture. It's totally selfish to run away like that.
+- I just can't turn off the part me that asks that question over and over.
+- I buy some black metal records kind of blindly, and I end up really liking maybe 30% of them. There's a lot of duds, for me at least, in black metal. I have kind of picky tastes about it.
+- Recording and touring are totally separate universes for me and it's strange and refreshing when they invade each other momentarily.
+- I remember discovering that I loved recording - that breakthrough when I was in high school getting to record for the first time.
+- Even when I was calling myself the Microphones I only really ever played new songs... because I feel, like, a pretty strong connection to the song when I'm performing it.
+- I'm mostly fine with anyone using my music for whatever. Everything's just compost that gets reused.
+- In 2002 I did a big tour of Europe, by train, by myself, on foot, all the time walking from train station to the venue, in a weird town, in a weird country. I'd brought an acoustic guitar with me but it got broken somehow in transit.
+- Clear Moon' is more... clear I guess! It's more round-sounding and it's slightly gentler. 'Ocean Roar' is more challenging and weird and darker and heavier - the idea was for it to feel like a thick fog laying on your head, versus a clear sky with the moon in it.
+- I'm really nervous about coming off as exclusive or elitist. At the same time, I recognize that when I put out vinyl or an expensive coffee table book not everyone can afford it or listen to it.
+- I do spend time trying to find good melodies, and I try to remember them when I do discover them. But also it's mostly intuitive; I noodle around with the line until it sounds and feels right.
+- I grew up without religion, but my parents have always been somewhat mystical about nature: The mountain is looking at us, stuff like that.
+- I like a bass drum. A big one.
+- I am not satisfied with the ending of 'Mount Eerie' the album, so maybe by calling myself that, I am attempting to elaborate on the ending.
+- My exposure to independent music was via Nirvana and grunge so I'd never gotten into punk. I don't really like that music of Crass, but I love the band, and I love their way, and their presentation.
+- The Beach Boys were my favorite. I use to listen to their hits over and over, especially 'In My Room' and 'Don't Worry Baby.' There's something really sad about 'Don't Worry Baby.' Even though it's just a California song about racing cars, the melody is really sad. There's melancholy in it.
+- It has happened a few times that I've found myself in a surprise mid-tour recording session.
+- A weird side effect of being in close proximity to death is an urgency.
+- I am commodifying my grief, to put it really bluntly. I accept it. And I try not to think about it.
+- I don't get to make many choices in my life as a single parent.
+- My grandpa is the funniest person in the world, straight up. But mostly everyone in my family groans when he is 'on.' I am his biggest fan.
+- Usually I work at the merch table until one minute before I have to go on stage.
+- I have a hard time working with other people with my own songs because I have a pretty complete idea of how it should be. It's usually just me multi-tracking which is better than coercing someone into doing my idea.
+- These people that worked with my dad doing landscaping were in a grunge band so the music on the cover of Rolling Stone was in a very real way connected to people practicing in the woods near my house while I was home doing my homework.
+- I reach out. I ask for help. I tell my story.
+- I am so thirsty to do my projects whenever I have a spare moment.
+- In the early '50s, my great-grandmother and grandfather raised a baby gorilla named Bobo who wore clothes and played with the neighborhood kids.
+- I sometimes think about the life that my daughter will have with no mom. What does it mean to have a ghost mom? Not that I can do anything differently about it. But it's an inferior version of what we had planned, you know? This was not our top choice.
+- They're all true - the cliches like 'one day at time' and 'ups and downs.'
+- It would be amazing to write a song that could be sung 100 years from now by a teenage girl and still be relevant to her - that's a dream of songwriting, maybe.
+- It even feels absurd to be writing or singing a song at all - in the context of actual death, being alive feels absurd.
+- Music is only good sometimes.
+- Grief - the actual, natural process of it - doesn't have a schedule that I can work my life around.
+- It's really hard just making dinner as a single parent, but I'm figuring it out. I just have to be more focused and efficient with my little scraps of time that I do have.
+- Twitter is so stupid. I mean, it sucks!
+- When I first started recording music, I was actually singing about microphones, equipment, recording.
+- I'm open to making any kind of music, or maybe making no music ever again. That's also an option, always. Who knows what'll happen.
+- I always like to play in beautiful cathedrals, when I can somehow get access to do a punk show there.
+- My shows have never been related to my albums at all because my albums have all kinds of crazy instruments and stuff that could never be performed live. I'm used to people expecting this 12-piece band to show up with three drum sets and an accordion.
+- It's easy to get swept up in the day to day ridiculous things that are in the news. They're not meaningless, they're legitimate and worth being engaged with. But it's easy to get overwhelmed and swept up and forget what real life feels like.
+- On CBC Radio, the Canadian national radio, there's a show called 'WireTap.' The host is Jonathan Goldstein. It's amazing.
+- I think that as a kid I was pretty drawn to melodrama.
+- I think I'm obsessed with accessibility which is why, when I'm touring, I want to play all ages shows.
+- There are parts on 'Wind's Poem' that are literal recordings of wind. I had this old sound effects record that I got some wind from and then I figured out that distorted cymbals sound just like wind so I used that a lot.
+- I got into Nirvana, and it was my sort of awakening into the idea that music could be like rough and crazy and local. And so I started to realize that there were bands playing in my town, Anacortes.
+- Eric's Trip is still a huge influence on me. The style of those recordings and the rawness of them is very inspiring. And the density of the distorted parts, amazing.
+- There are some people that are trying to cure death, this tech immortality... That seems mentally ill.
+- I'm pretty open.
+- I don't think my music is that big of a deal - my entire life is parenting. The fact that I make records and go off and play shows is a small percentage of my day-to-day existence.
+- It's nice to have a band that can adapt to whatever show we're in, so we can play on a big stage or a house show.
+- I want to not be associated with death or cancer, I don't want that life.
+- I need some time to write songs and work on my thing, but I'm just living my life and doing family stuff and letting inspiration come when it comes. But I also don't feel a desperate need to keep pushing myself into people's faces to stay cool and relevant.
+- I do like playing music with other people.
+- Nirvana really touched me as a teenager and started making me pay attention to music as a participatory thing that I could do.
+- I like the experience being in the audience and being overwhelmed by sound, like thick, oppressive loud sound and distortion.
+- It's a beautiful idea to focus on how everything is temporary and always in flux. It may feel bad now, but it will feel good later, and vice versa. To write about those things brings this satisfying feeling as a creative person.
+- I feel like I spend most of my time in a state of writer's block! When things do come out, they come out quickly.
+- There's a lot of music out there that's like, 'I'm so mad! I'm sad! I'm into skulls and crossbones and the color black,' and that's just meaningless and shallow. So much of metal is about that and it's hard to find metal that is substantial and meaningful in terms of its content.
+- Nirvana was happening when I was 14, kind of the perfect age. Growing up in Anacortes, Washington, it was close enough to Seattle that it seemed like a local thing.
+- I don't want to return to places and sing the same songs a second time.
+- I am drawn to cold, desolate places rather than Hawaii. I actually love Hawaii too, but I tend to go to Iceland or Norway or Northern Japan - northern places for whatever reason. Which aren't necessarily the best places to tour.
+- I wanted to make a record that would transcend the bad, hard feelings of a love relationship not working out, to make something that metabolized it into something useful and good.
+- Profound thoughts and profound experiences get revealed to be tricks that we play on ourselves, and poetry gets revealed to be just, like, some dumb words that somebody put in an interesting order.
+- One thing I've heard that makes sense to me about grief is that there's this conception that it's a thing that you process, and then you're done processing it. But really it's not a thing that has an end, it's just what life is like now. You are living with this now, probably forever.
+- We had a simple 8-track studio set up in the record store where I worked. And just staying after work and experimenting, realizing what was possible with recording - that's why my project was called The Microphones at first. Because it wasn't even songs really. It was just sound.
+- I can't bring myself to release an instrumental album because I feel like I want some meat on the bone. Something to chew on, lyrically and content-wise.
+- I'm actually not fussy. I enjoy getting into it and talking about anything, really. It feels good.
+- I'm singing these songs about death and stuff. I see somebody who's, like, in their sixties or seventies at the show, and I'm like, 'Yeah, sure. Fair enough.'
+- The universe is chaotic and meaningless, and it's good to laugh about it. That's my stance on life, actually. Some people go through life grinding their teeth, suffering and banging their head against the wall. I'm glad that's not the reaction that occurs in me.
+- Comedy is deep and wild and I am excited about the mysteries within.
+- I never want to keep doing the same thing more than once, honestly.
+- After many days of grocery store food, sitting down for a deliberate, slow, expensive eating time can be the best.
+- It feels weird to play songs that I don't really... feel any more.
+- It's challenging to live in Anacortes. I lived in Olympia for five years, went on tour for a year, ended up in Norway for a winter, and ended up back in Anacortes. But I have a long life ahead of me. I'll probably live in many different places, and then die in Anacortes.
+- My first band was called Nubert Circus, a very embarrassing, dumb name. It means nothing. We were kind of grunge. I would say we were more funny punk, a lot of songs about food and stuff like that.
+- It is something I've noticed - that my audiences are young. My only thought has been because I play all-ages shows. Even so, they're pretty young, and sometimes I'm nervous the content of my songs - these weird, ambiguous, philosophical ideas I'm trying to articulate. Are the kids getting it? Is it going over their heads?
+- I start with the aim of making something instrumental, and then I'm just like, 'Agh, no, it's not interesting enough. I've got to say something here.'
+- People used to assume I was a serious/sad person because of my music for some reason.
+- Somebody from Pitchfork Festival wanted me to have a Microphones reunion. It's a joke. It's just me.
+- After I made 'A Crow Looked at Me,' I remember people saying things to me like, 'You've made a beautiful tribute to Genevieve.' And I felt like, no! No no no, I haven't. I made a tribute to my own destruction and desolation. This is not a portrait of her. That's not who she was. She wasn't just a person who died.
+- Life here (in the Pacific Northwest, not in Vancouver, Seattle, Portland or the chain of buildings connecting them but in the rest of the place, out west and east from the north-south I-5 river) can sometimes feel like a half-dream, half-myth.
+- There are a lot of names on the credits of 'The Glow Pt. 2,' but most of those people are just on one half of one song or something.
+- I like Copenhagen, just because my shows there have been really good for some reason. Not that I love the city itself, but every time I play there it feels amazing. Pretty nice people there.
+- I just play under the name Mt. Eerie. I started doing that in 2003 and I've pretty much been doing that since then.
+- It's interesting to think about the different forms one place can take.
+- I was really into Michelangelo in seventh and eighth grade.
+- I'm artistically satisfied and happy.
+- For awhile the only thing people were talking to me about my music, that's all they ever said: 'You must be a nature lover. Are you camping all the time?'
+- Being a musician means I am 'hanging out' a lot, like driving on tour or being at a show or whatever, so maybe there's more time to interact with peers and develop jokes.
+- I've sort of accidentally put myself in this position where I opened up the story of my life, and of course people want to reciprocate and open up to me. I'm OK at it, I don't make people feel worse, but it's strange to find myself in this role, all of a sudden, that I never would have pursued.
+- I love things like the Criterion Collection DVDs. I think those are really well done. I like how far you can push the deluxe-ness of things like that.
+- I listen to all kinds of music and sometimes I try to do something that's referential to an era or a genre, but it still sounds like me.
+- I don't really see myself in a lineage which is fine with me. Sometimes I do try to explicitly copy an exact song, an arrangement, a sound - and I fail. And so you can't even tell I was trying to do that thing. It makes sense in my own head but I'm incapable of copying.
+- Every tour is different. Sometimes I'll get a band together and sometimes it's just me.
+- All the books on my shelves, when I would go to them to look for help with my anguish, they all just seemed so crass. They didn't get it. Those books don't understand. Nobody understands.
+- My daughter is like a tether back to the functional world, and I'm aware of how helpful that is.
+- I'm not a perfectionist. I don't have enough patience to go over the same details over and over trying to get it perfect.
+- I used to have a musical group with a girlfriend called The Thunderclouds. It was like a Beach Boys cover band. And we would just figure out Beach Boy songs - break 'em into two-part harmonies. And, you know, we played a couple of shows around Olympia. It was very fun.
+- If I wanted to make big, bombastic, distorted, echo-y, trippy music, the atmospheric stuff, a studio is nice. But it's nice to know that it's not necessary.

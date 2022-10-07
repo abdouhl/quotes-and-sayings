@@ -1,0 +1,28 @@
++++
+author = "Danny Ainge"
+title = "Danny Ainge Quotes"
+quotes_len = "22"
+description = "the best 22 Danny Ainge Quotes"
++++
+- You go into training camp and you fight for jobs and often times things work themselves out. Like players just take the job, they play so well, they win it, and makes it easier on the coach to decide who is the guy that gets those minutes.
+- It's a different era. I understand what Charles Barkley was saying but you just can't take guys out. There's too much scrutiny. There's too many replays and reviews, and cameras everywhere.
+- You just have to adapt to what is needed at that moment, whereas as coaches are going crazy, because they're used to having and following a schedule. Everything's laid out in front of them on when they're going to practice and when they're going to take a plane to this city.
+- Bench scoring overall I think is overrated. The question is, do you have enough scoring?
+- Don't give them 3-point shots if that's what they're trying to do and embarrass you in any way.
+- I had a chance to play against the USA teams when I was a player. I wasn't on any USA team but scrimmaging against them and playing against them was a highlight.
+- Listen, we've drafted guys that wouldn't come in for workouts before. It's not the end of the world.
+- I mean drafting is a hard process because you're picking between 23-year-olds sometimes and 19-year-olds that have great upside, and some guys that are just great character but have limited physical skills, and some guys that have amazing upside and that are a little more immature, and everywhere in between.
+- Sometimes it takes a few years to land that special player.
+- I remember I had a psychologist that I worked with in Phoenix tell me one time that the loss of a job and the loss of one's wealth is more devastating to most than losing a loved one or getting divorced. And that really hit me.
+- It's refreshing to just see someone that you can have honest communication with.
+- You have to find a partner when you're making a deal. You cant just say 'I need to make this deal and do whatever it possibly takes to make it.' That's not how it works.
+- What you really need to do is just stop the 3-point shooting, make sure they don't set a record on you. Be physical.
+- I don't always agree with how everybody handles the media, just like they probably don't agree with how I handle the media and things that I say.
+- You still have to be excited about getting up and trying to figure out what we can get better at, and that's very important to me.
+- We like the opportunity to get off to a fast start, no matter what our schedule says, and that's our objective.
+- I'm not worried about Gordon Hayward. I'm not worried about his future or how good a player he is. He's doing everything he can. If he doesn't become the player that he wants to be, then it won't be from a lack of trying.
+- My guess is everybody loved Draymond Green. How do you not like a guy like that? A pretty well rounded player in college.
+- I think it's always important to get off to a good start early, and especially with a younger team that hasn't been together that long, you want to get out of the gates hot and strong.
+- I don't want to give up multiple draft picks for a rental player who is going to be our ninth man.
+- We're constantly working to try to improve our team, but we're not going to do any deals just to do deals. We're going to do things that are better for us.
+- The role of my job is I'm always trying to figure out where I need to be. Do I need to be at a college game, at an international game, with the team, at practice, with my coaches, with a few of the players, up in Portland, Maine? I mean, where do I need to be?

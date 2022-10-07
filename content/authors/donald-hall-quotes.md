@@ -1,0 +1,73 @@
++++
+author = "Donald Hall"
+title = "Donald Hall Quotes"
+quotes_len = "67"
+description = "the best 67 Donald Hall Quotes"
++++
+- Poetry offers works of art that are beautiful, like paintings, which are my second favorite work of the art, but there are also works of art that embody emotion and that are kind of school for feeling. They teach how to feel, and they do this by the means of their beauty of language.
+- One Oxford poet confessed to me that I had been scary because I talked American and wore tennis shoes.
+- However alert we are, antiquity remains an unknown, unanticipated galaxy.
+- After a couple of years of public high school, I went to Exeter - an insane conglomeration of adolescent males in the wilderness, all of whom claimed to hate poetry.
+- By 1968, I had lived 10 years in Michigan. Gradually, I had come to love watching Detroit's baseball club in its small, beautiful, antiquated Tiger Stadium - a baseball park as fine as Fenway Park or Wrigley Field, though it never got the adulatory press.
+- Although I was paid a salary in Ann Arbor, my wife and children and I drank powdered milk at six cents a quart instead of the stuff that came in bottles. I was a tightwad.
+- I expect my immortality will last about six seconds after my funeral.
+- I was at Harvard with a whole bunch of poets, and that was very rare. They published a lot of books because there was an excitement after the war that translated into poetry.
+- I'm happy to feed the squirrels - tree rats with the agility of point guards - but in fair weather, they frighten my finches. They leap from snowbank to porch to feeder and stuff their cheek pouches with chickadee feed.
+- I have to do draft after draft... It takes me a long time, but I love doing it, and I have to do it every day, or I feel slack.
+- In 1952, I recited aloud for the first time, booming in Oxford's Sheldonian Theatre from a bad poem that had won a prize. I was twenty-three.
+- I don't publish anything I haven't worked over 100 times.
+- When I lived summers at my grandparents' farm, haying with my grandfather from 1938 to 1945, my dear grandmother Kate cooked abominably. For noon dinners, we might eat three days of fricasseed chicken from a setting hen that had boiled twelve hours.
+- In 1975, I quit my tenure, and we moved from Ann Arbor to New Hampshire. It was daunting to pay for groceries and the mortgage by freelance writing - but it worked, and I loved doing it.
+- My parents were willing to let me follow my nose, do what I wanted to do, and they supported my interest by buying the books that I wanted for birthdays and Christmas, almost always poetry books.
+- In December of 1952, my first wife, Kirby, and I left Vienna to drive through the Russian sector of Austria into Yugoslavia.
+- There's a great deal of stripping away; in early drafts, I may say the same thing two or three times, and each may be appropriate, but I try to pick the best and improve it. I work on sound a great deal, and I will change a word or two, revise punctuation and line breaks, looking for the sound I want.
+- On September twentieth every year, I got to choose my menu - meatloaf, corn niblets, and rice were followed by candles on chocolate cake with vanilla icing and a scoop of Brock-Hall ice cream.
+- When I finished my initial year at Oxford, I flew home to marry Kirby, who had been my girlfriend in college. We had met on a blind date.
+- Even famous poets such as Marianne Moore and William Carlos Williams were rarely asked to read their poems.
+- When I was a child, I loved old people. My New Hampshire grandfather was my model human being.
+- Not everything in old age is grim. I haven't walked through an airport for years, and wheelchairs are the way to travel.
+- I would work until I got stuck, and I would put it down and pick up something else. I might be able to take a 20-minute nap and get to work again. That way, I was able to work about 10 hours a day... It was important to me to work every day. I managed to work on Christmas day, just to be able to say I worked 365 days a year.
+- Prose is not so dependent on sound. The line of poetry, with the breaking of the line - to me, sound is the kind of doorway into poetry. And my sense of sound, or my ability to control it, lapsed or grew less.
+- In the fifties, no one wore beards. In Eisenhower's day, as in the time of the Founding Fathers, all chins were smooth, while during the Civil War, beards were as common as sepsis.
+- Friends die, friends become demented, friends quarrel, friends drift with old age into silence.
+- I felt the need to be more open and expressive of my feelings, not just about the hills and the countryside, but about the daily life.
+- There are books all around me... I don't read as much as I used to, but I always have a book or two going.
+- It is sensible of me to be aware that I will die one of these days. I will not 'pass away.'
+- Both my New Hampshire great-grandfathers wore facial hair: the Copperhead who fought in the war and the sheep farmer too old for combat.
+- For better or worse, poetry is my life.
+- I've had someone, my assistant, type for me. I've done it that way for more than 50 years because I type with one finger, although quite rapidly.
+- I've always felt that poetry was particularly erotic, more than prose was... I say that you read poems not with your eyes and not with your ears, but with your mouth. You taste it.
+- I really feel better about aging at the age of 86 than I did at 70.
+- I write longhand; I make changes longhand, and I have an assistant who types it up. She lives 70 yards away. Every afternoon, I have a case I leave out on the porch, and she brings it back the next morning.
+- Obviously, death is ahead of me. I don't look forward to dying one little bit. But, you know, I simply don't worry about it because it's going to happen to me as it does to anybody.
+- I grew up in the suburbs of Connecticut - during the school time of year - but I preferred it in New Hampshire. I preferred the culture, the landscape, the relative solitude. I've always loved it.
+- My problem isn't death but old age. I fret about my lack of balance, my buckling knee, my difficulty standing up and sitting down.
+- I loathe the trivialization of poetry that happens in creative writing classes. Teachers set exercises to stimulate subject matter: Write a poem about an imaginary landscape with real people in it. Write about a place your parents lived in before you were born. We have enough terrible poetry around without encouraging more of it.
+- In my life, I've seen enormous increase in the consumption of poetry. When I was young, there were virtually no poetry readings.
+- A fellowship to Oxford acquainted me with the depths of English cooking. By the twenty-first century, London's best restaurants are as good as Paris's, but not in the 1950s.
+- As I grew older - collapsing into my seventies, glimpsing ahead the cliffs of the eighties, colliding into eighty-five - poetry abandoned me.
+- Each season, my balance gets worse, and sometimes I fall. I no longer cook for myself but microwave widower food, mostly Stouffer's. My fingers are clumsy and slow with buttons.
+- Many times I have written something, and after it was published, I understood what I was saying.
+- Contentment is work so engrossing that you do not know that you are working.
+- When I was 12, I had a fondness for horror movies like the 'Wolfman.' The boy next door said I should read Poe.
+- When I lament and darken over my diminishments, I accomplish nothing. It's better to sit at the window all day, pleased to watch birds, barns, and flowers.
+- Divorce was miserable, as it always is, and we divorce for the same reasons we marry.
+- Some days I feel good about my work, and sometimes I feel I've never written anything worthwhile. That's par for the course.
+- Poetry is what I've done my whole life. And every important thing in my life had found itself into poems.
+- Every afternoon, I shut the door of my bedroom to write: Poetry was secret, dangerous, wicked and delicious.
+- As I look at the barn in my ninth decade, I see the no-smoking sign, rusted and tilting on the unpainted gray clapboard. My grandfather, born in 1875, milked his cattle there a century ago.
+- It used to be that phrases and lines would come into my head, often many of them in a period of five days or a week, and maybe I didn't know what I was talking about, but the words had a kind of heaviness or deliciousness to them.
+- When it comes to poetry, I think partly the numbers of people attempting to write poems is probably a result or the reaction to technology.
+- We approached Athens from the north in early twilight, climbing a hill. When we reached its peak, we were dazzled to look down and see the Acropolis struck by one beam of the setting sun, as if posing for a picture.
+- Sound had always been my portal to poetry, but in the beginning, sound was imagined through the eye.
+- I think my very best work came out when I was about 60, not when I was 20. I was publishing all the time when I was in my 20s, and some of those poems I still like. And there were a few after 60, and in my 70s, that I like. But they became fewer and fewer.
+- I have written some poetry and two prose books about baseball, but if I had been a rich man, I probably would not have written many of the magazine essays that I have had to do. But, needing to write magazine essays to support myself, I looked to things that I cared about and wanted to write about, and certainly baseball was one of them.
+- I don't have a computer. I never have had one.
+- I live in the house my great-grandfather moved to in 1865... I spent all my summers here as a kid haying with my grandfather, and it was my favorite place in the world.
+- I have seen so many poets who were famous, who won all sorts of prizes, disappear with their death. I write as good as I can and don't try to turn that into some hope for a future that I could never know.
+- In anything you write - in a short story, a poem - there has to be a counter-motion; it can't go all in one direction.
+- Many years, I would publish four books - an anthology, a book of criticism, a new book of poems, a book of essays.
+- New poems no longer come to me with their prodigies of metaphor and assonance. Prose endures. I feel the circles grow smaller, and old age is a ceremony of losses, which is, on the whole, preferable to dying at forty-seven or fifty-two.
+- I'd heard of writers who say they hate to write. Not me. I love to do it.
+- Everything important always begins from something trivial.
+- It used to be that one poet in each generation performed poems in public. In the twenties, it was Vachel Lindsay, who sometimes dropped to his knees in the middle of a poem. Then Robert Frost took over, and made his living largely on the road.

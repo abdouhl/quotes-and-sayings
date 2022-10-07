@@ -1,0 +1,26 @@
++++
+author = "Sam Jaeger"
+title = "Sam Jaeger Quotes"
+quotes_len = "20"
+description = "the best 20 Sam Jaeger Quotes"
++++
+- Once you start to try and calculate why you were cast and why you weren't, you get in trouble.
+- I am always looking for stories that have not been told too much, and one story that I think is really gripping and important is what police officers go through.
+- I think, doing a first film, at some point you get halfway through, and you wonder, 'Is this is good enough to define who I am for the coming decade?'
+- I had people at Perrysburg High School in my life in Perrysburg who believed in me and told me I could do anything I wanted too, and I foolishly believed them.
+- I think a lot of officers go into that line of work because they have a calling for it. But at some point, they find themselves in the middle of their lives having seen some of the darkest things that are just unimaginable to the rest of us.
+- I am just an actor, but there are these other people who are really selfless. I come from a long line of nurses in my family, and they really do a thankless job.
+- The good books stick around for a reason. There is a reason that we come back to them and they are so rewarding.
+- I felt like the country lays out like a pretty beautiful story itself, heading from the East Coast to West.
+- There are so many stories from the Midwest that should be told. L.A. tells one story, and it's often about itself.
+- Hollywood so often likes to make movies that are just about itself. I felt there were a lot of stories that were yet to be told in the middle of the country, and I wanted to capture some of that beauty.
+- Seventh and eighth grade? That's the worst. I think it's the lowest point of life. All I remember is painful acne and terrible clothes. And lots of getting dumped.
+- I lived a block and a half away from four cousins, and I had three siblings. The Jaeger home was a big, messy, happy family.
+- The more understanding we have about what's going on in our own brain will just make us more capable in our own jobs, in telling our kids we love them, and living a fulfilling life.
+- For some reason, I always have an allegiance to Ohio. I had a great childhood, and to return to it is very comforting.
+- Hollywood forgets easily. I want to be fulfilled and challenged.
+- I realized that acting isn't necessarily what I love, but it's what I do. But I really do love filmmaking.
+- There's a huge expanse of this continent that so seldom gets photographed.
+- Any job is wonderful.
+- The importance of creativity in our country is greatly misunderstood.
+- There's something about the expanse of nature that forces you to think clearly.

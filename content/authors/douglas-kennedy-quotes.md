@@ -1,0 +1,15 @@
++++
+author = "Douglas Kennedy"
+title = "Douglas Kennedy Quotes"
+quotes_len = "9"
+description = "the best 9 Douglas Kennedy Quotes"
++++
+- If there is an abiding theme in 'The Pursuit of Happiness,' it is the idea that you come into the world already shaped by other people's past histories.
+- From Graham Greene, I learnt how to be an accessible writer who grapples with our doubts as sentient individuals.
+- I want to be a popular novelist who's also serious, or a serious novelist who's also very accessible.
+- We don't like admitting this, but it is a key component of human existence: the fact that life has the potential for things both wondrous and horrific.
+- The decision to write full time was made when I was twenty-eight years old and had just had two small plays accepted for BBC Radio.
+- Tragedy is one of the larger prices we pay for being alive. No one ever sidesteps tragedy. It is always there, shadowing us.
+- I've been known to write on the Underground in London and on the subway in New York. I have two or three cafes in Paris that I go into. I find a corner with a little shade, and I can work.
+- With a novel, no matter where I am in it, I'm fretting about it. Every time I write a book, it starts with great forward momentum. Then there seems to be a period where it slows down a bit, and other things intervene. Then I gain momentum.
+- Success is a very fragile veneer. I get wary of people who embrace celebrity. It ruins people.

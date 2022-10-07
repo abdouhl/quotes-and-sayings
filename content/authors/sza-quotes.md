@@ -1,0 +1,106 @@
++++
+author = "Sza"
+title = "Sza Quotes"
+quotes_len = "100"
+description = "the best 100 Sza Quotes"
++++
+- I was born in St. Louis, but I'm from Maplewood, New Jersey. Maplewood is completely different than the rest of New Jersey. It's very small. It's quietly affluent but more low-key. Lauryn Hill is from my town, though.
+- I don't enjoy being interviewed. I feel like it exhausts a lot of my energy. I feel empty after.
+- I have an abundant amount of love in my life, and I'm grateful for that.
+- I just think I have too much anxiety to listen to music. Sometimes it feels like noise, and sometimes it's so affecting that I can't recover from it.
+- My mom was an executive at AT&T, a global account lady. I have no idea what she did. I just know she was never home and speaks several languages.
+- It starts with trusting yourself, even if people are telling you you're too young to trust yourself.
+- I wasn't popular in high school; I had no friends.
+- My anxiety stems from my lack of control no matter what.
+- My parents wanted me to go to school.
+- I listen to Stevie Nicks.
+- You can take care of your body, and it will low-key show you respect in turn.
+- I worry so much. Like, 'Damn, how can I be excellent?' But it's a journey.
+- We're changing little girls' lives across the world, and we didn't even know what we were doing when we started.
+- I definitely want to get into environmental science and environmental politics, learning a lot more and preserving what's left of the world. That's such a sacred circle to be in. I'd love to contribute to that.
+- I love food, so having a lot of food allergies now and just having a really sensitive body, it forces me to be very mindful and conscious and eat when I'm hungry, not just when I'm bored, and just really slow down. Everything in moderation.
+- I'm very into details, so I watch movies just for the details.
+- I love Obama, and I just want to reiterate it again to everyone from every hilltop and every mountain: I love him!
+- I love when things that I'm involved in really matter and when people like me back and don't just think I'm corny.
+- Control is not real, and I'm really understanding that every day. It's about the acceptance of relinquishing control that makes it powerful for you.
+- I love empowering women. I think it's crazy: if you ever try to belittle women, you're playing yourself - I ride with whoever rides with me.
+- When your parents regulate everything you hear and everything you intake, it forces you to get creative in other ways. It sparked the writing bug and the very overactive imagination. Because I've had a lot of time by myself and a lot of time isolated from regular culture, I created my own.
+- My music is touching people in whatever spaces they need to be touched in.
+- Oh, Instagram stresses me out on a very deep level!
+- It's interesting to all of a sudden be considered valuable.
+- I don't think I'm inherently feminist. I think the universe wants me to be feminist, and I think I resonate with that. I think it just chose me to be this female energy... thing. And I'm very drawn to female energy, but I don't really have any prerequisites in feminism. I just roll with it.
+- I feel like when you say 'activist,' you have to have so much clarity, and I don't always necessarily have so much clarity on how I want to help others, I just have this weird, deep urge to help other people. I'm trying to let God guide my body and use it as whatever kind of vehicle or vessel it needs to be.
+- I try to think of myself as a chic fishing grandpa aesthetically.
+- Music is my form of cleansing and introspection, so I have to grow in order to accomplish it.
+- I don't have a background in music... and I have a short attention span. If you put me in the studio every day, I'm gonna get lost.
+- I want to excel at something, to follow through, to not be afraid.
+- I love Modest Mouse.
+- I don't feel ashamed to be loud, which is an argument I've had with lots of men, who thought I was too sassy and unladylike.
+- I've been known to wear pajamas onstage for the sole reason of wanting to make sure I'm free enough to execute new things vocally onstage and give my best performance possible.
+- I don't listen to my own music, so to me, it's awesome that people really like it. I was afraid that it wouldn't connect with everyone. I'm more appreciative than anything.
+- As long as you're being honest and there's intention in what you're doing, then I think that energy permeates your field and becomes like a homing signal for other people with like energies.
+- When I just decided to be myself, that's when you get questions like, 'How do you feel about feminism?' And I have no idea; this is just when I decide what I'm not tolerating and what I genuinely think and a little bit in between.
+- I learned everything the hard way - like, literally, everything. I know that God does that to people that he has lessons for. I just wish that I had learned less extreme lessons.
+- I've fried my hair off. I've shaved my hair off. I've done it all.
+- I don't like to shop. It creates so much anxiety.
+- My mom didn't let me eat sugar or candy until I was older.
+- I don't have any control over what actually happens except for that I have full control over my will for myself, my intention, and why I'm there. That's all that matters.
+- I drink a lot of water.
+- I got a lot of crap for being named SZA but not being affiliated with Wu-Tang, and being a girl.
+- I feel good being a black woman; I've always felt good.
+- So many people meet and become friends at my shows that didn't know each other before.
+- I'm a visual learner, so film is a huge inspiration to me.
+- On Halloween, because we don't celebrate it, my dad would drive me somewhere, anywhere different. Like Little Italy in New York to walk around and teach me all about the food and culture.
+- I was quiet in high school and relatively unpopular, so being noticed is not something that I'm used to.
+- I was a gymnast for 13 years, so I was heavy into sports.
+- Especially when I'm nervous, my mind is running a mile a minute. My ADHD speaks for me before I can speak for me.
+- I make bad decisions frequently. They're fun.
+- The album that defined my childhood was probably Ella Fitzgerald's 'Greatest Hits,' whereas my half-sister, who didn't have the same conservative upbringing, was listening to Cash Money and crunk.
+- I was raised orthodox Muslim. Very sheltered, very conservative.
+- Biochemical interactions are very interesting to me.
+- Reading makes me so sleepy. Honestly, I'm a visual learner.
+- I don't want to speak negativity into existence.
+- In one way, I want to heal people.
+- I always used to be like, 'I don't need to meditate.' And it's not true.
+- I don't listen to my music if I'm not making it.
+- It's so hard for me to focus on things for a long time that I'm not incredibly passionate about.
+- There's something different about growing up black and Muslim, especially in New Jersey. It's like when I left the mosque and I left my dad, I felt unprotected, but I also felt a weird sense of pride, like I was involved in this other way of living that was cool to me.
+- I feel like every outfit I have ever planned ahead is trash.
+- I think music is honest and will make you do honest things.
+- I did some work on Beyonce and Nick Minaj's 'Feeling Myself.'
+- Music, or the type of music that I'm writing, is very personal.
+- Don't get discouraged with your skin when it doesn't do what you want it to do... Give it some time. That's the only way to get to know yourself.
+- I have a really strong gluten allergy, and I'm pretty lactose-intolerant, like, in a big way, but I love cheese.
+- My parents are really conservative. My dad is Muslim, and my mom is the most conservative woman you've ever met. They're very aristocratic in the most quaint suburban way.
+- I do a lot of strange things.
+- I wasn't one of those girls who sang at church.
+- Wearing a hijab never made me feel any more conservative - it made me feel safe. Then, after 9/11, I became the butt of a joke on the playground, so I stopped wearing it. Kids can be really cruel when you're the only black girl in your Girl Scout troop.
+- I'm a Scorpio with a Pisces moon. I am very critical of myself. I'm actually way less critical of others than I am of myself. I'm in my own head a lot. It's hard and really discouraging.
+- When you're, like, 190 pounds, dark-skinned, and a new artist that no one really cares about, people don't really take the time to make you look beautiful.
+- I've always loved playing with hair. I used to want dreads like Lauryn Hill, but my mom wouldn't let me.
+- I was unpopular my whole life.
+- How many thick black women are there singing whatever I'm singing, surrounded by rappers, but also from the suburbs? I can't really judge someone else for judging me!
+- I went through this phase of Spandex, high heels, and fur coats when I was my late teens and early twenties; before then, I lived in overalls and baggy T-shirts.
+- I don't have a primary doctor, a primary hairstylist, a primary anything. I don't even have a primary address! Everything is just whenever I can find one.
+- When I think of Afropunk, I think of the best of the best. I think of, like, D'Angelo.
+- I love classical jazz.
+- I use Ecoco EcoStyler gel, but the alcohol-free protein one. That's the key.
+- When I sing full voice, I get nervous because I get nasal and abrasive and a little scratchy.
+- I used to be offended when people would compare me to Erykah Badu. Because I'm black, thick, and have large lips? There's nothing similar about us whatsoever, and I felt very disrespected by the fact that people needed to pigeonhole me. I wasn't even raised on Erykah Badu!
+- I love folk. I love rap.
+- My mom is a Pan-Africanist. My dad is still Orthodox Sunni Muslim, but he's super fun. He worked in television for years. He was a Black Panther.
+- I love cuffing season. It's a very inspiring season for those who want to be inspired.
+- Sugar makes me feel crazy - like, makes my body hurt kind of a thing. I don't really eat fruit because it has a lot of sugar. I try not to eat a lot of red meat, but every now and again, I feel like I need iron or something - something that I'm missing.
+- I think we all do: I think we wonder if we're supposed to be here, if we're doing the right thing, if we even want to be here. At least, I do all the time.
+- I definitely get inspiration from the 'gram. I mean, Instagram is Google, essentially. I love looking at pictures of beautiful women.
+- I just make music however I feel and pray that it connects, and if it does, I'm super thankful. I think genres are more for other people, not for yourself.
+- In the real world, I kind of, like, thrived a little bit. The things that were awkward about me at school, like being hyper passionate... I realized, 'Oh I'm my own person, and I have my own idiosyncrasies and nuances that I don't mind.'
+- I used to be very revenge-motivated, but that's just because I'm a Scorpio. Now I'm more so, like, practice honesty just because it makes you feel better.
+- People grapple with labeling me as hip-hop, R&B, or pop, and it's interesting to me. I'm just making music.
+- Every day I grapple between 'I'm going to get married' and 'I'm going to spend the rest of my life alone with a poodle.'
+- I live in my imagination, so sometimes movies help me get lost. I feel like I'm in it.
+- I was a funky kid.
+- I always wanted to be a Klingon princess. They were so pretty, and their hair was fire. My hair is Klingon, I feel like.
+- Listening to Alabama Shakes made me less self-conscious about my voice.
+- I love the comparison with Aaliyah and Timbaland, because Aaliyah is a legend, and there is a large cinematic feel to Timbaland's sound, but what I do is different.
+- I used to be very figurative and also just kind of scared to talk about the way I felt in a literal way.

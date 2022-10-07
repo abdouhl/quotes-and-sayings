@@ -1,0 +1,21 @@
++++
+author = "Eric Bailly"
+title = "Eric Bailly Quotes"
+quotes_len = "15"
+description = "the best 15 Eric Bailly Quotes"
++++
+- Being a young player arriving at a big club is great. It's something that really helps me on the way.
+- When I came to Manchester, it was a bigger step from when I was in Villarreal. It is something that is not easy, when you come to a team where there are players that have more experience in the English league.
+- I am not going to complain about the life I've had so far. In Africa, there are people that live in more difficult situations. I've had the luck of having parents who work and have helped me out, they've done everything possible for me to get here.
+- In about five years I had gone from selling cigarettes in the streets of Abidjan to playing for the biggest club in the world.
+- There are Champions League matches that have really wowed me, like when I saw the final between Real Madrid and Juventus. There are plenty of other matches too, it's also something that motivates me.
+- I was following Marseille and looking up to my compatriot playing there, Didier Drogba, and my team was Marseille.
+- It was very hard leaving the people I was very close to. But you also have to value opportunities that come. I had a strong mindset to withstand that and come alone to Spain.
+- I would try to be a striker even though I wasn't and once I started growing up and seeing professional football was a step closer I would look at Sergio Ramos. I always looked up to Ramos as an example and watched him a lot.
+- For me, it is very, very important because I've always dreamed of playing in the Champions League but I have only made the Europa League until now.
+- I joined Espanyol in 2011, and three years later I made my first-team debut.
+- When I got my first payment, I made a bank transfer to my family.
+- As a child I started working. Again I had luck with my father's help financially, but I also had to work. I had a programme after training in the afternoon in which I would go in front of my house to do various things and the phone boxes was something I did to earn some money.
+- I am very happy to be here in Manchester. It's a real joyful moment for me. I've always dreamt of playing in English football. When Manchester United was mentioned I didn't have to think twice.
+- I've got the luck of having Jose Mourinho to learn from.
+- It's important for the other players to have confidence in you.

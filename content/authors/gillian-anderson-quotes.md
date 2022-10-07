@@ -1,0 +1,33 @@
++++
+author = "Gillian Anderson"
+title = "Gillian Anderson Quotes"
+quotes_len = "27"
+description = "the best 27 Gillian Anderson Quotes"
++++
+- I was a daydreamer, and there is a lot of history and geography and science I missed out on because I was in my head. And I regret that.
+- You know, it's a big version of an episode, which I think is necessary at this point because we're drawing in people who not only people who have seen the show before and are devoted to it, but people who have never seen it before.
+- I mean the whole thing about meditation and yoga is about connecting to the higher part of yourself, and then seeing that every living thing is connected in some way.
+- The first time, where Fox Mulder and Scully met, she stands up for herself. She stands right there and gives it to him and that was extremely attractive.
+- I have a tendency to go through my life at full speed and as a one-man band, and so I don't generally stop and take in other people enough to develop many relationships. I'm starting to regret that a bit. I want to change it.
+- I am more spontaneous than my character.
+- I truly believe that we can overcome any hurdle that lies before us and create the life we want to live. I have seen it happen time and time again.
+- It's so funny, because right now I'm very tired and my brains a little dead, I tend to get very focused and serious. So, I'm probably coming off a lot more like Scully right now.
+- Layers are not difficult for me. You have the luxury of takes, so if you feel like, say, you did not take in the fact that your aunt is across the way in one take, you do it again and try to add that piece.
+- In my case, I was born to parents who were very young, and I don't think they were entirely ready to have a child. My dad was going to college and working two or three jobs at the same time, and my mum was working and going to school.
+- Sometimes I read a script and it's obvious from early on that it's one where the suspension of disbelief has to develop strongly from page one. Some are more reality-based.
+- After I did nine years of a television series, I didn't want to do anything really that involved going to a set and being in front of a camera for quite a while. And when I did start to want to do things, I wanted to focus more on film.
+- Just remember, you can do anything you set your mind to, but it takes action, perseverance, and facing your fears.
+- At the beginning Scully was much more sceptical than she is now.
+- I hope everyone that is reading this is having a really good day. And if you are not, just know that in every new minute that passes you have an opportunity to change that.
+- To re-live these characters would be wonderful, because I know when the show ends it will be huge mourning process.
+- I was a good liar as a child.
+- I have a real problem with stillness. With just stopping and being quiet.
+- I think she definitely has. I think, um, her and Mulder's relationship has become more equal. And, I think she has become stronger and more independent over the seasons.
+- I believe people are in our lives for a reason. We're here to learn from each other.
+- I can goof around with other people right up to when we shoot.
+- When the show's not around any more, it's going to be hard not to have her in my life.
+- I think we're tremendously different than the series, if they were to tune in to the series after seeing the movie they might be disappointed. That there was, you know, that they might have some kind of adverse reaction.
+- Be of service. Whether you make yourself available to a friend or co-worker, or you make time every month to do volunteer work, there is nothing that harvests more of a feeling of empowerment than being of service to someone in need.
+- I didn't pay as much attention in school as I would have liked to.
+- My whole belief system is that our paths are drawn for us. I believe in reincarnation. I believe we're here to learn and grow. We choose how we come into this life based on what it is we have to learn. Some people have harder lessons than others.
+- In time, she learned to develop her own opinion of the people that she worked for, and she got stronger. Think she's now much stronger. In the beginning she wanted to believe she was strong but sometimes she faltered.

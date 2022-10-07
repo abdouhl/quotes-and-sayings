@@ -1,0 +1,45 @@
++++
+author = "Patrick Van Aanholt"
+title = "Patrick Van Aanholt Quotes"
+quotes_len = "39"
+description = "the best 39 Patrick Van Aanholt Quotes"
++++
+- Vitesse was my hometown club. They helped me in my career. It was Vitesse who helped me get in to the national team squad in the first place, even if I didn't make the World Cup.
+- As you grow up you realize more how important the fans are and that without the fans we are basically nothing.
+- When Sunderland turned down an offer for me from Crystal Palace I went to see Moyes in his office three or four times. I was angry. I told him: 'Accept Palace's bid and just let me leave - it is the best thing for all concerned.' But he said that he wanted to keep hold of me.
+- I saw Ashley train every day and I said, 'This is what I want but better.' That was my motivation. He taught me the game, how to play nicely and sometimes dirty, all those kind of things. But I didn't become Ashley Cole. I'm Patrick van Aanholt.
+- I like to go forward, that is my strength.
+- I wanted to find a club where I can stay a couple of years and try to do well.
+- My mum and dad were very strict with me and I am grateful for that because all I wanted to do was play football and I didn't want to go to school.
+- I am not even worried about the critics.
+- I would play until my mum called me. I would just stay out playing football, every day.
+- I didn't want to play in the reserves. It was the wrong attitude. I could have trained for myself, so when I got the chance I was ready. I didn't do that. I was just training and going home. That was just a waste of time. That's why Wigan is a closed book.
+- My family lives in London and my kids go to school in London.
+- Sunderland is like a family and I'm very happy to be part of it.
+- I enjoyed my time at Newcastle and it was a very good experience for me to be involved at such a big club.
+- Everyone can criticize me. I don't listen to them.
+- It is always good to be linked with big clubs like Juventus. It is a sign that I am in a good way.
+- I wanted to be a centre back but I was always stepping over the ball and playing one-twos.
+- I'm a defender and that's what I will always look to do first. If you do that right then the other things will be easier, but my job is to defend and that's what I'll focus on more than anything.
+- Of course every player has to accept criticism and it has happened to me. But you have got to get back up.
+- I did not enjoy David Moyes' training sessions. Eventually I lost my love for the game and went into the dressing-room feeling annoyed every day.
+- A win against the champions is always special.
+- I was 16 and went straight into the reserves. I had to adapt to the language, adapt to a new country, adapt to a style of play, all with new team-mates. All those kind of things were in my head and it was very hard.
+- I want my children to have a normal life and not face racism and their children's children.
+- We all want to make a step higher up. I think I've got it in me to play at that level. I played a few games at Chelsea and showed it. That's just having confidence in yourself.
+- I have been at Chelsea for a lot of years. I have played in the Premier League, the Champions League, it is a kid's dream to play for Chelsea. I have moved on, who knows I might one day go back to Chelsea.
+- I could have stayed at Chelsea, signed a new contract, but I chose to go different ways.
+- I have been criticized lots of times but I don't care. It makes me even stronger.
+- I moved to England at a young age so it was different, unlike other Dutch players as I had to get used to a different culture.
+- Everyone who knows me knows there is nothing wrong with me - and there is nothing wrong with my heart either. Did I get upset and frustrated at the time? Yes, when you read that you have heart problems when people didn't hear the truth from me.
+- I grew up in a family of six. Four sisters, one brother.
+- I've played two years in the Premier League, and I think I've shown everyone what I'm capable of.
+- Of course you want to play for your country.
+- Ideally, you want to play games, and you don't want to train every day without the matches.
+- I've always played left-back and I'm an established defender so that is the focus for me in games.
+- Yeah, I always want to play against the best.
+- I can defend and attack - I am capable of everything.
+- Why is racism still a conversation in 2020? We are all one. It hurts me. It upsets me.
+- If you don't have ambitions then you're not a football player.
+- It feels fantastic to score my first goal.
+- But I think I made the right move to leave Chelsea behind. They kept sending me on loan to get more experience.

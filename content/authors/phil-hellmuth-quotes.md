@@ -1,0 +1,106 @@
++++
+author = "Phil Hellmuth"
+title = "Phil Hellmuth Quotes"
+quotes_len = "100"
+description = "the best 100 Phil Hellmuth Quotes"
++++
+- The real reason why I don't play in many big cash games is because I can't stomach the thought of losing $100,000 or more in any given session. If I play three consecutive days at the Bellagio, I might win two days but lose big on the third. Really, who needs the agony of losing that much money? Not me.
+- For five or six years, I didn't play in some of the good games leading up to the World Series of Poker, because with so many below-average players there, I reasoned it messed up my game.
+- When I lose a big pot, I go a little crazy.
+- The benefit of fast play is that you'll get players to commit their chips with relatively weak hands since it will be hard for them to believe that you have a strong hand every single time. The downside is that your opponents will raise weak when you have nothing at all, forcing you to fold.
+- Here I am getting $50,000 for personal appearances. Everyone wants a piece of me. But my kids think no one could possibly think Dad is cool.
+- By taking the lead on the flop, I can give myself opportunities to win more money when I am strong and pick up some uncontested pots when I'm not.
+- Michael Phelps truly has a ton of poker talent.
+- Look, for some players, pot odds should guide your decision making.
+- Poker is supposed to be fun.
+- Most pro athletes are super competitive, super clutch, and they don't want to lose at anything.
+- All-star lay downs are all about reading your opponents, trusting your instincts, and then making the right move.
+- There is your persona and then there's the real you. I was living inside my persona too much.
+- I typically don't bet out on the flop because I've been in the business of trapping my ultra-aggressive opponents so much that I've simply forgotten the benefits of a simple flop bet!
+- I'm a big believer in the power of your own words.
+- I guess if there weren't luck involved, I'd win 'em all.
+- Just because you're sitting at a poker table with some guy doesn't give him the right to say whatever the hell he wants about the way you live your life.
+- I wanted to be famous and I wanted to make a fortune, and I've done that.
+- If you read people great then you can become a great No Limit Hold 'Em player.
+- Through all the craziness, what I know is that I'm a good husband and a good father and I do a great job with my kids.
+- If I'm going to play without any rest I might as well not play at all. I rest a lot but I work a lot too.
+- Players too often bet too much money when they hit a strong hand. That only serves to drive opponents out of the pot, and that means a lost opportunity to maximize the value of a powerful hand.
+- Poker is about understanding human behavior and managing emotions - yours and the other guy's. That's huge in poker, and it's huge in business.
+- I guess I'm the happiest when I'm picking up my kids from school. The most important things on my list are my wife and kids and my health. Happiness is having a family you love.
+- If you're going to just play with patience, you're going to be at the mercy of the cards.
+- Models are interested in me, mostly because of my 'bad boy of poker' image.
+- My primary game is to put my chips into the pot only when I'm super-strong. I tend to fold a lot of hands while waiting around for those strong hands to come.
+- Some people know me as the bad boy of professional poker and call me The Poker Brat. Sometimes I deserve that nickname, but not always.
+- I don't get nervous.
+- All I want are titles and nothing less.
+- I normally raise pre-flop with K-K or A-A but occasionally I'll limp in, especially if it appears that the others at the table are playing tight. I don't want anyone to fold too soon when I've got such a big hand.
+- Playing fast and aggressive poker can help manufacture chips out of thin air and is one element of the game that separates the great players from the merely very good. But beware; it can be risky.
+- Players talk about pot odds all the time, especially when they try to justify a call that they made. Whenever I hear this line of reasoning, though, I can't help but wonder if they properly thought through the consequences of their call.
+- Shoving with K-Q is a tactic that does work well for Internet players and weak players. In the old days, though, grizzled pros would have eaten up those guys by utilizing the traditional, more conservative style of poker that emphasizes play on the flop.
+- When I started playing, I saw a lot of people who were 45 and unhappy. I told myself I'd never be in a position where I had to play all the time. And I haven't been.
+- Everybody knows the World Series of Poker is the biggest stage in the world. This is where you make your name.
+- If you play professionally, you can expect to go broke at some point.
+- Look, most players can't stand to be outplayed by an opponent's bluff. Quite honestly, though, it doesn't bother me that much.
+- Exercise clears my brain of the stresses of poker's ups and downs, and allows me to re-focus my mind on the next day.
+- There are two ways that lack of sleep affects my play: I'll play too many hands and I'll lose the ability to effectively read my opponents.
+- I've met some of the most famous celebrities in the world but Michael Phelps was the first person I've ever met with whom I was totally star-struck.
+- Well, sometimes you've just got to go with your instincts.
+- I wanted to become good at golf because I saw a lot of really successful people being good at it - and I planned on being successful.
+- I act the way I act and I'm not proud of it.
+- Internet players have successfully addressed the all-in play from a mathematical perspective. For example, it's fairly common to see a net player move all-in over the top from the big blind with a hand like K-Q when they have less than twenty big blinds remaining. And for good reason - it works!
+- Consistently playing suited connectors like 8c-7c for raises and reraises will cause big chip swings. If that's what you want, well, strap on your seatbelt, because you've got a turbulent ride ahead of you!
+- When my reading ability is sharp, I can dodge bullets, baby! I have no problem folding super-strong hands and that saves me a ton of chips.
+- There's more luck in poker. Getting good at golf requires a certain amount of physical aptitude. Both take a lot of patience. Both require knowing when to gamble - either with a big bluff or a high-risk shot. Both can be infuriating.
+- Some players like to add a little more spice to their no-limit Hold 'em game. They add a live blind, also known as a straddle, where the player to the left of the big blind voluntarily puts up twice the big blind before looking at his hole cards. The player in the straddle then has the option to raise it up when the action returns to him.
+- Mental and physical preparation is critical in tournament poker events like the WSOP.
+- On the road, I have all these celebrity superstars tell me how great I am and how much they like my style.
+- I'm the good guy, I'm a family guy.
+- Oakley's sunglasses are hot and I feel a little extra cool when I wear them.
+- I used to have a routine where I would eat a meal during the World Series of Poker. I would play, they would call it a day and I would go work out. I would always order poached salmon with mushrooms and I would dip the salmon into a side of ranch dressing.
+- I'm trying to make history. I've always put history above money.
+- It wasn't a popular thing to be a professional poker player in the '80s.
+- Poker is really about reading people. What happens when you bluff? What does it look like when the other guy bluffs? Does he look right, does he look left? Under what circumstances does he fold or call?
+- The more records you put up, the longer they talk about you.
+- My wife is incredibly supportive of me.
+- No doubt about it, in order to win the WSOP Main Event, plenty of stamina is required.
+- I've studied the way the Internet kids play. I want to know what they're thinking when they play pots against me.
+- We have hillbillies with third grade educations and 8th grade educations who have conquered the poker world. There is no telling why someone is great at reading other people. Some people just are.
+- Without a doubt, the WSOP in Las Vegas is by far the most prestigious event in the poker world.
+- Writing about poker is one of my passions.
+- I'm pretty tall, and I'm always dressed in black.
+- I'm so much better off when I trust my instincts. But they're not perfect.
+- Look, I never enjoy risking my tournament life with a marginal hand, but if you want to be a poker champion, that's exactly what needs to be done. Just don't do it too often!
+- Very few players want to go home wondering if they've folded the best hand. They feel humiliated when they're bluffed out of a pot. As a result, these players make calls with marginal hands that put their entire tournament at risk.
+- I used to make it deep in poker tournaments without ever moving all-in because other players knew that when I raised it up, I had the goods.
+- I guess you can say that my unwillingness to accept failure is what drives my success.
+- There are times when success doesn't make sense on a purely mathematical basis. I've played absolutely perfectly before, put in a masterful performance, and then my perfect play evaporated because one guy lost his mind and got lucky. Of course, I've also won that way.
+- It is very, very difficult to quit when you're losing. And nobody does it well.
+- If you are too into the fans and adoration and the world thinking you are the greatest, then you do not perform well.
+- I think the key to poker is being steady and giving yourself a chance to win every tournament.
+- When strangers walk up to me and want to play golf for money, I worry. I wonder why they're coming to me, and I begin asking questions: When did you start playing? What's your best score? Are you playing your best golf right now? Where do you play? Usually I can tell if they're lying.
+- One or two great lay downs per tournament will give you a few extra lives while a few well-timed bluffs will give you a ton of extra chips.
+- My favorite poker game is No Limit Texas Hold 'Em.
+- Before you decide to play with live straddles in your home game, remember that this twist essentially doubles the size of the game. It's often used by players who have been losing and are trying to get lucky and win a big pot.
+- It's always pretty cool to hit a card on the river, especially when you're lucky enough to do it two days in a row. But good fortune doesn't last forever.
+- By folding often, I give other players the false impression that I'm a weak player - a player who can be easily bluffed. Trust me; I'm not a weak player.
+- Prestigious events like the Main Event at the WSOP are marathon races. Fatigue is sure to set in.
+- When I don't reraise with a premium hand like K-K, I'll just smooth-call. Sometimes I just don't want to announce the strength of my hand to the entire table.
+- I've been an idiot at the poker table for a long time.
+- Ultra-aggressive players have a knack of making otherwise sound players commit huge stacks of chips with relatively weak hands, like A-Q.
+- In 1987, I wrote a goal sheet. I didn't want to waste my life. I'd dropped out of college, and there was a lot of pressure from my parents. I decided, 'If you're going to do this, you're going to become the best in the world at this.'
+- The flop bet is a useful tactic for both old-school and new-school players because it can be effective if you are strong, weak, or somewhere in between. Betting out weak on a bluff can allow you to pick up an uncontested pot while betting out strong gives you the opportunity to control the size of the pot.
+- I bought a midnight blue Porsch with a whale tail when I was winning big one time in L.A. That car was fast, fast, fast!
+- I have a super-balanced life, and I'm a super balanced guy.
+- What you see on a lot of televised poker is highlight-reel poker. That's why I used to like 'Poker After Dark' so much. It used to catch us playing almost every single hand... It is more of a grind than people think.
+- Playing only when you have a strong hand, also known as being a slave to the cards, is simply not the way to win tournaments.
+- What gets lost is that half of poker is reading people. When you're reading well and you're making counterintuitive plays, a strictly math player will get scared and start making fewer moves, and then the person is even easier to read.
+- Sometimes when you look back, you think I wish I would have played this hand differently or that hand differently. But then you have to understand that you can't go back and to focus on the present. Whether or not you're applying the lessons you've learned from mistakes you've made in the past.
+- Every poker player has ups and downs because luck is also involved. When a great poker player smashes, he's making the right moves and making the right reads and he's getting lucky.
+- Trust me when I tell you that Andy Roddick has the game to win a major poker tournament. I've played Hold 'em with him several times and he consistently demonstrates the kind of playing style and competitive drive that gives him a legitimate chance to win.
+- Regrettably, I've had more than a few meltdowns on television.
+- I was the youngest world champion in history when I won the WSOP in 1989 at age 24.
+- One of my favorite poker shows on television is 'Poker After Dark.'
+- It used to be considered an art form to win a tournament without having to shove all your chips in the middle.
+- Here's a news flash: I hate to lose! Just watch any televised poker broadcast and you can see that's the case.
+- Look, No Limit Texas Hold 'em is a game of reads, deduction and logic, and Allen Cunningham excels in each.
+- Keeping my emotions in check translates to me playing a lot better.

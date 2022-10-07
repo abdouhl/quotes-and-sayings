@@ -1,0 +1,21 @@
++++
+author = "Dan Rosensweig"
+title = "Dan Rosensweig Quotes"
+quotes_len = "15"
+description = "the best 15 Dan Rosensweig Quotes"
++++
+- I've been extremely fortunate in my life. So I actually believe that I'm the living embodiment of living the American dream.
+- I think whenever you come in, whenever you try to evolve a company, people will get nervous. But, if you articulate a clear vision, a clear mission to help them understand their roles in it and ask them to buy into the system, everyone will band together to make it happen.
+- The history of Guitar Hero is pretty spectacular. Really, I don't know of another franchise that has captured the imagination of the world so quickly and so powerfully and so positively in such a short period of time.
+- I like being surrounded by people who have very little fear and very little respect for the past - not in a negative way, but in a positive way. They appreciate everything that's been done, but they constantly look for how to do it better.
+- Guitar Hero has been so successful that a lot of people were questioning how it was possible to innovate on the most successful franchise of its kind.
+- In Silicon Valley, if you spend a lot of time thinking about the obstacles, you'll talk yourself out of everything, because the more you look at it, the less logical something sounds, since no one has done it yet.
+- When you are in a growth company, you have to really open people's eyes to the bigger possibilities so they think differently. Once they understand how to define success and what their role is in success, they make better decisions, and you can push decision-making down.
+- When you're in college, you really don't know where you're going to end up, but you know who you want to be along that journey.
+- I had immigrant grandparents who came to this country and came for religious freedom and loved it, never made any money, Bronx, Brooklyn, but loved America. And they told me every day it's the greatest country in the world.
+- The good parts about being a public company are increased discipline, increased execution and increased transparency to make sure that you are really building a company for a hundred years.
+- Facebook is the social graph with the organizing principle around your friends and your social life. LinkedIn is the professional graph, organized around you, your job, your industry, your title and your function. At Chegg, we are building a student graph centered around you, as a student.
+- I think good companies can navigate being public and doing the right things for their customers.
+- What Guitar Hero has done is to turn music inside out. Whereas the iPod made music very personal, very singular - you put your ear-buds in and you listen to it - Guitar Hero turned it around and made it very social. So it is fun to play. It's fun to play against people.
+- One of the blessings I've had, really, for my entire career, is working with founders of companies, whether it was Bill Ziff at Ziff Davis or with Jerry Yang and David Filo at Yahoo.
+- Textbook rental is a great concept. It is just a great business model.

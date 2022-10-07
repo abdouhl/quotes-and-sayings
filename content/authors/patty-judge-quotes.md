@@ -1,0 +1,29 @@
++++
+author = "Patty Judge"
+title = "Patty Judge Quotes"
+quotes_len = "23"
+description = "the best 23 Patty Judge Quotes"
++++
+- I'm never very quiet; that's not my nature.
+- In rural communities, people are upset with the government, upset with what they see as business as usual. They saw Obama as a change agent, and they saw Donald Trump as a change agent.
+- I am really not clear in my mind what a sanctuary city is.
+- I think women bring a different perspective and that we tend to be more collaborative in our approach. I served in the Iowa Senate back in the '90s, when there weren't a lot of us. At the time, I think there were five or six women, and two or three of them were Republicans and two or three were Democrats.
+- I would certainly look at a proposal for tuition-free community college for two years if the students kept a certain high grade-point average.
+- I've had a lot of careers in my life. When I think about it, I think every piece of that - from being a nurse, a farmer, dealing with real estate - has added to a skill set that I would have been able to use throughout my political career.
+- If you are elected to do a job, you are supposed to do it to the best of your ability.
+- The people in Iowa know that Washington isn't working. It's devolved into partisan politics and a lot of gridlock and obstruction.
+- Our culture has changed. It has become more violent. People are literally afraid to go to the movies or to school.
+- I think it is possible to meet people in the middle, to have a discussion even though you may not agree on solutions, and find some common ground and get to consensus.
+- Oh, what could be more delicious than replacing Chuck Grassley on the Senate Agriculture Committee?
+- We must reduce the influence of money in politics, beginning by overturning Citizens United and taking back our system from the millionaires and billionaires who can give unlimited and undisclosed amounts of money to influence our elections.
+- When I ran for secretary of agriculture in Iowa in 1996, people... were sure that Iowans would not consider electing a woman to that position.
+- I have worked with Chuck Grassley off and on through the years, and always had what I considered and what I think he'd consider a cordial working relationship.
+- I don't know that free trade... is good for our country and good for Iowa and Iowa workers.
+- Climate change is real.
+- What I will stand up for is what I think is right and for the best interests of the citizens of the state of Iowa.
+- Washington is broken.
+- I was the first woman elected as secretary of agriculture in Iowa.
+- We have to get back to a government where leaders are willing to talk across party lines and do not have absolute politics as the goal.
+- I am not afraid to cross the party line. I never have been.
+- From here in Iowa, it seems to be the wealthy and big corporations get enough help.
+- Donald Trump at the head of the Republican ticket affords Democrats a great opportunity.

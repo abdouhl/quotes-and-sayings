@@ -1,0 +1,69 @@
++++
+author = "Eva Longoria"
+title = "Eva Longoria Quotes"
+quotes_len = "63"
+description = "the best 63 Eva Longoria Quotes"
++++
+- There's no amount of money that would make me decide something for a career.
+- Who I am at the core and what I think represents me is really reflected in my family.
+- You can't have a relationship when you're shooting a 14-hour day and your husband is shooting a 14-hour day in the same city. It's a time thing and it's a together thing.
+- I've always thought of myself as a role model even before being a 'celebrity.' I've always been doing charity work and volunteering in the community since I was 8, so when you do that, I think you just assume that role when you put yourself out there.
+- There's a big difference between charity and between activism and philanthropy. They're very different things and I think, you know, everybody should find a passion or a cause that they can really get behind, but it has to be organic.
+- I've always said I want a farmer, not a hunter. Hunters go for the kill and they move on. A farmer nurtures; he watches things grow.
+- I think what destroys Hollywood marriages is our work schedule, not so much infidelity.
+- I think I've ignored it so much so that when the paparazzi are following me I really don't see them. You don't see them anymore.
+- I'm a terrific Mexican cook, and I just love Mexican food. And I love cooking Mexican food.
+- I'm a fabulous date, I make sure I look good, I like hearing what a guy has to say and I make sure the evening is a real laugh. I like to laugh.
+- Politics need to stop treating women as a special-interest group.
+- I was making almost minimum wage on 'The Young and the Restless.' But it was my first job, so I accepted my first quote. I had a great time on it, and it obviously led me to better things.
+- I find it irresponsible to go, 'She's an actress, what does she know?' That means if you're a dentist, what do you know? If you're a lawyer, what do you know? It's our profession, it's what we do. It's not who we are.
+- For me, as far as skin, I'm a big advocate of facials. And I moisturize. And I read my magazines. I listen to good advice from people who really know, and I try to watch what I eat.
+- My acting is still being recognized for the fact that I wasn't nominated.
+- I was born in Corpus Christi, Texas, the youngest of four girls, including my oldest sister, Lisa, who has special needs. My mom was a special education teacher, and my dad worked on the Army base. We weren't wealthy, but we were determined to succeed.
+- We know what we need to do. Let's re-elect President Obama!
+- I'm a tomboy. I love shooting guns and running around.
+- I've been studying the Constitution for myself but also as a way for me, as a Democrat, to comprehend the Right. I think it's important that people who are politically active understand both sides.
+- I didn't really blossom until my mid teens, and by that time I had to work on my personality to make people like me. I found it easy to make people laugh and I was always pretty popular.
+- I'm not a matchmaker. I'm a horrible matchmaker. I always try. I'm not very good.
+- The Eva Longoria who worked at Wendy's flipping burgers - she needed a tax break. But the Eva Longoria who works on movie sets does not.
+- I have a personal trainer who comes over at least four times a week and kicks my butt. I get so sore that I can't even walk.
+- It's not a party unless I'm cooking. Some people find entertaining stressful, but it is therapeutic for me; I find it relaxing.
+- I'm on the ground, I've been in swing states, I've been talking to the American people, I've been out there speaking on behalf of Obama's record, I've been in the trenches.
+- So, I'm the Eighth Wonder of the World. It's flattering and very, very funny.
+- I find it a turnoff whenever men aren't into some kind of sport. And, no, video games don't count. I dated a guy who was into video games, and I wanted to shoot myself.
+- Immigration is not the top issue for Latinos. Latinos are like every other American - economy, jobs, healthcare, education.
+- When you're fighting for social justice, one of my biggest pet peeves is speaking out of ignorance.
+- I got my degree. More importantly, I got a key to American opportunity. That's who we are - a nation that rewards ambition with opportunity. Where hard work can lead to success, no matter where you start.
+- To be with the same person for the rest of your life just sounds so drab.
+- I could never give up Mexican food. Nachos are usually my go-to if I'm courtside at an NBA game. I always, always get my picture taken with my mouth wide open and a tortilla chip sticking out of it!
+- I'm very literate on policy. I'm very literate on the issues, and I'm an American first. I've been involved in politics long before I was an actress. I just happen to have a platform now. I just happen to have a voice.
+- I learned French before I learned Spanish.
+- I love being a woman. I love the sexiness we get to exude. But the best thing about being a woman is the power we have over men.
+- I was born in platform heels. I actually always fall down when I'm wearing flip-flops.
+- I would say 80% of the scripts I get are dramas and not comedies or romantic comedies, which is funny because that's what I do every week.
+- Even though I am very tied to and close to my heritage, I learned Spanish in college; I didn't grow up with it. Growing up in South Texas is different from Miami or L.A. where it is a necessity to speak Spanish.
+- I think what I love most about Oprah's brand that I would love to do with the Eva Longoria brand is she has purpose with her brand. Everything she does means something.
+- I don't regret anything I do, ever, whether articles I've done or things I've said. And as far as what's happened in the past, I wouldn't take anything back.
+- Baking is too precise for me. I cook with a pinch of this or that.
+- My worst habit in the kitchen is not allowing anybody to help me. I like to cook by myself.
+- I am treated no different than the other girls.
+- You don't need to know who I'm dating. You don't need to know what I'm doing. I'm fine with everybody not knowing that.
+- Your body is a vehicle of your emotions and a vehicle of feelings and a vehicle of whatever you need to get done in life. And you've got to take care of that vehicle.
+- I like being small - I've known so many women with big boobs who feel overweight or end up with back problems.
+- I do like British guys. If I had to pick one it would be Ewan McGregor. I met him once and he was gorgeous, even if he is a little short. He has the most amazing charisma.
+- I'll talk about my Tony all day long.
+- In the Mexican culture, we never miss a baptism, a birthday, a baby shower, a wedding shower, a wedding. You must show up. Otherwise, you'll be in big trouble.
+- I don't regret anything I ever do or say. I don't like to live my life being censored. I like to say what I feel, and I think people respect that because you're honest.
+- I'm naturally athletic. I've been involved in sports since I could walk. So, for me to be sedentary is just unacceptable. Not only is it great for your physical body, but it gives me more energy during the day if I've worked out. I feel better. I look better.
+- I do want to have a family at some point. I also want to adopt. I don't feel pressure to have kids because I know that there are so many out there.
+- Everybody needs a chance to find love.
+- I never had a time line for my life. I didn't say I wanted to be married at 28 and have three kids by the time I was 32.
+- I've always eaten egg whites because when I was little, I didn't like the color yellow, so my mom would trick me into eating eggs by taking out the yolk.
+- I'm very proud of my sisters and everything they've accomplished and done. I'm very proud of where I came from.
+- On a television show, you basically make a movie a week. Movies take three months - it's crazy. They're so slow, it's like vacation to me.
+- I am honored to be here as co-chair of President Obama's re-election campaign.
+- I grew up on a ranch with my father, so he educated us really early on about guns. We used to go target shooting all the time.
+- In my family, there was one cardinal priority - education. College was not an option; it was mandatory. So even though we didn't have a lot of money, we made it work. I signed up for financial aid, Pell Grants, work study, anything I could.
+- I just came into my own sexuality at thirty. I don't think it's something you can deeply experience at 18 or any time before that.
+- I wish I could wear 10 dresses to my wedding. It's so sad that you put it in storage and then never see it again. I am going to sleep in mine after I wear it.
+- We face a choice this election. President Obama is fighting for changes that grow the economy from the middle out and help all Americans succeed - jobs, education, health reform, the DREAM Act, equal pay for women. He is moving us forward with opportunity today for prosperity tomorrow. Mitt Romney wants to take us back to yesterday.

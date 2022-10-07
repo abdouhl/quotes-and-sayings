@@ -1,0 +1,19 @@
++++
+author = "Dav Pilkey"
+title = "Dav Pilkey Quotes"
+quotes_len = "13"
+description = "the best 13 Dav Pilkey Quotes"
++++
+- Most kids are smarter than most grown-ups. Kids see the world in black and white... They look through all the garbage and see a world run by fools and dullards and lazy people. And there's nothing they can do about it because they have no power.
+- I had a lot of reading problems growing up.
+- I created 'Captain Underpants' when I was in the second grade. I was constantly getting in trouble for being the class clown, so my teacher sent me out into the hallway to punish me. It was there in the hall that I began drawing 'Captain Underpants'. Soon I was making my own comic books about him.
+- I think my funny books are my favorites because I like to laugh so much.
+- Being an author is fun. It's a great job, because I can stay up as late as I want, and if I feel like taking the day off, I do it. Plus, I get to make up silly stories and draw pictures all day.
+- These 'mistakes' occur in my books for a reason. I have an agenda: I'm secretly trying to inspire kids to create their own stories and comics, and I don't want them to feel stifled by 'perfectionism.'
+- A book without potty humor is like a banana split without hot fudge. It can still be good, I suppose, but you kinda get the feeling that something is missing.
+- Grown-ups do a lot of complaining!
+- It used to take me forever to read and comprehend stuff, so I decided not to make the 'Captain Underpants' books too challenging. Don't get me wrong - the humor and ideas are often sophisticated - but the books aren't hard to read. I wanted kids who hate reading to find these books irresistible.
+- Once I have the story in my head, I write it down. The illustrations usually come last.
+- My freshman English professor at Kent State University in 1984 told me I was a good writer, and she loved all the silly pictures I drew in my notebook. She said I should try writing children's books, and so I did.
+- My books are just pure escapism for kids.
+- I think every character I've ever come up with has been based on someone or something I've known.

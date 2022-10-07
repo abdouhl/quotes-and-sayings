@@ -1,0 +1,46 @@
++++
+author = "Summer Rae"
+title = "Summer Rae Quotes"
+quotes_len = "40"
+description = "the best 40 Summer Rae Quotes"
++++
+- Growing up I always watched WWF with my dad on Saturdays. It was our thing!
+- I'm a huge WWE fan, 'Monday Night RAW' especially.
+- I was the first woman in WWE to ever be in a WWE Studios movie and was honored to be trusted with such an opportunity.
+- Something that's interesting with season two of 'Total Divas,' Fandango and I's relationship has been on the surface level, as far as WWE programming with 'Monday Night Raw,' 'Main Event,' 'Friday Night SmackDown.' You see us on camera and that's about it.
+- I will say I am itching for some babyface-ness in my life.
+- There's the good and the bad aspects to Social Media. What I do find great is how much social media has changed businesses and the way they structure their marketing.
+- I went to my tryout in WWE, and I think within like six weeks, it was really fast for me, I was like down there, moved to Tampa, and the rest was history.
+- My parents have been my biggest influencers. They both immigrated to America and taught me that I can do anything I dream of with hard work and determination.
+- When people see me, I might come across as just eye candy.
+- For me, the pinnacle of everything was to be on 'Monday Night Raw.'
+- The most successful people do play extensions of themselves in the ring.
+- I have a very big, loud personality and sometimes that can be taken wrong with people that I first meet.
+- One thing my fans might not know about me is that when I graduated from college I went to work for a plumbing company, and so I was pretty much a full time plumber.
+- I'm 5'10' and all legs. I use them in the ring as weapons so I make sure to train them hard in the gym.
+- I'm excited to show people I'm not just a girl who wears glitzy outfits and cheers on her man every week.
+- I went to Enloe High School and then East Carolina University and graduated with a business degree in marketing.
+- For me, because of WWE programming, it's easier for me to slip into someone that I'm not or someone that I always wanted to be and just haven't had the guts to. So this super, horrible mean person, I personally don't think it's who I am outside of the ring, but maybe it's someone I have always wanted to be and I just snapped.
+- I loved being paired with Fandango.
+- As strong, beautiful, powerful women like the WWE Divas are, we should always support each other and always uplift each other.
+- The greatest thing about being a WWE Superstar is being able to reach so many people. We have so many young girls that look up to us and that drives me to lead by example.
+- Being single and being in the WWE, a lot of times I think that I can't have a husband or a boyfriend or a relationship because there are so many things that I want to accomplish.
+- I know how to lay a copper pipe and PVC. And I was forklift certified.
+- I thought I was horrible and really mean on 'Total Divas.'
+- I love my Renee Young.
+- The WWE universe is unlike any other group of people.
+- A couple jobs that I would love to do are hosting a television show, sideline reporting for the NBA or NFL, on-camera hosting for an entertainment network, event planning for a PR company or resort and, of course, WWE Diva!
+- To be a stunt person you kind of have to have a screw loose like you do in wrestling.
+- I'm kind of a lot to handle when you first meet me.
+- I am a ballroom dancer on WWE programming and in my personal life I am no dancer at all.
+- Spending so much time on the road is the biggest challenge for me with WWE. I've missed weddings and births. I've spent a lot of time away from my friends and family for so many years. That part is really hard.
+- The Divas are not only gorgeous but extremely athletic. Why wouldn't I wanna be a part of that?
+- It's definitely something that is a direct reflection in the mirror when you do a reality show. You can see what your flaws are and what you need to work on.
+- I'll never burn a bridge.
+- I think that being able to do a WWE studios film gives you confidence to say that I was able to go out there and accomplish something.
+- You are on the road so much when on the main roster that you don't have time for anything else. But wrestling will always be a huge passion for me.
+- I think the locker room gives you tough skin and that can only help in every aspect of life, not just in WWE.
+- I'm a hundred percent looking forward to Brie Bella versus Stephanie McMahon.
+- Of course WWE is a huge part of me and I will never shut that door fully.
+- When you mess with someone's love or family, you don't want to be on the other side of the woman's wrath.
+- I'm from Raleigh, North Carolina, and I can't lie... I missed the South since I've been gone!

@@ -1,0 +1,34 @@
++++
+author = "Paul Gascoigne"
+title = "Paul Gascoigne Quotes"
+quotes_len = "28"
+description = "the best 28 Paul Gascoigne Quotes"
++++
+- Hopefully everybody will just let me get on with my life. I'm going to.
+- I am going to continue and bring this club forward. I am Paul Gascoigne the footballer.
+- I like to help create team spirit in the dressing room. I feel that I've got loads of love to give.
+- Then all the foreigners started coming over. I don't mind that but a lot of teams are laying out fortunes for ordinary players and that's no good for our youngsters coming through.
+- I know as a manager you have to abide by the chairman's decisions. But his decisions were this team, that team, this player, that player. The chairman is a control freak.
+- Anyway, how can you sack anyone who still hasn't got a contract. I'll be there for the game and I'll stand behind the dugout giving instructions to the players from there. They will respond to me more than the next manager.
+- But then I always wanted to play for Rangers. Man United is a great club and Alex Ferguson is a legend.
+- I never predict anything, and I never will.
+- If the fans want me out, I'll put my hands up and leave. Like a proper man. I won't make excuses, I'll leave.
+- You learn, right, a lot of people's problems - why they get upset, why they get down, why they turn to drink - is because they can't say one word and it's N-O, no.
+- Well, I did know - but I just wanted the day to pass and the next day to come and then I wanted that one to pass. It was a horrible cycle. I felt so close to having to pack the game in.
+- I thought I did well for someone who has been out for 10 or 11 months. Then I was sub against Liverpool and tried to play for the guys and work on my fitness.
+- But if I wasn't playing, I would drink Saturdays, then Sunday, then Monday. Then I would try and train and it was no good, then have another drink just to pass the day away.
+- I've had to deal with everything but everyone has helped me, including Sir Alex Ferguson, to get through. George Best was a good friend of mine. We loved each other, we both knew where we were coming from.
+- The drink? Yes, I've had tough times in my life, especially the last year, regarding my ex-wife, my kids, I nearly broke my neck, I was on death row with pneumonia.
+- I don't really do pranks any more. I have a laugh in the dressing room here, where it's safe, and the guys don't go to the papers and tell them what I've done.
+- I never refused an autograph, never refused to buy someone a drink. Now I'm learning to say I've got other things on, instead of doing it and wondering why.
+- I'll tell you the truth: I had a double brandy before the game but, before, it used to be four bottles of whisky. Not any more. I was fine. I had a glass of wine after the game. But it was just a mouthful.
+- I'm going to do things when they are right for me.
+- At the end of it, I'll maybe do a coaching badge but I'm not going to get forced into things.
+- I had to accept that I was an alcoholic, that was the main thing. I think you've got to. But I try not say that I'm an alcoholic. I prefer to say that it's a disease I've got.
+- I've got a bit of money in the bank. I'm quite comfortable.
+- I fought back, got injured again and I had to have another operation. I got down and depressed and I think I was drinking more than I should. Well, I know I was.
+- I take responsibility for myself and what I do now.
+- If I want to be a better person for whoever is in my life, I have to learn.
+- I do want to be a manager one day. It might be 10 years, I don't know when.
+- I've learnt and I just want to be respected for what I've achieved on the pitch. I know I haven't achieved much off it but I do know I've given pleasure to people watching me play football over the years.
+- I won player of the year and players' player, two cups and two championship medals, had a great time.

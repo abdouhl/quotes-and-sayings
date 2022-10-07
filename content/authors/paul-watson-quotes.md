@@ -1,0 +1,138 @@
++++
+author = "Paul Watson"
+title = "Paul Watson Quotes"
+quotes_len = "132"
+description = "the best 132 Paul Watson Quotes"
++++
+- I don't see the point in making a distinction between natives having more of a right to kill whales than nonnative people.
+- The Brer Rabbit ploy has been quite effective for me. When a country is talking about prosecuting me, I demand to be charged and put on trial and offer to pay my own airfare. They know that I'm going to bring a lot of international media with me and put their whaling programme on trial, and they decide it's better to keep quiet and do nothing.
+- The tragedy is that there is so much more incentive - money - to destroy the ecology than there is to preserve it.
+- My grandfather carried me around on his shoulders at 85.
+- Dutch prisons are probably the most civilized you're going to find anywhere in the world.
+- Documentaries make a difference.
+- I'm not interested in culture; I'm interested in the law.
+- I have an unexplainable belief that I will never cause harm or be harmed while at sea. Because of this, I feel secure at sea: I feel secure in the ice, I feel secure in the storms, and I feel secure in confrontations.
+- Any social movement throughout history has always been carried out by only 7% of population being passionately active in that.
+- In 1993, I chased Cuban and Spanish drag trawlers off the Grand Banks off of Newfoundland. And it cost them $35 million in losses.
+- In Ecuador, if I go after an Ecuadoran, I'm in trouble; if I go after a Costa Rican, I'm a hero.
+- All revolutions are violent revolutions.
+- Most people can't see the connection between their own lives and the oceans.
+- It's a war, I think, to save the planet, really, from ourselves.
+- I have been honoured to serve the whales, dolphins, seals - and all the other creatures on this Earth. Their beauty, intelligence, strength, and spirit have inspired me.
+- Way back in October 2007, I had urged thousands of Australians to vote for Kevin Rudd and Peter Garrett's Labor Party. Why? Because they promised to get tough on illegal Japanese whaling.
+- That's the thing with celebrities: the media can't ignore them.
+- If you're dealing with criminals, they're not going to want to go to court.
+- We buy a bottle of water in the city, where clean water comes out in its taps. You know, back in 1965, if someone said to the average person, 'You know in thirty years you are going to buy water in plastic bottles and pay more for that water than for gasoline?' Everybody would look at you like you're completely out of your mind.
+- There are very few fishermen left today.
+- I do what I do because it is the right thing to do. I am a warrior, and it is the way of the warrior to fight superior odds.
+- Ecoterrorism is terrorism against the environment.
+- I don't eat fish because there is no such thing as sustainable fishing in the world right now.
+- We need to stop flying, stop driving cars and jetting around on marine recreational vehicles.
+- Domestic house cats kill more fish than all the world's seals put together.
+- I don't have a religion, but I respect them.
+- It is true that many of the Sea Shepherd crewmembers are inexperienced, but the fact is that these volunteers bring a passion to the project that cannot be found in a hired crew.
+- Social change comes through people.
+- Commercial fishermen are the greediest, stupidest people on earth.
+- There are many who condemn my crew and I for taking the law into our own hands and for taking on the barons of corporate profit.
+- When I was born, there were three billion people on the planet.
+- Protesting is fundamentally submissive.
+- Ships are expendable; the whales are not.
+- The environmental movement doesn't have many deserters and has a high level of recruitment. Eventually, there will be open war.
+- Costa Rica and Germany have simply been pawns in the Japanese quest to silence Sea Shepherd in an attempt to stop our annual opposition of their illegal whaling activities.
+- A fish is more valuable swimming in the sea maintaining the integrity of oceanic eco-systems than it is on anyone's plate.
+- You will not ever perceive the truth that is reality. There are many realities.
+- Canada I don't trust. The Canadian government hates me more than the Japanese.
+- Protesting against illegal activity is not piracy.
+- People feel good about giving money to Greenpeace.
+- Everybody is a hypocrite. You can't live on this planet without being a hypocrite.
+- Russian subs are a bargain at $60,000. Unfortunately, none of the dials or instructions are in English.
+- Putting Zodiacs in front of whaling vessels doesn't do it anymore. Done that, been there, seen that.
+- The film 'The Cove' made people aware of the Japanese slaughter of whales.
+- I always say, 'I'm not a pirate, I just play one on TV.'
+- Sometimes we are separated by differences, and sometimes we are united by common ideals of respect and compassion.
+- The shark is the apex predator in the sea. Sharks have molded evolution for 450 million years. All fish species that are prey to the sharks have had their behavior, their speed, their camouflage, their defense mechanisms molded by the shark.
+- I take a biocentric point of view. I look at things from the point of view of the Earth and the laws of ecology. As opposed to the anthropocentric point of view, where everything revolves around humanity.
+- NATO isn't going to be concerned about fishing.
+- I want to stay in the ocean. I'm not going to be able to do that from some holding cell in Japan.
+- All confrontation is based on deception.
+- Nobody has ever been hurt by the actions of ships I have been on.
+- The United Nations World Charter for Nature, section 21, empowers any nongovernmental organisation or individual to uphold international conservation law in areas beyond national jurisdiction and specifically on the high seas.
+- Greenpeace is the world's largest feel-good organisation now, and I can say that 'cause I am one of their co-founders.
+- Sea Shepherd does not condone, nor do we practise, violence.
+- The sealing industry is dying.
+- I experienced the California Northridge Earthquake of 1994 and the eruption of Mount St. Helens in 1980, and I have thus seen firsthand how terrible and awesomely devastating a force of nature can be.
+- To me extremism is targeting endangered whales in a whale sanctuary in violation of a moratorium. That, to me, is extreme.
+- I've won some awards. 'Time' magazine designated me as one of the environmental heroes of the 20th century. Oh, and I've got some honorary citizenships, like from the Conch Republic of the Florida Keys. But the one thing I am proud of is I didn't get the Chevron environmental award. Never did get that one.
+- Killing a baby seal is about the easiest thing you can do if you're inclined to be sadistic; you certainly can't say there's any sport in it - the animal is totally defenceless.
+- There's money to be made by driving a species extinct.
+- As long as there is a Southern Ocean whale sanctuary, Sea Shepherd crew will continue to patrol and defend it.
+- There are quite a few disgruntled Greenpeacers who are opposed to its policy of non-cooperation.
+- Being lampooned on 'South Park' is hardly something to complain about. They brought the issue of the dolphin and whale slaughter by the Japanese to a very large audience. I could not really care less how I was portrayed.
+- We're close to losing our essential diversity. Look at our wheat crops - we rely on a handful of grain crops and plants that we've refined and bred over hundreds of years.
+- Sometimes going to jail is just the price you have to pay for social reform or social change.
+- I'm not pessimistic about anything.
+- My concern is not for the judicial system, but for the reality that the shark fin mafia of Costa Rica has a price on my head, and a Costa Rican prison would provide an excellent opportunity for someone to exercise this lethal contract against me.
+- There's no rest when you're on planetary duty.
+- The only thing scarier than Godzilla is Godzilla's lawyers.
+- Pete Bethune is a hero in New Zealand. He's a hero worldwide to people who want to see the end of whaling.
+- I always try to take the unexpected things and make them work for me.
+- I don't care if I put people off.
+- In Africa, the rangers shoot poachers.
+- The most powerful weapon in the world, as far as I'm concerned, is the camera.
+- Japan is a bully nation that takes what it wants and threatens any who oppose it.
+- Captain Falco saw the diminishment of biodiversity in our oceans over a span of nearly seven decades. He was dedicated to the protection of life and habitats in the sea. He was a legendary mariner, diver, oceanographer, and conservationist. The world is a better place because of him.
+- You don't get anywhere unless you've had a little bit of a complicated life.
+- The biggest predator of fish like cod is other fish - and seals keep fish like that in check.
+- I feel that people should have a license to have children, that they have proper education how to raise children. And that nobody should be allowed to be a parent unless they can prove that they are competent enough to be a parent.
+- Bluefin tuna is sort of like the cheetah of the ocean. It's the fastest fish. It's a warm-blooded fish. But it's got a $100,000 price tag on its head.
+- If we wipe out the fish, the oceans are going to die. If the oceans die, we die. We can't live on this planet with a dead ocean.
+- The Polynesians used to have a system where they proclaimed a fishing area as 'taboo.' If any fisherman was caught fishing in a taboo area, they would be killed. The Polynesians understand that the fish had to be given a chance to recover.
+- Does Greenpeace think it can stop whaling in Antarctica by publicly eating whale meat and declaring it delicious? What are these people thinking?
+- People say I manipulate the media. Well, duh. We live in a media culture, so why on earth wouldn't I?
+- Sea Shepherd is to terrorism what Groucho was to Marxism.
+- In December 2012, the U.S. 9th district court granted a temporary injunction to the Japanese whalers that ordered the Sea Shepherd Conservation Society U.S.A. to not approach within 500 yards of the whaling vessels.
+- My clients are the whales and the seals.
+- Immigration is one of the leading contributors to population growth.
+- I did not establish the Sea Shepherd Conservation Society as a protest organisation.
+- People are beginning to realize that we need to live in accordance with the law of ecology, the law of finite resources, and if we don't, we're going to go extinct.
+- Here's the thing: Nobody gets extradited for a crime where nobody's been hurt, where no property's been damaged.
+- Taiwan gives a lot of foreign aid to Costa Rica, so it looks like they are basically buying the right to fish, even though it's not legal.
+- I have known Farley Mowat all of my life, from reading his books as a child to becoming a close friend of his over the last three decades.
+- When I hear so-called professional journalists ask why we have celebrities speak for us and for the animals, the environment or social causes, I marvel at their denial of the rules of their own trade.
+- I was doing a talk show in Vancouver, and somebody called in a bomb threat to protest my violence, which I thought was pretty strange. We had to evacuate.
+- The fact is, Japan's whaling is illegal, so just because there is a natural disaster in Japan is no reason for us to stop opposing their illegal activities in the Southern Ocean.
+- I don't think you really have to retire from what you do.
+- I find it abhorrent to see a whale being slaughtered and do nothing but bear witness.
+- Sustainable fishing is a fraud. It's a marketing term that really means 'business as usual.'
+- We'll lose more species of plants and animals between 2000 and 2065 than we've lost in the last 65 million years. If we don't find answers to these problems, we're gonna be victims of this extinction event that we're at fault for.
+- I have actually led more expeditions to Antarctica than Scott, Amundsen, and Shackleton put together.
+- I feel that we have a responsibility to try to do everything we can to protect species, and the best way to do that is to uphold international conservation law.
+- No species is more important than others.
+- I wouldn't think I was successful if I didn't have just as many people hate me as support me.
+- Usually, environmental programs are not designed for a mainstream audience.
+- Nobody can legitimately claim to be a marine ecologist and conservationist while continuing to eat fish. It is the ultimate form of hypocrisy.
+- I've had a lot of disappointments. I think my biggest disappointment is the failure of elected officials to make good on their promises in regards to the environment or anything else, really. I have very little faith in politicians.
+- I'm thankful to have time to write.
+- No words can describe the personal liberation that heading seaward bestows upon me. In this aquatic realm, no man or woman is subject to the petty decrees of social bureaucracy.
+- Follow your dreams and use your natural-born talents and skills to make this a better world for tomorrow.
+- The only language that the Japanese whaling industry understands is economics.
+- Every fish in the ocean is in danger.
+- Spermaceti oil is valued for its high resistance to heat, and thus it is used in machinery where there is excessive heat.
+- I'm never horrible to anybody. My problem, and you can ask any of my friends, is that I'm too nice to everybody.
+- I used to swim with these beavers in a beaver pond when I was 10. I went back when I was 11 and found there were no more beavers. I found that trappers had taken them all, so I became quite angry, and that winter I began to walk the trap lines and free animals from the traps and destroy the traps.
+- People sometimes feel frustrated about what's going on in our oceans and environment, and 'Whale Wars' shows that ordinary people can take action and make things happen.
+- Actually, I never really look at myself as a real radical activist; I am more the conservative. I mean, the conservatives are trying to conserve; the radicals are destroying the planet.
+- I'm not really a fugitive.
+- The seal hunt has made me ashamed to be a Canadian.
+- The oceans are the last free place on the planet.
+- In 'Deadliest Catch,' we have men in ships in rough seas catching crabs. With 'Whale Wars,' we have men and women from a dozen different nations going out to sea in rough weather to help save the whales. We also have icebergs, whales, penguins, and dramatic ship-to-ship confrontations.
+- I would just say that nobody could do what I do unless you had a big ego. It's the only way you can really put it. You have to be arrogant enough to challenge the arrogance of the human race.
+- Greenpeace has a fast ship that could stop the whalers cold.
+- I will not watch a whale die. I've not seen a whale die since I left Greenpeace in 1977.
+- Whales are killed today to supply the limited demand for whale meat or to be used in pet foods or as fodder for fur-bearing animals used in the fur trade.
+- The Sea Shepherd Conservation Society recognizes that the deaths of four sealers is a tragedy, but Sea Shepherd also recognizes that the slaughter of hundreds of thousands of seal pups is an even greater tragedy.
+- I don't think that any government has a right to subvert the truth or to cover up the truth, and all I see WikiLeaks doing is exposing the truth.
+- We live on the most incredible planet, and yet we abuse it, and we abuse it mercilessly.
+- I have never suffered under any delusion that saving the whales in the Antarctic sanctuary would be easy, but the one thing I am certain of is that I and my passionate crew of international volunteers will never quit defending life in the seas from poachers, no matter what consequences we must endure to do so.
+- The Sea Shepherd crew is doing what governments should be doing, but refuse to do themselves, because of the threats of trade retaliation from Japan.
+- An American citizen is not going to be extradited to Japan for saving whales.

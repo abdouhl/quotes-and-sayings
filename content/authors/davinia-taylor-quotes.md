@@ -1,0 +1,25 @@
++++
+author = "Davinia Taylor"
+title = "Davinia Taylor Quotes"
+quotes_len = "19"
+description = "the best 19 Davinia Taylor Quotes"
++++
+- There's been a lot of lies written about me.
+- I sleep with castor oil and clingfilm wrapped around my stomach. It's amazingly slimming because it detoxes your system. I also regularly cleanse my liver.
+- I hate watching myself on TV.
+- I just want to focus on the positive things in my life.
+- I have this rule now that I keep people around me who I enjoy being with when I'm sober.
+- There are people who I still knock around with from the Primrose Hill set, but they have found sobriety, too, and are doing their own things.
+- I wish I'd heard about quickie divorce packs from Tesco's sooner.
+- I have no problem with people having plastic surgery. But I do find it bizarre we think it's OK for women to have a foreign body put into them just for the sake of looking like Pamela Anderson.
+- It's exciting being around people who are adults - I actually race out the door in the morning and shout, 'Bye!'
+- Trying to breast-feed gave me such a creepy feeling. It made me feel sick.
+- I will never drink again.
+- I feel like I've put my demons behind me.
+- When you're a full-time mum, you're constantly in that zone and doing breastfeeding and having a lot of boredom, too!
+- I was debauched in my 20s, but I was fit and healthy in my teens.
+- I'm thrilled to be going back into 'Hollyoaks' and bringing Jude back.
+- I was kind of lucky because I was fit and healthy when I was in my teens, got a bit wild in my 20s, and stopped round about my 30s.
+- Alcoholism is a complicated disease, and you never know when you'll be tempted to pick up another drink.
+- If I don't do high-intensity interval training classes for an hour every morning and yoga a few days a week, I get depressed.
+- You don't have to be famous to have problems on social media. It affects everyone, and it's on there forever, and the things you say when you're 15 are not necessarily what you'd say when you're 25 or 35.

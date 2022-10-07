@@ -1,0 +1,64 @@
++++
+author = "Gunna"
+title = "Gunna Quotes"
+quotes_len = "58"
+description = "the best 58 Gunna Quotes"
++++
+- Fashion is so important to me. I've always spoken about it in my music.
+- My family taught me about saving and how to stretch to make ends meet.
+- I'm gon' drip forever, but I'm not going to just focus on that. That's not going to be the title of all my albums.
+- I appreciate every blessing.
+- I just believe that in Atlanta, we're creative; we got a lot of styles out here.
+- Sometimes when you get in this game, you think that you're going to take off if you do a song with someone big. But that's not the truth. Everything with you got to be good - the visual, the push, the production.
+- I got my own merch company. I sell shirts, hats, hoodie, socks.
+- Everybody not gonna like what I wear, but a majority of people are.
+- I'm not sure people understand how important fashion is to me.
+- I always hung out with older people. I would be the youngest out of the crew.
+- I went through a lot, but as I went through it, I learned from the situations.
+- Somebody DM'd me like, 'Bruh, you remind me so much of Michael Jackson.' I was like, 'What? That's a bar.'
+- My favorite car is my Corvette.
+- I'm really chill.
+- When I seen myself on TV, it made me realize, 'You're doing what you really wanted to do. You're living out your dreams.'
+- When I heard my voice, like listen to myself playing it back-to-back, I just want to always perfect it.
+- I been doing music since I was 15 years old. I found it intriguing, just from liking and listening to music.
+- I got my own sound in Atlanta because I don't listen to anybody's music. When you listen to people's music, you start to say stuff they say as an artist because that's what you've been listening to. Me, I don't listen to anybody. I support, but I don't listen, because I don't want to run with someone style. I do my own thing.
+- I try to shop in every state that I go to.
+- I feel like my breakout moment had to have been when I dropped 'Drip Season 3.' I feel like it was just a real good body of music.
+- 'Drip Too Hard' - we knew that was the one.
+- I was best dressed in high school. I always spent my money on clothes.
+- I didn't have life that good coming up. I wasn't born with a lot of money. We weren't dirt poor, but we weren't rich. All I knew was struggle.
+- I feel like Turbo helped me grow. It's the way we just lock in. His mind is set to where he'll start making beats to my flow and my sound. He's not an engineer, but he knows how to record.
+- I would like to work with brands I personally love, like Haider Ackermann, Chanel, or Off-White, to even newer brands like Rhude and A-Cold-Wall. It's easier and more organic when you know and love the brand already.
+- I had a lot a favorite moments in 2018; I can't even pick one.
+- Drip is your attire, the clothes you wear.
+- I had to quit everything. I had to give it all for music.
+- I want to be a rap icon.
+- Drip is me. That's my signature.
+- I don't really like a lot of people's music.
+- It's hard, transitioning from one thing to another. That's with anything you do.
+- Keep going. Grind for what you want. Pray. Listen to your mama.
+- I've learned since 'Drip or Drown' that no one should care what people think. I learned that, after years of comments, it really doesn't matter.
+- 'Phase' is a special song to me, and I wanted the video to make you feel like you are on a journey with me. My team and I shot this video three different times, and every time I got it back, I wanted to go a step further.
+- Don't argue. We ain't doing that. What you going back and forth with somebody over anything for?
+- I just work hard, and when you work hard, a lot of stuff just starts happening for you.
+- What I have that's special in my music is substance. It's music that people can really relate to. I know I'm gonna rap something that somebody has already been through in their life, something that they will understand.
+- You got to be able to reinvent yourself and come up with new ideas because everybody is going to try to copy, which is what you want. You want people to start saying what you say.
+- 'Drip or Drown 2' is more me, more songs. I enhanced it more, even with the cover itself.
+- I put a lot of work for 'DS3.'
+- If I call you playing my music, you'll be like, 'Oh, that's Gunna.' Even on a song you ain't heard, you're gonna know my voice for singing. But if I call you on the phone - 'What's up? Are we still doing the interview today?' - you're not gonna know who this is.
+- You gotta be able to adapt.
+- I always like to dress up, you know what I'm saying? Put on nice, expensive clothes. But before it was even 'drip,' I used to be, like, 'swag.'
+- I try to be as humble as possible and try to project that to the world. But some people don't see that. They think I'm just in Atlanta spending money. But I try to be humble. I try to let the world know that I am still humble.
+- I just kind of, like, put stuff together. I don't really try to make it seem like a 'look.'
+- Me and Carti are both from the Southside of Atlanta. That's one of the main reasons that we clicked so well.
+- Don't let awards get the best of you.
+- Just keep going. You never know how far you can go.
+- I had to go broke for music.
+- We just speaking stuff into existence, on God.
+- If I could collaborate with any artist, I would want it to be like Marvin Gaye. Someone like who they wouldn't expect me to do a feature with, like, very iconic.
+- 'Drip' is just another word for swag. Swag was not our word - my era is drip; that's our swag.
+- God bless the dead.
+- I might wear a $10,000 outfit on a weekend, no cap.
+- Everybody's not gonna understand what I wear because they don't shop where I shop.
+- All my achievements have been great achievements. I have been collaborating with big names and making hits - like my song 'Yosemite' with Travis Scott.
+- It's like different moods, so whenever you in one mood, I got a song for that. And then you in a down or other type of mood where you really just wanna chill, I got that type of music, too.

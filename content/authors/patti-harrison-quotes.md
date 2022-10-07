@@ -1,0 +1,106 @@
++++
+author = "Patti Harrison"
+title = "Patti Harrison Quotes"
+quotes_len = "100"
+description = "the best 100 Patti Harrison Quotes"
++++
+- I'm from a town in Ohio called Orient.
+- I know that I'm very feminine and that I can pass in a lot of situations, but I think a lot of people's perceptions of me are also informed by my the pictures that I post online, which are as flattering as possible.
+- I've worked on things before where you don't really have a say in what you wear. You go in and they're like, 'You're wearing this,' and you're like, 'I'm like not comfortable showing that much skin.'
+- I don't think my relationship with the idea of womanhood is that attached to giving birth... like, I'm fully aware that I'll never give birth to a baby, and that's not something that I'm wrecked over.
+- We weren't without food, but there were times when it was definitely a strain. I ate a ton of Hot Pockets and SpaghettiOs and Totino's Pizza Rolls. I still enjoy those flavors.
+- I have a concealed carry, so I actually have a few guns that I keep. I keep them in my big, giant high-waisted fashion pants at all times, and I have two small pink pistols because I'm a woman.
+- I don't want to be solely a dramatic actor. It's such an important part of my quality of life to goof around and talk about my farts.
+- I don't even think Trump knows what transgender means. He probably thinks transgender people are those cars that turn into robots.
+- Being on camera has really rehashed a lot of old feelings, because I dealt with body dysmorphia for a long time.
+- And I mean, I watched all of 'Friends' in college. I liked it growing up, and it's a very nostalgic show for me.
+- A lot of the work I've been doing on camera has been me speaking on trans issues and illuminating things in a comedic way. That isn't the focus of my personal art, I guess, but it's a privilege for any artist to get to make stuff that isn't just about their oppression or strife or struggle.
+- There are so many rom-coms that I think are insane. But they're the kind of movies that I put on when I need something that I know isn't gonna horrify me before I go to sleep.
+- A lot of my comedy isn't necessarily about specific jokes but rather a wacky point of view that a super wacky character has.
+- If Ohio was a food, it would be Benadryl. If Chicago was pizza, Ohio is Benadryl, or some sort of generic over-the-counter.
+- I think there will always be a part of me that kind of fanboys out about action sci-fi.
+- Those are the frustrations in this industry - the boxes and the labels, where they say, 'You are this one thing and this is the only thing that makes you unique or viable. So just be trans. And here's a stamp on your forehead and all your characters will be wearing a fake mustache and saying, 'Dad, I want to wear pantyhose.'
+- I have to think about being transgender so much that it's kind of the most boring thing in the world to me.
+- I try and be as vulnerable in my comedy as possible, to open that door for other people.
+- Hopefully, we're moving toward a place where representation conversations won't have to happen so much because the playing field is more level.
+- I don't like to eat octopus. They're so smart.
+- A lot of what I say isn't my real thoughts, it's this character, and maybe that's true for a lot of comedians. It's really the inversion of my thoughts.
+- A lot of the stuff that I want to create personally is usually pretty absurd or silly comedy stuff.
+- I mean, there are things that I've experienced that I don't joke about because I'm just like, 'People don't really think it's funny that I had an eating disorder for a long time.' There are some things that just like really bum people out.
+- Truly, I have boundaries. I am someone who has a very, very, strong, amazing, powerful boundaries. I'm the boundary queen.
+- That's just my journey in life, to be the most creative and successful and talented person that ever lived.
+- I deal with body dysmorphia a lot, so it's always a process to see and hear myself on camera. I have to be in the right mental mode to not be hyper-critical of myself.
+- I have seen a billion rom-coms, but the majority I've been hate-watching on purpose, to laugh at them and not with them.
+- I want to make comedy that my mom will hate.
+- I think a lot of me trying to blend in was me co-opting the racism that was used against me in a way - being OK with it.
+- My dream is to get rich enough from an absolutely soul-disintegrating campaign where I sell my morals to buy a house in Ohio near my family.
+- The women that I worship all hit their stride in their 30s or 40s or after. And that's going to be for me, too.
+- I've thought about my relationship to my body, my body dysmorphia, and what that means as someone who's like, 'Oh, I'm going to be on camera.' Sometimes it makes my body dysmorphia worse, but I've also tried to not let my mental illness rob the joy of getting to do something I've always wanted to do.
+- Improv is really fun but it's a lot harder to show people your work if they don't come to your show. Something about the energy doesn't transfer on tape.
+- To me, it feels like every time I'm watching some trans story, it's about their grief around their gender. And there's not really a lot of opportunity for them to explore stories outside of that. It's just really frustrating. It's really one dimensional.
+- I feel like some of the delivery that people find funny is literally me trying to remember the exact line in real time.
+- I'm always afraid to talk about stuff because I'm afraid to get ahead of myself or jinx something.
+- The more money that's involved in something, it's usually because there are more hands involved. There are more interests to serve.
+- I just want people to know that. I'm not trying to make space for other trans women.
+- But when I'm nervous, I deflect a lot and it's very easy to fill the space with jokes.
+- If you constantly draw attention to yourself, spend all day distracting everyone, and cost taxpayers millions of dollars, the perfect job for you isn't the military - it's the President of the United States.
+- That's always been really funny to me - someone who really stridently believes that they're right when they're so wrong in, like, the worst way. Not only do they believe that they're right, but they believe that everyone thinks that they're right, and are comfortable with that.
+- I think my relationship with social media has changed so much that I really resent social media now. And I'm trying to figure out what a successful exit strategy is as someone who has gotten a lot of opportunities because of social media and how it's given me a portfolio.
+- Voiceover stuff is always so fun. It's very easy to do.
+- I like to make up my own lines and dress myself and act like myself and no other characters.
+- A lot of what I think is funny is usually through some sort of character, or speaking earnestly one second and then saying something obviously joking.
+- I literally never thought I would be playing a pregnant cis woman earnestly. I thought maybe I'd do that in a sketch or something.
+- I shouldn't tell anyone that I can't drive or cook.
+- I think I identify as a comedian before kind of anything else. Before I identify as a person, as a human being with empathy.
+- I haven't been in a million things. And most of them have been really small, or guest parts.
+- It seems so simple to me. Just let people act and go up for roles, and stop pigeonholing people.
+- We need to afford people from minority groups and marginalized communities the chance to inhabit spaces they're often held out of because of stereotyping.
+- I don't think I ever want to just leave comedy and become a straight dramatic actor. But if the opportunity comes, I would love to be seen as universally talented in all trades.
+- I have dogs at home in Ohio, so it's always nice to see them and just be a lump and collect dog hair and dead skin cells.
+- There is this awkward discomfort when you're doing comedy on camera because people aren't allowed to laugh so that they can get a clean take and you're doing the same thing over and over again.
+- Transgender issues, and LGBT issues generally, have entered the public conversation on a national level, so there's more need to find people to talk about them. Which I think is great! I like to do that, and I think it's important and necessary, but hopefully there will be a day where I don't have to keep talking about it.
+- Not all representation is good representation. I would argue a lot of the marginalized representation in TV and media is off, because a lot of the gatekeepers are white straight cis people who mean well and they think meaning well is enough, and it's not.
+- I don't feel like I thrive doing livestream comedy, per se. It really triggers a lot of little neuroses that I have about performing and it's not conducive to me to do a good job.
+- I started doing comedy because it was an escape for me.
+- There were times I had body dysmorphia issues.
+- I have a hard time describing myself as a standup comedian because I don't feel like I'm doing stand up jokes more than I am acting like a person who has a bad point of view.
+- I think I have more fun making jokes online and making stupid Instagram videos than I do in my real life, on stage.
+- San Francisco is like, the most expensive city to live in, in the United States.
+- My character was in 'Raya and the Last Dragon' for a second, but that's a win for all trans-kind.
+- Animation has revitalized a part of my brain that says, 'Oh yeah, I do like doing this. This is fun.'
+- I would say that I'm not a fan at all of Woody Allen's.
+- I'm sorry, I see everything in life as a song, so every word spoken is lyrics. If you're going to get to know me, that is something you have to be okay with.
+- 'Together Together' is at its core a spiritual companion piece to 'Mortal Kombat.' So if you're seeing 'Mortal Kombat,' I hope you're also seeing 'Together Together' 'cause they are very similar films.
+- Before I transitioned, I felt like I could walk on stage and just, like, say anything and people would just laugh. And that's kind of a privilege that I just lost through the layers of social context and me being visibly a political object in a lot of people's brains.
+- I perform in spaces that are very inclusive and protective.
+- There are very few moments in my life where I feel normalcy.
+- Now, I don't know if we're at a place where we can see a nuanced transgender villain, because unless it can be written in a way that their transness is not the cause of them being evil, I don't think a lot of cis screenwriters are willing to do that. It's all through their lens of assumptions.
+- One time I watched my sister eat a raw potato with peanut butter on it.
+- I can still advocate for a marginalized community, while also thinking dog humping is really funny.
+- If someone writes a stereotyped trans character, it's really harmful on a macro level in solidifying public perception of trans people because we're such a small minority group but it's also detrimental to the life of the actor, who needs the paycheck even if the role is bad.
+- I feel like my timeline has moved so many times in my brain. I used to be like, 'Maybe like 30' because that's when my older sister had her first kid. Now that I'm 30, I'm like, 'I don't want to have a baby in a long time!'
+- I'm sure I would still have anxiety even if I got a bunch of surgery, and was the most conventionally attractive, cis-passing woman in the world; I think those are traumas that never go away.
+- I want to see what my opportunities are, of course. And I want to see how high things go. But I also just ultimately have the most fun when I'm making stuff that I feel like makes me laugh.
+- If you have a soft chin you can write an amazing song about me that involves an alien from my favorite movie, and then I'm yours.
+- It's like, whether or not you're humiliated or embarrassed or you do well is contingent on the choices that you make in your work. So that is a lot of pressure to be like, 'Oh no, am I doing the right thing? Am I doing something cool? Am I doing something bad?'
+- I was super, super into Pokemon.
+- It's fun to gossip and stuff. But once it's millions of people - the scale of that, I think, is more damaging to the health of the people that are getting speculated about.
+- There's like a little bit of a narcissism - I think there's more than a little bit of narcissism about it, but it's just that you can become so anxious and self-obsessive about whether this thing that I'm writing is good; is this joke that I'm making good?
+- I've been pretty open to just seeing what my opportunities are and what comes my way.
+- Cisgender people tend to want trans stories of triumph that are easy to metabolize. I want to make things that are subversive and not so entry-level.
+- I definitely have a dark sense of humor, and in ways I think that comes from having a lot of childhood trauma - a little bit, not fully.
+- It seems like studios and networks only greenlight stuff that has familiarity to them. If you can be like, 'Oh, it's 'Workaholics,' but it's Asian girls,' they're like, 'Yeah, we've got it. We know exactly what the show is. It's greenlit.'
+- And like, I think when I was 14, I was like, OK, I'm going to go to college. I'm going to get out of college when I'm, like, 21, 22, then I'm going to get married. Then, I'm going to, like, be, like, rock star-musician-scientist.
+- People assume because you're a comedian that you want to be an actor or that you want to be a writer too. It is a very cool kind of open-ended place to enter because I don't know if I ever really imagined myself working in a writers room or acting in that capacity.
+- I didn't know if I was going to go into acting more, or kind of lean into TV writing or comedy.
+- For the most part, there's not a ton of out and working trans comedians, or people who are visible.
+- I feel like I'm just pretty - any time I have, like, a lot of emotions happening at one time, I just - everything gets really, like, muddy. Like, I feel just, like, in a haze or something.
+- Coming out of 'Shrill,' depending on who's directing, they'll let you ad lib sometimes, you can pitch ideas if you have them.
+- There aren't a ton of trans people in general, so in any vocation there's probably not going to be a ton of trans people. So I've been thinking about what me doing stand-up or me doing comedy means in terms of representation.
+- I think it's probably a normal dream for an actor to be like, 'My movie's premiered at Sundance!'
+- I love coverage. My ideal dress would be a turtleneck that goes all the way up to my chin, and then sleeves that go past my fingers. And then the dress goes all the way to the floor, and you see the very tips of my toes.
+- Growing up we used to put Saltines in a bowl with milk and dump a bunch of sugar on it and eat it as cereal.
+- My mom is pretty unimpressed by everything. She loves black-and-white movies, and the only things she watches in color on T.V. are Judge Judy and Geico commercials because she loves the Geico gecko. I think it would mean something to her if I made it in a Geico commercial.
+- My solo stuff for live shows is very meandering. I write a lot of slower bits that give me room to improvise and play with a character.
+- It's really cool to read feedback. I'm trying not to engage too much, though, because I spiral out even if the reviews are, like... positive.
+- A lot of people tweet me things like, 'My 3-year-old son is trans and you inspire us.'

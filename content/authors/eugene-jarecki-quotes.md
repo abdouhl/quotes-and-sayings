@@ -1,0 +1,40 @@
++++
+author = "Eugene Jarecki"
+title = "Eugene Jarecki Quotes"
+quotes_len = "34"
+description = "the best 34 Eugene Jarecki Quotes"
++++
+- We come out of Jewish-refugee, Holocaust stock, which means that our predecessors fled and we learned that systems of power are vulnerable to corruption and can treat the defenseless in a destructive fashion.
+- The prison industrial complex is perhaps, at least domestically, the most striking example of us putting profit before people. It all stems from one basic misunderstanding: that the public good can be shepherded by private interests.
+- If we went back to the imprisonment rate we had in the early '70s, something like four out of five people employed in the prison industry would lose their jobs. That's what you're up against.
+- My father left Nazi Germany a year after Dr. Kissinger, and so in my household he was very much an icon. He was a kind of immigrant success story, a refugee success story.
+- Ronald Reagan, whatever his pros and cons were, was a public servant in the end.
+- The Tea Party is a group that rejects deep thinking, it rejects the very complex analysis that is involved in public policy, it rejects the kind of textured decision-making that Ronald Reagan prided himself on.
+- As I was growing up, you know, I'm a white Jewish American born to Holocaust parents. My father fled Nazi Germany in 1939 and my mother's family had fled the czars of Russia before that.
+- It was natural to see the struggle for dignity for black people in America as a sister struggle of the Jewish struggle. So growing up, it was always a part of my breakfast cereal to think of myself as someone who was part of a larger struggle.
+- You can call me an Eisenhower Republican. There is a gigantic gulf between an Eisenhower Republican and the kind of fringe brand of Republicanism that is being so vocally promoted today.
+- Reagan himself, for much of his life, was devoted against the elites. His antagonism to the Soviet Union is antagonism against oppression by the elites of the many.
+- Ronald Reagan's legacy is deeply misunderstood because there are political actors in America who, for several reasons, have privately held agendas that they want to sell to the American public in the most appealing way possible. They often find the best way to do that is to package their product with the Reagan brand.
+- The whole idea of a democracy is that we ourselves, the people, are supposed to make a path of our politics, and it is we who with our feet and our vote and our labors and our vigilance are supposed to shape our country.
+- Ron Reagan amazingly qualifies as an honest broker. I asked him if he was a mama's boy and he said no, more of a papa's boy. At the same time he was willing to say that his father had many shortcomings and needed to be held accountable.
+- Ronald Reagan felt very great regret about the deficits to which he contributed on his watch.
+- It is only education and understanding of the past that teaches us not to repeat history.
+- Ronald Reagan had many fine qualities and he had many shortcomings. He's not the simple, folksy figure that he's often portrayed as.
+- Reaganism as a political movement has enormous resources behind it and it seeks - through stagecraft and through a tremendous level of effort toward propaganda - to present an image of Reagan that is so much larger-than-life that it sort of blinds us all, and keeps us all in a warm, happy, nostalgic state, thinking of a man who can do no wrong.
+- I have criticisms of Ronald Reagan, but he lives in another universe from the kind of political theater that is represented by people, like Sarah Palin, who aren't really public servants.
+- Reagan has very significant things to teach us - positive lessons and quite negative lessons.
+- I don't think Reagan is primarily funny, and I don't think he's primarily marvelous; he's complicated.
+- The big lesson of Reagan is: To think that he was some sort of simple figurehead and didn't do the thinking and simply read a script in front of him woefully underestimates him. Ronald Reagan was an extremely intelligent person with a real V8 engine under his hood.
+- His track record of pragmatism, depth and candor all speak to a person who would find the Tea Party simplistic, opportunistic and misguided. Reagan was surrounded by some very smart people who gave him very sound advice. They were not wondering where certain countries are on the map.
+- If you watch the evening news, Dr. Kissinger is very often brought on to sort of be the statesman of his age and to reflect dispassionately on world events. And so a film challenging his legacy, a film that assesses charges that are quite grave against him, is something that is touchy for the media to show.
+- It was widespread that the politics of Tea Party people would be foreign to Ronald Reagan and they would be seen by him as frivolous and uninformed.
+- I mean, like a lot of kids growing up in the early seventies, I was fed Dr. Kissinger with my Fruit Loops. He was the Dr. Ruth of American foreign policy, and the model statesman.
+- The thing that happens is that politicians run on tough-on-crime rhetoric. You appeal to the public and say, 'Let's put more money into taller fences, tougher laws, tougher sentencing, handcuffs,' and where does that money come from? Well, immediately, it comes out of all the money needed for corrections.
+- You can't have a discussion about politics without mentioning Ronald Reagan.
+- War is party-blind. It doesn't care who is in the Oval Office. The forces that drive us to war don't care whether it's Republican, Democrat, or other. The fact is, these parties are prey to special interests. That is something Eisenhower was afraid of.
+- There are people who are trying to advance themselves by wrapping themselves in Reagan.
+- Elites are once again invoking Reagan, dropping their G's and saying things in a folksy sort of way that's meant to capture the hearts of people. And it's all fraud; it's all stagecraft. And people are falling for a great deal of elite behavior in this country packaged as if it's proletariat behavior.
+- Reagan is held up to us as an example of never raising taxes. Correction: Reagan raised taxes six of his eight years as president. Why? He was a pragmatist, not doctrinaire. He saw problems emerging, and when his policies faltered he changed his views. Flexibility, not rigidity.
+- The prison industrial complex, to put it in its crassest term, is a system of industrial mass incarceration. So there's what you call bureaucratic thrust behind it. It's hard to shut off because politicians rely upon the steady flow of jobs to their district that the prison system and its related industries promise.
+- To say that Reagan teaches us that we should be against amnesty for illegal immigrants is to contradict what Reagan himself stood for - that he was in favor of amnesty.
+- He presented himself as the friend to Main Street America, and yet that aw-shucks persona ended up packaging policies and programs that were at times deeply injurious to the very people he swore to serve. After all, Reaganomics set in motion one of the largest wealth redistributions in American history, away from the poor and toward the rich.

@@ -1,0 +1,75 @@
++++
+author = "Phil Neville"
+title = "Phil Neville Quotes"
+quotes_len = "69"
+description = "the best 69 Phil Neville Quotes"
++++
+- Before I retired, I had agreed to join the BBC to work as a pundit, with my contract beginning at the start of the 2014/15 season.
+- It's our English mentality to worry about the weather.
+- I always say I'll rest when I die - that's my motto. I just hope I don't die before the World Cup!
+- I'll definitely play cricket again, but only socially. I've still got a lot of friends at my local team, Green Mount, and I do miss playing, but I don't regret anything.
+- I'd been coaching since the end of my playing career, first with England's Under 21s, then Manchester United, and finally, in Spain with Valencia.
+- If Jose Mourinho came to Man United, you would think, with his track record, that in maybe three seasons he would be gone. Man United are looking at the next 20 years. They've just given David Moyes a six-year contract. It is that kind of club.
+- When it came to Sociedad, I didn't want to come back into football so soon after the Manchester United experience.
+- There has always been an inner self-motivation for me. Mine goes back to my United days of us against the world and proving everyone wrong.
+- I don't think football management is easy.
+- The most important thing is to be successful on the field. Being second in the world is an unbelievable achievement. But for me, as a coach, you want to be the best - you get nothing for being second. We want to be the best in our field.
+- To be a manager, you've got to gamble. Be brave, be bold, but be humble in everything that you do, and from the kit man to the physio to your best player to your youngest player, make sure you treat everybody the same.
+- I played for England at cricket and football. Playing at Wembley in front of 60,000 people seemed better than playing at Cirencester in front of my family and friends.
+- I do my best thinking when I'm out running. When I'm out in the hills around Manchester, that's when my head clears. That's when I think about the things I'm going to say to my players in the biggest moments.
+- I want to be part of Man United's future. I'm a Man United person.
+- Punditry has taken me across the world, it is wonderful to have interaction with new people, and it's a very small world now. I've worked for companies in the Middle East, America, and Europe.
+- I've been the captain of a Premier League club, and I've coached some of the best players in the world.
+- I have got two paths - one to go into the media, the other to go into coaching and management. I have got offers from both.
+- I've always had a good relationship with the BBC, and I'd enjoyed the freedom that goes hand in hand with punditry, so it was ideal for me.
+- People make a big thing about rankings, but being first or second in the world doesn't mean much if you don't actually win anything.
+- I wanted success. I was ambitious. I didn't leave United to see out my career picking up wages.
+- I've proved I'm in love with the women's game, and I think the quality is unbelievable.
+- It's not science; it's common sense: it's playing the right players in the right positions for the style of football you want to implement in a specific game.
+- I had a good football intelligence. I didn't need 10 games to get used to a position. I could go out and do a job.
+- Modern-day coaching is about relationships, so I need to know every little thing that will make my players tick. How am I going to get more out of our best players, from Fran Kirby, Lucy Bronze? Lucy wants to be challenged. If you tell her she can't do something, she'll try it.
+- We pick players on their profiles. Over the years, I've learned that, if you have one cog that's not quite right in the system, that flow of how you want to play can't work.
+- I took the job at United fully expecting to be walking around after the last home game of the season either challenging for a league title or parading a league title because that's what this club demands.
+- I wanted a new experience, to learn another language. I wanted to be different. I wanted people to realise I'm taking my coaching career very seriously. I wanted to create my own pathway.
+- At the end of the day, if I'm playing for a manager who I know cares about me, then I'm going to give more.
+- I don't want to rush into retirement and regret it, because people say play as long as possible until the legs can't take any more.
+- The SheBelieves was my big moment, my big breakthrough. We had to get on that platform, hold that trophy, and have that medal around our necks.
+- The pressure will always be there at United, and David Moyes will have to win games and win trophies. He will do that.
+- I love positivity. I'm always saying, 'Well done' - maybe too often, in fact.
+- From facing a manager for the past 16 years to suddenly being the one person everyone is looking at is a daunting prospect. It's something I want to be prepared for. If I get the opportunity, I don't want to let myself down.
+- I know every part of their lives. I know about their animals; if they've got a dog, I know its name. My players love their dogs. I know about their partners; I know if they go to the cinema - it's the detail you need to be successful. If they have an ice cream, I know about it.
+- It's part of the captain's job to keep people on their toes.
+- The biggest thing I will miss is 4 July when Everton are due back for pre-season training. I loved that day. I lived for it, getting back with the lads.
+- There's no shortcut to being a manager or coach.
+- A takeover or a player doing something wrong can take the focus away from what the most important thing is, which is to play football.
+- The common vision is winning - and winning a World Cup. We have a three-year plan - win the World Cup, win the Olympics, win the Euros - and the common agreement is you want to create a legacy and win the World Cup; then, everything else falls into place.
+- My sister is one of the best netball players England's ever produced, and she is now England manager. Almost every day, we sit round the table; we talk about what she's done in her job, how she's dealt with players. I've followed her pathway.
+- There is this preconceived idea that I would follow the likes of Michael Owen, Jamie Carragher, and Gary into the media because it's a really good life. But football is my life.
+- I came out with a few plaudits, and I don't really enjoy that because I am a team player. I don't shout about myself, and I've always been team-orientated, so maybe that is why I have always slipped under the radar throughout my career.
+- Management is all-encompassing. That's something I've learned since starting this job. I find it very difficult to switch off. I can be at the cinema or out for a meal with my wife, and I'm thinking constantly about what my players are doing.
+- I want to widen the pool. In the past, England players have maybe had the comfort of knowing what the next squad is going to be before it's announced, but I'd like there to be more uncertainty. More competition for places means the standard goes up.
+- It's a great club, Everton. You don't just go there to work; you have to be part of the family.
+- One of the main things I said in my job interview was that I want to develop female coaches.
+- When you come up against a big, powerful football nation, you are playing against history. When you talk about street football, you are talking about South American players who have grown up with nothing.
+- Towards the end of my career, I was thinking about going into the media world. It's crucial: with three to four years left in the game, you begin to plan for the end.
+- I'm going to prove I can coach in the women's game and prove I can manage an England team to success.
+- Whether you're male or female, going to a World Cup is the biggest thing that will ever happen in your life.
+- Rankings aren't that important to me. I want a winners' medal.
+- Our style of play is non-negotiable, but we also have to become ruthless serial winners.
+- Within 10 minutes of a WSL game finishing, virtually ever player gets feedback on their performances in terms of England-level requirements.
+- People leave United and tend to drift out of the game. I actually think I became a better player and a better person. I proved a lot of doubters wrong.
+- Me going out 25 minutes early onto the training ground to practise wasn't me being teacher's pet. That is what I have done throughout my career.
+- As a manager, you can only worry about those who can get on the bus, and those are the fit ones. Injuries and illnesses mean opportunities for others.
+- My expectation levels are probably higher than what's achievable. But I have to keep pushing the standards.
+- I'm working with elite players, and they test and challenge you.
+- I'd watched games in the WSL because my son was at Manchester City, and obviously, they have a fantastic facility there, so when I used to go and pick him up, there were games on that I'd watch.
+- My passion is coaching, and I see myself more as a head coach with a more continental approach, in charge of football, running the training programme, the players.
+- When you talk about the ambition to get more girls to play at a younger age, they are inspired by watching Toni Duggan and Steph Houghton playing, either live or by watching it on television.
+- I didn't win a trophy with Everton, but that time is just as special as my playing career at United.
+- I was approached by Sue Campbell to give my thoughts on whether I'd be interested in being the next head coach of the women's national team. Straight away, I was unbelievably excited and honoured to be approached by Sue.
+- I always want and expect more from players; they need challenging.
+- When I went to Spain two years ago, I only knew three Valencia players. I didn't know anything about La Liga, and within six months, I knew everything. I was speaking another language and knew everything about the game, so I am a fast learner.
+- I could play anywhere. I played everywhere on the pitch for United, apart from No. 9 or keeper.
+- When I'm retired, I want to be able to tell my kids I played in a European Cup final. I don't want to have to say I watched one from the substitutes' bench, then kept getting knocked out in the quarters and semis.
+- I've played in successful sides, and you smell it. When dinner finishes at 7:45 P.M., and you're playing in an unsuccessful side, everyone goes up to their own room.
+- I won the league at Middlesbrough with Manchester United, and I wore my medal for the next two or three days because I thought, 'I want this again - and the best want it again and again'.

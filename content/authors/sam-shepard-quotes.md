@@ -1,0 +1,127 @@
++++
+author = "Sam Shepard"
+title = "Sam Shepard Quotes"
+quotes_len = "121"
+description = "the best 121 Sam Shepard Quotes"
++++
+- With acting, you can find a way to make it interesting for yourself, if nobody else - even on big-budget films. But you're very much on your own.
+- I think most writers, in a sense, have this desire to disappear, to be absolutely anonymous, to be removed in some way: that comes out of the need to be a writer.
+- A lot of American playwrights seem to have a career as a playwright. I don't consider it a career at all.
+- Hats look exactly the same. There's no difference between The Writing Hat and The Acting Hat.
+- Writing for the theatre is so different to writing for anything else. Because what you write is eventually going to be spoken. That's why I think so many really powerful novelists can't write a play - because they don't understand that it's spoken - that it hits the air. They don't get that.
+- I keep endlessly busy with all kinds of stuff, mostly horses, cattle, livestock, things like that.
+- Directing feels great; I'm really happy to be doing this.
+- You sometimes use the excuse, 'I'm a writer, dammit, I can do anything I want,' but that doesn't work.
+- All of the great writers whom I admire have died. I guess the most recent one would be Marquez.
+- I always thought the desert was the antithesis of peace - something that attacks you. So you don't go to the desert for peace.
+- I know, as an actor, you have to negotiate, but I can't handle the whole idea that art and commerce are synonymous. It drives me nuts.
+- I remember, as a kid, going into other people's houses. Everything was different. The smells in the kitchen were different; the clothing was different. That bothered me. There's something very mysterious about other families and the way they function.
+- The wonderful thing about writing for theatre is you can go anywhere you want with the language. There are no limits. With film, they frown on language - it's always 'Too many words.'
+- Myth is a powerful medium because it talks to the emotions and not the head. It moves us into an area of mystery.
+- I think without writing I would feel completely useless.
+- When I was a kid, we didn't have a TV until the late '50s, but I can remember watching Hopalong Cassidy, Roy Rogers, Steve McQueen, and 'Gunsmoke.'
+- It's funny, in a way the actor is a writer. It's not like the two things are so separate as to be like apples and oranges. The writer and the actor are one.
+- I think Bolano had a generosity about him that was unique. He seemed to include so many people in the circle of his adventures, whereas I felt like I was pretty selfish.
+- There's no way to escape the fact that we've grown up in a violent culture, we just can't get away from it, it's part of our heritage. I think part of it is that we've always felt somewhat helpless in the face of this vast continent. Helplessness is answered in many ways, but one of them is violence.
+- I never considered myself a movie star, and I didn't want to become a movie star, because as soon as you do, you throw away that possibility of playing character. You really do. All of a sudden you're just an entity, you know?
+- I think a part of the reason that those early plays were short was that I just kept having these ideas, and I'd just go off and write them. I wasn't trying to write one-act plays - it's just how the ideas would be expressed. Every condition I was in seemed like it could be a play.
+- I feel like the writers that I'm drawn to, the writers that I really cling to, are the writers who seem to be writing out of a desperate act. It's like their writing is part of a survival kit. Those are the writers that I just absolutely cherish and carry with me everywhere I go.
+- A good actor always sets you straight. If you've written a false moment and thought it was probably pretty great, the actor's gonna show you when he gets to that moment. They're the great test of the validity of the material.
+- I never thought about having a daughter, and then I had a daughter, and it was a remarkable thing. It was very different from having a son and your response to it. With a son, it's much more complex. And it's probably because of my stuff in the past. With a daughter, I was surprised at how simple it is.
+- Why would you want to be be counseled in your grief? It's too private.
+- My old man tried to force on me a notion of what it was to be a 'man.' And it destroyed my dad.
+- There are places where writing is acting and acting is writing. I'm not so interested in the divisions. I'm interested in the way things cross over.
+- I guess what I like is mostly country & western or else stuff that has a real blues feel to it.
+- I'm not in demand. I'm all washed up.
+- I don't get offered leading parts. I suppose I've become a kind of character actor or sideman. I think it had to do with probably in the '90s, I refused so many leading roles that they gave up on me, or I just became unpopular, or I became old. All those reasons.
+- All good writing comes out of aloneness.
+- To me, a strong sense of self isn't believing in a lot.
+- I'm inhabiting a life I'm not supposed to be in... and at certain times in my life, I have felt a wrongness. And not a moral wrongness but a sense that this isn't what I was born to be doing.
+- I don't attend costume parties.
+- On every film, there are producers all over the place, and everyone's got to have an opinion. I think the screenplay is a beautiful form with great potential, but the environment around it is awful for a writer.
+- I feel like I've never had a home, you know? I feel related to the country, to this country, and yet I don't know exactly where I fit in... There's always this kind of nostalgia for a place, a place where you can reckon with yourself.
+- To sit on a ranch horse that's been broken in, it's like getting in a Porsche.
+- I've been so spoiled in the theater, writing plays where I can just do exactly what I want and nobody messes with me.
+- I've always found it embarrassing to receive awards.
+- I have a cellphone, but I have no Google, I have no gaggle.
+- It's very difficult to escape your background. You know, I don't think it's necessary to even try to escape it. More and more, I start to think that it's necessary to see exactly what it is that you inherited on both ends of the stick: your timidity, your courage, your self-deceit, and your honesty - and all the rest of it.
+- After the falling out with my father, I worked on a couple of ranches - thoroughbred layup farms, actually - out toward Chino, California. That was fine for a little while, but I wanted to get out completely, and twenty miles away wasn't far enough.
+- I feel very lucky and privileged to be a writer. I feel lucky in the sense that I can branch out into prose and tell different kinds of stories and stuff. But being a writer is so great because you're literally not dependent on anybody.
+- I'm not put off so much by first-time directors if the script is great. If the script isn't there, I'm not there.
+- I'm not denying that it's exciting to have a play on Broadway.
+- It's very easy to lose language - it can be shut off in a second.
+- The thing about American writers is that, as a group, they get stuck in the same idea: that we're a continent and the world falls away after us. And it's just nonsense.
+- I didn't go out of my way to get into this movie stuff. I think of myself as a writer.
+- On stage, you're not limited at all because you're free in language: language is the source of the imagination. You can travel farther in language than you can in any film.
+- I'm extremely grateful that I found writing, but it doesn't make it any more peaceful.
+- I got to New York when I was eighteen. I was knocking around, trying to be an actor, writer, musician, whatever happened.
+- My dad was a kind of semiprofessional Dixieland-type drummer, and I learned the drums from him. When I was about twelve, we bought our first Ludwig drum set from a pawnshop - a marching-band bass drum, great big tom-toms, and big, deep snare drums.
+- I love Levon Helm - he's one of my favorite guys.
+- When you listen intensely to anything, you see how it can be improved.
+- It's one of the great tragedies of our contemporary life in America, that families fall apart. Almost everybody has that in common.
+- I've been into horses as far back as I can remember. There is a particular kind here in America called the 'quarter horse' that I'm very interested in.
+- It's my private life, and it's not up for grabs.
+- I try not to be in situations where I'm being grabbed at. For the most part, you can avoid them.
+- Sides are being divided now. It's very obvious. So if you're on the other side of the fence, you're suddenly anti-American. It's breeding fear of being on the wrong side.
+- Guys like Clyde McPhatter used to sing their tail ends off!
+- My son, Walker, has a band called The Dust Busters. You know, he plays banjo, fiddle, guitar, and mandolin, so a lot of my interest in that kind of music comes from him constantly listening to this stuff. He's taught me the history of it. It's remarkable how these young kids are now turned on to more traditional old-time music.
+- Democracy's a very fragile thing. You have to take care of democracy. As soon as you stop being responsible to it and allow it to turn into scare tactics, it's no longer democracy, is it? It's something else. It may be an inch away from totalitarianism.
+- I'm still very much a believer in the spontaneity of certain kinds of writing. But then you have to eventually, when you're writing a long play, make adjustments along the way - all kinds of adjustments.
+- I still find it hard to believe that the whole era of jazz is over.
+- For me, playwriting is and has always been like making a chair. Your concerns are balance, form, timing, lights, space, music. If you don't have these essentials, you might as well be writing a theoretical essay, not a play.
+- I think comedy's harder to pull off on the screen than on the stage, anyway. Tragedy is easier on the screen... oddly enough.
+- Grief is bizarre territory because there's no predicting how long it'll take to get over certain things. You just don't know how long it's going to resound in your life.
+- In real life we don't know what's going to happen next. So how can you be that way on a stage? Being alive to the possibility of not knowing exactly how everything is going to happen next - if you can find places to have that happen onstage, it can resonate with an experience of living.
+- I don't belong much anywhere.
+- Hollywood is geared toward teenage idiocy.
+- Dialogue is like jazz. Dialogue is creative.
+- I see a lot of scripts, and very few of them leap off the page at you.
+- When I first started in film, I was terrified of the camera.
+- Men lie all the time.
+- I've always felt a great affinity with music. I've felt myself to be more of a musician than anything else, though I'm not proficient in any one instrument. But I think I have a musical sense of things... and writing seems to me to be a musical experience - rhythmically and in many other ways.
+- What I like most about Bolano is his courage.
+- You can't make a living as a playwright. You can barely scrape by.
+- I feel like I'm a natural-born playwright, but the prose thing has always mystified me. How to keep it going? How do people do it, for years and years?
+- More than anything, falling in love causes a certain female thing in a man to manifest, oddly enough.
+- I'm a writer. The more I act, the more resistance I have to it. If you accept work in a movie, you accept to be entrapped for a certain part of time, but you know you're getting out. I'm also earning enough to keep my horses, buying some time to write.
+- I am always relaxed.
+- I find the whole situation of confronting an audience terrifying.
+- You can write 16 plays and not make as much money as you did doing one movie.
+- Personality is everything that's false in a human: everything that's been added on to him and contrived.
+- I basically live out of my truck - I mean from place to place. I feel more at home in my truck than just about anywhere, which is a sad thing to say, but it's true.
+- Careers don't interest me. The only thing that interests me is continuing to be a poet on one level or another, whether acting or writing or directing.
+- When I first started, I didn't really know how to structure a play.
+- People are starved for the truth, and when something comes along that even looks like the truth, people will latch onto it because everything's so false.
+- I stay away from heavy-handed stuff, the good guy and the bad guy. It just doesn't interest me; all it does is create more fences between people, I think.
+- I had two experiences with very close friends of mine who experienced aphasia, the loss of language. It shocked me.
+- The great thing for me, now, is that writing has become more and more interesting. Not just as a craft but as a way into things that are not described. It's a thing of discovering. That's when writing is really working. You're on the trail of something, and you don't quite know what it is.
+- My dad had a lot of bad luck. You could see his suffering, his terrible suffering, living a life that was disappointing and looking for another one.
+- Film acting is really the trick of doing moments. You rarely do a take that lasts more than 20 seconds. You really earn your spurs acting onstage. I needed to do that for myself. I would hate to say at the end of everything that I never did a stage play.
+- When you write a play, you work out like a musician on a piece of music. You find all the rhythms and the melody and the harmonies and take them as they come.
+- Film is anti-language.
+- Writing for theatre is certainly different to writing an essay or any other kind of fiction or prose: it's physical. You're also telling a story, but sometimes the story isn't exactly what you intend; maybe you uncover something you had no idea you were going to uncover.
+- When you're 19 and writing plays, you think every actor is full of it. They just can't handle your brilliant material.
+- You don't have to do anything in the movies. You just sit there. Well, that's not entirely true. You do less.
+- More than any other art form I know of in America, country music speaks of the true relationship between the American male and the American female... Terrible and impossible.
+- I wrote 'Buried Child' in a trailer at an old ranch house we had in California.
+- In many of my plays, there was a kind of autobiographical character in the form of a son or young man.
+- People are starved for a way of life - they're hunting for a way to be or to act toward the world.
+- I keep my horses out in the open, but when I was working the ranches, I had to clean the stalls. It was a horrible job.
+- If you start trying to figure out yourself from the image everyone has of you, you run into a dead end.
+- I'm a great believer in chaos. I don't believe that you start with a formula and then you fulfill the formula. Chaos is a much better instigator, because we live in chaos - we don't live in a rigorous form.
+- It's really great to see an actor find himself, in his sojourn.
+- What I'm after is something different than supplying people with the idea that I'm writing an important play.
+- They say TV has a tendency to diminish actors, and I think that's probably true in the long run - it wears on 'em like bad dental work - but Cheech doesn't show any of the signs of being damaged that way. And as a man, he's fantastic.
+- My father had a real short fuse. He had a tough life - had to support his mother and brother at a very young age when his dad's farm collapsed. You could see his suffering, his terrible suffering, living a life that was disappointing and looking for another one. My father was full of terrifying anger.
+- There is this aura that the three-act play is the important one: it's the one that you do to win the Pulitzer. Some part of you falls for that, and then after a while, you don't fall for that.
+- The funny thing about having all this so-called success is that behind it is a certain horrible emptiness.
+- I've come to feel that if I can't make something happen in under an hour and a half, it's not going to happen in a compelling way in a three-hour play.
+- I'm not a big fan of anniversaries.
+- I don't believe in a lot of schmoozing and buttering up. Not that you don't become friends in work. But I think it's a misconception that you have to do a lot of hanging before you work.
+- The words I overuse are all adverbs.
+- I was shot in the wrist when I was a kid. Deliberately.
+- When I just sit around my house and work, I can work two, three hours, and then I go off and ride a horse or do something that I perceive to be a lot more fun.
+- I used to work a lot on ranches where I grew up, and I had to rise at 5:30 in the morning.
+- To sing a song is quite different than to write a poem. I'm not and never will be a novelist, but to write a novel is not the same thing as writing a play. There is a difference in form, but essentially what you're after is the same thing.
+- Sometimes in someone's gestures you can notice how a parent is somehow inhabiting that person without there being any awareness of that. Sometimes you can look at your hand and see your father.
+- I've had it up to my ears with the personal mythology. It's getting kind of personally sickening. The personal stuff just turns out to be misinterpreted. I've had such an earful for so long, it's gotten tedious. I figure if you stay away from it, you're safe.

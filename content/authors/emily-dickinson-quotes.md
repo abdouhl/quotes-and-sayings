@@ -1,0 +1,66 @@
++++
+author = "Emily Dickinson"
+title = "Emily Dickinson Quotes"
+quotes_len = "60"
+description = "the best 60 Emily Dickinson Quotes"
++++
+- If I feel physically as if the top of my head were taken off, I know that is poetry.
+- He ate and drank the precious Words, his Spirit grew robust; He knew no more that he was poor, nor that his frame was Dust.
+- I never had a mother. I suppose a mother is one to whom you hurry when you are troubled.
+- That it will never come again is what makes life sweet.
+- I had no portrait, now, but am small, like the wren; and my hair is bold, like the chestnut bur; and my eyes, like the sherry in the glass, that the guest leaves.
+- Fame is a fickle food upon a shifting plate.
+- If I read a book and it makes my whole body so cold no fire can ever warm me, I know that is poetry.
+- Success is counted sweetest by those who never succeed.
+- How strange that nature does not knock, and yet does not intrude!
+- Behavior is what a man does, not what he thinks, feels, or believes.
+- Love is anterior to life, posterior to death, initial of creation, and the exponent of breath.
+- I'm nobody, who are you?
+- Dogs are better than human beings because they know but do not tell.
+- The brain is wider than the sky.
+- If I can stop one heart from breaking, I shall not live in vain.
+- Because I could not stop for death, He kindly stopped for me; The carriage held but just ourselves and immortality.
+- Old age comes on suddenly, and not gradually as is thought.
+- People need hard times and oppression to develop psychic muscles.
+- Luck is not chance, it's toil; fortune's expensive smile is earned.
+- Celebrity is the chastisement of merit and the punishment of talent.
+- Finite to fail, but infinite to venture.
+- Truth is so rare that it is delightful to tell it.
+- Dying is a wild night and a new road.
+- Parting is all we know of heaven, and all we need of hell.
+- Forever is composed of nows.
+- My friends are my estate.
+- To live is so startling it leaves little time for anything else.
+- Not knowing when the dawn will come I open every door.
+- God is not so wary as we, else He would give us no friends, lest we forget Him! The charms of the heaven in the bush are superseded, I fear, by the heaven in the hand, occasionally.
+- To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few.
+- They say that God is everywhere, and yet we always think of Him as somewhat of a recluse.
+- The soul should always stand ajar, ready to welcome the ecstatic experience.
+- After great pain, a formal feeling comes. The Nerves sit ceremonious, like tombs.
+- I have a brother and sister; my mother does not care for thought, and father, too busy with his briefs to notice what we do. He buys me many books, but begs me not to read them, because he fears they joggle the mind.
+- Unable are the loved to die, for love is immortality.
+- Where thou art, that is home.
+- They might not need me; but they might. I'll let my head be just in sight; a smile as small as mine might be precisely their necessity.
+- Hope is the thing with feathers that perches in the soul - and sings the tunes without the words - and never stops at all.
+- Saying nothing... sometimes says the most.
+- I hope you love birds too. It is economical. It saves going to heaven.
+- To love is so startling it leaves little time for anything else.
+- Nature is our eldest mother; she will do no harm.
+- In such a porcelain life, one likes to be sure that all is well lest one stumble upon one's hopes in a pile of broken crockery.
+- If fame belonged to me, I could not escape her; if she did not, the longest day would pass me on the chase, and the approbation of my dog would forsake me then. My barefoot rank is better.
+- It is better to be the hammer than the anvil.
+- I do not like the man who squanders life for fame; give me the man who living makes a name.
+- Tell the truth, but tell it slant.
+- There is no Frigate like a book to take us lands away nor any coursers like a page of prancing Poetry.
+- I dwell in possibility.
+- Find ecstasy in life; the mere sense of living is joy enough.
+- Morning without you is a dwindled dawn.
+- I am growing handsome very fast indeed! I expect I shall be the belle of Amherst when I reach my 17th year. I don't doubt that I shall have perfect crowds of admirers at that age. Then how I shall delight to make them await my bidding, and with what delight shall I witness their suspense while I make my final decision.
+- I argue thee that love is life. And life hath immortality.
+- Whenever a thing is done for the first time, it releases a little demon.
+- Beauty is not caused. It is.
+- Fortune befriends the bold.
+- A wounded deer leaps the highest.
+- We were never intimate mother and children while she was our mother - but... when she became our child, the affection came.
+- A word is dead when it is said, some say. I say it just begins to live that day.
+- Sisters are brittle things. God was penurious with me, which makes me shrewd with Him. One is a dainty sum! One bird, one cage, one flight; one song in those far woods, as yet suspected by faith only!

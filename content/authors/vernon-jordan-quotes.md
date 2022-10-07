@@ -1,0 +1,17 @@
++++
+author = "Vernon Jordan"
+title = "Vernon Jordan Quotes"
+quotes_len = "11"
+description = "the best 11 Vernon Jordan Quotes"
++++
+- My mother was the president of the PTA at every school I attended.
+- Terrorism is not new to black people.
+- But there will come a time and a place to give back, and each individual will recognize that time and place.
+- The last job I applied for was to be a bus driver for the Chicago Transit Authority in 1957.
+- I'm here because I stand on many, many shoulders, and that's true of every black person I know who has achieved.
+- You have to be careful how you're using the word boycott.
+- Every company, every boardroom in which I sit, has a plan, and they have objectives, goals, and a process. And to make it work, the pressure and incentive have to come from the top.
+- I had a sense of what leadership meant and what it could do for you. So am I surprised that I am sitting up here on the 62nd floor of Rockefeller Plaza? No.
+- A lot of companies make diversity a part of the performance goals against which an executive gets paid. Just as you have to make a certain sales number, you have to make a diversity number to get your bonus.
+- What I know about this world is that white people will take care of themselves. And what I have learned is that if you are where they are on an equal basis, they cannot take care of themselves without taking care of you.
+- September 11 stands on its own as a terrible tragedy.

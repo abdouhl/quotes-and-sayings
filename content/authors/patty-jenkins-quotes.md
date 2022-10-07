@@ -1,0 +1,110 @@
++++
+author = "Patty Jenkins"
+title = "Patty Jenkins Quotes"
+quotes_len = "104"
+description = "the best 104 Patty Jenkins Quotes"
++++
+- I know that I'm carrying a bit of a weight on my shoulders of what I do represents more than just myself as a director. I wish that wasn't true, but it is. It makes me think about doing work that I believe in and that I believe I can do well, probably even a hair more than I would otherwise.
+- Movies always had a captive audience, so they were able to do deeper, more complex things. Television was always about, 'Look at me now! Look at me now! Now go away!' That's starting to change.
+- It's not about superheroes. This is the method of universal storytelling that all people have... To me, they're the same as the Greek myths or the Roman myths or religious figures of every religion. These are common characters that we use to express stories about being a better person or what you would do when faced with various things.
+- What I never want to do is start phoning it in and making things just to show that I can keep my foot in the door and do big movies.
+- It's like there's something very maternal about Wonder Woman: when push comes to shove, if nobody else wants to do it, Wonder Woman would step up and take care of business. But she doesn't want to do it, and she would never take any delight in it. That's Wonder Woman to me.
+- I had an interesting moment with 'Wonder Woman' where, when I first thought about doing 'Wonder Woman 2,' I thought, 'Well, these are so intense, making these movies. It's a lot to think about doing more.' But then I had an epiphany, and I thought, 'Oh, it's not more - it's better.'
+- I never want to set a belief that a woman has to direct a woman's film, meaning she can't direct a man's film. If only films can be directed by people who are exactly the same as that, it's only gonna limit all of the women more.
+- I think you need to have a strong vision of your own.
+- The thing about 'Wonder Woman,' which is very feminine and definitely different, is that her objective is to bring love and truth to mankind.
+- I am super-comfortable with powerful women.
+- It's not palm trees and neon signs in Florida; it's strip malls, highways, hot sun beating down on you.
+- I believe in Wonder Woman and the true spirit of Wonder Woman, and I wanted to tell that story. I didn't want to make her an alt version of Wonder Woman.
+- TV is really hard to break into. This may be the worst piece of advice, but make an independent film. TV oftentimes takes people who are established. The great benefit of not breaking in yet is purity of voice.
+- My father was a fighter pilot, so I moved around the world when I was young. Then I ended up in Kansas.
+- I'd spent summers growing up in Mississippi, so I had an idea of what the South is like.
+- That was devastating to me: how a bright, energetic kid could turn doomed and desperate.
+- I grew up in a bit of a feminist fantasy with a single mom. I was totally shielded, in a way, from an idea that I couldn't do something.
+- I had to adapt to other worlds, and that helped to educate me that we are all basically the same.
+- If you want more diversity in the industry, you need diverse people writing scripts and developing them.
+- My father wanted to be a hero. He went to the Air Force Academy, was valedictorian, and then he found himself strafing villagers in Vietnam in a war he didn't want to be in and didn't understand. He was extremely conflicted about the line where he went from being the good guy to possibly being the bad guy.
+- New kinds of heroics need to be celebrated - like love, thoughtfulness, forgiveness, diplomacy - or we're not going to get there.
+- I remember when I read in the news that 'Wonder Woman' had been cast, and my heart sank. I had been talking to the studio for so long about doing it, and I was like, 'Well, 'that's that.' I'm sure we wouldn't have made the same choice.
+- There was a movie I was trying to make right after 'Monster,' a bigger behemoth: the Chuck Yeager story. It was a life dream, but it just didn't line up. We just had issues with the life rights, ultimately.
+- There are a lot of pretty actresses in Hollywood who try to act tough, and the audience laughs.
+- Being the person who gets to make a movie about Wonder Woman, of course, I take that incredibly seriously. I am a huge Wonder Woman fan, and the aspiration comes totally naturally to me.
+- I have an aggressive streak of my own.
+- I love a great myth. I love a superhero origin story.
+- I have a long love of superhero films, and I'd been saying over and over again to my agents at CAA that I'd like to do one.
+- I like to work, and I worked for years as a camera person before I directed.
+- To make a masterpiece would be my life's dream.
+- I want to make great films in my lifetime, and I really want to make a great film about Wonder Woman.
+- As soon as I went to painting school in New York, I took an experimental film course, and everything clicked and came together. I realized my love of music and drama and the visual arts all came together.
+- Just look at Gal Gadot when she smiles or when she meets somebody and shakes their hand. That is the embodiment of Wonder Woman. She is so beautiful and powerful, but kind and generous and thoughtful. She's just an amazing person.
+- I don't think I focused on the financial part of it, but definitely, my ambition is to be great, and that always meant that the sky was the limit for what I was hoping to do.
+- Superhero movies are so famous because of the metaphor that they trigger in one's self about who you could be if things were different.
+- I can't take on the history of 50 percent of the population just because I'm a woman.
+- Hollywood can't stand heroes who aren't sympathetic.
+- If you look at the history of Wonder Woman, you look at the iconography, the images that have kept her alive - they're not dark. The thing I think is so important to always keep in mind about her is how positive and bright and shiny she is - very much in the same way that Superman has been.
+- I'm making a movie about Wonder Woman, who I love, who to me is one of the great superheroes, so I just treated her like a universal character, and that's what I think is the next step when I think you can do that more and more and when studios have the confidence to do that more and more.
+- It's not easy to be a hero. You do it because of what you believe, not because of what other people deserve.
+- I have more information than anybody's ever had about this case. I have 7,000 letters from Aileen Wuornos and all the letters between her and her girlfriend.
+- When I made 'Monster,' I didn't think about it being about a woman. I didn't think about that she was a lesbian. I was telling a story about a specific person who was tragic and looking for love in the world, and the more I could make her you, the more of a victory.
+- At the end of the day, making 'Monster' was unbelievably hard, as making any movie is. And the only thing that made it worth it is not those awards and all those kind of things that I can barely remember because I was so overwhelmed. It was really that night in the editing room, that day on set. It was those things.
+- To me, the two things that Gal Gadot - who is an amazing actress, and she played a great Wonder Woman - but the true things that she actually has inside of her are this incredible warmth and charm that is also informed by great intelligence. It's those two things.
+- It's been my experience with damaged people: they don't wake up every day and wallow in the bad things that have happened to them.
+- Any sympathy won for Aileen Wuornos based on a lie is not sympathy at all. The question is, can we have sympathy for the circumstances of someone's life? That's what I was interested in.
+- My fantasy is that I could wake up looking amazing, that I could be strong and stop the bully, but that everybody would love me, too. I think that's intrinsic to fantasy - fantasy is fantasy.
+- I think that what Wonder Woman stands for is gorgeous and incredible.
+- Who should make a great movie about Wonder Woman? It should be somebody who loves Wonder Woman. And I know that I'm that. So let's go and try.
+- Hollywood is driven by beautiful faces. Always has been.
+- When people are crass or loudmouthed, it's not because they don't give a damn. It's from fear and insecurity.
+- My father was a fighter pilot, so I moved around the world when I was young. Then I ended up in Kansas. I'd just sort of gravitated toward the arts, and I had always loved music and really loved theater even though I didn't want to act.
+- It was harder, I think, to get attention for the films that I wanted to do than I expected it to be.
+- I grew up very inspired by 'Superman One' and by kind of the promise of the genre of what a superhero origin story can do.
+- When I'm on a movie, I'm unavailable every day for a year and a half. You can't do that with a little baby. Somebody might be able to do it, but not me.
+- I don't love all superhero films, but I love a great one.
+- There's a lot of mythological stories you can tell. There's not just one. I appreciate all of those different kinds, but what I was personally missing was grand, classic, true-north hero. Pure and simple emotion, and also aiming for big time emotion, like love story as well, in a very sincere way. Like 'Superman: The Movie' had done for me.
+- As soon as I went to painting school in New York, I took an experimental film course, and everything clicked and came together. I realized my love of music and drama and the visual arts all came together. This happened in 1989. Since then, it's been a long road of educating myself in every possible way.
+- I know that a man's version of a tough woman is very different from a woman's version.
+- I grew up in a family of fighter pilots, and I have a real kindred spirit to that kind of fast-moving aggression and momentum.
+- I think making a film that you think is good and you believe in is going to be difficult forever.
+- To be a director, you need to be reliable, on time, confident, calm, all of those things you see demonstrated in the military.
+- I've had tragedy in my life, and it doesn't stop comedy, so I think it's important to do both. Particularly in a superhero movie, but in any movie that accesses all people. Nobody wants to be abused for two hours.
+- I have a real pet peeve for women who play damaged characters but don't look damaged.
+- If a film is based on a true story and you don't use anyone's name, you can do what you like.
+- We're all always wondering about our own limits, what we're capable of.
+- Strangely, I have a huge aversion to movies that try to teach healthy people an abusive lesson about the darkness in the world.
+- It's rare that a character film is easy to fund.
+- I think that, for whatever reason, we've gotten to a place where, particularly in Hollywood, things have to be very pat. Like 'I'm a good guy. I'm a bad guy.'
+- The education of going through the 'Thor' experience was great.
+- I did not necessarily feel that Hollywood was interested in what I wanted to do. They wanted me to do what they wanted to do.
+- De Niro didn't gain all that weight to play Jake La Motta just to prove he could get fat - every single one of those transformative things is grounded in the character.
+- I can't stand characters with contradictory information.
+- Longevity of focus, I think, is the hardest part. You know it's to have a vision and then try to hold that vision and not have it change.
+- The idea of getting to make a movie like the ones that impacted me as a child is my life's dream.
+- I have passed on a lot of things that would have been extremely lucrative, because they were nothing else.
+- I think that in superhero movies, they fight other people; they fight villains.
+- Frankly, I like DVDs having lots of things on it, but I have issues with it as well, too.
+- I was aware that I was the first person of all time getting to direct a Wonder Woman film, and that was taken very seriously.
+- I've been influenced by a lot of films. And a lot of them are the typical interesting, artsy films. But I haven't talked enough about how there are those few big blockbusters that really rock your world.
+- I was thinking I would love to make something that is a successful film that everybody sees, but I wasn't thinking about the actual dollar amount. I just wanted to make a great film that people responded to. That's always a good ambition because you'll never totally hit it.
+- I was a closet Journey fan when I was growing up.
+- You do what you believe in.
+- I have a high bar for myself already; I always want to do something beautiful and meaningful.
+- There's the 7-year-old me that pretended to be Wonder Woman running around the schoolyard. Like, what an incredible thing to imagine that when the bully shows up or the villain, you would be strong enough to do something about it. But, also, you look like Lynda Carter while you're doing it - like, 'Oh, my God.'
+- We want to teach a better way and to be a hero, and there's no one like Wonder Woman to do it.
+- There's an idea that action movies are more attractive to one gender than the other or different kinds of people or whatever. The truth is action is not any different than any other part of a story.
+- I try not to buy into that whole, crazy 'you are what you drive' mentality here, but I wouldn't want to be seen in a Ford Fiesta - you know what I mean?
+- I love that duality of Wonder Woman: that she both wants peace and means peace, but when push comes to shove and someone needs to be put down like a dog, that's what she would be willing to do.
+- I don't think I could have made a good movie out of 'Thor 2' because I wasn't the right director. And I don't think I would have been in the running for 'Wonder Woman' as a result. And that's one of the reasons why I'm glad I didn't do it.
+- The need to look behind the curtain is great for a filmmaker. But whether you want to deconstruct what you like as a viewer, what you like and don't like, I wish we could let films stand on their own a little bit.
+- It is ironic you could make an animated film about a dog that's a universal character, but God forbid it be a human being who is not a man.
+- I'd just sort of gravitated toward the arts, and I had always loved music and really loved theater, even though I didn't want to act. For some reason, being in Kansas, you can either be a graphic artist or a visual artist, so I decided, 'I guess I'm going to be a painter.'
+- A woman doesn't have to direct a woman's film and a man doesn't have to direct a man's film; otherwise, where would we be?
+- Making a movie is such a huge commitment of emotion and time that I didn't want to be beholden to doing it for money.
+- There's Batman, there's Superman, there's Wonder Woman. She's the full-blown real deal.
+- I'm excited to see her power really soar and us have a great time having a great Wonder Woman in our world.
+- Ultimately, so many things come down to money, but particularly when it comes to superheroes - people really thought that only men loved action movies and only men would go see a superhero movie.
+- I always say that 'Star Wars' had a huge effect on me, too, but what 'Star Wars' did for some people, 'Superman' did for me.
+- I do care about success and all of those things. But I don't care enough to do movies just for that reason.
+- Every villain has their belief system that makes perfect sense to them.
+- There was a very difficult time when a female hero was a man in a woman's body. 'Hunger Games' really changed that: a woman leading a non-woman's film in the action genre. I think 'Wonder Woman' does that on a very big scale.
+- I'm as interested in exceptional characters as men are.
+- To me, superhero movies are like Greek myth.

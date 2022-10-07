@@ -1,0 +1,17 @@
++++
+author = "Sterling Marlin"
+title = "Sterling Marlin Quotes"
+quotes_len = "11"
+description = "the best 11 Sterling Marlin Quotes"
++++
+- We're having a good time. That's what I did last year. If you can't have a good time, you might as well stay home. I feel real good.
+- That's about the 1,000th and tenth time (I've been asked about my neck). It's OK. I'm been doing a little stuff. I got some stuff from UT, weights to build you back up.
+- The hardest part was getting the window net hooked back. I didn't think I was ever going to get it hooked. I finally got it hooked. If I'd known that I wouldn't have tried to hook it.
+- We felt like when we went into last year we had a pretty good chance to win the championship from the previous year with the fall we put together. We've got the same everything now, so I think we can come back and be as strong this year.
+- I guess everybody saw it. It's a deal where I'd been racing cars a long time and I knew going around the track the fender was on the tire hard.
+- The guys have a lot of good cars built up. We're going to do some more testing before we go back to Las Vegas and try to win at Vegas again. We need to get off to a quick start.
+- After Richmond, we went to Dover and tested that week at Kentucky. I was going to Dover and we had to get the trainer to meet us at the airport. I had to do some therapy on my ribs they hurt so bad.
+- A guy came to the shop every day. A lot of guys put the foam like stuff that forms to you, kinda like the Indy car guys run. He fitted it up and it felt real good, so we're going to try to run it.
+- You look at 2001, we were third in points and no one gave us much of a chance when the season started. We came back last year and had the same team, the same everybody and led points.
+- I think we'll be in pretty good shape. We've got the same car we ran in all the speedway races since 2001, and it's been a real good car for us. It's led every race we've been in.
+- It was a pretty wild ride. The race wasn't bad, but qualifying would take your breath.

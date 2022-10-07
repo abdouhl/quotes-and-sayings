@@ -1,0 +1,18 @@
++++
+author = "Elle Varner"
+title = "Elle Varner Quotes"
+quotes_len = "12"
+description = "the best 12 Elle Varner Quotes"
++++
+- One of my dream collaborations is to work with Sade. I would love to work with Andre 3000, Miguel.
+- I was really heavy growing up, so it was never feeling like the pretty girl, never being popular.
+- I took lessons for about everything you could imagine - gymnastics to karate to flute and piano. My mom always definitely kept me in some kind of class or program, but for guitar, I kinda gave up on then kinda just taught myself. Same thing with piano. I've never been good with following lessons.
+- One of my biggest musical influences is definitely Ella Fitzgerald as a vocalist.
+- Everything in my house was either free or under 40 bucks, and people come to my house and can't believe that I picked up everything on the street or in a thrift shop.
+- I think that's my gift in this world is to put experience into music.
+- I'm an around-the-way girl. I'm a singer, songwriter. I'm about positivity and spreading a good message and telling the people's story.
+- As soon as I could speak, I was singing. Before I could even speak full words, I would make up ones to sing and I have it on tape, too.
+- As a young girl, I remember singing CeCe Penniston's 'Don't Walk Away.' It was like my jam.
+- It was not cool to be that fun, bubbly kid, so I would just go off on my own and sing and make up songs, and that's how I think I developed into the kind of artist and writer that I am.
+- I love all things crafty. I love to make jewelry. I love to cut up old clothes and turn them into something new. I love projects like transforming a busted table into a shiny new table. I'm really into restoration and little side projects.
+- One of my favorite dishes is this alfredo I make, and I make the sauce from scratch. I love making everything from scratch.

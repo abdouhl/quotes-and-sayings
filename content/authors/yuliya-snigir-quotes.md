@@ -1,0 +1,13 @@
++++
+author = "Yuliya Snigir"
+title = "Yuliya Snigir Quotes"
+quotes_len = "7"
+description = "the best 7 Yuliya Snigir Quotes"
++++
+- I came to Los Angeles only after filming 'A Good Day to Die Hard,' when I was cast in the independent movie 'Delirium.' Director Lee Roy Kunz was looking everywhere for a Russian actress. He saw my photos, and only then he learned where I starred before! Eventually, I spent several months in the U.S., and we made the film quickly.
+- For me, it's very offensive when I notice that it's all about my appearance, how I look, that a man doesn't care who I am.
+- In American films, Russians are often portrayed like cartoon villains without clear motivations.
+- In chess, you should be as cool as a cucumber.
+- My dream was to play in good films, no matter in what country. I always waited for a decent script, and nothing has changed. I'm just sure that nothing in life is random, and I believe in the fate which guides you. Probably my starring in 'A Good Day to Die Hard' is good proof of that.
+- Thank God, I have sort of a pan-European accent rather than Russian, which doesn't sound very pleasantly to Americans. For them, we speak with a rather rude pitch, and that might be our actors' problem there. Now I've begun working with language coaches in Los Angeles to get rid of the accent completely.
+- I'm learning to be braver with colorful clothes, even if they're a little wild.

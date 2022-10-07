@@ -1,0 +1,25 @@
++++
+author = "Smokepurpp"
+title = "Smokepurpp Quotes"
+quotes_len = "19"
+description = "the best 19 Smokepurpp Quotes"
++++
+- I created the Soundcloud big bang; you already know what's going on.
+- I want to do everything. I want to do commercials, endorsements. I want to design.
+- I don't like going to the mall.
+- I feel like when you make an album, it really has to hold its ground. It has to make a stamp.
+- You gotta do a lot more than rap. Rap is not just rap. If you don't have an image, you're not capturing nobody's attention.
+- I chose producing because I didn't know how to play any instruments.
+- 'Deadstar' has no boundaries.
+- If we want to mumble rap, we can mumble rap.
+- You're gonna see me on your TV. You're gonna see me everywhere. I'm gonna be a common household name. Smokepurpp, Lil Purpp. Remember the name.
+- I'm not only a rapper, I'm an entertainer.
+- Honestly, as a rapper, the Freshman list is definitely the biggest milestone. Culture-wise - anything-wise - that's the biggest stamp.
+- I got started as a producer first, but really, I feel my beats had more life than anyone could rap on them.
+- I was a class clown.
+- I would like to work with Drake. It would be cool.
+- I love everybody. I don't have beef with nobody, so I'm good.
+- I started producing for Pump - I produced his first songs. 'Lil Pump,' 'Elementary,' 'Johnny Dang' - all that I produced.
+- Anytime Pump and I make a track together, it's always crazy.
+- People don't give Yachty the credit that he deserves.
+- My style is too versatile to be compared to anybody.

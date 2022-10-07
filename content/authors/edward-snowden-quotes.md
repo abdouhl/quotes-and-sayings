@@ -1,0 +1,90 @@
++++
+author = "Edward Snowden"
+title = "Edward Snowden Quotes"
+quotes_len = "84"
+description = "the best 84 Edward Snowden Quotes"
++++
+- If I target for example an email address, for example under FAA 702, and that email address sent something to you, Joe America, the analyst gets it. All of it. IPs, raw data, content, headers, attachments, everything. And it gets saved for a very long time - and can be extended further with waivers rather than warrants.
+- When you are subverting the power of government, that's a fundamentally dangerous thing to democracy.
+- I would rather be without a state than without a voice.
+- I'm an engineer, not a politician.
+- The United States Government has placed me on no-fly lists.
+- I grew up with the understanding that the world I lived in was one where people enjoyed a sort of freedom to communicate with each other in privacy, without it being monitored, without it being measured or analyzed or sort of judged by these shadowy figures or systems, any time they mention anything that travels across public lines.
+- My sole motive is to inform the public as to that which is done in their name and that which is done against them.
+- I have had no contact with the Chinese government. I only work with journalists.
+- When people say, 'Why don't you face the music?' I say, 'You have to understand the music is not an open court and a fair trial.'
+- Being a patriot doesn't mean prioritizing service to government above all else. Being a patriot means knowing when to protect your country, knowing when to protect your Constitution, knowing when to protect your countrymen, from the violations of and encroachments of adversaries. And those adversaries don't have to be foreign countries.
+- All I can say right now is the U.S. government is not going to be able to cover this up by jailing or murdering me. Truth is coming, and it cannot be stopped.
+- The NSA and Israel wrote Stuxnet together.
+- The NSA has built an infrastructure that allows it to intercept almost everything. With this capability, the vast majority of human communications are automatically ingested without targeting. If I wanted to see your emails or your wife's phone, all I have to do is use intercepts. I can get your emails, passwords, phone records, credit cards.
+- The NSA has the greatest surveillance capabilities in American history... The real problem is that they're using these capabilities to make us vulnerable.
+- I do agree that when it comes to cyber warfare, we have more to lose than any other nation on earth.
+- I have no intention of hiding who I am because I know I have done nothing wrong.
+- When you are in positions of privileged access... you see things that may be disturbing. Over time, that awareness of wrongdoing sort of builds up.
+- After 9/11, many of the most important news outlets in America abdicated their role as a check to power - the journalistic responsibility to challenge the excesses of government - for fear of being seen as unpatriotic and punished in the market during a period of heightened nationalism.
+- I don't see myself as a hero because what I'm doing is self-interested: I don't want to live in a world where there's no privacy and therefore no room for intellectual exploration and creativity.
+- You shouldn't change your behavior because a government agency somewhere is doing the wrong thing. If we sacrifice our values because we're afraid, we don't care very much about those values.
+- If I had to describe myself, I wouldn't use words like 'hero.' I wouldn't use 'patriot,' and I wouldn't use 'traitor.' I'd say I'm an American and I'm a citizen, just like everyone else.
+- America is a fundamentally good country. We have good people with good values who want to do the right thing. But the structures of power that exist are working to their own ends to extend their capability at the expense of the freedom of all publics.
+- I have had many opportunities to flee HK, but I would rather stay and fight the United States government in the courts, because I have faith in Hong Kong's rule of law.
+- I think the most important idea is to remember that there have been times throughout American history where what is right is not the same as what is legal.
+- Congress hasn't declared war on the countries - the majority of them are our allies - but without asking for public permission, NSA is running network operations against them that affect millions of innocent people. And for what? So we can have secret access to a computer in a country we're not even fighting?
+- What the government wants is something they never had before. They want total awareness. The question is, is that something we should be allowing?
+- I did not seek to sell U.S. secrets. I did not partner with any foreign government to guarantee my safety. Instead, I took what I knew to the public so what affects all of us can be discussed by all of us in the light of day, and I asked the world for justice.
+- If an NSA, FBI, CIA, DIA, etc analyst has access to query raw SIGINT databases, they can enter and get results for anything they want. Phone number, email, user id, cell phone handset id (IMEI), and so on - it's all the same.
+- Citizens with a conscience are not going to ignore wrong-doing simply because they'll be destroyed for it: the conscience forbids it.
+- It's important that we elevate and primarily focus on the rights of American citizens, but it's also important that we don't forget, 95 percent of the world's population lives beyond our own borders.
+- I can't in good conscience allow the U.S. government to destroy privacy, internet freedom and basic liberties for people around the world with this massive surveillance machine they're secretly building.
+- We're losing our way as a society. If we don't stand up, if we don't say what we think those rights should be, and if we don't protect them, we will very soon find out that we do not have them.
+- Every person remembers some moment in their life where they witnessed some injustice, big or small, and looked away because the consequences of intervening seemed too intimidating. But there's a limit to the amount of incivility and inequality and inhumanity that each individual can tolerate. I crossed that line. And I'm no longer alone.
+- Ask yourself: if I were a Chinese spy, why wouldn't I have flown directly into Beijing? I could be living in a palace petting a phoenix by now.
+- Suspicionless surveillance does not become okay simply because it's only victimizing 95% of the world instead of 100%.
+- All I wanted was for the public to be able to have a say in how they are governed. That is a milestone we left a long time ago.
+- Sometimes the scandal is not what law was broken, but what the law allows.
+- Bathtub falls and police officers kill more Americans than terrorism, yet we've been asked to sacrifice our most sacred rights for fear of falling victim to it.
+- When you use any kind of internet-based capability, any kind of electronic capability, to cause damage to a private entity or a foreign nation or a foreign actor, these are potential acts of war.
+- I am not trying to bring down the NSA, I am working to improve the NSA. I am still working for the NSA right now. They are the only ones who don't realize it.
+- Even though we may focus first on the rights of our own country, that does not mean that we should disregard the rights of everyone else.
+- I wanted to fight in the Iraq war because I felt like I had an obligation as a human being to help free people from oppression.
+- What we've seen over the last decade is we've seen a departure from the traditional work of the National Security Agency. They've become sort of the national hacking agency, the national surveillance agency. And they've lost sight of the fact that everything they do is supposed to make us more secure as a nation and a society.
+- I never chose to be in Russia, and I would prefer to be in my own country, but if I can't make it home, I will continue to work very much in the same way that I have... What happens to me is not as important; I simply serve as the mechanism of disclosure.
+- If I could go anywhere in the world, that place would be home.
+- I do not want to live in a world where everything I do and say is recorded. That is not something I am willing to support or live under.
+- I don't want to live in a society that does these sort of things... I do not want to live in a world where everything I do and say is recorded. That is not something I am willing to support or live under.
+- I support a guaranteed basic income. I think we should take care of sick people. I believe women can make their own choices and that the government is at its best when it's building bridges instead of bombs.
+- They still have negligent auditing, they still have things going for a walk, and they have no idea where they're coming from, and they have no idea where they're going. And if that's the case, how can we, as the public, trust the NSA with all of our information, with all of our private records, the permanent record of our lives?
+- I carefully evaluated every single document I disclosed to ensure that each was legitimately in the public interest. There are all sorts of documents that would have made a big impact that I didn't turn over, because harming people isn't my goal. Transparency is.
+- I care more about the country than what happens to me. But we can't allow the law to become a political weapon or agree to scare people away from standing up for their rights, no matter how good the deal. I'm not going to be part of that.
+- No one would argue that it's in the United States' interest to have independent knowledge of the plans and intentions of foreign countries. But we need to think about where to draw the line on these kind of operations so we're not always attacking our allies, the people we trust, the people we need to rely on, and to have them in turn rely on us.
+- I don't want to harm my government. I want to help my government. But the fact that they are willing to completely ignore due process, they're willing to declare guilt without ever seeing a trial, these are things that we need to work against as a society and say, 'Hey, this is not appropriate.'
+- Even if you're not doing anything wrong, you are being watched and recorded.
+- We have seen enough criminality on the part of government. It is hypocritical to make this allegation against me. They have narrowed the public sphere of influence.
+- Sometimes to do the right thing, you have to break a law. And the key there is in terms of civil disobedience. You have to make sure that what you're risking, what you're bringing onto yourself, does not serve as a detriment to anyone else. It doesn't hurt anybody else.
+- Being called a traitor by Dick Cheney is the highest honor you can give an American, and the more panicked talk we hear from people like him... the better off we all are.
+- The public interest is not always the same as the national interest. Going to war with people who are not our enemy in places that are not a threat doesn't make us safe, and that applies whether it's in Iraq or on the Internet. The Internet is not the enemy. Our economy is not the enemy.
+- That's the beauty of the Internet is that we're no longer tied to our communities by physical connections.
+- It may be that by watching everywhere we go, by watching everything we do, by analyzing every word we say, by waiting and passing judgment over every association we make and every person we love, that we could uncover a terrorist plot, or we could discover more criminals. But is that the kind of society we want to live in?
+- You can't come forward against the world's most powerful intelligence agencies and be completely free from risk.
+- I do not expect to see home again, though that is what I want.
+- For me, in terms of personal satisfaction, the mission's already accomplished. I already won. As soon as the journalists were able to work, everything that I had been trying to do was validated. Because, remember, I didn't want to change society. I wanted to give society a chance to determine if it should change itself.
+- I understand that I will be made to suffer for my actions.
+- I've been a spy for almost all of my adult life - I don't like being in the spotlight.
+- I have been made stateless and hounded for my act of political expression.
+- It's been vindicating to see the reaction from lawmakers, judges, public bodies around the world, civil liberties activists who have said it's true that we have a right to at least know the broad outlines of what our government's doing in our name and what it's doing against us.
+- Most of the secrets the CIA has are about people, not machines and systems, so I didn't feel comfortable with disclosures that I thought could endanger anyone.
+- No system of mass surveillance has existed in any society that we know of to this point that has not been abused.
+- What does that mean for a society, for a democracy, when the people that you elect on the basis of promises can basically suborn the will of the electorate?
+- I have no regrets.
+- Who I am really doesn't matter at all. If I'm the worst person in the world, you can hate me and move on. What really matters here are the issues. What really matters here is the kind of government we want, the kind of Internet we want, the kind of relationship between people and societies.
+- My intention is to ask the courts and people of Hong Kong to decide my fate.
+- The NSA routinely lies in response to congressional inquiries about the scope of surveillance in America.
+- There can be no faith in government if our highest offices are excused from scrutiny - they should be setting the example of transparency.
+- I have been a systems engineer, systems administrator, a senior adviser for the Central Intelligence Agency, a solutions consultant and a telecommunications information systems officer.
+- The only time you can be completely free from risk is when you're in prison.
+- I think it's important to remember that people don't set their lives on fire. They don't walk away from their extraordinarily, extraordinarily comfortable lives ... for no reason.
+- If they had taught a class on how to be the kind of citizen Dick Cheney worries about, I would have finished high school.
+- The immoral cannot be made moral through the use of secret law.
+- You could watch entire villages and see what everyone was doing. I watched NSA tracking people's Internet activities as they typed. I became aware of just how invasive U.S. surveillance capabilities had become. I realized the true breadth of this system. And almost nobody knew it was happening.
+- A lot of people in 2008 voted for Obama. I did not vote for him. I voted for a third party. But I believed in Obama's promises.
+- I will be satisfied if the federation of secret law, unequal pardon and irresistible executive powers that rule the world that I love are revealed even for an instant.
+- Perhaps I am naive, but I believe that at this point in history, the greatest danger to our freedom and way of life comes from the reasonable fear of omniscient State powers kept in check by nothing more than policy documents.

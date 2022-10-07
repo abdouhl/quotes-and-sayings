@@ -1,0 +1,32 @@
++++
+author = "William P. Leahy"
+title = "William P. Leahy Quotes"
+quotes_len = "26"
+description = "the best 26 William P. Leahy Quotes"
++++
+- One of the biggest issues that we face is that we have people who have their own particular concerns, whether it's on abortion, birth control, divorce and remarriage, civil rights or social justice.
+- We are the meeting place, an entity that's trying to connect faith and culture.
+- Now where people are - at least the people I talk to - they are focused on issues of trust. Accountability also comes up, to make sure that this doesn't happen again.
+- As a university, we're not focused on bringing about huge reforms - that's not our role.
+- The hierarchy shouldn't fear what we're doing.
+- The Spirit hasn't deserted the church today.
+- You know how the church has been hit so hard by the sexual misconduct by clergy, and what's that's done to Catholics, especially here in Boston but elsewhere as well.
+- We've always had issues up for discussion at Catholic universities.
+- What we're about is a manifestation of the Catholic roots of Boston College.
+- Some of the speakers we bring on campus may not reflect official church teaching, but that's how it is.
+- What I think we can do is help individuals understand the church teaching, but also maybe help the church understand the viewpoint of lay men and women about what they want in regard to priests, or how do they want the hierarchy to deal with them?
+- By no means do I anticipate screening those who come on to campus... And I have no difficulty if a bishop across the country or some local pastor may say that's not Catholic teaching - that's fine.
+- I am very confident that the Spirit is with us.
+- The more we can get together and talk about various perspectives, feelings, beliefs, the better.
+- I think the issue of clergy sexual abuse sparked people to look at their faith in a different way.
+- Individuals will speak their minds, which I think is healthy.
+- BC is not going to replace the hierarchy, and BC is not going to lead some major reform in the Catholic Church - that's got to come out of the whole Catholic community.
+- I would be with those who say the hierarchy in the United States has badly mishandled this whole situation.
+- I say let's respond as best we can to the victims and their families.
+- I would say the hierarchy has made terrible errors in judgment and it has to seek forgiveness by its members.
+- No organization, whether it's police or physicians or whatever, wants to have its errors held up to the light of day, but it's wrong, as is coming out so well.
+- This is a crisis, but there is an opportunity to help revitalize and renew the Catholic community.
+- The church may hold whatever it holds with regard to clerical celibacy.
+- Others don't want to listen to viewpoints that members of the church have.
+- I think we can work through a lot of these issues.
+- Clearly there are individuals who don't understand what the church teaches, or they think it's so limiting.

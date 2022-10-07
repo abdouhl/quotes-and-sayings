@@ -1,0 +1,77 @@
++++
+author = "Dorian Yates"
+title = "Dorian Yates Quotes"
+quotes_len = "71"
+description = "the best 71 Dorian Yates Quotes"
++++
+- I was not going to be distracted by anything - a fight with my wife, a bump in the car, whatever it may be. I refused to let anything interfere with my workouts.
+- If you come to my house there are no bodybuilding pictures or anything in my house. I try to keep that separate, just because it is all consuming and I don't want it around me when I'm at home.
+- I purposely kept covered up because I didn't like people looking at me.
+- I came from quite a free background living on this small holding farm, getting on my bike and running round the field and going on little adventures and always felt like a very independent person.
+- I've no wish to run into a contest and make a fool of myself, leaving my career in a cul-de-sac. I want to be a success in the sport of bodybuilding.
+- Ever since I retired from competitive bodybuilding, one of my dreams has been to offer an affordable way for independent gym owners to make a comfortable income and empower them to help the sick and diseased at the same time.
+- I don't have ambitions to be a movie star or multi-millionaire.
+- I'm not one of those guys who has to drop ten pounds in the week before a contest.
+- There are two drawbacks to steroids, one is the potential problems with your health and the second one is it is very easy for people to dismiss everything you have put into it by saying, 'yeah but he takes steroids.'
+- Back when I was competing in the Olympia I think you saw a lot of guys who were in really good shape.
+- I didn't start out planning to be Mr. Olympia I just wanted to be the best that I could be, but my goals changed as I went along. I wanted to be the British champion, and then I wanted to be a pro, then Mr. Olympia.
+- Before, I could lift 600lbs in squats and all incredible stuff in the gym, but if I walked a couple of miles I'd probably get out of breath.
+- So I had to change my mental outlook from, 'wow, this is Lee Haney, the icon we are all trying to aspire to,' to, 'this is the guy I am trying to beat.' I thought, 'I can't be in awe of this guy because, if that is your attitude then you're not going to have much chance of winning.'
+- In every sport, at the competitive level, there's always a danger of injury. But there are considerably less chances in body building comparatively, than say in soccer.
+- What I like is the journey, the year-round struggle to improve.
+- Even when I was on vacation after the Olympia, I was looking for gym to train in. Not only was it 24 hours a day, it was 365 days a year. That may have been a little too extreme, but that is what got me there from that little backstreet gym in England to becoming Mr. Olympia.
+- Protein is crucial to supplying muscle tissue with the building blocks it needs for its growth.
+- Everyone gets the impression that bodybuilders are narcissistic, and we look at ourselves in mirrors all the time. But that side of the sport doesn't appeal to me.
+- You see guys in amateur contest who are much better conditioned than the professionals. To me the professionals should be better. Just because they are bigger, it doesn't mean they are better.
+- Yes, it is not all about training hard. If you do too many sets and too much volume overall, your body is just going to be spending all its time trying to recover and not overcompensating because it doesn't have enough resources for that.
+- It's not good to lose your dad at any time but at 13 years of age you are just going through puberty and growing up and that was a very crucial time and was a hard time to lose my dad and it had a big effect on me.
+- It took me nine years to get to the level of being Mr. Olympia, and it's pretty much a 24-hour-a-day job every day of the year, really, if you want to compete on that level.
+- If I were to organize somebody's diet I would first of all ensure they were getting enough protein, make sure it is the right quality with first class proteins primarily.
+- I never started bodybuilding because I thought I'm not big enough, I'm not strong enough.
+- Every single workout counted when I trained, I didn't miss any meals and made sure I got my sleep.
+- I remember when I was a kid rugby players were some big guys that drunk a lot of beer but now they have proper training programs and diets and all that. And the pioneers of all that is bodybuilding.
+- I trained for size in the off-season, but when it came time to get ready for a contest it was all about coming in shredded. The glutes must be striated, with the lower back shredded, no water anywhere, no loose skin. Like you are covered in cling-film.
+- Lots of people who do bodybuilding want to walk around in tank top and shorts, because they want to show people what they've got - and there's nothing wrong with that. But I didn't want to do that because I didn't care what people thought.
+- When I was getting ready for a contest I was not thinking size, I was thinking I want to come in shredded, so shredded that people are going to be shocked.
+- A lot of people think growth hormone is going to increase the size of your internal organs which bloats the waistline. So I went and had a battery of tests where they actually measure all of your internal organs and mine were all normal.
+- I mean, does anyone seriously think there are no drugs in Olympic sports just because they do some kind of testing? They are highly competitive sports with highly competitive people and just with competitive business people do whatever they can do to get ahead.
+- Splitting your meals up into smaller, more frequent portions will enable food absorption and utilization of nutrients.
+- I was only 30 years old, and the second Mr. Olympia was probably the most outright win in the history of the sport. It literally took the judges two minutes to see the winner, and then they concentrated on who is coming second.
+- If your body produces more blood glucose than the muscle needs, it gets converted into fat. So always choose low-GI carbs like green vegetables and low-GI rice like basmati.
+- As long as I'm in good physical shape, that's a passion for me, to be physically fit. That's the main thing now, the look is secondary. But I think I look OK, not too bad for a 55 year old.
+- So initially getting up on stage I was really nervous, I was like, 'wow, I'm going to be standing there and all these people are going to be looking at me?' But funnily enough it wasn't too traumatic. It felt quite natural because I felt I looked good and I knew how to do the poses.
+- My sole goal when getting ready for a contest was not building a lot of size, although when I was coming up pure muscle size was still very important. I was always really concerned about coming in very sharp conditioning wise.
+- The failure rate for gym owners and personal trainers is very high because it is very difficult for them to work on their business when they are busy working in their business.
+- We're different people. Politics and films were an ambition for Arnold, but never for me. But I would say that his contribution in broad-basing the sport can hardly be matched.
+- I didn't have my dad there and I had another mate who didn't have his father, and you kind of form your own little family and that's what gangs are, that's why you have so many gangs now because there are so many kids without fathers that they seek their own male bonding.
+- My first Mr. Olympia was 1991 and that was in Florida against the great Lee Haney, who became Mr. Olympia in 1984, and I started training properly in 1983.
+- I put myself in a trance before I even entered the gym. I'd lock myself in the office and go over the poundages from my last workout and visualize what I'm going to wear, how powerful I'm going to feel.
+- I started messing around in my teen years but didn't really begin training properly until the age of 21. I did a lot of reading prior to that - Mike Mentzer, Arthur Jones and all other notable bodybuilding authors - and just came up with a routine that worked for me.
+- I had only been training for a year and half when I did the World Games. Then the next year I did the British championship as a heavyweight and won that.
+- I grew up in a small holding in Staffordshire near Tamworth, and we had a few ponies and chickens, ducks and dogs and my mum used to do horse-riding lessons, but we moved to Birmingham when I was 13.
+- You can convert amino acids into glucose so your body can turn protein into energy and this could result with excessive protein intake. But it is an expensive way to increase your energy as well as an inefficient energy source. And your body has to eliminate it as well so it will put further stress on your system. At best it's unnecessary.
+- I don't really care what other people think.
+- Try to eat more fat but choose polyunsaturated fatty acids as they help the body to burn fat so that's salmon, halibut, sardines, albacore, trout, herring, walnut and flaxseed oil.
+- I kind of stumbled into this. I used to do karate and then I started reading muscle magazines. Eventually, I began training and competing.
+- I would like to get some points across about my sport and hopefully people can understand it a bit more and appreciate what goes into it, instead of being monkey in a cage.
+- Your schedule really gets thrown off when you are traveling. And a schedule is very important when you're training.
+- It's very painful for me to sit back and watch people get sick and die due to preventable lifestyle choices.
+- I was Mr. Olympia and everywhere I went I had to project this image. After some time you start wondering what part of that is really you and which bit you're doing because it's your job.
+- I think what's perhaps lacking in Indian body builders is advanced knowledge of the sport. You'd be surprised to know that even the average European isn't really that aware about it either.
+- If you are in business and you can do something to get ahead of your rival business, you are going to do it.
+- I never see bodybuilding on the sports page and it is not considered to be a sport because of the drug question, because of steroids, let's be honest.
+- I was a pretty fit and physical kid, and my first interest was in martial arts and kung fu with all the Bruce Lee movies.
+- People told me it was impossible to beat the Americans at their own game; there was a lot of politics involved and outsiders didn't stand a chance. But if you're good enough, nothing else matters - I'm living proof of it!
+- Exercise and fitness will always be part of my life but it does not have to be lifting huge weights; I like yoga, cycling, walking swimming, anything.
+- When I was a teenager, you were either a punk, a skinhead or a mod, or you weren't on the scene. Me and my mates were skinheads.
+- As an early teen, soccer is the number one thing that you do - and I wasn't very good at that.
+- I find when I meet people in person it's different because everyone wants a bit of advice on how to lose a bit of weight. Everybody wants to be in shape and likes to talk to someone who has been there and done it, so I find it is always positive.
+- I would always advise if you were to have several egg whites, include a couple of yolks in there because there are some amino acids in the yolks that are slightly lacking in the whites.
+- Whey protein is taken very quickly into the bloodstream and there is a lot of waste, so it is not ideal on its own in most cases.
+- I am more interested in health, quality of life, longevity and how training and nutrition affects that as you get older.
+- It is fortunate that I am quite a secure person and my training flew in the face of what everybody else was doing as they were all just copying what the American bodybuilders did, as reported in the magazines. But it didn't take long before people were listening to me: it happens when you are Mr. Olympia.
+- I wanted to set a new standard for competitive bodybuilding.
+- If you undermine people's confidence, they turn up at the contest trying to get second place.
+- I was always criticized through my whole career because I wasn't doing the whole smiling thing on stage. But I didn't feel like doing that, I felt like I was there for competition and it was tough and I wasn't there to smile.
+- You are hungry all the time for the last two months before a competition. Every survival thing on your body is telling you that you must eat.
+- Most bodybuilders are somewhat extravert so they probably enjoy that whole thing of people looking at them all the time and being on stage. I was an introvert and not really interested in that, I was doing it for myself.

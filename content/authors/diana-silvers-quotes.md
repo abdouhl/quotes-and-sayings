@@ -1,0 +1,60 @@
++++
+author = "Diana Silvers"
+title = "Diana Silvers Quotes"
+quotes_len = "54"
+description = "the best 54 Diana Silvers Quotes"
++++
+- At the end of the day, people don't always remember what it is you said to them, but they remember how you made them feel.
+- I'm a Scorpio who gets ghosted by Aries.
+- Being 1 of 6 made me a weirdo in school. We were like the von Trapps, and our house was like the 'Hunger Games.' Anytime my mom would get a good, sugary cereal, I'd hide a bag from my three older brothers, who'd eat everything.
+- At the end of the day, I write characters that I want to play, because I just think, 'Hey, maybe one day it'll get made.'
+- I picked up photography in high school.
+- I'm a dork!
+- 'The Shining' is one of my favorite movies of all time.
+- When I played Hope in 'Booksmart,' I was like, 'I could see myself with a woman.' Because, literally, I was seeing myself with a woman.
+- 'Rear Window' isn't really a horror film, but it is a psychological drama, which I love. It is very tense.
+- I know I wouldn't have made the callback for 'Ma' if my father's house had not burned down because I would have been in finals. My teachers would not have been chill with me leaving in the middle of my Medieval Magic final.
+- I'm the fifth of six kids, and we're quite an eclectic family. People call us the 'Royal Tenenbaums,' because we're that kind of wonky.
+- There are enough roles for everyone, and I truly believe that the roles that we end up doing are the exact ones that are right for us at that time as people and as actors.
+- I'm lucky I'm tall and skinny, and I got to model to put myself through college.
+- When a relationship ends, all you can do is play in your head everything that happened between you.
+- Octavia Spencer is, I think, one of the coolest people you will ever meet.
+- I don't like excessive violence. That's my thing. I don't like movies heavy with guns, any of that stuff, so I'm not into that stuff, but I love a psychological thriller.
+- Be kind to each other. You never know who's going to become the CEO of what. You never know who is going to become Taylor Swift. You never know.
+- I would love to play roles that continue to challenge and push me in different directions - emotionally, mentally, and physically as well.
+- When I step outside and think of the caliber of actors I've had the privilege of working with, it just blows my mind.
+- You can still have a very strong sense of who you are and be successful in this industry.
+- When something tragic happens, all we want to do is escape it. Acting has always been kind of a twisted way of escaping my own problems and my own reality.
+- I got to work with Juliette Lewis in my fourth real movie, which was such a cool full-circle moment. Her character in 'Gilbert Grape' is why I wanted to become an actress.
+- I just want to do roles that are going to change one person's life.
+- Contrary to popular belief, you don't make money as an actor in the beginning. Your publicist might cost $5000 a month, so you're losing money.
+- Really think about the way you interact with people, whether it's in person or on the Internet. You have to be very mindful.
+- I really want to do something that is very, very deep within realism, like a 'Winter's Bone,' or a 'Blue Valentine.'
+- When I was growing up, I wanted to be a tennis player.
+- My dad put me in a theater group camp at Santa Monica Playhouse when I was, like, six, and then I started to realize I really liked it when I was 11 or 12; it was nice to just escape.
+- I feel like I'm 85 inside.
+- Acting is kind of an escape. You get to live life as someone else, and when you're living this life as someone else, you don't really have time to think about your own life.
+- I never edited a photo of myself in my life. I don't have the energy.
+- Obviously, modeling and acting are very different. With acting, there's just so much more to explore on an intellectual, emotional, and physical level, especially with 'Ma.'
+- I'm from Los Angeles. I grew up on the west side. I went to Pali High, Paul Revere, Country Canyon.
+- I'm not a cool girl. I wish I was.
+- Like everyone in high school, like everyone in life, we all have this outer layer we put up to protect ourselves.
+- You just got to be kind and stay true to yourself and follow what makes you happy inside.
+- I moved to New York when I was 17 for college.
+- The boy I was crazy about was super into photography, so I weaseled my way into AP Photo to impress him and spend more time with him. He never liked me back, but I ended up spending most my senior year in the darkroom - it became a sort of safe haven for me.
+- Growing up, I was afraid of the dark.
+- I don't have to think much when I take a photo on my iPhone. I sort of see the iPhone medium as instant gratification, whereas with film, you have to think about it because it's expensive.
+- I truly believe Lorde is the voice of our generation.
+- 'Carrie' - I love 'Carrie.'
+- A lot of what I do outside acting is really just for me.
+- I'm drawn to interesting female characters and good storylines.
+- I was like, 'I'm going to win Wimbledon!' I was crazy competitive, leg-slapping, all of that. But when I was 12, I saw 'What's Eating Gilbert Grape,' and it just opened my eyes to what movies can do and how they change us, and I was like, 'This is what I want to do. This is what I have to do.'
+- I think with anything career-related, there really is no rush.
+- Photography is very personal to me. God knows how many rolls of film I have that I've never shared.
+- I played tennis. My older brother, Joseph, was a cello player, and I played the cello, but he was better than me at the cello, and he was also a better tennis player than me, so I was always like, 'I wish there was something that only I did!'
+- I never thought I was a fashionable person!
+- I feel it's so rare that young females are portrayed as being anything more than a stereotype.
+- 'The White Album' is so cool because it was around the time when the Beatles started to not like each other, so they would each go off and do their own thing. It's all over the place, but that's what makes the album so brilliant.
+- I was supposed to see Lorde on the 'Melodrama' Tour in New York with my best friend, but then I got a callback for 'Booksmart' in L.A. and couldn't make the concert. Thank God I got the part!
+- I'm like a 70-year-old man at heart.
+- Very good female characters, that's all we want. It's happening, slow and steady, which I love. Hopefully, it gets a little quicker. Fast and steady, how about that? Either way, we want more good females.

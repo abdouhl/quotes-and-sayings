@@ -1,0 +1,22 @@
++++
+author = "Suzy Amis"
+title = "Suzy Amis Quotes"
+quotes_len = "16"
+description = "the best 16 Suzy Amis Quotes"
++++
+- I tend to wear monochromatic outfits - all one colour from head to toe.
+- Food is a very sensitive subject for so many people.
+- I really don't think I ever thought I could be a model. I was shorter than all of the models around and certainly rounder than anybody that I had ever seen in a magazine.
+- I tend to wear monochromatic outfits - all one colour from head to toe. I did that when I was younger and still do that to this day.
+- I know quite a few eco designers who build dresses out of old couture gowns. They disassemble, 'upcycle,' and reuse them in extraordinary ways. To me, that's a sustainable way of doing things.
+- When 'Avatar' came out, we were out non-stop for a year and a half doing red carpet events. I had a stylist who helped me, but it was really hard, and we couldn't find many sustainable dresses.
+- Growing up in Oklahoma the way I did, and being raised the way I was raised by my parents, gave me such a strong foundation to go out into the world and fly, so to speak, the way I was able to do.
+- My personal style has developed from growing up in Oklahoma, middle America, where I was wearing jeans and cowboy boots and where people were not running around in miniskirts.
+- It would have been very easy for me to put on a little tight skirt and go out and try what I always call the 'Barbie doll' roles.
+- People have their cultural reasons for eating meat, their traditional reasons, their likes and dislikes.
+- I have a soft spot for cashmere - even though that is not a particularly sustainable fabric, I do invest in quality, so it is sustainable in the sense that it is not just throwaway fashion and I keep it for a long, long time.
+- Heading to Paris when I was 17 and modelling exposed me to high fashion, which influenced me to dress on-trend - not extravagantly, but always in fashion.
+- You can't really call yourself an environmentalist if you're still consuming animals. You just can't.
+- What I really wanted to do, actually, was stay home and be a mom and have some more kids.
+- I want our students to be so accustomed to children of other cultures that the words 'diversity' and 'tolerance' won't be in their vocabulary. They won't need them - they'll live it.
+- When we home schooled my oldest, Jasper, in eighth grade, I saw how empowering it is for a child to learn in their own way. That rebooted my thinking about education.

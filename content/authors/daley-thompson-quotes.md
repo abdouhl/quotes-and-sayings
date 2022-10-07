@@ -1,0 +1,52 @@
++++
+author = "Daley Thompson"
+title = "Daley Thompson Quotes"
+quotes_len = "46"
+description = "the best 46 Daley Thompson Quotes"
++++
+- I am only about winning and getting better.
+- If you're not in it you can't win it.
+- The decathlon takes so long to learn that people who are good athletes don't want to go back to the beginning again.
+- I wouldn't swap the era I competed in for anything, not a day of it. I started out as an amateur, and people like myself, Seb Coe, Steve Ovett, Steve Cram, Tessa Sanderson and the rest did it for the glory of winning medals for our country.
+- Most people doing the decathlon these days are quite boring, so people don't relate to them.
+- I've still got a small fitness and conditioning business where I travel round the world doing stuff for individuals and corporations, mainly fitness training.
+- We crave instant success these days. If you are a really good sprinter and long jumper, you don't want to spend two or three years on a whole new set of events. You're used to doing well and it's difficult to give that up.
+- There were only ever two black kids at my school. I never considered myself to be 'a black kid'. I was who I was. Which isn't to say things haven't happened to me that wouldn't have happened if I wasn't black.
+- Having the ambition of becoming Olympic champion is a whole different ambition from wanting to be the greatest.
+- But if kids take up things like hockey and football they will go back to it.
+- We live in the best place on earth but at times the worst.
+- I was in the doldrums for a while after my athletics career ended in 1992. I spent six to eight hours a day training, for 18 years, and it took a long time to get over the regret that I wasn't competing in major championships any more. All I ever wanted to be was the best. But I find new projects and I keep things in perspective.
+- Sport and health are so important to our nation that they deserve to be right at the front of people's minds.
+- Even if you've been involved in a World Cup, the Olympics is huge. Only the Games has the power to change communities.
+- Kids have been let down by adults - we've tried to give them too much, we've tried not to impose discipline. We've tried to make their lives easier and, in doing so, we've taken something away from them. Kids like boundaries, they also like to be pushed, need to learn what failure is all about, need guidance.
+- I don't even have my own computer.
+- People don't want to serve apprenticeships any more. Kids expect to be paid and treated really well and all that guff before they've achieved anything. It doesn't work like that. You have to spend five or six years being relatively rubbish and put up with it. For that you don't deserve to be getting lottery money.
+- People tend to like an athlete's performance, but if you don't get a feeling for the individual, you're not very emotive about them.
+- I did not want to be the best black man of the year; I wanted to be the best man of the year.
+- Los Angeles was great fun because it was the polar opposite of Moscow in 1980. It was sunny and bright, lots of colours around, whereas Moscow was dark and oppressive.
+- I am an education ambassador, mainly working with schools.
+- Being a decathlete is like having ten girlfriends. You have to love them all, and you can't afford losing one.
+- The stopwatch doesn't lie. The tape measure doesn't lie.
+- If you work hard in real life, people tend to get in your way - either from inertia or prejudice - and they stop you achieving things. It's the worst thing about real life compared with sports, where you generally get what you deserve: if you're the fastest guy, you win; there are no other games being played.
+- It's good to be difficult to know. Too many people are too easy to know.
+- In my heart of hearts my motivation would always have been to be the best, and I think that athletics is probably what I was built for.
+- Sport fosters many things that are good; teamwork and leadership.
+- There are lots of women tennis players, for instance, but because not many of them seem to have much personality, they're interchangeable. You don't have a feeling about them.
+- There's no day when I don't think it would be great to be 25 years old and have the Olympics coming in less than 300 days - and be the best in the world. I can't think of anything so motivating.
+- You can be an Olympic champion in 9.5 secs, but to be the greatest, there's more to it. It takes a bit of forethought and a lot of mental application.
+- I'm obsessive. I want to know the answer to how good I am. Most people aren't.
+- When I lost my decathlon world record I took it like a man. I only cried for ten hours.
+- What used to drive me was the fact that I wanted to be better than everybody at something. One of my best qualities is that I used whatever other people found to be an adverse thing to be a positive thing for myself.
+- I think one of the things about being a good coach is to recognise when you have given all that you can. In fact there should be some sort of unspoken law that says that a coach cannot have anyone for three or four years - if you have not passed on most of the stuff you know in that time, then you are not doing a good job.
+- I have the mentality of a winner. I first went to the Olympic Games when I was 17, three weeks after my O-levels, and I remember sitting in a dining-hall filled with the world's best athletes.
+- Athletes these days are too robotic. People like to see performances filled with emotion. In my career I tried to be amusing, to differentiate myself from the other champions.
+- I didn't even know what it was when I started. But I was lucky. I found it at 16. Most people don't discover decathlon until they're 21 or 22.
+- I tend to eat vegetables only when I'm with the kids and the rest of the time, I'm a bit slack. But, I am weight-conscious, so I concentrate on avoiding junk food.
+- When you're walking into the stadium, you just say to yourself, 'the 100m is the same anywhere, the shot put is the same weight anywhere.'
+- I'm competitive - that's what defines me - and I love it.
+- For kids it's natural to be competitive.
+- Kids are starting at such a low base rate in terms of fitness that it's taking them years to catch up to where people like me started from. Every little bit is making it more difficult for kids to succeed on a world stage.
+- Sometimes you have to resist working on your strengths in favour of your weaknesses. The decathlon requires a wide range of skills.
+- Ever since I was a kid, whatever situation I was presented with, I always made the most of it.
+- Retiring was hard. I'd spent 15 years doing something I loved, but when you get older everything seems to go. When I started spending too long with the physio and the doctor, I knew it was time to call it a day. But I had no preparation for being retired and I didn't know what to do.
+- In sport, if you want to be the best you have to compete against the best - I would much rather have come tenth and be judged against everyone than come first and be judged against just a few.

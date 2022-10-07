@@ -1,0 +1,24 @@
++++
+author = "Simon Winchester"
+title = "Simon Winchester Quotes"
+quotes_len = "18"
+description = "the best 18 Simon Winchester Quotes"
++++
+- We kid ourselves that we're trying to be empathetic with the human condition from a distance, but I don't think that is it at all. It's stupid; it's a waste of time. But when the earth flexes its muscles, that's rather different. That's a powerful reminder of where we are.
+- To be perfectly honest the old habits, specifically deadlines, still very much inform what I do. I am brutally disciplined about getting manuscripts in on time.
+- Nothing is eternally stable, and even Kansas isn't really in Kansas anymore. The earth is in a constant state of flux.
+- I do as much bookish research as I can but when I sit down to write, often I think, 'Wait, I was there.' That is one of the great advantages of having wandered around the world and lived in so many places and met such fascinating people.
+- We should all live in central or southwest Queensland in Australia, which is geologically stable. Or Kansas or Nebraska, because it's relatively geologically stable. I am sure there is no emergency plan for Topeka.
+- We associate the North Atlantic with cod. The motto of Newfoundland used to be 'In cod we trust.' It was a joke, but it was essentially true. But there is no cod anymore. And that's extraordinary. It's all because of either greed or politics - Canadian politics.
+- So research is a terribly imperfect science, and you learn an awful lot more after you've published a book, because people keep writing to you and saying, 'Oh, gosh, I was related to such and such a character and I have a letter in my possession.'
+- Nature is not evil. The world occasionally shrugs its shoulders, and people get knocked off. The earth, for geological reasons that are well known, is a fairly risky place to live. To be evil, you have to have intent. Any remarkable natural happening in which no human will is employed cannot be regarded as evil.
+- I don't hero worship for the sake of hero worship. When I find people who are truly remarkable - and I think Joseph Needham is a classic example - I do value their counsel.
+- Why do we as a people choose to live in beautiful and risky places? Beautiful places are relatively dangerous; the forces that made them beautiful are the same forces that will ultimately destroy them.
+- I find the science behind major natural events almost more interesting than the way in which those same events wreak their effects on human society.
+- My wife is very interested in fashion. I am absolutely not. I couldn't give a toss. Fashion is a perfectly valid thing to be interested in. I'm just not particularly interested in pop culture. I think I am more interested in things that have a settled permanence about them.
+- The nature of catastrophe is, after all, reasonably unvarying in the way it ruins, destroys, wounds and devastates. But if something can be learned from the event - not least something as profound as the theory of plate tectonics - then it somehow puts the ruination into a much more positive light.
+- All of those broken bones in northern Japan, all of those broken lives and those broken homes prompt us to remember what in calmer times we are invariably minded to forget: the most stern and chilling of mantras, which holds, quite simply, that mankind inhabits this earth subject to geological consent - which can be withdrawn at any time.
+- Having been in the newspaper business for a long, long time, I often wonder, Why do we actually need to know about something like a bus crash in Bangladesh that has no effect on us at all? That can be nothing other than voyeurism.
+- Millions upon millions of people came here full of hope and aspiration to this extraordinary land of liberty and opportunity, and helped build the United States. So the Atlantic Ocean was absolutely critical to the story of America.
+- I've come to accept who my readers turn out to be, rather than having some sort of demographic target.
+- I think they will never really enjoy true democracy in China.

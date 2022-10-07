@@ -1,0 +1,106 @@
++++
+author = "Shabana Azmi"
+title = "Shabana Azmi Quotes"
+quotes_len = "100"
+description = "the best 100 Shabana Azmi Quotes"
++++
+- A tender touch, a shared experience, listening to music that both enjoy, with the scent of fresh mogras, is my idea of a beautiful celebration of love.
+- When I entered the industry in the early 1970s, I was a gold medalist from the film institute, Pune. That was when graduates from the film institute were very quickly absorbed by the mainstream commercial industry.
+- We live in interesting times. Information overload can make it difficult to sift fact from fiction.
+- Unless you have strong roots in films, music, art, painting, or theatre, you can't talk high and think internationally.
+- It's only in India that you can have six couples going together on a honeymoon. I don't think it happens anywhere else in the world.
+- In Kaifi's poetry and in his work as a social activist, every setback only strengthened his resolve to fight back with renewed vigor and strength.
+- I can't describe fear as well as I can describe courage. Courage is when you overcome fear.
+- My fingers are always in every single pie.
+- Vulgar lyrics and suggestive, voyeuristic camera angles do not celebrate a woman's sexuality, they actually objectify her.
+- In times of crisis the artist must rise to the challenge and try to make sense from the chaos.
+- I've no problem with dying my hair for a role. But in real life, forget it!
+- I must confess that flowers are my weakness and I love receiving them, especially Indian fragrant flowers - Mogra, Rajnigandha, Sontakka, etc.
+- An actor's resource base must be life itself.
+- What I value is that I have been able to do some modest work to help women rise to the level of their potential.
+- My being Muslim is only one part of my identity. But particularly in India and the world over, a concerted effort is being made to diminish all other aspects of identity and only take your religious identity as who you are.
+- It is always necessary that we point out our flaws for the betterment of our country. If we do not, how can our conditions improve? But the atmosphere is such that if we criticize the government we are branded as anti-nationals.
+- One of the best things that we have in India is a free press.
+- I am on a strict diet now and medication. It's torture, I simply cannot eat every two hours, which is the way all nutrition plans work these days. I lose weight but the minute I start eating again, I rapidly put it back.
+- I am an optimist and my father was an optimist.
+- If the audience shows that it is interested in films portraying strong women, then the producers will be tempted to make such films.
+- Growing up, I was so sick of politics - it was in the house all the time - I was proud of not reading the newspaper.
+- I look back on my career with some sort of satisfaction.
+- Because I was involved in so many other areas of life and so many productive activities, I wasn't judged for not being a mother. There was no pressure on me for not having children.
+- For a country such as India, whose public healthcare system is already severely strained, the lack of awareness and adaptation of safe practices by menstruating women is known to add another dimension to the overall problem.
+- 'Aurat' is an iconic poem which is relevant 70 years later and informs me in the work I do with women.
+- I'm singularly lucky to have worked with directors who dared me to take risks and be different and I am thankful to the Indian film industry for giving me my primary identity.
+- There is a dumbing down of the news. Newspapers today seem more like tabloids. I have to wade through seven newspapers before I can find a couple of paragraphs that are serious news. What a pity!
+- I like having family and friends around me. Our house is always overflowing with guests.
+- India is a beautiful country. Any attempt to divide people cannot be good for this country.
+- Im hoping that for film actors there is this kind of emotional trigger on any subject. It need not be only slums. It can be anything. But even if it is tentative, sooner or later, it will - by its sheer force - engulf you in a way where you make a commitment and you get involved in it, beyond just making it an image-building exercise.
+- It seems kosher and OK to treat women as objects because the business of cinema is about images and when you have fragmented images of a woman's bosom and her swiveling hip and her twisting navel, it robs the woman of all autonomy and subjects her to the male gaze.
+- I'm not a great stickler for giving or receiving presents on birthdays, anniversaries, etc. as a 'must do.' I prefer giving a gift without occasion if I feel it's something a friend will like.
+- In 1986, I had gone on a hunger strike with Anand Patwardhan rooting for an alternative land for slum dwellers. My mother got very nervous and told my father to tell me that, 'what am I doing?' He sent me a telegram that read: 'Best of luck, comrade!'
+- If you stay cocooned in your own safety net, you cannot grow as an actor. You need to be socially engaged and invested to hone your skills.
+- We never had money but it was never a problem. The spirit of comradeship, the commitment to gender equality, social justice and a celebration of pluralism and India's composite culture provided the glue that kept us joyous and closely bonded.
+- India is a country that lives in several centuries simultaneously, and her people at any given time and place encapsulate all the contradictions that come from being a multi-cultural, multi-religious and multi-lingual society.
+- I've embraced life at all stages.
+- Look at poor Nirupa Roy. She got substantial roles, but at 30 they made her put grey in her hair. And Achala Sachdev was all of 16 when she played 60. She quit because she got nightmares about dropping a thali and screaming, 'Nahin!' You know an actor or any other human being needs to be comfortable in her space at whatever age she is.
+- For me, be it 'Arth' or 'Libaas' or 'Masoom,' there has always been space to break stereotypes or social constructs and perform beyond the norm. It happened all through my career and I am happy it did.
+- I am trying to Marie Condo the house starting with my books, although it's really hard to part with them! But I really want to de-clutter and get rid of stuff I haven't used for six months, whether it's clothes, bags, or shoes.
+- I think there is not enough understanding of the fact that in a democracy how you treat the security of the minority must be a very important part for the success of a democracy.
+- A fatwa is not a diktat, it's not binding. To turn the utterance of a non-entity into a fatwa and then talk about it endlessly really gets on my nerves.
+- Valentine's day has been reduced to a marketing gimmick. Buying diamonds for your beloved has no appeal for me.
+- My casting in 'Halo' produced by Steven Spielberg, which I am doing, is just color-blind casting; Asians have been questioning why best roles should not come to them and I am so happy about this color-blind casting. I am going to be just what I am in that film.
+- Hindi cinema needs to make working women and women of substance more visible.
+- Women's health is not a niche issue - it impacts everyone in some way. That is why a collective effort to improve awareness and understanding of menstrual hygiene is key to closing the gender health gap.
+- Dissent in art is a fundamental right. But if it is dissent about a book, a piece of art, and if you don't like it, you have the right to express your views outside the theatre, but you cannot create a law and order situation. Then the state has to step in.
+- Kangana has started believing in her own myth. She says she taught feminism to the film industry, she taught it nationalism. I'm glad she spelled that out because nobody else had noticed! I think she fears the day when she will no longer be in the headlines and so has to keep making outrageous statements to stay in the news.
+- Not belonging to any political party actually helps me because I value my independent voice above everything else, I treasure it.
+- We need role models in our society that the youth can look up to because that space is shrinking.
+- Earlier, there were only two hairstyles. If the hero had a fringe, he was village bumpkin. If he slicked his hair back, he was an urban sophisticate.
+- Art cinema is easier to do as situations in it are closer to real life.
+- In a patriarchal society like ours, women have to fight hard for a seat at the table. Boys are privileged over girls from birth. Equal opportunity and access for both girls and boys must become the norm.
+- At the age of seven, I wanted a doll with blonde hair and blue eyes like other girls in my class. But my father gave me a black doll and said 'black is beautiful.' Telling this to a seven-year-old was quite peculiar, but these were the values we inherited from him.
+- Why is a woman always judged only on the basis of her relationship with her family members and the time she gives them, and not on the basis of her success at work?
+- I've done whatever I've been compelled to do, and I've done it all to the best of my abilities. If I've been recognized or honored for what I've done then those are bonuses, not the reason for doing what I did.
+- It is accepted the world over that women are an essential part of what makes a society successful, and only through supporting and empowering women can a country truly be strong.
+- Earlier at 30, a girl's career was over. Now, all of our top actresses are above 30 and doing well.
+- Acting is all about reacting. When you look into the eyes of your co-star and there is truth in his eyes, giving a reaction becomes so much easier.
+- Fear is a phenomena that each one of us faces, in different ways.
+- Immunization protects India's children and, I stress, saves them from vaccine-preventable illnesses and deaths. Vaccines are not meant to harm our children.
+- I find it amusing that every time I was asked when I will work with Zoya or Farhan, I was quoted as saying, 'It will be easier to convince Steven Spielberg to cast me rather than my own children.' That has come true.
+- I absolutely loved working with Mahesh Bhatt. He and I were so much in tune that he would just press a button and I would start.
+- As children, my brother Baba and I would be taken to mushairas when my mother Shaukat Kaifi was touring with Prithvi Theatres, because we couldn't afford a maid.
+- For a long time I didn't believe that I couldn't become a mother. But when I finally came to terms with it, then I didn't look back.
+- I have been called a terrorist, among other things. In fact, I am seen in India as being anti-Islamic by the Islamic fundamentalists.
+- Over the years, I've consciously not done films that in any way suggest that women are subservient to men.
+- Acting in itself is changing. This change is because of the advent of the casting director. Earlier, there would be stock characters, who would be seen in every film. Now, casting directors are bringing fresh faces.
+- Whenever I was troubled and confused, I always depended upon my father to give me an objective perspective.
+- I remember people were horrified when I celebrated my 50th! 'Don't announce your age,' I was advised! How stupid is that.
+- After it was declared as an industry and legit money started coming in, actors were then given the choice of making one film at a time.
+- Smartphones have ensured connectivity like never before. We are bombarded with information on 24/7 television and other new sources. We are in constant touch with each other, communicating via technology.
+- Why cannot a woman be shown working out of choice, the way men do? Can't a woman work because she enjoys it and is capable of doing it? Why should they be shown leaving home for employment as a sacrifice for the family?
+- I am quite proud of being in Parliament, I actually love it.
+- My parents always encouraged us to speak our minds and to be respectful while doing so about issues that we thought strongly about and that was unconditional.
+- Some parents are ambivalent about vaccination after reading misinformed pieces and watching misleading videos on a popular mobile chat application. By electing to avoid vaccinating their child, they are denying their child's right to be protected against these severe diseases.
+- I grew up in a family that believed that art should be used as an instrument for social change.
+- I was very nervous about speaking in Punjabi. I have learnt it by heart.
+- It's interesting to see how 'Arth' still touches a chord in people's hearts all these years later. Men were very hostile when the film was shown in 1984. They were angry and said things like I'm teaching women wrong things by saying they have the choice to walk out of their husband's home if they are cheated upon.
+- My father used to celebrate all festivals like Eid, Diwali, Holi, Christmas, etc. with great gusto.
+- As an actor I have a cushy position because everything gets set up for me. I am only needed to learn my lines , take the light, hit my mark and rev up the emotion.
+- A woman director is not obliged to make a feminist film. She can make what she wants, a thriller, an action film, a comedy, or whatever, but hopefully, she will be informed by a gaze that is female.
+- People of Pakistan don't want a ban on Indian content in their country, but it is their politicians who want it. In our country too, politicians want to ban their art and artists.
+- An Indian Muslim can aspire to become a Shah Rukh Khan, can aspire to become an Irfan Pathan or even the President of India. And that makes the Muslim here far more hopeful and far less in despair than in any other part of the world.
+- My father was a rare poet. He was somebody who worked in the trenches. When he wanted to speak about social justice or gender empowerment, he spoke through his poetry.
+- If you only play the glamour doll and you want to cling on to the image, then it will be difficult. But if you don't, you will prolong your career.
+- The position that Indian Muslims have is unique because we exist in a democracy, which is something that cannot be said about many Muslims living in the world.
+- I'm not saying a housewife is in any way inferior to a workingwoman. No, she isn't. But as an activist, as a woman, I would say the choice of being a housewife or pursuing a career should be left entirely to the woman and that choice should be respected.
+- What bothers me about red carpet, particularly Cannes, is that it's an extremely important festival where stunning films are shown and nothing of that ever comes in papers. It's always celebrities standing with one hand on waist, I don't know who decided that as an attractive position.
+- Until the age of 19, I lived in the Communist Party commune where eight families lived in 180 to 200 square feet of space. In that world, social justice was a given. We grew up valuing that.
+- There was a film which I did many, many, many years ago which took 14 years to make. Fourteen years. It was a film called 'Oonch Neech Beech' and in one shot, Shashi Kapoor goes out for a jog and when he reaches, he is 40 kilos heavier!
+- We never had any money. All the money we used to get, my father would give to the Communist Party.
+- I am extremely proud of the fact that I have acted in art films.
+- I take care to conduct myself formally in public and not be brash. That is a given for people in public life. But I'm very bohemian and informal when I'm with friends.
+- Unfortunately, the Hindi film industry is a sitting duck; it is easy to hurl malevolent accusations. It is a systematic campaign to divert attention from real issues, failing economy, China border tensions, spiraling Covid cases, and farmers' agitation by putting the spotlight on the supposed ills of the film industry.
+- I don't see the point of having a favorite sari or a favorite outfit if I know that I won't repeat it. I'm glad Kate Middleton has been repeating her outfits and talking about sustainable fashion. Celebrities must set an example and repeat their clothes.
+- I think men and women are different - I am not saying better or worse, just different.
+- Some people feel that the purpose of cinema is entertainment - which in itself is a healthy enough goal, provided you define what constitutes entertainment. But I come from a family where I grew up believing that cinema - art - should be used as an instrument for change and that's the kind of cinema I've largely done and been attracted to.
+- I take up films only if I agree with the ultimate message the film conveys.
+- Terrorism should be struck down with an iron hand.

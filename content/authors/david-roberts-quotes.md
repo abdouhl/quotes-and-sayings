@@ -1,0 +1,18 @@
++++
+author = "David Roberts"
+title = "David Roberts Quotes"
+quotes_len = "12"
+description = "the best 12 David Roberts Quotes"
++++
+- I was doing research on the Mormon handcart tragedy when I came across information about Brigham Young sending out missions to the Indians in 1855.
+- Nobody realizes that Mormons were the first Americans to settle Las Vegas.
+- I knew that alpaca wool, with its cashmere-soft weave, had been transformed into cuddly knick-knacks ranging from pillows to teddy bears. But through selective breeding over the past 6,000 years, alpacas have so diverged from their llama cousins as to become quite different animals.
+- The United States came within a whisker of invading Utah in 1858 and starting a civil war three years before the Civil War. Because the conflict ended up fizzling out, it's not the most dramatic story about the West.
+- I went to the Grand Canyon with my family when I was about 8 years old, and I had a very blah experience. I think the scale of it is too huge - you don't appreciate it.
+- During the Spanish conquest of Mesoamerica in the 16th century, the Catholic Church's Friar Diego de Landa supervised the burning of hundreds of Maya codices - fig-bark books rich in mythological and astronomical information. Only four Maya codices are known to have survived.
+- Perhaps the greatest Maya mystery of all is the cause of the civilization's abrupt decline. The last dated stela erected at Tikal was put up in A.D. 869; the last anywhere in the Maya world, in 909.
+- Though Tikal may have been settled by at least 600 B.C., most of the city's edifices were built during what is called the Classic period of Maya history, from A.D. 250 to 900.
+- It's not at all naturally human to see something like the Grand Canyon as beautiful.
+- As scientific research demonstrates, llama wool's very coarseness and its range of fibers from fine to thick mean that it can be woven into clothing that's superior to down, fleece, sheep wool, and alpaca wool in criteria ranging from warmth to water resistance to usable life.
+- The earliest dated monument yet discovered in Tikal and all of the Maya lowlands, Stela 29, has a Long Count date of 8.12.14.13.15, which translates to A.D. 292.
+- When you sling a saddle atop a llama's back, just after he's rolled in the dirt to scratch the unscratchable tickle of having lugged an ungrateful hiker's 90 pounds of impedimenta another eight miles along the trail, you're struck by how matted, coarse, and snarly the wool seems. But that's why it makes for versatile outdoor wear.

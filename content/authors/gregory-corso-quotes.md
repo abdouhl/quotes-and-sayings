@@ -1,0 +1,21 @@
++++
+author = "Gregory Corso"
+title = "Gregory Corso Quotes"
+quotes_len = "15"
+description = "the best 15 Gregory Corso Quotes"
++++
+- I just trust people and they sense everything's gonna be alright.
+- My father went into the armed service and I never saw my mother - I don't know what happened to her.
+- The lucky thing was that I was Italian; when the other Italians saw me fight back, they came to my defence.
+- You see, I went to the sixth grade and that was the highest I ever went.
+- Anyway, I lived on the streets and did pretty good until I got caught stealing, what was it? I kicked in a restaurant window, went in and took all the food that I wanted, and while coming out I was grabbed.
+- The judge said I was a menace to society because I had put crime on a scientific basis.
+- My father took me back home, back to Greenwich Village, and he thought by taking me out of the orphanage he'd be out of the World War too. But no way - they got him anyway. He went in the Navy and then I lived on the streets.
+- I moved up over Lower East Side and I was adopted by eight foster parents; I lived all over New York City with these parents, man, till I was about ten years old.
+- I remember the people I knew in prison; I was very fortunate to know them - they came from 1910, 1920, 1930.
+- They, that unnamed 'they,' they've knocked me down but I got up. I always get up-and I swear when I went down quite often I took the fall; nothing moves a mountain but itself. They, I've long ago named them me.
+- My background did not start with the East Side; it started with Greenwich Village, which is West Side.
+- The other guy I dug a lot was Burroughs because he was a smart man already; he learned it through the druggie pool - the street scene of an old aristocratic kind of man.
+- I was what? - twelve years old - and I was thrown in the cells with these people, so I learned fast.
+- Now the Tombs, like the name says, are so horrible that they had to close it down. Today it doesn't exist and people go in the electric chair and all that.
+- Now, twenty years old, I come out and I go back to Greenwich Village. Now, of course, I'm a wealthy man.

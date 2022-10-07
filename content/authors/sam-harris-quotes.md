@@ -1,0 +1,76 @@
++++
+author = "Sam Harris"
+title = "Sam Harris Quotes"
+quotes_len = "70"
+description = "the best 70 Sam Harris Quotes"
++++
+- The problem is that religion tends to give people bad reasons to be good.
+- We should reserve the notion of 'morality' for the ways in which we can affect one another's experience for better or worse. Some people use the term 'morality' differently, of course, but I think we have a scientific responsibility to focus the conversation so as to make it most useful.
+- It is still fashionable to believe that how you organize yourself religiously in this life may matter for eternity. Unless we can erode the prestige of that kind of thinking, we're not going to be able to undermine these divisions in our world.
+- The wealthiest Americans often live as though they and their children had nothing to gain from investments in education, infrastructure, clean-energy, and scientific research.
+- Anyone familiar with my work knows that I am extremely critical of all religious faiths.
+- My concern with religion is that it allows us by the millions to believe what only lunatics or idiots could believe on their own. That's not to say that all religious people are lunatics or idiots. It's anything but that.
+- Human well-being is not a random phenomenon. It depends on many factors - ranging from genetics and neurobiology to sociology and economics. But, clearly, there are scientific truths to be known about how we can flourish in this world. Wherever we can have an impact on the well-being of others, questions of morality apply.
+- Religion provides the only story that is fundamentally consoling in the face of the worst possible experiences - the death of a parent, for instance. In fact, many religions take away the problem entirely, because their adherents ostensibly believe that they're going to be reunited with everyone they love, and death is an illusion.
+- The science of morality is about maximizing psychological and social health. It's really no more inflammatory than that.
+- While liberals are leery of religious fundamentalism in general, they consistently imagine that all religions at their core teach the same thing and teach it equally well. This is one of the many delusions borne of political correctness.
+- Many of my fellow atheists consider all talk of 'spirituality' or 'mysticism' to be synonymous with mental illness, conscious fraud, or self-deception. I have argued elsewhere that this is a problem - because millions of people have had experiences for which 'spiritual' and 'mystical' seem the only terms available.
+- There are a few dogmas and double standards and really regrettable exports from philosophy that have confounded the thinking of scientists on the subject of morality.
+- In my own case, the most inflammatory statements I have ever made are ones that I have written and remain willing to defend.
+- The usefulness of religion - the fact that it gives life meaning, that it makes people feel good - is not an argument for the truth of any religious doctrine. It's not an argument that it's reasonable to believe that Jesus really was born of a virgin or that the Bible is the perfect word of the creator of the universe.
+- While religious tolerance is surely better than religious war, tolerance is not without its liabilities. Our fear of provoking religious hatred has rendered us incapable of criticizing ideas that are now patently absurd and increasingly maladaptive.
+- Everything we do is for the purpose of altering consciousness. We form friendships so that we can feel certain emotions, like love, and avoid others, like loneliness. We eat specific foods to enjoy their fleeting presence on our tongues. We read for the pleasure of thinking another person's thoughts.
+- One of the great responsibilities we have as a society is to educate ourselves, along with the next generation, about which substances are worth ingesting, and for what purpose, and which are not.
+- Spiritual life can certainly follow the pattern one sees in the fake martial arts, with most teachers making nebulous and magical claims that never get tested, while their students derange themselves with weird ideas, empty rituals, and other affectations.
+- It is easy to see what many people, women especially, admire about Sarah Palin. Here is a mother of five who can see the bright side of having a child with Down syndrome and still find the time and energy to govern the state of Alaska.
+- To speak specifically of our problem with the Muslim world, we are meandering into a genuine clash of civilizations, and we're deluding ourselves with euphemisms. We're talking about Islam being a religion of peace that's been hijacked by extremists. If ever there were a religion that's not a religion of peace, it is Islam.
+- The fact that one can lose one's sense of self in an ocean of tranquility does not mean that one's consciousness is immaterial or that it presided over the birth of the universe.
+- Most people believe that the Creator of the universe wrote (or dictated) one of their books. Unfortunately, there are many books that pretend to divine authorship, and each makes incompatible claims about how we all must live.
+- It's simply untrue that religion provides the only framework for a universal morality.
+- You can learn something about a person by the company she keeps.
+- Moderates want their faith respected. They don't want faith itself criticized, and yet faith itself is what is bringing us all this - this lunacy.
+- The conflict between religion and science is inherent and (very nearly) zero-sum. The success of science often comes at the expense of religious dogma; the maintenance of religious dogma always comes at the expense of science.
+- Morality and values depend on the existence of conscious minds - and specifically on the fact that such minds can experience various forms of well-being and suffering in this universe.
+- We're right to say that a culture that can't tolerate free speech is... there are a wide range of positive human experiences that are not available in that culture. And we're right to want those experiences.
+- Most seem to think that while a person may not be responsible for the opportunities he gets in life, each is entirely responsible for what he makes of these opportunities.
+- Science is the most durable and nondivisive way of thinking about the human circumstance. It transcends cultural, national, and political boundaries. You don't have American science versus Canadian science versus Japanese science.
+- Any conception of human well-being you could plausibly have, the Taliban patently fails to maximize it.
+- As an atheist, I am angry that we live in a society in which the plain truth cannot be spoken without offending 90% of the population.
+- There must be right and wrong answers to questions of morality and values that potentially fall within the purview of science. On this view, some people and cultures will be right (to a greater or lesser degree), and some will be wrong, with respect to what they deem important in life.
+- In my experience with print journalists, the distinction between remarks being uttered on- or off-the-record is held sacrosanct, but the distinction between truth and falsity sometimes isn't.
+- While the religious divisions in our world are self-evident, many people still imagine that religious conflict is always caused by a lack of education, by poverty, or by politics.
+- It is time that scientists and other public intellectuals observed that the contest between faith and reason is zero-sum.
+- Atheism is nothing more than the noises reasonable people make when in the presence of religious dogma.
+- Science does not limit itself merely to what is currently verifiable. But it is interested in questions that are potentially verifiable (or, rather, falsifiable).
+- It's not so much religion per se, it's false certainty that worries me, and religion just has more than its fair share of false certainty or dogmatism. I'm really concerned when I see people pretending to know things they clearly cannot know.
+- Religious ideas about good and evil tend to focus on how to achieve well-being in the next life, and this makes them terrible guides to securing it in this one. Of course, there are a few gems to be found in every religious tradition, but insofar as these precepts are wise and useful they are not, in principle, religious.
+- Tolerance, openness to argument, openness to self-doubt, willingness to see other people's points of view - these are very liberal and enlightened values that people are right to hold, but we can't allow them to delude us to the point where we can't recognise people who are needlessly perpetrating human misery.
+- There is no reason whatsoever to think that Buddhism can compete successfully with the relentless evangelizing of Christianity and Islam. Nor should it try to.
+- We have Christians against Muslims against Jews, and no matter how liberal your theology, merely identifying yourself as a Christian or a Jew lends tacit validity to this status quo. People have morally identified with a subset of humanity rather than with humanity as a whole.
+- One could surely argue that the Buddhist tradition, taken as a whole, represents the richest source of contemplative wisdom that any civilization has produced.
+- Religion has convinced us that there's something else entirely other than concerns about suffering. There's concerns about what God wants, there's concerns about what's going to happen in the afterlife.
+- It is difficult to think of anything more important than providing the best education possible for our children. They will develop the next technologies, medical cures, and global industries, while mitigating their unintended effects, or they will fail to do these things and consign us all to oblivion.
+- The only thing that permits human beings to collaborate with one another in a truly open-ended way is their willingness to have their beliefs modified by new facts. Only openness to evidence and argument will secure a common world for us.
+- Nothing guarantees that reasonable people will agree about everything, of course, but the unreasonable are certain to be divided by their dogmas. It is time we recognized that this spirit of mutual inquiry, which is the foundation of all real science, is the very antithesis of religious faith.
+- The moment we realize that the only things we can intelligibly value are actual and potential changes in the experience of conscious beings, we can think about a landscape of such changes - where the peaks correspond to the greatest possible well-being and the valleys correspond to the lowest depths of suffering.
+- Muslim moderates, wherever they are, must be given every tool necessary to win a war of ideas with their co-religionists. Otherwise, we will have to win some very terrible wars in the future.
+- Human experience depends on everything that can influence states of the human brain, ranging from changes in our genome to changes in the global economy.
+- Science, in the broadest sense, includes all reasonable claims to knowledge about ourselves and the world.
+- We are now in the 21st century: all books, including the Koran, should be fair game for flushing down the toilet without fear of violent reprisal.
+- The moral landscape is the framework I use for thinking about questions of morality and human values in universal terms.
+- There's no way to reconcile Islam with Christianity. This difference of opinion admits of compromise as much as a coin toss does.
+- Almost all our suffering is the product of our thoughts. We spend nearly every moment of our lives lost in thought, and hostage to the character of those thoughts. You can break this spell, but it takes training just like it takes training to defend yourself against a physical assault.
+- The treatment of women in Muslim communities throughout the world is unconscionable. All civilized nations must unite in condemnation of a theology that now threatens to destabilize much of the Earth.
+- Morality must relate, at some level, to the well-being of conscious creatures. If there are more and less effective ways for us to seek happiness and to avoid misery in this world - and there clearly are - then there are right and wrong answers to questions of morality.
+- As a parent, it's my responsibility to equip my child to do this - to grieve when grief is necessary and to realize that life is still profoundly beautiful and worth living despite the fact that we inevitably lose one another and that life ends, and we don't know what happens after death.
+- I consistently encounter people in academic settings and scientists and journalists who feel that you can't say that anyone is wrong in any deep sense about morality, or with regard to what they value in life. I think this doubt about the application of science and reason to questions of value is really quite dangerous.
+- The atheist, by merely being in touch with reality, appears shamefully out of touch with the fantasy life of his neighbors.
+- Positive social emotions like compassion and empathy are generally good for us, and we want to encourage them. But do we know how to most reliably raise children to care about the suffering of other people? I'm not sure we do.
+- Many scientists have been drawn to Buddhism out of a sense that the Western tradition has delivered an impoverished conception of basic, human sanity. In the West, if you speak to yourself out loud all day long, you are considered crazy. But speaking to yourself silently - thinking incessantly - is considered perfectly normal.
+- I was actually already doing my Ph.D. in neuroscience when September 11 happened. 'The End Of Faith' is essentially what September 11 did to my intellectual career at that moment.
+- Nearly half of the American population is eagerly anticipating the end of the world. This dewy-eyed nihilism provides absolutely no incentive to build a sustainable civilization. Many of these people are lunatics, but they are not the lunatic fringe.
+- Strange bonds of trust and self-deception tend to grow between journalists and their subjects.
+- On the subject of religious belief, we relax standards of reasonableness and evidence that we rely on in every other area of our lives. We relax so totally that people believe the most ludicrous propositions, and are willing to organize their lives around them.
+- Atheism is not a philosophy; it is not even a view of the world; it is simply a refusal to deny the obvious. Unfortunately, we live in a world in which the obvious is overlooked as a matter of principle.
+- I don't think there's an interesting boundary between philosophy and science. Science is totally beholden to philosophy. There are philosophical assumptions in science and there's no way to get around that.
+- I think there are universal principles that we should want to understand, but that are not necessarily good for us. We could recognise universal propensities which current cultures can't fully eradicate, which we would want to eradicate if we could. Let's say, a tendency for tribal violence. Or racism.

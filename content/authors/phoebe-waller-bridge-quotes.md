@@ -1,0 +1,77 @@
++++
+author = "Phoebe Waller-Bridge"
+title = "Phoebe Waller-Bridge Quotes"
+quotes_len = "71"
+description = "the best 71 Phoebe Waller-Bridge Quotes"
++++
+- Having full faith that you can write something completely insane, and your actress will ground it and make it feel real, is a very liberating feeling.
+- Women know what they're doing all the time, and they're pretending that they don't.
+- I don't think there's an actor in the world who ever expects to get a call from the 'Star Wars' casting director - least of all me.
+- 'Transparent' was huge for me when I first saw it. I felt that, from an authorial point of view, no one was trying to sell characters to us, you know? It's the idea of not having to adore these characters and want to cuddle them; you just have to be into them and their psychology and be compelled by them.
+- When an audience is laughing with a character, they make themselves so vulnerable, and they open up. They expose their heart the moment they're laughing, because they're relaxed and they're disarmed.
+- I'm obsessed with audiences and obsessed with the journey that an audience goes on.
+- As women, we get the message about how to be a good girl - how to be a good, pretty girl - from such an early age. Then, at the same time, we're told that well-behaved girls won't change the world or ever make a splash.
+- The #MeToo and Time's Up movements have been a roar on behalf of women, and the voices are genuinely empowered now. I really feel that.
+- If you go into the mainstream with a female perspective that seems to resonate with a lot of people, you have a political agenda imposed on you: you are told that you are a feminist.
+- Fleabag knows men and women are equal and should be treated as such, but what she's confused about - and what I was confused about - was the idea that wanting bigger boobs doesn't mean you don't want equal rights.
+- To me, most comedy is dark comedy.
+- I'll never get bored of seeing flawed women on the screen.
+- I suppose the cult of the strong woman character on TV has probably been misinterpreted in so many different ways, meaning that a woman can't be emotionally complicated or want things or can't be weak in moments.
+- Wouldn't it be exciting if all women just went on strike? Just a woman's strike. Everything would fall apart pretty quickly then, wouldn't it?
+- People are always trying to be on top. And not always with a macabre agenda, but I think that people are desperately trying to remain in control, rather than being honest.
+- I change my mind every five minutes. I'm very brutal with my own process. I throw everything away very quickly, and then I have to go out and rummage through the rubbish in the middle of the night to try to find a bit I'd written a week ago.
+- I'm a massive control freak.
+- There's something very polite about the British accents. It's sort of sanitizing.
+- What's so useful about the British culture of politeness is the level of passive aggression is really fun to write.
+- Every time I see the rails of my photo shoots, it's like Dr. Seuss, or as if they've skinned Muppets.
+- The element of surprise is the most important thing and what keeps me interested in writing. I can feel it if I've written that predictable or boring line, and I will carry that around with me all day.
+- I can't deny 'Fleabag''s a very personal piece, but it's not autobiographical.
+- I don't think you can be a good actor and want to please, because so much about performing and acting is surprising people.
+- You have to make an audience feel like they can - and want to - change something about what they are watching. And that might be the thing that galvanises them in the end, that makes them come out of themselves and say, 'No! Don't do that!'
+- Throughout a lot of my 20s, my sexual allure and power was one of the most important things about me, my currency.
+- Our family dinner table was my first platform - every dinner was all about sharing stories and jokes and points of view.
+- There's nothing that makes me cry and laugh more than stories about friendship.
+- I'd been waiting to turn thirty my whole life. For some reason, when I was eleven, I was like, 'I know thirty's going to be good. Get through those twenties!'
+- People generally are just really nice to each other. You know, the good people.
+- Nothing brings me more joy than when people love what I do.
+- I think audiences can feel when they're being served a filler episode.
+- No one would touch me with a barge pole as an actress. It hit hard. I thought, 'What am I doing? This is a stupid idea!' It's like throwing yourself into a massive pond, and you feel like you're going to drown so quickly.
+- I think it's important that culture is this ongoing thing that needs to be nurtured, because there is no such thing as a quick, arty fix.
+- If you hear somebody say something absolutely horrendous about their own life, in quite a flippant, offbeat kind of way, when you meet people clearly trying to be strong and brave, the ones who are really good at it are the ones who break my heart the most.
+- I'm just constantly on the verge of bursting into tears with joy.
+- I'd like to think Fleabag's honesty makes her heroic in spite of her actions.
+- I think if you've got people on your side, if you've got people really laughing, you are able to make them cry.
+- I think it helped that 'Fleabag' had such a dramatic arc to it, even though it was disguised as a comedy.
+- I really, really wanted to write about just female relationships with other females and things.
+- So much TV is drawn out.
+- I really desperately want to write and direct my own movie.
+- I had such a supportive family, and I think that affects your life in such a profound way; it fortifies you completely.
+- I wanted to give people that feeling of wanting to hug the TV and just admit that you're unhappy.
+- I remember being a teenager and saying, 'Oh, I want to be an actress when I grow up.' And people saying, 'You need to be a good liar - are you a good liar?'
+- The main relationship in the whole series was the one between the camera and Fleabag. I had to convince myself that whoever was watching on the other side of the camera was instantly complicit with Fleabag and instantly a friend of hers.
+- This world of 'Star Wars' is just so accepting and beautiful that the idea a droid and a human are trying to waddle their way into a relationship is something that's celebrated.
+- I always knew that if I was ever going to perform something that I wrote in front of an audience, I was going to do the thing I most like to experience as an audience member, which is to be tricked.
+- We're just so self-conscious. However much we try not to be, on some level, especially as a woman and an actress, you have so much pressure when it comes your hair and the bags under your eyes and your skin.
+- Whenever I get stuck on something, I'm like, 'What would I do if I wasn't afraid? What would I write if I wasn't afraid? What would I say in this situation if I wasn't afraid?'
+- I'd go so far as to say I was bullied into writing, but sometimes you need that.
+- The joy and the pain for me is about tightroping between being a cynic and being a romantic - the tug between barely believing in anything and hoping for everything.
+- I just find all that stuff incredibly funny. I love a fart. I'd do anything for a good poo story.
+- You're allowed to bore your friends and family, but to bore your audience is unforgivable.
+- I feel liberated being around women who are liberated.
+- After the play of 'Fleabag,' we had conversations with different channels and with film companies about whether 'Fleabag' should be a half-hour sitcom, an hourlong, serialized drama, or a film. And I knew that it couldn't be a drama because I wanted to hide the drama - that had to be the surprise. I knew it had to be comedy.
+- I think it's part of human nature, that we want to achieve. It's definitely a kind of cosmopolitan nature, wanting to achieve in the fast lane.
+- However much people want to politicize every movement of a controversial woman in life or on the screen, we just have to keep being personal and truthful, or we will explode.
+- The idea of losing your best friend, basically, is the worst thing in world.
+- I just kind of like to feel myself into stuff by writing scenes and seeing what characters end up saying.
+- I see the portrayal of any believable female character as feminist.
+- It will always be relevant and always be inspiring to see somebody turning themselves into a warrior.
+- I don't think the challenge is asking an audience to like a character; it's inviting them to try and understand them... then making that journey entertaining and worth their while. It's a classic trick, but it's human, and it allows characters to have more depth.
+- You don't often see a cross section of female characters interacting with each other at the top of a chain.
+- Sausages are just funny. I don't know why. I can't explain it.
+- I always want to go darker, and I'm always being advised to stay on the lighter side.
+- I've been so obsessed with 'Game of Thrones,' and there's so much about nobility and duty that I think about a lot.
+- I think, a lot of time, I'm just writing my worst fears, of the idea of losing my mom or my best friend or doing something so terrible to somebody that's kind of deemed unforgivable or having a really broken family.
+- I think there's something funny about people who laugh in the face of convention or surprise us morally.
+- I always knew that saying the unsayable was going to be a powerful thing.
+- Every single performance of 'Fleabag,' I would learn so much from the audience reaction or how you could change it all the time, and I loved that sense that the performance is ever-growing and changing and could be affected by the audience.
+- I just love any kind of language that can change the energy in a room. There are no limits for me, as long as it feels like it's being used in a particular way to garner or elicit a very particular reaction so that you can then use that reaction later for something else.

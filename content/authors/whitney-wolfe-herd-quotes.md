@@ -1,0 +1,169 @@
++++
+author = "Whitney Wolfe Herd"
+title = "Whitney Wolfe Herd Quotes"
+quotes_len = "163"
+description = "the best 163 Whitney Wolfe Herd Quotes"
++++
+- I actually don't think about Tinder.
+- I truly believe that what we're seeing with online dating is very similar to what happened with the Myspace-Facebook era, where Myspace was once this place for online connecting for a very select group of young people. And then Facebook kind of hit at this moment where it was acceptable for everybody to do it.
+- I'm the most fortunate woman in the world - I have a platform, which doesn't just reach 10 people.
+- Everyone deals with trauma differently, and recovery is always a work in progress. But courage is contagious, and the more that people stand up and speak out against misogyny, the faster we can create the kind of world where we won't have to.
+- Have a dream, chase it down, jump over every single hurdle, and run through fire and ice to get there.
+- Now, women are expected to be equal to men in so many capacities - financially, career-wise, in education - yet the one disconnect was, and is, with relationships.
+- My goal is not to overtake Tinder or compete with Tinder. To be fully honest with you, I think Tinder is a great product. It's still my baby at the end of the day. So I wish it continued success. I still have equity in Tinder.
+- Love, friendship, networking - these are all critical connections and the foundation of a healthy, happy life.
+- We applaud any company making business decisions that empower women.
+- Amassing a user base is a lot harder than one might think.
+- Bumble is a connecting company. It's your place to find connections, whatever that may be.
+- I have been sexist before. I have called girls names. I have gone with the misogynist flow.
+- As long as you know that you're doing the right thing, do not care about what other people think about you.
+- Anyone can replicate a product. There are lots of brilliant minds out there that know how to code, but there's unique DNA to a brand. You cannot have a brand without people. That is the most important asset you will ever have.
+- I think it's smart to always keep an eye on the companies that sit within incubator communities, which bring together the skills and expertise needed to grow an enterprise.
+- I knew I was ambitious; I knew I was passionate and that I wanted to change the world in some shape or form, but I had no idea what that might look like.
+- I'm going to be honest. Up until I started work on Bumble, the 'f-word' scared me. People would ask me if I was a feminist, and I didn't know how to respond. The word seemed to put guys off, but now I realise, who cares?
+- I remember, when we were starting Tinder, we were like, 'We're going to be the next Instagram!' I remember sending my parents emails being like, 'We got 300 members!'
+- I think so many women allow themselves to be defined by somebody else's narrative.
+- I don't know why the leaders of social networks have overlooked the idea of rules. Real-life behavior is becoming more reflective of social media instead of vice versa, and that's a dangerous thing.
+- I always found it bizarre or strange that there was this unwritten set of rules around how a woman could interact with a man in terms of starting a conversation. While a man traditionally is always expected to make the first move, he risks rejection in a real way.
+- I personally have always hated dating. I was never vulnerable or insecure in any part of my life, but I would become that way with a guy because they have control, according to society, when it comes to dating.
+- When you're setting up your dating profile, choose the photos according to who you are today. A variety of recent shots that are a true representation of your character.
+- Life is about perspective and how you look at something... ultimately, you have to zoom out.
+- I always felt that, for me, as a woman, I always had to wait around. In all other arenas, I was ambitious and a go-getter, but when it came to dating, I wasn't supposed to go after what I wanted.
+- I'm so tired of this notion that women only need to support women. Why can't we all support each other?
+- I worked all day, every day. I thought about Tinder in the shower and dreamed about it at night. It wasn't just my job - it was my life.
+- Women need to support other women, and we must ensure we are providing women with opportunities that allow them to reach their full potential.
+- From its conception, I wanted Bumble's culture to match its values. If women were taking charge on our app, then they'd be running the show behind the scenes, too.
+- Hashtags are powerful, but they aren't powerful enough.
+- I'm so proud of the community we've been able to bring together, and the notion of women making the first move is no longer taboo; it's no longer a scarlet letter to have a voice.
+- Being solicited on LinkedIn is a real thing that happens.
+- I realized that that Golden Rule does not exist online. You are not held to that same standard as when there is a teacher in the room or someone monitoring behavior.
+- I am a firm believer that the only person who can make you feel inferior is yourself.
+- Women will always control the experience on Bumble.
+- I know in the business world, some women won't speak if there are men in meetings for fear of being seen as too assertive.
+- I've thought long and hard about this, and I think a lot of the dysfunction around dating has to do with men having the control.
+- In real life, we are all on our devices. We might go to a place where we fit the crowd and could meet someone. But, because we are all on our phones, you might not notice the cute boy behind you in line for coffee, and he's not going to notice the gorgeous girl sitting outside. So, we might as well notice them on our phones, on Tinder.
+- I will say that you can't live your life with any regrets.
+- I think we are the first feminist or first attempt at a feminist dating app.
+- There's an assumption that women don't start companies that earn more than X amount of dollars, or that have more than X amount of users, and Bumble is now really growing into one of the main players if you look at all the mainstream social-media platforms.
+- I think, traditionally, power is perceived as something that belongs to men and is an excuse to behave in a disempowered way.
+- We are becoming so fickle and self involved. Always looking for the next best thing - especially when it comes to people. We spend hours buried in our phones trying to keep up with the social lives of people we may not even know. Envy and the fear of missing out have taken over. Yet we are all still longing for human connection.
+- I'm obsessed with Topo Chico.
+- Candidly, I've noticed that throughout my career, whether in offices that are majority male or majority female, the men are quick to advocate for themselves for a higher starting salary or more pay bumps over time.
+- When I left Tinder, I had no intention of getting back into the dating industry. What I ultimately wanted to do was start this contagious complimentary social network, where kindness was at the helm.
+- Often, the best jobs come out of just meeting people and letting one thing lead to another.
+- I really try to ask myself the question of nine. Will this matter in nine minutes, nine hours, nine days, nine weeks, nine months or nine years? If it will truly matter for all of those, pay attention to it.
+- Safety is something you should never have to pay for. If you're abusive or, say, not who you say you are on Bumble, you're gone. We have a zero tolerance policy.
+- We have all been there: we see that gorgeous person across the room, and we want to go and speak to them so badly. However, the 'rules' of society mean we usually don't end up doing it, despite our friends' best efforts to convince us to. Time for a change. Be empowered and say hi! It's proven that people really like it when you take initiative.
+- There were dozens of dating apps when Bumble came on the scene, but they weren't able to attract critical mass in a young professional group.
+- In Italy, they say rain on your wedding day is symbolic of fresh beginnings, cleansing, a pure marriage, and also a wet knot that can't be untied.
+- Life's so much based on instincts and quick decisions, and people don't know what they're looking for.
+- I personally can tell you that all my girlfriends - and many women I've spoken to - have this fear of being perceived as desperate or forward when they want to approach a man. It was always, 'He must text you first' - but why?
+- Feminism wasn't really at the top of my vocabulary. I think what's been interesting for me - let me say this delicately - when I've been surrounded by men who don't believe women are equal, I didn't think women were equal, including myself.
+- Being able to put your blinders on, ignore negative opinions, and follow your strong intuition is what's validating to me. It's a great feeling to know you can trust your gut.
+- Bumble is about equality. We are reverse-engineering traditional societal norms.
+- If you truly want to find a meaningful relationship, you've got to find yourself first and learn to be confident in your own skin. Don't sacrifice anything about who you are to be with someone. That's setting yourself up for failure.
+- I'd read a lot about the psychology around rejection and insecurity, and I had noticed that when people feel insecure or rejected, they behave aggressively, erratically. Especially when you can hide behind a screen name or a profile picture.
+- We always need friends. And I think we come out of these highly social environments with university, college, wherever we were, and getting to a new city could be daunting. It can be lonely, and it's almost easier to find a date than it is to find a friend.
+- When women come together, we make a lot of amazing stuff happen.
+- Bumble is all about community and safe, empowered connections, and the Hive represents a natural extension of our brand and our values. We love that we've given people an opportunity to connect digitally, and the Hive allows us and our users to take that to the next level in a space where connections can come to life in person.
+- There is no better way to create a confident and meaningful connection with someone than to be self-assured and true to yourself. Remember, you want someone to truly appreciate you for you, not for your best side. There is only one you. Be proud of that and own it.
+- Bumble is the perfect fit for New Zealand, a country that has always been a world leader when putting women first.
+- Everyone in the dating business wants to know what women want - it's the billion-dollar question. But it's simple: put one in charge, and you find out.
+- The power lunch is no longer just for men. We all deserve a seat at the table.
+- When women fight for a higher salary, they can often feel guilty. When men fight for more pay, they feel empowered. I've always wanted to encourage women to go after the money they deserve.
+- Saks helps to empower women through how they look and feel - and Bumble wants to give all women a platform to connect with other empowered women, whether that's in dating, friendship, or business.
+- I had to live through being a woman who thought men always had a one-up... I knew I didn't like it. I thought that's how it was.
+- Bumble gives men a chance to take a step back and not be the macho aggressor that they may not want to be but were socialized to be. We think it makes for a better and more peaceful environment for everyone.
+- Hate speech, racism, and bigotry are intolerable realities that we must all come together to take action against.
+- If people are telling you that they don't believe what you're doing, that means you're doing something out of their comfort zone. And generally, people don't want to be taken out of their comfort zone because it's outside of the status quo.
+- As we all know, sexism in the workplace is a serious issue. It's something that needs active disruption and change.
+- Honestly, I'd rather hug than shake hands. I don't know where those hands have been!
+- I can guarantee that back in the day, if a woman was left alone and she needed to eat, she would have to hunt. It's not biological imperative that says men have to ask us out; it's social conditioning. And we can change it.
+- The men who use Bumble appreciate a confident woman, a woman who has a voice. A lot of men suffer from insecurity and fear rejection, too. Bumble removes that fear, as they don't have to make the first move, so it benefits both men and women.
+- Life is a lot more fun with good, positive people around you.
+- I was 24 when I was embroiled in a high-profile lawsuit. This was 2014, long before, en masse and on social media, we said #MeToo and #TimesUp. At the time, I felt completely alone. Visceral, hateful online harassment from strangers left me paranoid and anxious for years afterward.
+- Every woman in this world is allowed to define themselves how they want.
+- The implication that women are poised to make unfounded accusations in droves is even more alarming when every piece of data on false reporting contradicts that false notion. We need to believe women and believe in women.
+- You know what I will do sometimes? I'll let my phone die... and I will say, 'You know what, I'm not lying, my phone died.'
+- I always tell young women that they have a right to own their opinion, to speak up, and to make the first move.
+- Usually, it's men who run these big monster companies, and girl companies are usually much smaller - it's like an unwritten tech-industry stigma.
+- I had seen a lot of bullying on social media. If this is happening to me, who only a few people are paying attention to, what happens to somebody who is on a bigger scale?
+- I believe in taking people away from their desks and making them feel collaborative and inspire one another instead of being siloed.
+- Every point in your career is a learning lesson - I learned a lot about how much work is required to grow a user base and create a new product. I also learned that things take time and extreme hard work and passion.
+- Don't let something hurtful in your past hold you back from what you want to do. Be brave.
+- It's an epidemic. Instead of socialising and having proper conversations, we're staring at pictures of models in bikinis and wondering how they look like that. It's like self-loathing.
+- Our users have a relationship with our brand and are demanding more and more Bumble content, and we're committed to delivering that content with a team that's as talented as they are passionate about our mission.
+- Companies must put infrastructure in place to support their female employees and ensure that they receive the benefits of male and female leadership.
+- I just hope that more women realize that if your gut tells you you're doing a good job, you're doing a good job.
+- I've run into women who can be highly problematic, detrimental, and mean, just like I've seen that in men.
+- I realized that there's a big world, and really, the only way you can make a critical impact on something greater than your own little world is through technology.
+- Look at what is broken in society, figure out how to make it better, and then, around that, formulate a business.
+- Failure's a marker of success in its own right because you went out and tried something... If you really don't want to fail, go find a comfortable chair and stay there. Just don't go out and do anything.
+- My biggest struggle being a woman in the workforce has not only been with my mother, my grandmother, and a lot of my girlfriends. When I'm working late hours, I'm almost punished for it by them. It's almost absurd that I would prioritize work over catching up with my girlfriends. If I were a man, that would just come second nature.
+- Sometimes it's good to remember who you are outside of work.
+- We need to eliminate hate speech. We need to do our part to really engineer kindness on our digital platforms.
+- It's really important to note that Bumble VIBee isn't about weeding anyone out of the equation. Everyone is still allowed to use Bumble. If you're an active, engaging user, we reward you with VIBee status, and you can stand out in the app.
+- How does a queen bee behave? However she wants to. But please don't wait for someone to hold the door open for you when your own arms work perfectly fine - do it yourself.
+- I'm a pretty private person. I live in Texas, and I like my small network.
+- Be genuine. Put out what you want to receive; that's the same for real life and Tinder.
+- I think that a big shame of how women are approached in business is they're oftentimes looked to for perspective and not implementation.
+- I guarantee that if you threw 100 people into a room, the first three questions they would ask each other are: 'Where did you grow up?,' 'Where did you go to school?' and 'What do you do for a living?' Most people on Bumble are looking for a life partner, and those things have a huge impact on compatibility.
+- Bumble really sets the stage for an empowered and modern way to connect, which educated and forward-thinking groups of people have really gravitated to.
+- Don't be afraid to let someone go if it's not working. You're not a bad boss. You're not a bad CEO.
+- One of the biggest things I tell women is not to lose themselves in a relationship. If you're willing to alter yourself to find somebody, it'll never work.
+- After graduating in International Relations in 2011, I turned down safe, corporate job offers and instead accepted a position at an 'incubator' in L.A. - a tech word for a team of people who are funded by investors to create apps. I knew the future was digital and that I had to take a risk.
+- I am a huge advocate for anti-bullying in our youth. What I have seen with the rise of social media is that children are not facing bullying on a playground, they are facing it on their cell phones.
+- I'm suffering from the worst anxiety. I wake up reeling from panic at 4 A.M.
+- My best advice for a new Tinder user is don't just start swiping left or right. Take a moment and really evaluate everyone's photos before you say 'yes' or 'no.' Sometimes people don't know what they are doing when choosing photos.
+- If I outline Prince Charming, I could end up with someone with no chemistry. I don't believe in trying to calculate one type of chemistry via algorithm, but I do think you need to do as much as you possibly can.
+- I always wanted to have a scenario where the guy didn't have my number, but I had his. What if women make the first move, send the first message? And if they don't, the match disappears after 24 hours, like in Cinderella, the pumpkin and the carriage? It'd be symbolic of a Sadie Hawkins dance - going after it, girls ask first.
+- I sleep with the drapes open to rise with the sun. I think that's a healthy thing to do because even if you don't like to wake up early, your body does adjust.
+- The most successful apps have taken a societal problem and built an accessible and democratic solution.
+- I was always extremely creative. I was very artistic and never strong with numbers or science. I wanted to be an artist or a fashion designer. I wanted to be something that allowed for a lot of imagination.
+- After the launch of Bumble Date, users were starting to connect as friends, so we decided to launch BFF. When I was using BFF, I matched with someone who I then went on to hire at Bumble HQ. From there, I thought, why not create a platform for women to build business connections and advance their careers.
+- I want to go to every corner of the Earth where women are and make sure that every single woman on this planet knows that you should make the first move, it's OK to make the first move. They are equal, and they should be empowered.
+- The women at all levels of the entertainment industry - from interns to Oscar winners - who kept quiet to protect their careers should be a lesson to every CEO and HR department.
+- When I first got started in this whole world of online connecting, we were combating this antiquated stereotype of who used online dating, and we really set out to make it popular with millennials. What I find to be so fascinating now is, I'm seeing an inverse in that trend.
+- Books such as 'The Rules' and 'He's Just Not That Into You' need to go out of the window.
+- I run a dating site, but I will gladly tell someone, 'Do not date someone if it's not right.' And don't settle. This settling thing is insane. I've literally had to force friends out of relationships because they want to be married by a certain age, so they just date these guys that are not right for them.
+- The beauty of Bumble and this world of online connecting is it gives you access. Going down to the bar, what is your access? What is the access you're gaining there? Really, only a few people.
+- In our digital age, the Golden Rule is not enforced online.
+- I just don't harbor resentment toward anything or anywhere or anyone - I'm too busy.
+- When you can look at failure and say, 'What is the worst case scenario,' it's not as bad as it seems.
+- I was paralyzed for so long by people's opinions. I would be devastated to the point where I didn't know if I could make it through the day.
+- I'm 27, and I have no idea what I am doing half the time. I am just trying the best I can, and I think that speaks to a lot of other women out there.
+- Are we solving the world's problems by allowing women to make the first move on a dating app? No. But I do believe we are helping to change some very archaic norms.
+- What I have found is that the best way to unwind is cooking. You only have two hands. If you are chopping veggies, you are forcing yourself to put the phone down or step away from the computer. It's extremely relaxing.
+- Always know your merit and how special you are, and don't let someone else's qualifications make you feel small. If you stick to this, you will always deserve their respect.
+- If I want to make the first move, I want to go after something in my life, I should be able to do that without shame, guilt, or blame.
+- We will always put our values before our bottom line.
+- I would pay good money for a British accent.
+- Feminism is not about girl power. It is about equal power.
+- Who asks who out on the date? Who's supposed to pay for dinner? Who chooses where you go? Both partners should be involved in these discussions. If we want to be treated as equals, don't put yourself in a position where you set yourself up to not be equal.
+- So many entrepreneurs approach me and say, 'I want to start the next big thing,' and I say, 'Well, what are you solving?' And oftentimes they say, 'Oh, I'm not sure. I want to start something big.' You can never start something big without solving something small, right?
+- Networking is extremely masculine. It's a vulnerable thing to admit to, but even I experience feeling super insecure around certain masculine meetings. So, we put women in control. Women will make the first move on Bumble Bizz as well.
+- The dynamic of how women and men are meant to interact, for those of us who are looking for a heterosexual relationship, is very broken, and it leads to a lot of really dysfunctional relationships, abusive and otherwise.
+- If you're in a job that you hate, don't be scared of seeking out something that might be riskier. Anything can turn into something with passion and hard work.
+- I have so many girlfriends who are powerhouses: They have big careers, are fearless in traveling in third-world countries or a launching non-profit. But they won't text a guy for fear of being perceived as desperate. That is broken.
+- I didn't really understand the concept of feminism until the media started to talk about it surrounding my name.
+- I'm very artistic and creative, disorganised - ambitious, I would say, if that even makes sense. I'm definitely not the most mathematical person in the world; not scientific. I can't even work out a tip; it's really sad. But I've always thought, play up your strengths and let someone else handle your weaknesses. It's OK. Work together.
+- Misogyny is not something that you want to be a part of.
+- When you accept that failure is a good thing, it can actually be a huge propeller toward success.
+- There's nothing wrong with taking yourself out of the dating pool. You don't need to be in a relationship because that's what society expects of you or because your grandmother thinks you need to be married by a certain date. Those days are over. Instead, take a step back and say, 'I'm OK alone.'
+- The biggest lesson I've learned is that hurt people hurt people, and kindness is just as contagious. So if you can focus your efforts on engineering kindness, it will prevail.
+- I'm kind of in my own world.
+- We encourage failure among young men; we celebrate it... It's a badge of honour for a man. Yet attach those same words and experiences to a woman, and society writes her off.
+- Bumble was founded with several key values: empowerment, equality, and kindness. We are a company that was built to empower women and empower men to respect women. We want to create a place where all types of connections take place: a platform and a brand where women always make the first move.
+- Bullies will attack your confidence, but you cannot let them kill your ambition.
+- If we want to create change, we all have to be feminists - men, women, everyone needs to acknowledge that. Sometimes I have more in common with the man than I do the woman in the room.
+- If you're doing anything disruptive, and if you know it to be good and true and progressive, let the naysayers fuel you to work harder and go faster and sleep less.
+- Once a week, someone tells me to toughen up, get a sharper edge. I don't do that.
+- Online, I would never friend a random cute guy on Facebook or start liking his pictures on Instagram - even if I had a crush on him. But with Tinder, it's like following or friending each other at the same time. The risk of revealing your feelings is removed.
+- You have to accept people for who they are. You can guide. You can give people chances. But you cannot hold on to people in fear that you are bad because you can't keep everyone you've hired.
+- I was tired of a system where women waited around for men to send them a message or ask them out. With Bumble - first a dating app, now a social network that helps you make empowering connections in love, life, and business - women had to make the first move, or the match was void.
+- If I could police every other social platform in the world, I would.
+- I don't believe revenge is part of my agenda. I'm a firm believer that, just like hate spreads hate, love and kindness spread love and kindness.
+- I cannot compare and contrast Tinder and Bumble directly, but I will say that we have a very impressive, forward-thinking user base.
+- Never before has a major professional sports team partnered in this way with a female-driven brand like Bumble. It's an honor to partner with an organization as progressive and compassionate as the Clippers. Like us, they know generating awareness for diversity and gender equality is critical to business success.
+- Although it is tempting to describe the conduct of Tinder's senior executives as 'frat-like,' it was, in fact, much worse - representing the worst of the misogynist, alpha-male stereotype too often associated with technology startups.
+- Harass someone on Bumble, and you're banned for life. Harsh? Maybe. But I feel strongly that we won't end misogyny until we start holding each other to higher standards, and that starts with setting clear boundaries and enforcing them.

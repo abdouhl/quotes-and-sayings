@@ -1,0 +1,57 @@
++++
+author = "Willy Caballero"
+title = "Willy Caballero Quotes"
+quotes_len = "51"
+description = "the best 51 Willy Caballero Quotes"
++++
+- Monaco are strong and difficult to beat.
+- My daughters won't let me retire. Many times I joke at home that this will be my last year, and they tell me that I won't be able to live without it. I need to play it, watch it on TV or know what's going on.
+- My first game for City was at Wembley against Arsenal and I have a bad memory about this game because we lost.
+- The owners of the Premier League sides are like in the NBA, they're not millionaires, they're billionaires.
+- Life is the most important. Always.
+- I try to make the most of every minute I play.
+- I do not have to return to Argentina because I feel more like a European player. Here I came very young and I left my country at 22.
+- It would be perfect to play in two cup competitions and win them both.
+- It's both exciting and scary, I feel my heart and skin when I receive a ball. Of course I'm excited and scared but those emotions make me feel alive.
+- When you are in a team sometimes you hear 'Blah, blah, blah' complaining all the time about small things.
+- You work throughout the week to be prepared for the matches you're called upon to play. If you train badly you go into the matches with doubts.
+- Top players or experienced players make mistakes because we are human beings, we are people.
+- Everyone wants to be in the first team, but you have to accept the situation and keep working hard.
+- It is hard as a goalkeeper when we don't have the opportunity to play, we have to keep the faith, keep training well and when the opportunity arrives you have to be ready for it.
+- I want to play every single game.
+- But my instinct as a football player is always to try and grow and try and improve and I think I can do this by joining a big club such as Manchester City.
+- I have to be patient and try to take my opportunity when the boss decides I have to play.
+- When you are in the goal, you have to concentrate totally on the game, but in a shoot-out when the striker is walking towards the penalty spot, you remember what you have been through and see it as a chance to make the difference.
+- I wear the Argentina jersey with all the values I learned from my home and growing through football.
+- I have to improve all the time.
+- When I stated playing as a kid the centre-back would pass to me and I couldn't catch it.
+- Pep Guardiola is like going to university. I spent a year with him at City, learning something new every day. On the playing field, watching videos or at any time, when he approaches you and explains things to you. He has no problem teaching someone at 34 years old, as I was, like someone who is 18. He is a great teacher.
+- I talked with Manuel Pellegrini before he left Malaga. I knew of his intention to take me with him to Manchester City. But I was unsure whether he would stick with the same keepers he had already.
+- When I started at Boca, as well as when I got to the national team, I felt it was the top of the mountain, but they turned me around and I had to start from scratch.
+- I really appreciate having renewed for another year with Chelsea at 38.
+- I didn't want to be a goalkeeper in the beginning because my dad and uncle used to play in goal and I knew how much you suffer!
+- The most important thing is to win, it doesn't matter how.
+- Manuel Pellegrini had convinced me to go with him to Manchester City. I was doing very well at Malaga, but I accepted.
+- I don't worry about the thought of the game going to penalties - it doesn't matter!
+- Lukaku is a great player.
+- You can learn a lot from Pep Guardiola. From pre-season to the match itself. He has a vision of the game that is impressive.
+- I don't know how to do anything else that isn't training and playing football.
+- The team I used to play for as a kid, we changed goalkeeper every game. Finally I went in goal and we won - and they made me stay there.
+- I had to start all the way down the divisions and that is really difficult. You might be playing well and having great performances - but nobody ever watched us.
+- I think just playing in the Champions League is a big motivation. When you hear the hymn or the song of the Champions League, it's a big motivation for every player.
+- The day after my mistake at the World Cup, everyone had my number. I did not have a good time. Very extreme messages were sent to me, including death threats. And they made me think a lot about my family and my future.
+- The most beautiful moments of my career were under Manuel Pellegrini in Malaga, where we achieved big things and we made Malaga's name known around Europe.
+- Sometimes, yes, it is tough being a No. 2, sometimes no, if you're training well and you're prepared. You see the truth in a real game.
+- I am really happy here in Manchester and we will just see what happens in the future.
+- Pellegrini as a coach likes the team to be in control of the ball, and go forward.
+- I know I am coming to a big club with a very good goalkeeper. City already have a great goalkeeper in Joe Hart, but I will try and compete for the No. 1 spot.
+- I live for football and consume it whenever I can.
+- City has helped me and Chelsea has helped me to be in the national squad.
+- My daughter had cancer in both eyes - and we could save just one.
+- When I was 19 I came to play a friendly against England and I really liked how they played and how passionate the fans are.
+- Always when you play badly or commit errors, you hope to play another game to put it behind you, to show that you are capable and that you deserve to be playing for an important team like City.
+- You train hard. But when you don't play every week the pressure is even more when you are called up. It's not difficult for me though.
+- It is a privilege to be part of this Chelsea squad and the Chelsea family, at one of the most historic clubs in the Premier League.
+- I've always loved the Premier League, I watched it as a child and I always liked the style of play here.
+- I think Crystal Palace is always a tough place to go.
+- I could go back to Argentina to live, but not to play.

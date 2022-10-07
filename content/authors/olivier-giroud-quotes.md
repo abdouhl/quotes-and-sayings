@@ -1,0 +1,72 @@
++++
+author = "Olivier Giroud"
+title = "Olivier Giroud Quotes"
+quotes_len = "66"
+description = "the best 66 Olivier Giroud Quotes"
++++
+- I always work on my mind and my game.
+- I work hard in training to be ready.
+- Even if we don't play fantastically, with good passing and precision and finesse, the most important thing is to win.
+- I love London! But the thing I love the most is the Premier League.
+- It was the force of the ball. It made my foot bone and ankle come together and cracked. I thought I had just twisted my ankle, but it was a clear fracture.
+- I don't have an inferiority complex.
+- After an injury, I think you have to be strong mentally.
+- You need to have a great way of life - you have to eat well, to sleep well.
+- David Beckham is a top man. I love the guy and what he can show in terms of style as well. He's really classy, an icon.
+- All of my career, I have been - how can I say this? - I have been through certain difficulties, and I have always tried to make it motivation to get better and better.
+- As for myself, in sport you have to question yourself every week and be ready in your head, and you have to be at 100% of determination if you want to keep going and win games; you cannot afford to be at 80% or 90%.
+- Why did I choose Arsenal rather than Chelsea? Because it is a club I love, and I thought it would be easier for my adaptation.
+- Everybody gets criticised one day.
+- Football is very hard, and people see only the nice part of the job.
+- I always give everything for my team.
+- If I play, I try to give my best for the team.
+- If you are good on the pitch, good in training, you will have your chance. I'm not worried about my place.
+- I have a very good contract at Chelsea, but Dortmund really wanted me.
+- Fortunately, I'm OK with my body. I try to take care of it. I played a lot of games over a season for several years, so, touch wood, I will stay fit and healthy.
+- I know when I am good and when I am not good. I don't need anyone to tell me.
+- I try to be a leader on the pitch rather than off it.
+- Football, if I can say, is an everlasting new beginning. You always question yourself, but you have to be ready not just mentally but physically as well. You have to be fit and take care of your body.
+- It's nice to be at the top, but the most difficult thing is to stay at the top.
+- I feel really good at Arsenal.
+- When I was young, I looked up to Andriy Shevchenko. He was so elegant, and on the pitch as well.
+- The fact is that the coach wanted to recruit a new striker, and with Aubameyang's signing at Arsenal, there were three top strikers, and that's why I decided to leave.
+- Arsenal is a great club - the facilities are wonderful - but I feel it is a club that takes big care before signing a player, notably considering human values.
+- It's a massive club, and I am proud to sign for Chelsea, and I'm looking forward to playing.
+- I am here to win trophies, you know, to help the team to reach our targets. I feel blessed to have the opportunity to bring my small thing to the big machine. You know, for Chelsea.
+- For me the relationship you have with the coach is very important.
+- I have created a shell around me, in the good and the bad moments.
+- I am a competitor, and I want to win again and again.
+- When you are a striker, you need to give a lot of effort for the team, to keep the opponent under pressure, to press them, to win the ball fast - that's what I try to do to help the team. After that, I try to make some goals.
+- You have to have faith in your own qualities; that is part of being a footballer: being strong in your head. That is more than half of the quality you need to be a football player.
+- I have never been in a cage fighting UFC. It would be nice to try.
+- It's nice to be cheered, but I'll always have a good attitude on the pitch.
+- It was frustrating at Arsenal, obviously. For a year and a half, it went from bad to worse. I could no longer continue like that. I could not bring myself to spend another year at Arsenal and remain a reserve, even a second reserve.
+- I know too well how much I am going to miss football after my career for me to put up my own barriers.
+- The Premier League is my main target.
+- As a striker, what you got used to on a daily basis, it is to be applauded when you score goals. When the opposite happens, it's difficult.
+- When you are a striker like me, you always play for the teammates.
+- Second seasons are always better. In the first year, I felt a little bit of pressure. Maybe sometimes I didn't play naturally. I didn't feel relaxed on the pitch when I was ready to try something. It's complicated to explain.
+- When people are talking about a player to come and take your place, you take it personally because it's your position.
+- Arsene Wenger gave me the possibility to bounce back.
+- When you make the decision to join a great club, you know there is already a great forward.
+- We don't have the money of the Manchester clubs or Chelsea. Arsenal builds its team through training, through recruiting players who can become something. Arsenal has less money than some other clubs, so we have to fight with other values.
+- It's important to keep improving.
+- It takes time to adapt to become an Arsenal player.
+- It is really nice to play in the Champions League, because we play against the best teams and the best competition in Europe.
+- I wanted to stay in the Premier League, and Chelsea was a great opportunity for me.
+- The main thing is to work hard. When you work hard, you'll be in the team. It's as simple as that. And that's what I'm going to do, put my head down, work hard, and see where it takes me.
+- I've always been lucky enough to have made the right decisions, if I can say that. I've always felt that I've had good fortune in that way.
+- The Champions League is massive for a football player. There is nothing above it when you're playing for a club.
+- Diego Costa doesn't show any emotion. I am more emotional. So I have learned to control my emotions.
+- Starting games with the French national team helped me bounce back when it was getting difficult with Arsenal.
+- When I put my head in my hands after missing a chance, that annoys the coaches a little.
+- I think communication is massive in football and in all sports in general.
+- That's why I love the Premier League - it's the best championship; it is very hard.
+- I have certain values. I know where I come from. I am a hard worker. I'm conscious of my luck.
+- My ambition is to win some trophies. That's why I am playing football.
+- One thing is sure: I really enjoyed my five years at Arsenal.
+- You always have to work hard and keep the faith.
+- There is always room for improvement, but I am happy with what I am doing on the pitch.
+- Chelsea is a strong team defensively, and they are quite efficient up front with great players, so I think I will enjoy it.
+- I don't want to big myself up, but goals like mine leave a mark on history because they're rare.
+- You have to communicate - you have to click - to find automatic reactions with your teammates.

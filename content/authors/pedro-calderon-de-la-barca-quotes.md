@@ -1,0 +1,17 @@
++++
+author = "Pedro Calderon De La Barca"
+title = "Pedro Calderon De La Barca Quotes"
+quotes_len = "11"
+description = "the best 11 Pedro Calderon De La Barca Quotes"
++++
+- One may know how to gain a victory, and know not how to use it.
+- For even in dreams a good deed is not lost.
+- 'Tis not where we lie, but whence we fell; the loss of heaven's the greatest pain in hell.
+- Green is the prime color of the world, and that from which its loveliness arises.
+- When love is not madness, it is not love.
+- For all life is a dream, and dreams themselves are only dreams.
+- These flowers, which were splendid and sprightly, waking in the dawn of the morning, in the evening will be a pitiful frivolity, sleeping in the cold night's arms.
+- A good action is never lost; it is a treasure laid up and guarded for the doer's need.
+- What law, what reason can deny that gift so sweet, so natural that God has given a stream, a fish, a beast, a bird?
+- What is life? A madness. What is life? An illusion, a shadow, a story. And the greatest good is little enough; for all life is a dream, and dreams themselves are only dreams.
+- But whether it be dream or truth, to do well is what matters. If it be truth, for truth's sake. If not, then to gain friends for the time when we awaken.

@@ -1,0 +1,105 @@
++++
+author = "Demetrious Johnson"
+title = "Demetrious Johnson Quotes"
+quotes_len = "99"
+description = "the best 99 Demetrious Johnson Quotes"
++++
+- We've always been into juicing. It's one of the things that my wife likes to do. She's a vegetarian, so she loves to juice. And I'm a big health freak - well, when I feel like being it.
+- Each time I'm training and sparring, I'm always pushing myself to submit my training partners.
+- I'm not going to go out there and have these slugfests, but I'll go out there and dominate my opponent. That's what I do in my fight.
+- You look into an encyclopedia and ask what fighter can do any type of martial art at a high-caliber level, my picture will show up.
+- I always loved playing video games. It was something my mom did, and my sister played as well.
+- I don't care about being the champ champ. I want to be the only consecutive 12-time defending champion in any mixed martial arts promotion.
+- I've knocked people out from the clinch. I've submitted people from armbars, Kimura, last-second armbars. I've knocked people out with one-hand punch.
+- I hope people can remember me as the greatest. Who knows?
+- Obviously I'd love to see Demetrious Johnson, you know, 'Demetrious Johnson $500,000 payout baby,' absolutely.
+- A lot of people might sit back and watch Dominick Cruz doing his footwork, and say, 'Oh, Dominick Cruz just dancing around, and he runs away.' It's a totally different atmosphere until you get in there, and you actually experience it.
+- If I went up there and beat T.J. Dillashaw at 135 pounds, I have no interest whatsoever in staying at 135. People are like, 'Why not?' and I'm like, 'I have no interest in fighting guys who walk around at 160 pounds.'
+- For every champion, after you win the belt, you want to defend it as many times as possible.
+- You have to take the belt, and I dont give my opponents a chance to take my belt. I go out there and take away their opportunity to take my belt away from me.
+- You can tell MMA is a carb sport because it's fast; it's explosive. It's not a fat storage sport.
+- One of the things I always tell people is that when it comes to fighting and fight week, then I'm there for one purpose, and that's to fight and get the hell out of dodge.
+- In wrestling, when I was in high school, my coach said you should be able to hit every single move from any position. So, arm drag to double-leg, snap-down to double-leg. You should be able to hit a move from anywhere, so with my armbar, I can essentially hit it from any position because it's my favorite submission.
+- I'd rather have head stomps and kicks to the head on the ground rather than elbows because I think to kick someone in the head while they're laying on their back is very hard. Elbows are easy. You can be here, and I just cut you and won the fight.
+- Before there was a Ronda Rousey, there was a Gina Carano and Cris Cyborg. They finally fought, and we found out who was the baddest woman on the planet, and that was Cris Cyborg. When she hits people, I'm like, 'Whoo!'
+- I think the reason I'm the best pound-for-pound fighter in the world is I beat everyone in my division.
+- I come from one of the great coaches - Matt Hume, Brad Kertson - and my skill set is well-rounded.
+- I'm not looking for people to put that vote on me to be prom king of the UFC.
+- I'm never going to turn down a fight.
+- I take care of Demetrious Johnson, and the UFC takes care of themselves. That's nothing against the UFC; they're a well-oiled machine. They do an amazing job at advertising and making stars.
+- I don't care if my opponents are cheating or not.
+- I do have my cheat meals. I have Oreos inside the house right now, and I have beer and fried chicken and waffles. All that good stuff. But once it comes down to when I really want to get in shape and get lean, I'll eat clean and go with whole foods.
+- I'm the type of fighter who has never made an excuse. I fought with a broken rib, broken leg.
+- Honestly, I would love to fight Henry Cejudo. You've got that gold medalist in the Olympics, I would love to test myself against that.
+- You're starting to see a lot of fighters, like, 'We want more money so we can be able to retire eventually,' instead of, we get to 30 years old, and we're like, 'Alright, I think Costco has openings.'
+- I don't have small goals; I just have goals, and it's, one, stay healthy; and two, have a very successful career.
+- That's kind of how I see my workmanship: it's how many hours I put in that makes me better.
+- I really, truly appreciate Conor McGregor's style - his fighting style and the way he talks. The reason why is because he reminds me of a young Mike Tyson, a young Muhammad Ali, the way he talks.
+- The first time I fought Ian McCall, I cut carbs completely out of my diet all through training camp. I was afraid I wasn't going to make weight, that I'd get on the scale, and it would be all, 'He weighs 128,' and the people would throw cabbage at me. I basically cut all carbs on the diet, just eat chicken and greens all the time.
+- I work way too hard in the gym to woo the judges and just skate by.
+- That's one of the things I loved about Pride: the first round was ten minutes.
+- I'm a smaller guy, so I train at a high pace.
+- I love fighting for the UFC. It's an amazing company. I've done a lot of great things, and they've done a lot of great things for my career.
+- MMA has the rudest, most negative, dumbest, ignorant fans in the world - but it also has the most passionate fans in the world.
+- I do not like getting hit. I can take a hit, but I don't want to damage my brain if I don't have to.
+- I wasn't a person who hated working. When I was working and training, I loved it. I loved that I had to work that hard. I think it transformed into the gym and then transformed into the octagon. It was a good thing.
+- 'Super Contra' was the game I fell in love with. I played and beat that game with my mom.
+- Me, I'm a working-class man, and I go to my job, put in the work, and walk away clean and unscathed, and I like it that way.
+- As a fighter, I pay very close attention to the amount of marketing that goes into and around my fights, and I can tell you that you'd be hard pressed to find much that has been done to promote me outside of 'TUF 24,' which was minimal in comparison to other fights, fighters, and shows.
+- I would have to say fantasy RPG and MMOs are my favorite type of games. I love 'Dark Souls II.' That game is so hard and unforgiving; if you beat that game, you have true skills.
+- I believe me being married, having a life outside of fighting, gives me a mental break.
+- A lot of people misunderstand what it means to have good cardio. Good cardio is when you are able to push the fight, and I've shown that in all of my fights.
+- When I got into this sport, I thought all I had to do was beat people and finish fights, and everything else would take care of itself.
+- I never cared who I was going to fight because, at the end of the day, it makes no difference.
+- It's always about bringing in the numbers, the viewership. That's what gets you the money.
+- For me, you look at the beginning of his career, the man couldn't even make weight. That's how I found out about Henry Cejudo to begin with. 'Oh, Henry Cejudo misses weight again.' I'm like, who's this guy who keeps missing weight. When the UFC signed him, I was like, 'Great, you guys signed another guy who can't make 125.'
+- At the end of the day, UFC is a business.
+- If somebody goes, 'You should go to 135,' my heart's just not into it.
+- I don't bash my company. I don't bash my opponents. I don't miss weight.
+- At the end of the day, I know what my skill set and abilities are, and it's just going to take people a little while to recognize it. Whether that comes around or not, I'm not going to sit here in the corner and pout about it.
+- I worked a full-time job at a place call Caraustar. We recycle paper, then through recycled paper, we take it and we make V board out of it. If you buy a TV, a new couch, you see these little V boards that make like a V.
+- When I'm done my mixed martial arts career, the only people who are gonna remember me and respect what I did and how I lived my life are my two children. That's my legacy, ladies and gentlemen.
+- Some days I have off like Thursday and Sunday but typically Monday, Tuesday, Wednesday, Friday, and Saturday are dedicated to training if I'm in fight camp.
+- I'm a black-and-white type of dude. If you say something, I believe you're gonna do it.
+- There's money to be made, and I want mine.
+- I think 15 to 18 title defenses is something that would be in the record books forever.
+- Yes, I'm known as the most technical fighter in the world, and I'm going to keep that as my brand.
+- I don't want to say I was ever scared to voice my opinion. I was just trying to make a good example, I guess you could say. And even when I'm more outspoken, I believe that I am still making a good example for younger athletes and also future athletes.
+- UFC has failed to market and promote me appropriately.
+- At one point in time in my career, it was like, 'Oh, he never finishes nobody.' Then, the next thing you know, I'm breaking peoples' arms, making them tap out, and knocking them out. Then, the next thing you know, it's, 'Oh, I don't like his personality.' It's like, 'Okay, well, if you don't like who I am, I can't help you there, buddy.'
+- In the beginning of your mixed martial arts career, you're not making good money.
+- Truly, I am not afraid of one man in this whole UFC Octagon roster. I truly don't care. What's the worst thing that's going to happen to me? I lose. I get knocked out?
+- In my mind, there's more to life than just fighting. That's just how I am.
+- I saw Bobby Green and Lando Vannata, and everybody in the back was like, 'Oh, man, that's a sick fight!' And I'm like, 'Dude, look at his face, that cannot be good for his brain.' I'm just honest.
+- I grew up with a single mom, two brothers, and a sister, and after school, we would play outside then go home for dinner and play videogames together. It's something I enjoy doing, and it's also cheap entertainment compared to a movie or paying for cable. You pay $50 one time for a game, and you can play it as many times as you want.
+- My mind can't always be on fighting.
+- The first time I saw a commercial for my fight was UFC 210.
+- They'll always find somebody for me to fight. Whether I win or lose, they'll find somebody to fight, and I'll compete. I'll make money, and I'll pay my bills.
+- Pay-Per-View is run by drama. It is. It's true. I've done the research for myself. You look at Jon Jones. When Jon Jones fought Machida, probably did about $200,000, $300,000. When he fought Cormier, they made, like, $875,000.
+- Usain Bolt is the fastest man in the land; I'm the fastest man in mixed martial arts.
+- For me, I don't need to juice to make weight for my fights. I just do it for the health benefits - to keep my body healthy and to get my greens in me.
+- I don't allow people's outlook on me dictate what I do in my life and how I live my life.
+- My wife is very supportive.
+- If you're going to make as much money as you are, when you're fighting someone else, that's the one thing I always tell people is I would never turn down the truly rightful No. 1 contender in my division, because the UFC can actually strip you. They can say, 'You're not going to fight the No. 1 contender. We can strip you.'
+- I focus on staying healthy, going to the gym, and I go out there and fight.
+- Coaching 'The Ultimate Fighter' in my weight class, I couldn't do it. I'd basically be coaching people to beat me. I'm going to give you my riddle?
+- If you look at the end of a roll of toilet paper, like the brown paper tube, I basically worked in a factory that made humongous ones like that - for concrete or anything you wanted to put in there. I was the guy who chopped those up into smaller pieces, put them in a box, throw it in a pallet, wrap it up, jump in a forklift and put it on a truck.
+- I wake up around 8:30, 8:45. I eat my breakfast, hit the road by 10 A.M., and get to the gym by 11.
+- If you want to see great mixed martial arts, tune in when I fight. If you want to see drama and all of that stuff, you guys can go watch 'Bachelors in Paradise.' They'll give you enough drama you can want to watch.
+- I'm just a small guy.
+- There are things - I want to compete in a big tournament, like an eight-man tournament, like the old fighters. You're going to compete; you're going to fight this one and this one.
+- That's all I care about is being healthy.
+- I don't like to disrespect people or my opponents. Anything can happen.
+- I guess I'm bothered by how fans react to certain things and how they're interested in certain things over true talent. I've always appreciated talent over everything else.
+- I want the whole world to watch me fight. But you know if people are just tuning in to hear me trash talk are not fight fans.
+- I'm a good dad. I'm an evolved dad. You know, you see a lot of guys when they're in training camp, they go off, do their own thing. But I'm in the midst of it. Swim lessons? I'm there. Changing diapers, teething, doctor's appointments, I'm there 24/7.
+- Look at my track record for showing up to fights. Look at my track record of finishing fights. Look at my track record of getting fight night bonuses. Ask yourself if you think that if the UFC decided to truly put marketing dollars behind me that they couldn't sell me or my fights.
+- I'm very well-rounded. It's mixed martial arts.
+- I can eat whatever I want, and I don't get over 145 pounds. A lot of the guys who fight at 125 pounds, they get pretty big, and when it gets closer to the fight, they're walking around at 135 pounds. For me, I try to stay the same weight I typically walk around at.
+- I don't need to tell any one of you guys that I can do what I can do. I'll just show it to you guys, and if you want a little sneak peak, come watch me work out. That's how I do my thing.
+- That's the beautiful thing about mixed martial arts - and I'll tell people that - you have to think outside of the box.
+- All I can do is make sure Demetrious Johnson does the best he can on fight night and goes out and wins his fights.
+- I know why the UFC runs the business the way they do. I know why Conor McGregor makes a base pay of $3 million. But I think I justify my pay with my skill set, and I've always been willing to promote my brand.
+- I'm not in the business to get hit and take concussions.
+- I think the only person who will ever lose in a fight and still end up making a million dollars is Conor McGregor - that's just because of how his contract is structured or whatever.
+- Honestly, just all the love and respect from the fans, that's always the biggest thing that puts a smile on my face.

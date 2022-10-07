@@ -1,0 +1,82 @@
++++
+author = "Gus Van Sant"
+title = "Gus Van Sant Quotes"
+quotes_len = "76"
+description = "the best 76 Gus Van Sant Quotes"
++++
+- The rules of suspense are that you do know, and you just don't know when. In the Hitchcock rules of suspense, you are supposed to know that there is a bomb on the bus that might blow up, and then it becomes very tense - but if you don't know that there's a bomb and it just blows up, then it's just a surprise.
+- In high school, I read 'Silas Marner' and I was very attracted to this character - he was very rundown and he'd just stop, and things would happen around him.
+- Because I didn't have brothers, I was always interested in the kids down the street that had four brothers in their family, so I became one of them - but it was not my family. I've always been attracted to temporary families. They tend to be lost characters.
+- Once you're directing, you're kind of in a certain mode, where you're taking whatever is on the page and forming it into the film that you think it might want to be. So whether it's my writing or not, I still try to work with it in the same way.
+- One of the things that is devastating is I realise I haven't been living a different life than when I was, like, 12. I'm shocked at how reclusive I've been since then. I was unaware of it until recently.
+- You're following your track, the story, your only plan, your map for the audience, and all the other stuff is, like, the fun stuff: the costumes, the locations, the set-dressing and the actors. They can all be variable as you like if you stick - however roughly - to the path.
+- I mean, I think I'm pretty sentimental.
+- Now the music industry is sort of like a Craigslist venture, right? Where you're making your own records and selling them online.
+- Free time keeps me going. It's just something that's always been a part of my life. I was originally a painter, and I made films sort of as an extension of that, and then I started to try to make dramatic films because the early films were experimental films.
+- Gay marriage is the last bastion of, to me... as a legal, ceremonial, sentimental and religious side, it's one of the last steps. Retaining your job being one of the earlier steps, like, not getting kicked out of your job because you're gay.
+- I don't usually direct actors in the classic sense of that word. Instead, I try to remind the characters before the shoot what's going on in a very simple way. I then watch them, their inventions as actors, approving or not approving what they're doing.
+- Because I didn't have brothers, I was always interested in the kids down the street that had four brothers in their family, so I became one of them - but it was not my family.
+- If I'm diagnosed with cancer I might become despondent, but someone young might not, and they might need connections with somebody outside their circle of family because their family is so despondent.
+- I was once a shameless, full-time dope fiend.
+- I think that what I'm attracted to is people who are wild. But the self-destructive side comes out of the wild side. The wildness is very different from me. That's why I think I like it.
+- I don't think American independent films have ever really been particularly experimental, except for the original guys from the '60s who were huge influences, like Stan Brakhage, Robert Breer, and Stan van der Beek. They were the true independents.
+- My family moved a lot as a kid. We started in Colorado, where I lived for five years. We moved to Chicago for two years, to San Francisco for one year, Connecticut for seven, Oregon for a couple years, and then I went to school. So I was always moving, I'm still always moving.
+- I've told people who have just started to make a film that the one thing you might experience is this feeling that everybody is conspiring against you, because you're not necessarily able to tell what's real and what's not.
+- Yeah, Kubrick's a big influence. In something like 'A Clockwork Orange,' he is trying to use the practical light - I mean, at least he says that in his interviews, like they're not using traditionally Hollywood lights. In 'Elephant' we basically used no lights; we never really adjusted.
+- There is a common theme, though, in the stories I have told, which are usually associations of characters or families that are formed outside of a family circle.
+- Usually people just hire me.
+- Yeah, I try to be really calm.
+- Even if you try to copy a film shot by shot, you still can't. It's still your own film.
+- Well, I want to do everything in sort of a documentary style, ever since I started in the '80s.
+- There is a way that a younger person can accept the inevitable problem that they're going to die, whereas somebody a little bit older might be overcome.
+- The area of teenage life is not necessarily rarefied; we've all gone through that period. It's not as rarefied as a western or a space adventure or a gangster film, but it has its own dynamic.
+- I've always been attracted to temporary families.
+- Even when you're making a movie about life, death is a presence, and I guess it's part of my dramatic viewpoint. I'm not sure why exactly.
+- My department is to get actors to do stuff.
+- There's always a risk if you don't do things the way you've done things before.
+- I'm normally drawn to something I haven't done and seen before.
+- My art teacher in junior high was a very out gay man and a mentor to me.
+- In rare cases, I've had music before I shot the movie. I think that for 'Good Will Hunting' I had an Elliot Smith record or a couple of them and I just somehow felt like the sound had something to it that reminded me of the story. So in that case there was music beforehand.
+- I think that for the actors, the last thing that they want is a director that's not watching, a director that goes 'Okay, it sounded good to me,' and they were doing something else or preoccupied with something else because they were worried about the light changing.
+- I find it interesting, the different rules that apply to journalism and drama, even though journalism has become more and more about entertainment, and entertainment has become more and more about journalism.
+- Usually, when I read something, I'm looking for the story first. And then, when I re-read it, I check every part of it to see whether every scene is necessary. You imagine yourself watching the movie, to see whether or not you're losing the through-line of the story.
+- For all the boredom the straight life brings, it's not too bad.
+- The artist himself is actually the subject in everything after, say, 1900. Eventually, art becomes so removed from the community that you have to know about the artist before you can even look at the painting, because there is a conceptual idea going on.
+- I was originally a painter, and I made films sort of as an extension of that, and then I started to try to make dramatic films because the early films were experimental films.
+- If you don't have the story and the unfolding of the trajectory of the saga, it's like getting in a car and not having any gas.
+- I had wanted to do a comedy.
+- Wong Kar-Wai is a really great inspiration. He's always referred to as the Jimi Hendrix of filmmaking.
+- Everything's changing so fast that it's sometimes hard to keep up.
+- The biopic also wasn't a form that I necessarily believed in, because you can never really get it right, you know? It's also a form that's very popular - the straight-ahead biopic.
+- Death Valley is really wide-open - it's bigger than Rhode Island - and it's less a part of California than an ungoverned territory, so there's lots of weird cops-and-robbers stuff going on.
+- If you put up posters around town for high-school kids, high-school kids will come. If you're casting politicians, you can't put up posters and have politicians come down.
+- My art teacher in junior high was a very out gay man and a mentor to me. He would tell us about Greenwich Village and show us the 'Village Voice' and describe his life, but it was all sort of subversive and below the radar.
+- When I grew up in the '60s, we were actually dominated by this, you know, sort of conforming '50s culture, even though we were like trying to express our own culture, like, the dominant culture was the thing that was forming us. And I think that that's true today.
+- I had never had a positive leading character - somebody that wasn't an antihero, or who wasn't more of a guy that you're supposed to be on the side of.
+- I have my ideas of what a good documentary is, but drama is a different animal because you're arranging everything.
+- The reason I know about 'Tomb Raider' is from when I was researching 'Elephant.' It was 1999, and I was trying to research the Columbine-massacre kids, and they had played video games, and I, at the time, had never really seen one. It was a world I didn't know.
+- You know, I don't think I had a concept of what I would be or do.
+- Free time keeps me going.
+- The dark comedies tend to be in a non-releasable area. There can be romantic comedies. There can be dramas. But there's no 'dark comedy' inbox for the advertising.
+- Usually when I read something, first of all I'm looking for the story and then when I reread it, I'm sort of checking every part of it to see if every scene is necessary.
+- My family moved a lot as a kid. We started in Colorado, where I lived for five years. We moved to Chicago for two years, to San Francisco for one year, Connecticut for seven, Oregon for a couple years, and then I went to school.
+- Modern-day cinema takes the form of a sermon. You don't get to think, you only get to receive information.
+- There's a lot of films that have relatively rigid road maps because they have a script and others that are less rigid because they have less of a script, like 'Elephant.' The road map becomes more interpretive, maybe, than one with a detailed script. Editing-wise, they all have their problems.
+- Even when you're making a movie about life, death is a presence, and I guess it's part of my dramatic viewpoint. I'm not sure why exactly. Maybe I'm drawn to it as a story element.
+- I'm thinking of remaking 'Psycho' again. Doing a third remake. The idea this time is to really change it - we're talking about doing a punk rocker setting.
+- I'd come into filmmaking as a painter so, for me, making 'Good Will Hunting' was experimental because I didn't know how to do it.
+- With 'Good Will Hunting,' Miramax made certain the recruited audience wasn't expecting to laugh at Robin Williams like they normally do. From my limited experience, you can really blow test screenings by conducting them in the wrong way.
+- There are all kinds of ways that people present their films, but that's kind of a good feeling, if you can make it seem like the characters are really there.
+- I've always been interested in how to present something that relates to our reality - which is not really... I don't even know if documentary itself does as good a job. It has its own problems in trying to get at the reality of the situation.
+- I think that in some cases, I've made films that have a sentimental quality, at least as part of the film.
+- I did 'Mala Noche' as a way to do something that was outside of the system, because I was outside of the system, and I deliberately chose material that Hollywood wouldn't touch in a million years.
+- If a movie isn't released, it's one thing, but if you know it will be, it's nice to have closure and see it come out.
+- The things that inform student culture are created and controlled by the unseen culture, the sociological aspects of our climbing culture, our 'me' generation, our yuppie culture, our SUVs, or, you know, shopping culture, our war culture.
+- When I was 14, I felt very rundown; I had a home to go to, but I felt like I was 60 or something, older than I feel now. And I don't know if it's something that happens at 14, or whether it was adolescence or whether I was gay, or closeted gay, or whatever it was, I felt that.
+- When you get to be 23, 24 or 25, you start to freeze up and become an adult.
+- If it were up to the executives, they probably wouldn't have directors at all.
+- I hadn't made a big-budget film, and in Hollywood there's a sort of man and boys situation. You're a man, you make $80 million movies! As if it's harder to make an $80 million movie. Well, I guess businesswise it is because you have more executives to argue with.
+- The media has gone through lots of things that make it a less foreign thing to have your lead character be gay.
+- I think over the course of 14 films, I'm returning to a place that I know to tell a story... the same way Spielberg returned to fantasy, Lucas returned to the 'Star Wars' saga, or John Ford returned to the western.
+- I'm usually trying to react to what the actors are coming up with. And then the environment, and then the story.
+- Sometimes, the people who are helping you can drop the ball.

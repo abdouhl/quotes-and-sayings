@@ -1,0 +1,69 @@
++++
+author = "Sabrina Carpenter"
+title = "Sabrina Carpenter Quotes"
+quotes_len = "63"
+description = "the best 63 Sabrina Carpenter Quotes"
++++
+- Singing is about telling a story. When you are onstage, you get to be your own self... When acting, you're someone else.
+- I have so many goals and aspirations that sometimes I lose myself.
+- Every Christmas Eve, the elves will come and give us a new pair of pajamas.
+- My favorite thing before going to school was watching 'Full House,' 'Sabrina the Teenage Witch,' and 'Boy Meets World.'
+- We all have stories for a reason, and if we keep them to ourselves, I don't feel they would help anybody.
+- My favorite makeup look was for my 'Eyes Wide Open' video done by Torsten Witte. It was so dramatic and definitely captured the magic of the video.
+- Confidence is the most beautiful thing you can possess.
+- I approach everyday personal beauty very naturally; I try to make it look like I'm not wearing makeup.
+- Whenever I'm out and I hear something, I'm writing. It's the process of writing it down and then just always creating wherever you go. I never stop creating.
+- The number one priority in life is to take care of yourself and make sure you're happy.
+- You need to experience life to be able to write about friendships, relationships, and heartbreak.
+- I sing a lot, so if I have lipstick, it gets all over the microphone, so I rarely wear lipstick.
+- I think it's such a powerful thing: Words and melodies, and you put them together. I couldn't really picture a world without music. It would be quite boring.
+- The first songs I learned was 'Crazy' by Patsy Cline and 'At Last' by Etta James. I had been growing up with the Beatles, Pink Floyd, great bands.
+- I get inspiration from literally everything and anything. I take inspiration from people, relationships, stories, and I take inspiration from movies I see, books I read and songs I hear.
+- I live every day, day to day. I will go wherever life takes me. I'm not questioning it.
+- A bad hair day for me is when it gets flat and greasy.
+- I loved all of the 'Zenon' movies. Those were my jam mostly because of the fashion. I loved something about the space buns and the weird neon colors. I couldn't just wear that in real life because people would look weirdly at me, but maybe at a party or something.
+- I've always wanted a 'Full House' reunion, so when you see stuff like this comes back, it's super exciting.
+- I might not know who I was yesterday or who I'm going to be tomorrow, but I know who I am right now.
+- As long as I was well fed, I was a very, very nice child. I just used my imagination and played with Barbies. I was pretty easy.
+- Honestly I'm not a huge TV person. The only show that I've seen every episode of is 'Pretty Little Liars.' It's my favorite show. I wish I could get into other shows, but I just don't have time!
+- I'm definitely a hair down girl. I'm a fan of the natural, earthy look.
+- If you don't have anything nice to say, don't say it at all. And if you do have to say it, make it really funny so I can screenshot it and save it for later.
+- When I was 6, I opened my mouth and didn't stop singing. I had a voice and wanted to use it.
+- It always feels good to put something you're proud of out in the world.
+- There are a lot of things that people go through, and maybe they don't know how to get through it, and maybe you do, and if you have some sort of knowledge or power, share with the world.
+- Everybody takes at least 20, so even if you see a good selfie, it probably wasn't the first one. So my tip is to just not take it too seriously and have fun.
+- I was really scared to stay home alone when I was kid, and I would freak out whenever there was a noise after my parents left.
+- I didn't realize I was in an awkward phase when I was in an awkward phase. It was when I was between the ages of 9 and 11. I was homeschooled. Everything I wore was pink and sparkly. And I had an obsession with headbands. I felt like I rocked them, though!
+- I'm very lucky; I have a lot of knowledge. My favorite band is The Beatles, so a lot of inspiration for my music comes from them, too.
+- Everyone takes a bad selfie - the first thing is to know that.
+- Every free day, every weekend, I am in a recording session. I'm very lucky to have such supportive people around me.
+- I've never had to fend for a child's life, which sounds very terrifying.
+- If I wasn't five-foot, I wouldn't be who I am! My size is a huge part of me.
+- My first inspiration for acting came from the first episode of 'Hannah Montana.' That's when I knew I wanted to be a singer and an actress.
+- I've never paid too much attention to what other people have said or to what other people have tried to make me be. I've always just tried to be myself, which is such a weird thing to say.
+- That's just a symbol of how you should deal with a breakup. You can cry for a little bit, eat some ice cream, but I think, after that, it's like, get up, listen to some powerful music and do something that makes you happy, be productive.
+- I think the song itself, 'Smoke and Fire,' is just a metaphor for the feelings that you feel in a relationship.
+- Everybody has their own story - it's who you are. If I wasn't five-foot, I wouldn't be who I am!
+- I'm not quite sure how I would do babysitting.
+- Everybody loves a good Christmas song if you do it right.
+- I have always looked up to Adele and Christina Aguilera as singers ever since I was very young, and now my favorite male singer is Hozier.
+- It's hard to see someone with a 'perfect' body and be like, 'Why can't I be like her?' But that person was born to be who she is, and you're born to be who you are.
+- When I'm recording my album, I want to be acting, or when I'm on set, I want to be making music. I guess we'll see how it turns out and which one overpowers the other... but I couldn't really see my life without them, both of them.
+- My size is a huge part of me. You just have to appreciate those kinds of things. So I wasn't born with long legs - who cares. You just have to embrace it. Being body positive is really important to your overall happiness.
+- I listen to music to when I'm feeling a certain way or to make myself feel a certain way. So why not make my own music inspired by true emotions?
+- I think I started doing covers when I was... what, like 9 or 10? I would always do the songs that I wanted to do and the songs that my parents wanted me to do. You would see me cover every Adele, Christina Aguilera, Taylor Swift and Carrie Underwood. Then I'd have to do 'Sweet Child O' Mine' and 'Crazy Train,' and it was a really weird combination.
+- For musicians, Musikfest is the most cool event.
+- Music is where I started. It's kind of the base of everything.
+- If you're going to sing on stage, wear lip stain.
+- I didn't feel self conscious 'cause my sisters and I all had thick brows, and by the time I got to the age that I could be self conscious about them, they were in style!
+- What you wear onstage is a reflection of your artistry.
+- I feel like the more I work on different songs and the more I work on my voice constantly... I always feel better after I post a cover. Even if it's doing the little 15 second covers, I'm working on my craft, and it's really good for me, and I feel good after I do it.
+- I like to emphasize my eyes because if I do it well enough, then they look very blue.
+- There's so many things that I've gone through that I want to share because there's other teenagers that are going through the same things or will go through the same things.
+- I'm trying everything. But voice work is the best thing you ever imagined. It's not about how you look, and you can go to work in your PJs.
+- I go through my comments sometimes, and I'll just take snapshots of the terrible ones and send them to my friends. I know it's horrible, but they actually make me laugh. They make my day.
+- I can't speak for boys because I'm not one! But I just imagine they think differently.
+- When I was growing up, we went to Musikfest every year, and I have vivid memories of the corn on the cob. I'm going for the concert, but I'm really going for the corn.
+- Being body positive is really important to your overall happiness. It's hard to see someone with a 'perfect' body and be like, 'Why can't I be like her?' But that person was born to be who she is, and you're born to be who you are.
+- Truly, with a sitcom and the rhythms of comedy... music is so helpful in that area of life.
+- Time will heal everything.

@@ -1,0 +1,16 @@
++++
+author = "Douglas Hofstadter"
+title = "Douglas Hofstadter Quotes"
+quotes_len = "10"
+description = "the best 10 Douglas Hofstadter Quotes"
++++
+- We all have heard it claimed that 13 is an 'unlucky number.' Indeed, there are many hotels in America that for this very reason claim not to have a 13th floor, in the sense that there is no button bearing the label '13' in their elevators (I recently stayed in one in New York, in fact).
+- You make decisions, take actions, affect the world, receive feedback from the world, incorporate it into yourself, then the updated 'you' makes more decisions, and so forth, 'round and 'round.
+- Many people believe that our lives end not when we die but when the very last person who knew us dies. Memory is part of it, yes, but I think it's much more than memory.
+- This sentence contradicts itself - no actually it doesn't.
+- I don't feel I have the right to snuff the lives of chicken and fish.
+- If a mosquito has a soul, it is mostly evil. So I don't have too many qualms about putting a mosquito out of its misery. I'm a little more respectful of ants.
+- You can imagine a soul as being a detailed, elaborate pattern that exists very clearly in one brain. When a person dies, the original is no longer around. But there are other versions of it in other people's brains. It's a less detailed copy, it's coarse-grained.
+- For 13 to be unlucky would require there to be some kind of cosmic intelligence that counts things that humans count and that also makes certain things happen on certain dates or in certain places according to whether the number 13 'is involved' or not (whatever 'is involved' might mean).
+- There has to be a common sense cutoff for craziness, and when that threshold is exceeded, then the criteria for publication should get far, far more stringent.
+- It always takes longer than you expect, even if you take Hofstadter's Law into account.

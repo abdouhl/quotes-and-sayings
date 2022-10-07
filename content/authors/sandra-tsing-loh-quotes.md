@@ -1,0 +1,77 @@
++++
+author = "Sandra Tsing Loh"
+title = "Sandra Tsing Loh Quotes"
+quotes_len = "71"
+description = "the best 71 Sandra Tsing Loh Quotes"
++++
+- I think my father, who was Chinese, basically felt if we didn't major in science, we would starve on the streets, so we all went into science unquestioningly. I kind of faked my way through physics.
+- Very, very few adults possess so much charm that they can long be supported by another adult based on that attribute alone.
+- The paradox is, I can't miss the good things about my father while he is alive, but I will of course miss him... when he is dead.
+- Just because marriage didn't work for us doesn't mean we don't believe in the institution. Just because our own marital track records are mixed doesn't mean our hearts don't lift at the sight of our daughters' Tiffany-blue wedding invitations.
+- There's an image that some of us have of Jackie Onassis, stepping out in the rain, and Maurice Tempelsman is holding her umbrella. We want that man. We want the man to be the concierge and the masseur and the travel booker.
+- My generation is so used to having our public spaces look like the Starbucks, with the beautiful lighting and the little bit of Nina Simone and my coffee that's blended a certain way from Costa Rica.
+- I really don't think our school system is an evil borg force. It's sort of like the government. It's not even efficient enough to be a borg of total evil, even if it wanted to be.
+- We all fantasize about work that uses our creativity, is self-directed, happens during the hours we choose, and occurs in an attractively lit setting with fascinating people - you know, jobs like women have on TV.
+- Some of us stay married because we're in competition with our divorcing 1960s and 1970s parents, who made such a hash of it. What looks appealing to us now, in an increasingly frenetic, digital world, is the 1950s marriage.
+- I am a longtime, rabid fan of Jonathan Kozol.
+- My guitarist husband, Mike, and writer me are the old-fashioned kind of bohemians. Not 'fro-haired hipsters gyrating in iPod ads, but the sort who, starting January 1 of every year, literally don't know where their next dime is coming from.
+- A deep river of must-have school mania runs through the chattering classes. There is, of course, the parental adrenaline rush at suburban cocktail parties that comes from announcing one's son or daughter as an Ivy Leaguer.
+- Menopause is your return to where you were before, when your hormone levels are the same as a pre-adolescent girl's.
+- Struggling with my finances, nudging toward 50, I sometimes daydream about being happily married to a matching frugaholic husband in a matching Christmas-red tracksuit with matching walkie-talkies as we troll Ralphs, excitedly comparing triple coupons.
+- Many men today can cook, or at least order takeout, and know where and how to hire domestic help, perhaps with refreshing clarity and less anxiety than ever-conflicted mothers.
+- In 1900, the average life expectancy of a US citizen was 48, so most menopausal women were dead, which is not a great place to be.
+- Having blown up my own long-term marriage via an extramarital affair, followed by a traumatic divorce, I tend to think of love as less a gently glowing hearth than a set of flaming train tracks you strap yourself onto.
+- You go into the book store, there's the cut-out of Dr. Phil, and then the dreaded women's health section where every book, instead of the menopause book with the fanged Medusa head on the cover that might be more pertinent, you always see a flower and a poppy and a daisy and a stethoscope.
+- Oddly, in this age of the blinding white Oprah pantsuit, when everything is illuminated, it seems a Victorian lace curtain still hangs over the delicate womanly matter of our personal expenditures.
+- I am stricken with the peculiar curse of being a 21st-century woman who makes more than the man she's living with - first with a husband for 13 years and now with a new partner.
+- Almost 50 years old now, some 30 years after graduation, I look at my Caltech classmates and conclude that math whizzes do not take over the world.
+- In Los Angeles, we've seen a phenomenon where a school will go from one that no one will go to, to within three years becoming the 'hot' school. I've seen this over and over again.
+- I cohabited for 20 years with my longtime husband and father of my two now-teen daughters in a stable family household.
+- Beating up on public schools is not just our nation's favorite blood sport, but also a favorite conversational entertainment of the well-off - like debating the most recent toothsome plot twists of 'Big Love' - who, of course, have no dog in the fight.
+- I find I'm the sort of harried working mother who has difficulty scheduling in a bit of rest amid the Ptolemaically complicated interlocking gears of professional and personal life.
+- Certainly, being a 'perfect' mother is unachievable.
+- I am a member of the 'sandwich' generation, that group that must simultaneously care for elderly parents and support children.
+- I will never do Pilates. I walk.
+- In the 'Mad Men' era, the archetypal dad came home; put down his briefcase; received pipe, Manhattan, roast beef, potatoes, key-lime pie; and was - apparently - content.
+- Whether you wish to chant 'Our houses, our selves' or 'We have houses, hear us roar,' for us women, home is where the heart is.
+- The bad news in our most cosmopolitan and vibrant cities is that many middle-class people can no longer afford to live in 'middle-class' school districts.
+- Typically, middle-class educated parents' search for their children's schools takes on the feel, if not of teen girls trying on different outfits, of adolescents trying on various selves.
+- The terror of the ordinary is what keeps many affluent, educated parents and their kids out of the merely 'decent' schools, the ones that are simply 'fine.'
+- I am shamed to realize that in my marriage, my daughters never heard their father and me fight, which also meant, perhaps, that we didn't truly communicate.
+- In the end, the real wisdom of menopause may be in questioning how fun or even sane this chore wheel called modern life actually is.
+- If I was going to pretend to be the supermom next door, it would've been counterfeit and a lie. I figured I had to write something out of a new place.
+- I admit to a bias toward high culture.
+- The problem is that, partly because we are women, a large measure of our happiness depends on our relationships - including, unavoidably, our relationships with men.
+- With more women in power, the world would be better off.
+- My sister is not my mother, but more than anyone else, she fills that role for me now - like it or not. And indeed, all women I know play that role for somebody - like it or not.
+- I don't know how it's going for my sisters, but as my 40s and Verizon bills and mortgage payments roll on, I seem to have an ever more recurring 1950s housewife fantasy.
+- I eye 'Modern Love' warily between that second and third cup of coffee on Sunday mornings, calculating how much of a push I need to get through the day's unhurriedly earnest saga of heartbreak and recovery.
+- I'm pretty sure that changing diapers of all sizes isn't the kind of women's work Betty Friedan had in mind, nor Linda Hirshman.
+- I agree that mommy wars are not good for any mothers: that such wars are time and effort wasted.
+- It is during fertility that a female loses herself and enters that cloud overly rich in estrogen.
+- The literature of menopause is the saddest, the most awful, and the most medical of all genres. You're sleepless, you're anxious, you're fat, you're depressed - and the advice is always the same: take more walks, eat some kale, and drink lots of water. It didn't help.
+- I'd be lying if I claimed that, in spite of our amiable afternoons, I don't have an ache somewhere in my heart that my children will not be playing Carnegie Hall anytime soon.
+- The very success of the modern American family - where kids get punctually to SAT-tutoring classes, the mortgage gets paid, the second-story remodel stays on budget - surely depends on spouses' not being in love.
+- In the end, we all want a wife. But the home has become increasingly invaded by the ethos of work, work, work, with twin sets of external clocks imposed on a household's natural rhythms.
+- I think private school is much better at customer service and making the parents feel better, especially in Los Angeles. It's almost like a spa for the parents where you drop your kids off, where they give you a beautifully baked thing and let the parents write their own newsletter about global warming.
+- Approaching 50, I am living a life that is less sunlit Waldman/Chabon than tattered Charles Bukowski.
+- Life at the top may be privileged, but it is not simple.
+- Although my life is far from perfect, the irony is that in a divorced parent's custody schedule - with days on and days off - instead of like it was before, when I felt ragged and still oddly guilty all the time, now I feel guilty but not ragged.
+- Our entire personality, our energy level, and how we cope is hormonal.
+- I think live music is really, really important. And I think it's very important to do together. It's much more fun to play to music together than the one person listening to their lone iPod Shuffle. I think it's an amazing way to build community and have children do things that are funded that's not a videogame.
+- In my case, when it arrived at 49, perimenopause was terrifying and like nothing I had ever before physically experienced.
+- When I think of Chinese parents, I think of people who weep upon hearing Beethoven, but who can't necessarily bring that joy to others.
+- Work... family - I'm doing it all. But here's the secret I share with so many other nanny- and housekeeper-less mothers I see working the same balance: my house is trashed. It is strewn with socks and tutus.
+- In our youths, many of us suspected that being tied down to a partner and family might constrain us. But after 40, even that landscape starts to shift. Many singletons turn inward and start longing for the things so many of us longed to be free of in our 20s.
+- When husbands and wives not only co-work but try to co-homemake, as post-feminist and well-intentioned as it is, out goes the clear delineation of spheres, out goes the calm of unquestioned authority, and of course, out goes the gratitude.
+- I think of the friends of mine who were blissfully single in their 20s and 30s. Still single in their 40s and 50s, they seem to be contracting a bit.
+- While at a biological disadvantage in competitions, women - who even make trips to restaurant bathrooms in pairs - are at a clear advantage when it comes to grouping together and the activities that accompany it: gossiping, sharing, bonding, assisting, scrapbooking, and building networks.
+- Yes, I was one of the slightly vintage women who let out a shriek when we saw it at Costco: 'The Nancy Drew Mystery Stories', a complete boxed set, fifty-six familiar yellow spines, shrink-wrapped.
+- Things need shaking up when American women feel endangered even as Yosemite bears lumber around belching, their eyes glazed with surfeit, their pelts covered in Oreo crumbs.
+- In our 20s, women in my generation, we all wanted to be Laurie Anderson.
+- We women make the lion's share of household purchases in this country. We ourselves drive billions of dollars a year in sales.
+- I think that in L.A., one thing that nobody will ever talk about is, for instance, how just one in five kids in L.A. County is white, so when you're looking out there, it's a very brown city.
+- While having two biological parents at home is, the statistics tell us, best for children, a single-parent household is almost as good.
+- I'm a journalist, so my friends are journalists: magazines, newspapers, even public radio. Nobody had their kids in public school.
+- In twenty-first-century America, our stories have become one and the same: we work to consume, we live to consume, we are what we consume.
+- Journalists are quite surprised outside their dinner parties when they hear where I live. 'Van Nuys? You still live there?' It is like saying you're from Alabama.

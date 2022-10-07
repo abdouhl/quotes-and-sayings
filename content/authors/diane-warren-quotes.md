@@ -1,0 +1,33 @@
++++
+author = "Diane Warren"
+title = "Diane Warren Quotes"
+quotes_len = "27"
+description = "the best 27 Diane Warren Quotes"
++++
+- I've never been in love. I know, it's weird.
+- I just love the idea of going into a room and creating something by myself.
+- I was born loving music. It was always my friend.
+- Oh yeah; I love when I'm writing something that makes me cry - that's so cool. If it got me to do that, it's going to get someone else to do that.
+- I've been in grocery stores, and if they're playing my music, I'll yell, 'Hey! I wrote that!' I've been next to cars and have done that!
+- I'm not like normal people. I'm no good at relationships. I draw drama to me - it's the Jew in me.
+- I have a good imagination. Look, I know what it feels like to have a broken heart. I know what it feels like to feel something for somebody. I'm just too weird to be in a relationship.
+- I like to start with an idea, but then again, I might be sitting at the keyboard, and just playing a bunch of chords that sound cool together, and something just inspires an idea from that.
+- I like writing all different kinds of songs. I've wanted to run the gamut of artists.
+- What keeps me interested is that I have to do it. It's like people wake up and they have to breathe; I have to write songs; I have to make music. That's like eating or breathing to me. It's that simple.
+- Cher hated 'If I Could Turn Back Time.' I had to beg her, literally, on my knees, just to try it. Happens all the time.
+- A lot of people give up, but you can't stop me. If you close the door, I'll just jump out the window.
+- I would never want to get married.
+- I thought I was good before I had any right to. But I think you got to feel that way. You got to think that. I wasn't delusional. I knew I had talent.
+- I grew up listening to hits, and if I write something I feel, I think that's pretty mass appeal. I'm not very elitist with music. Love is universal; a great melody is universal; it goes around the world; it's not just American. A great song can touch the world.
+- I don't just do power ballads. I have a lot of up-tempo stuff, too - like 'Can't Fight the Moonlight.'
+- I'm totally an East Coast person, energetic and sarcastic. I'm not a nice L.A. person.
+- Maybe my songs are my partner. How 'bout that? Yeah, the biggest relationship I have is with my songs.
+- I know what it's like to have a broken heart. I know what it's like to feel pain: When my songs don't become hits, it breaks my heart. There are a million ways to break a heart. I can relate.
+- When I turned 14, I became very obsessed with writing songs, and it took over my existence.
+- I've been lucky, because people have done such great versions of my songs, and I've worked with the best singers ever, and I'm lucky that way.
+- I usually don't write songs by people calling me and saying, 'Write a song about this.' Usually I'm just going with what I want to write, so you never know.
+- What makes a great song - you don't put it into words. You feel it. The perfect lyric. The perfect melody. It makes you feel something.
+- Being inducted into the songwriting hall of fame by Clive Davis, that was pretty memorable.
+- When I was small, my parents came back from Tijuana, and my dad bought me a very small acoustic guitar. I loved it. I started making up my own songs right away.
+- I'm somebody who finds adversity is almost as good as encouragement. It's almost like, you close the door, and I'll find ten ways to kick it in and go around it or dig under it or something.
+- You have to hone your craft, but you also have to be born with a certain amount of talent, and I never took the talent for granted - I've always worked really hard to be as good as I could be.

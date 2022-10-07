@@ -1,0 +1,17 @@
++++
+author = "S. J. Rozan"
+title = "S. J. Rozan Quotes"
+quotes_len = "11"
+description = "the best 11 S. J. Rozan Quotes"
++++
+- The crimes that become iconic etch themselves into the collective consciousness because they suggest a frightening truth: that the universe does not rely on cause and effect.
+- I wanted a real profession. And I'd always been interested in architecture and in design and in, really, what makes things work. And understanding what's kind of behind the walls and why things stand up and some things don't.
+- Chinatown is tremendously interesting... It's a part of the city that hasn't really been explored in crime literature or in any general literature. It's as though Chinatown didn't exist. People write about New York without mentioning Chinatown at all.
+- The most resonant crimes are the ones in which the victim is most innocent, or perceived as innocent. Blaming the victim is tempting; it offers an out.
+- I always had a feeling when I was a kid that I didn't really know what was going on. Everybody else knew stuff that I didn't know.
+- When a crime is committed, only the victim and the victim's close circle experience the event as pain, terror, death. To people hearing or reading about it, crime is a metaphor, a symbol of the ancient battles fought every day: evil versus good, chaos versus order.
+- What crime writers are doing connects deeper into a cultural hunger. Crime is important. When you open up a book that has a body that's dead, that matters. It matters more than a certain level of suburban angst; it really does.
+- Writing a book, you can only get stopped by yourself.
+- The poor and minorities are disproportionately both crime's perpetrators and its victims. People are saddened when this happens but not surprised.
+- One definition of noir is where a not-so-good man or woman tries to touch something good - and fails.
+- Many places in the Bronx seem hidden in shadows, just as the Bronx itself is in Manhattan's shadow. And dark stories develop best in dark shadows.

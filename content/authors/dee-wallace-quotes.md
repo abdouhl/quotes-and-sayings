@@ -1,0 +1,21 @@
++++
+author = "Dee Wallace"
+title = "Dee Wallace Quotes"
+quotes_len = "15"
+description = "the best 15 Dee Wallace Quotes"
++++
+- A really good horror film has a story.
+- I believe I was actually the first single mother in a major film.
+- I think a lot of kids get scared by 'E.T.' Sometimes when I do the science-fiction conventions, I'll have a 35-year-old guy with tatts and piercings all over, and he comes up and says, 'You know, it scared me so much I still can't watch it.'
+- I love drama. I love to play an arc.
+- I would never butt heads with Rob Zombie. I don't know anybody that's in acting that ever butted heads with Rob Zombie. I adore Rob. I adore him. I adore working with him. I adore knowing him. I'm happy to consider myself a friend and someone who he hires. I just think he's great.
+- I have an Internet radio show where people can call in for healing.
+- I would be very, very bored doing light little comedies for my entire career.
+- The public makes a hit.
+- If you take every challenge everyone has in their life and multiply it in severity you get what it's like in the life of an actor.
+- 'E.T.' was a healing movie; it was a heart movie. It was all about getting about getting home and love.
+- I knew I wanted to be an actress as soon as I popped out.
+- I was lucky enough to have a plethora of types of roles before and during the horror movie part of my career.
+- Taking control of your own creation, you can ultimately affect your future.
+- I am a clairaudient healer. My specialty is being able to discern the blocks within a person's energy that are prohibiting them from being free, happy, and powerful.
+- The essence of my work, and of me, is the softer side of a strong woman, and that goes into a number of different roles.

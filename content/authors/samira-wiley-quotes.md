@@ -1,0 +1,52 @@
++++
+author = "Samira Wiley"
+title = "Samira Wiley Quotes"
+quotes_len = "46"
+description = "the best 46 Samira Wiley Quotes"
++++
+- Before Juilliard, I was a schoolteacher for a little bit. I taught in a charter school. I was a substitute teacher for kids ages 3 to 6.
+- I'm a big lover of Shakespeare. In fact, the only plays that I've ever done professionally in New York have been Shakespearian.
+- I eat a lot. I probably eat more than anybody that I know. I'll go on set and get a plate of bacon, a bagel, an omelet, boiled eggs, fresh fruit, oatmeal, fresh juice, potatoes, basically anything that's there. I don't mean that I alternate between these things. I'll eat all of this for breakfast.
+- I remember when I got into Juilliard - which was just crazy to me, that I would be studying at a school like that - the choice to cut all my hair off was really symbolic for me.
+- When I was younger in the theater, I didn't really feel like I got much recognition from the powers that be. I got a lot of small roles - I never got the standout roles.
+- I grew up in the church.
+- I'd never played a character as long as I played Poussey. Spending time with her, so much time embodying that character, it was so - and still is and always will be - so special to me and a part of who I am.
+- I'm very unpopular for my dislike of this food, but I've never liked avocado. Everyone gives me so much flack for it because they tell me how healthy it is for me, how delicious it is. I don't like it, but it's not for lack of trying. I tried to like it, and it's just not my thing.
+- The actors that I admire are able to step into so many different roles.
+- It's interesting to have two totally unlikable characters as the love interests on a show.
+- I'm not a writer; I'm an actor. My job is to take whatever character I'm given and - especially because I have the responsibility of being a black actress, and I know young black girls are looking up, and everyone's looking to what's on television - to just try to give whatever character I'm playing as three-dimensional a portrayal as I can.
+- I really wanted to work with Kate Mulgurew and Natasha Lyonne.
+- For a New York actor, there are two things you look forward to - getting your SAG card and being on 'Law and Order.'
+- I have a responsibility as a potential role model that I take very seriously.
+- I never want to pigeonhole myself or get typecast. I'm looking forward to my career and showing all of my range as an actress, and I'm looking at other mediums, too. I'm a theater actress first. And I cannot wait to return to the stage.
+- My mother, actually, is a therapist.
+- I think of the prisoners on 'Orange Is the New Black,' a lot of times, as uplifting.
+- I really want to play a superhero. I want to take the role-model thing up a notch. I've always been a fan of movies and TV, and to be able to play the ultimate TV superhero would be awesome.
+- I'm definitely caught up in the Kool-Aid of true-crime stories.
+- My mom is super fabulous, and I remember her telling me at 13, 'You can start wearing makeup now.' And the funny thing is, I didn't take her up on it!
+- It is television; we're making television at the end of the day. It's all smoke and mirrors, and it's all fake, but it's not, because it makes people really feel things that are real.
+- You take so much on as a therapist: you just sit there and listen to people talk with you, and you're trying to help people, and it can be draining.
+- Whether you watch 'Law and Order' all the time or not, everyone knows what it looks like. Everyone knows what the courtroom looks like, what the police precinct looks like.
+- I've seen my parents dragged through the mud. But I wouldn't be the person I am today without them.
+- 'Orange Is the New Black' was my home show. I knew the set; I knew everyone there.
+- I was obsessed with Lil' Bow Wow growing up, and you couldn't see the white of my walls because they were plastered with his photos. This is even more embarrassing: I had a notebook full of facts about Bow Wow and different pictures. I basically made a biography notebook about him and his life when he was, like, 13.
+- I was a good bartender. I wouldn't say I was the best bartender in New York, but I could hold my own.
+- I'm actual thankful for the amount of responsibility that has been handed to me. I feel very honored.
+- I didn't do 'Orange' because I knew it was good. I wanted to do this because it feels good. And I just knew that was the place I needed, wanted to be.
+- The way it works at Julliard is that you just perform with people who are in your own class.
+- There was this girl who went to my school, and she did a Nikki Giovanni poem, 'Ego Tripping,' and it was just different from everyone else's. It wasn't flat recitation. It had an energy and a life to it. And it made me sit up in my seat, and my eyes got wide, and I really felt inside myself, 'She's making me feel things. I want to do that.'
+- Poussey is a really huge part of 'Orange,' and I'm sure her name will always echo through the halls of Litchfield, dead or alive.
+- We can climb mountains with self-love.
+- There's a play that Chekhov wrote called 'Uncle Vanya,' and I when I was in school, I played Sonya, and sometimes people ask me if there was ever a role I could play again, that's definitely the role I would play again: Sonya in 'Uncle Vanya.'
+- I want to make sure that any young person or anyone, really, who is looking up to me - who sees a glimpse of who I am as a person - that they see no shame, that they see pride, and that I'm truly unabashed about the person that I am.
+- You have people who are so passionate and touched by my work, which is so humbling. But other times, it's a little overwhelming. If I'm just trying to go to the bodega and get some coconut water, I have to put on a hat and some glasses - those kind of things.
+- I love horror movies.
+- It's one thing to live my own life and know that I'm O.K. But there's another thing I want to take on, and that is letting people know that they're O.K., too.
+- Like any actor, I want to be able to have a long career and show different characters and a range.
+- I do get recognized, more and more every day.
+- When you're in prison, the progress of the outside world doesn't necessarily translate inside prison walls. You don't have any rights; it just doesn't progress along the same timeline.
+- I come from a theater background, and if you're doing a play, your audience is right there, and you're able to have that one-on-one experience. Doing more TV now, when fans come up to me on the street and talk to me on social media, that's a way to bridge that gap.
+- Playing a character for four years, in people's minds, that's who you are.
+- I think that all stereotypes sort of begin with truth. I think that the only problem is if that's the only place that you go.
+- I think that therapy is great and can be incredibly helpful.
+- To be honest, whenever I go to shoots, or I'm on set, it really makes makeup special and allows me to have so much more fun with it - I don't wear it on an everyday basis, because I like my skin to breathe.

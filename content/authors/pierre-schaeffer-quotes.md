@@ -1,0 +1,23 @@
++++
+author = "Pierre Schaeffer"
+title = "Pierre Schaeffer Quotes"
+quotes_len = "17"
+description = "the best 17 Pierre Schaeffer Quotes"
++++
+- Sound is the vocabulary of nature.
+- Barbarians always think of themselves as the bringers of civilization.
+- The world has just got more dangerous because the things we use have got more dangerous.
+- First, it doesn't surprise me that traditional music has experienced a kind of exhaustion in the 20th century - not forgetting that many musicians started to look outside the traditional structures of tonality.
+- Take a sound from whatever source, a note on a violin, a scream, a moan, a creaking door, and there is always this symmetry between the sound basis, which is complex and has numerous characteristics which emerge through a process of comparison within our perception.
+- The only hope is that our civilization will collapse at a certain point, as always happens in history. Then, out of barbarity, a renaissance.
+- It's ridiculous that time and time again we need a radioactive cloud coming out of a nuclear power-station to remind us that atomic energy is extraordinarily dangerous.
+- Has it struck you that the music which is regarded as the most sublime in western civilization, which is the music of Bach, is called baroque?
+- The impressionists, Debussy, Faure, in France, did take a few steps forward.
+- In contrast, traditional classical music starts from an abstract musical schema. This is then notated and only expressed in concrete sound as a last stage, when it is performed.
+- Noises have generally been thought of as indistinct, but this is not true.
+- The whole problem of the sound-work is distancing oneself from the dramatic.
+- The world changes materially. Science makes advances in technology and understanding. But the world of humanity doesn't change.
+- The moment at which music reveals its true nature is contained in the ancient exercise of the theme with variations. The complete mystery of music is explained right there.
+- Morally, the world is both better and worse than it was. We are worse off than in the middle ages, or the 17th and 18th centuries, in that we have the atomic menace.
+- People who share the same language, French or Chinese or whatever, have the same vocal cords and emit sounds which are basically the same, as they come from the same throats and lungs.
+- I'm very aware of what you're talking about as I was involved with the radio in Africa in the same period as I was doing Concrete - I was doing both at the same time.

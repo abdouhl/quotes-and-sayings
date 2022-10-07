@@ -1,0 +1,69 @@
++++
+author = "Dan Savage"
+title = "Dan Savage Quotes"
+quotes_len = "63"
+description = "the best 63 Dan Savage Quotes"
++++
+- I got picked on a lot, even by teachers too. I liked to listen to musicals and bake, and my homeroom teacher found out and mocked me in front of the whole class for baking.
+- The Bible is a radically pro-slavery document. Slave owners waved Bibles over their heads in the Civil War and justified it.
+- My dad was a homicide cop in the gay neighborhood in the city when gay neighborhoods were desperate, depressing, sad places run by the mob. The only gay people he'd met when I came out to him were corpses.
+- See, I'm a subverter at heart.
+- Children have a right to some stability and constancy from the adults in their lives.
+- I'm allergic to dogs, so I couldn't even adopt what gay men typically adopt when they have that maternal gene.
+- I'm an agnosto-theist.
+- I have a thick skin, but I have a heart.
+- Preaching to the choir actually arms the choir with arguments and elevates the choir's discourse. There's a reason the right does it and does it well and triumphs.
+- If what you want is a life where your homosexuality is not an issue, move, as many have done.
+- I think the best thing for you to do is just live your life. Live a life that's worth living, one where you do what you want to do, pursue your passions. That way, if you meet someone, they'll be joining a life that's already really good.
+- Women can go on marrying and pretending that their boyfriends and husbands are Mr. Darcy or some RomCom dream man. But where's that going to get 'em? Besides divorce court?
+- How can you tell somebody whose is pursuing happiness that they're somehow not American when that was the very first promise that America made?
+- I get letters every year from women who think Valentine's Day is an empty exercise, but are ironically pretty exercised when their boyfriends neglect or forget it.
+- Sometimes I talk to religious people about my column or what I do, and I ask them to, you know, read 20 or 30 of them and then come tell me that the message at the heart of every column isn't, 'Do unto others as you would have them do unto you.' In every possible sense.
+- Men were never expected to be monogamous.
+- I wouldn't say that holidays are manufactured by corporations, but they're certainly exploited and mined by them.
+- You know, my problem is I can't say no to people, especially people who want to write me checks to do things.
+- I believe it's in the best interests of a child to be in a stable environment.
+- Mother's Day is a torment if your mother is dead. Valentine's Day is a torment if you don't got one. And at some point in our lives, we will be tormented by Valentine's Day even if we're relatively lucky in love.
+- To be a straight person and discover you're infertile is almost like discovering you're not a straight person.
+- Every question is a hypothetical question for everyone but the person who asks it.
+- When you're young and queer and closeted, you can end up in this place where you regard your straight peers as the enemy.
+- Actual gay people can make many others feel uncomfortable and paranoid because they don't know and can't articulate what makes a person gay, and they worry that maybe they themselves are gay.
+- Straight people are everywhere!
+- I am not an idiot, and I'm not a Pollyanna sort of kumbaya type.
+- You want to help gay kids, you have to reach them in middle school and high school, when they're being bullied.
+- I wanted to be a priest when I was a kid.
+- Most Americans don't care about gay marriage.
+- I don't write about my life in my column.
+- There are so many people out there with less shame talking about their problems.
+- I don't think that sin and pursuing happiness are not necessarily the same thing.
+- Straight couples don't have to be monogamous to be married or married to be monogamous. Monogamy no more defines marriage than the presence of children does. Monogamy isn't compulsory and its absence doesn't invalidate a marriage.
+- I treat people who write me the way my friends and I all treat each other when we go to each other for advice, which is sometimes with supreme cruelty.
+- School is very conformist, and one of the very first conforming that goes on in preschool and kindergarten is gender.
+- It's going to take generations of gay people marrying before these things start to feel natural. We haven't had it long enough to remake it as our own, so it does feel like you're getting dressed up in straight drag to do it.
+- Like it or not children are being raised by gay and lesbian parents all over America - as many as 10 million children. And it does nothing to make their lives more stable and secure to attack their families, to attack their parents to prevent us from marrying each other.
+- Really, when it comes to gay rights, there's two wars going on. The first war is political. But the culture war is over.
+- The bullied straight kid goes home to a shoulder to cry on and support and can talk freely about his experience at school and why he's being bullied. I couldn't go home and open up to my parents.
+- I own a lot of my house, because I'm Irish and from people who never owned anything.
+- I don't think it's the responsibility of gays and lesbians to reinvent the family.
+- Ultimately life is disease, death and oblivion. It's still better than high school.
+- A lot of people are living their lives online in much more public ways with Facebook and Twitter.
+- I think the 'South Park' guys are brilliant.
+- A lot of kids are bullied because of their sexual identity or expression. It's often the effeminate boys and the masculine girls, the ones who violate gender norms and expectations, who get bullied.
+- No, I'm not good looking.
+- I don't like to think about what school was like for me.
+- The cultural expectation should be if there's infidelity, the marriage is more important than fidelity.
+- The successes of the LGBT civil rights movement and the more prominent role openly gay people are playing in the public eye has actually turned up the temperature in middle schools and high schools for queer kids.
+- The only way to get gay issues off the front pages of Canadian newspapers is to grant gay and lesbian people our full civil equality and leave it alone.
+- A certain tiny percentage of everyone is gay.
+- But it doesn't matter what you're doing, it matters how you're doing it.
+- Books are magic: you never know where they're going to end up.
+- When I was a kid, and I was odd, the default assumption was that I was odd, not that I was gay. Now when a kid is odd in a Greensburg, gay or straight, the default assumption is gay.
+- When I was in high school I got involved in the fringe theater scene in Chicago, and I met some openly gay people. I could see that it got better, that they were happy and loved and supported. I saw with my own eyes that it got better.
+- One man's blasphemy doesn't override other people's free-speech rights, their freedom to publish, freedom of thought.
+- In an open adoption agreement, you agree to a minimum number of visits - a floor, not a ceiling. It's enforceable.
+- So I don't feel particularly wealthy-but, you know, I pay my taxes and I know that I am.
+- Christmas can have a real melancholy aspect, 'cause it packages itself as this idea of perfect family cohesion and love, and you're always going to come up short when you measure your personal life against the idealized personal lives that are constantly thrust in our faces, primarily by TV commercials.
+- A huge part of what animates homophobia among young people is paranoia and fear of their own capacity to be gay themselves.
+- To be gay is nothing to be proud of. It's in how you are gay that you have something to be proud of, considering the obstacles placed in your path if you are gay.
+- The mistake that straight people made was imposing the monogamous expectation on men. Men were never expected to be monogamous.
+- I didn't want kids to think that to be happy, they had to be famous or rich or live in the big city.

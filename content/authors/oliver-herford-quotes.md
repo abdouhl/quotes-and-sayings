@@ -1,0 +1,22 @@
++++
+author = "Oliver Herford"
+title = "Oliver Herford Quotes"
+quotes_len = "16"
+description = "the best 16 Oliver Herford Quotes"
++++
+- Manuscript: something submitted in haste and returned at leisure.
+- Age, like distance lends a double charm.
+- When I go abroad I always sail from Boston because it is such a pleasant place to get away from.
+- What is my loftiest ambition? I've always wanted to throw an egg at an electric fan.
+- Modesty: the gentle art of enhancing your charm by pretending not to be aware of it.
+- Many are called but few get up.
+- Darling: the popular form of address used in speaking to a member of the opposite sex whose name you cannot at the moment remember.
+- There is always room at the top - after the investigation.
+- A woman's mind is cleaner than a man's: She changes it more often.
+- The Irish gave the bagpipes to the Scotts as a joke, but the Scotts haven't seen the joke yet.
+- Tact: to lie about others as you would have them lie about you.
+- A man must love a thing very much if he not only practices it without any hope of fame and money, but even... without any hope of doing it well.
+- Only the young die good.
+- A rolling stone gathers no moss, but it gains a certain polish.
+- Cat: a pygmy lion who loves mice, hates dogs, and patronizes human beings.
+- A man is known by the silence he keeps.

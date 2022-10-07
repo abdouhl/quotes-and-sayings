@@ -1,0 +1,12 @@
++++
+author = "Shoshannah Stern"
+title = "Shoshannah Stern Quotes"
+quotes_len = "6"
+description = "the best 6 Shoshannah Stern Quotes"
++++
+- Most of the time, I get auditions for deaf characters where the scene has them communicating in really convoluted ways, like reading lips from across the room when the other person's back is turned or having other people parrot what they say.
+- I am fourth-generation deaf, which means everyone in my immediate family is deaf. So I grew up always having 100 percent accessibility to language and communication, which was wonderful and something so many deaf people don't have.
+- I feel I should defer to the writers and the directors because they're the ones who have the complete vision. They see things through from the beginning to the end. I'm responsible for one small part, so my scope is much more limited than theirs.
+- I think I've wanted to be an actress since the day I was born. I even asked my parents for an agent for my seventh birthday!
+- I'm an actor, not a writer. I'd be pretty annoyed if the writers tried to come in and hang over my shoulder telling me how to act, so I don't go in and tell them how to write.
+- I'd knocked on doors when I'd gone to theater school in Los Angeles the summer of my junior year, trying to find an agent and submitting headshots, but nobody would see me, and I knew it was virtually impossible to get an audition if you didn't have an agent.

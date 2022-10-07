@@ -1,0 +1,35 @@
++++
+author = "David Fizdale"
+title = "David Fizdale Quotes"
+quotes_len = "29"
+description = "the best 29 David Fizdale Quotes"
++++
+- I'm not coach D'Antoni. I have to coach to my version of pace-and-space. We all steal from each other, but a lot of us have stolen from him.
+- You coach to your personality.
+- I know there are people who say 'just coach'... I don't hear them.
+- The idea of Dwyane Wade not being in a Heat uniform was a kick in the stomach.
+- If I don't have any other strength, I'm pretty good at building relationships.
+- There are not a lot of young African-American guys who come through the video room. I wanted to make sure I was one of those guys, not only to live up to that standard but almost make a breakthrough for young African-American men. There is a pathway for you through the video room as well, but you have to be willing to do the work.
+- When you know that the offense isn't just predicated on one guy and that every movement you make gives you a chance to be a part of the action, to make you a weapon, it's empowering.
+- I respect the people that I lost to.
+- Only one champion stands at the end of the year, so just making the playoffs isn't enough.
+- I'm not afraid to coach guys. But I am going to coach them to win, and I am going to hold them to a high standard.
+- The hard part that I didn't like about recruiting in college was, there was so many regulations. So many rules. It was so many layers to it in the recruiting that I just got fed up with it.
+- I really want to institute a culture that has nothing to do with shots or minutes or anything like that. It starts with a foundation of service.
+- I knew as an assistant coach it wasn't my place to overstep the head coach.
+- Herb Brown is like a basketball icon. What's the saying - he's forgotten more than I'll ever know.
+- No matter who is on your team, you are going after the title.
+- It was fun winning with the Nasty Nine, but it didn't feel good going into every game with the Nasty Nine, I tell you that.
+- You can't just sit back and think you're gonna pack the paint in and win games. You've gotta guard that three-point line.
+- I have a lot of respect for coach D'Antoni. He's one of the really class acts in this league who is willing to share. He's really impacted this league in a big way.
+- If you're not a player, it's hard to get into this league. You need a small opportunity that you turn into a bigger opportunity.
+- You don't sell the team short and say, 'We're just trying to make the playoffs,' or anything like that.
+- Pace is just how fast we can get the ball from one end to the other. It's not necessarily how fast we can shoot. It's just a tempo thing.
+- Carry yourself like a champion now so when you get there, it's not a surprise.
+- I always said, 'if we win, we all will profit.' So forget about the profit part of it; let's just win, and the rest will take care of itself.
+- T-Lue is as bright as they come. He's incredible at making adjustments, holding guys accountable, relating.
+- I only know one thing. I have been bred through the Heat organization to do it one way. And every day, you prepare.
+- It doesn't matter what color you are. Poverty is poverty. Inmates come from all walks of life. We have to make sure we look out for these people and give them a chance.
+- Mike Brown wanted to hire me to work with LeBron in player development.
+- Sometimes you've gotta take a risk.
+- Memphis don't bluff. It's a tight knit community.

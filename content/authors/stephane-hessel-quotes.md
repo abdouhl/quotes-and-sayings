@@ -1,0 +1,23 @@
++++
+author = "Stephane Hessel"
+title = "Stephane Hessel Quotes"
+quotes_len = "17"
+description = "the best 17 Stephane Hessel Quotes"
++++
+- To create is to resist; to resist is to create.
+- I never felt like a good Jew. My mother was not Jewish, and that makes me a non-Jew according to Jewish religious law.
+- The revolutions of my century, the 20th century - the Soviet revolution, or the Chinese, or the revolutions that were fomented in Latin America, such as in Cuba - failed for the most part, a failure which was completely clear by the end of the century.
+- As long as Palestinian violence exists, but not a Palestinian state, Israel is in danger, because it cannot obtain assistance from the international community against an entity that is not subordinate to international law.
+- I feel that I am completely in solidarity with Jews in the world, because I know what it is to be a Jew. I've seen what it is; I am myself of Jewish origin, and therefore I can only be fully in support of the idea that the Jews, after all they've suffered, need a country where they are at home.
+- My mother once said to me, 'You must promise to be happy; it is the greatest favour you can do to others'. It has guided me throughout my life.
+- For me, true and authentic democracy occurs when the privileged groups assist the unprivileged groups to become more privileged.
+- Let us not be defeated by the tyranny of the world financial markets that threaten peace and democracy everywhere.
+- Death is something to savour, and I hope to savour mine.
+- I always say that when a country wins with such overwhelming might, it's bad news for that country.
+- I was a young boy when I met the Surrealists and the Dadaists. I admired them, and that is what they taught me: to admire. Admiration is very important. People who are unable to admire others lose an important part of their soul. My soul developed from a very early age through encounters with admired people.
+- History can bring luck: this is what we can call optimism.
+- From 1967, all the Israeli governments continued making two big mistakes: occupation and settlement in the territories.
+- The wealthy have installed their slaves in the highest spheres of the state. The banks are privately owned. They are concerned solely with profits. They have no interest in the common good.
+- I wish for you all, each of you, to have your own motive for indignation. This is precious. When something outrages you as I was outraged by Nazism, then people become militant, strong, and involved.
+- If you want to be a real human being - a real woman, a real man - you cannot tolerate things which put you to indignation, to outrage. You must stand up. I always say to people, 'Look around; look at what makes you unhappy, what makes you furious, and then engage yourself in some action.'
+- I've been tremendously lucky. I went through things that turned out wrong, and I got myself out of them.

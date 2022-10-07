@@ -1,0 +1,69 @@
++++
+author = "Peter Kay"
+title = "Peter Kay Quotes"
+quotes_len = "63"
+description = "the best 63 Peter Kay Quotes"
++++
+- A lot of series tend to go on for one series too many, especially with comedies, and I think people say 'ooh, it's gone off, that.'
+- There's no great secret or plan, I just think I'm funny and I want to make people laugh.
+- It's like a childish dream come true to be in 'Doctor Who' and to be an alien.
+- None of my family had been entertainers. My Grandad liked to play 'The Ballad of Davy Crockett' on the comb and tissue paper every now and again but we never had Hughie Green knocking on the front door.
+- Do I miss him? Of course I do. Every day. His death was devastating, he was just 51. But you know, in my stand-up my Dad will always be alive. He's so much part of my act.
+- In showbiz one minute you're up there making thousands of people laugh, next minute you're picking up toffees, you know it's real life.
+- I've got loads of ideas swimming round, and I've even organised them in a nice folder on me computer.
+- I've met so many older actors and comedians who've told me they wished they'd spent as much time with their kids as they did chasing the money. You've got to draw a line but it's a gamble.
+- It's lonely being stuck in a hotel in London for two nights. Even a couple of nights away from the children is awful.
+- I never settled because I wasn't meant to pack toilet rolls or stack shelves.
+- I'm not the sort of comedian who wants to make audiences think about politics. I'm not clever in that way.
+- For me, whatever happens there's nothing better than family.
+- I believe that a man called Jesus did walk the earth at one time but I don't think he was the superhero that the Bible makes him out to be.
+- I knew I could make people laugh but I was frightened of doing it. I thought, 'What if I'm crap, what if I'm no good at it?', but I knew I should have a go and shouldn't sit inside watching other people do it on television.
+- Sometimes I wish I could clone myself, you know, be in two places at once.
+- I'm actually shy and my salvation is coming home and being normal.
+- If my mum or my wife says that something isn't funny, I know I've struck gold.
+- People often ask what I think of Michael McIntyre. I think he's funny. He's a nice bloke.
+- I was destined to make people laugh.
+- Audiences want comedy that has no venom. They want to have a laugh without it becoming twee.
+- I loved making it but when I saw it, I thought, 'Oh my God. I'm a big green lizard running around Cardiff? Is that it?' It's nice to have been in 'Doctor Who' but that is regarded by fans as the worst episode ever.
+- If you're struggling and you just get a sense when you're writing that you might be running out of ideas, that's when I think you should walk away.
+- The fact that I have had so much time to be a dad and to be around my children is brilliant.
+- That's basically all my act is - it's just listening all the time and watching for what people do with their hands and so on. It gets on people's nerves a bit - especially when you're at a wedding and you're scribbling on a table and they go 'stop doing that' and you go 'I can't.'
+- My entire act is through and through British. I reference everything British.
+- What a joy to be working on the second series of 'Car Share' with the wonderful Sian Gibson. The success of the first series has been completely overwhelming.
+- Oh God love Susan Boyle. God love 'er. I've nothing more to say about Susan, except God love 'er and God bless 'er.
+- The Lily Foundation is an inspiring charity that helps to improve the lives of children with Mitochondrial Disease. I've had first-hand experience of the Foundation's work and I'm proud to raise both awareness and much needed funds to help with the inspiring work they provide to children and their families.
+- I keep my cuttings for when I'm back on the bins. I believe that it's not going to last. At least I will be able to say, 'I lived.'
+- My mum can't watch 'Car Share' - well she does, but she says, 'Peter I can't enjoy it because you're not watching the road.'
+- There's some belting hymns. Brilliant hymns. When I was an altar boy the hymns were great.
+- The truth is my dad was a lovely man who had to retire early from his job as an engineer because he had osteoporosis. It meant he was forced to wear a harness and could hardly breathe.
+- Bernard Manning is controversial but he had incredible timing. I wrote the character of Brian Potter in 'Phoenix Nights' for him to play but unfortunately he was too poorly to do it. I thought it would have been perfect casting but it didn't happen.
+- Family are very important to me. They keep you grounded and sane. It's really important that you don't lose that.
+- I find it more challenging to do something new. But I would love to do a third series of 'Phoenix Nights.'
+- A lot of people have got into it because of money, but true comedians do it because they can't help it, and feel slightly removed doing anything else. That were case with me.
+- I'd always wanted to do a children's series.
+- I don't do that much telly because I want quality, not quantity - you've got to be happy with what you're putting out.
+- It's funny how comedy is, you look at people like French and Saunders, when they started out they were very alternative. A lot of those alternative comedians have ended up being mainstream, they know that longevity is about being mainstream.
+- I never wanted to be 'the big I-Am.'
+- If something doesn't feel right comedically I won't budge on it. You just have to dig your heels in and fight for it. And I mean fight quite intensely.
+- It's about self-sacrifice. Since having children, I've worked, but I've maintained the balance of being at home as well.
+- I don't really see the point in offensive comedy.
+- Fatherhood has changed me - it has to change you. It makes you much more aware of the minutiae of life, it's not about your needs any more, its about everyone else's.
+- Children don't mind when something was made - they don't discriminate in that way. I tape very early episodes of 'Rainbow' and 'Trumpton' for my son and watch them with him. He loves them. 'Trumpton' was made in 1967, but he still watches it like it's brand new.
+- If I am popular across the board, from teenagers to pensioners, it's not because I'm trying to be family-orientated, it's because my mum vets all my shows! I always get a critique from her and she's very harsh.
+- You've got to just be happy with your lot.
+- I could probably make another series of 'Phoenix Nights' or 'Max And Paddy,' but that would just feel like a safe bet.
+- I never thought I'd write one book, let alone three. I'm absolutely delighted and every night, thank the good lord for spell check.
+- I'm a grafter, but all I've ever been is myself.
+- Being a comedian is probably the only job apart from undertaking that isn't age restricted.
+- I love 'Phoenix Nights' and I would love to go back. I've got a lot of ideas about 'Phoenix Nights.'
+- I loved doing 'Pop Factor,' though I know a lot of people were a bit uncomfortable with that, what with me playing a woman, but for me, as an experiment, taking on the wrath of that genre, it was worth it.
+- The best comedies are the ones where the person who's in charge is the one with the vision who's said, 'I'm staying with this till the very end.'
+- Being a dad is just brilliant and fantastic. You can't put into words what it's like.
+- I believe in a God of some kind, in some sort of higher being. Personally I find it very comforting.
+- You can't not do stand-up for seven years and then not expect anyone else to come along. That's life, things move on.
+- I am fascinated by real people who are really funny.
+- I can only write about what I know, I'd be crap anywhere else.
+- I'm always freaking people out because I'll be out somewhere and I'll hear someone say something and then later on I'll say it again word for word. It's almost like recording it in your head.
+- The one thing we pride ourselves on the most with writing 'Car Share' is that it's hard to predict what's going to happen and that's hard to achieve, especially with comedy.
+- Sometimes people say, 'Oh I'm surprised you'd be in Staples buying a plastic box, I thought you'd have a servant to do that for you.' I'm like, 'What are you talking about? I still go to Tesco, I still do my big shop.'
+- I like interesting casting, and casting people who you think might be slightly different in parts.

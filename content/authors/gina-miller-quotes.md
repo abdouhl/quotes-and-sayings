@@ -1,0 +1,106 @@
++++
+author = "Gina Miller"
+title = "Gina Miller Quotes"
+quotes_len = "100"
+description = "the best 100 Gina Miller Quotes"
++++
+- An opposition that won't oppose paralyses our political and democratic system.
+- I'm not going to be bullied into not doing what I think is right.
+- Yes, I believe in parliamentary sovereignty, but irrespective of what the Electoral Commission decides, I am now even more convinced that there must be a people's vote on the Brexit deal, including an option to remain, or remain voters will have good reason to shout foul play.
+- Ever since David Cameron took it on himself to prise open Pandora's box and call the E.U. referendum, the only thing that's been predictable has been the utter unpredictability of what has followed.
+- As a child of the Commonwealth, I had been brought up to believe Great Britain was the promised land, a culture where the rule of law was observed and decency was embedded in the national fabric.
+- If the court case I brought against the government over article 50 was about anything at all, it was about parliamentary sovereignty.
+- MPs are paid to be representatives of their constituents. They have to do that job.
+- I just want people to be equal and fair to each other.
+- So much of the agenda behind Brexit has been murky.
+- All I want is for Remain United to lift the fog so that people who oppose Farage - and his chilling authoritarian vision for our country - can deploy their votes strategically and effectively.
+- If we set the precedent that a government can use their royal prerogative to take away people's human rights, that is taking us into a very dangerous political environment.
+- Poll after poll has shown that a no-deal Brexit is emphatically not what the public wants - whatever the Leave campaign-staffed No 10 press office may tell lobby correspondents.
+- Our democracy only works when the official opposition does its job of opposing the government of the day and offers a clear alternative vision for our country, including giving a voice to the voiceless.
+- Once the country voted for Brexit, I wanted the prime minister to make a success of it, but I knew that unpicking 45 years of entwinement with the E.U. would be impossible without our elected lawmakers being fully involved.
+- The E.U. elections provide an opportunity for the people of the United Kingdom to knock some sense into the heads of their political leaders.
+- If the U.K. wants to leave the E.U., we need to stay in the single market.
+- Parliament alone is sovereign.
+- I'm more interested in policy than politics, and I can do that as an independent person.
+- I don't think one moment that we should sink to the levels of the Brexiters - the dodgy money, the electoral lawbreaking and the lying - but I do wonder if those of us who remain deeply concerned about the consequences of Brexit are really landing all the blows that we can.
+- From teaching, the NHS and social care, to cleaning and building, the U.K. economy depends heavily on E.U. workers. Under a Canada-style deal for the U.K./E.U., the ability for E.U. workers to live and work freely in the U.K. would stop.
+- As transparency campaigner for more than 10 years, I have long had a sense that something was not quite right about the E.U. referendum. I warned back in November 2017 that the leave campaign seemed to be awash with dark money that may have circumvented rules designed to uphold the integrity of our democratic process.
+- I'm not sure when exactly it started to become the fashion in Westminster to skim-read documents, only bother with bullet points or, worse, to take them entirely on trust - but that, perhaps, was when we began as a country to lose our way.
+- I fought for MPs to have the right to vote on article 50 not because I was against Brexit, but because I was, and remain passionately, an advocate of parliamentary sovereignty.
+- The British public are not children who need protection from the truth.
+- As a woman thrust on to the political stage and baffled by the anger and depth of negative feeling I have been targeted with, Mary Beard's 'Women & Power: A Manifesto' brought me a sense of solidarity, power and determination.
+- I am more interested in teaching my children empathy than subscribing to our 'me' culture and obsessing about 'how do I feel' all the time.
+- I come from South America and it's part of our culture to speak out. It's a lot healthier.
+- I didn't realise how much of a personal vendetta Dominic Cummings had against the establishment.
+- Vagueness and good law are simply incompatible.
+- British electoral law forbids different campaign organisations acting in concert unless they have a shared cap on spending.
+- The British are a people who are generally happy, under normal circumstances, to trust politicians to tell us the truth and to leave them to run the country as we get on with our lives. But we reserve the right, always, to make it clear that they are our servants, not our masters, and, when necessary, we can and will take charge.
+- At 14 I had no choice but to live with my brother, on our own, without adults, with all the responsibilities, decisions and day-to-day practicalities of living independently. I had, though, the joy of earning my own money.
+- I have always been drawn to male-dominated industries and adrenaline-filled pursuits.
+- It is of course one of the great joys of our country, a beacon of democracy that the world admires, that every citizen is equal under the law - even the prime minister - and no one, not even him, is above it.
+- I'm an adrenaline junkie but also a petrol head.
+- I never doubted that our parliamentarians would vote to trigger article 50 but I expected a detailed, pragmatic debate around the options of how to execute Brexit and the processes involved.
+- I am an ardent believer in a free, democratic and inclusive society, and the robust exchange of views that is essential to tolerance.
+- I have become the person I am today, as a result of both the successes and the scars in my life.
+- I am a private citizen with no political affiliation - the recommendations Remain United will make are based on robust polling and scientific methodology never before used in an E.U. election.
+- I have a 'pillow test' - can I go to bed tonight knowing that I did my best today? If I can, I'm happy.
+- Entering public life as a woman - be it as a politician, journalist, expert or activist - makes you the target of the most sinister threats, abuse and language.
+- I do not doubt that there are many countries that will wish to trade with the U.K. post-Brexit, but understandably they will wait to see what the U.K.'s ultimate relationship with Europe will be.
+- As people in business know, if you just sit on your hands and don't progress with the changing environment, you won't reform and improve the existing relationships you have.
+- My father was a socialist, so we had some of the most extraordinary people at home.
+- The things being smuggled in under the cover of Brexit will damage so much of what we hold dear. A cabal of tycoons would see their wealth and influence turbocharged, while the mass of the population would see their prosperity, their security and, ultimately, their liberty dwindle away.
+- The very fact Boris Johnson is the favourite to succeed May says everything about how vacuous and morally bankrupt our politics has become.
+- The closer we come to the Greek tragedy that is Brexit, the more horrifying it is to behold.
+- All our elected representatives - and our government - have a responsibility to keep their people safe and well.
+- Our laws are ultimately all that protect us from tyranny, and before them we are all equal - prime ministers and private citizens alike.
+- I tend to stand up and speak up when I see something dysfunctional happening.
+- Theresa May and her advisers should understand that to rebuild faith in the competence and integrity of our government, transparency is vital. It shines light on the good as well as the bad. And it leads to better-informed decisions, therefore better outcomes.
+- Under Ceta the E.U. checks products coming from Canada to ensure they do not originate in any other country - because if they did, they would be subject to E.U. tariffs. The same would happen if the U.K. had a Canada-style deal with the E.U.
+- If Canadian companies want to sell products to the E.U., they have to prove those products conform with E.U. product safety, health and environmental rules. This involves extra bureaucracy, controls and paperwork. If the U.K. had a Canada-style deal with the E.U., U.K. companies would have to do the same.
+- So many red lines have been crossed that people seem to think it is acceptable for politicians and the media to actually incite hatred and violence.
+- A Brexit Britain that will navigate its way in the world without a moral compass.
+- The decisions MPs make as our representatives affect every aspect of our daily lives, from energy bills to the quality of our hospitals, schools and emergency services.
+- No prime minister, no government can expect to be unanswerable or unchallenged.
+- We can and must support our MPs in doing the job they will be elected to do: to hold the government to account in order to do what's best for Britain.
+- In the mother of parliaments, it is not too much to ask that our politicians stand up for all our best interests.
+- No longer can a risk to human life be considered subordinate to blind and increasingly discredited ideology.
+- My strength of character is a privilege. I can do anything to survive. I don't break easily.
+- Democracy abhors a vacuum.
+- Psychological mapping for political ends is now going to be part of every campaign.
+- You have to respect what money and success gives you, then have the responsibility that goes with that.
+- Mr Corbyn, I accuse you of failing to do your duty by not opposing in any real sense our government on the most important issue of our times - Brexit.
+- My day job, running a fund management company, means I know that I and my team can't afford not to read every word of every document about assets or markets we propose to invest in, and to be absolutely clear we are complying with all the legal and regulatory requirements involved.
+- If I look smart and feel confident, other people's bigoted assumptions have less power to harm me.
+- It is obvious to voters that Brexit has caused both of our principal parties to take leave of their traditional and historic purposes and principles, if not also their senses.
+- British democratic values are embedded in the primacy of parliament.
+- It is a tenet of representative democracy that MPs are not delegates for their constituents. This means that their decisions and actions are ultimately governed by putting the best interests of all their constituency before all else.
+- I've worked for everything I've had, and I can't think of a better way of using it than standing up for what's right, and what's required to build a better society.
+- If you dwell on your negativity you can never move on.
+- I make no pretence at being well-versed in politics - it is all too often about personalities and emotion - but I do know a thing or two about our constitution, as I once trained to be a lawyer. Even a first-year law student learns that an overriding principle is that parliament is sovereign.
+- In more stable political times, a low turnout in the E.U. elections was a luxury we could afford.
+- What a travesty it is that the high priests of Leave in 2016, who insisted to all of us that Brexit would mean a return to parliamentary sovereignty, are undermining and circumventing parliamentary sovereignty in order to deliver their hard Brexit.
+- I'm a marketeer, and I thought the message discipline in the Leave campaign was extraordinary.
+- I'm afraid I'm a complete workaholic perfectionist.
+- When we're anxious we tend to shrink into a defeatist position, curving our shoulders or backs. Learning to stand straight, take a breath and speak slowly helps to project a sense of confidence, relieving some of that anxiety.
+- Article 50 is very poorly written and raises more questions more answers.
+- I welcome the Independent Group as it is committed to saving the country from a catastrophic hard Brexit.
+- Leaving the E.U. is only the first phase of the Brexiter agenda to shake us free of the laws, rules and rights that many see as a constraint on the implementation of their frighteningly rightwing vision of Darwinian capitalism.
+- It was a privilege to play a leading role in helping to safeguard our parliamentary sovereignty, and as such I am, on any view, a person with a genuine and substantial interest in the matter of defending MPs' voices.
+- It is one of the most beautiful things about our country that just one individual, so long as he or she has the law on their side, can take on the most powerful institutions or people in the land and win.
+- I see myself as a conscious capitalist.
+- What has struck me about the political world, as opposed to the business world, is that rational discourse has become all but impossible. All too often, arguments are conducted not on the basis of facts but on the basis of emotion - and, honestly, it is no fun being abused in the pages of tabloid newspapers or online.
+- I've managed to achieve a lot because I sleep very little. I tend to survive on about four hours a night, but when I'm stressed it's even less.
+- I was never binary remain or leave. I was very much of the sentiment, and still am, that it was about remain, reform and review. The U.K. actually has a very powerful place in Europe.
+- I often go into the lions' den and engage with those I know oppose my views, because I want to understand what other people think.
+- As a country we have more of a political constitution than a legal one, and as such it operates via conventions and precedents.
+- When I worked in financial services, as part of a female-led business, I found that pitching to very male-dominated boards created stress.
+- The whole Brexit saga is, in my view, one big, terrifying leap in the dark.
+- Brexit will lead to a flight of talent, money and taxes - and the country will have to take on more and more debt.
+- The humiliating idea that we just slide from the top E.U. table to third country is unthinkable.
+- We should be able to carry on our careers and be women and mothers without fearing that if we show a vulnerable side, that will be attacked.
+- Concentrating on yourself all day is not healthy.
+- In uncertain times, it is of heightened importance that our elected representatives exercise their democratic duty and use all levers at parliament's disposal to ensure a fair balance of powers.
+- The U.K. has always had a special relationship with the E.U.
+- I have to know more than everyone else in the room. In a roomful of men, I have to know more than them.
+- I am no shrinking violet.
+- The problem with article 50 of the Lisbon treaty is that it is not substantive in its content or conditions, and only concerns itself with procedural requirements.

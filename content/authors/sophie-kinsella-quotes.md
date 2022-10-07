@@ -1,0 +1,42 @@
++++
+author = "Sophie Kinsella"
+title = "Sophie Kinsella Quotes"
+quotes_len = "36"
+description = "the best 36 Sophie Kinsella Quotes"
++++
+- There is something exciting about saving up for a special treat. Bring back the piggy bank!
+- When I wrote my first book, 'The Tennis Party', my overriding concern was that I didn't write the autobiographical first novel. I was so, so determined not to write about a 24-year-old journalist. It was going to have male characters, and middle-aged people, so I could say, 'Look, I'm not just writing about my life, I'm a real author.'
+- Philosophy wasn't about facts, it was about ideas. My first essay title was something like: 'How can you know what other people are thinking?' I thought, 'Wow, what an amazing thing.' I really thought deeply for the first time.
+- I adore all Agatha Christie's books and turn to them whenever I'm ill or need cheering up.
+- I'm a great fan of taking my laptop out and about.
+- I'm an impulse buyer. I don't really go out with a list.
+- I don't think anyone sits down and thinks, 'I know, I'll be a chick-lit writer.' You write the book that you want to write and then other people say, 'Oh, that's chick-lit.' You say, 'Okay.' But it's not like you look around and go to a careers fair and there will be someone at the chick-lit author stand.
+- It wasn't until after college that I started writing. I had just applied randomly for jobs in the media and got one on a magazine called 'Pensions World.' So I was writing for a living there and that's when I started my first book.
+- The way I write is totally instinctive. I just write what I feel or what I find funny - and hope everyone else agrees.
+- My own life has been doubly disconnected, as I've written books under two different names. As an author, your name almost becomes a brand; readers know what to expect.
+- I had gone to Oxford to read music. I had done music all my life, but when I got to college I didn't want to do it anymore.
+- I always thought 'chick lit' meant third-person contemporary funny novels, dealing with issues of the day. I mean, it's not the ideal term; when I'm asked to describe what I do, I say I write romantic comedies, cause that's what I feel they are. But I'm quite pragmatic.
+- I change my mind so much, I'm better going on my own. Shopping is a selfish activity anyway.
+- When I'm on a break from writing, I'll log on to Amazon and eBay. The doorbell is constantly being rung by deliverymen.
+- I had no plans to be a writer. My teenaged bid for stardom was to be a pop star... which, ahem, didn't exactly work out.
+- Like most of us, I'm used to juggling about 52 roles in life. Wife. Mother. Sister. Friend. Author. Sometimes I feel a bit 'multiple-personality'.
+- I chose to publish the first 'Shopaholic' book under a pseudonym because I wanted it to be judged on its own merits.
+- The great thing about being a novelist is that you organize your own day.
+- If you want something you can't afford, think what else that money could buy: a week's groceries, a month's rent, or a weekend away. That will put things into perspective.
+- My real name is Madeleine Wickham, under which I write dramas with an edge of humour. As Sophie Kinsella it's fast, all-out comedies, such as the 'Shopaholic' series.
+- I'm very lucky. I have a really supportive husband in Henry, and there's my mum, too. I couldn't have a career and manage the kids' routines and household thing single-handedly. I'd just go crazy.
+- To some extent, all authors are a little schizophrenic. We lead most of our lives in solitary confinement, living and breathing the books that we're writing.
+- I am not a label snob and have learned that the thrill of shopping can be just as great, if not more so, when you find a bargain.
+- I've never written a children's book, but when people meet me for the first time and I say I write books, they invariably reply, 'Children's books?' Maybe it's something about my face.
+- Being a journalist is good if you want to write books: it teaches you to get beyond the blank screen. My books have been described as froth, but there's scope to be witty and ironic about everything in life.
+- I love all my characters. I love their weaknesses and flaws. I feel like they're all my best friends and I adore being with them.
+- I think a lot of people still fantasise about that first love and what might happen if they rekindled the relationship.
+- When I had the idea for 'Shopaholic', it was as though a light switched on. I realised I actually wanted to write comedy. No apologies, no trying to be serious, just full-on entertainment. The minute I went with that and threw myself into it, it felt just like writing my first book again - it was really liberating.
+- If my writing comes to a halt, I head to the shops: I find them very inspirational. And if I get into real trouble with my plot, I go out for a pizza with my husband.
+- To have someone who never makes a mistake, never finds her personal life in disarray, never worries about work-life balance? I think that would be unreal. What I'm writing is real.
+- Shopping with friends is a great way of still enjoying the thrill of the chase without having to make a purchase. It can also be a real bonding opportunity. Helping your friend find something nice is just as rewarding as helping yourself.
+- I can't cook. I don't have the right brain for it, somehow. I can't walk into a room and tidy it up. I get distracted. I pick up one thing and I start looking at it. And my cooking is truly heinous.
+- People used to ask me for advice, and I'd say, 'Please, don't ask me!' Yes, I did economics at Oxford, but that's not the same as having a broad knowledge of personal finance.
+- I never did any training in journalism or in finance, so I really was in the deep end. I got very good at going to press conferences and nodding. I'd figure it out when I got back to the office. Charts and numbers. I've never been great with facts, ever, my whole life. For a journalist, that's not a very good trait.
+- I'd probably still be a financial journalist now if it weren't for writing novels. Mmm. Fun! I'm much happier writing novels!
+- My earliest, most impactful encounter with a book was when I was seven and awoke early on Christmas morning to find Roald Dahl's 'Charlie and the Chocolate Factory' in my stocking. I had never been so excited by the sight of a book - and have possibly never been since!

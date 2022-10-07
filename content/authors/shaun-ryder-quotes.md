@@ -1,0 +1,106 @@
++++
+author = "Shaun Ryder"
+title = "Shaun Ryder Quotes"
+quotes_len = "100"
+description = "the best 100 Shaun Ryder Quotes"
++++
+- The problem stems from the ADHD. The nutty behavior. You have got all this energy going and you can't focus on anything. It's like games at school - like football. I couldn't play because I couldn't understand the rules. I couldn't get offside. I just couldn't take in the rules.
+- I never talk about me mates behind their backs, you know. I might have a laugh, but whatever I say about them I'll certainly say it to their faces.
+- From being a little kid, I've always been interested in space. 'Star Trek' and 'Close Encounters' - not 'Star Wars.'
+- When the Happy Mondays started I was like the dad of the band.
+- My mum and dad only had me and my brother.
+- I stole my first albums 'Pin-Ups' and 'Hunky Dory' by David Bowie from the first super-sized supermarket in Salford, which also sold tents and camping gear.
+- I know a lot of people in the music business who came from working-class backgrounds and they vote Tory.
+- Good music always sticks around.
+- I don't drink at home. I don't go to the pub or clubs.
+- I'm quite happy sat in front of the telly watching everything on Sky, Netflix, Amazon Prime. And the one called Roku. I've got the lot.
+- The rest of the band tend to notice things like the door getting opened for the lead singer. And the door shuts on the rest of the band. The lead singer doesn't notice that, but the rest of the band does.
+- I don't know why we said half the stuff that we did to journalists. It was almost as if we didn't think they were going to print it.
+- I was a pretty straight kid when I was 15 - there was no drunk or drugs.
+- The only thing I took to Glastonbury in 1990 was a ton of tin foil!
+- I was in the dentist's chair for 11 hours and now I've got a set of gleaming teeth.
+- I actually stop breathing, I think it's 80 times a night, because I have sleep apnea. I've had it since I was a kid.
+- All my kids grew up around showbiz so they know it's just a job.
+- I've had a few alien encounters.
+- It never bothers me playing huge venues; it's not personal, is it?
+- Maybe 20 years ago I was all right looking, but certainly not now. I've lost it.
+- I've never cared about being indie or cool. I wanted to be on 'Top of the Pops.'
+- Wives and girlfriends really shouldn't be anywhere near the band. Not at all. Anyone who's listening to their girlfriend, they shouldn't be involved. All bands have Yoko Onos, and the Mondays were no exception.
+- I didn't think I'd ever follow Bez on to a reality TV show. But it was brilliant for him winning 'Celebrity Big Brother' and he's still my best mate.
+- Adidas have been my pals for years. I might have been skint these past few years but I might also have been naked if they'd not kept sending me the freebies.
+- My melons are twisted every bleeding morning at about half past five when I'm up with the little ones!
+- Drugs shut you down, cut you off emotionally. You think being off your head makes life easier, but it's a lot easier when you're not.
+- I'm on Radio 2 all the time now. Feels a bit weird but there you go.
+- The Mondays were important because nobody sounded like us.
+- My job is to go out partying and entertaining and it's all in an excitable environment. Doing that after night - it gets boring, you know what I mean?
+- I've got allergies. Really badly. I'm getting worse as I'm getting older.
+- I'm more of a sea lion than a lion.
+- I'm from a close-knit Catholic family.
+- The values me mam and dad tried to drum into us were no stealing, go to church, go to school - all of which we ignored. We'd fight, we stole, we cheated and we didn't go to school.
+- Kids now, they're not willing to pay for music and movies. The only thing they seem to be willing to pay for is concert tickets.
+- My dad loves it - being onstage - but I don't.
+- I had my first panic attack at 52 years of age. I'm glad it came when it did. If I'd had one as a young lad I don't think I'd have been able to have a career.
+- I wasn't interested in anything at school apart from making sure I had the latest fashion on my body and making sure that I had a bit of dollar.
+- Men don't have to grow up like women do. Women are expected to grow up with every year that passes. Men can get away with being kids until they're at least 40 - I did.
+- I grew up in the '60s and '70s, where it was still acceptable to say, 'Well, you're not academic, so that's fine, you'll do it some other way.'
+- Tony Wilson once compared me to WB Yeats. It didn't really mean that much because I didn't have a clue who Yeats was.
+- When the Mondays split up I looked at the others who'd rather sign on the dole than work with me and Bez, and thought: 'Whoa, you're gonna throw this opportunity away and maybe never work in music again?' There was no way we were doing that.
+- It was cycling that got me off drugs. I'd get on my bike very early in the morning and keep cycling until very late at night, day after day, until it was out of the system.
+- Don't trust anyone that doesn't like any Bowie songs.
+- I've enjoyed all my times, teens, twenties, thirties, forties, and now I'm enjoying my fifties.
+- My kids that are grown up, in their 20s, they all go to festivals. They have to behave, though. When it comes to things like that it's do as I say, not do as I do.
+- There were some great tunes played between '67 and '73. The Beatles were everywhere in those days, the most famous people in the world. You couldn't avoid them if you wanted. Not that I did.
+- We really wanted to be rock 'n' roll, so we became rock 'n' roll, and really good at it, but you pick up loads of layers and you completely forget who you are and what you are.
+- I never thought I'd die young. Even at the worst moments, I've always thought I was gonna live till I was about 127.
+- When Happy Mondays came out, that was different to all the music around then.
+- The first time I voted I was 53-years-old. I never got involved in it before the 2015 general election. I voted Labour.
+- When you're a young rebellious kid, you think you can beat the system, and when you grow up you realize you can't.
+- My brain gets about 10 things going on at once and the wires don't connect. They all go, 'It's the drugs,' and it's not. I have been like this all my life.
+- I wouldn't want to be 20 again.
+- I'm proper schizophrenic - really, really, really shy, but also a bit of a loon.
+- I don't do politics.
+- 'Tiger King.' They are absolutely gone with the fairies, they're all absolutely raving out of the box, the lot of them. All those people with animals like tigers, who've got their own zoos in America, and one guy's got something like 2,000 tigers in his back garden. It's absolutely mad.
+- People always ask if I miss the drugs and the partying. I'm a 58-year-old man - no, I don't!
+- When you're young, everything's boring, basically.
+- When I was 15 and starting my first job as a messenger boy at the post office, delivering telegrams.
+- When we came along in 1982, music was getting boring - like 1976 when punk hadn't happened. We wanted to be rock 'n' roll. We grew up with The Velvet Underground, the Stones and Mars bars and Marianne Faithfull and we knew we didn't want to be boring - and we weren't!
+- It is amazing what humans can put up with.
+- I didn't learn the alphabet until I was 28 and could only learn that when someone told me to sing it.
+- I've not stopped drinking, I'm not a born again one of them, we just don't have booze in the house.
+- My missus does all the cleaning. She loves it.
+- I didn't DJ at Liverpool's Ruby Sky nightclub but a couple of newspapers said how great my DJ set was, and how I've straightened up, which is true, and how I was drinking tea. But I wasn't there!
+- When he was young and because he was off his nut, Bez would spit when he talked.
+- He is like a bad dog, Bez. We lived together in a flat and if you didn't get up before him, he would get up and he would take your clothes.
+- When I hit 40, I ballooned. I thought it might have been age, abuse, but it wasn't, it was a thyroid condition.
+- Me and my dad have exactly the same head and nose.
+- When the Happy Mondays first got famous, I just thought, 'I deserve this, I deserve to sell records.'
+- We're not the only life in the universe. We're just not. It's ridiculously impossible.
+- I saw my first UFO in 1978.
+- I don't get involved with the music scene any more. It's just alien to me.
+- Education is about remembering stuff and I could never remember anything, so I didn't get an education.
+- Yeah, when I had Covid all I could eat was fruit. Big bags of pears every day.
+- My muscles have caved in. I go to bed at night, and next day I've got this pot belly where all my muscles have collapsed; so I look fat, but there's nothing I can do about it.
+- I'd love to see the Stone Roses do a show but it won't happen.
+- I had Oliver Reed as a neighbor. He was always in the pub and despite his age, he always wanted to wrestle everyone.
+- So I'm Labour, although I couldn't vote for Corbyn - he'd have taken too much money off me!
+- I have discovered vegan ice-cream; that's replaced the whisky.
+- There were some miles-better bands than us. We were conscious that we weren't the best or the smartest, but we certainly knew how to work the press.
+- If I was working in Greggs I'd still be working until I was 65.
+- I bike ride and swim but I don't exercise 'cos I like it. I do it because I've got a thyroid problem that can balloon my weight up to 20 stone if I stand still for five minutes.
+- I've got six kids from three mums.
+- When I was at school you never heard the word 'ADHD.' We didn't even hear 'dyslexic' at school. There was really nothing on offer. It wasn't on the planet as far as we were concerned.
+- My mam collects everything to do with everything we've ever done. I don't remember us doing Happy Mondays underpants but my old girl reckons she's got a pair.
+- I always loved messing around with words.
+- I love rap. I love hip-hop. But something is wrong when every song, no matter what, has got a rap.
+- I'm not really good with hangovers.
+- I think I'm a really good dad.
+- I don't have a problem with saying, 'I love you.' I probably said it to the whole of the red-light district in Amsterdam when I was about 21.
+- The Shaun Ryder in the Happy Mondays isn't the real Shaun Ryder. It's a caricature. Always has been.
+- Believe it or not, me and Bez choose the reality TV we do wisely.
+- If I put anything negative in me then it seems to amplify the situation. I have to think positive.
+- I've been asked to write my autobiography, but I've not been interested.
+- People forget I'm that old. They still think it's 1988, when I was 26. They think I'm Peter Pan!
+- I don't really regret anything about my youth.
+- I got tired of soundchecks. At first it was important. But after a while, there was no point in me doing one.
+- There's all sorts of stories about me. I've stopped listening to them. You've got to laugh at them, really.
+- Seriously, I do 20 lengths a day. I get a few funny looks in the pool from people who think, 'Isn't that that Happy Mondays geezer? What's he doing here?'

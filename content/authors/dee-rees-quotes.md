@@ -1,0 +1,104 @@
++++
+author = "Dee Rees"
+title = "Dee Rees Quotes"
+quotes_len = "98"
+description = "the best 98 Dee Rees Quotes"
++++
+- Before Charlottesville, it might have been easy to dismiss the plot of 'Mudbound' as no longer relevant. Now, I feel like audiences will be more receptive to the material - and to interrogating their personal histories after watching it.
+- Art makes you see people as individual, unique human beings. Art, in that way, allows us to see each other in particulate, as opposed to in aggregate.
+- Filmmaking was the way I could write characters and not have to give them up to anybody.
+- Our statement's on the screen. Awards won't make it better, and a lack of awards won't make it worse.
+- I like 'Paris is Burning' by Jennie Livington.
+- I think Charlottesville was shocking for some, but it wasn't for me or for my family, I mean, because I grew up in 1980s Nashville.
+- 'Mudbound,' you know, is about home. 'Mudbound' is about what it means to be a citizen, and 'Mudbound,' in fact, is set in this post-reconstruction era that we haven't really explored. You know, not since 'Sounder' have we even really explored that experience.
+- Going into a room and saying, 'I'm a black lesbian' - it's a strike against you.
+- Creatively, most of my influences come from the literary world: Alice Walker, Toni Cade Bambara. Writers are my heroes.
+- With friendship, it's hard sometimes - you don't outgrow your friends, but you do question how people are friends to you in different ways and how it's okay to cultivate other relationships outside of that.
+- The only advice I can give is to surround yourself with people who are friends and people who believe in you and your material and who are going to help you take it to the next level. It doesn't mean you don't listen to criticism, but you listen to it and edit it, and you figure out what you can take.
+- With 'Pariah,' at the time, I had just come out. I had a coming out experience, and I was writing about it, transposing my experience as an adult: What would it have been like if I had been a teenager in Brooklyn? The funny thing was people thought I was from Brooklyn. I had to be like, 'No, I'm from Nashville.'
+- Culture - art, music, literature - is the long game, because it's the way to change people's ideas in a more personal way.
+- I grew up listening to Mary J. Blige's music. When I initially met her, it was like, 'Oh, wow. I'm meeting this woman whose music was the soundtrack of my college years.'
+- I've always liked to write, but I never thought I could make a career out of it.
+- I think art always comments on the time and place it was created.
+- When I first came out, holidays were hard. I reached a point where I didn't go home anymore. I constructed my own, kind of like, family group around Christmas.
+- I'm always excited about stories that allow me to explore a character and create interesting stories and worlds that we haven't seen before.
+- I was interested with exploring the idea of who gets to be in possession of the land - how it's sometimes impossible to go back home, how family can be the thing that drags you down.
+- You can't be limited by your own experience.
+- You don't have to make your life look like anybody else says it should look.
+- My first job was at Proctor and Gamble in Cincinnati, my second job was at a pharmaceutical company in Berkeley Heights, New Jersey. My third job was at Palmolive. And I realized, three jobs in three years, maybe it wasn't the job. It had to be me.
+- As long as you tell the best story possible, you can trust that people will be able to connect to it.
+- 'Mudbound' highlights the fact that we're still battling a lot of the same issues as we were all of those decades ago.
+- A producer has to want you. And if the producer trusts you and asks for your vision, it frees you up so much, not having to explain or fight for every decision. You're allowed to create.
+- When I first started going out to lesbian clubs, I felt a very binary recreation of hetero culture. There are butches and femmes, and I felt like I was neither of those things. I'm in a turtleneck and jeans and just learning to be comfortable in that space. I realized I don't have to be a certain way.
+- We have to create a range, and we have to let there be possibilities. And basically, by showing there are different types of people, you write down the monolith. You stop having to represent for all black people when you allow there to be different types represented.
+- For me, books were my source of affirmation. Alice Walker, Audrey Lord - it was these authors who wrote about their experiences. It was this weird thing where I was censored in terms of what I could watch but not in terms of what I could read.
+- I'm interested in telling stories about characters that are interesting and who are challenging in some way, one that will make you think about them afterwards.
+- I had this thing where I only wanted to work on original material, no adaptations, and obviously, that changed. I really wanted to have the resources and have the space and the time to tell stories that I've really cared about. I've kind of changed my approach, but I've gotten to do that, to tell stories that I really care about.
+- I remember one summer I played, like, with the granddaughter of this known Klan member. Like, all summer we caught cicadas. And we had grown close, and so it was, like, time for her birthday party and I said 'Oh, like, what time do I come for your party?' And she's like 'Oh, no, you can't come to my house 'cause my parents don't like black people.'
+- To have a simultaneous global audience as an artist is more than you could ever hope for.
+- Coming-of-age stories, people roll their eyes.
+- The enemy is the system. And the system is made up of people, and we have a choice in that.
+- I had originally written 'Pariah' as a feature, and we shot the first act as a short film, and then we used the short as a marketing tool to fundraise for the feature.
+- There's a line that runs between everyone and their ancestors, and you cannot sever that. Maybe disassociate from those ideas but not how you are connected to them. But, you can realise how you've benefited and change how you raise your kids.
+- I thought that marketing was a way to be creative in business but quickly learned all creative stuff happens at the ad agency.
+- Nothing I do is didactic. I just want to hold up a mirror and say, 'This is who we are.'
+- I wrote poetry and short stories. I would send them to magazines; they wouldn't get in. But short stories are how I found philosophy and how I'd understand the world.
+- I'm always choosing the hard things, the things that aren't easy.
+- I kept getting offered all this young adult stuff. I don't want to keep telling teen coming-of-age stories!
+- When I'm on set, I know what I want.
+- I was always going to direct. I wasn't going to hand my characters over to anyone else.
+- Each moment is defined by a multitude of histories, the past constantly converging upon us, perpetually decaying and reforming itself on the steady pulse of now, now, now, now.
+- History informs where we are and how we got here.
+- You don't get to hand footnotes to the audience or explain what you were trying to do and what it's supposed to be. Everything has to be on the screen, and it has to be clear.
+- It's a failure of imagination if you can only write what you know - we have to be able to imagine different worlds.
+- I'd go to lesbian parties. I felt like I wasn't hard enough to be butch, but I wasn't wearing heels and a skirt - I wasn't femme - so I felt like I was sort of invisible.
+- I want more images onscreen because when I was growing up, I think, like, that one kiss in 'The Color Purple' was the one thing that I had. Or 'The Watermelon Woman.'
+- It's okay to be yourself and to love and accept yourself however you are.
+- In an industry that's uncertain and when you're in a lot of situations that are anxiety-causing, to have someone there who has your back unconditionally and cares for you and the material and would give anything to make sure everything is OK, makes you feel so much better. It gives you a sense of security as an artist.
+- In some communities it is - like, for me, coming out with my parents, they were not accepting; they were not understanding. So it depends. For kids in New York and L.A., maybe it's different, but for kids in Iowa, for kids in Tennessee, it's still something that's not really talked about.
+- For me, like, obviously, I want to see myself onscreen.
+- For me, Sundance always felt big. It's not the only way to make your way, but for me, it was definitely that critical link between struggling artist, kind of working on my own, to actually working professionally and being connected and being seen.
+- For 'Pariah,' people were surprised Kim Wayans was there, but comedians have a dark streak; they're comedians for a reason.
+- I'm not a writer that writes every day. I just kind of have ideas. I jot them down when I have them, and when I have enough, I just start. And for me, I start more around noon, and I'm all about feeling. Once there's a theme, I can't not write.
+- Creatively, I just like interesting characters. So straight, gay, or whatever - like, whatever, wherever the characters are coming from or their lifestyle.
+- To me, if you can do the Wicked Witch live, you can play anybody.
+- You don't have to make yourself look like people expect you to look.
+- I think 'Mudbound' reveals the interconnectiveness of our stories. You can't separate out threads of history and race as economic construct. 'Mudbound' makes it very plain. Race is about commerce; it's not an actual thing. It's a fiction that was created to basically divide resources unequally.
+- Shooting on film is great because it imparts discipline: What do you need to see so you're not finding it in the camera. When I'm shooting, I have the scene in mind, where I'm going to have certain lines. I learned to overlap and to shoot more than I think I need. That was the learning curve.
+- Having to stake out your identity and have people question whether or not you're being yourself was a tension that I could relate to.
+- For me, 'Pariah' is very much about that inner churn. It's about this person's emotional inner life, and that's really what I wanted to bring to 'Bessie.'
+- I thought I'd get an MBA, and then I could be anything. And I'd write on the side. That was the idea.
+- I was going to study business administration at Florida A&M, at the height of Reaganomics.
+- I still want to do features, but on my own terms.
+- I've been around many different lives, many different voices. It was amazing material for a writer.
+- My ultimate dream was just to be an auteur.
+- New York offers people the anonymity to be themselves without judgment.
+- I grew up in Nashville in a white suburb. We lived next to a Klan member. We didn't see hoods, but my dad knew that guy was a Grand Dragon.
+- People have almost been lulled into complacency because there are no signs over the water fountains. But the signs have been in the policies. There's still housing discrimination and wage discrimination.
+- Knowing what you want is not a shortcoming. Let people deal with their own anxieties.
+- I just want to tell stories that are meaningful and have inspiration to them; people can watch it and take away something, or maybe they'll just think about themselves differently or think about the world differently. I just want to create characters that live on.
+- I was never physically abused, but when I came out to my parents late in life, when I was 27, they definitely had an intervention.
+- You're your own person, and it's about you. I'm my own person, and it's about me. Everyone has their own life.
+- There's a lot of power in saying no to big things that you don't want to do in order to say yes to the kind of things that really inspire you.
+- When you choose the hard things, it takes longer than you think to get it done, and if you choose the hard thing and have a very particular way you want to do them and are uncompromising in that, then sometimes it takes even longer.
+- I'm interested in characters and relationships.
+- There's a dearth of media around young black women and certainly a dearth of LGBT media for people of color.
+- Our country is pathologically violent.
+- If I can go three grandmothers back and find a slave, that means someone else can go three grandmothers back and find a slave owner. When you interrogate your histories, it forces you to rethink who you are and where you are.
+- My dad was a cop, you know, and I grew up three houses down from people who used Confederate flags as curtains.
+- Filmmaking in general is my second career. I thought that writing wasn't practical, so I went to business school and got an MBA, and I worked three years in grant management.
+- I feel a lot of folks, like teenagers, can feel like outcasts.
+- Actors need to know why they're saying what they're saying, more than just learning their lines.
+- For kids who are struggling, who are of faith, just reconciling yourself to the fact that God loves you, accepts you for who you are, is a big step in the healing, especially when your biological family is unaccepting of you.
+- We shouldn't be discriminating against each other. The whole 'light skin versus dark skin' is an idea we need to break down.
+- I started out at Procter & Gamble marketing panty liners, so basically selling women insecurity. I thought there must be more to life than this. Then I was on set for a Dr. Scholl's commercial, and I asked one of the execs, 'How do you get a job behind the camera?' and he said, 'Film school.' So I quit and applied to NYU.
+- I think art breaks down otherness.
+- The best thing in the world is to put two characters who hate each other side by side. Or put two people who love each other far away, so they have to reach for each other with their looks.
+- For each character, I try to understand what is driving them.
+- Contemporarily, we struggle with people worried about representation sometimes. It's a burden, as artists, that we take on that limits the work. It limits the characters people play. It limits the roles they want to do.
+- When I first came to New York, I was surprised by all these out teenagers who were openly on the street being who they were. That intrigued me because I was 27 and still struggling with being myself.
+- I want people to get from 'Pariah' that it's okay to be you and not to check a box as a parent or child.
+- I can't put anything out that's not me.
+- I definitely felt the desire to, like - I definitely knew there was an elsewhere. I definitely knew that, like, if I were going to be free, I needed to be away from, kind of, like, Nashville and kind of get out of the South and get out of the country.
+- Growing up, I was very aware that there weren't many people like me on the screen.
+- Both grandfathers fought in different wars. My mother's father fought in World War II, and then my father's father fought in Korea. And they're both these country boys, one from rural Tennessee and one from rural Louisiana - and they never went back home.

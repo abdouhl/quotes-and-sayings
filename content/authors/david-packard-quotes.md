@@ -1,0 +1,15 @@
++++
+author = "David Packard"
+title = "David Packard Quotes"
+quotes_len = "9"
+description = "the best 9 David Packard Quotes"
++++
+- A company has a greater responsibility than making money for its stockholders. We have a responsibility to our employees to recognize their dignity as human beings.
+- Bill Hewlett and I were brought up in the Depression. We weren't interested in the idea of making any money. Our idea was if you couldn't find a job, you'd make one for yourself.
+- The most important question we have to deal with is a combination of population control and the control of our environment - how to utilize the world in as effective a way as we can for the future of mankind.
+- I think that we must find some way to get more common sense, more rationality, in our decisions and less emotion.
+- Marketing is too important to be left to the marketing department.
+- Why are we here? I think many people assume, wrongly, that a company exists solely to make money. Money is an important part of a company's existence, if the company is any good. But a result is not a cause. We have to go deeper and find the real reason for our being.
+- I have observed that money left without special guidance is sometimes used well and sometimes not.
+- You appear to have a good project... we wish you well in this endeavor.
+- Take risks. Ask big questions. Don't be afraid to make mistakes; if you don't make mistakes, you're not reaching far enough.

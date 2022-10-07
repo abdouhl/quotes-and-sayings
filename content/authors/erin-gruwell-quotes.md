@@ -1,0 +1,25 @@
++++
+author = "Erin Gruwell"
+title = "Erin Gruwell Quotes"
+quotes_len = "19"
+description = "the best 19 Erin Gruwell Quotes"
++++
+- Writing is powerful. Whether it's a little girl hiding from the Nazis in an attic, or Amnesty International writing letters on behalf of political prisoners, the power of telling stories is usually what causes change.
+- I realized if you can change a classroom, you can change a community, and if you change enough communities you can change the world.
+- Schools are not equal. There are still the haves and the have-nots.
+- Some teachers feel that if they ask for emotional help, they're a failure. But teaching is a team sport.
+- I am a teacher born and bred, and I believe in the advocacy of teachers. It's a calling. We want our students to feel impassioned and empowered.
+- I believe that all students, when asked to be accountable for their actions and to be socially aware citizens, will become agents for change!
+- I was going to show my kids that no matter what happened with their parents, parole officers and other teachers, I wouldn't give up on them. I let them know it matters to me that you come to class, it matters to me that you try, it matters to me when you succeed.
+- I believe that education is the greatest equalizer; thus, I will continue to fight to equalize the playing field in an educational atmosphere that is not always level!
+- I have learned that, although I am a good teacher, I am a much better student, and I was blessed to learn valuable lessons from my students on a daily basis. They taught me the importance of teaching to a student - and not to a test.
+- Paying to teach in the trenches was like putting my face through a cutout hole at a carnival while a quarterback threw pies at me. At least with a carnival, I'd see it coming.
+- Writing really evokes empathy in a way very few things can do.
+- I grew up in a very progressive family and with a great educational system, and I asked myself, 'Why doesn't everybody have these opportunities for a good education? So why not give back to these kids who didn't grow up with the same privileges I had?'
+- Hoping they'd been inspired by the examples of Anne Frank and other teens who had turned negative experiences into something positive by writing about them, I handed out notebooks for my students to journal about their lives. There was some initial resistance. But then the stories poured out of them, full of anger and sadness.
+- Education is such a noble profession, it's a wonderful way to serve.
+- I believe that everyone has a story, and it is important that we encourage all students to tell theirs.
+- That's the beauty of education, kids taking lessons out of the classroom and back into their own world where they can positively affect their family, their friends, and their greater community.
+- The stories my pupils told me were astonishing. One told how he had witnessed his cousin being shot in the back five times; another how his parents had died of AIDS. Another said that he'd probably been to more funerals than parties in his young life. For me - someone who had had an idyllic, happy childhood - this was staggering.
+- I think a lot of teachers feel like they're teaching to a test. Our response is you teach to a student, you really teach to the kid.
+- When you're too robotic and scripted, the students tune you out. So I always tried to use different learning modalities - kinesthetic, auditory, visual, whatever might bring learning to life.

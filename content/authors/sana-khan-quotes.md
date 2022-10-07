@@ -1,0 +1,106 @@
++++
+author = "Sana Khan"
+title = "Sana Khan Quotes"
+quotes_len = "100"
+description = "the best 100 Sana Khan Quotes"
++++
+- After watching a movie, you can't conclude that I am the same person in real life too.
+- You see everyone today is doing bold roles and no film is made without endless kissing scenes, that too with A-list stars.
+- No matter what people say, the fact remains that it's not easy for an outsider to make it big in the industry.
+- I'm an educated woman, and I don't believe in marrying off a 15-year-old girl.
+- I am nervous about what people think of me now that I am out of the 'Bigg Boss' house. But I do feel that I have become wiser by being in the show.
+- People like me doing comedy, especially after 'Khatron Ke Khiladi,' where they got a glimpse.
+- I have never gone out on a real date nor has any guy asked me out on an official date.
+- All newly decorated flats look the same these days. Interiors are dominated by a lot of beiges and browns and I didn't want to go for that.
+- I like Sooraj Bharjatya's movies.
+- I don't have agencies presenting me, no big production house launching me, nobody from the industry backing me. I am all alone and have spent 14 years in this industry; and I am proud that I've survived for so long without any support.
+- I keep my sanctity and respect intact.
+- I don't know why there is so much noise on doing intimate scenes.
+- I prefer to take up films where I have a substantial role and screen space, though there's nothing like a conscious decision of doing one film a year because I haven't reached that stage yet.
+- I was in 'Bigg Boss' were people called me cute and bubbly, but I landed in 'Jai Ho' playing a villain.
+- Whenever I'm offered a film, I think of a Friday and ask myself if I would go and watch that film or not.
+- I've seen a lot of people skipping warm-up and hitting the cardio machine, but that's not right. It's important to dedicate 15 minutes of warm-up time before exercise, and after exercise.
+- In India, basketball is not that publicized whereas we have some great players in our country.
+- 'Wajah Tum Ho' experience in my history book will be in my top 5.
+- As an actress, I always want to do new things.
+- You keep getting calls, but then doing the right project and being sure of what you want to do is what counts.
+- It's very important that the people you're working with make you comfortable.
+- If I am doing a love-making scene in a film, I can't obviously be wearing a sharara.
+- Actors are here to perform various kind of roles and we represent some another character. You can't judge us by what we portray on screen.
+- There are so many films which have steamy scenes. Nobody puts a question on them.
+- People who have now become famous and say that they never had a plan B in mind, it doesn't work like that.
+- From politics to getting replaced by another actor or not getting references, I'm done with all of it.
+- No artist gets work through an agency and it's only working artists who keep getting more work.
+- It took me months or maybe a year to understand that there are so many cheap men out there who would ask you to 'compromise' or 'oblige.'
+- I enjoy working down south because they have proper schedules and there is enough free time after the shoots.
+- People think celebrities just resort to surgeries or go for crash diets, but that's not true.
+- I have always got work on my own calibre and I can proudly say that nobody has ever recommended me for any project.
+- If things are destined to happen, big directors will notice me and work will come my way.
+- I won't say doing 'Jai Ho' was a wrong decision. People said I was camera-friendly and the film had some truly big names.
+- I am not someone who interferes in the love life of others.
+- I am attempting to understand Telugu and then give my dialogues. But language is not a barrier for me.
+- I'm not a psychopath to hug somebody if the person doesn't want to talk to me.
+- I was getting offers when I was in Bollywood, but was waiting for a strong character.
+- When I watched castles in 'Alice In Wonderland' or 'Snow White,' I would think of owning a house in white and not pink.
+- I don't want to become an item girl, I want to be an actor and want to remain so.
+- For me, being in someone's good books is to keep your behavior good.
+- I played a negative character in 'Jai Ho.'
+- I am not someone who would build up false news just to get attention.
+- I don't think we are modern if we need to tie a rakhi to someone just so that we can be friends?
+- I'm taking my own time but I don't want to just relax either. Also, when you're looking for work, everybody approaches you, but I'm trying to target the right project that takes me a level up.
+- There's nothing wrong in going and asking people for work because that's what we do. We are asking, not begging for money. We, as actors, are selling and presenting ourselves.
+- The people there are so warm, and I tasted many delicious dishes in Madurai.
+- Getting married to Anas wasn't an overnight decision. I have prayed for years for a man like him in my life.
+- I always dreamt of being a Tollywood actress since childhood.
+- I agree that an actor's shelf life is so less, so they want it to move faster. But in that fast forward mode, you don't want to make wrong choices.
+- Id is the festival which I celebrate wholeheartedly. I love to celebrate it with family and friends.
+- The underprivileged are the only privileged ones in the eyes of Allah.
+- I would like to clarify that I have never begged for work though I am an outsider. Nor do I have sources who call up film-makers and pitch me for projects.
+- I have got such a great opportunity to kick-start my career in Bollywood with a film starring Salman Khan.
+- It was fun to go back to the 'Bigg Boss' house; it brought back old memories.
+- I cannot compete with anyone.
+- PR only works for big names, because they've already achieved something. If you're talking about an ordinary person, what would your PR machinery do where there's no product in the machine?
+- No leading lady in Bollywood has much to do in a film and I am no Kareena Kapoor who will have filmmakers write a 'Heroine' for me.
+- I don't want to say yes to a project in hurry and repent later.
+- Some heroines look very glamorous in bikini.
+- I am planning to leave Mumbai and go somewhere else in search of guys. I don't want to settle with a guy from the industry.
+- I want to be in Bollywood and work there.
+- After a film like Wajah Tum Ho, when you don't get the kind of work that you want, you also think 'why.'
+- It's a crazy perception that a pretty girl cannot be cheated on.
+- Another misconception that people have is that if you're a good-looking girl, you can get anyone. But that's the thing... it's more tough for us - when you can choose anyone, who do you choose?
+- White makes your house more peaceful and elegant.
+- Initially, when I started going to the gym, I would get bored easily.
+- The fact that people have appreciated my work in 'Wajah Tum Ho' is heart-warming and my confidence is higher.
+- I own two basketball teams; one of men and women.
+- When we sign a film, we agree to be part of the script.
+- No one gets stereotyped unless one wants to.
+- I workout for two to three hours a day, including stretches.
+- I felt envious of the cleaners cleaning the Kaaba. They got a chance to stay close to God and clean the house of God.
+- I don't know how my day goes by. I start by offering Namaz and then I read the Quran.
+- People think that when you work in the south you will be driving in a Ferrari in Mumbai but that's not true.
+- I did not get married for these trolls. My husband is a good man and I find him good-looking, maybe you don't. I don't care.
+- Why are people so harsh on actors?
+- I belong to a very conservative family.
+- I am a bling person. I want shiny things everywhere.
+- When you are working, be the director's and producer's actor. Value their time and money, be punctual, disciplined, and don't misuse perks that you get as an actor.
+- We support films like 'Thappad' and so on, but if we aren't brave enough to speak up for ourselves and stand for what is right, is there any point in celebrating movies that promote this?
+- I'm not someone who makes people stand and keep talking and falling on their lap.
+- Though I'm a very broad-minded girl, I don't think any parent would appreciate their daughter stripping on-screen.
+- It feels great to be a part of 'Wajah Tum Ho.' I am super excited, this will be my first Hindi project where I play the lead.
+- When I came into the film industry, I was so naive and confused and had no idea about how a heroine should work.
+- As an actor, you enjoy the characters that you play in a movie.
+- I am on good terms with Salman; we share a rapport, I talk to him on and off, we've met so many times, I've been to his house, and we have worked together on the sets also.
+- He chased me for three months before the show. But, Vishal Karwal is not my friend now, and 'Bigg Boss' made me realize that he was never a friend in the first place.
+- In 'Payanam,' I play a passenger of a flight which is hijacked.
+- Though I participated on 'Khatron Ke Khiladi,' people were laughing at me if I would reach the finale.
+- I will bring in style, clothes, high heels, laugh and positivity.
+- Life is not all that serious, so please bring humor and if you don't have it, let the humor of others be with you.
+- Instead of showing audience average work, it is better that I don't show them anything.
+- Every actor has a different journey. Whatever I've done, it has turned out positive for me because I've done it with the right intention.
+- I wanted to look cute, hot and sexy all at the same time in 'Bigg Boss!' How else will the Bollywood producers cast me in their films as the lead actress?
+- If you look at my plate, I only have salad, chicken, and juice, and that's how I am.
+- I will start shooting for part two of 'Tom Dick and Harry' for which I am turning into a comedian and this is a big jump in my career.
+- It's a very thin line between looking sensual and vulgar.
+- I was always inclined towards learning more about Islam.
+- Everyone works hard in this industry. However, it takes time to get good work. Some get it quite late. It is a frustrating and confusing journey, but I feel I have been patient.
+- I feel that the industry is welcoming to only to those, who have done films with some of the biggest directors or are associated with a big banner production house. So in my case, people have not been too inviting.

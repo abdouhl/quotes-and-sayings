@@ -1,0 +1,31 @@
++++
+author = "Donald Glover"
+title = "Donald Glover Quotes"
+quotes_len = "25"
+description = "the best 25 Donald Glover Quotes"
++++
+- A lot of the rap shows I saw as a kid were boring, but if you went to a Rage show or a Justice show, the kids were losing their minds.
+- Writing is a very strenuous thing - it's like banging your head against a wall. At the end of the day, acting is better, just because nobody ever asked me if I wanted a Pellegrino in the writer's room.
+- If you're on Twitter, what you're saying is, 'I'm important enough for you to care what I think.'
+- But I just think I was lucky enough to figure out early on that I wanted to do comedy, so that's what I put all my effort into.
+- Black culture is a fight. We want to hold on to what we are, but sometimes the things that we are can be totally negative. You have to think: can't we try something new and not be seen as suspect?
+- We put stereotypes on ourselves. Everybody does that. But I think it's just a little harder for black kids to just be who they are.
+- I try to be me to the utmost.
+- I'm probably going to get in trouble for this but 'American Dad' is one of my favourite shows. It gets very dark in places but the jokes are there.
+- I'm very impatient, so I was like, 'I want to be able to do whatever I want now.' But even the biggest stars - you look back and they weren't overnight.
+- Careers very rarely are a waste of time; jobs usually are.
+- Also, I realized a lot of kids are listening to me. Whether I want to be or not, they're looking up to me.
+- I felt like high school for me was like a big whirlpool of me trying to figure out what was OK for me to do.
+- I have an obsession with books about kids with Asperger's syndrome.
+- Being in London has really taught me how important history is. Just having information of the past. It helps you predict the future, which is all we really have as, you know, humans.
+- I call 'Community' the best day job in the world, because between takes, I get to write music. I get to write sketches. I get to write movies. It's the best job ever.
+- Black men struggle with masculinity so much. The idea that we must always be strong really presses us all down - it keeps us from growing.
+- I think it's a comedian's job to make everything funny. Nothing is off-limits.
+- Usually, if I think something is really funny, I'm not gonna test it. I'll just test it when I'm onstage.
+- Twitter does have an effect on everything - things you put out there, they are out there for good.
+- The thing about stand-up was, I was doing all this sketch and YouTube stuff where I was not being censored and I got to do my own thing, and it was really cool.
+- I'm very confident in my point of view. 'Cause I think that that's all you can really have. I'm never really going to know what anybody else is going through, so it's just kind of your job to be expressive with your point of view.
+- The only reason I'm able to do music is because I'm making money on 'Community.' If I wasn't, I couldn't pay for things.
+- When anybody pays you to be creative, you're very lucky.
+- I personally don't believe people really grow. They just learn stuff when they were a kid, and hold on to it, and that affects every relationship they have.
+- I started doing '30 Rock' and started writing 'Mystery Team' at the beginning of that. While I was doing 'Mystery Team,' I started practicing stand-up. While I was doing stand up, I got 'Community.' It's like I planted trees six years ago, and now they have fruit.

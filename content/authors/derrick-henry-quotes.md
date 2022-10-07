@@ -1,0 +1,106 @@
++++
+author = "Derrick Henry"
+title = "Derrick Henry Quotes"
+quotes_len = "100"
+description = "the best 100 Derrick Henry Quotes"
++++
+- I have a lot of love for Tennessee.
+- I just want to do my job very well. If I don't, I'm hard on myself. I just keep working until I get it right.
+- I'm a competitor and I love to compete.
+- I love football, and I love practicing.
+- If you have dreams, chase them.
+- I love the weight room, and I love working hard.
+- That's the attitude you have to have on defense. You have to want to hit. You have to want to be physical.
+- Man, you can have all of the talent in the world, but the hard work overrules that.
+- Coming into Alabama from Florida, they all accepted me, they all loved me and all supported me.
+- You've got to know the defense by watching film and by how you've been coached. And then when you approach it, you've got to be real physical. You've got to deliver the blow, not let the blow be delivered to you.
+- There's a lot of things I can get better at as far as my footwork, being quicker, getting in and out of the hole, getting north and south.
+- I mean, I just felt like Alabama fit me the best. What Coach Saban preaches about it all the time and what his players represent, I wanted to be a part of that.
+- I don't get tired.
+- For me, the NFL was a little bit faster than college because you've got guys who played five, six, seven years and knew all the ins and out of the league.
+- We just gotta finish drives and be efficient on drives just so we can get touchdowns.
+- I'm just trying to play better every week.
+- I mean, I just try to run hard all four quarters.
+- I'm working hard day-by-day, every practice, working out after practice to be the best back I can.
+- My main focus is to get positive yards.
+- I'm just glad people want to get my jersey.
+- I am definitely hungry, not only to get better myself, but to win a Super Bowl.
+- I'm working hard every day.
+- It's football, you know the locker room is going to change.
+- God has blessed me tremendously.
+- As the game goes on, I get better and I can see the defense getting tired. That gets me hyped.
+- I actually met Adrian Peterson in high school. I look up to AP a lot. He's a great running back and we all know what he can do. That's definitely someone you want to model yourself after, especially at the running back position. He's a great one.
+- I feel like hard work pushes you over the limit and makes you who you are.
+- Ain't no quitting in me.
+- It's never going to be perfect, but you're shooting for it. You're just trying to be the best at what you do. That's just how I always think.
+- I don't model myself after anybody.
+- I wouldn't say I'm unique. I'm just a running back trying to make plays.
+- I'm going to push and work hard every day.
+- I love being around my teammates.
+- When you work hard, it's definitely going to show. That's why with any athlete, we have struggles, and we have adversity, but as long as you work hard and keep your head down, you will always prevail.
+- Life is not always laughs and giggles.
+- For people to want my jersey, I'm honored and blessed.
+- I just think 24 is a good running back number.
+- I don't really try to worry about what people talk about me.
+- Always be about business and come prepared to work and work hard.
+- You've just got to deliver the first blow. In football, you're going to get hit. Don't let someone deliver the hit to you. You've got to deliver the hit to them.
+- I just think about running the ball and running down the field. I don't really worry about the miles.
+- I wanna be the greatest to ever play my position. One of the best to ever play the game. Hopefully, be a Hall of Famer.
+- Nobody is going to outwork me.
+- I love getting the ball.
+- I just go out there and play my game, man.
+- In college, I loved Darren McFadden. Just the way he ran the ball.
+- We have a lot of pride for Yulee, and with the football team we can help show that.
+- Football is competition and that's what I love.
+- Whatever I have to do to help my team win. I don't care how many carries it is. As long as it's successful and we've got the ball, I'm all for it.
+- My goal every year is I always want to be better than the year before.
+- I want to make sure I have something I can lean on after football.
+- Everybody always asks me about carries, what I thought about it, how I felt, but when you got teammates like that who love you and care for you, it don't matter how you feel or how bad it hurts, you've got to make sure you're making those guys happy by helping them win, getting a victory.
+- I love being home.
+- There are a lot of kids who look up to me, and I want to do well.
+- My approach is always the same against any defense.
+- When your time comes, make plays.
+- I love playing football.
+- It's always fun when you're playing football.
+- You control your own destiny. You go out there and work hard and show people that you come to work and earn your respect. All you can control is how you go out there and perform every day.
+- I love competing.
+- I'm trying to run through you. I'm trying to make you feel everything that I'm bringing. That's the mentality you have to have as a running back. The defense is trying to knock the mess out of you, and I'm trying to do the same.
+- You've got to make the teams want to draft you.
+- Earl Campbell, he's a beast. I got a chance to talk to him; he's a legend in my eyes. To be mentioned along his name is a dream come true.
+- I just appreciate my team, appreciate my coaches, appreciate everybody involved, from my coaches, my teammates, the training staff... people in the kitchen at the facility, people who clean the building.
+- I feel like as the game goes on, carry after carry, I get better and better.
+- If you believe it, you can achieve it and God will be there every step of the way. I am a living testament, man.
+- It's exciting to come back home.
+- I always prepare like I'm a starter. Three-down back.
+- I just have to start fast and be consistent in everything I do.
+- I have to be efficient and finish runs, run physical.
+- It's all about the team, the team, the team, the team.
+- Records come and go.
+- From my coaches we've learned that you need to have a different work ethic to be different.
+- I have to run hard, finish runs, and be ready.
+- The more you're at Alabama, you grow as a person and as a player learning from great coaches and great men and just growing with your teammates.
+- God is so good, man.
+- It's my job. I am just going in there trying to win games. But it is always fun when you are playing football.
+- Anything to help the team win, I'm willing to do. Whether its 32 carries or 10 carries, I'm willing to do it.
+- Anything you can do extra like be more focused, pay more attention to detail, be more fundamental, that leads to less mistakes.
+- I want to stay with the Tennessee Titans. They are the ones that took a chance on me - 31 teams passed on me on the draft and they selected me.
+- You work hard, you'll be rewarded.
+- I feel like you gotta stay humble and keep working hard, never get complacent or satisfied.
+- Anytime you got time to rest, it always helps.
+- That's part of growing up. You're away from home and you meet new people and adjust to new things. It's part of life.
+- My teammates and my coaches, I can't thank them enough.
+- The only thing you can worry about is what you can control.
+- I think running the ball effectively is the key to winning games in the playoffs.
+- Always pray; don't be afraid to pray.
+- I think in the playoffs you have to be able to run the ball to get to the Super Bowl.
+- Competition is nothing that scares me away from nowhere.
+- There's always going to be adversity in life. I saw it growing up.
+- I want to be a premier back in this league.
+- All I see is that grass and open field, and I just run like there's no tomorrow.
+- As a running back, you always want to be physical.
+- In high school I carried the ball almost every play of the game.
+- I feel like the more carries I get, the more flow I get and just keep it rolling with me and the whole offense.
+- I'm never really satisfied. But all I worry about it what I can control.
+- I have my own path.
+- You got God on your side, anything is possible.
+- I'm being respectful to my elders.

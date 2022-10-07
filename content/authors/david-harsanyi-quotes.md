@@ -1,0 +1,61 @@
++++
+author = "David Harsanyi"
+title = "David Harsanyi Quotes"
+quotes_len = "55"
+description = "the best 55 David Harsanyi Quotes"
++++
+- Democracy is just a reflection of our morals and the things that we believe.
+- A boatload of government money is indeed a gift. Unless, I suppose, you're one of the saps paying for the cargo.
+- Common Core, the initiative that claims to more accurately measure K-12 student knowledge in English and math, also encourages children to step up their 'critical thinking.'
+- Now, admittedly, Twitter can be entertaining on occasion, as it turns out that 140 characters offers a great chance to be misunderstood - and an even greater chance one will expose his inner troglodyte.
+- Simplification of the tax code would not only unlock dormant economic potential, but, in the process, it would blunt the preferred weapon of social engineers, who reward favored industries, punish success and distort economic incentives.
+- Democracy allows rhetoric, false empathy and emotion to pummel rational thinking - so it's no wonder so many politicians thrive in it.
+- Aside from the occasional genocide, oppression, evil and torture, etc., it is inarguable that public policy could be implemented more rapidly in an autocracy.
+- It is easy to fall into the trap of believing that democracy will improve the function of policy.
+- If the wealthy get wealthier, no one has to become one penny poorer.
+- We need a smaller, leaner Washington. It won't happen if we raise taxes without any coinciding reform and serious slashing of spending.
+- Every decade or so, Hollywood has an epiphany. It turns out faith-based audiences enjoy going to the movies, too.
+- I don't think that voters should be fixated on public policy. In a healthy republic, they wouldn't have to worry every waking hour about what their government is doing.
+- In summation, like your beloved pet rock, Twitter is useful only in your imagination.
+- The Founding Fathers worried that 'some common impulse of passion' might lead many to subvert the rights of the few. It's a rational fear, one that is played out endlessly.
+- You'll notice that for many progressives, taking from the rich is not simply a necessity of budgeting but a moral imperative and a tool to institute fairness that capitalism supposedly hasn't.
+- When I was younger, I was drawn to Ayn Rand books and other works of fiction celebrating individualism.
+- Political correctness is one of the engines of nannyism. Allowing and even encouraging 'offensive' ideas is vital for the intellectually health of a free society.
+- A religion without rules or God isn't sustainable.
+- Now, I do not, on any level, possess the expertise to argue about the science of anthropological global warming. Nor do you, most likely. This certainly doesn't mean an average citizen has the duty to do the lock step.
+- We have little choice but to place a certain level of trust in scientists - even when it comes to the model-driven speculative discipline of climate change. And, need it be said, most scientists take great care in being honest, principled and precise.
+- If the library's rarest frequenters are the ones we'd like to see in them the most, then libraries are failing.
+- A true fascist is anyone who wants to take away my air conditioning or force me to ride a bike.
+- You will notice that the Occupy Wall Street crowds - and the progressives who support them - focus on bringing the wealthy down to earth rather than lifting the 99 percent. They have a nearly religious belief that too much wealth is fundamentally immoral and unhealthy for society.
+- I believe that the war on drugs is a tragically misplaced use of resources - an immoral venture that produces far more suffering than it alleviates.
+- Broaden the tax base, close loopholes and flatten the tax rates - all of which would bring more revenue stability and certitude to projections as well as make filing a comparable breeze.
+- Health care in America, despite all you hear, still offers us citizens one of the most efficient and highest quality systems in the world. But it's expensive, and it's only getting worse.
+- Zero-tolerance on drinking and driving - meaning no drinking at all before driving - is a collective punishment that, in essence, only affects responsible adults who follow the law.
+- The Bible is filled with intriguing stories about complex and flawed human beings who ponder immense moral questions and engage in colossal clashes with evil.
+- You don't have to get things done all the time to be productive.
+- Admittedly, I possess virtually no expertise in science. That puts me in exactly the same position as most dogmatic environmentalists who want to craft public policy around global warming fears.
+- Times change. Every generation has a new set of problems. Human nature is unmoved.
+- Whether you're a believer or not, a flawed biblical epic is going to be more entertaining than a remake of a Paul Verhoeven movie or some third-rate sci-fi flick.
+- Throughout the Old Testament, God warns his chosen people about the perils of assimilation, shiksappeal and false gods.
+- My parents both defected from communist Hungary and were what most people would today call libertarian. I grew up with a general distaste for taxation and any policy that intruded on our lives.
+- Let's be honest: nothing spoils 'The Walking Dead' quite like watching 'The Walking Dead.'
+- Living most of my life in New York, I witnessed plenty of nanny state laws. Later, I lived in D.C. for a bit and saw even more. I assumed when I got to Colorado, the Wild West, there would be a rejection of such intrusive legislation. I was wrong.
+- Most nanny-state initiatives begin on a local level.
+- It's difficult for democracy to function properly under the most favorable circumstances, but it has no chance at all when millions of voters are divorced from objective reality and incapable of understanding what is going on in Washington.
+- Are you sick and tired of these moralizing moralizers imposing their morality on the rest of us? I know I am.
+- As with most people, my ideology and my attitudes about life were informed by parents and family.
+- A cultural shift is not always an ideological one - or at least not always the one you imagine. Our norms are always evolving.
+- You'll often hear the left lecture about the importance of dissent in a free society.
+- Progressivism is the belief that we have too much freedom with which to make too many stupid choices.
+- The crusade to convince us that global warming can only be dealt with by wealth destruction and higher energy prices began with an effort to 'raise awareness,' which turned into some delicate nanny-state prodding before efforts to artificially inflate prices.
+- Biblical movies need not sermonize, just be honest to the foundational story. As powerful as the message is for people of faith, it's really great storytelling.
+- Anyone who's had a casual conversation with his neighbors or is cognizant of reality TV should already be petrified of democracy.
+- It would probably strike the average politician as absurd to argue that the best way to fix the economy is to stop trying to 'fix it.'
+- For Philistines like me, the mysteries of Washington can be both perplexing and wondrous.
+- The problem is that Americans use the state as a moral compass. For libertarians, it is often frustrating to explain that advocating the decriminalization of x is not synonymous with endorsing x.
+- The deepest mystery of Twitter is why celebrities and elected officials take part. After all, we all know they can't write their own lines.
+- Twitter's popularity and usefulness are mysteries to me.
+- Faith helps many people make sense of the world around them. Faith gives them a spiritual connection to something larger.
+- If had to label myself, I guess classical liberal would be best.
+- If progressives were interested in mitigating inequality, they would support the dynamism of free markets to allow the merit of ideas, products and services to win the day rather than stifle companies and pick winners in the name of imagined 'progress.'
+- Few things trigger fear and misconception more than economic tribulation, and nothing prompts elected officials to react with more simplistic populism.

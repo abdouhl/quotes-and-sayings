@@ -1,0 +1,17 @@
++++
+author = "Gary Burghoff"
+title = "Gary Burghoff Quotes"
+quotes_len = "11"
+description = "the best 11 Gary Burghoff Quotes"
++++
+- The best compliment we ever got about the show was from a Korean veteran who was unable to talk about his war experience with his wife until 'M*A*S*H.' While watching the show, he was able to lean over to his wife and say, 'See, honey, that's the way it was.'
+- I'm just a Connecticut country boy. The people I've known, the changes of season, the call of the blue jay - when I'm away, all of them haunt me.
+- The 'M*A*S*H' cast loves each other with unconditional love; our domestic animals love us with unconditional love.
+- The richest people are those who have life arranged so they have food for the family and the rent or mortgage paid. After that, at least in my case, it can become a pretty boring existence if wealth is the only objective.
+- There is no such thing as going on to something bigger and better than 'M*A*S*H' because there is nothing bigger and better. I have done the best I can do, and been in the best I could be in on television - with the best people.
+- I was just a kid, but I was a rotten kid.
+- I don't vote for the guy I trust. I vote for the guy who trusts me the most.
+- It's awfully nice when people thank you for the pleasure and laughter you've brought to their lives.
+- My son gave me the permission to accept my success.
+- I am offered work all the time but not for TV series.
+- I've discovered that the standard all-American dream of fame and fortune is not success for me. Success for me is simply the joy of working - doing good work - and then bringing that joy home to my family. But if what I do in my work doesn't enrich my life with my family, I'm doing the wrong thing.

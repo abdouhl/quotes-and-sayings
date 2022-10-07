@@ -1,0 +1,20 @@
++++
+author = "Steven Squyres"
+title = "Steven Squyres Quotes"
+quotes_len = "14"
+description = "the best 14 Steven Squyres Quotes"
++++
+- We need to drive like hell and get to the hills before the winter sets in.
+- We're stunned by the diversity of rocks. This stuff looks like it was put into a blender.
+- You create a pile of dirt and then drive over it. We may have to learn to drive all over again.
+- I want to make as many people as possible feel like they are part of this adventure. We are going to give everybody a sense of what exploring the surface of another world is really like.
+- When we opened our eyes, we saw bedrock exposed in the walls of the crater.
+- The rocks, to a great extent, look swept clean. It's a much cleaner surface than what we had a right to hope for.
+- This whole mission has surpassed all of our expectations.
+- I can't ever remember not wanting to be a scientist.
+- We didn't know if the rover could climb up or down the hills of the crater.
+- It's not going to fill in the potholes. It's not going to put a roof over people's heads. What it does is it helps to address really fundamental questions of who we are, where we came from, by which I mean we can learn how life came about.
+- These rovers are living on borrowed time. We're so past warranty on them. You try to push them hard every day because we're living day to day.
+- That's really what science is just trying to figure stuff out, and I like figuring stuff out.
+- Having been given that public trust, we have a responsibility to share with the public.
+- The thing that sets Mars apart is that it is the one planet that is enough like Earth that you can imagine life possibly once having taken hold there.

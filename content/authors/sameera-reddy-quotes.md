@@ -1,0 +1,106 @@
++++
+author = "Sameera Reddy"
+title = "Sameera Reddy Quotes"
+quotes_len = "100"
+description = "the best 100 Sameera Reddy Quotes"
++++
+- At the end of the day, I am a Kathak dancer!
+- Children need to be comforted when they're sick.
+- I am happy being a bombshell, the image has worked for me.
+- Whether it's me or Mallika or anybody, I always say that 'Tezz' is a very good product and it is a very good film.
+- I had to constantly try and fit in it and it really exhausted and tired me. I don't regret it because that was my learning to learn to come to this point of loving myself unconditionally.
+- To be honest, my videos are for myself. I didn't look at social media as a vehicle for my comeback.
+- It's important to me that I need to know what my character is about.
+- When I got on to social media and I started to show my belly, my stretch marks, my grey hair and my age, a lot of people unfollowed me and asked why are you doing this. And I am happy they did that, as I wanted the right crowd. It is very important to choose your tribe and finally, the tribe has chosen me. I am grateful for it.
+- With Priyadarshan, he is extremely strict but lets me do what I want. You have that kind of freedom as an artiste.
+- With Prabhu Deva, you have to fulfil his exact vision. Till then, he will not be satisfied, because his film has his vision and he will make it only in that way.
+- I believe in item songs.
+- I have always been someone who has put life and heart before work. I have taken time off and gone for vacations.
+- A song cannot be a gimmick as it requires talent and hard work. But if it is placed wrongly, then it can be called that way.
+- My mother-in-law and I have really worked on our relationship. It did not happen out of the blue. What works for us is that both of us are very strong women, we walk the line and come to a meeting point. We do not necessarily agree on everything but the one thing we agree on is the fact that we love each other and our intentions are right.
+- Being locked inside the house plays on a psyche of any child and I believe the most important thing is the mental health of any kid.
+- Most actresses began their career as glamorous pin-ups before being noticed for their acting talents.
+- Action is not easy.
+- What happened during my first pregnancy was that I took a lot of hormones. I had problems with my pregnancy and I was bed-ridden. I had tonnes of issues but it was my mental state that consumed me. I felt like I failed at myself.
+- While 'Tezz' is being touted as an action-thriller, I feel there is an immense emotional connect.
+- My comic timing is quite good.
+- Social media is not a platform where you can please everybody.
+- Post-partum depression is real and while I was told about it, I wasn't sure what to expect.
+- You have to go through a point where you actually hate yourself because when you come to this point of hating yourself so much and break into pieces, you can put yourself back together in the most beautiful way possible.
+- There are a lot of women I look up to.
+- Buddhada was a man of few words. You can see the importance of silence in his cinema. There are long stretches of no dialogue in his films.
+- We have been fed such unreal standards of beauty that we have now become victims and part of this process that one cannot break.
+- I was always focused on having kids. I knew that I am not a mother who will give birth then leave the kid, I just couldn't. I am not saying it is wrong or right but I just couldn't do it. It was my choice.
+- You can't brand an artiste and take away the fact that he or she wants to do something genuinely different.
+- When you are a queen in your own country, why would you want to go anywhere else?
+- I remember going to a bookstore in Chennai and getting recognised as the 'Ahista' girl. The good thing about the video was the director let me do just what I wanted. And my costar in the video was really sweet. I think it came across well because I portrayed emotions just the way I would in real life. I was just being myself.
+- Baking is fun! I find it very therapeutic, a stress buster.
+- I understand that there are two kinds of films, there is the kind of cinema which allows you the opportunity to be an actor and then there are the masala entertainers. I have done both.
+- I took a two month break after 'Maine Dil Tujhko Diya.'
+- The perfect body and the perfect face that I worked on, for my film career, broke apart and I was completely lost.
+- Making peace with one's choices is always a tricky feat to achieve.
+- When I did Mira Nair's film on AIDS, people told me to stay away from it and even asked me reasons why I chose to do a film on the stigma. My reason for choosing the movie is similar. It is a social reality and there is no harm being a part of a movie like this as it really dissects the reality of the crisis.
+- I have been grey since I was 20 years old!
+- An actor had made a comment and said, 'You are so unapproachable.' He called me boring and said, 'You're no fun.' He also said, 'I don't know if I ever want to work with you again.' And I never worked with him after that film.
+- Everyone told me that after what you went through during the first pregnancy, do you really want to get pregnant again? I was said, 'yes!'
+- I eat my dinner early and go to bed by 11 P.M.
+- I love to keep fit, so I swim everyday and hit the gym for an hour daily.
+- You could become an overnight star in Bollywood with just single hit, but your fate would change with a single flop. That's why I do not derive satisfaction however much name I earn for myself in Bollywood.
+- For my wedding, I wanted a minimalist look.
+- When I began my career, I used to say I was a Bollywood heroine.
+- I am tall and naturally built for action, I think.
+- Everybody has to start from somewhere. I was also a newcomer once.
+- Vettai' is a lovely film! I knew it would click big time.
+- I want all women - teens, young women, older women, pregnant women, ageing women - to love and accept themselves.
+- I have come a long way from the days of 'Vaaranam Aayiram.'
+- I appeared in Pankaj Udhas' 'Ahista' video purely on instinct. I had turned down everything that had come my way till then. After I heard the storyline and the fact that were shooting in Sydney, I agreed. When the song went on air, I was still in Sydney.
+- If men find my legs sexy, wonderful.
+- Prakash Jha is an intense filmmaker, he is a perfectionist. He would never have a song just for the sake of it.
+- I got pregnant in just a couple of months after my marriage. The game plan was to have the pregnancy and bounce back and getting in the limelight again. But I have never experienced anything like that... It was just the opposite.
+- Working with Gautham Menon is like working with a friend. He says the scene once and I do it once and he okays it. He is very quick.
+- I must say Action is not at all easy. It is scary.
+- I have always done justice to my role and I don't worry about being overshadowed.
+- I sleepwalk and scare people. It's actually very spooky.
+- My mother does not give up and she never has on anything. I love her zest for life. She has never ever let me accept defeat when it comes to goals that I've had or even if it is just making sure that I never lose my zest for life.
+- We women are very hard on ourselves.
+- Yes, I've received my fair share of trolling on social media.
+- One thing that needs to change in the industry is expectations from women. I think there have been a lot of instances where I have been approached in inappropriate ways.
+- What's the harm to be in the media glare if you have nothing to hide?
+- It's amazing how much this industry has taught me. It's been one of the hardest yet most rewarding things I chose.
+- I was a glamorous actress in Mumbai. I had done Sanjay Gupta's 'Musafir.' I wanted to know how Buddhada thought of me in the role of Supriya, Rahul Bose's unhappy wife in 'Kaalpurush.' It needs a visionary film-maker to see an actor in a role that seems very removed from her real personality or on-screen image.
+- When I joined I was young and silly and made some very stupid decisions, being oblivious to the magnitude of the consequences. I did go a little crazy after Musafir. There was plenty of money and adulation and I would see guys going crazy for me. The songs were a big hit and it was like living the life one only dreams of.
+- The thrills of riding a bike and having to do speedy stunts are something I've discovered I love like crazy.
+- It's been an ultimate pleasure to work with Buddhada.
+- I just don't like to comment on my personal life.
+- I love mo'bikes and riding them is my passion.
+- The south has really been very kind to me. I represent each state with their industry, right from Sandalwood to Tollywood. Working with top stars like Chiranjeevi, Surya, Mohanlal is a brilliant experience.
+- All of us struggle to live up to the image that's drawn for us. Perfect body, perfect skin, perfect house - we are put in a frame with a picture that 'others' decide for us. If we work to live up to just that, when will we do what we like?
+- The shooting of 'Nadunisai Naigal' started at 7 in the evening and ended by 4 in the morning. Physically too, it was a very demanding film as I have a lot of action scenes. I had to run, roll in the mud and was chased by dogs. It was not an easy film to shoot.
+- I have done a film like 'Kaalpurush' by Buddhadeb Dasgupta and then I also have movies like 'Musafir,' where I am an out-and-out glam doll. So I do all kinds of cinema.
+- I don't believe two actresses can be best friends. It's an absolute myth.
+- Akshai has his own range of mo'bikes. That's how we met.
+- I never really socialised and I know that helps a lot in getting films. But it's fine. It's the nature of the business.
+- I always go with what I feel is right.
+- I don't believe in a solo role which doesn't have any meaning.
+- In Bollywood, better the body you have, the brighter are your chances of bagging roles.
+- I was told I was too dark, too tall, too broad. I didn't fit into that girl next door look.
+- Women should be looked at as much more than objects of glamour. We have a lot more to offer.
+- I have enjoyed the films directed by Prabhu Deva and simply love his choreography. And he is the best dancer India has. I feel he knows what the audience wants, and that is why the films he has directed are hits.
+- I come from a non-filmi background.
+- It is cool to know that my films down south are being remade in Bollywood.
+- The ability to play different people, grasp at what is running in their head and be somebody completely different from who I am, is fascinating.
+- I've always admired Demi Moore. She has managed to be everyone including, G. I. Jane, which is really, really hot.
+- Akshai is well-known in his own field but not part of showbiz. I think that was very important for me. I wanted to marry outside the film industry.
+- I felt like Lara Croft while doing stunts.
+- One doesn't gossip with a genius.
+- When I was pregnant for the first time, I could not believe how I gained so much weight.
+- A lot of times, I was about to get a role, but then somebody called. The father or mother would call and a starlet would get it. If somebody is with someone and the heroine is his muse or girlfriend, then she would get the role. All this has happened to me.
+- Buddhada affirmed my faith in myself. For that, I will be always grateful.
+- An actor is an actor. There should be no labelling - mainstream actor, art film actor, serious actor, comic actor.
+- Apart from studies and playtime, I involve my son in house cleaning and other chores.
+- I would never party or hang out with the actors post my shoot. I would head back home and rather watch TV.
+- I love the half sari. It's very, very feminine and at the same time, has the look of a sari.
+- I had placenta previa, which had me on bed rest for almost four to five months after the pregnancy. I just started putting on weight and falling into some kind of place in my head because it went from shows, award functions and a glamorous lifestyle to just not being able to handle what pregnancy was doing to me.
+- An actress projects herself exactly the way she wants to.
+- I won't fool anybody by saying, 'Oh! I'm a private person.' I love people, flashbulbs and the paparazzi.
+- I am not a night person.

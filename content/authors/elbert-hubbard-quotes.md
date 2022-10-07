@@ -1,0 +1,98 @@
++++
+author = "Elbert Hubbard"
+title = "Elbert Hubbard Quotes"
+quotes_len = "92"
+description = "the best 92 Elbert Hubbard Quotes"
++++
+- Optimism is a kind of heart stimulant - the digitalis of failure.
+- The greatest mistake you can make in life is continually fearing that you'll make one.
+- The world is moving so fast these days that the man who says it can't be done is generally interrupted by someone doing it.
+- No one ever gets far unless he accomplishes the impossible at least once a day.
+- The man who knows it can't be done counts the risk, not the reward.
+- Fear clogs; faith liberates.
+- Initiative is doing the right things without being told.
+- The highest reward that God gives us for good work is the ability to do better work.
+- If pleasures are greatest in anticipation, just remember that this is also true of trouble.
+- The idea that is not dangerous is not worthy of being called an idea at all.
+- Christianity supplies a Hell for the people who disagree with you and a Heaven for your friends.
+- Do not take life too seriously. You will never get out of it alive.
+- Do your work with your whole heart, and you will succeed - there's so little competition.
+- We are not punished for our sins, but by them.
+- Reversing your treatment of the man you have wronged is better than asking his forgiveness.
+- The object of teaching a child is to enable him to get along without his teacher.
+- A retentive memory may be a good thing, but the ability to forget is the true token of greatness.
+- It does not take much strength to do things, but it requires great strength to decide on what to do.
+- The only foes that threaten America are the enemies at home, and these are ignorance, superstition and incompetence.
+- Our desires always disappoint us; for though we meet with something that gives us satisfaction, yet it never thoroughly answers our expectation.
+- Never get married in college; it's hard to get a start if a prospective employer finds you've already made one mistake.
+- Little minds are interested in the extraordinary; great minds in the commonplace.
+- Secrets are things we give to others to keep for us.
+- God will not look you over for medals degrees or diplomas, but for scars.
+- We are punished by our sins, not for them.
+- Fear is the thought of admitted inferiority.
+- Where much is expected from an individual, he may rise to the level of events and make the dream come true.
+- I would rather be able to appreciate things I can not have than to have things I am not able to appreciate.
+- A man is not paid for having a head and hands, but for using them.
+- He who does not understand your silence will probably not understand your words.
+- We work to become, not to acquire.
+- Friendship, like credit, is highest when it is not used.
+- The thing we fear we bring to pass.
+- The man who has no problems is out of the game.
+- Every tyrant who has lived has believed in freedom for himself.
+- A conservative is a man who is too cowardly to fight and too fat to run.
+- This will never be a civilized country until we spend more money for books than we do for chewing gum.
+- Love grows by giving. The love we give away is the only love we keep. The only way to retain love is to give it away.
+- If you can't answer a man's arguments, all is not lost; you can still call him vile names.
+- If you suffer, thank God! It is a sure sign that you are alive.
+- How many a man has thrown up his hands at a time when a little more effort, a little more patience would have achieved success.
+- Be pleasant until ten o'clock in the morning and the rest of the day will take care of itself.
+- Many a man's reputation would not know his character if they met on the street.
+- The teacher is the one who gets the most out of the lessons, and the true teacher is the learner.
+- The recipe for perpetual ignorance is: Be satisfied with your opinions and content with your knowledge.
+- Live truth instead of professing it.
+- Love, we say, is life; but love without hope and faith is agonizing death.
+- Men are only as great as they are kind.
+- The happiness of this life depends less on what befalls you than the way in which you take it.
+- The ineffable joy of forgiving and being forgiven forms an ecstasy that might well arouse the envy of the gods.
+- A pessimist? That's a person who has been intimately acquainted with an optimist.
+- The best preparation for good work tomorrow is to do good work today.
+- Positive anything is better than negative nothing.
+- A failure is a man who has blundered, but is not able to cash in the experience.
+- One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
+- The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination.
+- There is something that is much more scarce, something finer far, something rarer than ability. It is the ability to recognize ability.
+- Character is the result of two things: mental attitude and the way we spend our time.
+- Life is just one damned thing after another.
+- It is easy to get everything you want, provided you first learn to do without the things you cannot get.
+- Pray that success will not come any faster than you are able to endure it.
+- A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+- In order to have friends, you must first be one.
+- It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
+- Genius may have its limitations, but stupidity is not thus handicapped.
+- Editor: a person employed by a newspaper, whose business it is to separate the wheat from the chaff, and to see that the chaff is printed.
+- It's pretty hard to be efficient without being obnoxious.
+- An idea that is not dangerous is not worthy of being called an idea at all.
+- Life in abundance comes only through great love.
+- So long as governments set the example of killing their enemies, private individuals will occasionally kill theirs.
+- We awaken in others the same attitude of mind we hold toward them.
+- To avoid criticism, do nothing, say nothing, and be nothing.
+- Polygamy: An endeavour to get more out of life than there is in it.
+- Know what you want to do, hold the thought firmly, and do every day what should be done, and every sunset will see you that much nearer to your goal.
+- A woman will doubt everything you say except it be compliments to herself.
+- Die, v.: To stop sinning suddenly.
+- Often we can help each other most by leaving each other alone; at other times we need the hand-grasp and the word of cheer.
+- Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.
+- The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it.
+- There is no failure except in no longer trying.
+- Never explain - your friends do not need it and your enemies will not believe you anyway.
+- A man is as good as he has to be, and a woman as bad as she dares.
+- The reason men oppose progress is not that they hate progress, but that they love inertia.
+- The supernatural is the natural not yet understood.
+- He has achieved success who has worked well, laughed often, and loved much.
+- Art is not a thing; it is a way.
+- The church saves sinners, but science seeks to stop their manufacture.
+- Responsibility is the price of freedom.
+- A friend is one who knows you and loves you just the same.
+- Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+- The love we give away is the only love we keep.
+- The final proof of greatness lies in being able to endure criticism without resentment.

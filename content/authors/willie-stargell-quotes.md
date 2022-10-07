@@ -1,0 +1,59 @@
++++
+author = "Willie Stargell"
+title = "Willie Stargell Quotes"
+quotes_len = "53"
+description = "the best 53 Willie Stargell Quotes"
++++
+- They give you a round bat and they throw you a round ball and they tell you to hit it square.
+- That's where the future lies, in the youth of today.
+- Unfortunately, inner feelings and potential are often stunted by our parents, relatives or peers.
+- You only have a few years to play this game and you can't play it if you're all tied up in knots.
+- When we make a mistake, it becomes front-page news. We don't need any reporter telling us how badly we played.
+- To middle-class parents, the project team may have seemed unfit for children, but it was exactly what I needed.
+- I found myself in a race with Mother Nature to play as much baseball as I could before she forced me to stop.
+- I was bred as an outcast, part Negro and part Seminole, in my early years raised as an Indian.
+- We all wore a 21 patch that one season as a silent tribute to our deceased teammate Roberto.
+- To me, baseball has always been a reflection of life. Like life, it adjusts. It survives everything.
+- I eventually became proud of my strikeouts, because each one represented another learning experience.
+- Love soothes wounds, while hatred and violence deepen them.
+- Baseball for me was instinctive, born within me, given to me as a gift from God.
+- The bat is gone, but the smile remains.
+- I see a lot of people who love their jobs. I see some garbage collectors smiling as they go about their work.
+- I don't really feel that I deserve all my applause.
+- I was always a self-proclaimed poor slider.
+- I love September, especially when we're in it.
+- I'm a God-fearing man who worships with my heart and with my life.
+- I never search for a reason why - I have faith in the Lord's purpose.
+- Vietnam helped me realize who the true heroes really are in this world. It's not the home-run hitters.
+- Playing baseball was my dream, and no amount of money could sway my opinion.
+- Never had I had so many friends and so much fun as I did in the projects.
+- People like us are afraid to leave ball. What else is there to do? When baseball has been your whole life, you can't think about a future without it, so you hang on as long as you can.
+- I was the most powerful left-handed hitter in the Alameda area.
+- It's supposed to be fun, the man says 'Play Ball' not 'Work Ball' you know.
+- I would always reserve a special place in my heart for Pittsburgh.
+- Never was I booed.
+- Helping someone is what life is all about.
+- I gave out stars whenever an appropriate situation presented itself.
+- Life is one big transition.
+- I wasn't out drinking and abusing my body. I simply loved to go out and dance.
+- I'm proud of the fact that I'm the only player to hit a ball completely out of Dodger Stadium.
+- My first job after my retirement from baseball was as a narrator for the Eastman Philharmonica.
+- We devote our entire lives to becoming good ball players. We take batting practice until our hands bleed.
+- There's nothing I value more than the closeness of friends and family, a smile as I pass someone on the street.
+- I loved to hit with men on base and with the game on the line.
+- Reporters often forget that athletes are human beings.
+- Oakland revolved around Forbes Field. Nothing in the city could match that atmosphere.
+- A World Series trophy is a wonderful thing to behold.
+- Judgment traps you within the limitations of your comparisons. It inhibits freedom.
+- I owe a large part of my success to Joe Brown, who helped me both as a player and a person.
+- Human beings are pampered by the Lord. Their real tests don't come until later in life.
+- I always said that when it was time to retire, I would know it, and I would just tip my hat to the crowds.
+- I flailed my arm in a throwing motion before I could even walk.
+- The Giants were a good team, but our biggest enemy was said to be Candlestick Park.
+- Simple pleasures were all the pleasures that I knew as a child.
+- I never did allow anything to keep me from my kids. They're the most important part of my life.
+- I've always been a slave to my heart.
+- If a reporter doesn't like the person he's writing about, it shows up in his article.
+- I've witnessed thousands of superior athletes try to becomes hitters and fail at it.
+- To be successful, one must take chances.
+- I'm always amazed when a pitcher becomes angry at a hitter for hitting a home run off him. When I strike out, I don't get angry at the pitcher, I get angry at myself. I would think that if a pitcher threw up a home run ball, he should be angry at himself.

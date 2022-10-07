@@ -1,0 +1,16 @@
++++
+author = "Dominic Fike"
+title = "Dominic Fike Quotes"
+quotes_len = "10"
+description = "the best 10 Dominic Fike Quotes"
++++
+- I be wearing my own merch outside, trying to get more famous.
+- I'm bringing the 2000s back.
+- When I'm onstage, I feel a lot of love. But I don't like crowds and random spectators.
+- When I did '3 Nights,' it was just one of those days where we'd gotten enough sleep, enough food, and we were excited.
+- I'm glad that people realize that I am a songwriter. I just want them to take away the fact that I'm honest, and that I'm putting in work on the sonic side.
+- I've had a couple tapes out and they weren't really tapes, it was just some songs that I had made, and then I would throw them together as a compilation and put a name on it. And then when I would release my next thing, I would just delete it.
+- The Internet is going to be the Internet. You can't look into it too much.
+- My first couple shows, I figured I should be playing the guitar and singing. That felt weird, but I got good at it pretty quick, and I learned my songs and how to play them.
+- I don't like going to movie theaters or festivals. I even get freaked out at other people's shows.
+- Florida, bro. It's different.

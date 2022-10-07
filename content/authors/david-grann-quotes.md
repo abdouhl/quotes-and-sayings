@@ -1,0 +1,92 @@
++++
+author = "David Grann"
+title = "David Grann Quotes"
+quotes_len = "86"
+description = "the best 86 David Grann Quotes"
++++
+- Baseball, of course, has long been played under the burden of metaphor. More so than basketball or football, it is supposed to represent something larger than itself.
+- There was a part of me that always wanted to be an editor.
+- I've done a lot of stories over the years, and sometimes there are larks, and they're fun, and you kind of move on.
+- A lot of the stories I write about have an element of mystery. They're crime stories or conspiracy stories or quests. They do have built into them revelations and twists. But the revelations, to me, come from seeing history as it's unfolding, or life as it's unfolding.
+- If someone told me I had to stop writing stories, that would be the end of me.
+- I am not, by nature, an explorer or an adventurer.
+- I guess if I had to pick one interest that is unique, it would be giant squids - I'm disturbingly fascinated by them and even wrote a story about the hunt for them.
+- I don't camp; I don't hike. I hate bugs, and I'm phobic of snakes.
+- There's a tendency when we write history to do it with the power of hindsight and then assume almost god-like knowledge that nobody living through history has.
+- I don't cry too often reading books, but I did reading Francisco Goldman's autobiographical novel, 'Say Her Name.'
+- Heroes have always served as a reflection of their times, a template of who we are and what we want to be.
+- It was a very circuitous path. It was not very linear - I floundered about for many years.
+- The political hero is not like the sports champion or matinee idol or daring inventor; like the war hero, he is born only of tragedy.
+- The biggest difference with Twitter and writing long form is you're part of a virtual community where you know people, or think you know them, through their links.
+- Firemen have a culture of death. There are rituals, carefully constructed for the living, to process the dead.
+- The only thing as murky as a conspiracy is what's happening in Hollywood.
+- Books were a huge part of my childhood growing up. We would go on vacation, and my mom was always carting manuscripts around.
+- I love the magic of stories and the power of stories.
+- Because many squid have brain nerve fibres that are hundreds of times thicker than those of humans, neuroscientists have long used them for research. These nerve fibres have led to so many breakthroughs in the study of neurons that many scientists joke that the squid should receive a Nobel Prize.
+- You think of the rainforest as this incredibly abundant place of fauna and animals and flora. This great, rich wilderness. And yet it is such a biological battlefield in which everything is competing.
+- I think you get into trouble as an author and a journalist when, rather than owning the gaps, you try to elide them.
+- Most of Gingrich's moderate positions are rooted in a realpolitik that transcends ideology.
+- I tried a few grad school programs because I didn't know how to make it... Eventually, I was desperate for a job, and there was a new newspaper opening up in Washington, D.C., called 'The Hill.' Even though my interest in politics wasn't huge, they gave me a job as a copy editor.
+- I wish a book could reach as many people as film, but we have to be realistic about it.
+- The way we live history is not the way historians tell history. Our lives are messy and chaotic and bewildering.
+- I haven't read a word of Proust. And I listen obsessively to sports radio.
+- I've always been a big believer that you can use the elements of storytelling to bring the reader along and to hopefully illuminate a lot of the important things. It's a challenge, but it's something I kind of believe in.
+- We are a country of laws. When you take that away, the consequences are enormous.
+- The outlaw, in the American imagination, is a subject of romance - a 'good' bad man, he is typically a master of escape, a crack shot, a ladies' man.
+- It's funny: I don't know if she babysat, but I spent time with Judy Blume when I was little.
+- Early on, I tried fiction, but I wasn't very good at it. I wrote a very bad novel that is thankfully sitting in a drawer somewhere.
+- Journalists are often portrayed as cynical. I often think it's the opposite.
+- I grew up around writers, and there was always a romance to them. They were charming. They would tell their stories of what they were working on, over the table.
+- Honestly, I had no idea what to do on Twitter when I started. I didn't follow it enough. Slowly, though, I started to realize what I'm okay at. Like, I'm just not particularly witty.
+- To be honest, I used to always procrastinate when I write. I mean, I love writing, but I hate it.
+- You have to go where the truth takes you, and that doesn't always take you in exactly the same place where people you speak to might want,or suspects may want. That's your ultimate obligation.
+- Because I read so much nonfiction for work, I enjoy fiction most, especially detective novels and mysteries that keep me awake at night.
+- I'm sure every author has their own process.
+- The giant squid is the perfect embodiment of a sea monster: it is huge, it has tentacles, it has big eyes, and it is absolutely frightening-looking. But, most important, it is real. Unlike the Loch Ness monster, we know it's out there.
+- You want the story to be about something, have some deeper meaning, but there is also an emotional, almost instinctual, element, which is, does this story seize some part of you and compel you to get to the bottom of it?
+- I covered Congress, and everyone always wanted me to be a political reporter.
+- It took me a long time to be able to write for the 'New Yorker,' and for me, that has been the best job. I live a very conventional life, but reporting for the magazine has allowed me to do things I would never otherwise do, such as investigating a criminal conspiracy in Guatemala or trekking through the Amazon looking for a lost city.
+- When I work on stories, I tend to be pretty obsessive.
+- We all mythologize to some degree ourselves and probably embellish. I think some of that is the desire to tell stories.
+- I'm kind of odd; I'm a technophobe who isn't a technophobe. I'm afraid of new things, but eventually I love them. That happened with Twitter.
+- Each person, as they live through history, can't see it all.
+- One of my favorite authors to read is Eric Ambler, who helped pioneer the form of realistic suspense novels.
+- Like many people, I kicked around, struggled to become a writer, finally got my first full-time job around 27, 28, at 'The Hill' newspaper. They hired me as a copy editor, which was kind of funny because I'm semi-blind because I have an eye disorder.
+- There are some incredibly gifted writers in the world. You can count them on a hand. They're blessed, and they've worked at their craft, but there's very few.
+- The public, the whites - not just in Oklahoma, but across the United States - were transfixed by the Osage wealth which belied images of Native Americans that could be traced back to the first brutal contact with whites.
+- I don't want to just traffic in sensationalism or in mere blood.
+- I often feel that with a crime story, the moral standards have to be higher. You're deal with real victims and with real consequences.
+- If I can find the right idea, I can get out of the way and do a good story.
+- My night stand is more like a geological structure: a bunch of books piled on the floor with its own strata.
+- I have lots of gaps in my education, and so I'm often picking up classic books that most people read years ago.
+- One of the things I believe strongly in is developing institutions - legal, press, bureaucracies, academies - that are rooted in the pursuit of impartial truth. That aren't simply just bent to partisan ends or are corrupted for the powerful or for other ulterior motives.
+- Barry Bonds was still young when his father's fall began. Although Bobby still continued to put up good numbers year after year, he never lived up to expectations.
+- I spend my life mostly disproving conspiracies.
+- Crime stories are often sensationalized. They can provoke lower standards.
+- There are certain stories that remind you of the moral purpose that originally drew you to become a reporter.
+- A lot of the stuff I tweet is out of childlike curiosity.
+- I'm a very slow reader.
+- Base stealers are often considered their own breed: reckless, egocentric, even a touch mad.
+- When criminals go free, the hope is that history will come in and provide some level of justice. It won't correct the sins, but it will at least record them. The sinners would be known, and the victims' stories would be known.
+- Memory is a code to who we are, a collection of not just dates and facts but also of epic emotional struggles, epiphanies, transformations.
+- I often say that the best way to find a story is a one-inch brief in a local newspaper.
+- One of the nice things about 'The New Yorker' is they let you write stories that sometimes end up almost half a book.
+- After a traumatic event, people tend to store a series of memories and arrange them into a meaningful narrative. They remember exactly where they were and to whom they were talking.
+- The romantic notion of the clubhouse as a traveling fraternity of working-class heroes - the boys of summer - is perhaps the most potent in all of baseball.
+- In Brazil, the history of the interaction between blancos and indios - whites and Indians - often reads like an extended epitaph. Tribes were wiped out by disease and massacres; languages and songs were obliterated.
+- I really just choose stories that are compelling, have interesting trends and characters, and hopefully say something larger about society.
+- I don't hunt, I don't camp, and I get lost on my subway to work here in Times Square!
+- I'm not a post-modernist. Especially when I do crime stories.
+- I don't normally do pure historical work.
+- For a while, when I got out of college, I tried to write fiction. I'd grown up more around novelists, and my initial attraction was to write fiction. But I was much less suited for it. I always struggled to figure out what people were saying or doing in a particular moment.
+- I had always been a huge Sherlock Holmes fan.
+- I was not very good at newspaper reporting. I'm just not quick enough, and I always tend to tell things as stories.
+- I was a schoolteacher; I taught seventh and eighth grade, and I tried to write fiction on the side.
+- The amazing thing about the sea is that it is perhaps the last truly unexplored frontier; most oceanographers estimate that only about ninety-five per cent of the sea has been studied. Meanwhile, the oceans are believed to contain more animals than exist on land, a majority of which have never been discovered.
+- I never want to make people upset, but sometimes we may. When I interview people, I try to make it clear that our obligation is to what we uncover and to telling that story and to presenting it fairly and making sure everyone has a say.
+- I look for stories everywhere.
+- When I work on stories, I tend to lose sight of everything else. I forget to pay bills or to shave. I don't change my clothes as often as I should.
+- I had many different careers early on. I knew I wanted to be a writer. But, like so many people, I didn't know how to be one - other than just do it. I didn't know what form it would take.
+- Although baseball actually began as a game played largely by urban toughs, its image was soon reconstructed to mirror the country's pastoral myth.
+- My mother doesn't need much sleep. At any hour of the night, you'd wake up, and she'd be reading. She'd read five, six books a week. When we went on sailing trips, she'd bring a suitcaseful for the week. Even then, her office would have to send more.
+- The Osage have this lovely phrase: 'Travelers in the Mist.' It was the term for part of an Osage clan that would take the lead whenever the tribe was venturing into unfamiliar realms. And, in a way, we are all travelers in the mist. The challenge is that, as writers, we sometimes want to ignore this murkiness, or we want to write around it.

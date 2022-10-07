@@ -1,0 +1,30 @@
++++
+author = "Paddy Ashdown"
+title = "Paddy Ashdown Quotes"
+quotes_len = "24"
+description = "the best 24 Paddy Ashdown Quotes"
++++
+- Politics is compromise.
+- People do not want politicians they know to be corrupt.
+- It was a superb agreement to end a war, but a very bad agreement to make a state. From now on, we have to part company with Dayton and try to build a modern democratic state, for which I have tried to lay the foundations.
+- I was told there would be riots in the streets, but there were no riots.
+- I can establish the expectation of retributive justice. Have we done that? No.
+- I don't think Bosnia is ready for reconciliation, but I do think it is ready for truth.
+- I love this country, I love these people, though I can't say I love their politicians. People are always nicer than politicians, but here, you can mark that difference up a hundredfold.
+- It's not my job to be popular. I'm goal-driven; my job is to get results.
+- We have invented a new human right here - the right to return home after a war.
+- What my future will not be is active politics in the Liberal Democrat party.
+- Maybe it's legitimate criticism, though it can be hurtful. Maybe I haven't paid sufficient attention to the people with whom I would have a natural affinity as a liberal, and they feel let down by that.
+- My second job has been to try to use my power to create institutions of a modern state that could enter the European Union, and there was very little time. The door was closing, and I wanted to get Bosnia through before it shut.
+- We who came here saw what was happening. This was far more than a war in a faraway place. This was a moral imperative, a terrible vision of the future.
+- I've had much nastier things said about me in the British press than in the Bosnian press.
+- Bosnia is under my skin. It's the place you cannot leave behind. I was obsessed by the nightmare of it all; there was this sense of guilt, and an anger that has become something much deeper over these last years.
+- I am here because I think it was a terrible sin of the west to allow those years of war.
+- We have to make their livelihoods viable, get them the proper prices for their produce, try and make them stay rather than sell their property and leave again.
+- It would be a foolish high representative who worked that way.
+- I am formally accountable to the steering board of the PIC, and I meet with nine ambassadors from the PIC every week. I have to have the capitals' broad agreement with what I do.
+- The generous way of putting it is that we were not ready for this. The less generous way is to say: How was it possible to return to the politics of appeasement of the 1930s?
+- I can create institutions, but I can't rewrite the chips in people's heads.
+- Politics is about putting yourself in a state of grace.
+- It works both ways: there are victims of tragedy who come to me who have experienced grief of such magnitude that they cannot reconcile. Likewise, I cannot change the mentality of those who committed the crimes or the fools who followed them.
+- The greatest failure is that although we have created institutions, we have not created a civil society.

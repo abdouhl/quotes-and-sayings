@@ -1,0 +1,83 @@
++++
+author = "Shaquille O'Neal"
+title = "Shaquille O'Neal Quotes"
+quotes_len = "77"
+description = "the best 77 Shaquille O'Neal Quotes"
++++
+- I never worry about the problem. I worry about the solution.
+- I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, wear Reebok.
+- I play against a front and a back every night, Ming does not have to do that, Duncan does not have to do that, Garnett doesn't do that. I am the only one that has to do that.
+- I average 25 with three guys on me and they are just looking at stats I guess.
+- Nobody's going to tell me how to be different, so stop asking me. Stop asking me what two-plus-two is. Everybody knows two-plus-two is five.
+- I don't know anything about cars. I can promise you that.
+- Whenever I see a celebrity that comes to watch me play, I'm going to do for them the same thing they've done for me - bring them some type of joy.
+- Donald Trump is a great friend, and he has four or five Picassos on his plane. And that's where I would look at them.
+- I'm very educated and can give you somewhat of a vocabulary, but I don't get to the philosophical side.
+- Kids can still call me Shaq, but adults should call me Dr. O'Neal.
+- When I get old, I'm going to the old folks' home. I don't want to be one of those guys who's hanging around the house bothering the kids. But not just any old folks' home. I want the whole top floor.
+- For all my friends in the media who like quotes, mark this quote down. From this day on I'd like to be known as 'The Big Aristotle' because Aristotle once said, 'Excellence is not a singular act; it's a habit. You are what you repeatedly do.'
+- I'm a mama's boy above all.
+- Because I'm so big, you have to look at me. I think of myself as a monument. But sometimes I like to feel small.
+- I am the number one Ninja and I have killed all the Shoguns in front of me.
+- Look up the word role in the dictionary and you'll see it means playing a part. That's why I call myself a real model.
+- I started out as a football player. I liked to inflict pain. In basketball, it was the same thing.
+- I knew I was dog meat. Luckily, I'm the high-priced dog meat that everybody wants. I'm the good-quality dog meat. I'm the Alpo of the NBA.
+- I have never been a shooter.
+- Everything happens for a reason. I'm used to it, I prepare for it. Like I say, at the end of the day, those in charge of their own destiny are going to do what's right for them and their family.
+- I want to be strong, dominant. Like Wilt Chamberlain.
+- I'm tired of hearing about money, money, money, money, money.
+- I'm on a mission. And I know the older I get, I may lose a step or two, but it's all up in the medulla oblongata. I've got a lot up there. I've got a lot of knowledge... in this medulla oblongata.
+- I don't get nervous in any situation. There's no such thing as nerves when you're playing games.
+- I guess people think the taller you are the more dominant you have to be.
+- I don't believe that I personally have been changed by the money. The bad thing is people assume you've changed because now you have money.
+- I just want to keep people entertained.
+- When you're in championships, it's never about what you do. It's always about what other people do.
+- When you're righteous, you don't have to tell people that you're righteous.
+- I've been playing on Christmas for the last 10, 11, 12 years. So just got to get up early with the babies, and give them their toys and try to get a nap in and just come to play.
+- I put a lot into it, and when I am done playing, I plan on going undercover and then being the sheriff or chief of police somewhere, either Miami or Orlando, I don't know yet.
+- When you flop, that's just another message that you don't know how to play me. Stand up and take your medicine like a man.
+- But, hey I did everything the right way and earned my spot in this game, nothing was given to me.
+- I've always been a leader. Every team I've played on, I've led my way.
+- I'm very excited about my new agreement with the Heat. This contract allows me to address all of my family's long-term financial goals while allowing the Heat the ability to acquire those players that we need to win a championship.
+- I'm short and to the point.
+- We live in an impatient world. Everybody is always looking for the next big Kobe, the next big LeBron, the next big Twitter.
+- Why don't you bring your face up here and let me punch it? Then you can tell me (if I'm stronger).
+- My job has always been to entertain people. I want people to laugh.
+- Can I go one day without somebody saying something negative about me?
+- I love race car drivers, I love gymnastics, I love UFC, I love police officers, I love firefighters. I just try to give them the same enjoyment they give me.
+- We want to win. We want to win big. We want to win the whole thing.
+- Our offense is like the pythagorean theorem: There is no answer!
+- My father made me who I am. He gave me a basketball and told me to play with the ball, sleep with the ball, dream with the ball. Just don't take it to school. I used it as a pillow, and it never gave me a stiff neck.
+- Someday I might have to put down a basketball and have a regular 9-to-5 like everybody else.
+- I'm an unorthodox type of guy, a funny guy - at least I think I'm funny. And one of the things I like to do is come up with nicknames for myself.
+- I'm done with the nicknames. Actually, when I obtain my doctorate, I will not allow people to call me Shaq anymore, either.
+- But that is the only thing that slows me down is the system. No one, two or three was big enough to slow me down, only the system. It was the system that slowed me down to make my numbers fall. Not because I am older.
+- I had an awful first quarter but I picked it up. To all you single guys out there, it's not how you start the date, it's how you finish it sir. A lot of people can, you know, start the date with flowers and candy, but if you don't finish the date - you know what I mean?
+- David Stern should get with the mothers of the NBA and let the moms decide what the dress code should be. I asked my mother if I could wear a chain, and she told me yeah. So I do stuff that my parents allow me to do.
+- Me shooting 40% at the foul line is just God's way to say nobody's perfect.
+- I was fortunate enough to see and handle and take in everything I could while I was playing.
+- If I were a painter, you'd be calling me Shaqcasso.
+- Being here feels like I'm out of prison. This is the right place, the right time, the right team.
+- If you got the game, you got the game. That's why Tiger Woods is out there playing golf with Greg Norman.
+- There is no answer to the Pythagorean theorem. Well, there is an answer, but by the time you figure it out, I got 40 points, 10 rebounds and then we're planning for the parade.
+- When I tweet, I try and accomplish three things. One, is to make you laugh. Two, is to inform you. Three, is to enlighten you. That's all I do.
+- When I'm done playing basketball, I want do something bigger. I'm working on my doctorate right now at Barry University in Florida.
+- I've met a lot of artists who wanted to paint me. LeRoy Neiman was one. He did it from a photograph. He made 20,000 copies, and we sold them all.
+- I was a medium-level juvenile delinquent from Newark who always dreamed about doing a movie.
+- I started out as a young Ninja and killed all of the Shoguns. I am a Shogun now and I'm holding my spot. There probably won't be another Shogun after this.
+- I'm a weird big guy. Doing rapping, doing movies. Do a lot of stuff. But always do things the right way.
+- Art is a process of delivering or arranging elements that appeal to the emotions of a person looking at it. It's what you feel.
+- As a youngster, my mother and father always drilled into my head having something to fall back on. My father was kind of funny. I'd score 40 points. I'd come home and say, 'Look dad, I scored 40.' He'd never have a smile on his face. He'd be like, 'I saw that move you did. What if you'd hurt your knee?'
+- The best quality about Kobe Bryant? You want me to be honest? I don't know. I'll tell you why. I open my arms to everybody. But he never stepped forward for the embrace. So I never really got to know him. I don't know anything about him, and it's kinda sad.
+- I want to be known as 'The Big Shakespeare.' It was Shakespeare that said, 'Some men are born great, some achieve greatness, some have greatness thrust upon them.'
+- This is a tough game. There are times when you've got to play hurt, when you've got to block out the pain.
+- Generals don't panic; then the troops never panic.
+- And I want to do it the right way, like everybody else, not just a famous figurehead that gets a job because he is a famous basketball player. I want to really learn the business.
+- I would like to be refered to as 'The Big Aristotle'.
+- I'm like tax. You're going to pay one way or the other.
+- One lucky shot deserves another.
+- Challenge me. Treat me like a game of checkers and play me. That's all I'm asking, just play me. Treat me like Sega and play me.
+- That is why one day I said my game will be like the Pythagorean Theorem - hard to figure out. A lot of people really don't know the Pythagorean Theory. They don't make them like me anymore. They don't want to make them like that anymore.
+- I do what I do. Always.
+- We're just going to come out and play. We know that we're supposed to win all the games, but if we don't, we just have to take the next game and focus on what we did wrong in the game before and just try to do better at the next game.
+- Every time I do something silly, it comes off really funny because it's natural.

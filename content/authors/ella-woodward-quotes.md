@@ -1,0 +1,106 @@
++++
+author = "Ella Woodward"
+title = "Ella Woodward Quotes"
+quotes_len = "100"
+description = "the best 100 Ella Woodward Quotes"
++++
+- If you eat broccoli steamed or boiled, it's not very exciting, but you can roast it with things like turmeric and make it amazing. It's all about how you cook something and what you pair it with.
+- My aim is to get people excited about eating more veggies and seeing them as delicious ingredients rather than a chore.
+- Growing up, my dad was the ultimate person for open-mindedness.
+- I finished my dissertation six weeks early. Who does that? As soon as something comes in, I like it to go out.
+- I literally couldn't walk down the street; I slept for 16 hours a day, was in chronic pain, had blackouts, never-ending heart palpitations, unbearable stomach issues, constant headaches - the list goes on.
+- I think if you don't enjoy something, it's not sustainable.
+- When life gives you Monday, dip it in glitter and sparkle all day.
+- If you're struggling with that sweet tooth, try making healthy sugar swaps using things like honey, maple syrup, and medjool dates. These are all completely natural and will satisfy any sweet cravings.
+- If you only buy one kitchen gadget at uni, make it a NutriBullet.They're relatively small and inexpensive, and they make it so incredibly easy to get all of your portions of fruit and vegetables every day.
+- I don't really have a 9-5, which I love, as every day is so different.
+- I wouldn't ever have believed I would marry so young, but it was love at first sight, so there was no point in holding back for the sake of it.
+- Before I changed my diet, every time I ate, my torso would feel burning hot, and the areas around my lymph nodes would really ache.
+- You've got to introduce people to things in a way they're going to enjoy.
+- A delicious smoothie is a really easy way of taking on lots of amazing skin boosting ingredients and was my first port of call every morning in the run-up to my wedding - I'll throw in frozen berries, banana, spinach, almond butter, almond milk, and oats for a quick breakfast quite often.
+- You can add things to savoury dishes as you cook, but sweet dishes are more challenging.
+- I was really inspired by lots of people I came across who were managing various illnesses through diet and lifestyle. I kind of figured, you know, if it worked for them, then I might as well try it and see if it works. So I did.
+- I didn't believe in marriage; I thought it was a silly concept before I met Matt.
+- Healthy eating doesn't have to be crazily complicated; it can actually be so fun.
+- The free-from aisle is the most depressing place in the supermarket.
+- I love exercise, but I didn't join a single sports club as a student - I have no hand-eye coordination. Things like yoga are amazing, but anything with a ball just isn't for me.
+- I love really simple colours at home - lots of cream, beige, and grey with rustic wooden tables.
+- I love yoga, pilates, boxing, spinning, and weight lifting and tend to do a mix of them all.
+- I really focus on natural products, so I love using unrefined products instead of refined ones. I swap white rice for brown rice or quinoa. I use brown rice pasta instead of regular pasta, nut milk or oat milk instead of dairy milk, and coconut yogurt instead of cows' yoghurt, etc.
+- Blogs are amazing, and I'm so grateful to mine for giving me such a great platform to explore other ideas, but it's just not practical to scroll through 30 pages of blog to find a dinner recipe.
+- The first recipe I made was a disaster. I'd been chopping and pressing dates to create a raw brownie, and I thought it would work even better if I blended them in a food processor. So I went and bought one specially. When my boyfriend at the time came over to try the results, he took one bite and spat it out - I'd left the plastic on the blades.
+- Eating a natural diet with loads of fresh fruit and veg and little processed food helps me manage the symptoms of my illness.
+- Stay true to yourself, engage with your followers, and ignore the critics.
+- Honestly, I have been able to accept my father's new relationship because you get to that point with your parents that you realise it's their life, not yours.
+- My problem with the word 'clean' is that it has become too complicated. It has become too loaded. When I first read the term, it meant natural, unprocessed. Now it doesn't mean that at all. It means diet. It means fad.
+- I love social media, but it made me quite anxious.
+- Just because I like being healthy doesn't mean I can't have fun - I don't drink excessively, but I'll have a couple of vodka-and-sodas.
+- I can smell bacon sizzling or chicken roasting and appreciate the aroma, but I don't want to eat it.
+- I'm a neat freak. I find I work best when I feel organised and together, and as I work from home, that means my house is always so tidy!
+- I can't sleep with my make-up on. There is something about it. It doesn't matter what time it is; I just can't do it.
+- I'm conscious of the way I live and do things every day that nourish my body. I eat well, I work out, I try to manage stress, I get a good sleep in, and together, that does wonders.
+- It's crazy to think my blog is being read by people around the world.
+- I love cooking and having friends over for dinner, so a beautiful table to sit around is a must.
+- I want to make vegetables a bit cooler and help people see them as something that can be an interesting, delicious addition to any meal, but that doesn't mean you should feel you only need to eat broccoli!
+- I've always been pretty lucky with my skin. I did notice a big change when I changed my diet and started to eat more natural foods in that my skin just got clearer and brighter.
+- I find both yoga and pilates awesome at calming my mind and strengthening my body.
+- There are a million different things that I want to do.
+- When I first started blogging, I kept it a secret from my friends and then started to show a few people, and it snowballed from there.
+- I've always been such a loser with my organisation skills. That has always been one of my sad stand-out points.
+- The most important thing is to snack on things that are filled with real food and nourishing ingredients that will leave you feeling energised and happy.
+- It's so cool, the number of emails I get from people saying I changed their life. It's pretty crazy.
+- I don't want people to see healthy eating as a diet. I want it to be satisfying food that everyone takes pleasure in eating.
+- Making small changes every week over a few months will result in huge changes.
+- For me, I've got no interest in being a celebrity, and I have no interest in doing photographs, going to this party or that.
+- You have to separate the negative into two categories - half of it is sensible, constructive things that has made us better. But half of the negative online is negative for the sake of being negative, and it's important for us to remember it's okay they don't like us, and sometimes there's no point in engaging in that.
+- I have always kept my beauty regime super simple, but I would say discovering you could use coconut oil to take off eye-makeup remover has been a game changer.
+- Social media is incredible: it creates a community that I'm really proud to be a part of, but it also creates illusions and a false reality, and it's difficult to grow up with that.
+- The things I cook and eat on a regular basis are really inexpensive.
+- My main aim is to change our perception of how we look at vegetables because I think vegetables have always been put on the side - it's always been your steamed broccoli or boiled broccoli with your meat.
+- On a weekday, I'll go for a big bowl of creamy porridge with almond butter and berries if I'm at home, or a super quick chia seed breakfast if I'm running out the door first thing.
+- There's no such thing as 'bad' food or 'good' food.
+- I spent ages learning to take photos, which was a lot of fun, and I think it really helped readers get excited about the recipes.
+- I think it's really important to find the right balance for you - a way of eating and living that satisfies you physically and mentally - and that's different for everyone.
+- It's about making small changes at first and adding foods to your diet before you take any away; start with one extra vegetable or fruit at every meal, and hey, presto, that's 21 portions a week.
+- I'm always cooking big veggie curries for friends with tons of spices, coconut milk, chilli - I'll saute potatoes in the spices, then cook them with all the flavours and stir in some chickpeas and spinach at the end before serving it on a bed of sesame brown rice. It's easy to do and tastes amazing!
+- Healthy eating isn't supposed to be about self-denial; it's not a punishment.
+- I'm promoting healthy - healthier - eating, not suggesting everyone should emulate me.
+- Believe me, there's nothing I hate more than feeling hungry.
+- My illness is now in remission, and on a day-to-day basis, I truly feel amazing. I wake up with such incredible energy, which I never had before my illness, and I really feel so in tune with my body.
+- I think the smell of something is so important, especially when you're putting it on your face.
+- I began researching natural healing, which is how I came to change my diet. Overnight, I gave up refined sugar, gluten, dairy, anything processed or refined, and meat.
+- Since September 2013, I have been in a really good place with my health. But I still have to be conscious about keeping it in that good place and taking care of myself.
+- I don't make big promises about losing weight or anything like that. I just suggest things that people can make to make them feel good.
+- I don't have one favourite spot - I love writing anywhere that I feel inspired. I have to admit that I do love getting cosy in bed or under blankets on the sofa and writing from there.
+- I've always loved the scent of rose; it's just the most beautiful scent. If you open my bathroom cupboard, everything is rose scented.
+- I'm not at yoga all the time, but equally, I'm not being sick after a night out.
+- It was back in 2011 that everything changed. I was not a healthy eater at all. Up until that point, I was a student and a complete sugar addict.
+- People criticised me for using too many exclamation marks and the word 'awesome' too much, but that's just me.
+- There are so many amazing plant-based foods out there that I don't feel the urge to eat tofu bacon.
+- I was a real sugar junkie. I don't think I realised I was actually fully addicted to it.
+- I love Anthropology for kitchenware - they make the best bowls, plates, cutlery etc.
+- My whole thing isn't about being vegan, to be honest. It's more about a more natural diet.
+- Eating well isn't about dieting or deprivation, so you shouldn't feel that you're bound to certain rules.
+- I was a very, very slow learner. I was good at nothing.
+- Home-made smoothies are a great way of satisfying a sweet tooth. Adding in things like frozen banana will make it taste super sweet and creamy.
+- I eat the way I do because I really enjoy it but also because it's the only thing I've found that helps me manage the illness I had, and that plays a big part in it.
+- What I hear a lot is that fresh, healthy eating isn't accessible. That it's full of bizarre ingredients people have never heard of that are really expensive. There's also a perception that it's time consuming and not very filling.
+- I always moisturise in the morning, put my make-up on, and at the end of the day I take it off with coconut oil, wash my face, moisturise, and so often, that's it.
+- For lunch, I tend to eat leftovers. I'm always recipe testing, so I tend to enjoy whatever is left in the fridge. I'm a big snacker, too.
+- I work out most days, normally first thing, and then I just see where the day takes me. I recipe test most days, do lots of social media and emails, but nothing else is constant. Some days, I film YouTube videos; other days, I have lots of meetings, work on blog posts, brainstorm ideas, and work on upcoming projects.
+- If I could go back in time to Freshers' Week, I'd tell myself to make the most of university. Enjoy the fact you have all this time to do things you love. People always say that to you when you're about to start, but you never listen, do you?
+- Just because you want to eat vegetables and eat well doesn't mean you can't share food and have fun with it. It should still be an exciting thing. It shouldn't be just eating kale on your own in the corner.
+- I think it's essential to engage with your followers. I always used to email bloggers, and no one ever replied, so I try to reply to every comment and question, and although sometimes I regret it when I'm sat on Instagram til 3 A.M., it's worth it.
+- I love knowing exactly what you're putting onto your skin and about the ingredient benefits of those products.
+- I literally never ate fruit or vegetables before. My diet instead revolved around ice cream, chocolate, peanut butter and jelly eaten with a spoon, pick-n-mix, and lots of cereal and pasta - I was a sugar monster.
+- With eating well, there's a perception that it's depressing. People think they're just going to meditate and eat kale.
+- If you have a large family like ours, you have to fight to get your point across, and I think I learned that from my dad.
+- I still have a sweet tooth, so I bake a lot, but I'd much rather have one of my sweet potato brownies than a processed chocolate bar.
+- I don't know what would happen to me if I ate a bacon sandwich, but I'm just not interested.
+- I always carry a little jar of nuts around with me. I roast them beforehand with tamari and thyme to give them a deliciously rich flavour.
+- I'm on my phone 24/7 replying to every Instagram comment and message to try and understand how people are seeing us, and their questions and concerns.
+- I want everyone to eat whatever makes them happy.
+- I want to give you a way to eat your broccoli in a way that you actually want to eat it.
+- Food was a big part of our family gatherings, but it was usually pasta. We didn't eat that well. Everything was home-made but not much veg or fruit.
+- The trick is preventing yourself from becoming overwhelmed; just adding in one new serving of fruit or veg a day is fantastic. Some sweet potato wedges or guacamole make an insanely delicious addition to any meal, and they're such an easy place to start.
+- As I started eating more natural foods and thinking about what I was putting into my body, I became more interested in what I was putting on it, too.

@@ -1,0 +1,19 @@
++++
+author = "Paul Krugman"
+title = "Paul Krugman Quotes"
+quotes_len = "13"
+description = "the best 13 Paul Krugman Quotes"
++++
+- Social Security is a social insurance program - it is not designed to be the same thing as a 401(k).
+- I think so long as fossil fuels are cheap, people will use them and it will postpone a movement towards new technologies.
+- The problem isn't that people don't understand how good things are. It's that they know, from personal experience, that things really aren't that good.
+- The great thing about fiscal policy is that it has a direct impact and doesn't require you to bind the hands of future policymakers.
+- As I've often said, you can shop online and find whatever you're looking for, but bookstores are where you find what you weren't looking for.
+- I don't think I've had any great success in predicting politics or social change, nor have I really tried.
+- Debt is one person's liability, but another person's asset.
+- The real danger with debt is what happens if lots of people decide, or are forced, to pay it off at the same time.
+- The science fiction world has a lot of people doing seriously imaginative thinking.
+- But Wall Street people are in fact very smart; they're funny, they're not company men who work their way up the chain.
+- We know that advanced economies with stable governments that borrow in their own currency are capable of running up very high levels of debt without crisis.
+- I admit it: I had fun watching right-wingers go wild as health reform finally became law.
+- I have friends, political scientists, sociologists, who all share an interest at least in certain kinds of science fiction.

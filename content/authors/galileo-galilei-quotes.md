@@ -1,0 +1,31 @@
++++
+author = "Galileo Galilei"
+title = "Galileo Galilei Quotes"
+quotes_len = "25"
+description = "the best 25 Galileo Galilei Quotes"
++++
+- It is surely harmful to souls to make it a heresy to believe what is proved.
+- Where the senses fail us, reason must step in.
+- We must say that there are as many squares as there are numbers.
+- I have never met a man so ignorant that I couldn't learn something from him.
+- Nature is relentless and unchangeable, and it is indifferent as to whether its hidden reasons and actions are understandable to man or not.
+- I give infinite thanks to God, who has been pleased to make me the first observer of marvelous things.
+- If I were again beginning my studies, I would follow the advice of Plato and start with mathematics.
+- I think that in the discussion of natural problems we ought to begin not with the Scriptures, but with experiments, and demonstrations.
+- He who looks the higher is the more highly distinguished, and turning over the great book of nature (which is the proper object of philosophy) is the way to elevate one's gaze.
+- Measure what is measurable, and make measurable what is not so.
+- By denying scientific principles, one may maintain any paradox.
+- Facts which at first seem improbable will, even on scant explanation, drop the cloak which has hidden them and stand forth in naked and simple beauty.
+- The sun, with all those planets revolving around it and dependent on it, can still ripen a bunch of grapes as if it had nothing else in the universe to do.
+- Who would set a limit to the mind of man? Who would dare assert that we know all there is to be known?
+- And yet it moves.
+- I do not feel obliged to believe that the same God who has endowed us with sense, reason, and intellect has intended us to forgo their use.
+- We cannot teach people anything; we can only help them discover it within themselves.
+- It vexes me when they would constrain science by the authority of the Scriptures, and yet do not consider themselves bound to answer reason and experiment.
+- The nature of the human mind is such that unless it is stimulated by images of things acting upon it from without, all remembrance of them passes easily away.
+- The Bible shows the way to go to heaven, not the way the heavens go.
+- Philosophy is written in this grand book, the universe, which stands continually open to our gaze. But the book cannot be understood unless one first learns to comprehend the language and read the letters in which it is composed.
+- All truths are easy to understand once they are discovered; the point is to discover them.
+- I notice that young men go to the universities in order to become doctors or philosophers or anything, so long as it is a title, and that many go in for those professions who are utterly unfit for them, while others who would be very competent are prevented by business or their daily cares, which keep them away from letters.
+- The Milky Way is nothing else but a mass of innumerable stars planted together in clusters.
+- In questions of science, the authority of a thousand is not worth the humble reasoning of a single individual.

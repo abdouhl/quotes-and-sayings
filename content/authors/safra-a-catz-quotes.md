@@ -1,0 +1,56 @@
++++
+author = "Safra A. Catz"
+title = "Safra A. Catz Quotes"
+quotes_len = "50"
+description = "the best 50 Safra A. Catz Quotes"
++++
+- If you are in this business long enough, you hear about a thousand things that are going to kill you. Open source? Yeah, we are not dead yet. Cloud? That's not new; it's a new name.
+- It's critical to simplify and run the business in such a way that resources are released to invest in your main business.
+- We want to nurture startups on our platform, just like we did in the old world.
+- A core focus of our effort is based on the recognition that our customers have varying needs, and one of their most important needs is to have choice.
+- Managers used to say, 'I have a gut feeling.' Do you know what a gut feeling is for a professional manager? It's a pattern that they recognize. But if your system can recognize that pattern, if it's not just a couple of managers who know that pattern, then the system's gut feeling can tell you which way to go. That's really liberating.
+- We got bigger, much scarier competitors. We ended up with Microsoft, a company with all the money in the world, the way I look at those guys. And IBM, another company that, historically, dwarfed us.
+- I literally went down to my car and thought, 'Oh my God, SAP bought Concur - maybe tomorrow they'll buy Dairy Queen.' It was the best thing that happened to me on the day I was named CEO of Oracle.
+- When we do acquisitions, we decide what we want. We decide what fills a hole. And if the price is too high, our alternative is the $5 billion we spend on R&D every year. We're not well-known for overpaying, because at Oracle we always have an alternative.
+- First of all, we have infrastructure as a service, which Amazon has; we have platform as a service, which Microsoft has; we have software as a service; we have applications. Nobody has everything except us. We also have data as a service.
+- The worst decision, hands down, was wearing bright yellow when I was 9 months pregnant. I looked like a bumble bee. I have not worn yellow since.
+- The Indian market is potentially the largest market in the world with the leadership at both central and state level focused on leapfrogging into the future.
+- My best decision was to choose to go to Wall Street over law. I learned a lot and focused on the expanding software industry at a time when the independent software industry was just beginning.
+- My greatest inspiration is my mother, the bravest person I ever knew. She overcame incredible odds, worked while raising two kids, and made it all look incredibly simple. Even in her final days succumbing to cancer, she fought like a champion.
+- The way deals are done, every idea is looked at 50 different ways. Now, the market continues to change all the time. And we are always looking at everything in evaluating how it fits with our strategy.
+- There are so many immigrant-led success stories in the United States, and the fact that it's gotten so much harder for educated folks to stay here is really unfortunate.
+- Whether you're a government entity, a large enterprise, or a startup, a true digital transformation takes advantage of technology to focus on the customer, automates work that does not need manual interference, and unleashes your people to truly make decisions that change the path of your company.
+- The demographic of young people... in each hand is a phone, more powerful than a computer. It's a doorway to the digital nation, to education.
+- My dream job was to work in an ice cream shop. Two weeks and five pounds later, I realized it wasn't for me. For many years, I had planned to be a corporate lawyer. As luck would have it, other than a summer internship, I didn't end up doing that either.
+- Microsoft does platform, not really infrastructure, and they do a little bit of Saas.
+- Oracle is my second job ever that did not involve waitressing. But I still have my waitress apron just in case this does not work out. It's just that I fell in love with software when I was programming in college. When I was an investment banker, there were mostly mainframe companies and very few software ones.
+- The truth is that technology is only valuable if it helps you run your organization better.
+- The most significant barrier to female leadership is the actual lack of females in leadership. The best advice I can give to women is to go out and start something, ideally their own businesses. If you can't see a path for leadership within your own company, go blaze a trail of your own.
+- I teach at the Stanford Business School, and about half of my students are foreign, many of whom, I hope, will stay and build businesses in U.S. But I must tell you that they also have opportunities to come back to India and start great companies and operations.
+- Even in large corporations, smaller ideas may not get enough resources.
+- I learn from Larry Ellison every day. I've said this before: how is it to work with someone who thinks out of the box? Larry doesn't see the walls at all; he does not see the box. He is an absolute, true visionary. And to be honest, I always find myself in a box! I'm comfy in my box. I've furnished it; it's lovely.
+- Most of the largest software companies in the world today are based on Oracle, and they were once startups.
+- At Oracle, silver medal is first loser.
+- As much as people say they love change, they love it when you change - not when you want them to change. Even when it comes to processes they don't like, they're afraid of change.
+- Digital India is about empowering the citizen - it's mobile, it's cloud, it's storage - we are in all those areas.
+- Hardware ultimately is a scale game, and it's a differentiation game. If you are literally selling products that are completely undifferentiated, like x86 servers, why would anybody pay you for that?
+- Hopefully in the future, generational challenges will be measured by achievement, not gender.
+- We provide business advice and guidance. We started it here in India first, and now we have taken it globally. India was the first for startup incubation in the world for us.
+- I come from Wall Street, and you'll never see me do a PowerPoint because I'm all about Excel spreadsheets. If it's not in the numbers, I don't care how strategic it is; it doesn't play out.
+- SAP is a great company, but they have their work cut out for them if they want to compete in databases.
+- It is not a coincidence that Fusion middleware and applications have the same name. We knew what we needed it to be.
+- Let your customers be your partners; let your vendors be your employees. What's necessary in this transformation more than anything else is courage and a willingness to change.
+- The fact is that our business is fundamentally really strong. We have a platform and a depth that no one in the tech industry has. This means we have competitors at every layer.
+- In the cloud, customers don't want a six-month contract negotiation; that concept is absurd when you can implement a cloud-based suite from beginning to end in a month or a few months.
+- Netweaver was going to be the number one middleware player in the world. We heard about Netweaver day and night. Oracle became number one. No one talks about Netweaver.
+- What happened in the past can help you know what's going to happen in the future. That insight brings a next level of intelligence not just to sales and marketing but to ERP, where you can save more money in procurement or figure out whether the people you recruit are going to be successful in your organization.
+- In the finance world, we used to spend all of our time looking backwards, reporting on what happened. Can I book it? What are the numbers? Now it's about looking into the future. It's about planning and integration. The role of finance is now that of a partner in the business.
+- I like to say it's an attitude of not just thinking outside the box, but not even seeing the box.
+- What we need to do is run our business. We need to come up with a value prop that is so compelling that customers have to go for it.
+- It is absolutely critical for competitiveness in the United States for us to really raise the bar in education, especially in math, in science, in technology.
+- I know firsthand the complexities of leading an enterprise through business and technology transformation. It takes intense focus, a strong drive, and a clearly communicated vision to inspire and take an organization from where they are, to where they need to be - or where they want to go.
+- Oracle has grown and advanced because we've been consistently willing to cannibalize ourselves.
+- Digital India is the only way for citizen empowerment, which can bring government transparency and accountability to citizens.
+- In 1986, Microsoft and Oracle went public within a day of each other, and I recall telling one of my colleagues that the software business will become big. So I started working with software companies in the mid-'80s and never turned back.
+- Common sense will always prevail. America will advance the agenda for the greatest minds.
+- Oracle is obsessed with security. It's an absolute requirement for all our products. The real security issue is when customers take older products that were not built for the Internet, and kind of rack them and put them on the Internet.

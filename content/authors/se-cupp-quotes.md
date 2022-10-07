@@ -1,0 +1,105 @@
++++
+author = "S.E. Cupp"
+title = "S.E. Cupp Quotes"
+quotes_len = "99"
+description = "the best 99 S.E. Cupp Quotes"
++++
+- I'm not someone else's mouthpiece. I'm not carrying water for anyone - whether that's the GOP, Fox News, or Christianity. I'm not doing anyone else's dirty work.
+- Few believe Democrats will control both houses of Congress in 2021, and even if they manage to, Republicans will still be around to play spoiler on plenty of big agenda items.
+- When it comes to crime, college campuses act as if they are sovereign nations, inside which secret bodies can adjudicate criminal wrongdoing to protect the reputation of the institution and the illusion that it is a safe place to send your kids.
+- Early on in Trump's 2016 presidential campaign, Republicans were confronted almost daily with a clear choice: accept Trump's overt appeals to the bigotry and racism festering in the bowels of the nation, or reject it wholly. Far too many chose the former.
+- Every child should feel safe at school without feeling like a prisoner.
+- If you've spent any time on social media, you may have had the misfortune of coming up against a cowardly troll who hides behind a Twitter handle or Facebook page to criticize or attack you for any number of grievances, real or perceived.
+- Speaking of honesty, if you're like me you turn on the news to get information - a set of facts. If you want opinion, you come to shows like mine, where our prejudices and biases and opinions are made known; there's no false pretenses that you're getting pure objectivity.
+- I believe in a strong two-party system, and when one party is losing so spectacularly, it emboldens the other party to overreach and become a cartoon of itself, invoking awful things like - I'm just spit-balling here - child separation policies and trade wars.
+- If it's possible, 2018 was a year in which it felt like everything was changing, and also like nothing was. While we set our global expectations for the next one, teeming with significant political, social and economic volatility, we're also considering more local possibilities - changes within our own communities, homes and bodies.
+- Service is running for public office with the explicit and limited goal of serving your neighbors.
+- Sacrifice is the 1.3 million active duty men and women in the U.S. military and 800,000 reserve forces who volunteer to keep us safe and defend our way of life.
+- There are a lot of areas where Republicans can take aspects of Millennials' lives and really speak policy to them.
+- Walking away from fame, whether by choice or necessity, isn't a bad thing. In fact for many, it's likely saved their lives, careers, families and basic dignity. More celebrities should probably try it.
+- Maybe we should admit that our science is not as perfect as we would like to believe and that nature is ultimately inexplicable and beyond our control.
+- I don't like mimicking people. I don't like repeating talking points. I don't like arguing with people just to argue. I like actually coming up with an interesting thing to say that I don't think has been said before in that way.
+- I love, love, love the reality shows on Bravo. It's great mindless television.
+- Just finding ways to be not provocative for provocative's sake, but to show an idea that hasn't been shown before, I mean that's interesting to me.
+- Gawking at one-time celebrities who, for whatever reason, end up performing jobs our culture deems a mark of failure is gross, but hardly a new thing.
+- Whether you're a veteran or a millennial, it's hard to argue that big government has solved your problems efficiently, if at all.
+- When Colin Kaepernick refuses to stand for the anthem, that's both a sports story and a politics story.
+- There is no sense in meddling with the extinction of polar bears, not when so many more pressing human problems await. Until there's ironclad proof of how and why extinction works, and how much evil we've done to hasten it along, I'm going to save my emotional anguish for dying and suffering members of my own species.
+- Forming communities - even and especially ones based on strong loyalties and allegiances - is in our DNA. It's what's kept us alive for millions of years.
+- It's funny, when I'm in airports and I'm walking around, maybe feeling a little tired in my sweatpants and not wanting to talk to folks, I just put on my sunglasses. And usually it works every time.
+- America is turning inward, and that's making the whole world a more dangerous place.
+- But for Republicans and conservatives, it's both willfully ignorant and negligent not to acknowledge that there is in fact a scientific consensus that the Earth is warming and man is responsible for much of it.
+- I didn't vote for Mr. Trump and I don't support him now. But I'm not surprised many women did and do.
+- While our goals in Syria were never clearly enumerated by then-President Obama or President Trump, throughout the war one of our most committed and effective allies in the fight has been the Kurds.
+- I never thought about it, but as an atheist, maybe Nascar is my church?
+- Sacrifice is putting country before party and principles before politics. It is not defending the indefensible, protecting the powerful, or staying silent in the face of injustice just because you'd like to keep your job.
+- The idea that Americans are more divided than ever, entrenched in ideological camps and unwilling to meet in the middle, is so pervasive that one hardly goes a single hour without hearing about it on a cable news show.
+- Conservatives should defend free speech - but we must not amplify it when it's blatantly grotesque.
+- Why bad people - who are bad to other people - keep getting hired after they have proven their selves time and again is a mystery to me.
+- I'd be perfectly happy living anonymously on a ranch in Kentucky, where the only time someone mentioned me was to discuss the crazy lady up the road with all the taxidermy and jerky.
+- The idea that Democrats have a lock on the female vote is contradicted by history.
+- And I think when you're an elected official, rightly so, you should watch what you say.
+- I enjoyed working at Fox. I met wonderful people who respected and mentored me. I learned a lot and made life-long friends. The network is an important part of our media landscape, and I want it to thrive.
+- For years, I've gone on television and made the case for the Second Amendment - the right to bear arms. I've pointed out that criminals don't follow gun laws, and I've defended the NRA and its members - law-abiding gun owners like me who have nothing to do with mass shootings or violent gun crimes.
+- I get Google alerts that automatically let me know when someone's calling me a nutjob.
+- Of course sports and politics intersect, and those conversations belong, more than anywhere else, on a network devoted to sports.
+- That more women are getting involved in politics - either by running for office, managing campaigns or voting - is a great thing.
+- Tribalism, after all, is part of our evolutionary DNA. The need to identify with a group, to belong and commune with like-minded people is not only biological, it's what has helped motivate our desire for and devotion to all kinds of important cultural institutions, from organized religion to sports fandom.
+- I am so sick and tired of participating in this predictable cycle of politics, where a mass shooting happens, the left calls for new gun laws - some meaningful, some unproductive - the right yells 'slippery slope' and hides behind the Constitution.
+- I never have any idea how my opinions will be received, and more often than not I'm surprised when anything I say is controversial.
+- It's time the government stopped using taxes to reward winners and losers in love.
+- We moved a lot. I went to nine schools in four states before I was 14. It gave me tough skin, exposed me to lots of different kinds of people and made me somewhat adaptable.
+- Republicans can continue to protest reality and stick their heads in the sand, but the sooner they acknowledge the very basic facts of climate change, the sooner they can get to crafting a conservative strategy to combat it, instead of ceding the territory solely to Democrats.
+- At 80 million, millennials, born between 1980 and 2000, are the largest generation in history. Yet they are a demographic Congress has historically either taken for granted or ignored altogether.
+- Our tax code is arcane, burdensome and unwieldy. In the years since Ronald Reagan's 1986 Tax Reform Act, the code has gone from fewer than 30,000 pages to more than 70,000.
+- We are more and more defined not by our friends but our political enemies - collecting them like badges of honor.
+- In fact, if you think hard about it, animal conservation should actually be anathema to the Darwin-loving liberal agenda, which holds up evolution - and not altruistic compassion - as the final word on the survival of a species.
+- I knew at a very young age that I didn't really buy the whole God gamut.
+- There are plenty of good, rational, compassionate and talented conservatives who deserve a microphone and a platform. It's time to pass the baton to a new generation of leaders who don't speak - or think - like Archie Bunker.
+- After helping the Republican National Committee address some of the troubling deficiencies the party faced after 2012, as outlined in its so-called autopsy report, and witnessing some real progress in our outreach to women in the ensuing years, I did not expect an egomaniacal arsonist to come along and set all that ablaze.
+- To be clear, impeachment is above all else a political act.
+- When I decided to see what Nascar was all about in 2005, it was an intellectual project, the same reason I went to the shooting range on West 20th Street and tried shooting a rifle at paper targets. I was addicted to both things instantly.
+- Maybe you want to look at the most recent polling or you want to pull up a data set on early voting in Ohio, but when you cover politics day-to-day and you've been doing it for many election cycles, you're prepared. You either know this stuff because you've been doing it so long or you don't and that shows real quick.
+- Larry Hogan Sr. was the first Republican to break with President Richard Nixon during his impeachment hearings, weakening not only the GOP firewall of support for the embattled president, but also Nixon's own defiance.
+- I hate mouth noises of all kinds - chewing, swallowing, gum smacking, heavy breathing.
+- The United States, under President Trump, is abdicating an important moral obligation to all democracies by seeming to shrug off the most egregious of human rights violations from both our allies and our enemies.
+- Millennials are exceptionally independent and innovative. Striking out on your own and failing a few times is de rigueur, while going to work for a company on the expectation that you'll build a 30-year career there is unheard of.
+- While social media can play an important role in spreading messages and democratizing access to ideas, hashtags without organization end up fizzling out.
+- Most conservative atheists I know, including myself, have a really healthy respect for the role of religion in society and this country, in particularly.
+- Hollywood has a long, storied and often problematic history of political protest movements.
+- More often than not, punishment for hazing on college campuses goes only as far as administrative investigations and student expulsions, if not mere suspensions.
+- It's pretty tough to intimidate me. And that's probably at my own peril sometimes.
+- Dads have been increasingly hands-on for quite a while. And yet, we still insist on portraying dads as bumbling idiots.
+- The phone's never far away. The TV's always on. We are constantly on the news cycle; either watching the news, making the news, talking about the news.
+- Time's Up is finally, it would seem, activism with some teeth. It isn't perfect, however. One of the first acts of protest - urging celebrities to wear black to awards shows - reveals a worrisome willingness to keep lunging toward those lazy, meaningless and empty gestures that cheapen the seriousness of an issue.
+- Women are not unwinnable for Republicans. Ronald Reagan won a majority of them in both of his elections, and by 10 points in 1984. The largest spread in recent history was in 1972, when Richard Nixon, even with that mug, won women by a whopping 24 points.
+- Though we are more prosperous a nation and more connected a global community than ever before, many of us still feel lonely, disoriented and uncertain of the future.
+- As a college-educated twentysomething woman with cool glasses and an affinity for modern art and Ryan Adams, I had the constant experience of strangers assuming I was a liberal. I grew accustomed to the shock and horror that passed over their faces when I revealed that, yes, I am a Republican.
+- One of the things we must do to begin to solve our hate problem is to put down our metaphorical weapons, our defenses, our special interests - and be honest about the role that guns play in this culture of hate in America.
+- States without the death penalty have had consistently lower murder rates. And national murder rates have declined steadily since 1992, despite fewer executions.
+- Remember common sense? Bring it back. Abolishing ICE, our main federal immigration enforcement agency, is a colossally stupid idea. Floating the possibility of impeaching Brett Kavanaugh, whose confirmation just jolted the GOP back out of its coma, is painfully dumb.
+- When America pays lip service but little more to horrors like the disappearance of Jamal Khashoggi, instead proclaiming convenient but arbitrary loopholes in our moral obligations, we just give the world's worst bullies more ammunition and power.
+- I love the Constitution. But it's still a document, meant to protect human beings and ensure their life, liberty and the pursuit of happiness.
+- I put my conservatism up against anyone. I'm a pretty staunch conservative, with pretty rabid ideas about conservative values... Questioning my conservatism doesn't seem like a particularly interesting project or exercise.
+- We tend to think of the House as a less historically significant legislative body than the Senate. There are more representatives than there are senators, they're up for re-election every two years, and many come and go without having much of an impact.
+- Sunday is the only day where I can kind of do my own thing and not have it dictated by the news cycle.
+- But the rising chorus urging ESPN to change its stripes is missing something: The intersection of sports and politics is natural. And the left-wing lean of ESPN is inevitable. Conservatives bothered by the slant should stop hand-wringing and start their own network.
+- But until Democrats and Republicans, blacks and whites, liberal activists and conservative activists decide division is no longer the most valuable unit of currency, there will be no solutions of any kind.
+- But on a regular basis, Van Jones is my jam. I would show up anywhere to talk about anything with Van. And I'm lucky enough, not only to do that on television for CNN, but traveling to do left-right debates at colleges or for groups or work associations.
+- When we talk about people or a party being on the wrong side of history, it usually requires some hindsight, a position of informed advantage to see clearly missteps that were less clear at the time of events.
+- Politics has long been a place where fear and loathing are exploited: fear of progress, fear of the unknown, fear of the other, fear of our own neighbors.
+- Bill Maher thinks 95 percent of the world has a neurological disorder.
+- Donald Trump has been president for nearly three years. He's been on Twitter for more than 10. Yet the only thing more surprising than Trump's increasingly awful, hideously unpresidential, deeply divisive tweets is that we still manage to be surprised by them.
+- In a very dysfunctional business, CNN happens to be the most functional network I've worked at.
+- Sacrifice is a leader who puts the needs of millions of others before his own, who can forgo ego and pride in order to do what he promised he would. It's rising above pettiness and partisanship for the good of the country.
+- In the era of President Trump, we've gone from believing things that are 'true enough' to believing things that aren't true at all, and can be demonstrably proven so.
+- When you can no longer elucidate the ideas, or when they are too damaging to openly acknowledge, all you can do is simply make threats, demand loyalty.
+- Some problems, I believe, are unsolvable. We can't solve every maniac's determination to kill. And we can't populate every police precinct with perfect officers.
+- For one, as I've written before, the death penalty is plainly unjust. When the number of wrongful convictions and death penalty cases that are eventually exonerated number in the hundreds, if not thousands, we can not call it a moral system.
+- The war on drugs - a big-government product if there ever was one - has been wildly unsuccessful, by any metric.
+- If we had our priorities straight as a country, we'd consider leaving fame behind a mark of wisdom and character.
+- I know many men at Fox, and most are good, decent people. Many are also good family men who have wives, mothers, sisters and daughters. Many are men of faith and moral conviction. These men have huge platforms.
+- Sanitizing ESPN of politics and opinion would make it a relic; sports fans have dozens of places online to go for scores and highlights.
+- Too many prefer to cling to the thing that divides us, and precious few are willing to come together over the thing that unites us.
+- But when you meet with the enemy and genuinely try to understand his or her perspective, you lose the enemy as a political tool. And that's the eternal obstacle.
+- Newsweek is one of the most anti-Christian magazines out there.

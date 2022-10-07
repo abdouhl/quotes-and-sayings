@@ -1,0 +1,21 @@
++++
+author = "Gerry Schwartz"
+title = "Gerry Schwartz Quotes"
+quotes_len = "15"
+description = "the best 15 Gerry Schwartz Quotes"
++++
+- I came from Winnipeg and a small-town background, and I wouldn't say a depressed area, but Winnipeg has never been a rich area like Toronto.
+- I have almost no interest in quarterly reports. Running a business or investing in a business based on quarterly earnings doesn't make any sense at all to me.
+- A lot of what I do is running businesses rather than buying stocks. My worst decision is probably when I know I have the wrong chief executive running the business, and I keep on waiting to make the difficult decision of replacing him.
+- I am personally interested in more than just business schools. However, life has been good to me, and it's been good to me through a business career. I think the chance to help strengthen the foundation of young people going into business, as I did, just appeals to me.
+- I love the U.S. I love doing business there.
+- I'd always felt like a Canadian living in the U.S.
+- Just looking at Onex: We hire almost entirely at the most bottom level and bring them through a nine-year training program. We're probably 70/30 today not requiring an MBA.
+- Helping people getting a great start in life, a great foundation, is an investment.
+- In an undergraduate business environment, the best learning experience is the interaction students have with each other. They need to learn from each other as much as from professors and lectures and other teaching tools.
+- Interestingly, a good undergraduate program does a lot of what an MBA does. I think a really good undergraduate program and some work experience is just about the equal of an MBA.
+- Private equity does pay very well, and my counterparts, guys that I grew up with who are still working at a number of firms, all make a lot of money.
+- I was a kid from Winnipeg - I didn't know anything about the world.
+- Good decisions can have bad short-term outcomes but be great for the business long-term.
+- I have said many times that it's a mistake to bet against the long-term health of the U.S. equity markets because it's a mistake to bet against the long-term health of the U.S. economy.
+- You see these young people in Antigonish who are coming from Cape Breton, and these are really smart, attractive young people, who are living in a place that's been very rough economically. It's a very special thing to be helpful there.

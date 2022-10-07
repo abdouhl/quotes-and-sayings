@@ -1,0 +1,93 @@
++++
+author = "Dusty Hill"
+title = "Dusty Hill Quotes"
+quotes_len = "87"
+description = "the best 87 Dusty Hill Quotes"
++++
+- Eliminator' was a big, experimental thing.
+- People got to know us from hearing us live because there wasn't much publicity or radio airplay for a long time.
+- The videos have given us a younger audience. You know, our audience grew up with us until the videos, and they were beginning to get a little long in the tooth. Then the videos came along, and now we've recaptured the 16-year-old girls. The 16-year-old girls!
+- They say you look ten pounds heavier on TV, but it makes your beard look longer.
+- I mean, rock 'n' roll is based on the blues, whether people want to know that or not.
+- Even if I were to retire, I wouldn't shave. Everyone I know, including my wife, has never seen me without it.
+- I love recording and I love everything - videos, everything like that - but playing live is what does it for me.
+- If we ever have a problem, it's not comin' up with ideas. It's stoppin' us.
+- Somehow it seems more clever to refer to something instead of saying it.
+- We brought what we liked from the real world into our videos.
+- I always had kind of a baby face, and when I started playing people didn't take me seriously.
+- In each city there are different favorites. Whatever we do, we'll come off the stage and somebody will ask how come we didn't do 'Pearl Necklace.' At the next town, it's something else we didn't do that they wanted to hear.
+- Every album is unto itself, so whatever sounds we need to come up with, like way back when, we needed horns. So we invented the Lone Wolf Horns, and we learned how to play horns.
+- I love playing music and I'm serious about It. But It's not brain surgery.
+- Listen to really old blues guys and how they weren't allowed to sing about what they meant; they alluded to things. I find that style amusing, and I think it's a little harder to write.
+- They sent us the script of 'Back to the Future III' and we wrote 'Doubleback' for it.
+- We can't figure out why any time we play in the East, the critics either ignore us or write a pretty bad review of the show.
+- I think everybody would admit that we've got a sense of humor.
+- A lot of your rock people, even early, like Elvis, have always come from the South.
+- Our live shows are a visual as well as a musical experience.
+- Basically we're a blues oriented rock 'n' roll band... easy to listen to.
+- I think environment is more important to us than even equipment and the studio.
+- You don't have to play the blues to play rock 'n' roll, but that's where, somewhere along the line, your influences came from. I mean, I don't care where you got it from. If you got it from Eric Clapton, he got it from the blues.
+- Some thought it strange that we incorporated synthesizers in our music but the equipment was there so we just figured out a way to use it.
+- I'd go over to friends' houses and ask them to put on some Howlin' Wolf, and they wouldn't know what I was talking about. Then, when they would come over to my house, I'd play them some blues. Their parents wouldn't let them come back. The blues were still called 'race records' back then.
+- I don't know if it was a single-blade or one of those straight-edge razors, but I used to play in bands that were, like, show bands and would play different clubs, and, in those days, I would go to the barber twice a week.
+- No, I never envisioned the band lasting this long. But then again, I cant envision next week, even though I have a schedule.
+- If there are people who admire us and what we do, that's a huge compliment. As long as it doesn't get too crazy.
+- We were on the road playing when we started acquiring gold records.
+- Every album has its own character.
+- I remember when our first album came out. After one of our gigs, we went across the border to Mexico and the band in the bar where we were was doing covers of our songs. I don't think they understood a word they were singing but they did the songs perfectly.
+- All we did was take what we were and brought it forward. We obviously had a great amount of pride in being from Texas.
+- People are all the time telling me stories: they named their son after me, or more than likely their dog. Or they got a tattoo.
+- I think life is there for you to grab it and be positive. Just look for the good everywhere.
+- I mean, I get all the gratification in the world from doing a show. It's a great feeling.
+- We got pretty techno on 'Eliminator' and 'Afterburner,' which I enjoyed. I think they're good albums, but we wanted to start using the techno element a little more sparingly.
+- We were bunched up with Southern bands, and there's nothing wrong with that at all. We just wanted to make it clear we weren't a Southern band.
+- I like the cold.
+- I like to believe that I play bass like Dusty Hill, and that's something nobody else can do as well as me. I'm the best Dusty Hill I know.
+- Yeah, playing live for me is the essence of what we do.
+- I'm a sex symbol. Is that wild? It blows me away. I mean, I've always known it, I just figured nobody else did.
+- We spend more time on the road and when we cut an album, it'll take us as long as six months.
+- Nothing feels comfortable in rock 'n' roll.
+- You know how a dog and his owner start to look alike after a while? Well, that's like me and Billy.
+- Elvis Presley's Sun stuff - there's an album out in England with just about all those sides on it - you know, the sound of that upright bass slapping away: that's what I like to listen to. That and Richard Pryor, that is.
+- Actually, my mother turned me on to the blues. We had Lightnin' Hopkins as well as Elvis Presley records.
+- Vegas to me is a place like Hollywood or New York where you can walk around and people recognize you but it's like, hey, that's cool, and then we go on with our lives.
+- Being a three piece, maybe it's easier. You only have two other guys, musically, and everything else to contend with and work with.
+- The women really seemed to like 'Rough Boy.'
+- We record a lot of our shows, we record our soundchecks.
+- Today, there's so many different types of music out there that it's difficult to keep up. Things do change; it's only natural.
+- My impression of Las Vegas was in the movies and on TV. So we were all gonna go see somebody perform - I can't recall who it was - and we went out and rented tuxedos because I thought that's what you did in Vegas.
+- I'm living proof that Hepatitis C can be contained and that ZZ Top cannot.
+- When we were first approached with the idea to do videos, we said why not. We used the things that we do in our lives in the videos.
+- I just love the idea of taking an elevator down to the stage, like Elvis did.
+- The audience loves us! They buy out all our shows and really enjoy themselves but the press keeps right on bombin' us. We thought at first it was because our music was too Texan, maybe too different for East coast people to relate to. But anyone can relate to bein' drunk or missin' your woman.
+- We got word that Mick Jagger heard our first album and liked it. And he wanted us to open for the Stones in Hawaii. That just blew us away. But the next thing I heard was that Stevie Wonder opened for them here in the States and actually got booed at one show. So I was scared to death.
+- Through the career, planned or unplanned - usually unplanned - we've taken different turns. And it's culminated in a worldwide following that's pretty substantial.
+- We all like each other. I know people ask us that, and I hate to disappoint them, but we get along great and we enjoy playing with one another, and what can I say? I'm as surprised as anyone else.
+- It was the beginning of our second career. We certainly had a full career - 15 years at it - before it came out, but 'Eliminator' had a tremendous impact on us and the people who listen to us.
+- We're serious musicians. And we dont want our shows to be circuses.
+- A long time ago, you couldn't say what you mean in blues. You had to disguise it, and that's where the double entendres and humour comes from and that's where we come from.
+- The three of us being brought up, even though we didn't know each other in our early lives, on the same type of music, same type of environment, there's a lot of sameness there. It's three peas in a pod, if they'll fit.
+- When we did 'Eliminator,' at the time, it was experimental for us. It obviously turned out real successful, but at the time, we caught crap about it from some of our old fans. They thought we were deserting our roots or our old style or whatever.
+- It's always important for us to record, so if we're not performing live, that's what we're doing.
+- I'm a fan of Las Vegas and always have been, on many levels.
+- My major influences were primarily guitar players and bands; I started playing bass by accident.
+- Country music, like rock or blues, can move over into a lot of different areas.
+- We are unique because we're the same three guys, and as Billy says, playing the same three chords.
+- People shouldn't knock the synthesizer. It's an aid, and it depends on how you use it, just like any other instrument.
+- I have no hobbies, other than I travel a little and shoot skeet once in a while. I don't even hunt anymore.
+- In any relationship you have times where it gets tedious. But that becomes a strength. That you are able to hang around someone even when they get on your nerves.
+- We wrote 'Tush' at a soundcheck in Alabama in about six or eight minutes.
+- I love the beards and the cars and the girls and the different guitars, but I'm not at all caught up in the image thing.
+- We all write the lyrics together, but Frank really shines on 'em pretty good.
+- I was 19 or 20 the last time I shaved.
+- When I was younger, I'd listen to a song and take it literally. I'd think, Boy, what a drag. How horrible, he must be really bummin'.
+- We live for our concerts. We like a live appearance more than anything else about this business and it bothers us when we put so much into it and the critics bomb us.
+- I love movies and I'm interested in watching how they're made and everything.
+- Selling a million records used to be a big deal. I guess it's not anymore.
+- Some people unfortunately don't enjoy what they do at all for a living or whatever. That is unfortunate. We do always enjoy playing music.
+- Legs' wouldn't be 'Legs' unless it had that driving synth bass.
+- I just like to play and I'm always ready to be back onstage.
+- Billy's an interesting guy. He's got a lot of varied interests.
+- Being a musician in Texas had its own set of risks.
+- If we found an ashtray in the studio, we'd try to play it and find a part for it in a song.
+- Usually we're always working on something with this band a tour, making an album or a video or whatever. I don't have any desire to do anything outside this band, except play a movie part or something.

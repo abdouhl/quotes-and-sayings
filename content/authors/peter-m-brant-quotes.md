@@ -1,0 +1,16 @@
++++
+author = "Peter M. Brant"
+title = "Peter M. Brant Quotes"
+quotes_len = "10"
+description = "the best 10 Peter M. Brant Quotes"
++++
+- To understand Occupy Wall Street, you have to understand artists. Art is freedom - freedom of expression - and its message has resonated through society for centuries.
+- Art needs to be socialised, and you need a lot of context to understand that, and that doesn't mean having read a few art history books.
+- If you have a vision and you are trying to accomplish something, you have to be competitive, or things are going to slip by you.
+- Art and science have so much in common - the process of trial and error, finding something new and innovative, and to experiment and succeed in a breakthrough.
+- My whole life I've hated to lose, no doubt about it. I've been guilty of that since I was 6 years old, at camp. I have always played to win. That's who I am. But I never hurt anybody. The problem is when you're perceived as being too aggressive where you hurt somebody or do something improper.
+- There are people who say, 'Oh, he's a crook.' But I'm not a crook.
+- Great artists are like loaded guns. They are dangerous in anybody's hands.
+- I think one's character on the athletic field does not have to have anything to do with the way they are in real life.
+- I identify with the 99 per cent.
+- I'm putting my consciousness towards trying to teach people through pictures and sculptures that there's something better in the world. That's what the world needs more of.

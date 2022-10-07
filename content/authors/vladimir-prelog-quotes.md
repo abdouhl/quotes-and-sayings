@@ -1,0 +1,14 @@
++++
+author = "Vladimir Prelog"
+title = "Vladimir Prelog Quotes"
+quotes_len = "8"
+description = "the best 8 Vladimir Prelog Quotes"
++++
+- The close of my studies with a degree of a Dr. Ing. in 1929 coincided with the great economic crisis, and I was not able to find an academic position. I was therefore very grateful for a position in the newly created laboratory of G.J. Driza in Prague where rare chemicals were produced on small scale.
+- For many years, when still a Yugoslav citizen, I was already a Swiss patriot, and in 1959, I obtained Swiss citizenship. However, I consider myself a world citizen, and I am very grateful to my adopted country that it allows me to be one.
+- A planar geometrical figure with more than three vertices can be decomposed into a set of triangles, and it can be reconstructed from a set of triangles.
+- Many objects of our three-dimensional perceptual world are not only chiral but appear in nature in two versions, related at least ideally, as a chiral object and its mirror image.
+- I was born on July 23rd, 1906, in Sarajevo in the province of Bosnia, which then belonged to the Austrian-Hungarian Monarchy and later, in 1918, became part of Yugoslavia.
+- An object is chiral if it cannot be brought into congruence with its mirror image by translation and rotation.
+- To grasp the essence of chirality, it is instructive to withdraw for a moment from the familiar three-dimensional world into a two-dimensional one, into a plane, and enquire what chirality means there.
+- The period 1924 to 1929 was spent studying chemistry at the Czech Institute of Technology in Prague, Czechoslovakia. The supervisor of my thesis was Professor Emil Votocek, one of the prominent founders of chemical research in Czechoslovakia.

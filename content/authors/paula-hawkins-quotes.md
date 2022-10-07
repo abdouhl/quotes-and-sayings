@@ -1,0 +1,37 @@
++++
+author = "Paula Hawkins"
+title = "Paula Hawkins Quotes"
+quotes_len = "31"
+description = "the best 31 Paula Hawkins Quotes"
++++
+- I wrote four novels under the name Amy Silver. The first one was commissioned, and I was given basically the whole plot and the characters. They told me what to do, and I went straight away and did it. After that, I continued, and I was coming up with more my own ideas, although they did steer me.
+- I spent a lot of time writing about tax and pensions and mortgages.
+- One of the lovely things about writing when nobody knows who you are is there's no expectation.
+- The journalism, I was a financial journalist - it's very good training as a writer. You have to write for deadlines; you have a certain economy of phrasing. As a training ground as a writer, it's fantastic. I also think it teaches you to be observant, to listen to people, and gives you an ear of dialogue from doing interviews.
+- Things like the movie 'Memento' are interesting to me because our memories of the things we've done and how we've behaved form our notion of who we are, what our character is. So if part of that were missing, what does that actually say about you? And what does it say about your sense of responsibility for things if you can't remember them?
+- I was kind of broke . 'The Girl on the Train' was a last roll of the dice for me as a fiction writer.
+- When I write, I imagine places more than people.
+- The sort of enjoyment that we all get from that voyeuristic impulse of looking into other people's house as we pass them, and the idea that there might be something sinister or strange going on in the houses we pass every day or in our neighborhood, is a very compelling idea.
+- Obviously, my name is known now, but I don't think people generally tend to recognize authors very much. People like J. K. Rowling maybe, Gillian Flynn might be recognized, but I reckon she could walk by me on the street, and I wouldn't know who she was.
+- I'm not romantic, and I don't like Christmas.
+- People think it's terribly sad to spend Christmas alone, but it's no sadder, really, than spending any other day alone, is it?
+- You can do fascinating things with the tricks memory can play and tell. People can come to believe things which didn't happen at all if they're told them enough times.
+- I adore Kate Atkinson, her literary as well as her crime output.
+- I have a fascination with the nasty things people do to each other and the way relationships go wrong, and how there can be this very dark underbelly to seemingly normal, mundane domestic life. They're the stories in the newspapers I always find interesting. That's not a very nice thing to admit to, is it?
+- I find writing the darker side, writing tragedy, a lot easier than writing happiness. Happiness is just less psychologically compelling, isn't it?
+- I grew up in Zimbabwe in Southern Africa, and I moved to London when I was 17. And I started commuting and, actually, to go to college. And I used to really enjoy that part of my journey where the - it was actually a Tube train, but it was over ground, and it went right past the backs of people's houses, and I could actually see right in.
+- When I'm writing, I don't read much crime at all - you don't want to get distracted by other people's plots.
+- Women become invisible as they age; men become impotent.
+- When I wrote 'The Girl on the Train,' nobody knew who I was, and that's quite a comfortable position to be writing in.
+- 'The Woman on the Train' just didn't sound as good. I'll take care next time not to have 'girl' in the title.
+- I don't have a partner, so I take care of the mortgage by myself, and I was thinking, 'Oh God, I'm going to have to sell the house or find a new career.' I was not in a good place, but it was a real spur to get 'The Girl on the Train' right. I had to nail it and do it really well. It really concentrates the mind, that kind of thing.
+- Certainly, there is a tendency to lump women who write similar types of books together, and it's not just in crime, is it? Women's fiction is supposedly a whole genre of itself. There's no male equivalent.
+- I am interested in the ordinary sort of threat. I know that people are interested in things like serial killers and what have you, but actually, those aren't the sort of crimes that really happen very much. The sort of crimes that happen tend to be more of a domestic nature and quite banal, but the psychology behind them is always fascinating.
+- I was commissioned to write some romantic fiction, and I really liked doing those, and they were very instructive in terms of building characters and plots. But it never felt right for me.
+- Having something commissioned made it easier for me to share my work and see it out there and have people read it without feeling like there was a piece of my soul on the page.
+- My idea of fun is to sit looking at a blank wall in a cottage, making up stories in utter silence. The thought of going back to work in an office is horrendous.
+- I realized I do tragedy better than comedy.
+- The first Amy Silver book was commissioned, and they were not books that came completely from me. They weren't necessarily the sort of books I read, and although I enjoyed doing them very much, and they were great training, I never felt completely comfortable in that genre.
+- I know people like to read about serial killers and spies, but most of us will never encounter these things. Sadly, most of the threats we encounter are at home.
+- I'm not naturally an extrovert. I'm a writer - I sit in a room by myself making things up. That is where I'm happiest.
+- I am single and without children. I'm actually one of those people who's just never had a great desire to have kids.

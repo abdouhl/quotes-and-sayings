@@ -1,0 +1,18 @@
++++
+author = "Denis Johnson"
+title = "Denis Johnson Quotes"
+quotes_len = "12"
+description = "the best 12 Denis Johnson Quotes"
++++
+- If you write fiction, you're by yourself. There are certain advantages to that in that you don't have to explain anything to anybody. But when you get in with others who share the loneliness of the whole enterprise, you're not lonely anymore.
+- I didn't finish the stories until we went to the Philippines and I got malaria. I couldn't work and I didn't have any money, but I had seven stories. So I wrote three or four more.
+- In the plays - that's where I go crazy. But my prose has a much lighter touch; it's not trying to thrill with language, just to be more truthful. I'm not concerned with the accuracy of anything. We don't get to the truth of anything with facts.
+- When I'm writing for Esquire, my conscious thought is, I'm not writing for American Scholar.
+- All the modern verse plays, they're terrible; they're mostly about the poetry. It's more important that the play is first.
+- I think it's silly for anyone to think you could write under the influence, but if they'd like to think that, I'd like to keep the legend alive. Maybe I was under the influence when I wrote Jesus' Son and I just didn't know it.
+- If you take a lie and allow your desire for the truth, you'll end up with some truth - not fact, but something that gets you closer to the truth. That's what we want. When we go to a play, we need to be assured that the experience we're having.
+- I was probably 35 when I wrote the first story. The voice is kind of a mix in that it has a young voice, but it's also someone who's looking back. I like that kind of double vision.
+- What's funny about Jesus' Son is that I never even wrote that book, I just wrote it down. I would tell these stories and people would say, You should write these things down.
+- You're under pressure when you produce facts. You're working with facts in journalism, but you're under all kinds of formal constraints; there are expectations.
+- I'd met a woman and I got married, but the money ran out right away. I hadn't had a job for seven months, and it just came over me that I was never going to work again. It hit me.
+- I really enjoy writing novels. It's like the ocean. You can just build a boat and take off.

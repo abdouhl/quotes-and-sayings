@@ -1,0 +1,72 @@
++++
+author = "E. W. Howe"
+title = "E. W. Howe Quotes"
+quotes_len = "66"
+description = "the best 66 E. W. Howe Quotes"
++++
+- The average man's judgment is so poor, he runs a risk every time he uses it.
+- Farmers only worry during the growing season, but townspeople worry all the time.
+- Men have as exaggerated an idea of their rights as women have of their wrongs.
+- If your faith is opposed to experience, to human learning and investigation, it is not worth the breath used in giving it expression.
+- Fishing seems to be the favorite form of loafing.
+- If a woman doesn't chase a man a little, she doesn't love him.
+- The worst feeling in the world is the homesickness that comes over a man occasionally when he is at home.
+- Some men storm imaginary Alps all their lives, and die in the foothills cursing difficulties which do not exist.
+- None of us can boast about the morality of our ancestors. The record does not show that Adam and Eve were ever married.
+- The underdog often starts the fight, and occasionally the upper dog deserves to win.
+- All of the troubles that some people have in life is that which they married into.
+- Many a man is saved from being a thief by finding everything locked up.
+- Every successful person I have heard of has done the best he could with the conditions as he found them, and not waited until next year for better.
+- People are always neglecting something they can do in trying to do something they can't do.
+- The greatest humiliation in life, is to work hard on something from which you expect great appreciation, and then fail to get it.
+- The feeling of sleepiness when you are not in bed, and can't get there, is the meanest feeling in the world.
+- Living up to ideals is like doing everyday work with your Sunday clothes on.
+- A woman who can't forgive should never have more than a nodding acquaintance with a man.
+- Marriage is a good deal like a circus: there is not as much in it as is represented in the advertising.
+- To be an ideal guest, stay at home.
+- A modest man is usually admired, if people ever hear of him.
+- When people hear good music, it makes them homesick for something they never had, and never will have.
+- Families with babies and families without babies are sorry for each other.
+- The modest person is usually admired, if people ever hear of them.
+- Common sense is compelled to make its way without the enthusiasm of anyone.
+- If there were no schools to take the children away from home part of the time, the insane asylums would be filled with mothers.
+- A young man is a theory, an old man is a fact.
+- The man who can keep a secret may be wise, but he is not half as wise as the man with no secrets to keep.
+- When a man has no reason to trust himself, he trusts in luck.
+- No woman ever falls in love with a man unless she has a better opinion of him than he deserves.
+- The little trouble in the world that is not due to love is due to friendship.
+- For every quarrel a man and wife have before others, they have a hundred when alone.
+- There is always a type of man who says he loves his fellow men, and expects to make a living at it.
+- Half the time men think they are talking business, they are wasting time.
+- Never tell a secret to a bride or a groom; wait until they have been married longer.
+- When a man is trying to sell you something, don't imagine that he is polite all the time.
+- Instead of loving your enemies - treat your friends a little better.
+- Many people would be more truthful were it not for their uncontrollable desire to talk.
+- If you don't learn to laugh at troubles, you won't have anything to laugh at when you grow old.
+- A thief believes everybody steals.
+- Americans detest all lies except lies spoken in public or printed lies.
+- You needn't love your enemy, but if you refrain from telling lies about him, you are doing well enough.
+- Don't abuse your friends and expect them to consider it criticism.
+- When you are in trouble, people who call to sympathize are really looking for the particulars.
+- The way out of trouble is never as simple as the way in.
+- What people say behind your back is your standing in the community.
+- There is only one thing people like that is good for them; a good night's sleep.
+- No man would listen to you talk if he didn't know it was his turn next.
+- Some men are alive simply because it is against the law to kill them.
+- A good scare is worth more to a man than good advice.
+- A boy doesn't have to go to war to be a hero; he can say he doesn't like pie when he sees there isn't enough to go around.
+- A theory is no more like a fact than a photograph is like a person.
+- One of the surprising things in this world is the respect a worthless man has for himself.
+- The most destructive criticism is indifference.
+- Virtue must be valuable, if men and women of all degrees pretend to have it.
+- When men are not regretting that life is so short, they are doing something to kill time.
+- It may be a cold, clammy thing to say, but those that treat friendship the same as any other selfishness seem to get the most out of it.
+- The only way to amuse some people is to slip and fall on an icy pavement.
+- When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
+- There is nothing so well known as that we should not expect something for nothing - but we all do and call it Hope.
+- If a man has money, it is usually a sign, too, that he knows how to take care of it; don't imagine his money is easy to get simply because he has plenty of it.
+- Everyone suffers wrongs for which there is no remedy.
+- A man will do more for his stubbornness than for his religion or his country.
+- It is hard to convince a high-school student that he will encounter a lot of problems more difficult than those of algebra and geometry.
+- The sounder your argument, the more satisfaction you get out of it.
+- A woman is as old as she looks before breakfast.

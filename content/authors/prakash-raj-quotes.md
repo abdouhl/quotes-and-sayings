@@ -1,0 +1,29 @@
++++
+author = "Prakash Raj"
+title = "Prakash Raj Quotes"
+quotes_len = "23"
+description = "the best 23 Prakash Raj Quotes"
++++
+- You are not electing your parliamentarian or your MP to the corridors of power. You are electing them to the corridors of responsibility.
+- I am the son of a nurse from Bangalore. I went to St Joseph's but was not made for studies. I did my first play in Class VII and realised that I got a high from the claps of the audience.
+- There is a certain joy in telling a story, and it gives me great pleasure to be a part of the process from scratch and say it the way I want to.
+- People know me as Prakash Rai in Karnataka. Let it be so. But I'm known as Prakash Raj to the rest of India and abroad. Every actor worth his salt gets a name after coming to films.
+- Politics is a conversation between the contestant and the voter.
+- I lived in Chamarajpet, Gandhi Nagar, Shanthinagar, and Sudhama Nagar during my early days.
+- In the Constitution, there is no idea of a political party. It is representatives of every constituency because it is so vibrant and varied.
+- Everybody has their manifesto; let them talk their language, come to the people, and the people will decide. In a democracy, no party or candidate wins or loses. If you, the people, chose a wrong man, you lose; if you chose the right one, you win.
+- Directing pushes me out of my comfort zone, and I feel like a student again.
+- I have been a politically conscious citizen. I've been an artist, a reader, and have been chiselled by that.
+- I am opposed to the idea of dubbing films into Kannada.
+- Majoritarian is when a majority takes a decision. It is not dictatorship. It is about which issue is major.
+- When an actor ventures into politics, I want to know, what is his manifesto, how would he understand problems being faced by people like me. If I am convinced, my vote will go in favour of him and his party.
+- A job is a person's identity in a society, his way of living, and his relevance in society.
+- A busy man is someone who doesn't find 24 hours enough to do his work. But for me, even after I finish my work, I find a lot of time for myself.
+- Acting is a passion, but I have been taking time off to direct once in a while because it helps me reinvent myself.
+- When I help a farmer, I don't differentiate between them based on their region, as farmers have no borders. I want to live like a world citizen and react like a human being.
+- I am a husband, son and father, a reader, a traveller, a fan, and also a cook.
+- I'm responsible for what I say, and that is the identity for Prakash Raj.
+- I don't bother about trivial issues. I am the master of my time. I decide how I spend my time. I act in a few films, produce a few of them, and direct a few films.
+- To be known as an actor is to be known for your role and lines. But the country knows me for the stance I have taken, for the villages I have adopted, the social work I do, the comfort zone I have left.
+- I do not subscribe to the idea of actors Rajinikanth, Kamal Haasan, Pawan Kalyan, and Upendra launching political outfits just because they are actors, though I am a fan of all these stars.
+- My problem is I live with only women - be it my mother, wife, daughters, cook, and nurse - who are all drama queens, ranging from the age of 8 to 75, all wanting a slice of me. But it's mind-blowing to have these women in my life.

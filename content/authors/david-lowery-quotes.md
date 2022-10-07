@@ -1,0 +1,106 @@
++++
+author = "David Lowery"
+title = "David Lowery Quotes"
+quotes_len = "100"
+description = "the best 100 David Lowery Quotes"
++++
+- Dramas are incredibly compelling. I feel like 'Silver Linings Playbook' is a drama, but because it's funny, people market it as a comedy.
+- I think all people are familiar with thinking about their death and trying to come to terms with the fact that we will, at some point, no longer exist. The loss of one's ego is very tough to reconcile with; you really have to do a lot of mental gymnastics to wrap your head around the idea of just not existing anymore.
+- I was raised in a deeply Catholic family. There was a sense that everything we were doing was to prepare ourselves for an afterlife in heaven. In my teenage years, that became less important to me. Eventually, that turned into agnosticism, which became atheism.
+- If your financiers care about the movie, they will be involved in a very constructive fashion, but it can get out of hand very quickly, and that is something to be aware of in any type of filmmaking.
+- It's tough for me to move on from places, even though I realize that it's not only necessary but very important to be able to do so.
+- In the past, I'd been sort of a fan of writing a coat hanger of a script, and something I could hang ideas off of.
+- In my darkest moments, I have not eaten an entire pie, but I have turned to other baked goods to find solace.
+- I can't watch my movies at their premieres - I learned that lesson the hard way.
+- The relationships I've had with animals are often some of the most profound. That's why you cry when a dog dies in a movie. The connection is so deep and so profound, and it isn't cluttered by humanity.
+- One of my biggest regrets is that I didn't finish college.
+- Making movies is hard for me. Being on set is very trying. I'm not good at being that communicative for that long. Editing is where I'm happiest.
+- I like to make movies in Texas because that's where I learned how to do it. I know the industry there, I know the people, I know the crews. But it's hard to make films in Texas.
+- I love what Paul Thomas Anderson did with 'The Master' with putting out those teasers made up of footage that's not in the movie.
+- I love working with the same people. When I find someone I love and that I like working with, I don't want to stop working with them.
+- I'm a deeply romantic person, nostalgic to a fault.
+- Especially in the Western world, so much of our cultural ideas about grieving is about us, and I think it's important to get beyond that sometimes.
+- The idea that all we have is everything that's come before us, and we are the accumulated weight of our own personal histories, is a beautiful concept. And yet it also leaves you asking, 'Is that all there is? Is that all that defines us? Is that all we have?'
+- I love films that are more random and chaotic, finding moments and capturing them.
+- If I can't finish a screenplay, if I can't get to the last page as a writer, it probably means it's not a good movie for me to make.
+- With any movie that gets remade, whether I like the remake or not, I'm glad that I can still go watch the original that I love. If the remake is offering something different, I really value that because I'm having a new experience and adding something new to my life.
+- I realized that filmmaking is an eminently scalable act. No matter how big or how small, there's joys and stresses that will all scale themselves magnificently to fit the production.
+- I never rejected religion, but it just ceased to be an overriding concern in my life.
+- I love communicating non-verbally. I find great value in it.
+- The very first film I ever made, when I was seven years old, when I got my hands on a camcorder, was a remake of 'Poltergeist,' which I hadn't seen yet because my parents wouldn't allow me to. But I made my own version of it, and it starred my brother in a bed sheet.
+- I made 'St. Nick' on a 30-page outline. 'Aint' Them Bodies Saints' was a full-bodied script, but it still had a lot of room for improvisation. There were scenes that weren't there on the page - just a sentence saying something happens. I was like, 'We'll figure this out when we shoot it.'
+- I don't think I'm the best screenwriter in the world. It's just important to me to write my movies so I'm personally invested in them.
+- I learned to not separate writing, shooting, and editing, it's all sort of one big mess of creative output.
+- I think there is a value in leaving the world a little better off, and movies can do that in a minor way.
+- I love animals and their behavior. I watch cat videos all the time.
+- I never put a premium on making a living. It was never one of those things that was important to me.
+- I love taking something that is understood to be funny or charming or sweet or naive and instilling it with some degree of gravity.
+- 'Peter Pan' is a beloved property. It's a property that was brought to the screen many, many times before, so one has to not only justify the reasons why one might make a 'Peter Pan' movie in 2018, 2019 or whatever, but you also have to do justice to the source material.
+- I have so many aspirations and interests that would not fit within the Disney brand. I need to make sure I'm engaging those proclivities as well.
+- You always want your movies to reach the widest audience possible.
+- I take a great deal of value in things that are done by hand or executed by hand.
+- David Lynch's 'Fire Walk With Me' has a scene in it that scared me so bad that I don't remember it. I blocked the memory out - repeatedly! I've seen the film two or three times, and I can never remember what it is that scares me.
+- I grew up in a deeply Catholic home. Our parents always encouraged us to march to our own drums, though, so some of us are still Catholic and some are not. That's always going to be a part of me though; little bits of it trickle into my work. Whether it's an embrace or a rejection, I'm not always sure, but I can't avoid it.
+- Digital is my safety net. I know how to use it, how to operate those cameras; it makes sense to me. Film is much more mysterious.
+- I love 'Peter Pan' to death. It's one of the most influential pieces of storytelling in my life. It made a huge impact on how I grew up. I love the cartoon. I love the 2003 version.
+- I love movies. I can't participate in my love of movie-making fully unless I'm producing it.
+- Some filmmakers are great at making complex things and films with a lot of moving parts, and I'm just not that way.
+- There are some stories - not even stories, some feelings - that you can't accomplish in cinema without using celluloid.
+- I can't solve a puzzle for the life of me - my brain doesn't work that way. But I can take a very simple idea and extrapolate from it and spend time with it and pull things out of it.
+- I love the Spanish language.
+- I love dialogue, but I'm also terrified of it. In all my movies, I've done my best to cut out as much dialogue as possible. I love the spaces in those silences. Even in 'Pete's Dragon,' I was so happy that the first twenty minutes have about five or six lines of dialogue.
+- I find everything in life a little bit sad, but I also find a great deal of hope everywhere I look.
+- I'm not searching for the meaning of life, but I'm looking for a meaning within my life.
+- At the end of the day on 'Pete's Dragon,' if we didn't nail something, we could come back and pick it up later. I always knew there was a safety net built in that Disney would not let the movie fail. But in this case, with 'A Ghost Story,' it was all on the line.
+- No two people who make a movie on a certain budget scale are going to achieve the same thing because it just depends on what sort of favors you can call, and what sort of dynamics you can pull in the play.
+- I have a longstanding, unapologetic love for Ke$ha.
+- When I'm writing a story, I try to reduce it to the barest possible components and go from there.
+- When you cut from a long shot to a close shot, you're doing it for a reason, or if you let something stay in long shot for a long take. On the short films, I was teaching myself how to express something personal cinematically, how to use the language of film the best I could.
+- I'm sentimental to a fault.
+- I don't like being pessimistic. I don't like living my life with a nihilistic mindset.
+- The only part of 'A Ghost Story' that was reactionary was a temporal one. I had spent so much time making 'Pete's Dragon' that I was really impatient and excited to make something new. When this project presented itself, I was ready to jump right into it. I started shooting two days after 'Pete's Dragon.'
+- There is a palpable sense of history in the homes that I choose to occupy. I think that's one of the reasons I gravitate towards old homes: I really like that sense of history and that sense that I am one step in a very long process that trails out in both directions around me - before me and ahead of me.
+- In dialogue scenes, my favorite moments are when people aren't talking because you can cut to the heart of the matter much more quickly, often with a look. People hide things in words. When you don't have words to hide things in, it becomes much more direct and much more immediate of a connection.
+- We build our legacy piece by piece, and maybe the whole world will remember you or maybe just a couple of people, but you do what you can to make sure you're still around after you're gone.
+- I'm someone who is very sentimental and nostalgic and attached to the homes I lived in, and I think moving is a traumatic experience.
+- I try to live my life with grace and through grace even though I don't particularly believe in the divine - and that's a direct result of my having been raised Catholic.
+- I make movies to be watched the way I want to watch them, and I want to watch them in movie theatres.
+- My wife and I, we knew each other back in 2001 but had fallen out of touch. One day, I had a dream about her and wrote her a note on Facebook - I was living in L.A. at the time - and that turned into six months of just letter-writing. It started off with Facebook messages and turned into emails and eventually became actual hand-written letters.
+- When you have a lot going on in a scene - whether it be a lot of shots, a lot of coverage, a lot of edits, or just the amount of content - it can cover up a deficit of true feeling. But when you don't have a lot of material to work with, you really have to be sincere with everything. You really have to mean it, because there's nowhere to hide.
+- The films I love are very precise, and every shot means something; every shot should convey something new.
+- Casey Affleck is someone I want to work with again. We almost had him on 'Pete's Dragon,' but his scheduling issues didn't work out.
+- With 'Pete's Dragon,' Disney was very excited about the movie I wanted to make; they were very supportive of it, and it was a smooth process. I was really surprised by that.
+- The first movie I ever saw in the cinema was Walt Disney's 'Pinocchio,' upon its 1984 re-release, which would have put me at three years old.
+- Obviously 'Pete's Dragon' is more commercial than 'A Ghost Story,' but when making them, I'm just trying to tell a story that matters to me, that ultimately would satisfy me as a moviegoer. Because watching movies is my favorite thing to do. I watch a lot of them.
+- It's something that you pick up at a history class in college, the idea that history and time is something to which we can't even hold a candle to. We, as human beings, are just a small element in the overarching sweep of narrative history. That really had a profound effect on me, that realization.
+- I often conflate the domestic and the cosmic on a daily basis.
+- I've never had an actual haunting experience, in the way you might anticipate a ghost in a movie haunting someone, but I do feel presences around me all the time, and I do feel that memories haunt us the way ghosts haunt us or might haunt characters in a film.
+- I'm happy to keep making Disney movies.
+- I guess you can't really turn a camera on outside in Texas without getting Terrence Malick comparisons.
+- 'Ain't Them Bodies Saints' wound up becoming a love story even though it was not initially meant to be one.
+- Grief reveals itself in the most mundane activities, like eating. It's never when you're looking at old pictures.
+- The image of a bedsheet ghost standing all alone in an empty house was something I was obsessed with. I really wanted to make a film about that image, and I was waiting for the right story to come along. When it did, I did my best to honor that image.
+- I think, with 'St. Nick,' when you're working with a smaller budget, you have fewer risks involved. You're able to take chances with style and content.
+- Hindsight is the most dangerous thing imaginable for me. I imagine that's the case for most filmmakers. And I would love to be a filmmaker who was an exception to that rule, but I'm certainly not.
+- I want to live a very positive and optimistic life that has a wonderful outlook on the future and the impact that I will have on the world and the people around me.
+- Time goes by so slowly when you're a child, and then, as an adult, it goes by in the blink of an eye.
+- I know I have trouble watching my own films.
+- A great sense of morality was instilled in me through my upbringing in the Catholic faith - particularly because my father is a moral theologian. And morality is something I believe exists separate from faith, as an intrinsic human quality that one should aspire to understand and participate in.
+- When I was a kid, Santa, the Tooth Fairy, my stuffed animals - they were real. There is the tremendous suspension of disbelief that you have as a child. It's harder as an adult.
+- With the transcendent or supernatural, they help us contextualize our own lives while we are here on this earth. On a narrative level, as a storyteller, they are a wonderful tool and technique by which to explore those hopes, those fears, those existential dilemmas that we all face from time to time.
+- I have a very short attention span, which is funny. I mean, you'd watch me and think that I don't, but I actually do.
+- I love horror films. I love ghost movies and haunted-house movies.
+- I'm an atheist. I don't believe in the afterlife, but I do believe in ghosts.
+- I'm always making movies for my audiences, but I'm not trying to meet their expectations.
+- One of my earliest memories, movie-related or otherwise, is of seeing a man dunking a man's head in a toilet on television, and my mom telling me that this is what would happen to me if I ever joined the Army. It wasn't until my senior year in high school that I would discover that this was a scene from 'The Great Santini,' starring Robert Duvall.
+- One of my favorite rules of writing: stop whenever it's feeling really good so you have something to look forward to the next day.
+- I have always thought of myself as a writer, only because I need things to direct, and I can't not write the things that I direct.
+- I like being able to go to the cinema and sit and spend time observing something without thinking about plot or what one character is saying. I feel like I'm able to connect on a much more profound level.
+- I have a repository of titles I like in my head, and I am always looking for a movie that I can put one on.
+- I certainly did not envisage making a Disney movie. The most I hoped for was to be able to pay my bills. I was not a go-getter. I was very type-B.
+- Virginia Woolf's literature really transformed my own ideas about how to formally represent the passage of time and how time affects us. Specifically, the benchmarks are 'Mrs. Dalloway,' 'To the Lighthouse' and 'Orlando,' all of which have time as a central conceit.
+- So many of my films involve houses or homes that have been abandoned. People trying to get back home. That's an idea that I keep dealing with.
+- I like roller coasters that have the one 70-foot drop.
+- I find myself very attached to the places I live, and moving is never easy for me.
+- I've always endeavored to make movies with my friends.
+- I love film criticism as an art. I think it's a very important thing.

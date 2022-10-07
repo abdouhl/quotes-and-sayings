@@ -1,0 +1,90 @@
++++
+author = "Wanda Sykes"
+title = "Wanda Sykes Quotes"
+quotes_len = "84"
+description = "the best 84 Wanda Sykes Quotes"
++++
+- I'm constantly preparing. Material hits me; I'm always writing. I go back and listen to my shows and just prepare and put my set together. But the day of, I like to have some downtime. A nice lunch is important for me.
+- I tried theatre. I played Miss Hannigan for a short run of Annie at a regional theatre. That was fun. I enjoyed it! I enjoy theatre and have so much respect for theatre actors.
+- To me, in life, if there's, like, a rule, and I think it's ridiculous, then of course I'll circumvent that but also point out how ridiculous the rule is. Other than that, if I go to a concert, and my seat is Row G, Seat 12, I'm sitting in Row G, Seat 12. I don't care if I'm with five other friends, I'm supposed to be in Seat 12, that's my seat.
+- It wasn't until I became more confident with myself and I put myself forward instead of the jokes; at first it was put the jokes out there and I'm just behind the jokes.
+- I knew I was outspoken when I was a kid because, whenever my parents had company coming over, they would pay me to leave. 'Go see your grandmother. Get out of here.' That was my first paying gig.
+- I had real big boobs, and I just got tired of knocking over stuff. Every time I eat, 'Oh, Lord'. I'd carry a Tide stick everywhere I go. My back was sore, so it was time to have a reduction.
+- I have problems with YouTube and things like that, when you catch it mid production. If I'm doing a show and I'm working on a bit and someone's there with a phone, they record it and put it online - it's not the finished product.
+- I watch Jay. I watch 'Letterman'. I flip back and forth between 'Conan' and 'Letterman', especially the top of the show for those guys.
+- The government shouldn't be involved in this because it's very simple. If you don't believe in same-sex marriage, then don't marry somebody of the same sex.
+- If I did a talk show, this would allow me to speak on what's happening at that moment. I can be current, and I get to flex my stand-up muscle but stay at home without doing the traveling.
+- I remember, when I was a kid, my summers were pretty much running around, riding your bike, and then complaining about you were bored.
+- D.C. is where I started. That's home for me. I always love coming back to the area. They treat me so well, and people show up. They're excited and claim me as their own. I love it.
+- Actually, I majored in marketing and I have a bachelor of science.
+- Then you had people who wanted to get into comedy just to get a TV deal.
+- I have a sidekick, Keith Robinson, who's very funny. I've known Keith for over 20 years; he's my best friend.
+- If something stinks, I say it stinks. But I try to massage it a little and not be as cutting, come behind it with a joke: Hey, I cut you deep, but now let me put a couple of stitches in you.
+- If I'm talking about something current, a current issue or something political, it's because I was able to read it when I was on the plane getting to the gig... a lot of it happens when I'm on the road because when I'm home, you're just mom, and that's it.
+- I have a funny family, but none of them are remotely in show business.
+- My voice is distinctive: there's a rhythm to it, and also, it's funny. I was just blessed with a funny-sounding voice.
+- I'm always thinking of stuff; I just don't sit down and write it. I come up with material more as I go along; if something funny happens, I'll make a note of it on my phone.
+- I work hard. The staff and crew see how much energy I put into this project, and it makes them step up.
+- I don't understand why people really get upset about something that doesn't affect them at all.
+- I was working at the NSA. I don't know, I was just bored. I just knew that's not what I was supposed to be doing with my life.
+- I couldn't believe that Donald Trump won. I couldn't believe that we elected an orangutan to front the country.
+- I had breast cancer. Yeah, I know it's scary.
+- I don't like doing the same material over and over again. It's not fun.
+- I guess because of my act, people think that I say things they want to say, and that they can just come up and say anything to me.
+- I noticed recently, in the last few shows I did, that I'm starting to get people - not a large group, but quite a few people - who come to see me because they love Curb Your Enthusiasm.
+- Back then, I was doing more of my impression of what a comic is supposed to do.
+- Stand-up, by far, is my favorite.
+- I love working with other actors and other people - you know, stand-up - it's lonely; it's just you out there and the audience. But it's fun working with other actors. I love doing that, too.
+- In '87, I used to do this awful, awful James Brown impression.
+- The first time onstage, a light went on. 'OK, this is my thing. I'm comfortable here. This is my thing.'
+- My shows and my material are grounded in reality. It's pretty much something that's either happened in my life or in the news, and I start there and give you my take on it.
+- What drives the creative person is that we see it all.
+- Don't bother me while I'm eating, or when I'm coming out of the crackhouse or something. Just let me get going.
+- It's hard to get fired from the government. You have to, like, kill people.
+- If you're passionate about your work, it makes the people around you want to be involved too.
+- I enjoy stand-up because it has the biggest reward: instant gratification. You can hear the people laughing.
+- People are going to label you anyway, but the one that bugs me the most is when they say, 'One of the funniest female comedians.' There's s no 'funniest male comedians.' You're either a funny comedian, or you're not!
+- When I'm not on T.V. or working on a movie, I'm on the road doing stand-up. That's my roots.
+- I like doing a bunch of different things, being all over the place.
+- I'm shy. I am. I mean, if I get around, you know, in a room of a bunch of people especially I - you know, I don't know or - it takes me a while to warm up. I'm - and the real me, I'm not as witty as, you know, as the comic Wanda. The comic, she's had time to work on some things.
+- I think it's because my comedy is in your face, and it comes from a place that's real.
+- I'm here today because I hated everything else.
+- I really can't pinpoint the one moment when I said I want to be a comic.
+- I'm a stand-up comic. I'm always doing dates; it's just that, if I'm working on a project or I'm busy, I can't get out on the road or book any shows. Since the beginning of my career, I'm usually out for at least 10-15 dates throughout the year. If I have time, then I try to get at least 30-40 dates.
+- I'm here today because I refused to be unhappy. I took a chance.
+- There's obviously a group who enjoys what Tyler Perry is putting out there. And why fault them? And there's a group that loves the things that Spike does. So they should enjoy that, too. Is it my taste? Maybe not, but I'm not going to fault anybody for doing what they're doing as long as people are showing up.
+- I have to be socially aware; I feel like that's my job.
+- A woman would pitch a joke. Nothing. Then a guy would pitch it and everybody would laugh.
+- Men don't hear women.
+- It's not until you develop your own voice, your own persona onstage that you become your own comic, who you really are.
+- My worlds collide. When one things happens, it just starts a domino effect - everything else goes on.
+- In this business, you get an opportunity, and you pounce on it.
+- Usually, there's nothing being thrown toward the stage or at me. Then I feel pretty good about it.
+- I worked with people like Edward Snowden. Well, not people who took stuff home.
+- But I think funny and talent will always win out; I mean, of course there are hurdles, but I think if you're funny you will get over all of that.
+- I tried snowboarding, and that scared the hell out of me.
+- It's easier to rip somebody to shreds while you're making them laugh.
+- It wasn't until after the reduction that in the lab work, the pathology, that they found that I had DCIS (ductal carcinoma in situ) in my left breast. I was very, very lucky because DCIS is basically stage-zero cancer. So I was very lucky.
+- If a topic hits me, I'll start going on it. But you can't force it.
+- I'm finally just relaxed and comfortable with who I am.
+- And then also I think it's harder for women because comedy is so opposite of being ladylike.
+- People are getting careers from YouTube and uploading videos. And they're totally different - you can't necessarily be funny on a video, and then all of a sudden you're live in a theater. You don't have the tools yet. It's a lot more involved to go from being funny on a little iPhone screen to being live in front of people and being funny.
+- Sometimes black people really want to hold onto our oppression - 'This is ours! This belongs to us.' You can't just talk about equality for somebody else. Let's pass it on. Let's pass it on to somebody else. At the end of the day, it is all about inequality.
+- I watched a lot of comedy growing up.
+- It seems like when I first started, people got into comedy because they wanted to be good comedians.
+- But sometimes the women writers will pitch something and I'll hear it, but the men will keep talking.
+- Men are dogs. Men are dogs. We got to stop it. Men are not dogs. Uh-uh. Dogs are loyal.
+- There's so many good comedians in D.C. I started hanging out with those guys. Dave Chappelle was there. Actually, Dave was too young to be in the clubs, so when his mom couldn't make it, he would ask me to pretend I was his aunt, so he could do open mike.
+- That's why I talk about the breast cancer: because I want women - and everyone - to stay on top of things and get checked. I know how scary it can be. When I dealt with it, I was like, 'Oh my God.' And I have so many other friends who have gone through it or have suffered a loss.
+- My wife asked me if I ever thought I would ever retire from stand-up. And I thought about it, and I was like, 'No, because it's my job; it's what I do, and I enjoy it.' It's still the most challenging thing for me to do.
+- People - I hate to use the word 'fans' - are very respectful. It's not like I'm some pop idol or big movie star. I'm very approachable, and I love the people who enjoy me, because they react like they've run into a friend. Usually, it's like, 'Hey, Wanda! How ya' doing?'
+- Some government workers are dedicated and work hard, but most of them are just waiting to retire.
+- I'm really funny now.
+- I always want to go back and do stand-up; I like the freedom.
+- I have a very diverse crowd from old, young, black, white, straight, gay. It's a little bit of everybody.
+- I think sometimes celebrities can hurt a candidate. You don't want people to judge them on your last project.
+- I have a lot of breast cancer history on my mother's side of the family.
+- If you feel like there's something out there that you're supposed to be doing, if you have a passion for it, then stop wishing and just do it.
+- I was funny around my family. My family, they're pretty funny, too.
+- I love Costas. He's knows too much, but he's a good guy.
+- I'm a huge Sia fan. I love Sia, I have just about all of her stuff.

@@ -1,0 +1,50 @@
++++
+author = "Errol Morris"
+title = "Errol Morris Quotes"
+quotes_len = "44"
+description = "the best 44 Errol Morris Quotes"
++++
+- I think calling someone a character is a compliment.
+- When you're working for yourself and your own obsession with finding the truth, you're at your own mercy.
+- Maybe existence is ultimately a lonely thing.
+- I feel as if I became a documentary film-maker only because I had writer's block for four decades. There's no other good reason.
+- Certain kinds of intimacy emerge on a phone call that might never occur if you were sitting right next to the other person.
+- I used to work as a private detective years and years ago.
+- Do I like tawdry, sleazy stories? Yeah, I do.
+- But one of the amazing things about documentary is that you can remake it every time you make one. There is no rule about how a documentary film has to be made.
+- I've never had any problem with crazy people. I like crazy people; I probably am a crazy person myself.
+- The proper route to an understanding of the world is an examination of our errors about it.
+- A lot of stories that have fascinated me are tabloid stories that have come from other newspapers, like 'The New York Times.'
+- Forty years ago this country went down a rabbit hole in Vietnam and millions died. I fear we're going down a rabbit hole once again - and if people can stop and think and reflect on some of the ideas and issues in this movie, perhaps I've done some damn good here!
+- You're meant to think somehow that literature, in espousing eternal values, is kind of normal and balanced and reasonable. When it fact it's anything but.
+- I don't believe truth is conveyed by style and presentation. I don't think that if it was grainy and full of handheld material, it would be any more truthful.
+- When 'The Thin Blue Line' came out, I was criticized by many people for using reenactments, as if I wasn't dedicated to the truth because I filmed these scenes. That always and still seems to be nonsensical.
+- There are endless anxieties in putting a film together, and it's an enormous relief when you know it's working with an audience.
+- If you're a journalist - and I think, on some level, I'm a journalist, and proud to be a journalist, or a documentarian, however you want to describe it - part of what I do has to be the pursuit of the truth.
+- Photographs can reveal something to us, and they can also conceal things.
+- We all know that yellow journalism didn't just happen a week ago or a month ago, that yellow journalism has probably been with us as long as journalism has been with us.
+- Interviews, when they are just simply an exercise in hearing what you want to hear, are of no interest.
+- Films are neither true nor false. That includes my films, as well as others. They may make claims that are true or false, but films are too complex. They have too many ingredients.
+- Despite all of our efforts to control something, the world is much, much more powerful than us, and more deranged even than us.
+- My advice to all interviewers is: Shut up and listen. It's harder than it sounds.
+- If you think you're going to create an unposed photograph, think again. There is no such thing.
+- But there's a big difference between, say, reporting on a story and simply making up a story.
+- If everything was planned, it would be dreadful. If everything was unplanned, it would be equally dreadful.
+- First of all, tabloid stories are some of the richest and most important stories that we have. There's nothing wrong, per se, with tabloid stories.
+- I like to think that I'm nonjudgmental, that I can listen and be engaged by almost anything.
+- My stuff always starts with interviews. I start interviewing people, and then slowly but surely, a movie insinuates itself.
+- Listening to what people were saying wasn't even important. But it was important to look as if you were listening to what people were saying. Actually, listening to what people are saying, to me, interferes with looking as if you were listening to what people are saying.
+- Those who cannot remember the past are condemned to repeat it without a sense of ironic futility.
+- A lot of the themes of my movies, the actual stories, come from tabloid stories.
+- I believe it was probably less than ten minutes that went by from the invention of photography to the point where people realized that they could lie with photographs.
+- A movie is like a tip of an iceberg, in a way, because so little of what you do in connection with making a movie actually gets into the movie. Almost everything gets left behind.
+- What's great about documentary, it seems to me, is that it can be experimental filmmaking. You have a license to do a lot of diverse things under the umbrella of 'documentary.'
+- I've been writing a lot more, I believe, because of the Internet. I've been posting stuff that I've written and I've just been writing.
+- But I can say what interests me about documentary is the fact that you don't know how the story ends at the onset - that you are investigating, with a camera, and the story emerges as you go along.
+- Ecstatic absurdity: it's the confrontation with meaninglessness.
+- People lie, and they always are very very creative in finding new ways to lie.
+- I've never made any money off of any of my films. Statement of fact. So without commercial work, I would be in big trouble.
+- You know, I actually like doing commercials. I don't like doing them to the exclusion of everything else, but I like doing them.
+- I taught my son to read with tabloids. We would sit to read the 'Weekly World News' together.
+- If we're reading a first-person account, we know that each and every one of us, myself included, have a great desire to be seen in a certain way, or to be perceived in a certain way. It's unavoidable.
+- I think an interview, properly considered, should be an investigation. You shouldn't know what the interview will yield. Otherwise, why do it at all?

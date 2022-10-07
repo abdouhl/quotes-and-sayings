@@ -1,0 +1,24 @@
++++
+author = "Dave Haywood"
+title = "Dave Haywood Quotes"
+quotes_len = "18"
+description = "the best 18 Dave Haywood Quotes"
++++
+- I've always been drawn to city skylines.
+- We don't get too nervous for too may things, but on television a few million people are sitting there watching. Definitely a lot more nerves.
+- We were taking some photos one day in front of one of these old antebellum homes, and one of us said the word. And we all kind of stopped and said, 'That could be a name!' ... It just feels kind of country and nostalgic.
+- Mumford and Sons and Adele are both incredible artists and are great for popular music. There's a lot of club music with heavy beats, so to have that Mumford record and hear banjos being used is so cool.
+- Charles and I are from Augusta, Ga. - so we come from James Brown territory, soul music and Motown. And Charles has always had a lot of Southern rock in there as well.
+- We start a lot with melodies and instrumentation and trying to figure out good melodies for verses and choruses. We get to lyrics sometimes second, so we'll start humming a melody, finding something, and see where the music takes you as far as lyrics are and what you want to say and go from there.
+- When you're looking for a band name, I know it sounds weird, but everything you look at, everything you observe and read, you kind of think, 'Man, maybe that could be our band name.'
+- You look at Michael McDonald and people like that; I think they just tried to write music that was true to themselves. That's our bottom line. Whatever people view us as, I think as long as we try to create good music that will win out in the end.
+- At the Grammys, you walk down the halls and everyone's got five security guards. You can't talk to anybody. You always feel out of place, like, 'Hey, the rednecks are in town!'
+- It is always weird to be in the studio working on Christmas music in June and July, so we decorated the entire studio, we really did. We brought out lights, fake trees and decorated the place to get in the Christmas spirit. You'd leave the studio, and it'd be 100 degrees out in Nashville, but nonetheless, a great experience.
+- We actually added an extra electric guitar to beef up 'Need You Now', but we haven't changed any of this 'Own The Night' record at all for the international releases.
+- We have our roots in country, and that's our foundation, but we pull from a lot.
+- I can still picture myself riding in the back of a Bronco to a field party after a rainstorm. My mama will kill me for saying this, but my first beer, I was 15 and I didn't know what to do with it. I thought you were supposed to chug it. So I just downed the whole thing in one gulp. All my friends were like, 'Duuuuuuude!'
+- We love great melodies and great songs that have great hooks and melodies, so we start a little bit more on that side as opposed to other people that start more lyric-based. Sometimes we'll do it the other way.
+- The very first day that Hillary came over, we were working on a song called 'All We'd Ever Need.' But we never even thought about it until we had written 5, 6, 7 songs. Then we played our first show, and we all enjoyed it so much. We felt like it was something a special and different. So from there we decided to do Lady Antebellum.
+- To me the bottom line is: good music is good music.
+- We all love to sing, and when we sit down to write a song I think it kind of shows itself to us.
+- That's country music for you - bourbon and the Bible.

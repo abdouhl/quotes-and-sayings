@@ -1,0 +1,19 @@
++++
+author = "David H. Koch"
+title = "David H. Koch Quotes"
+quotes_len = "13"
+description = "the best 13 David H. Koch Quotes"
++++
+- I think to balance the budget, probably every federal department has to take cuts in my opinion.
+- The way I look at it is, cancer research is absolutely nonpartisan. Cancer is very democratic in the sense that it attacks people regardless of their race, their gender, their national background, or their political persuasions.
+- You know, once you've stood up to cancer, everything else feels like a pretty easy fight.
+- I believe in gay marriage.
+- I contribute to public candidate campaigns, and there's a federal limit on how much you can contribute to each individual candidate. I obey the law in that regard, and I feel like I'm doing it properly.
+- When I was a bachelor with a different girl on my arm every week, people didn't think I was quite legitimate.
+- I'm basically a libertarian, and I'm a conservative on economic matters, and I'm a social liberal.
+- 'The Nutcracker' is the ballet that keeps on giving.
+- When our bodies are violated by this horrible disease of cancer, we're in total shock because it's so unexpected.
+- The only dancing I did was at the discotheques. I was a very good disco dancer. I say that I learned disco dancing at the wrong places.
+- I went to my first dinosaur hall with my father and twin brother. We went to the American Museum of Natural History, and I was blown away by the dinosaurs.
+- I'm a big fan of the military. I think we've got to preserve our military, no question about it.
+- I was gaga about dinosaurs as a kid.

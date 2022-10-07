@@ -1,0 +1,31 @@
++++
+author = "David Viscott"
+title = "David Viscott Quotes"
+quotes_len = "25"
+description = "the best 25 David Viscott Quotes"
++++
+- Lists today are a way of trying to get through the day, because we are losing a sense of time.
+- Sorrow ages you prematurely. When you're in emotional debt, you're pessimistic about the future and, even in your green years, long to return to the past to remedy the shortfalls of love and opportunity you suffered.
+- Lists have always implied social order.
+- Although everyone fights, few people know how to have a good argument, an argument that clears the air and makes it less likely a future argument will take place on the same subject.
+- There is some place where your specialties can shine. Somewhere that difference can be expressed. It's up to you to find it, and you can.
+- From time to time, everyone distorts. We all tend to believe what supports our side of the question and doubt what weakens it. When we are under stress, we tend to believe what we need to believe.
+- No one is so old as to think he cannot live one more year.
+- This is really America in therapy, people trying to get themselves together and be whole.
+- If you could get up the courage to begin, you have the courage to succeed.
+- Though all afflictions are evils in themselves, yet they are good for us, because they discover to us our disease and tend to our cure.
+- To love and be loved is to feel the sun from both sides.
+- In the end, the only people who fail are those who do not try.
+- The original lists were probably carved in stone and represented longer periods of time. They contained things like 'Get More Clay. Make Better Oven.'
+- Unfortunately, some parents simply don't love their children. Probably they don't even love themselves. That may be the heart of their problem. Having parents like this is a terrible burden for any child and can shadow him all through life. It can even destroy him.
+- It is important for children to understand that some of the disappointment their parents feel for them is often really the parents' disappointment in their own lives.
+- People now feel time accelerating. Lists allow them to feel some sense of accomplishment.
+- In other relationships, it may be permissible to overpower people, but not between people who are living together. That relationship is supposed to be between equals.
+- A home is a place in time. And no place stays the same after you finally grow up and leave it. No place can ever change as much as the person who grows up there.
+- You must begin to think of yourself as becoming the person you want to be.
+- Most people of action are inclined to fatalism and most of thought believe in providence.
+- To fail is a natural consequence of trying, To succeed takes time and prolonged effort in the face of unfriendly odds. To think it will be any other way, no matter what you do, is to invite yourself to be hurt and to limit your enthusiasm for trying again.
+- Each child should try to see in his parents the children they previously were. Each parent should try to see in his child the adult he seems to be becoming.
+- Before you decide to have an argument, think about what you really want to accomplish. Do you just want to let your feelings out, or is there a point you are trying to make? What is it?
+- The only thing that stands between a man and what he wants from life is often merely the will to try it and the faith to believe that it is possible.
+- Of all the diversions of life, there is none so proper to fill up its empty spaces as the reading of useful and entertaining authors.

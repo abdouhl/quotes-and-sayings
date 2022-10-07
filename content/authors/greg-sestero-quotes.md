@@ -1,0 +1,53 @@
++++
+author = "Greg Sestero"
+title = "Greg Sestero Quotes"
+quotes_len = "47"
+description = "the best 47 Greg Sestero Quotes"
++++
+- I think whether you're old or young, we're all trying to do the same thing, and it's random who we click with. Ideally, you'd want to collaborate with a Christopher Nolan or somebody like that, starting out, and build those friendships.
+- I didn't think 'The Room' was going to really go anywhere. But you know, in the back of your mind, you hope that any project you do is going to to go somewhere.
+- Obviously, when you're in your early twenties, you don't think about your decisions and their long term effects.
+- I learned with 'The Disaster Artist,' when I was writing the book, the audience will follow you if you really try to do something different. The biggest thing is, you want to be genuine and try to surprise your audience with kind of a new direction.
+- French was my first language.
+- The Room' has just been something that has spread for so many years in such an organic way because, it's just people wanting to share it with their friends and take people to the theater to see it.
+- I think, reading about yourself through somebody else's eyes, you're always going to have your own story.
+- 'The Disaster Artist' isn't really about 'The Room.' It's about friendship and how dreams can come true.
+- One of the things I've learned is you can't really control what an audience is going to feel.
+- I think sometimes we start out wanting to do things that maybe we're not cut out for.
+- 'The Room' came out in 2003, really to crickets. Nobody showed up to see it. It made $1800 at the box office. Everyone assumed it was going to disappear.
+- We all deal with change differently.
+- There are millions of people around the world that want to be artists and want to make stuff to entertain people, but nobody cares.
+- Making a film is a very difficult thing to do, but the experience of 'Best F(r)iends' is a great memory.
+- I didn't know there was a thing for bad movies until 'The Room,' but there is. There's just a fascination.
+- I think the best bad movies are not really genre movies like, let's say, 'Troll 2,' because those are easy to mess up.
+- We've all had someone break our hearts or have been fired from a job or have been cheated.
+- I truly believe that the story behind 'The Room' is more fascinating and bizarre than 'The Room.'
+- Obviously, with 'The Room,' I wasn't on set thinking 'I'm going to be Daniel Day Lewis' playing Mark, but explaining how I even got involved in the movie shows how we all get stuck in situations as actors - and this one ended up being one of the craziest.
+- I think there's something redeeming about trying to follow your passion.
+- The Irish crowd and the humour, they really get it. Them riffing with 'The Room' makes the film watchable for me.
+- I haven't seen any of those films that are considered to be the best bad movies. I didn't know there was really a market for them until 'The Room.'
+- You go to certain movies where everything will be right and you will be invested in the story, but a movie like 'The Room' affects you instantly, and you are left with asking questions. You're almost like a part of the movie, as its not doing what it's supposed to do, and you become one with the film, and you say what you want.
+- I still think that, uh, the original draft from 'The Room' was brilliant in its own way. It made me laugh, which is - which is a good thing. It got a reaction.
+- I learn new things about what 'The Room' does wrong or oddly every time I see it with a crowd.
+- I think when you make a genre or horror movie, you need a budget. When you skimp on blood and special effects and all that, it automatically looks cheesy. But a movie like 'The Room' is psychologically bad, which goes a lot deeper than just technically bad.
+- The only reason I came to L.A. in the first place was to tell stories and make movies. Whatever way you can do that - if you can do that - at whatever level, that's rewarding.
+- I've just come to try to see the positive in everything. Despite people saying 'The Room' is the worst movie or whatever, it's brought about a lot of great things.
+- I saw an early cut of 'The Disaster Artist,' and I thought it was inspiring in a lot of ways, and it made me realize it had been so long since I had tried to make a film or to try to - you know, the book was obviously my first kind of big creative pursuit I had control over.
+- 'The Room' was such a specific piece of cinema that worked because it was so sincere. That's the thing that's great about 'The Room': it's something that will never happen in the same way again.
+- A lot of times, we think we're set out to do one thing, but then you realise that's maybe not what's best for you. So I've just learned to accept and embrace.
+- You can't really ever recreate 'The Room.'
+- I like the legend behind him. James Dean symbolizes the young actor's dream. He struggled to get into Hollywood. He shot to fame at the age of 24 but only got to star in three films. It's kind of a fantasy of what could have been.
+- It's a weird business, whether you're trying to write or act or do music. You're put in these situations you're not prepared for.
+- I think my initial view of it is that 'The Room' has succeeded in being the best bad movie because it's the most earnest. I feel like it's a film that comes from the heart, and somebody's really trying to send a message about their life and their view on the human experience.
+- Being in an acting class, you always feel like, you know, you're insecure, a lot of ways, when the teacher is commenting on your performance.
+- Of everything with 'The Room' that came out of it, I feel like being able to write, and tap back into that passion, was something I'm really thankful for.
+- I would never try to recreate something 'bad' on purpose.
+- I can't take 'The Room' and show it to an agent and say, 'Hey man, cast me in something.' It's an alien film.
+- 'The Disaster Artist' book is the peak of my career in many ways, but there's something so rewarding about creating something from scratch.
+- When people show up to your work and enjoy it for years, like the way they have 'The Room,' what do you say to that? You accept it and think it's pretty cool.
+- After 'The Room' premiered in 2003 - which went exactly as it does in 'The Disaster Artist' - I didn't think it was going to go anywhere. It wasn't a film I wanted to share with people.
+- When you make a film, you never quite know what you're getting into.
+- James Franco, Seth Rogen, and Evan Goldberg are the ideal guys to adapt 'The Disaster Artist.'
+- 'The Room' has never interested me as a film. The reaction interested me.
+- I used to watch 'Private Resort' and laugh all the time.
+- I feel that all of us believe that we're rock stars or actors deep down.

@@ -1,0 +1,18 @@
++++
+author = "Dj Qualls"
+title = "Dj Qualls Quotes"
+quotes_len = "12"
+description = "the best 12 Dj Qualls Quotes"
++++
+- I always wanted to be an actor. It's something I always secretly wanted. You know, I had the experience of being picked on as a child, and I would tell people, 'You're gonna be sorry when I'm famous!' And then I learned after they kicked the stuffing out me that you don't say that out loud.
+- If there is any sense of order to the universe, acting is what I am meant to do. I'm not manufactured. I know acting isn't real, that it's temporary. If there is any theme to the roles I play, it is emotional vulnerability and availability.
+- I grew up in a rural area. I grew up in deep southern middle Tennessee, probably about thirty miles from the Alabama border. There's nothing there, really. And the TV was my link to the outside world. It's what kept me from going into factory employment. It's what made me want to go to college. It was really inspiring.
+- I've lived so frugally for so long. I have to have that financial security or the world feels out of control for me.
+- That's what so great about making movies. It's that you get to do stuff you never would be able to do in real life. You get to go to a recording studio, you get to go to Navy ships and fly all over the world for press. And it's just a great job.
+- I grew up in a town with no movie theater. TV was my only link to the outside world. Film wasn't such a big deal to me. It was TV. So much so, that when I meet TV stars now... Not my co-workers, but real TV stars, I get nervous. I freak out around them.
+- The idea of sitting in a booth, and having someone pay me to sign autographs, seems so gross to me.
+- A film has a beginning, middle, and an end. There is a certain amount of time that you have to embody these people. You know the entire story arch. But on TV, you have to let your guard down. You don't know how long the show is going to last. There is this excitement that comes with developing a character long-term.
+- You know, so many people say TV makes you stupid. But it had the complete opposite effect on me. It kept me from having a really bad Southern accent.
+- Celebrity is a gift. I'm very lucky.
+- I have been to Graceland a hundred times. Every kid in middle Tennessee has this night where it hits midnight, and they are like, 'Let's go to Graceland!' It's a rite of passage. I did it.
+- My face is distinct. It's hard to confuse me with anyone else.

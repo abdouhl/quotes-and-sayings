@@ -1,0 +1,32 @@
++++
+author = "Obie Trice"
+title = "Obie Trice Quotes"
+quotes_len = "26"
+description = "the best 26 Obie Trice Quotes"
++++
+- I'm the 1st black platinum artist in Detroit, solo artist in Detroit.
+- Yeah I grew up on the Westside of Detroit.
+- I don't actually sit down and write, but I just have a lot of different ideas about films and making movies.
+- Detroit is right now a new Mecca for Hip Hop.
+- Downloading songs is not good.
+- I would say old school cats like Redman and Wu-tang. My style is my style, those are just cats that I liked.
+- I'm working on my new album right now. Hopefully to get that out at the top of 2005, January 2005.
+- I get the music, I get the beats. And I go to the studios and write the lyrics.
+- Well, Eminem, you know, I know him longer. Ive been signed to his label since 2001 and he's a good friend.
+- You know, I'm the 1st black solo MC from Detroit. I didn't do the 50 Cent sales but hey... I got a long career, I'm still young and I'm trying to bring really good music.
+- I want to get off with the screenwriting.
+- I just don't want to be rapping forever. I love it, but sometimes you got goals for yourself.
+- Where's Eminem, when is Em coming out, Em this, Em that, 50 this, 50 that... What about Obie?
+- Working with 50 Cent was great, you know what Im saying? It was just great to work with 50 Cent.
+- The Anger Management Tour was another beautiful thing. I loved that tour.
+- I was about 11 when my mother brought me this karaoke machine and I was really into it back then, but about 4 or 5 years ago is when I started printing up my own music, going to the studio and doing my own thing.
+- Beef is beef, you know. Beef comes, so Beef is real.
+- Eminem is more like a friend. And I'm also a fan on Eminem.
+- But since I am in the music industry, I don't want anyone to download music, not on September 9th.
+- Let's say I was a plumber, or I worked at a factory, I would download music, you feel what I'm saying?
+- 7 Mile is like an Ave. Back in the days it was poppin' in the summer time.
+- I just do what I'm here for and that's to make that music.
+- But working with Dre, I grew up with his music, so I'm still like more a fan.
+- I'm just going to do me; I'm not trying to do the Eminem thing, the D12 thing or the 50 thing.
+- I don't want to be an actor or nothing but if I have to, I'll act if it's the right thing.
+- I think it need realness, you should speak on thing that you know about, that you being from, that you experienced or that you been around, you know. I think you need a good hook, good beats and good lyrics.

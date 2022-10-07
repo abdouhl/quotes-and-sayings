@@ -1,0 +1,115 @@
++++
+author = "Will.I.Am"
+title = "Will.I.Am Quotes"
+quotes_len = "109"
+description = "the best 109 Will.I.Am Quotes"
++++
+- There's only one type of music and that's good music, no matter what genre it is.
+- It's dangerous to be a child star, but it's dangerous to be a child in the ghetto, or to be a child at school being bullied.
+- I don't dream to be like mega crazy rich.
+- I don't want to hope anymore. I don't think we should hope anymore. We hoped enough. Now we have to do. We all have to do now.
+- I have ADHD. I'll admit it.
+- When you're a corporation, you're going to stick with what works. That's why every McDonald's is the same.
+- Philanthropy is the thing that I am really excited about, and having success means I can do more.
+- I was born and raised in the ghetto, on welfare, two minutes from homeless.
+- I am hip-hop!
+- Black Eyed Peas is a chameleon group.
+- My favorite game is Madden. That's it. I'm a Madden addict. I go at it.
+- If countries were people, England and France would be old men. Italy would be dead. Compared with them, America is in its 20s.
+- There's an entry point to any relationship.
+- If you would ask my mom what books I liked growing up, I liked Dr. Seuss.
+- Disco is the first technology music. And what I mean is that 'disco' music is named after discs, because when technology grew to where they didn't need a band in the clubs, the DJ played it on a disc.
+- Now that Obama's president, it changes inner-city youths. They can now not just dream to be Lil Waynes and 50 Cents, but they can now dream to be Obamas.
+- I'm a fan of X-men.
+- Code writers, they are my idols.
+- I've got all this stuff in my head at the same time as I'm doing stuff and I don't know how to stop or slow down.
+- I don't follow waves or trends or emotions.
+- I don't want to preach to people.
+- I'm fascinated with quantum physics.
+- If you are a chef, no matter how good a chef you are, it's not good cooking for yourself; the joy is in cooking for others - it's the same with music.
+- I like all the families in the U.K. But what I like about the idea of the royal family is... they seem like they're well educated and there's something admirable about them. And the Queen... she reminds me of my grandma.
+- I'm good at thinking outside the box, so much that you realise it's not a box to begin with.
+- My attention span is very short.
+- Coming out with records when you're in a big, successful group that plays stadiums, that's scary to come out by yourself.
+- When I got into junior high school, that's when my mom let me dress how I wanted to dress. Up to that point I wore suits to school all the time.
+- I don't have political agendas. I have social agendas.
+- It should be mandatory that you understand computer science.
+- Philanthropy is my job.
+- I know people in gangs; I could have went down that route.
+- It's a rare combination to have someone who can write songs and sing well.
+- I remember when I was 19, it was pretty tough.
+- Hip-hop is limiting itself and that also goes for editorially. Magazines and websites are the gatekeepers of what people think hip-hop is, but they actually end up limiting what hip-hop can be.
+- If Apple's a technology company in the music industry, why can't somebody in the music industry make technology?
+- I feel my personality is richer than my bank account. So if I meet a girl, maybe first she just likes me because I'm rich. But then she's gonna get to know me and say, 'Screw the money.'
+- Romantic love is painful.
+- I'm like a mama's boy and stuff.
+- If you know how to freestyle, you will never have writer's block.
+- When you think about the guys who started Twitter, and the Google guys, and the Facebook guys and the Napster guys, and the Microsoft guys, and the Dell guys and the Instagram guys, it's all guys. The girls, they're being left behind.
+- Crime and violence are the easiest emotions to reenact.
+- When you follow your heart, you're never supposed to do things because of what you think people might say. You do it for the opposite reasons.
+- I've got Republican fans. Republicans like the Black Eyed Peas.
+- Pop is the most competitive form of music there is. You are always fighting to be adopted and accepted by the masses, and it's always shifting.
+- Tom Jones is like igloo-cool.
+- If you live in a ghetto and really want not to just change your life and your family's life but change your ghetto's life, make your ghetto a good neighbourhood, learn science; try to be like Mark Zuckerberg, Bill Gates and Steve Jobs.
+- I don't need anyone to validate me.
+- Every single song that I've listened to is in my memory forever.
+- I can procrastinate a little bit.
+- What Autotune allows is for people like myself and Kanye West not to depend on the singer. Back in the Fifties, the songwriter was rendered invisible. Now the songwriter is there in the forefront.
+- You know, I do music. If you look under the hood of the industry I'm in, it's all based on technology. From radio to phonographs to CDs, it's all technology. Microphones, reel-to-reels, cameras, editing, chips, it's all technology.
+- My mom's never been married. I've never even seen my mom kiss a dude.
+- I don't like politics.
+- Most of these people who are celebrities now don't do anything to deserve it, so by that fact alone, I don't want to be one.
+- We have no control over the outcome of anything. Like the planet and global warming, we don't control that. If politicians want a war we don't control that. Acts of terrorism, we can't control them.
+- There's nothing wrong with white if it's all right.
+- Electro is today's disco - making electronic music not for the sake of selling it but for sharing it and touring around the world D.J.-ing.
+- Here's the problem: Profiteers haunt America, and for everything we try to control, someone's going to profit from it, more than you control it.
+- Not many people give you a vision of what the future will bring.
+- I rescue families who are losing their homes because they have no jobs and they can't pay the mortgage and the banks are foreclosing on their homes.
+- I read Twitter all the time, even though I rarely tweet.
+- Everything affects hip-hop. The question is, how does it affect the money that corporations are going to invest to put out different kinds of hip-hop?
+- Traveling in Europe made me understand that America has an island mentality: No one exists except us. There's a whole other world out there, but most Americans - all they know is America, the marketing plan.
+- There are five issues that make a fist of a hand that can knock America out cold. They're lack of jobs, obesity, diabetes, homelessness, and lack of good education.
+- Most kids are not dreaming of being programmers, scientists or engineers.
+- If you really want change, you really want it to be inclusive, where everyone's included, otherwise you're just going to have more of the same in the future.
+- I don't know what silence sounds like anymore.
+- Politics are about preserving relationships at the end of the day, and it has nothing to do with the greater good for humanity. It's just all about business.
+- Eisenhower warned us about the military-industrial complex and the damage it could do to society.
+- Kids today aren't listening to music audio-only. They're picking up a CD and looking at the lyric sheet and wondering why the pictures aren't moving around. Who wants to do that? It's like Bam Bam Flintstone hanging with the dinosaurs vs. Elroy Jetson who's flying around space. If I'm a kid, I wanna be kicking it with Elroy.
+- Hip-hop was fast, originally. It was always fast music.
+- The music industry isn't converging toward dance music. Dance music is dance music. It's been around since disco - and way before disco. But there's different versions of dance music.
+- Music is my therapy and my straitjacket. Music keeps me sane and keeps my mind on something. It's fragile up there.
+- I will not start an initiative until I've spent my own money. Because if I spend my own money, people who want to get on board afterwards know that I am serious about it.
+- I've been truly protected by my uncles.
+- I go out partying to figure out exactly who I'm making music for. You can't just guess.
+- There's no chivalry in culture any more. Sometimes you meet someone who everyone says is polite and you're like, 'Wow,' but then it's like, 'Hang on, isn't everyone supposed to be polite?'
+- You can rule ignorance; you can manipulate the illiterate; you can do whatever you want when a people are uneducated, so that goes in line with corrupt business and corrupt politics.
+- I don't despise people.
+- As we develop and get quicker with technology in America, it's like we're downgrading if you look at the investment in education... that's the thing that worries me.
+- If you live in a good neighborhood, you drive home and there's a bank. There's grocery stores and big houses - but no motels. What that tells you psychologically is you protect your money and buy good things for your family to eat in your nice big house.
+- My mom's discipline worked out perfectly. I wouldn't change a thing.
+- When the music industry started collapsing, the logical people understood that the only place to go for shelter was the underground. If the world on the surface is burning up, and you know people that have bunkers, go to the bunkers.
+- Why shouldn't a child look to want to be a political figure, to change our nation, to lead us the right directions?
+- I'd like to see Apple and Dell factories be brought to the inner cities; in every project in America, there's some factory there, and it's abandoned, and I'd like to see those factories open and bring jobs to America.
+- We all rely on technology to communicate, to survive, to do our banking, to shop, to get informed, but none of us knows how to read and write the code.
+- I can't be quiet, as that's when I notice the ringing in my ears.
+- I remember when I was 11, I told my mom, 'One day I'm going to buy you a house.' And she said, 'Boy, don't you be making promises you can't keep.' I was like: 'No, Ma, it's not a promise. I'm going to buy you a house one day.'
+- How about no one's ever going to outsell Michael Jackson at selling records because the record industry is over. Game over. There's no more record stores. With no more record stores there's no more pressing plants. With no more pressing plants, there's no more charts.
+- When someone is denying what they are, then that's when things start to spiral down.
+- If you have a vaccine or an antidote that people can benefit from, you're not going to want to keep it to yourself. You're going to want to spread that wisdom or whatever to as many people as you can, so everybody can benefit from it.
+- I was born and raised in East Los Angeles by a single mom who had three biological kids and adopted four more. I never met my dad.
+- Releasing an album on a major label is like sending a package through Fed Ex. You know that it'll get there, and you know that it'll get there on time.
+- I just like seeing kids inspired.
+- Love lasts forever.
+- 'Transformers' inspired me as a kid.
+- America has to be not just an idea but a living, breathing thing.
+- If I didn't mould my reality then I'd still be in the ghetto where people like me are supposed to stay. You have to dream your way out of the nightmare.
+- If my mind's not trying to fix something or create something, I don't know what to do. It just throws me off.
+- The computer allows me to execute my ideas at the speed I think them.
+- If you listen to the songs I write, they are the most ADHD songs ever. They have five hooks in one and it all happens in three minutes.
+- I don't want to be on stage when I'm 57, talking about... 'Let's Get It Started.'
+- We need creative people working with broadcasters, making smart content to inspire people to be geniuses.
+- You can get your money and you put it in the bank, or you can put it in the youth. You can put it in our future.
+- I have a pro tools rig that I carry in my backpack.
+- Hip-hop culture is probably one of the most powerful things to come out of America in a long time - everything from the music to the art to the dance to the language.
+- We need to forge a whole new energy and American Dream.
+- You know, the Super Bowl is so fresh that every single commercial is even on, you know, some next-level entertainment.

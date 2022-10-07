@@ -1,0 +1,106 @@
++++
+author = "Gabriella Wilson"
+title = "Gabriella Wilson Quotes"
+quotes_len = "100"
+description = "the best 100 Gabriella Wilson Quotes"
++++
+- I'd rather have quality over quantity. It's about perfecting each song and making sure it's what you want to do. And then even with what I share it's all very strategic.
+- We live in an era of social media. We care more about looks, popularity and followers than about real music. And I wanted to get away from that.
+- I love Toronto.
+- People at school knew I sang and that this was what I was gonna do, but I was pretty private and low-key.
+- Some people want the attention, some people want the spotlight, and that just wasn't it for me.
+- I'm a perfectionist and I want everything to be amazing every single show.
+- I remember being really, really young and watching Prince and Michael Jackson concert DVDs. One of my favorites is Prince's 'Rave Un2 The Year 2000.'
+- I'm just going to keep doing what I've been doing.
+- I like to pair clothes or accessories that wouldn't usually go together.
+- I was playing music since I was 6 or 7. I felt that music was a given to me.
+- Good things take time.
+- When I was a little bitty kid, I was listening to the stuff my parents were listening to. My mom was a huge Whitney Houston, Mariah Carey, Mary J. Blige fan. My dad had a cover band that I sang with, and he loved Parliament, Prince, Jimi Hendrix, and Eric Clapton, the blues, James Brown.
+- I'm always thinking about Prince when I make my music and how genre-less he was and just how versatile and amazing he was on the stage. I'm so inspired by him.
+- I wanted it to be about the music, so maintaining that is kind of difficult. But it's something I found made the most sense because it's about the music at the end of the day. That's what I'm most passionate about.
+- I will say about my fans, from day one they've been listening and are still listening to my projects on repeat.
+- Music is just in me and I didn't even realize it early on that I was going to do music.
+- You can't avoid heartbreak, you can't avoid a lot of things. You have to go through them in order to become the person you're going to be.
+- I've been singing love songs since I was a toddler, I was singing Whitney Houston, Mariah Carey and even Alicia Keys song, that helped my writing so much.
+- All the gossip - I'm not about that at all. The drama.
+- I really wish I could have collaborated with Prince before he passed.
+- I want people to feel the emotion, try to relate to the way that I look or want to be like me in the way that I'm living or whatever.
+- I just love music, and that's what I want people to see and respect.
+- It's a great thing to hear people putting me up to this standard and putting me on this pedestal and expecting greatness from me, but at the end of the day, I'm just trying to be a better me as an artist musically.
+- Throughout my teenage years or whatever, I've been so uncomfortable, or I've made mistakes and I've felt like I'm the only one who has done that.
+- I represent young black women, and I'm proud of that.
+- After I graduated from high school, I was like, let's see what happens. I took the time to develop my artistry and my songs, and tried to figure out who I am and what my message is.
+- I'm a sneaker girl, but I like to make comfort fancy.
+- To live your truth and sing your truth, that defines success.
+- Through the music, you can pretty much tell what I've been through and what I've accepted. And releasing it has made me realize I'm not alone in it, because of the reactions I've been getting.
+- I'm all about comfort.
+- I always say that my music is my diary. It's very personal to me.
+- I always feel like we focus too much on image and the flashiness of what it means to be an artist.
+- It's not a popularity contest to me. It should always be about the music.
+- I used to tell people when I was 15 or 16 that I'd never be that girl who goes through this, gets her heart broken, falls for this guy, but I ended up being her.
+- Giving, making an impact on people is something I definitely got from my mother.
+- We use social media as a platform to speak on issues that we feel passionate about and I see people debating on Twitter all the time about social injustices.
+- I would not be able to sleep at night and I would practice my Grammys speech. That was definitely me.
+- I've always been kind of a loner.
+- I don't want people to love my music because of what I look like or who I know or whatever.
+- I don't like to rush things.
+- People do things on Instagram and put on a front and try to live a life that they may not really want to live, or don't truly believe in. And that's the life that they portray. That's not the real them. We all have to be more aware of what is that's really happening inside. Are we really standing for what we believe in?
+- Music was all around me from the time I came into the world.
+- I'm half-Filipino and Filipinos love karaoke.
+- Seeing people Tweet my lyrics and really feeling for me, feeling what I'm feeling... in one of my lyrics I sing about 'the watch I just got for you,' and some girl was like, 'Yes! I bought him a watch!' I can be happy because these women feel me.
+- I really just wanted it to be about the music, and get away from, 'Who is she with?' and 'What is she wearing?'
+- I was like, 'Wow, Tommy Hilfiger wants to work with little old me.' All the dots connected, we had a meeting, and everything started to come together.
+- People always make me uncomfortable when they ask me: 'Who's this song about?' I feel like I let you read my diary and now we have to have a conversation about it! I already let you read it, let's just leave it at that.
+- People have always tried to imitate, but at the end of the day, no one can do me better than I can do me, you know?
+- I wanted people to just accept the music for what it is without any judgement and being anonymous was the best way to do that.
+- I definitely study the greats.
+- My parents have very different tastes. They exposed me to so many different things. I represent both sides.
+- I'm huge on the dynamic of my show and the experience, not just performing songs. It's important to me to make sure that people experience every song, and feel like I'm singing directly to them. Your eyes never want to leave the stage because there's always something happening.
+- As an artist, you're very sensitive about your art. And you feel like, 'Am I doing the right thing? Am I making the right music?'
+- It's really powerful to have a strong base that genuinely loves the music and plays it over and over again.
+- As a black woman, I've always had to work hard to earn my respect as a musician - and as a young woman, too. As a writer, in certain sessions or certain rooms people think, 'Who's kid is this? Who's this little girl?' I've had to prove myself.
+- I go to my mom's house and she'll make me do the dishes or clean up.
+- I'm really about this women empowerment thing.
+- Some people, they make these assumptions before they even listen to the music.
+- Being anonymous, I thought I'd just release the music and see what happens organically.
+- I was a kid. I would go home and play instruments, and I would be at school on the playground the next day.
+- The fact that I can travel around the world doing what I love is such a blessing. I've learned that traveling is such an important thing; there's so many beautiful things out there and we get worried about such little things.
+- I've been writing since I was five years old. I used to write poetry, and I loved to rhyme.
+- I'm so emotional when it comes to even the smallest thing.
+- I was almost afraid to speak on the things I've dealt with as a woman.
+- I think people often tend to listen to music with their eyes and not their ears, and I just wanted my work to shine, and to be able to convey my message without imagery taking away from that.
+- I don't know if I have a favorite part of being an artist. I do love being onstage and performing with my band. I also love rehearsing with them and creating the show, that's always a fun part. But there's also nothing like being in the studio and being able to get back to myself and get back to my feelings.
+- The studio is the place for me to really confront my feelings and get it all out. I love being in that space and creating, doing what I love, making art.
+- I'm so thankful that at this point, even if you see my face or know who I am, it doesn't matter, because you already love the music.
+- A lot of women need to know that they don't have to conform, they don't have to take no for an answer.
+- Before anybody knew who I was, I was just working on what I love and having fun with it, and I'm sticking with that - because, ultimately, that's what people want to see.
+- As a person, I'm just trying to be better than I was yesterday and continue to elevate.
+- When you're growing up as a young woman, you develop all of these insecurities, and then there's boys and all of that stuff on top of that.
+- It took me a while to want to do interviews.
+- Sometimes it's all about hype, and I didn't want hype.
+- I just want to give back to the community that raised me now that I've gotten to a point where I can do that.
+- As a young woman, I experienced high school and heartbreak, and the music I started to write was a little bit more poetic, and more inspired by spoken word. The real raw emotional things that sit in the back of our minds, that you were afraid to say? That's how I started to write my music. And that's how 'H.E.R. Volume One' came about.
+- Black culture, to me, is so important and I identify with young black women.
+- People are gonna listen to the music whether or not I reveal myself.
+- I want women to really feel how honest and vulnerable I am and to understand that they are not alone and that these are all human emotions.
+- Whether you know who I am or not, you don't really know who I am.
+- I've become a voice for young women who are growing up and uncomfortable being vulnerable, uncomfortable with changes, heartbreak - and becoming jaded.
+- It's scary and uncomfortable releasing music that is close to you.
+- I plan on donating a bunch of guitars to different schools around the country. There could be a new Slash out there, there could be a new Lenny Kravitz.
+- I never really thought of myself as someone who was gifted.
+- My dad had a cover band. They would rehearse in my living room while my mom was pregnant.
+- I have to keep doing me. I have to not look at what everybody else is doing, or what everybody else thinks should be happening right now.
+- I guess 16, 17, 18, that whole period was a dark time for me. I guess it was a hormonal thing, going through all those changes as a young woman, learning who you are and being comfortable with yourself, and also, which goes along with that, boys. It was definitely an unhappy, 'Who am I?' period. 'Who am I gonna be?'
+- All of my music is based off my life experiences.
+- I love BTS, their music is good, but they always support me.
+- I learned anything can go wrong on tour, still, you have to put on the best show you can.
+- I write about other people's experiences from time to time.
+- My dad and I used to play Prince, Lauryn Hill, Stevie Wonder, The Parliaments, and a lot of older funk bands while cooking breakfast in the morning.
+- Sometimes I'll just go on my piano and just start playing what I'm feeling. It all depends on what I'm feeling at the moment.
+- I've learned a lot about myself through my music and the way people perceive it, and the goal is for the success not to change me.
+- One of the first CDs I ever bought was Alicia Keys's 'MTV Unplugged' album. That album is the one I would take home and listen to on my Walkman, in my room, before I had an iPod. I learned most of the songs on piano.
+- My dad and I would perform around the Bay Area where I'm from in California together, and I also did talent shows growing up, I loved it.
+- It's one thing to be able to sing well, but another to be an artist and find your own voice within music. And that's what the goal was for me in my teenage years. I had to find myself.
+- Living my truth was very hard - I felt vulnerable.
+- I think most women, we have intuition. We always know what we always want to find out. We always want to be wrong, and we hate when we're right at the end of the day. People say we love to be right. That's not true. We don't like to be right, because usually we know when it's the truth.
+- I went to a Buddy Guy concert when I was, like, seven years old.

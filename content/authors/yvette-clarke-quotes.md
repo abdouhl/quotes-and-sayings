@@ -1,0 +1,18 @@
++++
+author = "Yvette Clarke"
+title = "Yvette Clarke Quotes"
+quotes_len = "12"
+description = "the best 12 Yvette Clarke Quotes"
++++
+- I hope that the opening of the Dr. Martin Luther King, Jr. Memorial will be a life-altering experience that inspires every American to rededicate themselves to the fulfillment of Dr. King's dream.
+- Only by acknowledging the success and sacrifice made by those who came before us can we fully understand what we must do to ensure the liberty of those who will succeed us.
+- My father has been the real anchor of the family. He's the one who has always encouraged my mother, my brother and me.
+- Good Dems are good Dems. They want a representative that really reflects their values.
+- There is no doubt that Stop-and-Frisk does not yield the desired results, and it is apparent that it disproportionately targets minority communities.
+- Only Congress has the authority to adequately and holistically address our broken immigration system.
+- We examine and highlight the history of the African descendants in America, and know that each and every one of us has come this far because of our faith in this country.
+- I have to earn re-election. That's the way I see it.
+- I would put myself towards left of center.
+- Even after facing jail, Martin Luther King, Jr. courageously and boldly spoke out against racial inequality.
+- It was August 28th, 1963, and the greatest civil rights coalition in modern history had descended upon Washington. Hundreds of thousands of protesters trekked through the heat, stretching from the Washington Monument to the Lincoln Memorial.
+- We must never forget that Black History is American History. The achievements of African Americans have contributed to our nation's greatness.

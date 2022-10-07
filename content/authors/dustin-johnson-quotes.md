@@ -1,0 +1,31 @@
++++
+author = "Dustin Johnson"
+title = "Dustin Johnson Quotes"
+quotes_len = "25"
+description = "the best 25 Dustin Johnson Quotes"
++++
+- It's just a game. I love it. And yeah, I get frustrated, but I try to not let it get me too upset. I mean, I don't get upset over bad shots or anything like that.
+- As a kid, I remember John Daly bombing it around St. Andrews in 1995 to win the British Open, and people say we are similar in a lot of ways.
+- I love being on the water, wakesurfing and wakeboarding. I'm not thinking about golf. I'm just wondering if my cooler's got enough ice to make it through the day.
+- I can have someone tell me to do stuff all the time every day, and if I don't want to do it, I ain't gonna do it.
+- I've got a lot more control with my wedges.
+- Golf is a weird sport. Some days you got it. Some days you don't.
+- That's the great thing about golf is you never know who is going to win. On good, tough golf courses, it brings it back to the best players. But it's always the best player that week is going to win. I mean, so it could be anybody.
+- Most of my family are good athletes.
+- I'm pretty close with a lot of guys, like Nick Watney and Steve Marino, D.J. Trahan and Charlie Warren.
+- Telling me that I can't do something is probably the worst thing that anyone can say, because I'll definitely do it. I'm very determined.
+- At Pebble Beach, even on your good shots, you've got to hit it to the correct side of the holes to save pars.
+- With me, what you see is what you get. I try to treat everyone with respect.
+- Obviously, having my brother on the bag is big for me. He's my best friend. So you know, having my brother there, we spend a lot of time with our caddie. So, someone you enjoy being around.
+- Having three tough finishing holes in a major, you know, you know that, most likely, it's going to come down to those last three holes. Having a good game plan, a good strategy, and executing obviously is going to be the big key.
+- I sign autographs and try to be as nice to people as possible, and I do pretty well with that. I understand the importance of it.
+- Just when you feel like you get on top, something happens that knocks you down.
+- Whether you're driving it short or you drive it far, you got to be in the fairway because the rough's brutal, and if you get out of the rough into some of these bunkers, you can get some funky lies.
+- Having a son makes everything so much more easy. You don't worry about golf as much. You don't worry about anything as much. The focus is more on him.
+- What team's supposed to win - that doesn't mean anything. You've still got to go out and play. You've still got to go out and hit the shots and make the putts.
+- I think every part of your game, on this golf course, needs to be good. You've got to hit every club in the bag. You need to drive it well, hit your irons well, and always, if you want to have a chance to win a Major, then you've got to putt it well.
+- What it feels like when you're playing good? I don't know. It feels the same as every other day. Just more putts are going in the hole.
+- Anytime you're playing a major, the last four or five holes, it's not going to be easy. It's never a guarantee. It's never easy.
+- You still just got to play your game. No matter where you're at, you've got to play your game, especially in majors. When you try to push and try to make things happen, that's when you can make some big numbers at the majors.
+- When I'm on really tough golf courses, I feel like I'm more focused because I'm really trying to hit the ball to a certain spot, instead of, a lot of times, when I struggle sometimes is just staying mentally focused on every shot.
+- I always knew I wanted to play golf and go to college. I try hard to be a positive role model, especially on the golf course. I try to carry myself well, and don't do anything outrageous. I try to play the game like a gentleman and give everyone respect. That's how the game should be played.

@@ -1,0 +1,106 @@
++++
+author = "Zawe Ashton"
+title = "Zawe Ashton Quotes"
+quotes_len = "100"
+description = "the best 100 Zawe Ashton Quotes"
++++
+- Anyone who's been an usher knows it's a training in resilience. But you get such a film education. And the popcorn's free.
+- I'm doing a play at Trafalgar Studios with The Jamie Lloyd Company - 'The Maids' by Jean Genet with Uzo Aduba and Laura Charmichael, directed by Jamie Lloyd. It's one of my favourite plays by one of my favourite playwrights.
+- Todd Solondz is a film maker I've always loved because of how he balances darkness, humour and surrealism in his films.
+- I would like to have a baby.
+- How long have we got to talk about women of colour and imposter syndrome. It's a real thing, and many people have it. It's, I think, a particular characteristic of the overachiever. Because you're bottomless, you never think what you've achieved is enough.
+- I do think about moving out of London a lot, whether that's L.A., whether that's Margate with half of the other Hackneyites.
+- I think there's still a feeling within society, entertainment aside, that women are less funny than men.
+- Honestly, the life of a serial character on television, I'd love to write an essay about it.
+- I do consider myself an artist.
+- My real life memory of leaving Uni is an overwhelming excitement to be going home but also a weird numbness.
+- I actually grew up around the corner from where Harold Pinter did. If you want a snapshot of my childhood, me and Pinter, we essentially grew up together.
+- I prefer to avoid the phrase 'strong women' when talking about female characters and the lack thereof or the need therefore, because it's not about being strong, it's also about being vulnerable, funny etc.
+- The first stage play I ever did was a school play called 'The Wishing Chair.'
+- For me, food is all about nostalgia.
+- I'm training in martial arts. It's a whole new world for me and I'm loving it. I do that or hot yoga; I have to do some kind of exercise.
+- I hate using the word 'dark' for things that are negative.
+- I hate talking about class, but the truth is as an actor you're only going to be doing some really great work if you can afford to be out of work and take the good stuff. If you can't, you're going to be treading quite a different path.
+- I have a very short attention span.
+- I've never lived in north or west London, so I'd like to come out of my comfort zone for a bit. But Stoke Newington is where my heart is, it's where I'm born and bred.
+- From the outside, some people might consider me a hipster!
+- The actors I admire always have something to say, or a level of poetry, belief, activism or intelligence about what they do or how they feel.
+- Episodic TV is notoriously brutal because just when you think 'I've got this, I know this character' you can pick up the script for series four and you die in the first episode - or your character suddenly transitions from a woman to a man.
+- Each project you do demands a different diet in a way. Because there's so much tension in 'Betrayal,' so much holding of breath and emotion, I can't get too happy in my food choices or I can't get alert enough.
+- When you're an actor, wealth is about choice.
+- My mum took me to see 'The Wizard of Oz' when I was about three and I was blown away.
+- We live in a capitalist society and if we're talking about the people at the bottom of the food chain, it's women of colour.
+- I'm a card-carrying existentialist.
+- I wanted to quit acting and as soon as I decided that, the call for 'Velvet Buzzsaw' came through.
+- As a woman, you do have a sense that if you can do other things, then you should. If you feel, mmm, the roles are getting a little repetitive, and you know you can write, then you should write a different role.
+- If I'm wearing the wrong clothes I can't think. It sounds so weird but it just has to be the right fabrics and like the right feeling on my body.
+- If people call my book an actor's memoir I will be very upset. I can't bear anything too literal, so it has elements of truth and elements of fiction sitting side by side.
+- As a director I would love to work with Marion Cotillard. She's so magical.
+- My drama teacher when I was a kid called me 'Zawe the activist' and I had no idea why. Now I've got older I can see why she always saw that in me.
+- I've always acted, it's my passion and belief system.
+- I want to be a successful actor, never a famous star. Because one is an organic meal that will sustain you, and the other is toxic.
+- Often when you're working on dark material, the atmosphere is fun.
+- I love the visual medium of film and TV. I love the science of it, working with the sound and the lighting and every aspect.
+- I have no idea how to ever sell myself in a snazzy way.
+- I think I've always felt that I want to do a very specific type of work and I've made informed decisions. You know, hopefully be part of a quiet movement or revolution.
+- I used 'Saved by the Bell: The College Years' as my reference point really for my 'Fresh Meat' experience.
+- When you work in film sets, when you're working on projects that are male dominated, you are always treated as the last priority.
+- I always play outsiders. I think I'm carrying a lot of those characters and I wonder if I play them because those characters need an extra element of thought to bring them to life.
+- What sometimes annoys me about the arts is increasingly that we have to put real people on screen or stage.
+- It has taken a long time for me to really dress as the artist that I am: I'm an indie girl, I like experimental, I like things to be subverted. Details are the fun part.
+- I plan on having a long career. I don't want to burn out.
+- I do always try and do work that I'm going to be interested in talking about when it's released.
+- The widespread shame of motherhood is criminal, and it needs to stop. The world can never improve if you disrespect the people that bring life.
+- Don't worry if you're interesting enough or beautiful enough or any of the 'enoughs.'
+- A lobster roll and a few glasses of fizz and I'm happy.
+- I'm a keen experimenter in the kitchen. With food, not with anything else!
+- I've always wanted to live somewhere extremely nice like Sloane Square... although that would probably be too nice for me.
+- Mum got me involved in every activity under the sun - singing, dancing and drama classes at the Anna Scher theatre school.
+- I'm not really sure what defines 'success in the real world' to be honest! It's so objective once you graduate, some people work, some people start families, some go looking for themselves up mountains in Peru.
+- Patsy Ferran in Tennessee Williams' 'Summer and Smoke'-I thought that was just one of the most phenomenal performances I've seen from a young woman.
+- I had a meeting a while back with a big group of women - actors and producers and writers - who are all ethnic minorities and we just aired what we thought was happening and why, and someone said that, as a black or mixed race actress, you feel like you're renting space instead of carving out a career. But I'm just going to get on with it.
+- Being yourself, or being judged as yourself, is really scary.
+- It's wonderful that newer brands such as Fenty are making clear statements about being for all skin tones.
+- If you're looking for reps, write letters that are short and professional. Make sure you have a really great reel of yourself. If there are friends you know who are making short films, do them - it's all material for your reel.
+- My dad constantly tells me I should calm down, but I feel so sad when I see places I've known since I was a child closing. I burst out crying when a local pharmacy closed the other day; it's just going to become a shop that nobody has much of a need for. But I am trying to move with the times.
+- As an actor you can always blame the director or writer for negative feedback. But as a writer, you're the reason why everyone's in the room.
+- If there's one person I looked up to obsessively, it was Will Smith. There wasn't anyone who looked like me on TV in England. 'The Fresh Prince of Bel-Air' was my touchstone.
+- It's such a difficult thing for women, especially, to admit when we're not coping, because we're supposed to be all right with all the different roles we're born with and are piled on us later on.
+- I'm not really concerned about being liked on stage - I'm a bit more concerned about it off stage.
+- Art should be for everyone, not just the rich.
+- When I'm doing a play like 'Betrayal,' I have to be careful not to get stimulation overload.
+- I know I'm different and I don't fit in to any kind of generic mould.
+- When you get to do things you love with every fiber of your being, it's a different experience.
+- I don't want to be 'de-ethnicised.' I hate it when people say, 'Oh I don't even think of you as a woman,' or, 'I don't even think of you as a black woman.' Well what do you think of me as then? A loaf of bread?
+- I just always play these really extreme characters - they've all come with parental guidance stickers on them.
+- I don't think there's a part that I've played or something I've written or directed that hasn't smacked of 'The Wizard Of Oz.' It's the film all roads lead to for me.
+- No-one tells you about being in episodic television and it ending. No-one tells you how painful it is. How bizarre it is when you've dedicated your life to one character for five years.
+- I hate when there's a band that you've loved and you go and see them and it's like only the really new experimental stuff from the current album.
+- I didn't grow up with a lot of role models necessarily when I started out - there weren't many people who looked like me on TV. Not in England.
+- Relief is not a word that ever enters my mind, about anything.
+- For me, the banner that I want to wave in terms of giving a jump start to writers of any gender is just to make female protagonists as complex as their male counterparts.
+- If you cut me open I bleed East London.
+- What a character wears and how it affects their mood and their movements has always been very important to me. A character's clothes, if they're truthful, can make audiences feel something.
+- Some people shun the idea of role models but I think it's one of the most important things people have in life - role models, to look up to.
+- I got into a habit really early about not talking about work, ever.
+- If I was someone who wanted to do just love-interest roles then I'd be in a difficult position. But thankfully I'm someone who likes to do things that are edgy and different.
+- One of the first plays I ever did was at the Royal Court Theatre in London; it was the first play I got after drama school.
+- Living with the notion that you might never have a permanent spot in the world is really quite a powerful metaphor.
+- Good writing shouldn't be wrapped in cellophane. It should be open to the elements and full of maggots and it should be left to grow and deepen and fester.
+- I love writing with pen and paper; I hate technology.
+- Tennessee Williams moves my soul.
+- The chasm between independent film and commercial film is now so wide. You either have to be super-famous and get a first-time director or writer's indie script off the ground, or you're a newcomer and go and put a cape on for four years.
+- I've had times in the past where I wanted to give up acting, get my head out of the arts because it was like my constitution couldn't deal with it. My job means I get judged on my looks; I get discriminated against because of my sex; I take on roles that are so two-dimensional... you can go mad trying to fill that third dimension.
+- I was very fortunate to have had three years on 'Fresh Meat,' before working on 'Not Safe for Work.' Comedy drama is a very hard genre to nail so I was very glad to have had some practice.
+- I'm someone who likes to explore the complexities in people.
+- I like clothes that feel fresh and surprising.
+- The first film I ushered was Lynne Ramsay's 'Morvern Callar.' I started at 18. Best job in the world. Blockbusters, indie films, classic matinees.
+- Art galleries are the best first date spots for my money.
+- Dreams of a Life' and 'Fresh Meat' have left me on such a high. I'm not complaining but I'm not complacent either.
+- I'm Hackney born and bred and find it hard to call anywhere else home despite the extreme ongoing gentrification which gets me down.
+- I think anyone who has been bullied finds it life-affirming if you live to tell the tale. I just wish someone told me at school that there's this weird average whereby if you're not popular at school you will become popular later.
+- I'm just coming to terms with the fact that I will always do lots of different things and I can't really stay in one place too long.
+- Secondary school was a lot harder. That was probably my hardest time. Some of the girls were really nasty. I had to move schools because of the bullying there.
+- In the future, the idea would be to create work for myself, as a way to work up into my 80s if nothing else. But also, I want to cast my friends in things or people I saw who weren't working and I'd be like, 'Why aren't you working, I don't understand - I'll write you a role in something.'
+- I don't tend to go into any job thinking about the audience reaction.
+- I've had doors slammed in my face, I've been shouted at in my face in meetings when I've stood up for myself.

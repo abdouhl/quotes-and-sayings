@@ -1,0 +1,43 @@
++++
+author = "Emma Kenney"
+title = "Emma Kenney Quotes"
+quotes_len = "37"
+description = "the best 37 Emma Kenney Quotes"
++++
+- I try not to spend too much time on my computer.
+- I hate watching myself on camera. I guess a lot of people feel that way, though.
+- If you want a dog, go to your local animal shelter and adopt one. It's not rocket science, it's dog science.
+- I want to be the healthiest, best Emma that I can be, and I know that by going to treatment that's what's going to happen, and I'm going to continue on that positive road.
+- I'm always in the mood for pizza.
+- I try to keep my professional life and my actual kid social life separate.
+- 'Shameless' is just such a realistic show.
+- I just want to send a message to my fans saying that it's OK to admit that you need help, and it doesn't make you weak.
+- I've written tons of scripts, and when I wrote 'The New Girl in Town,' I read it to my parents, and they suggested I make a movie out of it. I got a few friends together, and I shot the movie in one weekend, and then my mom and I edited it.
+- You've just got to be wary around people. You don't know what they want from you. Just in L.A., people have questionable motives. Everybody's kind of got an angle. You've got to be aware of that.
+- I did improv classes just like any kid would do soccer or gymnastics or swimming. At one of my showcases, my manager came to my mom and said, 'We would like to represent your daughter.' My mom asked me that night if I would like to actually act, and I said, 'Why not? I'll give it a try!'
+- I can go out and chill with my friends, go out to dinner, and I won't get hounded like, I'm sure, Paul McCartney or somebody like that.
+- I can put both legs over my head.
+- I loooovvve Dylan O'Brien. He's so hot.
+- I was watching 'Sabrina the Teenage Witch' - the episode where Sabrina and her friend make a vampire movie for college. I wanted to see if it would be fun to make a horror movie.
+- 'Shameless' was the first project I've ever booked, and I'm really happy for it!
+- I once tried to read the dictionary. It didn't work.
+- I would totally love to do theater.
+- I went through a phase when I was 13 or 14: I would tweet emo things about my feelings and boys who didn't like me and mean girls in school.
+- I'm pretty much a goodie two-shoes.
+- Not everybody's life is like 'Gossip Girl.'
+- It's hard growing up in Hollywood, you know? I'm not from L.A. originally.
+- I started acting when I was 5 or so. I just did acting for fun, not actually to be an actor.
+- Opening up your life to a dog who needs a home is one of the most fulfilling things you can do.
+- I love indie movies - I feel they can really allow you to develop a character.
+- I went to public school my entire life.
+- I had the perfect level, growing up, between being normal and having a little taste into Hollywood. People would recognize me once in a while, but I could still go out and have my life.
+- I have to say that one person I learned from the most as an actor in my life is Emmy Rossum. She is so insanely talented in the sense that when watching her work, it just turns into watching her speak - it's no longer acting; that's how good she is! She just becomes the person.
+- If I wasn't an actor, I never would have known who Debbie Gallagher was. I never would know how her feelings are or how her emotions are, or her family.
+- The director will be like, 'Hey, great take. Do you want to see the playback?' And I'm like, 'Definitely not.'
+- Nothing sounds worse than having to be surrounded by people you don't like in a sequined dress.
+- I'm interested in being a professional actress.
+- You're not always going to look super glamorous in the morning when you wake up. Everything's not perfect.
+- I'd love to play characters that are so similar to me that it would be crossing limits, and then at the same time I would love to play characters that are so different from me that it would be that kind of challenge as well.
+- I love One Direction. I like Eminem.
+- If you put pressure on your kids to book every audition, they won't enjoy it anymore, and they won't book it, either. Also, if they don't want to go to an audition, they shouldn't be forced to go. They have to want to do it.
+- There is so much I'd love to do in this industry. I'm honestly interested in directing even a little more so than acting.

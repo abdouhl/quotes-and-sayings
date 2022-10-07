@@ -1,0 +1,27 @@
++++
+author = "Deana Carter"
+title = "Deana Carter Quotes"
+quotes_len = "21"
+description = "the best 21 Deana Carter Quotes"
++++
+- Yes, we do mimic our parents in a lot of ways.
+- There's a lot of freedom for me living in L.A.
+- Our live show is a definite experience, since it's an extension of my albums.
+- I wanted this album to sound like a big crocheted blanket - to be warm yet to have a lot of space.
+- The songs come from a vulnerable place, but expressing that part of yourself can also make you feel fearless.
+- Any album that I ever put out I'm going to send it to country radio first.
+- My father, Fred Carter, Jr., is definitely an extraordinaire.
+- My relationship with Music Row has always been, from my end, optimistic and hopeful that there is more than one way to approach the writing, recording, and marketing of an album.
+- It's my sick fantasy to be a Cosmo cover.
+- I toured in Europe first, before I did any touring in the U.S. It was with Jimmy Nail and others.
+- Once you get away from where you're from, you look at it in a different way.
+- I was in relationship with a guy who was much older than me - either he was past his prime and I was coming into mine. There was nothing I could do to keep his attention.
+- No matter what you do for a living all we have is music to get through certain situations.
+- I think the themes in my songs are very similar from the first album to the newest one. It's all about the human condition and how we are all trying to learn to live with each other and survive love and life.
+- I'm a big fan of '70s records where artists could draw on whatever influences they wanted.
+- Nashville has a formula, and it works a lot of the time, but it wasn't right for me. They're afraid to step outside the box - even though, with me, my success came because I was outside of the box to begin with.
+- I've been in LA for 5 years now, and it's been very freeing creatively.
+- But once you become successful, everyone has an idea of what you should do.
+- I'm sure every song has some kind of undertone of what I was going through with Chris. It was my life.
+- I never excluded any genre on my first record.
+- I never listened to country music growing up.

@@ -1,0 +1,37 @@
++++
+author = "Ed Asner"
+title = "Ed Asner Quotes"
+quotes_len = "31"
+description = "the best 31 Ed Asner Quotes"
++++
+- Raising kids is part joy and part guerrilla warfare.
+- Never stand still. Only stand still enough to learn, and once you stop learning in that stance, move off. Always keep yourself engaged, in theater, in whatever job you can get. If you can't get an acting job, then go backstage. Or take tickets. But be around actors because that is where you will primarily learn.
+- Never thought acting was something you could make a living at. It wasn't until I was in college, and got a lead in a play, that I began to realize I might just be able to blunder into this profession.
+- Always keep yourself engaged, in theater, in whatever job you can get.
+- They're sheep. They like Bush enough to credit him with saving the nation after 9/11. Three thousand people get killed, and everybody thinks they're next on the list. The president comes along, and he's got his six-guns strapped on, and people think he's going to save them.
+- There's never been a time in history, no matter what the public thinks, when actors have been paid more than they should be.
+- You don't work with Cloris Leachman, you experience her.
+- I regard myself as a beautiful musical instrument, and my role is to contribute that instrument to scripts worthy of it.
+- When I was working my way up, it seemed to me that only Westerns and 'Star Treks' or sci-fi movies could afford to get away with presenting the problems - like prejudice and desegregation, for instance - that we face in our everyday lives.
+- I am not a method actor, though I studied for a year with Lee Strasburg.
+- My first job was with an auto plant, Kansas City - they treated you like slaves. From there I went back to Chicago, worked in steel mills, drove a cab, stuff like that.
+- I love acting.
+- I don't know who made the Earth. I woke up one morning, and it's here. I make the best of it.
+- I got some news for you. One, there is no Jesus. Two, there is no God. Three, mind your own business and everything works out.
+- In a way, 'WALL-E' had some of the same disturbing elements that 'Up' does.
+- I'm not sought after. I never get enough work. It's the history of my career. There just isn't anything to turn down, let me put it that way.
+- I don't believe in God, though I'm not prepared to call myself an atheist either. You know the old phrase: 'There are no atheists in foxholes.' I've never been in a foxhole, and if I ever find myself in a foxhole, I'll let you know if I believe in God or not.
+- Where the work goes, I go. Wherever adulation occurs, that's where you'll find me.
+- The older I've gotten, the more the need to exert comedy no matter how tragic a character I may be portraying because they are essentials for presenting truth.
+- It's like an athlete. He has a string of hot years, and then he fades into nothingness. The actor doesn't necessarily fade into nothingness. After his hot years, he fades into a different category.
+- If you can't get an acting job, then go backstage. Or take tickets.
+- I was a newspaper editor in high school, and I truly thought of journalism as a career. I loved it.
+- They say making laws is like making sausages. You shouldn't watch. It's the same for acting, especially for the actor who works unconsciously.
+- I loved getting to Chagrin Falls, being by the falls; what a cute place it is.
+- I pray that this council, which will probably be too late to save Iraq, will do what it can, which will be immeasurably strong in what it does in trying to save our democracy.
+- To tell you the truth, I hadn't seen any Pixar until I went to see 'Wall-E,' and I watched it and I was shocked to see how adult it was, with the setting in our lives, both present and future, and how they dealt with it... And then quite relieved to find that the one I was working on, 'Up,' how adult it was.
+- I've never stopped loving cartoons. I loved cartoons as a kid. I can still look at them and enjoy them.
+- I went into acting as psychotherapy, and it's still a work in progress.
+- To my knowledge, there is no blacklist. But there is a mindset, even among liberal producers, that says 'He may be difficult, so let's avoid him.'
+- I can do lovers. I can do Sir Galahad types. I'm not going to limit myself in voice-overs to irascible old men.
+- Some of my earliest political feelings were based on the anti-Japanese bubblegum cards I got. There were also Spanish Civil War bubblegum cards. Awful.

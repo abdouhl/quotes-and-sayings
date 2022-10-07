@@ -1,0 +1,72 @@
++++
+author = "Shehnaaz Gill"
+title = "Shehnaaz Gill Quotes"
+quotes_len = "66"
+description = "the best 66 Shehnaaz Gill Quotes"
++++
+- The audience can expect full-on entertainment from me.
+- I want to make people of Punjab, my parents, and grandparents proud.
+- I strongly believe in the saying that hard work always pays off.
+- No matter how hard you try to act all sweet and nice, 'Bigg Boss' will bring out the real you.
+- It's not difficult to lose weight if you really want to.
+- I watch good content, and films that are educating about life, or other things. I also do all my housework myself and that's where my day goes.
+- We all need to be safe first and if the Government has announced a lockdown, you know it is very serious.
+- But my dream is to own a big house one day so that it has a personalised gym. Then I can work out.
+- If I was a struggler, I would definitely have been married.
+- My maturity level has increased, as earlier I was rather childish and was easily influenced by what others used to say, and I have changed myself a lot. Now, I understand things before doing anything and also, I used to say anything, but I think one should think carefully before speaking.
+- It gives me great joy to visit the 'Bigg Boss' OTT house with Sidharth Shukla.
+- English is English, no matter what accent you speak it in.
+- After my first song in 2015, I had received a great response from audience, and directors always appreciated my work.
+- I didn't want to come across as pricey.
+- Who says I don't know how to speak in English? So what if it has a Punjabi touch?
+- Prioritize your work, be clear with what you want to do in your life.
+- A lot of people called me fake, but I always said what came to my mind.
+- I have become worldly-wise and mature after participating in 'Bigg Boss.'
+- I really had a great time shooting for Dabboo Ratnani. He is such an experienced photographer and works in perfection.
+- In my opinion, unique personality makes for a desirable trait.
+- Every day, I ate just one or two things. I wouldn't stuff too much variety in my daily consumption of food. For example, if I ate dal and moong for lunch, I would eat the same for dinner.
+- Of course, there is no denying that I, too, have made mistakes, intentionally and unintentionally, but the good part is that now I know the difference between good and bad.
+- I have moong for breakfast with tea, and dal, chawal and sabzi for lunch. For dinner, I just have milk.
+- Every budding actor should constantly focus on acquiring his/her skills rather than getting disappointed.
+- A large amount of work has come to a standstill all around, so I thought why not just go for weight loss?
+- Now I don't have any wishes except Bollywood.
+- People do not realise that if they say something negative about someone, it turns into positivity for the person they are speaking badly about because they get sympathy.
+- You can say that I cut off on my non-vegetarian food, chocolates and ice cream and nothing else.
+- It's not easy to look away from negativity, but I try to not focus on it.
+- If I find someone who is suitable, then I will definitely take the relationship ahead, but no one can force me to get married.
+- It's better to not prove yourself to anyone. Rather, focus on your work and prove yourself with your work.
+- I never stopped and worked so hard to get the fame and money I deserved.
+- I started slow in life and made many mistakes but I have learnt from them.
+- I want everyone to whistle when I come on screen. However, even if that doesn't happen, I hope people like my work.
+- One should have humanity and should know what to speak and how to behave, and our lifestyle should be good.
+- I was Punjab's Katrina Kaif, wasn't I?
+- I want to be a playback singer and make my name big.
+- I am working hard and I will get married when I feel like it.
+- I feel good when people get motivated due to me.
+- Qualities like being considerate, loyal, caring, protective and honest are what attract me in a man and I find such men desirable.
+- First, everyone hits on Sidharth Shukla. I've seen it. He is the complete package. But this is also a problem. The girls don't leave him alone.
+- I have worked in Punjabi films and now it's time to rock Bollywood.
+- I want to stay away from controversies.
+- The only secret behind why SidNaaz is still a thing is because it is genuine. We shared a pure relationship. I think people connect to that. The way he adored and showered love on me, I really felt nice about it. We both had same sort of feelings for each other. It was very cute.
+- 'Bigg Boss' has given me a lot. A new identity, emotional bonds and a person who I can go to as a friend.
+- Why should I miss anything? The whole world is missing me.
+- I am on 'Bigg Boss' only because it can open doors to the Hindi film industry for me.
+- As an actress, I always wanted to become a versatile actor who can play any role or part.
+- I am learning English and even try to talk in English with people. I don't care if people are laughing at me. I always look at the Internet for the correct pronunciation and play word games.
+- I feel people are not real in reality shows and can use emotions as a pawn.
+- I finished 'Bigg Boss.' Why should I go on the show again? What is the need for it? If I have to go in the 'Bigg Boss' house, I will go as a guest, exchange pleasantries and leave.
+- I can't work out in front of so many people, that's why I don't go to gym.
+- It was my dream to work with Badshah and Diljit from the Punjabi industry. I had asked for these two wishes from God and both have been fulfilled.
+- It's best to love yourself. Only then can you love anyone else.
+- The most desirable man in my opinion is Sidharth Shukla and among women, I think of myself as being desirable.
+- There is so much to do inside the house, make creative videos, cook, exercise, act.
+- While 'Bigg Boss' was my dream, my heart wasn't in 'Mujhse Shaadi Karoge.'
+- I am a girl who enjoys attention.
+- I have improved myself. I am not the same Sana as 'Bigg Boss.'
+- I don't believe in comparing myself with anyone else, as that leads to hatred and jealousy.
+- I'd say, whatever happens, happens for good and that is what happened with me, loads of good.
+- People say that I got into 'Bigg Boss' because of controversies, but I don't care.
+- Yes, I feel doing 'Mujhse Shaadi Karoge' was a big mistake.
+- I wanted people to see my different side and so I decided to lose weight.
+- You soon get into a habit of eating less and that's the key to shed the extra weight.
+- If I was hungry for two rotis, I ate only one.

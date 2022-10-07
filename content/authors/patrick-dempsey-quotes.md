@@ -1,0 +1,40 @@
++++
+author = "Patrick Dempsey"
+title = "Patrick Dempsey Quotes"
+quotes_len = "34"
+description = "the best 34 Patrick Dempsey Quotes"
++++
+- My big thing is to make sure the lipsticks taste good when you kiss. And, well, so far they taste pretty darn good.
+- I was 17 when I left the small Maine town where I'd grown up. I wanted to do something I thought was important with my life, so I headed to California and didn't look back.
+- One day my 3-year-old daughter said 'Your very handsome, Poppy.' That was the best compliment ever.
+- Now I'm just known as McDreamy, I've lost all identity as Patrick Dempsey, I'm now McDreamy.
+- I have a specialized racing bike, which is great because it has a solid build, is comfortable to ride, and is lightweight.
+- If I can sleep in until 9 A.M. - wow, what a luxury.
+- People sometimes mistake being serious with being taken seriously.
+- I like physical comedy. And I like the old comedies.
+- Fame is a delicate and dangerous creature; I saw people who didn't honor it, who refused to take responsibility for it, get destroyed by it. I also saw that stardom in and of itself was empty.
+- I know it can be dangerous, but I love racing. I worry my wife, but she knows it's important to me.
+- I hate shaving. It's much easier to just do a little stubble, but my wife and daughter like it when I'm clean-shaven. If you see me with a clean face, then you know I'm in the kissing mode!
+- You'll go insane if you try to have a picture-book house.
+- The best part about being married is feeling centered. Nothing else matters so much as long as you can come home and be with your family.
+- I did a play called 'On Golden Pond' in a dinner theater in Maine and then went to New York for a talent competition having put together a three-man juggling routine and some one-liners and I got myself an agent from that.
+- When I left Maine, I always wanted to be a working actor. I never cared too much about being the star. I just wanted to do the work and get on with it.
+- I look forward to a time when my career in a place where I can get out of Los Angeles and find a nice small town like I grew up in to raise my family.
+- Nothing else matters so much as long as you can come home and be with your family.
+- I love having a big family. I think it's easier, oddly, in some ways, having three children as opposed to one.
+- I think dreams can come true, but not necessarily like fairy-tales. It's not always so perfect like that.
+- If biking is your passion, set aside time to enjoy a good ride.
+- And, sure, if you have a political point of view, you have every right to share it. But you have to be careful not to get too self-important. You have to find the balance between being entertaining and being preachy.
+- With bikes, it is absolutely the case that you will get what you pay for. Invest in quality so it will endure wear and tear.
+- I think TV is much more the writer's medium and film is about the director and their vision and how you can collaborate with them and see that through to the end. They are so different.
+- My wife and I try not to get into each other's work too much.
+- The hardest thing about having three kids is trying to find a balance, because there's always the odd man out, and you also need to make sure each child gets the attention he or she needs.
+- I started off as a juggler. I used to do a half-hour show on the weekends to make money as a kid. Then I went to Cleveland, Ohio in 1983 to the international jugglers competition junior division and came second. So that was my first job, being a juggler.
+- Sometimes in television, if there are storylines that are oft-told, people can be hypercritical of them.
+- When you discover first love as a teenager, your whole life revolves around it and you open yourself up to it.
+- The worst part about being married is when you're not connecting. Your partner is going out the door when you're coming in, and you don't have a chance to debrief on the day. That's the worst.
+- Drama is easier to do because you just have to have the emotion and not get caught acting, but comedy is much harder.
+- In Los Angeles, as I gained and lost celebrity, then gained it again, I often found myself wondering why I, out of thousands like me, had become famous.
+- As obvious as it sounds, I strongly recommend shopping at a specialty bike store. They are the experts, and they will be able to help you decide which bike is best for you.
+- Housekeeping is incredibly difficult with three kids. I'm trying to be more relaxed. You'll go insane if you try to have a picture-book house.
+- I grew up in a house full of women. I have two older sisters and my mum who is a very strong woman.

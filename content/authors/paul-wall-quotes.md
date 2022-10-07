@@ -1,0 +1,106 @@
++++
+author = "Paul Wall"
+title = "Paul Wall Quotes"
+quotes_len = "100"
+description = "the best 100 Paul Wall Quotes"
++++
+- I never won any award, ever, except for a Houston Press award, but other than that, I never won an award.
+- I'm a huge baseball fan. Roger Clemens. That's my boy.
+- You might not think that, because I have so many of them, but I'm an absolute punk when it comes to tattoos.
+- To me, one of the greatest albums I ever put out was the album I did with Statik Selektah.
+- If I'm feeling down, I'll fake smile. I'm trying to trick my brain into being happy. It might work one out of 50 times, but I'm getting there.
+- When you're trying to do something because you're trying to stay relevant or it's the thing to do, then it's a chore. But when you just have fun with it, then it's fun.
+- You want to be able to trust somebody's word.
+- When the work stops the success stops.
+- I do my music for the people, for the fan base, you know they're the one's that keep me going and keep me motivated with it.
+- You know, coming from a broken dysfunctional family, you know, it's something that I always aspired to be - a good husband and a good father.
+- Shout out to the greatest of all time, Eminem. Definitely appreciate the love... He gave me a few over the years.
+- It's great to have an album like that get love 10-15 years down the line.
+- Hot Boyz always shouted out a lot of things relevant to Texas so I connected with it. They were our neighbors and growing up we went to Louisiana every year for Mardi Gras, Bayou Classic and the Essence festival, so we grew up taking trips to Lafayette and New Orleans. Those were three annual trips.
+- I always been a know-it-all and I think I've learned to have more of an open mind.
+- The groupies, they been around since I was 16, that's when we started off doing the independent thing. I've grown up now, I'm a man, so it's time for me to make man decisions in my life so that's what I'm doing, and just jumping over that broomstick and tying the knot was one of 'em.
+- Anytime you get tattoos, you can't go wrong with 2Pac quotes.
+- When I fell in love with music, particularly hip-hop, I listened to it in the car. In Texas, you've got to drive, and sometimes you wanna listen to something good. Not something that's loud with a bunch of screaming for two minutes. That's a different type of music.
+- Social media has brought the whole world together, and that's good in some ways and bad in others, because a lot of the individuality that we all had, everybody shares it now.
+- I just try to live my life as who I am.
+- I've always been adventurous - my wife calls me 'the Hip Hop Crocodile Hunter' - if you can survive in the hood, you can survive anywhere.
+- I'd like to team up with somebody like Willie Nelson or Ray Benson.
+- I linked up with Swishahouse when I was 17 or 18, and was a child through most of my first few records. The music wasn't childish or corny but you could see it was from a place of a child - somebody that was a little more ignorant or ratchet. Now that I have kids, there's a bigger sense of responsibility.
+- You can spend $200 or $50 for tennis shoes - it's about what you can afford.
+- I don't think being white defines who I am.
+- I always knew that if I built my name up as an entity, that would be bigger than me just rappin'.
+- All my friends are fat.
+- I was morbidly obese, 120 pounds overweight. It was just embarrassing. I'd be on stage feeling like I was about to collapse. I'd get dizzy spells.
+- The notoriety you get from when your song is on the radio versus when your song is on a mixtape is two completely different things. And when you get a song get big enough to where it gets played on two stations at the same time in the same city, you're like, 'Damn!'
+- Some people will come up to me and say, somebody stole this from you flow-wise. I'll say I gave it. Who am I to be a gatekeeper? Anything I did, I'm giving it to the world.
+- People always tell me I'm an anomaly or an outlier. I'm just me.
+- Now that I got a son, it encourages me to work even harder.
+- I was hustling out of shops kind of doing, selling music out of my trunk, selling grills out of my trunk, too. And then I teamed up with Johnny Dang, he was the local, the grill man who made them for the dentist.
+- Family means the most to me. To me, that's the life I chose, that's the life I wanted, that's the life I dreamed of. Of course, I want cars, jewelry, a nice house and all those type of things, but the key values to me, is growing and being in a partnership, a family.
+- I get distracted easily.
+- When my mom grew up, her father was in the military so she grew up all over the world. She lived in Germany, Jerusalem, Switzerland, all over.
+- Music's supposed to be entertaining. But there are different types of entertainment.
+- I always felt like I could hold my own with anybody, period. And I always have strived to do my best.
+- We sell a lot of jewelry, not just the grills. We got a whole line of watches, me and my boy Johnny Dane.
+- I started hearing things about aluminum in deodorant and other things like that. And it be so hard when you try to go to the store and find deodorant and it might not have aluminum, ammonium, but it might have all these other things. And it's like, how do I know what's good and what's not?
+- I think bad breath is... just hard to get past. Someone with just horrible breath, yeah. I'm not talking about just onion breath. I'm talking about you been brushing your teeth and using the mouthwash and it still smells like you've been tongue-kissing the toes of a gorilla - that's horrible.
+- With Houston, the H stands for 'hustle.' There's a billboard that says, 'Houston, hustle, heart, and home.' That encompasses Houston.
+- It's just amazing to see that when you get over your own inner demons or jealousies you have, it's amazing to see what can come of it.
+- I've never really broken up with somebody before. I've been broken up with.
+- People get caught up in making music with a trend. You're time stamping your music and I'm guilty of it to. But, I want to make music where five, ten years from now it brought back a memory or brought an emotion out of them they want to feel.
+- On every verse I do, I'm going to try to improve myself in some type of way.
+- If I meet somebody and I'm like, 'Hey, how you doing?' And you give somebody a hug, or a half-hug, and they stank and it rubs off on me, that is contagious 'cause I'll be smelling like roses and then it's like, 'Wait a minute.' I'll change shirts and I'm still funky.
+- When I was growing up, white people made fun of me. So it was always strange to me as I would gain prominence in hip hop, white people kind of accepted me more and they would talk to me more. It's so weird to me, growing up, thinking about that in my life. It really is a complete change.
+- I love to watch baseball in Fenway Park. They have an awesome energy there.
+- My wife's a real big country fan. One time, we were driving back and forth from L.A. to Houston, and we wrote a country song together.
+- I just like making music. Record, record, record.
+- I just want to be an artist. I like making music. I don't want to be the one tryin' to figure out how we're going to market the album.
+- There's health risks in anything, even if you're just drinking soda or drinking lemonade! If you drink too much lemonade you drink too much sugar and you could get diabetes.
+- I'd be on the airplane and have to ask for seatbelt extensions.
+- My career will come to an end like they all do. I know how this business works.
+- Don't be so quick to turn your back on people who are fighting things. You need to be there for them.
+- Honestly, I personally would prefer to have my name not mentioned alongside codifiers, like 'white rapper' or things like that, because the codifiers I like are Texas rappers. If you were to compare me to Lil' Keke or the people that really inspired me, like UGK... In my mind, that's who I think I should be compared to.
+- I felt I had to earn my way. I had nobody to support me.
+- Whenever you ain't afraid to grind and ain't afraid to put in that work, that's a hustle, man.
+- I had always told my people, 'If you set me up to get 'Punk'd,' I ain't never speaking to you again, because you aren't going to have me looking like no fool on TV.'
+- Whether it's in the streets or its a nine-to-five, you can be hustling in many different aspects.
+- Swishahouse, it started off as just a crew making mixtapes and that's when I got down with it back in like 1998. It wasn't a record label at first. It was all just for promotion, for fun, and we just had a crew representin' for our hood.
+- To be able to do a song with Kanye West and then a video with Hype Williams who directed the video, that's a highlight of any artist's' career.
+- Having traveled a lot outside of this country, I've had a lot of vaccines and shots to go to different countries.
+- We always joke about how I'm on the road and they'll be like, 'Man, you need to take a shower.' Nah, it ain't Saturday. It ain't Sunday. I take a shower once a month. Nah, it ain't that bad. You know, baby ain't gonna handle that. My wife is not gon' handle that. She's not gon' have me walking about the house stankin'.
+- I know for me, I wanted to prove everyone wrong and prove that I could make it on my own.
+- When you see Paul Wall, I'm always going to be the same person. I might have on a new grill, I might have on some new jewelry. I might've put on some pounds, I might've lost some pounds. You never know.
+- I definitely try to draw from the positivity.
+- A lot of the jewelers - not that they're not good people - but they're hustlers.
+- I went to Kuwait, Baghdad, you know all through Iraq. I went to Qatar, Afghanistan.
+- I've always tried to find a silver lining. I've always been a glass is half-full kind of person.
+- I'm not really interested in rappers who talk about rap. I don't talk about it, and I don't like listening to other people talk about it. So I stick to the things that I know. You know, things like cars, ultimate fighting. I have a lot of songs about cars, because they're a big part of my lifestyle.
+- Helping teach my son right from wrong, what to do and how to be a man, just about life in general, same thing with my daughter, it's just very important to me.
+- Me and Ron C, I was cool with a lot of his family. We went to church together and one of his cousins, B Sight, that was my boy. We had a couple jobs together matter fact, we used to get down, he gave me the nickname Paul Wall. For some reason he just always called me that.
+- The surgery I got is called gastric sleeve.
+- Houston isn't about a you or an I or a me, it's about a 'we.'
+- I kinda washed my hands of him. I'm not worried about Mike Jones. I don't wish no bad on him and I don't hate him, but I've got to move in my own direction.
+- I used to, but when I stopped... It's something you gotta get out your system. But when I stopped wearing deodorant, I stopped getting as funky when I sweat. I don't know if it's just a hormone thing.
+- I never felt like I had a lack of talent.
+- I was Overflow. Another one I had was the Caped Crusader. Chamillionaire was Payroll. That was our group back then, Payroll and the Caped Crusader. We grew up on the same street so we lived a few houses down from each other. So we knew each other pretty much all our life.
+- There's nothing wrong with changing at all. But at your heart, you just got to stay true to who you are as a person, to who you always have been.
+- I started off doing street team work for No Limit and Def Jam. I was the waterboy, the scrub. I was passing out demo tapes, and nobody wanted to hear them.
+- I followed the footsteps of Scarface, Willie D, Bushwick Bill, Big Pokey, Lil Keke, Fat Pat, Big Moe, and Slim Thug. Those are the people who I was following behind, not the white rappers who came before me. No disrespect intended, I just didn't follow that lane, I followed this one.
+- You don't realize when you're younger that how I treat this person coming up to me will affect their view of me for the rest of their lives. You can lose several fans because that one person will tell all the rest of their people about it, or they could be like, 'Man, that dude was cool as hell.'
+- When I was 12 years old, I met Bushwick Bill at the Houston Airport. He was by himself and with a whole, big ole thing of luggage - about 10 people worth of luggage. He was just sitting there by himself, asleep, knocked out at about noon or one in the afternoon. Me not knowing no better, I walk up to him, wake him up like, 'Man, you Bushwick Bill?'
+- I try to keep an open mind - not knowing it all.
+- I used to have this jersey, it was a Kenyon Martin jersey, with a little grease stain on it, I didn't think anyone else could see it. I looked down to my jersey and I was like, 'OK, I'm good.' Next thing I know I'm seeing all these pictures of myself with a big ol' grease stain.
+- I want to be here for my kids. I don't want to have a heart attack.
+- I really didn't think it was possible because there was really no one from my neighborhood that I knew or saw that made it successfully as a professional rapper. So it was like, OK, I don't know if its even possible.'
+- Sometimes you're with a producer who just makes beats and you can kinda do your thing to whatever beats they come up with. But sometimes you get with a producer who really produces you and the music together, not just the beat then you can kinda throw in your ideas and vibe off each other.
+- There's a lot of culture vultures out there taking our culture down here in Texas.
+- It don't matter how many rallies or protests I go to. It don't matter how many songs I make spreading positivity or sending a message. It don't matter how much time I spend within the community. It don't matter that I have a black wife. Being a white person in America, you represent being a benefactor of slavery of what this country was built on.
+- I take a lot of pride in being from Texas. I love all parts of Texas - even the things I hate about Texas I love.
+- Ninety percent grind, 10 percent sleep. That's our motto.
+- Gold teeth was just something that was popular down in Texas and around the country for a while. Growing up, it was something that you would do. You get a gold chain or watch, or grill, it was a status symbol. Like a trophy: I made it, or I made some money.
+- I'm gonna rap the same whether I'm white, black, or Hispanic, I'm still gonna be me.
+- Dallas is more in line with mainstream America. But Houston's farther down on the map where it's a little different. I think it's the slowness of our culture, how we move slow. It's hot in here, you know. We got our own culture, our own slang, a little bit our own way of doing things.
+- Trends are trends. They come. They go. I just do what I do.
+- You can look in the mirror and try to hide it and cover it up, and it may work here or there, but there ain't no shirt or hat you can put on or haircut you can get to hide the fact that you're morbidly obese.
+- We got the strong hustle, the strong grind embedded in us since Day One.
+- It never crossed my mind that I was the white guy rapping. I was best friends with Chamillionaire and whatever he did, I did. If he rapped, I rapped. It was something we did for fun at the track meets or basketball games. Or get in these freestyle cyphers with other schools. Me and Cham rapping together.

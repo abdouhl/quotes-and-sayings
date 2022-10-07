@@ -1,0 +1,97 @@
++++
+author = "Shirley Ballas"
+title = "Shirley Ballas Quotes"
+quotes_len = "91"
+description = "the best 91 Shirley Ballas Quotes"
++++
+- Ever since I was a little girl I always wanted to be so perfect.
+- Ballroom is a man's world. It's tough for women, particularly single women. But I've never expected life to be anything but tough.
+- My favorite room in my house is my bedroom; my private space where I can go to do my reading or listen to music.
+- I thought I'd have this fantastic bust and everyone would look at me and think I was amazing. After the operation I did feel fantastic: I'd put a bra on and I had a cleavage.
+- I don't like the darkness and sleep with the light on.
+- You have to put your partner and family at the top of the list and there must be downtime - time for gardening, cooking time, book reading time.
+- For years Corky was what I call a jokester. He'd tease me with things like, 'You've got breasts like two currants on a breadboard' or 'You've got a sunken chest like a pirate's something or other.' He didn't like my teeth until I got braces at 25. It's like a little pickaxe that goes, chip, chip, chip, until, in the end, you think you are ugly.
+- I definitely lack in self-esteem in my personal life.
+- I haven't got a green bone in my body. I have not got a jealous streak of any type at all.
+- 'Strictly' was my first job in TV ever.
+- On Twitter one lady said, I've seen corpses that look better than Shirley.' I saw the picture she was talking about that Comic Relief had posted and I thought, Well yeah, she's got a point.'
+- I have a little piece of extra skin - a good inch - on the end of my chin that I play with like Silly Putty.
+- I don't want to go into a relationship that can't go anywhere.
+- I don't think anyone should assume anything about someone else's life.
+- What I like to do when nobody's watching at home is, when I have my shower in the morning, I listen to music - my favorite group is Alexander Jean - they wrote a beautiful rumba called Paper Planes.' So I do my little rumba moves while I'm washing my hair.
+- I love to work but just as important is the time that you spend with your family.
+- It was scary to move to the U.S.
+- I always felt in my life I had something to prove. To myself, and to anyone who ever said I wouldn't amount to anything.
+- I'm quite a softie really.
+- If it's good-looking men you're after, the place to go is Italy. Every Italian I've ever come across is handsome.
+- I just remember one girl really getting me on the field and beating the holy crap out of me. I never to this day know why. And then people used to be funny because we were on welfare. People used to make fun of you. But I used to get school dinners so I thought it was great, I got a hot meal every day.
+- If I could go back to my younger self, I would never have had the implants done. I feel relieved and I feel proud for removing them now.
+- Without a stable mind, it's difficult for anything else to function.
+- There are always some people that like what you do and there's always going to be some who don't like what you do.
+- I've discovered if you have a small circle of people you know you can rely on - in good times, bad times, happy times, sad times - who aren't going to judge you and will, sometimes, just sit and listen to you without saying anything, then I think you're very fortunate.
+- I was engaged at 16 to Nigel Tiffany and he's now my financial adviser, so we've been friends all these years.
+- When I met Corky, he was a cook, a chef. He never started dancing seriously until he was 21, which shows you can make it from any age.
+- When you are part of a massive TV show like Strictly,' it's not just about the professional dancers and celebrities taking part, there could be young or old people out there who are watching and they might also be inspired to take up dancing, and I find that so special.
+- People get embarrassed about admitting they feel low but you can't help the way you feel. Which is why exercise, taking vitamins and having time out for meditation are so important.
+- Riches and fame don't come close to having family members and close friends who really care for you.
+- I'm not a judgmental person because I have been judged all my life.
+- My whole life I've never felt, as a female, I was up to scratch.
+- For Strictly,' when you go out on a Saturday, you want to look your best for the public. I can't go out there in my jogging bottoms.
+- I am not a Suzy Homemaker.
+- I've been in an industry of glitz since I was a little girl. I'm always going to love to wear eveningwear and eyelashes.
+- I was a fan of Meghan's before she met our gorgeous Prince Harry. I loved her in Suits,' I admired her work ethic and her charity work, and I think she is such a breath of fresh air.
+- If I was in a relationship again it would have to be with somebody that really cared about me, who was kind, caring and loving.
+- When I married Sammy, my first husband, we were both just so young. But I've had a hugely successful career and I owe a lot of what I learnt in the industry to him, because he was already a top professional, and I was a nobody, really.
+- I am an absolute clean freak and scrub things constantly; I am an over-perfectionist.
+- 'Strictly' is so loved by the British public, I have always been a massive fan.
+- What I've learned is Twitter is only a bubble - take it with a pinch of salt.
+- I didn't overly have friends in L.A. I would work and come home and watch television.
+- It's not about what somebody else thinks about you, it's about what I feel like in my own clothes in my own skin.
+- I like the table to be beautiful with flowers and a nice tablecloth. I'm the hostess with the mostess.
+- I love ballroom dance, my favorite style being the Argentine Tango.
+- A tradition I have on Christmas morning - my son has always been the one that cooks the breakfast and I am always the one in the evening attempting to cook the beautiful Christmas dinner. And during the day we just have a nice snore, a nice relax and watch a movie.
+- You know when you go into a room there's always somebody that thinks they're better than somebody else.
+- There was some bullying going on in my industry, which I felt particularly when I was growing up and as I got older.
+- When I was with my second husband, I'd always paint my nails and go to bed with my make-up on; he loved all that.
+- Curvy women are gorgeous. All women are gorgeous.
+- If you use your time well and you have your health you are already a millionaire and everything else is secondary.
+- When I moved to L.A. I was single and didn't want to be on my own.
+- I decided to learn how to cook and cook I did. And I ate it all - and everyone else's food too.
+- My mother collects engagement rings.
+- I'm the happiest at home when I get a visit from my daughter-in-law, BC Jean, and Mark Ballas, my son. They'll pop round for breakfast or I'll attempt to cook them a meal. That's the most special time for me.
+- Don't do what I did and think you need to have these procedures to make you look more attractive. Don't look at the implant and think it will make you beautiful and everyone will really love you.
+- My dad left when I was two and I didn't know too much about his family.
+- I will never take any work or shopping for granted.
+- It doesn't seem very long ago I was a girl from a council estate with nothing but dreams.
+- The first thing I do in the morning is pick up my cell phone and call my mother to check that she's ok, and the first thing I do in the evening is call my mother to see how she's doing, and my son to see how his day went.
+- I met my first dance partner when I was about 17 or 18 and we were married by the time we were 18 or 19, I don't remember the exact date, and everything was dance, dance, dance. Then there came just a short space of time where I was wondering whether I was missing out on anything. Back then when you danced, everybody married their dance partner.
+- I've had cancer cells removed from my womb several times.
+- I'm paranoid about mosquitoes.
+- I think I was always driven because I came from absolutely nothing. I was that piece of rubbish from a block of flats on a council estate.
+- I had breast implants done to save my marriage. It was the sorriest day of my life.
+- My mother raised two children on a housing estate, in a place where people said once you got on, you never got off. And she believed in me. So when people tell you that you can't, you can.
+- It isn't until you're at peace with yourself that everything about you is beautiful.
+- People seem to think that, by the time you hit 45 or 50, you might as well just pack it in and call it a day.
+- One of the things people learn with me is I don't need to pull someone else down to build myself up, and I will live and die by that rule.
+- I am terrible at remembering names.
+- I'm a person who likes to live in the moment because yesterday's gone and tomorrow is promised to nobody.
+- I know that my great-grandfather - George Rich - was born in Cape Town in 1866 and it set my journey off to go to Cape Town to discover and find out more.
+- I think dancing was a way of showing your femininity and, through the years, your strength, because it's a male-dominated industry.
+- How many years did I waste worrying about the way I look? I'm almost 60 and it has taken me all these years. Don't wait until you get to my age to realize that you are beautiful.
+- It's important to show your gratitude for where you are in your life and for those around you.
+- I'm proud of winning the British Open in 1983 when I was very young.
+- As a child I was always busy, always throwing myself into something, whether it was the Brownies or a play at school.
+- Aside from dancing, the biggest and proudest moment of my whole entire life was when my son Mark was born.
+- My mum has taught me that the clock is ticking and you have to enjoy every moment - you can not replace time.
+- I'm such a perfectionist that I see every mistake that I make.
+- When I got the Strictly' job it made sense to come back to England.
+- No one wants to see my bits jiggling.
+- I've had a lot of trolling on Instagram, things I can't even repeat on air. The biggest shock was when it was hand-delivered to the Hippodrome theatre before I went on air. Hand-written.
+- You can't make somebody love you, no matter what you do to yourself. You can get implants, you can get all these procedures, thinking you will be more of a woman for that person. But it does not make a difference. If they don't love you, they won't no matter what you do to your appearance.
+- When you get to my age, 59, the thought of getting the Latin dress and the Latin shoes on is a bit worrying. Your heart and your mind is always willing, but sometimes your body just says What are you doing?!'
+- I don't dwell, I'm not a dweller. I just like to keep moving forward, because life is short.
+- I meditate and take time for controlled breathing.
+- My hairdresser Alan, who I've known since I began competing, lives with us, along with his husband Nathan, so I have my own gay gaggle.
+- For 50 years of my life I never weighed myself at all, I would go by how my clothes fit, but I was back in England to take care of my mother while she was getting better. The pounds crept on and I got a little bit nervous about it.
+- When I first went on Strictly' I had a little phase at the beginning, you know, when I was sat next to this really beautiful lady, Darcey Bussell - this ballerina, this Snow White beauty - that I stopped eating until I looked at myself and realized I looked so gaunt.
+- I am self-critical and always have been.

@@ -1,0 +1,52 @@
++++
+author = "David Slade"
+title = "David Slade Quotes"
+quotes_len = "46"
+description = "the best 46 David Slade Quotes"
++++
+- As a director, you have to go in with a really, really, really clear picture of what you want.
+- Married life suits me.
+- I'm a big fan of horror movies. But I prefer visceral to viscous, let's just say that.
+- Films are pushing envelopes in terms of what is horrific, but also on other areas: in video games, in comic books and outside life.
+- On one level, this was the biggest challenge out there - to make a film of this scope, in this amount of time, and to go into a different genre, essentially. Yes, I've done a vampire film, but 'Eclipse' is a very different kind of thing. This is a romantic story, which swings from a darker, more abject feeling to very pure romantic scenes.
+- It's good to know where you've come from.
+- I think it's a mistake to try and overthink how you are going to be received, because that assumes that you are going to be received in the first place.
+- I really appreciate gory movies.
+- I'd love to make films in England, and I tried to. I think there's a wealth of amazing talent and astonishing writing over here; there just seems to be more of a culture of developing films than actually making them.
+- To get the film in your head on the screen, first you have to take it out of your head and explain it to everyone who is working with you. This will take work and planning.
+- I think, as a filmmaker, you're always responsible for your film.
+- When you are doing music videos through the '90s, which I did, and the 2000s, you were put in the position, really, as an independent filmmaker. You were being financed by a major record company or a minor record company or whatever.
+- Certainly there is a lot of collaboration, but there is also a lot of clarity that has to be had in the vision that you have for the film when you come in as the director. Without that, there's no bullseye to be aiming for.
+- I thought, 'Who is the first vampire ever? It's Peter Murphy!'
+- I don't like doing the same thing over and over again, because I learn from being challenged.
+- I think filmmaking is largely about preparation and taste and luck. If you have all of those three things, I think you will find you can work somehow.
+- I believe that filmmaking is a brilliant thing to do - be doing - for a living.
+- Francis Lawrence is an astonishing filmmaker, an incredibly gifted visual filmmaker. I have great respect for his work.
+- What attracted me to 'Eclipse' was that it is a great story and a tremendous challenge for me as a filmmaker.
+- I think if you have too much fear, you're never going to break ground or develop.
+- As a director, it just makes my life fantastic to work with people like Elizabeth Hawthorne.
+- Film will always be my main focus, but designing and publishing my own work is something I will also always do.
+- Appreciate good coffee when it's available, but drink whatever they have on set and always say thank you for it.
+- I think it's really difficult to justify converting a film that wasn't shot in 3-D into 3-D. I really do believe, as does James Cameron and all the people who are actually pro-3-D, that you have to go out and shoot it that way. You have nothing but compromise if you don't.
+- It's funny: I rarely reference anything, and I'm one of those people that doesn't really spend much time in other people's worlds. I just try and create my own and make it as distinctive as I can.
+- My agent and manager would sternly tell me exactly the number of projects that we've turned down at this point. But, I think it's really important to do the right thing next.
+- There's so much burying of heads in sand going on in the U.S., people are finally beginning to recognize that the environment is dying, but it's far too late, and I am conflicted.
+- The vampires of '30 Days of Night' never really came into discussions early on. They did later when we were trying to figure out the pathology of the 'Twilight' vampires. '30 Days' is a completely different film. If you are a kid, please ask mum and dad before you watch that one!
+- When I got the script for 'Eclipse,' I thought it was a damn good story.
+- 'Twilight' was a cult film, and the books were huge, but after 'New Moon,' it really blew up.
+- With 'Cold Skin,' I believe we can create a lasting psycho-physiological horror film. It is one of the most atmospheric, terrifying, cinematic, and original stories of the human spirit.
+- I look for challenges. I really do.
+- I feel like I'm in a weird state, and I wake up in Hollywood, and I've got a couple of studio movies underneath my belt, and I take these meetings with people. Sometimes it's this great, weird sense of oddness that comes at you, because I've never really stopped thinking the way that I started thinking.
+- Film is always a fight because you're the person, as the director, with a clear picture in your head of what you think is really exciting, and you're just trying to convince a bunch of other people to buy into that.
+- Being able to communicate what your vision is clearly and with specificity is the most important thing a director can do.
+- I think that the most important thing we have is our ability communicate and love other humans.
+- Suspense is a real tough beast in terms of the filmmaking.
+- I believe the most interesting thing to look at in the world is the human face, so that is why I tend to be a little closer to human faces than maybe other directors will be.
+- Computer-generated monsters - people shoot them all day with videogames, you know, so kids aren't going to be afraid of that. People are getting immune to scares.
+- I don't see myself as particularly highbrow. I am much more populist.
+- Make the film that you love. When you find a film that you love, every molecule of your being will be moving in the direction of making the best film you can possibly make. This should be your default mode of operation.
+- Film becomes a living organism. After awhile, it begins to tell you what it needs, and you're usually best listening.
+- Here I was, having done a thriller and a horror movie - why did I have the audacity to make a romantic fantasy? How can I continue to make genre films? Well, maybe I don't want to continue to make genre films.
+- Personally, I have nightmares about the unstoppable monster.
+- I don't do commentaries; I can't listen to them, either.
+- When I was doing music videos, everybody was very snobbish about music video directors doing commercials. It was all guys from ad agencies.

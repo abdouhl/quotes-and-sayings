@@ -1,0 +1,27 @@
++++
+author = "Emma Caulfield"
+title = "Emma Caulfield Quotes"
+quotes_len = "21"
+description = "the best 21 Emma Caulfield Quotes"
++++
+- I definitely gravitate towards quality genre projects and genre of any kind whether it's science fiction, horror or really anything. I'm just drawn to quality. I don't think 'Darkness Falls' is horror; there isn't any gore by any stretch of the imagination.
+- For a while now I've had this feeling that there's something that I'm supposed to be doing or something that I'm supposed to contribute. I don't know what that is yet, but it's been plaguing me - like I've missed my calling somehow.
+- I've never considered stand-up. Luckily I'm given great lines to say. I'm not sure how great my timing would be if I actually had to come up with my own jokes.
+- I don't get a chance to do many of my own stunts on 'Buffy' - none of us do. We have amazing stunt people who make us all look really believable and really good.
+- I think my strongest suit is comedy. I certainly have limits in other areas.
+- The best advice is to take it easy, respect speed limits and do not try to make up time lost in the tailbacks on the open road.
+- I'm a huge science fiction fan.
+- We love having the freedom that we have with the web; I mean, we don't have to answer to anybody. We have complete creative control; we don't have to worry about FCC regulations.
+- There's no adventure in knowing the outcome of who you're supposed to be with.
+- I'm very passionate about animals.
+- I think my worst nightmare is standing up in front of a group of people.
+- I find that when I'm ready for something to end, I transition quickly. But when something ends before its time, I find it hard to move on.
+- I'm a huge fan of 'Community'; it's, I think, one of the most brilliant comedy on television and has been for a long time.
+- Sunday is my favorite day.
+- I'm a big fan of being scared I like being scared. I like being involved in a film that will make audiences scared, that intrigues me.
+- Bandwagon and all that it is is such a huge passion of mine. We're already bouncing around ideas for season three, what we would call our golden ticket, in terms of a celebrity we would pair up with. We have a few in mind, and a few topics.
+- I don't really care if people get upset. I think I'm doing my job if people get upset; I want them to think! We all want them to think, hopefully.
+- I had no interest in being your basic vanilla girl. I've been lucky enough that I haven't had to play that.
+- We're far more defined by our mistakes than the things that we succeed at.
+- No matter how successful you get in Hollywood, you cannot rest. Your new movie doesn't open well; they're looking for the next person to replace you; it's always something. You never have true peace.
+- I think talking about one's love life is always... It's a Pandora's box, best kept in journals.

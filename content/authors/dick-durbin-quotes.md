@@ -1,0 +1,118 @@
++++
+author = "Dick Durbin"
+title = "Dick Durbin Quotes"
+quotes_len = "112"
+description = "the best 112 Dick Durbin Quotes"
++++
+- Having billions of dollars immediately available to plug budget holes without raising taxes is very appealing. And to the delight of Wall Street investors, state and local governments often fail to ask the important questions or consider the long-term impact.
+- Those of us who believe in God and those of us who have dedicated our lives to helping others in the name of God don't want to take a second seat to anyone who is suggesting that one word out of the platform means that the Democrats across America are godless.
+- It is unacceptable that disabled veterans in Illinois rank at the bottom of the list when it comes to disability pay. We owe our disabled veterans more than speeches, parades and monuments.
+- There is no room for legal hair-splitting when it comes to the humane treatment of detainees - not in a nation founded on the rule of law and respect for human rights.
+- Everyone, regardless of the mode of expression, has a constitutionally protected right to free speech. But when it comes to freedom of the press, I believe we must define a journalist and the constitutional and statutory protections those journalists should receive.
+- You know, the purpose of reconciliation is to avoid the filibuster. The filibuster is an effort to talk something to death.
+- This city of East St. Louis needs a tomorrow.
+- Like so many large companies in the U.S., Monsanto has prospered in large part due to U.S. taxpayer-funded programs and services.
+- The notion that a company would give up on this nation to get a tax break isn't going to sit well with the American people.
+- We all make mistakes. But I'm lucky. Being from Illinois and from the Midwest, we believe in pretty basic fairness. Once you've made a mistake, get up, dust yourself off, and go to work.
+- I'm confident ITT will get what it deserves.
+- There are only two honest ways to reduce our debt: cut spending or raise revenues.
+- We don't give up on our values, but we better be sensitive, too, that there are people with more moderate views and people who may disagree with some parts of the Democratic platform as they are presented.
+- We will have health care reform in America.
+- Magazine clips with more than 10 rounds should be prohibited from civilian use.
+- We believe that there are aspects of border security that Democrats and Republicans can agree on.
+- As a public official, when I take a position, I stand up to explain and defend it. I file annual financial disclosures, campaign finance reports, and have to face the scrutiny of public opinion.
+- More people working and paying taxes reduces government expenditures and helps us move a little closer to balance.
+- If we do nothing, as the Republicans suggest, we're going to see health care costs reach a point where small businesses can't afford it and families can't afford it. We're going to see people turned down from pre-existing conditions. We're going to find the Medicare doughnut hole - a gap in coverage that's going to hurt a lot of seniors.
+- Before I was elected to Congress, I worked in a courtroom. For years, I defended doctors and hospitals, and for years, I sued them on behalf of people who were victims of medical malpractice.
+- We don't want to see the government shut down.
+- I really believe in the people of this country.
+- Our party is a diverse one, as is my home state of Illinois.
+- These are men and women who are willing to risk their lives in defense of their country. And the fact that their orientation - sexual orientation's been held against them is a blot on our nation's reputation.
+- We've had enough with the gun traffickers and straw purchasers who buy guns out of state and sell them out of the trunks of their cars in Chicago.
+- It is tough to run for public office and face an opponent, to decide on issues what is the best thing, then face the criticism from colleagues, voters, the press and defend yourself.
+- Osama bin Laden is gone. The war in Iraq is over. Afghanistan is coming to a close.
+- We've had enough with the gun shows where you can buy from private sellers with no FBI background check.
+- Across the VA's system in our state, the wait times are entirely too long on average.
+- I'm disappointed in Burger King's decision to renounce their American citizenship. I call on companies currently mulling this tax dodge to reconsider and on Congress to protect U.S. taxpayers from more of these schemes.
+- There is no question that the federal government sometimes overdoes it in issuing rules and regulations.
+- We ought to deal with Social Security in a separate conversation that is not part of deficit reduction.
+- We happen to believe that emissions going into the atmosphere are not good for us as humans or Mother Earth.
+- 'Stand your ground' laws based on the ALEC model have had harmful consequences and need to be reconsidered.
+- It simply isn't fair for senators to cut to the front of the line when seniors around the country have been forced to wait for hours to get a flu shot.
+- When you're talking about long-term deficit reduction, $4 trillion worth, entitlement reform needs to be part of it.
+- DACA, to me personally, and the DREAM Act are very personal and mean an awful lot.
+- Let me tell you the first president to recognize the state of Israel was Harry Truman, a Democrat and every president since, Democrat and Republican, has stood closely with Israel.
+- I've been impressed with Rick Guzman and his commitment to the residents of Aurora since I first met him many years ago.
+- Social Security is the most important social program in America.
+- Chairing any Appropriations subcommittee is both a great honor and weighty responsibility.
+- I stood respectfully as Ronald Reagan was sworn in to his second term though I disagreed with him on many issues. I stood as well for the inauguration of George W. Bush's second term though I thought his war in Iraq was a tragic mistake.
+- When Senator McCain reaches across the aisle to find Democrats to support efforts to make America stronger, he finds plenty of us standing, willing to help him and many other Republican leaders.
+- I don't disagree with Senator McCain when he talks about the earmark process.
+- Unfortunately the Republican tax cut will deny important revenues to many states facing their own deficits. This will create greater pressure for higher state and local taxes.
+- A journalist gathers information for a media outlet that disseminates the information through a broadly defined 'medium' - including newspaper, nonfiction book, wire service, magazine, news Web site, television, radio or motion picture - for public use. This broad definition covers every form of legitimate journalism.
+- We must institute reasonable, common-sense limits, such as barring those with a history of mental instability, those with a history of violent crime or adjudged dangerous and subject to restraining orders, and those whose names have been placed on a terrorist watch list from owning weapons.
+- If we can get back to where I can earmark money to bring it home to Illinois... to make us a stronger economy, I'm going to continue to do it.
+- Until we make campaigns affordable, then we're going to have too many members of Congress out rattling the cup with special interest groups.
+- I want to continue to serve as whip of the caucus.
+- Instead of incentivizing quick, short-term decisions, the federal government should be asking the tough questions when governments turn over publicly funded transportation assets to for-profit operators.
+- Any reports of animal cruelty should be thoroughly investigated and those operators held accountable.
+- We borrow 40 cents out of every dollar that we spend. We borrow most of it from countries like China. They have become major creditors of the United States and have more power over our economy than we want them to. So dealing with this is not only the right thing economically, it's certainly right from a moral viewpoint.
+- Personally, I would counsel any woman who asked, in my family, to do her best to carry the child full term, and I'd try to help. But I do believe the government should not prohibit a woman from making that decision.
+- We need to provide support to those that are fighting ISIS. And we can provide that support: logistically, training, intelligence, air cover. There are many things we have already accomplished successfully. But the notion of sending in rotational troops, as we saw in Iraq in the past, and in Afghanistan, I think we have learned our lesson.
+- Millions of Americans take vitamins safely every day, including me. Vitamins and mineral supplements taken in recommended doses are safe. It's the designer supplements that are worrisome.
+- I think for all of us who call East St. Louis part of our heritage, we want to make a better day for the city.
+- No one should be allowed to purchase more than two firearms a month.
+- There is no question that tobacco is addictive and that tobacco kills.
+- Progressives should be willing to talk about ways to ensure the long-term viability of Social Security, Medicare, and Medicaid, but those conversations should not be part of a plan to avert the fiscal cliff.
+- Our laws must be fixed to keep guns out of the hands of dangerous people. We have to keep speaking out for common-sense reforms. If we do, we can beat the gun lobby and save lives.
+- When we engage in the critical decisions about our nation's future budgets, I want progressive voices at the table to argue that we must protect the most vulnerable in our society and demand fairness in budget cuts.
+- It is absolutely unacceptable to single out any political group - right, left, or center - and say we're going to target them. That is unthinkable.
+- We want to move forward in a bipartisan fashion to solve our problems.
+- The for-profit college industry is clearly the single-heaviest subsidized business in America. More than any defense contractor or any farm operation... So many of them are a horrible waste of students' time and of taxpayer dollars.
+- I think we learned a lesson and paid a bitter price when we put troops on the ground on a long-term basis in Iraq and Afghanistan. Let us support a homegrown, indigenous, and locally inspired effort to bring stability to the region.
+- Since 2000, I have proposed changing the Constitution so that our popular vote decides the presidency.
+- Certain classes of weapons that are strictly military and have no useful purpose in sport, hunting, or self-defense should not be legally sold.
+- Reducing and removing greenhouse gas emissions spares our planet from the well-documented degradation that we are witnessing on a global basis.
+- When I hear my friend John Boehner say that we have the best health care in the world, I don't dispute it for a moment. If I were sick, this is the country I want to be in, with these doctors, these hospitals, and these medical professionals.
+- Taxpayers across the U.S. have invested hundreds of billions of dollars building our nation's infrastructure, and that investment should be protected.
+- Borrowing 40 cents out of every dollar we spend for missiles or food stamps is unsustainable. And being indebted for generations to China and OPEC does not make American a stronger nation.
+- Every day seems to bring news about another for-profit college scam. Hundreds of thousands of students have been deceived, misled, and harassed into enrolling at these schools where they end up with a mountain of debt and a worthless degree.
+- Our soldiers deserve better. They need a plan for success. They need an administration that is honest about the costs of war, human and otherwise, and they need full accountability and oversight on Capitol Hill.
+- The swipe fee reform law that Congress enacted in 2010 was a huge step forward in bringing transparency, competition, and choice to a debit card system that had been rigged by Visa, MasterCard, and the banks.
+- Town meetings are not bean bag. I've had hundreds of them, and sometimes folks get upset. And that's part of America, part of our process.
+- Flint is to the lead issue what Three Mile Island was to nuclear power. People are stepping back and thinking, 'There still is lead in my home?'
+- If the Department of Education is serious about fighting for students and protecting taxpayers, a full ban of mandatory arbitration clauses is a no-brainer.
+- Where would Monsanto be without the U.S. farm program and world-class research labs?
+- America wins when the voiceless have a seat at the table, when the vulnerable are protected, and when working families have the same political clout as the wealthy.
+- We can't do much about ensuring that the homeland is safe if our local police and sheriffs' departments don't have the personnel they need to keep our streets and neighborhoods secure.
+- There is no question that President Barack Obama should be commended for the successful removal of Assad's ghastly chemical weapons stockpile. But it hasn't been enough.
+- We need to respect free speech, but we need to respect one another's rights to free speech, too.
+- I'm going to do what is best for the caucus.
+- I urge the Department of Education not to settle for half-measures when it comes to students.
+- Sunlight is better than secrecy when it comes to making laws.
+- We have to really appeal to that sensible center.
+- I prefer Raisin Bran. But I like the Mini-Wheats.
+- You'll never get progress in Washington until you have a majority, bipartisan majority, that really wants to solve problems.
+- Our party feels that we need to have fair compensation, living wage, good benefits, and decent treatment of workers, and that we can do that and still be competitive on a global basis.
+- I have always been critical and skeptical of fast-tracking. It is a take-it-or-leave-it approach to trade agreements which really deals members of Congress and their concerns out of the picture.
+- We've had enough with loopholes in our gun laws that allow dangerous people to get their hands on guns.
+- In July of 2006, I visited the military detention facility at Guantanamo Bay, Cuba. It was important for me to see Guantanamo firsthand and to meet the military personnel who are doing such a great job for our country.
+- We all join the President in applauding the sacrifices made by our brave men and women in uniform. But we must continue to provide them the tools they need to accomplish the difficult tasks they face.
+- I've been out to Walter Reed on unannounced visits. I've seen these soldiers. I've met their families.
+- I enjoy my job, and I will help my state all I can.
+- With every new corporate inversion, the tax burden increases on the rest of us to pay what these corporations don't.
+- God is not a franchise of the Republican Party.
+- Credit card companies and banks usually aren't shy when they're trying to sell you something. Heck, Wells Fargo didn't even bother to ask consumers before signing them up for as many as two million checking and credit card accounts.
+- American businesses and consumers deserve a debit card system with competition, transparency, and reasonable fees.
+- I've known Al Franken for over 20 years. He is my friend. He was on the floor of the Senate announcing his resignation. I sat just a few feet away from him. He said it was the worst day in his political life. It was a somber feeling. It was a reality.
+- If we're going to have tax cuts, let's focus on those in lower and middle income groups. Make sure that they get the breaks they need to continue to try to provide for their families.
+- I've been there; I've been in the minority before. It humbles the exalted. But that's all right.
+- Whether you agree or disagree with privatization, two things are obvious. First, taxpayers need to be asking more and better questions before handing over control of critical public assets like a highway, an airport, or a parking meter concession. And second, Uncle Sam is being played for a sucker.
+- I certainly want to be the whip, and that's an election every two years in the Senate Democratic caucus.
+- You would think that, at this point, with records being kept and the vast amount of knowledge on these drugs, the pharmacists could wave off prescriptions that are dangerous to customers.
+- My wish is to bring the troops home as quickly as possible.
+- The fact is I tried for years to work with the financial industry on reasonable swipe fee reform, but the industry wouldn't have it.
+- In the fast-changing, information-filled world of the Internet, you never know what you might find. Maybe you'll discover a great price on an airline ticket, or maybe you'll come across that quote you've been racking your brain for.
+- When President Donald Trump nominated Judge Neil Gorsuch to serve on the Supreme Court, I said that he deserved a fair hearing and a vote. I said this even though Senate Republicans filibustered dozens of President Obama's judicial nominees and then stopped President Obama's Supreme Court nominee, Judge Merrick Garland.
+- We have to talk about the way we finance campaigns.
+- It is a challenge to all of us, and it's a challenge we need to meet, to make sure the Quincy Veterans' Home is, in fact, giving the best care and the safest care in the state.

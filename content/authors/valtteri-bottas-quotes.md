@@ -1,0 +1,62 @@
++++
+author = "Valtteri Bottas"
+title = "Valtteri Bottas Quotes"
+quotes_len = "56"
+description = "the best 56 Valtteri Bottas Quotes"
++++
+- I always remind myself the only thing that matters is I perform on track and that's all I need to do.
+- There are many people around me, supporting me. There are always ups and downs, and you can really see the true support quite easily.
+- For sure, some things have changed with the way I feel about things, like my mindset and everything. But you always learn every year about your mindset and what works for you.
+- I think I am very lucky to meet so many people and go to cool places and nice events. I am lucky to be in partnership with Hugo Boss and the team so I enjoy doing these events.
+- There were many things in my childhood I sacrificed: I started travelling quite young, compromising school in terms of learning and time with friends doing normal stuff as a kid you want to do. But obviously I wouldn't change a day.
+- It's good to get a good lap and get pole.
+- I know what is best for me.
+- During my childhood my family risked a lot financially. They put every single penny they could into my racing and also their free time was completely compromised.
+- In general, I like healthy foods. Everything that's natural and clean.
+- I've learned that the first half of the season is always very important.
+- I've had a lot of support from back home, starting way back in karting and since then I have been lucky to have been supported by some great Finnish companies.
+- I have plenty of good people around me I can talk to and for me it's the man in the mirror that gives the answers if I have hard times or if I doubt.
+- Every year you learn as a person, about yourself, what works for you and what doesn't.
+- If you work hard it's only a matter of time before things start to go right.
+- You never know. One point can make a difference in the end.
+- I studied to be a car mechanic. That was my plan B. Servicing cars and changing tyres in Finland.
+- I know what level my skills are and what I am still yet to be capable of by getting better.
+- If there are differences in the race pace it is normally because the tyre is overheating on my side.
+- I think with racing, you never stop improving. If you want to improve, you will.
+- What we need to make sure we do as a team is build the quickest car on the grid - if we have the quickest car, we can do it!
+- Racing can still be good even though you don't push others off the track.
+- All the questions, all the speculation, No. 2 driver and so on, it doesn't get to me. It doesn't matter.
+- Let me tell you something, never, ever give up your dream.
+- I can be nice - I don't need to be rude for no reason.
+- Sometimes it would be nice not to be recognizable!
+- When you feel like you are performing at your best, it's a beautiful feeling.
+- It was when I first tried a go-kart in '96. I saw a go-kart race locally, and that got me excited about it, and I wanted to try one. When I got to try one, I just loved the speed and after that it became more about how to improve the lap time and all the details and that.
+- My approach to the race is definitely just trying to win the race.
+- We need to make sure F1 stays the quickest category of all, and GP2 is not that far away, so that's a little bit worrying.
+- We Finns don't show much emotion but it doesn't mean we don't have any.
+- With F1, it's really a combination of many things. You have to have good endurance, good strength in certain muscles, you need to be fast, have good reactions and good decisions. It's not as simple as one thing. You need to be a complete athlete.
+- I always wanted to be alongside a very quick teammate and tough teammate.
+- In Formula 1, the neck is really important. There's a lot of force that's going to your head. We also have a helmet and it's not that light. When it's all about g-force, all of that extra weight in the helmet compounds and puts more and more pressure.
+- I know when I am in the car I am always doing my best.
+- Of course, when you start in pole, winning is the only target you have.
+- You dream about winning since a kid and when you get that first win it took some time to realise it. But once I realised it, it was so cool.
+- How many points, how many races you can win, how many times you be on the podium. That's the name of the game.
+- In this sport if you want to win you need to be selfish, it is that kind of sport, even though it is a team sport you need to think about yourself.
+- When I was 12 there was a big shift in mindset and I realised that if I want to get something out of it then I need to work hard and focus all my energy just for this sport and that's when I started training and taking things more seriously. I became a lot more self-critical and analysed the driving more and more, and that was when I was 12.
+- I honestly think the reason I've been able to improve year by year is work. Work with the team, work with my ability, focus on all the single details.
+- I think Finns in general, we are quite calm and I think we're mentally in general quite strong, and we don't mind to be alone. We are lonely wolves, a lot of us.
+- Of course, there are races that have been boring but overall it's been really good so I'm not complaining.
+- In sport, and especially in this sport, the confidence you get from the results is a massive help.
+- I'm a naturally very competitive person and I've been competing in triathlons throughout 2012 to keep fit and keep my mind sharp.
+- For me, it's just me trying to be the best me I can be inside and outside of the car.
+- Maybe there is something wrong with me as I don't feel any pressure or fear.
+- My goals in the future is to not just be in Formula 1. I want to be really successful, World Champion, though I guess this is like everyone! But that is what I'm targeting.
+- I focus on organic foods and I also don't eat any wheat or gluten.
+- I have found for me, and it should be the same for everybody, that it is easiest just to be how you are. Be the true you and there is no need to act differently. It has always been like that.
+- Improving, for me, is quite natural as I'm always critical of myself.
+- Every athlete, every person is individual.
+- Every time I jump in the car I feel very happy. Racing is what I love to do and I am very lucky I can do it.
+- You never want to be behind your team-mate at the end of the year, that's definitely always going to be my goal.
+- Finns love if their athletes do well, then they support.
+- It's always good to have different plans.
+- When I drive there is not much emotion in there. I'm just trying to get everything right and get every lap, every corner perfect.

@@ -1,0 +1,93 @@
++++
+author = "Peyton Hillis"
+title = "Peyton Hillis Quotes"
+quotes_len = "87"
+description = "the best 87 Peyton Hillis Quotes"
++++
+- I kind of like to think I can do everything decently well. It's just putting me in position to be a playmaker, blocking, special teams, no matter what it may be. Whenever I go out there, I'm going to do my best.
+- Cleveland fans are great. They really do support their team, and they back them up no matter what.
+- I always find competition in each and every thing I do, and it will bring competition - no doubt about it.
+- I want people to see that I'm not a one-hit wonder.
+- One thing I have figured out: People don't like different. People don't like to see anything different. When you see something different, you are either scared or afraid or you feel threatened. And I feel that the way I play the game, it feels like I should have played 50 years ago. But it's what I do.
+- When you walk around Cleveland, the fans are starving for a winner and a successful team, and you saw how upset they were when LeBron left. You just want to win it for them.
+- In Denver, they just wanted me to play strictly fullback, nothing else. I wasn't too happy about the situation, but I was trying to be a team player.
+- You've got to go out there and play your best. It's about what you do on the football field.
+- As far as my athletic ability, I can pretty much do it all. You can put me at linebacker and I'll do a good job.
+- That's where I began was special teams and it's probably where I'm going to end up is special teams. I try to embrace that and try to do the best I can at it.
+- I have an open mind and I'm willing to do whatever.
+- Perception is reality. People take what they want to from things.
+- If you can't keep yourself in shape on your own without being told to, that's a shame.
+- I think when coaches look at me, they don't see a prototypical running back.
+- I believe that the Lord is going to take care of me. I know His will is the only way that can judge me or put me in my place.
+- There are a lot of athletic trends that I don't have. I feel like I have a bigger heart and desire than most people do.
+- I'm not a little, shifty guy who likes to make moves. I like to be a straight-line guy, run over somebody if I can.
+- In my career, I've found that anything can happen.
+- I'm just trying to go out and do what I can to help the team win.
+- Football in general is just fun.
+- There's no such thing as accidents.
+- I pretty much keep my mouth quiet and go about my business.
+- I've been very blessed.
+- Whenever you're having a down year, it's always tough, especially when you expect a lot from yourself.
+- I'm a truly happy person.
+- I'm not a showy kind of player.
+- I really enjoyed my time in Cleveland.
+- People just have no idea how strange and surreal a football life can be.
+- I guess when you get paid over 100 million dollars by one team, it's kind of easy to point the finger at other guys and try to hate on them for trying to get another contract.
+- I love being a Cleveland Brown.
+- I like to look at it as things and people and whole society in general being uneducated about facts. There are a lot of stereotypes. But I don't see color, I don't see race.
+- I had a tough career in college.
+- Actually, I don't even believe in curses.
+- I've kind of found out that things in life come full circle anyway.
+- I just try to do the best I can.
+- You can love something too much, you can spend too much time with something - that's when you've got to learn how to balance.
+- I firmly believe I never had too much of an opportunity after I left Cleveland. I was behind Jamaal Charles at Kansas City. I didn't get too much playing time. I felt when I got in I did well. And then I was in Tampa and never really got to touch the field because of Doug Martin. He's pretty good.
+- I really enjoyed my time playing in a Browns uniform.
+- My football idol growing up, I was named after Walter Payton, but my idols at RB were Barry Sanders and Emmitt Smith.
+- A guy like me, it's probably pretty hard for somebody to pinpoint what position to have me do, where to put me all the time.
+- I feel like I've been doing what I need to be doing to make me better at the game.
+- I'm not going to be happy until Cleveland wins a Super Bowl.
+- Tecmo Bowl' was the best game ever.
+- It's really sad how many people believe in curses.
+- I was always pretty much the biggest running back on the field at any given time.
+- I loved Arkansas and I loved the program and I loved the people there. I love my state. I always wanted to stay loyal to my state.
+- I never one time mentioned anything to any coach about retirement or joining the CIA or anything like that.
+- Every team did it. They'll say, 'You white boy, you ain't gonna run on us today. This is ridiculous. Why are you giving offensive linemen the ball?' All kinds of stuff like that you hear on the field, but I use that to my advantage. I kind of soaked it in, ate it up a little bit, because I enjoyed it.
+- Everybody's going to have troubles and problems.
+- No one in a normal walk of life flies into a new city unknown and unemployed and ends up doing their job on national television a few days later. I love the game, but it's crazy sometimes.
+- QB's have it good. They don't take any hits. They have the most pay. The most glamour.
+- As a kid, you'd look at all these guys in the NFL and almost idolize them.
+- I've always said of myself I can do mostly anything if I put my mind to it.
+- Not only do you have 16 regular-season games, you also have four preseason games. Then if you make the playoffs, you can have four more games before you get to the Super Bowl. So you can already have 24 games without the 18-game season. And 24 games takes a real toll on somebody's body.
+- There is a lot to do in Cleveland. It's just those December, January, February months that are tough. But there is a lot to do there.
+- I never was a guy who wanted to be in the limelight.
+- My high school didn't really have a good training program, so I did it on my own.
+- When I came to the NFL, I was just trying to make the team.
+- I'm 250 pounds, I'm not really fast.
+- The Cleveland Browns fans really are the greatest fans.
+- I like the Albino Rhino. That was kind of cool. Of all the other nicknames people give out, I thought it was really unique.
+- I didn't run the ball very much in college. I sat out most of the time and played a little slot receiver, a little tight end, a little fullback but that's pretty much about it.
+- I feel I play hard every time I step on the field.
+- I just feel people can see, when I'm 100 percent, I am running hard. I can do pretty good.
+- I think players are disciplined enough to work out on their own.
+- This is football; everyone gets hurt. If you run the ball 40 times a game, you're going to get banged around and get nicks and bruises here and there, but I don't pay too much attention to that.
+- Everybody's going to play in tough-weather games - snow, rain, sleet - but you've got to hold onto the football.
+- You can do something if you put your heart into it.
+- I'm doing yoga, MMA and things like that. I'm an unorthodox player, so I have to do things that fit my kind of game.
+- I didn't notice pain in the way that most guys would.
+- I'll carry a ball around with me all day and ask people to try to knock it out of my hand when I least expect it. I'll give them some money and stuff, so people get pretty geeked up about that. It just helps me to take care of the ball without even thinking about it.
+- The more versatile you can be, the longer you'll be in the NFL.
+- If I meet somebody and they ask me what position I play, I always just say an 'athlete' or that I do a lot of things.
+- I like a good challenge, and I'm always up for anything.
+- Whatever it takes to get on the field and get that starting spot to get the carries. I've always worked hard.
+- It's very humbling to move around from team to team. It shows how fast you can be out of the loop.
+- I'm a simple man and success doesn't go to my head.
+- I'm a human being just like everybody else.
+- I read Psalms 18 before every game.
+- You never can stay enough humbled.
+- I'm a guy who is going to go out there and do his best, and I'm a guy who has always gone out there and proved people wrong.
+- I am just here to serve God's will.
+- I went through a couple of years there just mad at the world. I put my faith in the world and the world let me down. And I should have known that. The world's always going to let you down. Put your faith in God.
+- Some people spend too much time with their job, not enough with their family. You've got to balance things out.
+- I am stubborn and I am hardheaded.
+- I want people to see I can do a variety of roles, not just tailback.
+- I'm a Christian man, and I don't believe anything could be put in front of me that God can't take away.

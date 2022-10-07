@@ -1,0 +1,31 @@
++++
+author = "Donte Divincenzo"
+title = "Donte Divincenzo Quotes"
+quotes_len = "25"
+description = "the best 25 Donte Divincenzo Quotes"
++++
+- My confidence level is, I think I can be a first-round pick; I think I can be a professional basketball player.
+- It's just not thinking about starting all the time. You'll think, 'Just because I'm having good games, I need to be in the starting lineup.' Your teammates and coaches respect you even more if you're having good games and you're not worrying about it.
+- I really pride myself on trying to be versatile.
+- I try to use my athleticism and my strength to be able to guard bigger guys, and being able to guard bigger guys is going to get me more minutes on the floor.
+- We have mentally tough players coming out of Villanova.
+- I take real big pride in that. Delaware, the support that I get from Delaware - I mean, there are thousands of people reaching out to me. Whenever I go home, it's just so welcoming anywhere I go, and everybody is noticing me.
+- I am who I am, and I'm not trying to act a certain way that I'm not.
+- A lot of guys kind of get complacent with how they do in one game, but I just want to compete. So every game I play in, it's a brand new beginning for me.
+- You want to make sure you're aware of who's dealing with your money, what it's doing, and how you can save.
+- Before the combine, there were a lot of questions about whether I could guard multiple positions.
+- Everybody wants to be a first round pick.
+- Going to the Combine, I had a lot of eyes on me, high praise on me, so I had to perform well at the Combine, or everything would have just went downhill.
+- I pride myself on defending and rebounding.
+- I've always been able to just kind of run around, do stuff whether I was hurt or not.
+- I'm more than just a shooter.
+- In high school, you don't play much defense. It's mostly offense. In college, it's vice versa, and that's what I tried to do.
+- It's not about just how to maximize your finances but make sure it lasts a long time.
+- Everywhere I've gone, basketball-wise, I've been the underdog and underrated guy.
+- I'm a lot more recognizable now. I used to be able to go to the mall or the movies. Now I can't really do that because people come up to me all the time. But it's a good problem to have.
+- I think if I have that team mentality, then my individual growth will shine as it did in college.
+- Don't fill your free time with random things - if you're bored, get in the gym. Other than that, just stick to a routine and don't change it.
+- When they take away some of our main guys, I just find myself open sometimes and knock down shots.
+- I just go out there and play my game and let the chips fall where they may.
+- One goal I want to accomplish is I want to be known as the hardest-working guy on the team my rookie year.
+- In high school, my principal was a priest and my assistant basketball coach. We were close. In high school, I would talk to him a little bit.

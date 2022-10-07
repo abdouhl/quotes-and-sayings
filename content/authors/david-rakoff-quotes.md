@@ -1,0 +1,51 @@
++++
+author = "David Rakoff"
+title = "David Rakoff Quotes"
+quotes_len = "45"
+description = "the best 45 David Rakoff Quotes"
++++
+- I'm not sure. But that bless-his/her-heart kind of melancholic humor is among my favorite things in the world. I guess it exposes a kind of humanity - or that's the hope, at least - a kind of grudging respect for human frailty. Unless it's actually kicking human frailty while it's down - I'm not sure.
+- I don't particularly consider myself an actor. I have no training. I love doing it, but I would never consider myself to be a colleague of an actual actor. That would be stepping way up in class on my part.
+- I do not go outdoors... As far as I'm concerned, the whole point of living in New York City is indoors. You want greenery? Order the spinach.
+- Not far from my apartment, within a stretch of no more than 500 feet, there are two doggie gyms where Gotham's canines who aren't getting enough exercise running through the city's parks, or are neglecting their all-important doggie glutes and abs, can go for a workout. What can I say? This appalls me.
+- Everyone has an internal age, a time in life when one is, if not one's best, then at very least one's most authentic self. I always felt that my internal clock was calibrated somewhere between 47 and 53 years old.
+- I was going to say that writing is about disclosure and acting is about obfuscation, but that's such a little lie. Both of them are about obfuscation and masking oneself.
+- Everybody's got something. In the end, what choice does one really have but to understand that truth, to really take it in, and then shop for groceries, get a haircut, do one's work; get on with the business of one's life. That's the hope, anyway.
+- The rigors of creativity - the self-doubt, the revising, the solitude - do require a kind of self-consumption. It comes at a cost; a cost that isn't for everyone.
+- It's rare that I'm not at work on some sort of craft project. I've often enthused about the need to make things; how it employs a unique set of muscles - physical, intellectual, spiritual - that I can attain a state of flow when making something that I almost never can when writing.
+- Arts and crafts, or getting to be in a play with people, or making a little short film, that's pure sugar, because the stakes are so low.
+- I am the world's worst reporter. I am apt to try too hard to help rather than just document my subjects.
+- There's nothing particularly wrong with being more pessimistic than optimistic. Optimism is broad-based, non-detail-oriented thinking; pessimism is detail-oriented thinking.
+- Let's face it: professing a deep interest in movies, the absolutely dominant global art form of the last century, is at this point like professing an interest in air. Passion is nice. Erudition is admirable. But it's like that moment when good manners cross over into meaningless etiquette.
+- I have let half-decades elapse between books because books have to be writte and writing is awful, but if you are the type of person who makes things, there is no profit in worrying about how or why or when the next project will come into being beyond simply acknowledging that it is inevitable that it will be very soon.
+- I have no problem with animals, I just like people more.
+- I do tend to be an anxious fellow, and I do tend to see the world as a little darker than perhaps it genuinely is, but I also do appreciate much more than a rosy scenario, I appreciate straight news. I appreciate honesty.
+- I will forever be grateful to my oncologist for opening the door and saying, 'Damn it, the tumor's 10 percent bigger,' before he even said hello.
+- I had a beautiful childhood and a lovely childhood. I just didn't like being a child. I didn't like the rank injustice of not being listened to. I didn't like the lack of autonomy.
+- My salvation lies in time spent alone with an X-Acto knife and commercial-grade adhesive.
+- Altruism is innate, but it's not instinctual. Everybody's wired for it, but a switch has to be flipped.
+- I aspire to write what are called 'familiar essays.' They begin in the personal and end in the universal. It's not for me to say if I have been successful at it. But that is the hope.
+- When people give you a writing assignment, they're asking what you think. That's the very opposite of being an actor. When you're an actor, no one wants to hear what you think.
+- I'm anti-religious. I don't like people telling me what to do.
+- I value kindness in myself and others. I try to remain super-vigilant about my targets and make extra sure that my sometimes barbed comments are deserved and in response to genuine malefaction.
+- 'Play It Again Sam's opening shot is the same as 'Purple Rose's final one: a close-up of a face, rapt in a movie house. I've certainly felt that in my life. I've been known to cry watching Gene Kelly.
+- Unless one is planning to go shopping - basically begging to be smothered by the ravening throngs of returners and bargain hunters; an embrace as constricting as that hugging machine designed by autistic author Temple Grandin - then Boxing Day feels like a bar after last call when the lights have been turned up.
+- I cannot escape the feeling that I was, at best, a cancer tourist, that my survival means I dabbled.
+- I do tend to be an anxious fellow, and I do tend to see the world as a little darker than perhaps it genuinely is, but I also do appreciate much more than a rosy scenario, I appreciate straight news.
+- Those weeks before diagnosis can be among the most torturous times. There is a reason you're called a patient once the plastic bracelet goes on.
+- Before I sat down and became a writer, before I began to do it habitually and for my living, there was a decades-long stretch when I was terrified that it would suck, so I didn't write. I think that marks a lot of people, a real terror at being bad at something, and unfortunately, you are always bad before you can get a little better.
+- It's the false moral component behind blind animal love that so frosts me. The faulty logic that believes that the capacity to adore a nonhuman creature is somehow a purer form of love.
+- If you don't have your experiences in the moment, if you gloss them over with jokes or zoom past them, you end up with curiously dispassionate memories.
+- Adam and Eve, not Adam and Steve. Well, of course not Adam and Steve. Never Adam and Steve. It's Adam and Steven.
+- There is nothing so cleansing or reassuring as a vicarious sadness.
+- Central to living a life that is good is a life that's forgiving. We're creatures of contact, regardless of whether we kiss or we wound.
+- Fantastic days are what you wish upon those who have so few sunrises left, those whose lungs are so lesion-spangled with new cancer that they should be embracing as much life as they can. Time's a-wasting, go out and have yourself a fantastic day! Fantastic days are for goners.
+- Pessimists are born, true, but they also can be made.
+- About the only thing that I have - or had, because it's failing me lately - is my memory. I had a really good memory. I was always terribly protective of that fact.
+- At least three times a week, I am overwhelmed with a wave of gratitude to New York City for providing me with a life. Not that my life is so great, although I think it's pretty nifty: I don't mine coal; I get paid to write.
+- Deprived of the opportunity to judge one another by the cars we drive, New Yorkers, thrown together daily on mass transit, form silent opinions based on our choices of subway reading. Just by glimpsing the cover staring back at us, we can reach the pinnacle of carnal desire or the depths of hatred. Soul mate or mortal enemy.
+- I can see a great beauty in acknowledging the fact that the world is dark.
+- Everyone I vote for never wins. Welcome to America.
+- I find writing extraordinarily difficult and not very pleasurable, though I find having done it very pleasurable. I won't lie about that.
+- A secondhand wardrobe hand clothes doesn't make one an artist. Neither do a hair-trigger temper, melancholic nature, propensity for tears, hating your parents, or HIV. I hate to say it - none of these make one an artist. They can help, but just as being gay doesn't make one witty... the only thing that makes one an artist is making art.
+- Here's the thing: I'm not beautiful. I mean, I'm a perfectly normal-looking Jewish guy. My face has never been my fortune, nor has my body... physical beauty has never been part of my equation. It's just not on my shopping list.

@@ -1,0 +1,106 @@
++++
+author = "Sarah Lancashire"
+title = "Sarah Lancashire Quotes"
+quotes_len = "100"
+description = "the best 100 Sarah Lancashire Quotes"
++++
+- But I am Northern myself, and there is a certain rhythm of Northern speech that is very comical: that combination of the choice of language and the speech rhythm, which in itself is very funny.
+- I think Jack Thorne is an exceptional writer.
+- Marriage is not for everyone, but spiritually it is very necessary for me because I have a desire, a need to feel owned.
+- For me, it was much more important to continue to learn my craft as an actor and get a bit of flesh on the bones.
+- When you receive a script and it leaps out at you and it's breathing with its own heartbeat - I suppose when you read something like that it's not a choice of whether you do it or don't. It feels like it chooses you, so you just do it.
+- I've learnt that it's possible to be as anonymous as you want. It's a choice, and I've become very, very good at being anonymous.
+- Now that I'm in my late 40s, I'm trying to make up for a little bit of lost musicals time.
+- I am a stickler for damn good writing.
+- I only did five or six weeks in 'Guys and Dolls,' and when I was 26 or so, I was in 'Blood Brothers' for a year on the West End, playing Linda, with Kiki Dee.
+- The roles do get fewer as you get older. That's the same for all professions, there's fewer roles for people later in life. I don't think it should be like that because as long as you are able to do your job then people should keep working with you. It shouldn't come down to age.
+- I have managed to get through that tricky turn into your 50s with two great roles. It is great to see characters for women of a certain age.
+- Watching your own work doesn't get any easier.
+- I am a tea connoisseur and my idea of absolute heaven is a tea shop.
+- I'm driven by fear.
+- During a performance of 'Blood Brothers' in 1990, I forgot to sing. I was so moved by what my co-star Kiki Dee was doing, that I completely missed my cue.
+- I love swing, jazz, blues, standards. I love the American songbook, Gershwin, Berlin. It's all that. So I'm born in the wrong era and I just don't fit into the 21st century at all.
+- I have to work at my own speed.
+- I just hold out for pieces where I immediately feel an emotional connection with a part.
+- 'Kiri' reflects the society we're living in now, where everything has to be transparent and people are under so much pressure. The scrutiny is extraordinary and you really get a sense of panic emerging.
+- Children are part of the natural pattern of life. For centuries people have been having children and going to work. You get on with it, that's what life's about.
+- I would never condone anything which I thought was salacious, titillating, or gratuitous.
+- The work I like to do is the work I'm most afraid of.
+- I won't say I'll never go back to a soap because an actor's life is so precarious. You can have the most wonderful patch where everyone wants to work with you, and in the blink of an eye the phone won't ring for a month, even a year.
+- Sometimes it's necessary for soaps to hang on to an audience by sensationalizing, but it's a beast I don't understand any more, an art form that has fostered extraordinary talent. It's a great arena to learn your craft before you move on.
+- I truly believe that love is love and gender is immaterial.
+- Anyone who has to be accountable in a time when resources are shrinking, where transparency is necessary, where the pressures are greater, is going to find that it takes a toll.
+- Most of the career choices I've made have been because of my family.
+- Actors are bloody marvelous at hiding.
+- I'm not terribly good at being around work I don't care about!
+- It started at 49 with 'Tango in Halifax' and then 'Happy Valley.' I can't complain at a time when most actors are disappearing. I seem to have become very visible.
+- I don't search it out - I really want to be clear, I don't search out the misery! I'm not sitting at home going, 'I can't wait to do another harrowing piece of work.'
+- The Barbara Hepworth museum in St. Ives is fascinating. Her achievements were astonishing.
+- It's down to the actors to show the writers the potential of the character.
+- An 'Ordinary Woman' is the beautiful and achingly poignant portrait of Gwen, a complex and troubled woman in her middle years.
+- I do find it quite difficult to complete a job and return to normality - it does take a bit of time to find my healthy place.
+- Age affects us all in the workplace. We all get a little less appealing as we get older, unfortunately.
+- I have never known what it feels like to wake up in the morning full of the joys of spring, and wander through the day feeling capable of coping.
+- Relationships are very complex. It's very unusual to see something which is so 'complex portrayed on screen.
+- In my early days depression did inhibit me because I was too debilitated and terrified to tell anyone why I couldn't get on a train from Manchester for auditions in London.
+- My twenties were a write-off.
+- Young people are often portrayed in a very negative and stereotypical manner.
+- I think going to university, getting married, having children, and then having the choice to stay at home to raise those children is a very valid one for women and they shouldn't be castigated for it. It's a great job. Not many men would do it.
+- I own a copy of the original 'Talking Heads' by Alan Bennett, which I purchased many years ago shortly after they were first broadcast. It's been lovingly well-thumbed over the years. They are magnificent. A masterpiece.
+- It was easier to act, in a way, than to be myself. Somehow I just felt I was in the right place.
+- I think all writers have a style, a particular voice and rhythm that you have to find.
+- When you pretend for a living and you have to pretend in your private life as well, it's very sad. Because it's intangible, depression is an issue that people don't like to talk about. It's like a huge, guilty secret.
+- When I'm working in theatre I never go to the bar with the other actors; I go home and think about what I did wrong.
+- My father's family, I think, were mostly from Lancashire, but I don't know how far back we go. I think it's quite a few generations.
+- My father was a TV scriptwriter. He would perform his dialogue out loud, while my mum transcribed it at the typewriter. So I grew up thinking that plucking characters out of the air was an extremely normal way to behave.
+- You have to have brilliant people to work opposite, and then it does become like a real tennis match and this is our sport. With somebody like Mark Lewis Jones, who is extraordinary anyway, you just know it's going to be a good match.
+- I don't watch anything I'm in. I'm too critical.
+- 'Tango' is very much an ensemble piece and I was devastated when I read the script.
+- I'm not planning on being a health role model.
+- I am possibly the biggest 'Downton' fan you can ever meet.
+- Am I attracted to people who want to give other people a voice? Yes I am, and that may be a 'common denominator with the characters that I play.
+- I do have a slightly rebellious streak in me, I'm afraid.
+- I need to grow as an actor. The wonderful thing is you never stop learning, and as my only interest is trying to perfect what I do, it's wonderful because I'll never succeed, so I'll have to keep working.
+- I don't feel that 40 is anything these days. Our life expectancy is so much greater that maybe 50 is the new 40.
+- I never feel proud of anything I do really.
+- I can bake but I don't do a lot of baking, mainly because the side effect is not very good for you.
+- I took 18 months away to have my son, Joseph, and it was the biggest break I'd ever had in my working life of nearly 20 years.
+- We don't necessarily hear about the fantastic things social services do, because it doesn't make very good drama.
+- There's some truth that roles for older women are harder to come by, but it's wrong for actors to monopolise the ageist thing.
+- I suppose trying not to fancy Richard Gere - that's been quite hard!
+- I'm Lancashire by name, and Lancashire was where I grew up - in Oldham.
+- I'm straight, but it's immaterial what your sexuality is. Isn't it really just about being a fulfilled human being?
+- Accents are interesting, because they very often inform the way a person moves.
+- I think this country is terribly, horribly obsessed with age, and it really is just this country. If you're still living and breathing at 50, then count your blessings!
+- I come from a line of women who can bake, so I think I've inherited a bit of family knowledge.
+- I don't like comparing projects. I find it too difficult because I can't objectively look at a piece when I'm so subjectively involved it.
+- Two of the best roles I've ever had have happened in my late 40s.
+- I'm absolutely certain that audiences want to see older women on their TVs.
+- I got married only because I was pregnant. Simple as that. I am a very traditional girl and was horrified at the thought of having a child out of wedlock. I didn't want a child of mine to be different or have fingers pointed at.
+- Being in the public eye makes you frightened to talk openly about things - which is precisely why you should. You can really make a difference and open up subjects that are taboo.
+- It's wonderful when you happen across it as an actor, finding a young actor that is literally just starting out and you understand that to them the craft is the most important aspect of the job.
+- It's not something I'm embarrassed about. Depression is an issue that tends to be brushed under the carpet. My hope is that if people with a public profile are prepared to talk about it, then it might prompt other people to talk about it too.
+- Being an actor can be a cruel experience because there is no cooling-down period. You can be involved in something that's incredibly intense, but then it's a wrap and you've finished and you go home. I find it difficult to complete a job and then return to reality and find my healthy place.
+- To be asked to perform a new 'Talking Head' was beyond any expectation. The matchless brilliance of Alan Bennett's words coupled with the extraordinary wisdom of Nick Hytner's direction made this a thrilling and quite simply unforgettable experience, and I'm enormously grateful.
+- I think women have not been terribly kind to other women for a very long time.
+- You don't always realize the impact you have on people's lives. You just think 'I'm an actor, I don't think I'm doing anything particularly important in life' and then you suddenly realize that actually for a fleeting moment you do make a difference to somebody's life - it has an impact.
+- Acting is a subtle combination of hiding and revealing yourself, and as I'm not an extrovert, this is painful for me.
+- It's too easy to underestimate your audience. But it's not rocket science: bad plays don't get people on seats; good plays do.
+- I'd like to think little miracles do happen in 'Angel Cake.'
+- I never get offered comedy.
+- I can tell very early on, reading a script, within six or seven pages, whether I'm looking at real people, and whether I can see and hear real people.
+- If someone was walking round in a T-shirt with Sarah Lancashire on it, I'd find that very disturbing.
+- 'Happy Valley' is an extraordinary piece and it was not necessarily about Catherine but her part in the narrative.
+- Love is very complicated and it's never black and white, as I'm sure we all know in our lives.
+- Love is love. It doesn't matter about sexuality, it's just about how you feel towards somebody else and being good and honest with them.
+- I don't like talking about me. I only speak when I have something to say and won't share my personality.
+- My family on my mother's side is Irish.
+- You start out with scripts pre-written, with no specific actor in mind, so you've got to build a character on top of that foundation. It's not just lifting words off the page, it's constructing a history around them as well.
+- Celebrity and actor are two completely different professions, and I don't believe that they mix if you want to maintain any sort of credibility.
+- Soaps are a double-edged sword. There can be prejudice from some writers and producers who feel you will lower the currency of their work if you've been in one. You have to rise above such ludicrous prejudice.
+- Working on 'The Paradise' is like putting on a comfy overcoat.
+- It's a joy doing 'Tango.' I'd do it till the day I die, frankly.
+- I'm not always right for the role. And to be honest I think part of your job as an actor is knowing when you're not right for the role.
+- The writing is only ever the attractive thing about a part. And also if all the elements within the writing come together - the character and the structure and the narrative - if they are all there then you become excited.
+- 'MotherFatherSon' was just an extraordinary read and I wanted to be a part of it.
+- I'm not very good at watching myself. I look at it and I think, 'Oh, they've used the wrong take.' My job is over and it's not healthy to sit there and scrutinize your work as you're invariably unhappy!

@@ -1,0 +1,106 @@
++++
+author = "Denise Austin"
+title = "Denise Austin Quotes"
+quotes_len = "100"
+description = "the best 100 Denise Austin Quotes"
++++
+- I love handfuls of almonds, laced with wasabi flavor - because it is sinus clearing and satisfies that salty craving with a kick!
+- I love walking on a treadmill, it's a great way to challenge yourself!
+- Fortunately, good posture - like poor posture - is habit forming.
+- Getting healthy, getting into shape is a gradual process.
+- Because Pilates requires you to press your abs toward your spine, you don't want to allow your lower belly to round and press out as air comes into your lungs. You also don't want that abdominal lock to force you to breathe shallowly. To breathe correctly, you must expand your rib cage, primarily through your midback.
+- Your lower back contains numerous muscles. One group, called the erector spinae, attaches to your spinal column at different points along your back, allowing you to bend it forward and backward and from side to side. Toning these muscles helps prevent back pain, and it also tightens and firms your entire lower back.
+- In other fitness pursuits, you may have learned to go through the motions first and perfect your form second. In Pilates, it's the other way around. You learn to control your abs first and then proceed through a series of more progressive movements. At all times, you should feel in control of your body.
+- We have to stay healthy no matter how old we are.
+- I don't starve myself, and I don't think other people should either.
+- As you do Pilates, use your breath to draw your mind into the present and whisk the tension out of your body.
+- Aim to eat healthy six days out of the week, and then enjoy what I call a 'super splurge' on the seventh day. It helps you enjoy yourself and not feel so deprived, so you're ready to recommit to healthy eating the following week.
+- I'm into eating whole foods.
+- Prolonged sitting can cause stiffness in your lower back.
+- As you build muscle, remember that the scale may stay the same, but you won't.
+- Inner-thigh strength is important, and not just for appearance sake. If you enjoy - or have always wanted to try - ice skating or roller blading, strong inner thighs will come in handy.
+- I love to eat and go out to dinner with friends and family and order all kinds of things. I love dessert.
+- Of all the forms of exercise I've taught, Pilates is one of my favorites.
+- No gift list would be complete without a mention of fitness.
+- Finding a convenient exercise routine is the key, because you're much more likely to stick with it.
+- My unique contribution to the fitness industry is bringing fitness into the home through cable, VHS, DVD and now digital formats.
+- I believe in sensible, moderate exercise. I try to do something every day, at least 20 minutes per day. I don't think it's realistic to ask people to work out 90 minutes a day.
+- Pilates helps condition the body without punishing it.
+- Women love classes and like to be together. They enjoy exercise classes. But that's not what a man usually likes to do.
+- Besides helping you to form a beautiful flat tummy, strong abdominal muscles will improve your balance and coordination as well as help you perform other types of exercise with greater ease.
+- Constant slumping increases the stress on the spine and joints, and can lead to headaches, neck and shoulder tension, and lower-back pain.
+- In L.A., I see people who are always in their cars, always driving. I encourage them to walk more - walk to the post office, walk to lunch. Even if it is a 10-minute walk, it's so good for you.
+- Because there's no bouncing, jarring, or stress to your body, Pilates offers the ideal form of exercise for people who, because of joint pain or muscle weakness, shy away from exercise.
+- Internal and external obliques form your sides and waist. Your external obliques sit closest to the surface toward the front of your waist, with the internal obliques sitting deeper and closer to your back. Toning them shrinks your waistline and love handles.
+- If you look in the mirror and think, 'Boy, my body needs a good dose of middle management,' keep in mind that tummy fat could be the result of many things.
+- Banish aches and pains by strengthening and stretching the muscles that affect your back.
+- Stretching exercises promote flexibility, so you move fluidly.
+- As a mom, I'm always balancing my life. I want to teach people the way I balance it, and really teach women how to stay fit and take care of themselves.
+- Take a tip from racewalkers and marathoners, and strengthen your stride with resistance exercises. By training your walking muscles, you'll have more power to pick up the pace.
+- When you eat foods high in fiber, you feel full faster, making you less likely to overeat and more likely to have weight loss.
+- Sometimes I log more than my fair share of hours on my tush - behind my desk, in the car, in front of the TV. And all that sitting can turn even the tightest buns into rice pudding.
+- Need a body-confidence boost? Pick up a pair of dumbbells and let your gaze linger on the outline of your biceps as you lift the weights.
+- In my home gym, I'll do targeted exercises like pilates, light weights and stretching.
+- To me, that's the most exciting aspect of Pilates. It doesn't matter who you are - athlete or couch potato, toned or flabby, man or woman, young or old - you can do it. Every body can benefit.
+- Your personal gym should be a place where you can exercise and just be yourself.
+- Walking is easy for most people to adopt into their lifestyle, regardless of their current level of fitness. Plus is convenient and fun!
+- I went to the University of Arizona on a full athletic scholarship for gymnastics, where I competed and got 9th in the nation at the NCAAs.
+- In addition to firming your abdominals, Pilates also helps strengthen and stretch the entire body from head to toe, helping you to stand taller.
+- Exercise is a great way to get rid of stress and anxiety. It clears the head and gets rid of all that stuff that is annoying you and really isn't all that important. It filters out any grouchie-ness - it's a great mental filter.
+- I'm a big believer that as you age, you need to stretch more.
+- I like to go to yoga classes and sweat a lot.
+- Moves that build powerful core muscles (abs, back, hips, and pelvis) help support your spine, so you stand straighter. They also improve your balance, which starts to deteriorate in your 40s as these stabilizing muscles weaken.
+- I was a gymnast as a little girl.
+- As a baby grows in the womb, the surrounding abdominal muscles stretch outward. If you don't tighten up those muscles after delivery, your abs will remain loose and weak.
+- The key is consistency. Do your ab exercises at least three times a week, or even a few minutes each day.
+- I like sit-ups and ab exercises. I always want to keep my tummy flat and tight, even as I age. It keeps your back healthy and keeps you young.
+- I don't believe in strict diets or starving yourself; eat three meals a day. I believe in eating a good breakfast, a good lunch and a light dinner. Eat breakfast like a king, eat lunch like a queen, and eat dinner like a pauper. Your ultimate goal is to eat all the basic food groups in those three different meals.
+- I believe in good, healthy meals.
+- I've been fit my whole life. I'm not a fat-turned-fit story.
+- I used to have a 28-inch waist.' I hear this complaint from women over 40 a lot, and I can sympathize.
+- As fiber and other nondigestible carbs pass through your intestine, they bring other nutrients - often fat - along for the ride. This prevents your intestine from breaking down and absorbing some of the fat and cholesterol from the food you eat.
+- What was cool about my career, Jack LaLanne gave me my first break on TV. I was his co-host.
+- It's every woman's dream: looking fabulous in her favorite pair of Levi's.
+- I really eat in moderation.
+- Working out with someone will help you to feel committed.
+- I really believe that green tea is the key for all of us women who are gaining some weight around your middle.
+- Whenever I over-indulge - usually by eating too much dessert - I see the results in my thighs. The backs of my thighs begin to lose their smoothness as the hints of cellulite threaten to turn them into 'cottage cheese.'
+- Helping people keeps me going.
+- Fiber and other nondigestible carbs are bulky and tend to slow digestion, which, in turn, eases the absorption of glucose into the bloodstream. When glucose enters the bloodstream more slowly, cells are better able to burn it for energy.
+- When someone tells me that I look great, I say thanks and then share a secret: It's not the clothes or the makeup; it's my posture.
+- Whenever you leave home and your daily routine, it's way too easy to abandon your regular workouts. That's why resistance bands make great travel companions.
+- If you were fit before your pregnancy, a Pilates program will quickly help restore your figure and your energy.
+- Diffusers not only leave your home smelling clean and fresh, but the oils that you choose to use in it can leave you feeling refreshed and stress free!
+- I think it really helps if you focus on losing weight one week at a time.
+- It is extremely hard to break bad habits and takes a long time to start new, healthy ones.
+- People are awake about 16 hours a day, so to devote 30 minutes to keeping your weight down, keeping your body healthy, is not a lot of time.
+- I like intervals. I will turn a walk into a workout. For example, I walk for five minutes at an easy pace, then power-walk for two minutes and repeat. Intervals blast the fat.
+- I even kind of eat well 80 percent of the time and have my treats 20 percent of the time. I don't just eat salads, but I truly believe in eating healthy foods, fresh fruits and vegetables every day. I'm a real person.
+- You don't need any heavy, expensive equipment, and you can do Pilates anywhere, anytime.
+- One of the easiest ways to get a buff back is with exercise bands. They're inexpensive, and you can increase resistance by moving a hand to shorten their length.
+- When my jeans feel too tight, I know I need to cut back on desserts and step up my workouts.
+- Most of us tend toward muscular imbalance. Typically our chest and front shoulder muscles are stronger than our upper back and rear shoulder muscles. As a result, our chins jut out, our shoulders round, and our backs sway.
+- Some of the routines take less than 10 minutes, making Pilates the perfect form of exercise for anyone who finds there's not enough time in the day for exercise.
+- To maintain good health, you need to exercise almost every day - 30 minutes is recommended, that's what I personally do - and you need to eat right.
+- Strong shoulders will do more than just make everyday tasks easier. By developing the muscles of the upper body, you'll get sexy-looking shoulders and create a 'V' silhouette that makes your hips and waist appear slimmer.
+- I'm well aware of the health dangers of an expanding waistline and belly fat: diabetes, heart disease, stroke, even cancer.
+- I love to go out with my husband and a few friends on Friday or Saturday. Being from Southern California, Mexican food is my favorite, and I normally splurge on enchiladas and margaritas.
+- Fiber and other nondigestible carbs work wonderful weight loss magic.
+- I'm a working mom, so I know that getting the job done, feeding the kids, organizing family get-togethers, and putting the finishing touches on sixth-grade projects all take precedence over exercise.
+- There's nothing more frustrating than pulling on your favorite jeans - only to see there's a bit of extra bulge above the waist.
+- We use our shoulder muscles to accomplish practically every pulling, pushing, and hoisting task we do (they really do carry the weight of the world!), so they're a great place to start building strength.
+- Working the deltoid muscles along the front and top will give you everyday lifting power and help eliminate sloping shoulders, making your waist appear thinner.
+- Many women find long, lean sexy legs hard to get. One reason is that before menopause, most of us store a disproportionate amount of fat in our lower bodies, particularly in our hips and thighs.
+- As we age, we lose our muscle tone. Thats how we gain weight.
+- I know lots of women who have slim legs but refuse to wear skirts because of unsightly varicose or spider veins. Though heredity plays a role, your genes don't have to doom you to a life of long pants.
+- To do Pilates moves correctly, you'll need to concentrate on your abs - keeping them pulled in and up - at all times.
+- Exercise is the best preventative medicine there is.
+- If you think a bare midriff is only for teens, think again.
+- When it comes to foods as we age, it is a good rule of thumb to focus on high-quality, whole, fresh foods as the basis of all your meals.
+- Most people should not do aerobic exercises for more than 30 minutes, because after that your chances of injury increase.
+- Walking lunges are great for thighs.
+- Possibly one of the most exciting aspects of Pilates is that anyone can do it, and everyone can achieve amazing results.
+- For most of my life, I've put on weight in my thighs, not my belly. But in my mid-40s, things began to change.
+- Yoga is a great form of exercise that stretches and strengthens your muscles simultaneously.
+- I'm a big believer in a balance of workouts - a well-balanced workout plan. Part of it is cardio, part strength training and then flexibility. You really need all three.
+- I enjoy all my relationships with my husband, my kids, my sisters and my girlfriends and maintaining a healthy relationships across the board nurtures my soul.

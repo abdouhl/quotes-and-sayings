@@ -1,0 +1,21 @@
++++
+author = "Petra Nemcova"
+title = "Petra Nemcova Quotes"
+quotes_len = "15"
+description = "the best 15 Petra Nemcova Quotes"
++++
+- I used to work all the time, and now if there is a wedding, there's a concert, I'm there.
+- I love to dance.
+- We cannot stop natural disasters but we can arm ourselves with knowledge: so many lives wouldn't have to be lost if there was enough disaster preparedness.
+- So, we have choice, and sometimes it seems very hard, but the best way to heal physically or emotionally is to keep positive.
+- I was so afraid to even read a paper in front of my classmates. It is very funny because at that point my teachers would never have believed that I could speak in front of an audience of over 2,000 people.
+- It's usually when the cameras leave that the support leaves as well.
+- There are lots of things which I would love to tell him, but in some way, I also feel that I lost the person closest to me. And I got a second chance to live. So in a way I feel that I live for both of us... and I will do my best.
+- My secret passion is motorbikes. I want a Kawasaki Ninja.
+- I can dance for, like, four or five hours nonstop without even drinking water. It's a beautiful, beautiful thing.
+- I've learned a couple of things. And one of the things I have learned is that every experience has pluses and minuses.
+- I talk to Simon, I write to him. I never used to write a diary. But now I'm writing a diary to him. I think it's not just me, but lots of others, family and friends, can still feel him around.
+- Learn from the past, look to the future, but live in the present.
+- I grew up under Communism so we could only learn Russian, and then when Communism fell in 1989 we could learn a few more things and have the freedom to travel and the freedom of speech - and the freedom of dreaming, really.
+- If we focus on the minuses, we go down the spiral. But if we are able to focus on the pluses, we can become stronger and put more meaning into our life.
+- I think all women want to feel sexy and confident yet comfortable at the same time in what they wear.

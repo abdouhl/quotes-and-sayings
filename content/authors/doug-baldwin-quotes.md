@@ -1,0 +1,75 @@
++++
+author = "Doug Baldwin"
+title = "Doug Baldwin Quotes"
+quotes_len = "69"
+description = "the best 69 Doug Baldwin Quotes"
++++
+- I take pride in my craft, and I work extremely hard.
+- The greatest tragedy for any human being is going through their entire lives believing the only perspective that matters is their own.
+- I've been blessed enough to be on a great team, gone to the divisional round five years in a row or whatever it was. That's special. Not everybody gets an opportunity to do that.
+- I've always been the type that's more about academics and technology.
+- It's like, I go through life, and all these relationship that I have, they're more like acquaintances than they are true relationships. It's not fulfilling. I don't know. It's a very cold feeling at times, but it's what I'm comfortable with.
+- I don't know how to put this, but to some people, the NFL is basically modern-day slavery. Don't get me wrong - we get paid a lot of money. There's a sense of 'shut up and play,' that this is entertainment for other people. Then, when we go out in public, we're like zoo animals. We're not human beings.
+- There aren't enough people who are passionate with what they do. They're content just going through life being mediocre, being average. They don't want to thrive. They don't want to strive for greater. They're happy being where they are.
+- I've heard all my life how I'm too short or not big enough to play this game. It's nothing new.
+- We play a very violent sport, and sometimes it leads to a lot of emotion, a lot of testosterone getting built up, and it comes out in various ways.
+- The difference between a mob and a movement is follow-through.
+- Before I became a leader, I thought success was all about building myself up. But then, once I became a leader, I realized that success is about building others up.
+- Good instincts are vital to longevity in the NFL.
+- We are kind of in a false reality here, playing football.
+- I'm not the fastest, the strongest, the most athletic, the tallest. But in order for me to be good at what I do, I have to focus on my craft so much that it alleviates those other things. I can't have personal relationships like other people do. I can't spend time on that.
+- As a human being, when I see things going on in my community, I feel compelled to do something, to say something.
+- Individuals have a right to freedom of speech.
+- I'm not one of those typical receivers who's like a robot in the slot or outside.
+- I don't have a chip on my shoulder. I have a boulder on my shoulder.
+- As we've grown as a country, we've allowed our fears and our doubts and our questions about things that we don't know to become more divisive than uniting us as a country, as a people.
+- I'm just trying to be the best Doug Baldwin I can be.
+- I give a lot of credit to Darrell Bevell and to Tom Cable for their work and their development of the players that they had that was available to them. They did an extraordinary job, and I do think, as Bevell was our offensive coordinator, we broke every record that the Seahawks had offensively. So there's a lot to be said for that.
+- Instincts are learned on the football field through experience. It's vital in sports because things happen so rapidly that you have to rely on your instincts at times to make quick decisions.
+- It's not going to matter, but there's a part of me, a human part of me, that wants to be 60 years old, watching a Seahawks game, and they're talking about the days back when I was playing. I want to be able to feel that. I want to know what that feels like.
+- I would say I had anger-management issues, to be honest with you. But it was only on the football field.
+- I've got a chip on my shoulder, and honestly, I've always had it, but I don't think about it in those terms, like I'm trying to be better than this guy or that guy. It just helps keep me focused.
+- I support Kam Chancellor as a person.
+- Here in Washington State, I've supported efforts to provide our law enforcement with the proper training and resources required to meet their changing and demanding needs of their job. In doing so, I feel that the community and the law enforcement relationship will gratefully benefit from a renewed sense of responsibility and accountability.
+- I think you have to have a bit of an anger-management issue, to be honest with you. Usually, slot guys are a lot smaller and quicker, but at the same time, you have to go in there and block linebackers and safeties, and so you have to be aggressive.
+- I care about what's best for everyone around me.
+- I play football because I love the game and I put everything into it.
+- If you want to get anything done, you have to start somewhere.
+- I'm still conscious of whether people really accept me, but that insecurity makes me stronger.
+- I read a lot. I try to gain as much knowledge as I possibly can and listen to people, because I don't know what I don't know.
+- If you can play football, you can play football. Measurables at the combine don't change that.
+- As a human, I feel extremely compelled to use my platform and my influence in whatever way for the benefit and not just for my sole benefit.
+- You're always fighting the demons.
+- I knew police officers have a very difficult job. They have to make split second decisions that will impact not only the communities they serve but their families, their own personal lives.
+- As a competitor, I try to do everything in my power to control the uncontrollable.
+- What separates me is I'm a dog. I use that term very strongly because that's what I am. That's why I have an angry demeanor. It's not a front. It's not a face.
+- I feel like I am a better person because of my struggles, because of my challenges and persevering through them and realizing the mistakes that I've made, correcting them.
+- It's easy in this world, in this business, to get caught up and get jealous of people.
+- We have to enforce training that is more emphasized on de-escalation tactics and crisis management control. Once we do that, then we have to put measures in place to reward the officers who are the good officers, which is the majority of them. Then we have to hold accountable the officers that are not abiding by the policies and those laws.
+- I watched a lot of Jerry Rice's film just to learn how to run routes, but it was so difficult to imitate him, and he didn't play with the same body language that I wanted to play with.
+- I loved playing video games when I was younger, loved playing with Legos - the tech nerd, that was me for sure.
+- I've just stopped worrying about what the game plan looks like, how many targets am I going to have in a game, all of the stuff that would distract me when having fun out there on the football field. It's allowed me to be less stressed and enjoy my teammates more and go out there with a loose mentality and have more fun.
+- If there are cracks in your armor, your opponent is going to find them.
+- Communities have changed. Our society is changing. Sometimes I feel like our law enforcement, the public services, they don't have enough resources to keep up with the changes that we see in our society.
+- I didn't have a lot of good film coming out of college. Also, my height didn't help me at all. I ran a decent 40, but no one would call it blazing speed.
+- When I was younger, I took everything seriously, and I still do to some degree.
+- Change is inevitable, change will always happen, but you have to apply direction to change, and that's when it's progress.
+- Not that I don't care about winning or I don't care about doing well, but I have to care less about the things that happen that are outside of my control.
+- Honestly, I don't believe in luck.
+- Honestly, I think the combine is a waste of time. The effort should be in film watching, physicals, and mental evaluations.
+- Anytime you get to go up against guys that have done well in this league, who have dominated in this league, you have got to rise to the challenge.
+- The route may, say, go across the field for 22 yards. I know I have to be there, but how I get there is where they allow me to be creative.
+- Thursday night football should be illegal.
+- The reason why I play 'Madden' is because in 'Madden,' I can control everything, and in the game of life and the game of football, you can't. It's kind of like an outlet.
+- I'm on the record as saying Andrew Luck can be the greatest quarterback who ever played the game of football. I've seen him do some unbelievable things that I still can't believe a quarterback was able to do. I have tremendous respect for that guy.
+- Let's be honest: Everyone has got their opinion. It doesn't mean their opinion is an intelligent one.
+- I appreciate the fans who come out here, and they support us, but it's football. We're not saving lives. We're not police officers. We're not doctors. We're football players, first and foremost. If you want to stop watching the game because a guy feels strongly about a very serious topic that's going on in our society, then that's your choice.
+- The NFL cares about one thing, and that's the NFL. That's the bottom line.
+- I'm a religious man. I believe in God.
+- As cliche as it sounds, I've always told myself, 'Don't worry about the things you can't control. Control the things you can control.' That battle has beat up on me for years.
+- It's been my desire to support efforts to aim at healing the relationship between law enforcement and the community.
+- I want to know what coverage it is every single time. I want to line up and be able to read what the defense is trying to do to me so I can get open.
+- It's not necessarily about the physical aspects when people say receivers have a lot of drops or can't catch the ball. It's that they are not focusing on the right things. That their mind-set is not in the right spot.
+- If you take a step back and you look at the overall picture, there's a lot of teams in this league that could use a quarterback of Colin Kaepernick's ability.
+- My motivation comes from the plays I didn't make.
+- My father's a police officer, and he's told me numerous times about his training and how they've gone through what they call verbal judo, which is essentially them trying to de-escalate the situation.

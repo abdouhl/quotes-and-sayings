@@ -1,0 +1,105 @@
++++
+author = "Pooja Bhatt"
+title = "Pooja Bhatt Quotes"
+quotes_len = "99"
+description = "the best 99 Pooja Bhatt Quotes"
++++
+- My gaze is very different from that of Ekta Kapoor's, and that is quite visible in those two films - 'Ragini MMS 2' and 'Jism 2.'
+- If you don't have a basic spend on marketing, there is no point releasing the film in theatres.
+- Sobriety has been the most life-affirming path for me.
+- I need a combination of attitude, sensuality, and vulnerability. I need a new kind of heroine. After Bipasha Basu and Sunny Leone, India now needs an even more unique fantasy figure.
+- For me, movie-making is more than making a 'hit' film. It's about working with a team of people I really respect and doing something that gives me satisfaction.
+- When Priyanka Chopra makes a mark for herself internationally, we claim her achievements as our own and then threaten to ban her films and make her apologize for a work of fiction that has been created by someone else. Can we please attempt to be larger than that?
+- I had said bye-bye to acting, in a way, but once an actor, always an actor. Life has got other plans for me. Like, I did not want to be an actor - I wanted to be an architect or astronaut - and 'Daddy' happened, and the rest is history.
+- I am acting in a film based on Abheek Barua's 'City of Death.' It is a dark story that sifts through many layers of Kolkata.
+- As I grow older, I realise that just because I'm so obsessed with the truth, it doesn't mean that everyone else in my life is equally comfortable with it.
+- I want to bust the stigma attached to alcoholism in our country. Women particularly are discouraged from seeking help because it's a matter of shame for the family. We don't share our pain or frailties; we cover our weaknesses, and it becomes a cancer.
+- I did 'Daddy' when I was 17 years old. My father, Mahesh Bhatt, directed the movie, and he cast me.
+- The satellite and digital space is where the audience for 'Cabaret' lies: a discerning lot who don't rush to the cinema hall on the first day, first show, and prefer instead to consume their entertainment at their time and comfort.
+- You won't see me compromising just because it is convenient for me to do so.
+- No one is immortal. Don't worry too much about your life. Just sing your song... and go.
+- I could not be arm candy to a hero.
+- 'Jism' is what it is because of my feminine gaze... And I believe strongly that my female audiences deserve eye candy as much as my male audiences do!
+- There are no bad actors. There are only bad directors who cannot make their actors act.
+- It's important for me that anything I lend my stamp to must have a perspective that is uniquely mine.
+- At 45, I am too young to write my memoirs.
+- I only believe in making movies with integrity.
+- I am single, successful, and reasonably attractive. Whether I decide to have relationships that end in taking the plunge or not, they are my decisions.
+- I want to be a star who acts as well.
+- I have always wanted to be independent. When I became a producer, people said I would not succeed, but I proved them wrong.
+- My censor board is my own heart and mind. Our audience can say that the women in my films are bold or sensual, but never, ever vulgar.
+- It's important that, as women, we tell ourselves we are half of the humanity, and unfortunately or fortunately, we rely too much on other people for our validation.
+- I became more part of the industry after quitting acting. I contribute greatly to the industry, as I bring in talent, provide money in the chain, and make it happen.
+- To be an actor, you have to be self-obsessed, but when you are a filmmaker, you get a macro view. Every aspect of making the film is under your purview. And for me, that is a bigger turn-on than just being an actress.
+- I grew up in an environment where I could see the kind of havoc alcohol can create.
+- My grandmother, Betty Bertha Bright, lived in the Armenian block in Kolkata. After '36 Chowringhee Lane,' we haven't seen that part of the city in films.
+- We have German Shepherds, gifted by a friend, and the rest are street dogs we have adopted.
+- I am only in competition with the people who taught me cinema. I am not in competition with anyone in the industry.
+- Most filmmakers looked at it as a medium to palm off sub-standard stuff. I don't look at it like that. Your TV screen, mobile screen is as relevant as a cinema hall.
+- My dear friend Randeep Hooda says I am more a unionist than an actor. I reminded him I was a star and not just an actor.
+- We live in such a narcissistic world where people love to be in front of the camera.
+- Life begins at 40. I could attempt writing. Life is taking me into different directions.
+- One thing I do not see happening is women of certain age being represented correctly. We have to evolve conceptually.
+- I was told that since I am such an opinionated woman, people would think 10 times before approaching me for their films.
+- I am addicted to watching cookery shows.
+- I became passionate about filmmaking. The thrill to make something out of nothing and to go out there to see whether it will work or not attracted me.
+- Every person has his or her own journey.
+- Since I started as an actress in the film industry, I realised the power of visuals and how that can fuel the imagination of our mind. It is very powerful. Therefore, I always cater to my own sensibility first and then to the world.
+- Ninety per cent of the crew that work with me are there since my childhood and which is why I do not want to work too much outside - because the people I work with are as important for me as my role.
+- One woman who I think is great is Vidya Balan: her casting in 'The Dirty Picture' was very exciting. Let's break new grounds; let's think beyond the usual. Why can't a woman who plays a mother also play a lover, or why a lover can't play a villain?
+- I'm in the pink of health except for the weight I put on because I'm now a stressful producer. But being the daughter of an alcoholic makes you four times more susceptible to becoming one.
+- It doesn't matter whose banner I work for. If it is good, then I do it if I want to do it.
+- A sensitive person is seldom happy with the world the way it is. And since you cannot change it, you think, 'Might as well numb the anguish.' If you're using something to escape reality, then it's something you need to address.
+- There is no denying the fact that we live in a patriarchal society, and Bollywood is a patriarchal industry for sure. And it is not too fond of women with opinions.
+- I found my feet in my 40s: got divorced at 40, two years of drinking, and then, at 42, I became sober. My 30s were the most boring phase.
+- What supermarkets did to small neighbourhood shops is what digital platforms will do to cinema.
+- Now, with a click of a button, one has access to amazing content across a wide plethora to choose from; hence, traditional filmmakers will have to evolve in order to cater to the palate of the newly empowered end consumer or perish.
+- Very often, unfortunately, people may believe something, but they go along with a group of people because they don't have the courage to stand alone or stand up for themselves.
+- Apart from my film, I am producing TV serials and plan to make more films, too. Mine is not going to be one-film-a-year production company as such.
+- I wish there were people who gave me roles like my dad did.
+- 'Cabaret' was launched with fanfare, and the songs organically created quite a buzz.
+- I would love to make a documentary on my father, Mahesh Bhatt. What is interesting about Bhatt sahab is that he became more interesting personality after he left work.
+- The constant craze of size zero and crash diets is not very good.
+- I love my flops. Look at my life: my failure that broke my heart made me stronger.
+- Some people don't have the luxury to see a future without the man, as they are dependent on him. That's because they put their education or priorities aside to be mothers or wives to somebody.
+- My father believes that we create stars, and then others cast those stars.
+- 'Dhokha' is a film devoid of any political bias. It conveys to the government that when we talk about individuals who are terrorists, we have to first acknowledge that we created them.
+- I cook as much as I eat, and I like the aroma that comes out of a kitchen.
+- I was India's youngest producer. I was 21 when I produced my first film. I've continued to produce films because of the people who have worked with me and supported me.
+- The problem that I find in 'MasterChef India' is that it doesn't look like 'MasterChef Australia.' It doesn't have that kind of mood.
+- I am grateful to all the ups and downs in my life.
+- A film based on my life would not be as interesting as my father. I have not lived a life as enriching as my father. I have only been observer to his life, so I think I'm the best person to make a documentary on him.
+- When I married Munna, people didn't give our marriage even two months to survive. But we lasted for 12 years. The first 10 were magical. He's a fair man, a wise man.
+- I tried marriage. Do I advocate it? Yes. Marriage is a wonderful institution, provided you meet the right person and you be the right person.
+- I don't make projects; I make films.
+- I don't believe that a piece of paper can decide your relationship status.
+- I quit drinking because I thought somewhere I had fallen in that trap of addiction, and the only way to get out of it was to acknowledge it to myself.
+- If someone offers a film, I'm willing to do it if it's something I have not done before or pushes my boundary.
+- I don't only cater a film to the male audience but also the female audience.
+- Metamorphosis is important as long as we learn from everything.
+- I'm no role model, but I thought if I showed my frailties, which I had turned around into achievement, I could help many others.
+- I decided to put my money where my mouth was and make films that I believe in. So even if I failed, I failed on my terms.
+- I don't believe in feeling victimised. Instead, I like facing it on. Would I like to change a few things in life? Yes! But at the end of the day, mistakes are the dues you get to have a full life.
+- I have seen this whole process of films releasing, becoming hits or flops, for too long now to expect things to do well. If I expect a film to do well, then it is for somebody else's sake, not for my own. I do my work, and if you feel that my work is improving from film to film, then I have done my part of the job.
+- If there is anybody who can give you a combination of quality and reasonable budget, innovative content and casting, it is me!
+- Your film is a hit, you bathe in champagne; it flops, a single malt lessens the pain.
+- Respect is very important in a workplace for every woman, man, and child. We have to make our industry safe for women, men, and children. Everyone should be given equal respect.
+- People forget that I am the granddaughter of a person named Nanabhai Bhatt, who had made more than 150 odd films. He was the person to introduce the double role phenomenon in Indian movies.
+- If you are not willing to be a lone wolf, keep your truth to yourself. If you want acceptance and your truths to be spoken, it is a slippery slope.
+- Actors betray. Technicians don't. Movies are made by technicians.
+- I have Scottish genes: my grandfather was Scottish. My father was a voracious drinker. So, drinking came naturally to me.
+- Truth doesn't need a PR. If you believe it, go out there and speak it. Do not expect anyone to hold your hands and support you.
+- I don't leave things like recovery to chance! I have learned from the best, after all - my father and uncle!
+- Bollywood is a great place. You can expect support for award ceremonies, weddings, and funerals.
+- I enjoy production more than acting, as one is involved in many aspects of film-making.
+- I am choosy about my films, period - whether it's my father directing it or anybody else.
+- I believe in taking big risks. If you encourage new people, they want to prove themselves. They give their best. This is not possible with established stars, who treat their job casually most of the time.
+- It's an unwritten rule that you respect people who've given you breaks. You see somebody's body of work before you take a tone with them. I will talk differently to someone with 18 years of experience and someone with 18 months.
+- It annoys me that we glorify sex symbols one day and make them apologise the next.
+- It is important to change, acknowledge, and accept our mistakes. It's important that we - this goes even for me - introspect and see the wrongs we have done. It's time we all grew up.
+- I enjoy just being a producer and a home maker. I love being in charge. I love being the tortured and tormented soul. I am a Piscean. I enjoy the real-life drama fully.
+- The last person who was brave enough to cast me was Rahul Bose in 'Everybody Says I'm Fine.' He gave me no choice. He is my dearest friend. I confided in him about how disillusioned I was by the business of cinema and stardom. He offered me a role.
+- I stopped acting, as I was not curious about it anymore. I was not passionate about acting.
+- I am sorry if I am going to disappoint women who feel that becoming a mother completes you. I don't feel I am any less of a woman for not having a child.
+- The director does not have anyone to blame but himself. He or she cannot hide behind anybody. If a film is a hit, everyone gets the credit, but if it flops, only the director can be blamed.
+- 'Jism 3' has to be bolder and hotter in every way! Even the star cast is more diverse.

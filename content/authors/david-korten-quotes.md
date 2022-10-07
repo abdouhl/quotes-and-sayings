@@ -1,0 +1,38 @@
++++
+author = "David Korten"
+title = "David Korten Quotes"
+quotes_len = "32"
+description = "the best 32 David Korten Quotes"
++++
+- There is no visible sign that the current politicians in the US are willing to see the need for change.
+- Wall Street sees a social fabric or social contract as inefficiencies, which need to be removed.
+- If you look at the US economy over the last 15-20 years wages have been stagnating or even declining.
+- In the US, most progressives start to see the differences between internationalism and economic globalization.
+- The professional study of economics has become ideological brainwashing. It is a defense of the excesses of the capitalist system.
+- In a world of increasing inequality, the legitimacy of institutions that give precedence to the property rights of 'the Haves' over the human rights of 'the Have Nots' is inevitably called into serious question.
+- If I would need to make a prediction I still believe Kaplan's scenario is very plausible.
+- It will take some time before a politician will capture the imagination of the American people and have the vision and understanding to do what is necessary for a better future for the people of America and the world.
+- Global competition is about winners and losers.
+- Money is a mechanism for control.
+- More and more surveys in the US are indicating a change in values taking place among consumers, who become more concerned about quality of life, food, health and the environment.
+- But we can also take the radical view that the test of an economy has to do with the extent to which it is providing everybody with a decent means of living.
+- But in the past, US companies have been able to increase their profits through downsizing in the US, through colonizing other people's resources, and through the increase of globalization.
+- We should be moving toward local currencies not global or European currencies.
+- The first principle of the market economy is that it is comprised of many small buyers and sellers, which implies a substantial degree of equity. Another fundamental market principle is that costs are internalized in the producer's price.
+- It is interesting to note that the 200 richest people have more assets than the 2 billion poorest.
+- And each of these perspectives comes to the same conclusion, which is that our global economy is out of control and performing contrary to basic principles of market economics.
+- Money is not wealth. Money is a claim on wealth.
+- Europeans say they are proud of their social fabric, of strong rights for workers and the weak in society.
+- There is a huge shift taking place in the global awareness in the last 5 years with strong views about globalization and the power structures of major corporations.
+- There are actually very few US politicians who have integrity and vision.
+- Not exclusively, but the bulk of our local economy should be covered by local currencies, which is more efficient than having global currencies which lose connection with reality in the markets, shops and communities of the people.
+- Moreover, statistics can be deceiving: the growth of jobs in the US in the 90s was due to many part-time jobs, with no benefits and generally low pay.
+- Money flows into the US, and inflates US assets, and allows the US to have a monstrous trade deficit. That means we are consuming more than we are producing.
+- So, there is enormous instability in the global economy with a shift of winners and losers.
+- My claim is that we do not have a market economy, but a capitalist economy.
+- If you look internationally over the last 50 years there have been improvements in the third world, but in the last 20 years the reverse has happened, with debt crises and increased poverty.
+- Capitalism and the market are presented as synonymous, but they are not. Capitalism is both the enemy of the market and democracy.
+- My own experience in the third world was that even if people started to make more money, the cost of living and housing increased often faster than the wages.
+- The EU will face problems similar to the US: an increasing gap between the citizens and decision makers in Brussels and a perceived or even real lack of democracy.
+- Capitalism is not about free competitive choices among people who are reasonably equal in their buying and selling of economic power, it is about concentrating capital, concentrating economic power in very few hands using that power to trash everyone who gets in their way.
+- More humane societies are usually smaller, like the Scandinavian countries and Holland, where it is much easier to reach consensus and cooperation.

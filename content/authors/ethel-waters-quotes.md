@@ -1,0 +1,46 @@
++++
+author = "Ethel Waters"
+title = "Ethel Waters Quotes"
+quotes_len = "40"
+description = "the best 40 Ethel Waters Quotes"
++++
+- I never was a child.
+- We are all gifted. That is our inheritance.
+- I wanted to be with the kind of people I'd grown up with, but you can't go back to them and be one of them again, no matter how hard you try.
+- The big compliment came from the beer drinkers who didn't know me. They wouldn't drink or move when I sang. If they had their glasses in mid-air, the glasses wouldn't come down.
+- New York is only 97 miles from Philadelphia but was the Big Time as no other American city has ever been.
+- I have reason to be shy. I've been hurt plenty.
+- I never was coddled, or liked, or understood by my family.
+- Basically there is no difference between whites and blacks, browns and yellows. I decided to think no more of people as Northerners and Southerners.
+- There is a great supply of amateur undertakers in show business.
+- Whenever I played Columbus, Ohio, I dropped in to see my close friend, a medium who had mysterious powers. Her Indian guide was Mohawk.
+- I never felt I belonged. I was always an outsider.
+- Somehow, the things my mother wanted to do, the release in evangelism she sought with such frenzy, were transferred to me.
+- My whole family could sing. My family harmonized without any instruments to accompany them.
+- I never accepted the idea that I was all through. I guess no person who has once been a star can do that, ever.
+- I cannot help feeling I would have been happier with a husband and chidren of my own.
+- Today or any day that phone may ring and bring good news.
+- Mom was the greatest influence of my childhood. She wanted to save me from the vice, lust, and drinking that was all about me.
+- After years in white theaters I dreaded working in colored houses. The noise, the stomping, whistling, and cheering that hadn't annoyed me when I was young was now something I dreaded.
+- I've never been able to feel that there is anything undignified about making your living by the sweat of your brow.
+- There was one emotional outlet my people always had when they had the blues. That was singing.
+- In her whole life Mom never earned more than five or six dollars a week. Being without a husband, it was hard for her to find any place at all for us to live.
+- No one in the world can beat Ella Fitzgerald as a riff singer.
+- When you dominate other people's emotions, the time has to come when you will have to pay, and heavily, for that privilege.
+- Nothing can beat the smell of dew and flowers and the odor that comes out of the earth when the sun goes down.
+- It has been an ache and a joy both to look over this big shoulder of mine at all my yesterdays.
+- The white audiences thought I was white, my features being what they are, and at every performance I'd have to take off my gloves to prove I was a spade.
+- All the men in my life have been two things: an epic and an epidemic.
+- I am an isolationist.
+- Though I was excited about the Sojourner Truth play, it was not reassuring to think that my entire future might depend on the success of that one show.
+- Asking what I considered an impossible salary when I didn't want to work for someone has boosted my pay again and again.
+- We never had a bathtub. Mom would bathe me in the wooden or tin washtub in the kitchen, or in a big lard can.
+- I have no acting technique I act instinctively. That's why I can't play any role that isn't based on something in my life.
+- I had always loved John Ford's pictures. And I came to love him, too, but I was frightened to death working for him. He used the shock treatment while directing me.
+- Mom never quit on me. My only regret is that she didn't live long enough to share some of the money and comforts my work in show business has brought me.
+- You are a person of the greatest importance when you are a mother of a family. Just do your job right and your kids will love you.
+- I want affection and tenderness desperately, but there's something in me that prevents me from handing it out.
+- There's no hypocrisy in Hell's Kitchen.
+- All my life I've been prejudiced against wealthy people.
+- Elia Kazan understood my problems. He was able to bring out the very best in me. He gave me credit for my intelligence.
+- Negroes are human beings with exactly the same faults and virtues as members of the other races.

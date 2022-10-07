@@ -1,0 +1,15 @@
++++
+author = "Edd Byrnes"
+title = "Edd Byrnes Quotes"
+quotes_len = "9"
+description = "the best 9 Edd Byrnes Quotes"
++++
+- When I was 18, I drove from New York to California to be a movie star. Not an actor, mind you, but a movie star. Have you ever heard of anything so silly?
+- Madeleine Albright introduced herself to me. I talked to Henry Kissinger and Barbara Walters. And I asked Peter Jennings to write a note of encouragement to my son, Logan, a news anchor at the ABC affiliate in Palm Springs.
+- The divorce was the toughest thing in my life. It still hurts.
+- I remember we would get young, aspiring actors to come on '77 Sunset Strip' - I remember George Kennedy was one of those - and they would do a big guest star part, a lead, and they'd be paid maybe $850.
+- In the days when I was the big hero, the money wasn't much. Nobody made anything on television in those days.
+- I don't envy young actors.
+- I went to Yugoslavia to make a movie. People saw me there and asked me to do a movie in Germany. And that led to a movie in Italy. Before I knew it, I was in Europe for most of the next 10 years.
+- It was hard to admit I had a problem when I still had money, property, prestige. How can I have a problem when I'm driving my new Mercedes, and it's paid for, and I have a house at Malibu?
+- Happiness is an inside job.

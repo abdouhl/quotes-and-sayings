@@ -1,0 +1,24 @@
++++
+author = "Daniel Naroditsky"
+title = "Daniel Naroditsky Quotes"
+quotes_len = "18"
+description = "the best 18 Daniel Naroditsky Quotes"
++++
+- The game is a war, and in a war you fight. My opponent is just the director of the opponent's army.
+- When you're calculating variations - especially long ones - it really helps to visualize the board.
+- When your opponent is tied up, always be patient and search for the simplest option.
+- It might sound a little weird that, you know, chess streaming has a community, but really it does.
+- The comparative strength of each piece depends entirely on circumstance; their movements are so different that it is essentially impossible to effectively compare them on anything other than a case-by-case basis.
+- Some kids think I'm some kind of weirdo. I probably am weirder than most people.
+- With chess it was almost this palpable electricity that I felt. You're totally in control of your own fate. There's no luck factor. It's you and the pieces.
+- Time and again, players lose because they make rash decisions. Therefore, you always have to remind yourself - don't hurry. Embarking on a risky combination that cannot be calculated to the end is certainly not the right thing to do.
+- I think death is the aesthetic part of chess, seeing your opponent's army fall. Producing a sacrifice in order to mate is the aesthetic part of it. It's a beautiful, bloodless war.
+- After every move, ask yourself what does my opponent want to do to me, and how can I prevent it?
+- The great thing about chess is it's a game for oneself. You don't work on what you can't control, you just work on yourself. And I think if more people did that, we'd all be a lot better off.
+- The point system certainly governs a Grandmaster's decisions, but it can be outweighed in any given position by more important factors.
+- Most beginners who have learned the point system will only consider a sacrifice if it leads directly to checkmate or if the material can be won back by force. A Grandmaster, though, will frequently sacrifice for less tangible compensation, such as a lead in development or a superior pawn structure.
+- You can't worry about intimidating me and playing the game at the same time.
+- Sometimes, I believe I actually see the wheels in my brain turning.
+- It's not 64 squares. It's a battlefield. There's no luck, there's no dice. It's just you and your opponent.
+- I think there's a misconception that chess players are all total nerds. Well, I guess they are.
+- I think of myself as playing against the board, and not against my opponent.

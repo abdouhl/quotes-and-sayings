@@ -1,0 +1,15 @@
++++
+author = "Sophie Aldred"
+title = "Sophie Aldred Quotes"
+quotes_len = "9"
+description = "the best 9 Sophie Aldred Quotes"
++++
+- 'Tree Fu Tom' is a truly interactive programme because it is designed to help children get up off the sofa and physically move, which is a very important part of children's development.
+- I always had a real love of children's presenting, and I was lucky enough to do that and have an acting career alongside it.
+- I always wanted to be a 'Blue Peter' presenter when I grew up!
+- I was really so excited when it came back on air and I saw all three of the actors who played 'Doctor Who' in the new version and they've all been absolutely brilliant in their own special way, as all the Doctors always are.
+- 'Doctor Who' is one of those things that stays with you throughout your career, and I'm very happy with that.
+- There was something very special about 'Doctor Who', and I did miss it a lot.
+- 'Doctor Who' was my first telly job, and before that I did a lot of theatre in education, children's theatre.
+- I loved the medium of TV from the first moment that I got into a studio.
+- My concept of a 'Doctor Who' girl was that you screamed a lot and ran around quarries in unsuitable footwear. Of course you fell over and twisted your ankle, because you had high heels on.

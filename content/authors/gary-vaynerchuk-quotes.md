@@ -1,0 +1,95 @@
++++
+author = "Gary Vaynerchuk"
+title = "Gary Vaynerchuk Quotes"
+quotes_len = "89"
+description = "the best 89 Gary Vaynerchuk Quotes"
++++
+- One of my biggest flaws is I don't take advice.
+- Eighty-five per cent of the crowd is going to fall in love with me - they're going to feel it, wow. But fifteen per cent are going to think, 'This guy is obnoxious.' I spend enormous time with them - every negative review of 'Crush It!' on Amazon has a response from me - and I can probably bring back ten of the fifteen.
+- The world has changed - through technology, through wine-making techniques, the quality of wine is greater than it's ever been. Whereas ten, fifteen years ago it was very easy to find lots of bad wine, it's kind of hard now. The technology, the science - it's like, are you kidding? We're in the golden years of wine!
+- It's about stories. If I can tell the story to America, whether it's Riesling or a boxer from Harlem, it will sell. I know on my gravestone it's going to be, 'Storyteller.'
+- The chef that grew up with the grandma who cooks tends to always beat the chef that went to the culinary institute. It's in the blood.
+- The reason I was able to grow my business was that every day, after producing 30 minutes of wine television, I spent 15 hours a day replying to every single person's e-mail and every single person's Twitter @ reply.
+- I don't know how you can justify leaving any engagement behind in the social Web of 2011.
+- I know if I stopped hosting 'Wine Library TV,' we'd probably lose 75 percent of our audience, but the remaining 25 percent is still a big number.
+- The first thing I ever invested in was Twitter. Blaine Cook, former CTO, was leaving the company and asked me if I wanted to buy his stock.
+- Anyone working for a big company might be skeptical that a large business, or even a strictly online business, can form the same kind of friendly, loyal relationship with customers as a local retailer. I'm saying it's already been done because I lived it.
+- I went online with winelibrary.com in July of 1997; that was my first professional online play.
+- Really, truly, try to figure out what your palate is all about. If you've determined that you don't like dirty old stinky wine - old-world flavors - you probably like new-world fruit bombs. Stick to Shirazes and California Cabernets or Zinfandels.
+- My natural inclination to be improv rather than an educated character serves me well.
+- I am wired like a CEO and care a great deal about the bottom line, but I care about my customers even more than that. That's always been my competitive advantage.
+- I want to sit with 80- and 90-year-old people more than anyone. They have played this game before. Not one of them has told me, 'I wish I had more money.'
+- I really chess-play culture shifts. I'm really good at understanding what worldwide cell-phone use means. That's what I do. I try to picture it three to four to five steps ahead.
+- If I could drink only one wine, it would be Champagne.
+- I want to own the New York Jets, that's what I want. And I absolutely believe I am going to own the Jets.
+- Vince McMahon is one of the greatest storytellers of all time, but WWE's not striving for the kind of innovation it's capable of.
+- I'm a storyteller. I love to tell stories about brands. I love to tell stories, period. I like painting pictures through the words, and that's what I do.
+- 2006, I started 'WineLibrary TV.' To build 'WineLibrary TV,' I started using Facebook, Tumblr, and Twitter in 2008.
+- When I hear people debate the ROI of social media? It makes me remember why so many business fail. Most businesses are not playing the marathon. They're playing the sprint. They're not worried about lifetime value and retention. They're worried about short-term goals.
+- People don't want to embrace culture shifts because it's not going to happen in the next 20 minutes.
+- I think what's happening for me, it's fun to see other things besides Facebook and Twitter take hold. The maturity of Tumblr as a real player is exciting. I think Pinterest has proved to be a major player. It's fun to see Instagram become a major player. It's fun to watch things like SnapChat, and Vine, try to vie to be the next thing.
+- I hate recording all the shows for the week in one day, because I want to be able to mention current events and pop culture. If Madonna punches Britney in the face today, I want to reference that on 'Wine Library TV' tomorrow. Monday's episode is always the best, because it's hot off the press.
+- I attract a crowd, not because I'm an extrovert or I'm over the top or I'm oozing with charisma. It's because I care.
+- Best wine if you're stranded on a deserted island? 1982 Salon Champagne.
+- Here's how I work: It's 2013, and most marketers are operating like it's 2009. I'm always trying to market like it's 2015, but not like it's 2020. A lot of my contemporaries who understand where the world is going, go too far out, and aren't practical. I have always prided myself on being visionary, with a heavy practicality.
+- Be reactionary. React to what the market wants. And the market wants one-on-one real time engagement. Now that we have the tools to engage, I'm going to continue fighting for the end user.
+- Stop doing things that waste time. Don't replace time with your family or things that you need to do. I needed to put together two fantasy teams this weekend because that's something I enjoy, but I did stop playing Nintendo Wii for hours on end.
+- I want people to know their palate is a snowflake. We all like different things. Why should we all have the same taste in wines?
+- My dad is like a cactus - introverted and tough. I'm a people person, like my mom, but I got my competitiveness from my dad. He came to this country from Belarus with nothing and built a real business. He's my hero for giving me that need to run a business and for having enormous confidence in me.
+- Do you know how many companies have wanted me to do an energy drink for them because I named my book 'Crush It!'? It might be fun one day, but right now I think it would undermine the personal brand I've built.
+- I have Internet fame. Real fame is more intense.
+- You cannot underestimate people's ability to spot a soulless, bureaucratic tactic a million miles away. It's a big reason why so many companies that have dipped a toe in social media waters have failed miserably.
+- One of the things that I'm really proud of is that I have really good timing. It's very easy for me to see what's coming up and it's no coincidence that I went headfirst into wine and then headfirst into new media - none at all.
+- The thing that I'm most passionate about, I'm writing a book called 'Jab Jab Jab Jab Jab Right Hook,' and it really focuses on how to story-tell in a noisy, ADD world.
+- When the tech geeks talk, I pay close attention.
+- Social media requires that business leaders start thinking like small-town shop owners. This means taking the long view and avoiding short-term benchmarks to gauge progress. It means allowing the personality, heart and soul of the people who run all levels of the business to show.
+- If you talk about Cabernet and Merlot-based value between $10 and $25, I will tell you that Bordeaux is the best value in the world.
+- We're living in what I like to call the 'Thank You Economy,' because only the companies that can figure out how to mind their manners in a very old-fashioned way - and do it authentically - are going to have a prayer of competing.
+- I influence anybody who is able to get through the chaos of my first impression.
+- There's always a wine bully. The one person who did read the 'Wine Spectator,' who tells you what to drink and why the '97 is better than the '98. I want to punch the wine bully in the face. I want to make sure this generation of wine drinkers isn't elitist and snotty. I want it to be about family and bringing people together.
+- Nobody walks this earth thinking he's better than I think I am - I think I'm great. At the same time, it's so obvious to me that I'm nobody.
+- 99.5 percent of the people that walk around and say they are a social media expert or guru are clowns. We are going to live through a devastating social media bubble.
+- When I was 17 or 18 I wanted to become a wine expert, and my parents wouldn't let me drink. So I was devastated. All I could do was read, and I read and I read. And I'd read something like, you know, 'Subtle hints of cassis.'
+- From age 16, I lived and breathed wine. I read every magazine and book about wine.
+- Word of mouth works now, much more than ever. @-reply every single person.
+- You have to respect your parents. They are giving you an at-bat. If you're an entrepreneur and go into the family business, you want to grow fast. Patience is important. But respect the other party... My dad and I pulled it off because we really respect each other.
+- Okay, let's talk about cartoon labels for half a second - some people think anything with a dog or a car or a colorful alien is garbage, which is not true. Look at Big Moose Red. It's, like, a $6 wine with a cheesy label, and it's actually a solid wine.
+- VaynerMedia filters the world how humans interact. This is how people are going to make buying decisions.
+- When we launched the WineLibrary website in 1996, I didn't even own a computer yet. I just understood that there was an opportunity here to market in a different way.
+- People are chasing cash, not happiness. When you chase money, you're going to lose. You're just going to. Even if you get the money, you're not going to be happy.
+- IQ is a commodity, data is a commodity. I'm far more interested in watching people interact at a restaurant with their smartphone. We can all read 'Tech Crunch,' 'Ad Age.' I would rather be living in the trenches. I would rather be going to Whole Foods in Columbus Circle to watch people shop with their smartphones.
+- I have no interest in going to Egypt and seeing the pyramids. I'm just not that kind of dude.
+- You have to understand your own personal DNA. Don't do things because I do them or Steve Jobs or Mark Cuban tried it. You need to know your personal brand and stay true to it.
+- Many people who I respected were disappointed when I started 'Wine Library TV.' They thought I was dumbing down wine, but I always knew I was one of the biggest producers of new wine drinkers in the world, and people are realizing it now.
+- As much as I love crisp, clean whites, there's always a time for rich but balanced Chardonnays with oak, especially at Thanksgiving.
+- It's insane to me to ask anybody to be what they're not. Know what you know the best, love the most. That's always going to be the answer to the thing that you have the best shot at winning at.
+- People are more comfortable learning about wine because now they can just Google, you know, 'Soave,' and say, 'Oh, O.K., cool.'
+- The Loire Valley is grossly underestimated. The prices are fair, and the wines are real.
+- I'm pretty good at sticking to what I know. You don't see me social commentating on health-care or presidential debates. I talk about what I know because I'm petrified of being wrong.
+- People who build family businesses are not classically trained. They have to deal with an enormous amount of politics. You think corporate politics are tough? Go work for your dad or your mom.
+- Bordeaux would be naive not to recognize that Robert Parker was driving the brand equity. If the next generation doesn't care about Chateau Pichon-Lalande, then you have a problem.
+- I definitely think there's some way to understand how people emotionally feel about somebody, but I don't think data collects it. They're not going to click your bit.ly link or click your TweetMeme retweet every time.
+- If there's a problem, we at Wine Library never tell ourselves that once we handle this issue, we'll never have to deal with the person again. We talk to every single person as though we're going to wind up sitting next to that person at his or her mother's house that night for dinner.
+- I would argue heavily that the time that has been allocated to social used to come from television, and people are benefitting from it. People who are saying, 'Aw, you're spending all your time on Facebook, or all your time on Twitter,' I'd like to understand what the person used to do with that time.
+- I am thinking about launching a wine website where there is a deal and the crowd can dictate how cheap it can get.
+- I'm an entrepreneur first and a wine critic second.
+- I do not believe that people want to work hard enough and they want to find the quick Twitter, SEO. Anybody who's obsessed with SEO has lost already, period. I believe that firmly.
+- I'm concerned a little bit with the culture of celebrating the fundraise. My dad taught me that when you borrow money it's the worst day of your life.
+- Brands mature over time, like a marriage. The bond you feel with your spouse is different than when you first met each other. Excitement and discovery are replaced by comfort and depth.
+- A broad trend I'm completely obsessed with is mobile commerce. Like completely. I'm completely convinced that everybody's going to be buying from their mobile devices. Whoever can claim that space or be in that space, I'm very interested in.
+- Storytelling is the game. It's what we all do. It's why Nike is Nike, it's why Apple is Apple, it's why Walt Disney built Disney World and it's why Vince McMahon makes a billion dollars.
+- I'm not afraid to call a wine that tastes like Skittles or green peppers mixed with orange marmalade. I'll say, 'It tastes like chicken.' I mean, that's not what people think of when they think of wine, but that's what it tastes like to me and it hits home.
+- Even though I'm a hype man myself, I like the practicality of it all. People who understand how to turn a profit. At the end of the day, this is still business so I'm looking for real practical knowledge of how to actually make money, not necessarily raise it.
+- I'm a big fan of Mashable and TechCrunch and other outlets like that, but TechMeme obviously does an amazing job of aggregating.
+- Too many companies think they want to do a video blog to sell merchandise, but if you turn your site into QVC, you lose. I have an audience that trusts me. It's about building a global brand - not selling four more bottles of Pinot Grigio.
+- I am surprised by how not-adopted the video reply has been. What keeps other people from doing it, I think, is that they think a video comes across as 'I'm cool, look at how many e-mails I get.' That perception doesn't scare me, because I know who I am.
+- I know I could be the host of 'SportsCenter' in two years if I changed my show today to sports.
+- I find it fascinating that a lot of business books that do well are from people who've never made any money in business.
+- I always say that the real success of Wine Library wasn't due to the videos I posted, but to the hours I spent talking to people online afterward, making connections and building relationships.
+- I don't want anybody to not recognize how appreciative I am of the volume of e-mails I get.
+- Beaujolais is so underrated.
+- I love people, and the hustle.
+- The reason we love our parents is because they loved us first. Every single company should take this advice.
+- Winelibrary.tv was about building personal brand equity. It was a business move. Now, it was totally surrounded by a passion for wine, but I very much gave a lot of thought to doing a sports-video blog instead.
+- Think of social media as the Internet. I can't think of anyone betting against the Internet in 2012.
+- I think the acquisition of consumers might be on the verge of being mapped. The battlefield is going to be retention and lifetime value.

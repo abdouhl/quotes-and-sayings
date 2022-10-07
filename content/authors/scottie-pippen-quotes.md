@@ -1,0 +1,154 @@
++++
+author = "Scottie Pippen"
+title = "Scottie Pippen Quotes"
+quotes_len = "148"
+description = "the best 148 Scottie Pippen Quotes"
++++
+- We grew up in a small house with four bedrooms. I shared a bedroom with three brothers. But I enjoy the way that I was brought up. It kept me hungry. It kept me humble.
+- Being in the Hall of Fame is where any player wants to be at the end of his career. It's somewhat of a last step for a player in terms of their career, and it's a place where you'll always be remembered for what you accomplished.
+- Fans are demanding. They want to win. They want it now. If you have an injury, they want you back the next day.
+- I went through ups and downs as a young player dealing with criticism and things of that nature. To finally win that first NBA championship, it was definitely a relief of a lot of pressure and frustration we dealt with as a team. It was great to bring a championship to the city of Chicago.
+- I think when you come from a small college like I did, then you have to use every opportunity available to you.
+- Chemistry is a very important element for any team that wants to be serious about winning.
+- I feel like I'm a guy who gets other guys shots.
+- To be in a position where an organization like the Bulls creates a bust of you that will permanently be displayed in a building like the United Center says it all. It's hard to put into words because it is such an honor. It's great to know that something like that will be around forever.
+- I want to be a role-model player, someone respected and looked up to.
+- I don't really have any regrets.
+- It's not easy to win 60 games in the NBA.
+- I'm a family man, and I couldn't be happier. My wife and I have been blessed with an incredible family, and my kids are my life.
+- It's always been a passion of mine to come out and share some of my knowledge about basketball and the experiences I've had with the younger generation.
+- The key about playing internationally is the confidence that you gain. Not only do you train with some of the best players in the NBA, but you compete against some of the best players in the world.
+- I want to get into the NBA and make a name for myself.
+- Coach Dyer was a great mentor for me and a great teacher.
+- When you suffer a few losses in the playoffs, it forces you back into the gym early on.
+- It takes locking in on the task at hand and honing in on what you need to do in order to be successful in the NBA postseason.
+- Basketball is a lifelong game. You continue to learn from the game day in and day out, and all along the way, you get better.
+- There are a lot of people from my Central Arkansas days that I owe a lot of thanks to for how they helped me over the years.
+- Lacking a dominant big man is a tall order.
+- I'm a guy who is easy to get along with, and I'll put up with a lot of things. But not dishonesty.
+- It may sound simple, but both winning and losing can become a mind-set, and I won't accept losing - ever.
+- When I look back at my first few seasons in the NBA, we didn't dominate as a team. There were a lot of nights where we took a beating and got whacked across the head. But we got better along the way, and we started to taste the success. With that came the pressure and expectations to be successful.
+- To have a beautiful house on the outside is one thing... Once you get inside, that's what really makes a home.
+- I take a lot of pride in my first '92 gold medal.
+- Defense is something I take a lot of pride in.
+- Yes, I think the '96 Bulls are the greatest of all time. I think the 72-10 record speaks for itself and the fact that we were able to cap it off with a championship. What it boils down to is we had a dominant style, a dominant defense, and we were a very good offensive team. It was the way we dominated our opponents that separated ourselves.
+- I never wanted to be Michael Jordan, although I would like to trade bank accounts.
+- You look back at the '95 season, and a lot of those guys were getting mega minutes. Michael Jordan was out playing baseball. We were still winning, won 55 games I think, so those guys were all very content and happy with the way that things were going that year.
+- I just like to be around family.
+- I'll miss the competitive side and the camaraderie of being around the players and competing each and every day.
+- As a young player, achieving All-Star status isn't as easy as you might think.
+- I don't believe being a Hall of Famer is based on individual accolades. I think winning has a lot to do with it. But perhaps more than that, you simply have to show that you are the best or among the best at what you do.
+- When you look at Jerry Sloan teams, they're all very disciplined. They execute well. They play within themselves.
+- When you get some easy baskets, the basket definitely looks like it's much larger.
+- If you can prove that you're in that elite class on a consistent basis, it speaks volumes about a player's longevity. It also says that as a player, you were steady, stable, and great and that you deserve to be recognized.
+- When the game is over, it's over. We leave everything on the court.
+- Everyone in my family was pretty tall, so we always thought I would get bigger.
+- I always dreamed of playing the NBA, but along the way, the road got a little cloudy.
+- Playing with Michael Jordan would be a great opportunity for me. I would have someone around I could learn a lot from. I look up to him as a player and as a person, and that would make me a better player and person.
+- As a player, NBA All-Star Weekend contains a lot of joy and a lot of excitement. Even with all the hype built into the game, it's really a special honor to be selected among many great players.
+- I make a lot of money, but I need to be treated right.
+- It doesn't really count as a great year if the team is not doing well.
+- Sometimes as a player, you're not there yet. The doctor can tell you the headache is gone, but he don't totally know that it is gone unless he can get in your head.
+- As a player that has played this game, I know, at the end of the day I've had numerous amount of surgeries, and the doctors released me at numerous amount of times to go and play. But a lot of those times didn't mean go and play against the best in the world right now, but to get yourself ready to compete again.
+- You just go out and try to always play at your best.
+- College was a very necessary step along the way to my professional career. As I look back, I realize how much of an eye opener it was for me in terms of moving forward and developing as a basketball player.
+- Basketball is such an escape from a lot of things.
+- I worked at a place called Virco. They build school desks.
+- At the point when I lost my father, it really made me want to be like a father and be like my father. It was a real turning point for me because it helped me mature - it made me think about being responsible because I wasn't the only one I had to think about.
+- Each season was different and presented its own set of circumstances and challenges.
+- I wasn't given a scholarship out of high school, and that allowed me to learn what hard work was early on.
+- Things for me really started to click right after my third year in the league. I sort of figured out that there were a few things that I needed to do if I wanted to get better - I needed to gain some more weight and add some strength.
+- I've never seen a player that can dominate a game the way LeBron James can. He don't always have to score. He makes plays for other guys. But when the game is on the line, and you need a shot to be made, he's going to make that play.
+- As a young player, I always thought I was doing everything I could. But the longer you play, the more you learn, and the better you're prepared for what this game throws at you.
+- Your job, what you do every day, I think it takes a high priority over anything. That was something I dedicated myself to throughout my career.
+- You continue to compete against the very best every day, and you will get better, or you'll be embarrassed.
+- I can be 60 years old, but I can always go back and play like I once did by just playing a video game. It's really great.
+- When I say I played with the greatest, let's not forget I also played for the greatest coach of all time.
+- I'm never going to leave my family hanging out to dry.
+- I went to a small school, so I had to be a jack of all trades and master a few.
+- If you're not on a team that's winning, it takes a lot out of you as a player.
+- I'm no slouch, but when comparing LeBron's game, I'm usually left out.
+- I love this city and the Chicago fans.
+- It had been a long journey for me just to get drafted. I had to work very hard as a collegiate player just to get recognized, being at a small school.
+- It was truly an enjoyable moment in my life that I will never forget having the opportunity to play for two gold medals. But I think nothing sticks out more than winning a championship in 1991 for me.
+- I want to do the best I can in the NBA. After three or four years, I want people to know who Scottie Pippen is.
+- I wasn't really that interested in playing. I had gone through some hard times not playing in high school, but my coach had it in his mind that basketball was the way I would get an education.
+- I'm proud to be considered a member of the Nike family.
+- There are no guarantees in the league, and the challenges will always be there.
+- It's an honor to have kids. It's a responsibility.
+- I think I learned a lot from a lot of experiences that I dealt with over my career.
+- To be named as one of the finalists for the Naismith Memorial Basketball Hall of Fame's Class of 2010 on Friday was a special moment for me. As a player, it's something that you dream about. It's an honor that you have to earn based on your career and the respect from your peers around you.
+- I was lucky to play with guys who were not only good players, but great people.
+- If I had an opportunity to hand-pick a team that I wanted to play in the NBA Finals, it would probably be the Lakers.
+- I've played basketball all of my life, and I've had things happen on the court that you eventually have to move on from. It's part of some of the obstacles that you meet in trying to reach your pinnacle.
+- I guess guys who play on national TV get a lot of publicity.
+- Everyone likes to strike while the iron is hot. That's a philosophy I've always liked.
+- In the playoffs, it's win or go home. You might not have a chance to look back at a game and say, 'Man, we didn't box out here.'
+- I love playing in Chicago, and the fans have been great to me.
+- Chicago's where I started my career. I've had a lot of success playing here.
+- Once you get a taste of success, it's a hard thing to turn down.
+- It's tough to lose and lose and lose and get a little closer, but you still lose.
+- Everything was a lesson learned and a step forward for me.
+- For me, getting your number retired is the greatest accomplishment. There is no accolade with more significance that you can receive from an organization or school. Whether it was my four years at Central Arkansas or all my seasons with the Bulls in Chicago, it's a sign of respect for what I have done.
+- You've got to have a commitment to your craft.
+- Most of basketball is in the mind. But it helps to have big hands.
+- Don't disrespect me, lie about it, and then come smile in my face and act like nothing's wrong.
+- I have been able to live my dream of playing basketball surrounded by people I love and being cheered on by the best fans in the world.
+- Coaching jobs are far and few between; you try and get into the right situation and take advantage of it from there.
+- No matter how well you do in the regular season, it has to be capped off with a championship to really mark your legacy in the game.
+- Some guys get into the NBA, get the big money, and are satisfied with themselves.
+- Every team deals with obstacles throughout the course of the season, and it's as a unit that they need to be worked through. Injuries are part of the game, just like facing tough teams on the road or having one of your best players get into foul trouble.
+- Michael Jordan is probably the greatest scorer to play the game.
+- It's not common for your best player to also be your most unselfish player.
+- I'd probably say the championships mean more to me, but the gold medal makes you a bit different. It's a special award.
+- I thought the lanes opened up when Michael Jordan used to drive. I used to be like, 'Wow.'
+- He lifted weights, he rode the bike; he kept himself going before and after games, as well as practices. He always kept himself in top shape and was very determined. You put a relentless Dennis Rodman out on the basketball court, and you better have someone there to match his energy. If you don't, it's going to be a long night.
+- The respect I had to give my brothers and sisters growing up I think has helped me. I want my kids to be raised the same way.
+- The odds were against me when I arrived at Central Arkansas. I was barely 6-foot-2 and didn't have a scholarship. But I always felt I could make it to the NBA; it was as if I had foreseen my future, and I knew I would make it.
+- I had watched Magic my whole career, even before my career, and so I knew the style of player that he was, and I knew what I had to do to prohibit him from being as effective on the basketball court as he had been throughout his career.
+- As a player, you experience so many different moments, but you never truly sit back and reflect on them. You enjoy them, but with the championships, we were so busy celebrating with everyone that we didn't really realize what we had accomplished as individuals and as a team.
+- When I got to Central Arkansas, I was a small, slim guy with little chance of playing in the NBA. Then, I went through a two-year growth spurt, and suddenly, I was 6-foot-7.
+- When I was growing up, I never thought I would play in the NBA.
+- As I look back, I have to say growing up was fun, not a problem at all.
+- Being the youngest of twelve kids and having your underwear handed down teaches you how to share.
+- When you endure an 82-game season, you have a great opportunity to build a lot of confidence and cohesiveness with your teammates and coaches.
+- I knew I was a player that could break guys down and create for my teammates, and that is how I looked at it.
+- I spend a lot of time at home with my kids.
+- The influence of a high school coach can be so powerful.
+- Fatherhood is great.
+- I'm thankful that I was able to have a long, healthy career for the most part.
+- When you speak of the Pat Rileys, the Phil Jacksons, you have to speak of Don Nelson and the success that he has had in the game.
+- The things that have happened for me, to me, have helped me grow up. Especially the passing of my father. That was something that took me to another level of growing and maturing. That's whan I started to be more of a man.
+- Pau Gasol is one of the best big men in the game.
+- I was way behind physically in high school. They had weight bars that were about forty-five pounds. I couldn't handle them. Couldn't even put the weights on. It was embarrassing. So I always figured out ways to avoid lifting when I was young.
+- What is most remarkable to me about Durant's game is what he does given his size. It's so unique to have a player who is 6-foot-9 with the ability to shoot and handle the ball so well. It allows him to stretch the opposing team's defense because he can do those things at such a high level. He's a load to deal with and an extremely tough matchup.
+- It's not always about getting better on the basketball court. This game teaches you how to become a better person as well. It pushes you into the team concept.
+- I wouldn't give Charles Barkley an apology at gunpoint. He can never expect an apology from me... If anything, he owes me an apology for coming to play with his sorry, fat butt.
+- I was a guy that had a lot of tools and could do a lot of other things, but my main thing was controlling the defensive end of the court.
+- If I could have written a script of how I wanted my career to be, I couldn't have done it any better.
+- There's nothing like the camaraderie of being around the other players.
+- I prefer starting. Anyone in this league does.
+- Defense was one thing I was really able to work at and get better.
+- I know how to win games.
+- I want to thank the NBA and U.S.A. Basketball. Words can't describe my feeling. I was a small town kid from Hamburg, Arkansas, and you provided me a platform to live out my passion, the game of basketball, on the world's grandest stage.
+- When it's late in a game and things are tough and you need a basket, someone has to step up. That player has to have the ability to create opportunities and draw fouls.
+- I loved playing against the Pacers and Reggie Miller. Reggie was a great competitor, and I enjoyed playing against competitors.
+- Defensive awards and accolades aside, to have your jersey retired puts you in a position where you'll be known forever.
+- When I look at my career, I was really about defending.
+- When I was four or five, I had an older brother who got paralyzed from the neck down in junior high school. Some kid did a wrestling fall on him and hit his spine. We had to take care of him. I went from being the baby to not really being the baby anymore.
+- I'm able to run and jump and do all the things I can do. I'm blessed.
+- I was LeBron James before LeBron James.
+- I may go so far as saying LeBron James may be the greatest player to ever play the game. Because he is so potent offensively that not only can he score at will, but he keeps everybody involved.
+- When I grew up, I was just another kid who wasn't going to college.
+- The All-Star Game was one of my top highlights as a player. In my eye, it gave me a good idea of where I ranked among my peers. That was always my benchmark to say that I am still in the upper echelon of players.
+- I always help take care of my family.
+- Statistics are one thing. But if you're not putting up the numbers as far as winning, they're not going to consider you for things like the MVP.
+- It's definitely tough to get up and walk away from something you have been a part of for so long. But it's part of life.
+- I will always be a part of the game.
+- No guy on the basketball court is a threat to score with LeBron James out there. Not only will LeBron dominate from the offensive end as well, but he's also doing it on the defensive end, which really makes him the complete package.
+- My mentality when guarding a point guard was always to try and disrupt him and take them out of the offense.
+- When I got the call to guard Magic, I knew that I could cause him a lot of problems.
+- I remember the night in December 2005 when the Bulls retired my number and will never, ever forget it.
+- I've come a long way from my first commercials.
+- While I dealt with my share of injuries throughout my career, I was fortunate to have been healthy for the majority of our run in the 1990s. The same can be said about Michael Jordan.
+- If things work out for you as a team, then there are individual things that happen for you. But if you're not talented enough as a team, its hard for people to give you the recognition.

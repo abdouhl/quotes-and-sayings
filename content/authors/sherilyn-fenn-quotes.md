@@ -1,0 +1,71 @@
++++
+author = "Sherilyn Fenn"
+title = "Sherilyn Fenn Quotes"
+quotes_len = "65"
+description = "the best 65 Sherilyn Fenn Quotes"
++++
+- Being a mother for me was like, 'Oh, this is what I've been looking for my whole life.' This brings me a sense of completion. I never knew I would love this deeply. It's so nice not to worry about myself anymore. I only worry about my children.
+- Generally, Hollywood makes the same stories over and over. I've never wanted to do the same thing twice. If a script doesn't surprise me in some way, I simply can't commit to the project.
+- I don't think I could ever do a network sitcom because the humor is often based on some trite circumstance. I don't want to be a part of a show where it's mostly about coming up with the jokes.
+- Bleaching my hair for Two Moon Junction... my hair was fried and I looked like an idiot.
+- It's one thing to play a character that's fictitious - it's quite another to play somebody that is alive and well.
+- I've always been aware of the emphasis on beauty in Hollywood, and I think that as one does get older, it can be scary.
+- For many years, I didn't feel I'd find anything that I'd like as much as 'Twin Peaks.'
+- I'm in a space of surrendering and being open and seeing. It's a good place to be - the only place to be.
+- It was just a fairly normal high school existence, riding our bikes around and hanging out in parks and down in the village.
+- I'm absolutely an Elizabeth Taylor fan!
+- Prince inspired me. He changed my life. I will miss him greatly.
+- The beauty of age is we grow, we learn. We have more wisdom. And as much as the youth-glorifying Hollywood would like us to believe, it's nothing. They're wrong.
+- When I was little, I didn't have dreams to be an actress or a star; I wanted to be a mom, have a house and a picket fence.
+- I think there's an anxiety in life where we automatically tend to look to the next thing or we're complaining about the past. Worrying is not going to make it happen or not happen.
+- I love to dance. But I don't like being up in front of tons of people. I didn't have the desire to be performing in front of a lot of people. So it wasn't something I ever seriously considered.
+- I was told once that I didn't play the Hollywood game, and that's why I wasn't a big star. What they meant when was that I don't go to parties, and when I go to an audition and I don't like the script, they know it.
+- Women do feel like they're in a box. Society, Hollywood, some men-they want to wrap women up in a neat little package.
+- I say what I feel. I try to be tactful, but I can't not say what I feel. I have a really big problem with that.
+- I loved working on Of Mice and Men. It was a wonderful group of people. John Malkovich is to me one of the best actors around right now-and a lot of fun to work with.
+- I'm still just a loud-mouth girl from Michigan. I thought I might've grown out of that, but people are always reminding me that I haven't.
+- It's not sometimes realistic to think that something magical can happen, but I think I look for the magic.
+- I loved doing 'Gilmore Girls.' I love Amy Sherman-Palladino. I'd do anything with her.
+- We all have sadness in our life and things that we can draw upon.
+- Yes, I can do the cherry stem trick. All girls in my high school could do it.
+- The difference between working with a man and a woman... is immense.
+- I wasn't into going to college for four years and that whole dorm thing. I had such an aversion to it. It's an extended vacation, isn't it?
+- I began to use my sensitivity. And I realized I wasn't weird because I cried a lot.
+- I was a brat. It was crazy, I was very picky. In other words, I didn't take advantage of what was happening.
+- I'm very strong and very confident.
+- It's completely different to work with a woman that is my age, maybe younger.
+- Now I know why guys like to hug girls. You guys just want to cop a feel. I can't believe that I've fallen for it all these years!
+- There will only ever be one Prince.
+- If you're a young woman in Hollywood, then they want you to look a certain way and paint you in this and that.
+- Having my son, it's such a sense of completion as a woman; it's put me at peace.
+- Harrison Ford... I love him. He's a man's man.
+- I can sing, but my voice is untrained. I'd like to do a musical someday.
+- When I read the script, I was like, Hello, woman in a box. I had to explore that to the end.
+- I'm a walking contradiction. I am funny that way.
+- I moved to L.A. when I was 17 and started making movies six months later.
+- Jessica Lange in Frances... was dramatic and passionate and one of the strongest performances I've seen a woman do.
+- You say a line and you wait for them to laugh, then you say another line and you wait... It felt weird to me. But it's interesting and the energy is almost like theatre, I suppose, with all the people there.
+- I'm sure 'Boxing Helena' will eclipse 'Twin Peaks' and Audrey Home for me. If people here go see it.
+- At the very least, my tastes are out of the ordinary.
+- I don't flirt and I don't play the people that I'm meeting with.
+- In a perfect world, I could be doing some bigger films and balance that with some independent films because they seem to be the most challenging and unique.
+- I've worked with some people that just spent hours and hours and hours in the mirror, and just so much importance is based on that. And I do find that sad.
+- I've had a very specific path over the years. Sometimes they're not all we want them to be, but they create who we are.
+- I really loved Twin Peaks. When I saw the two-hour pilot, they screened it in the big theatre. I said, I don't know what is going to happen. I'm in this and I don't understand it. This is never going to sell. Who's going to watch this thing?
+- As for 'Twin Peaks,' I'm happy to have been a part of something that was a success. The only time I was concerned was during the second season when it started to lose its focus, and I was thinking, 'What if I get stuck here for five years? I would go crazy.'
+- Those 'Airplane!' type of movies, they've never been my cup of tea.
+- I've always been drawn to Marilyn Monroe, but certain aspects of her story may be too sad to tell.
+- Twin Peaks was special because it was so groundbreaking. In the early '90s it really changed television a lot. A bunch of weird shows, like Northern Exposure, came on after that.
+- I like people that are real people. Real people are broad; they make mistakes.
+- Every time I think I'd want a huge, huge career, I realize I'd go crazy under that kind of scrutiny.
+- There is something at work that's bigger than us. It's about having a trust in life and being at peace that things are happening the way they should. You do what you do as well as you can do it, and then you don't worry or agonize about the outcome.
+- I don't want my body to look like a man's. I just want to tone my body.
+- I'm contemplating moving to London for a period of time. I've been in Los Angeles for 15 years and I'm really tired of it. I'm continually uninspired by what's being sent to me. Even by huge films that they're doing there. They're just awful.
+- My mother's been married many, many times and grew up believing in love like that. It's remarkable.
+- I don't get back to Michigan nearly as much as I'd like to.
+- When certain doors opened around 'Twin Peaks,' I wasn't interested in walking through them. Now I just feel like I'm more open to life. I have two children. My life is not dependent on the business in that way.
+- Sometimes I'm like Dory from 'Finding Nemo.' I can't remember facts.
+- On screen chemistry can be very different from off screen chemistry.
+- I hope maybe somehow I won't be in this business all my life, and I won't be one of those women that's trying to, you know, save what she looks like... My work is about something completely different. It's about what's inside.
+- I gained 50 pounds when I was carrying my baby.
+- I didn't want to do some trivial, lame, trite, sweetie-pie, 'How thin can I be?' role.

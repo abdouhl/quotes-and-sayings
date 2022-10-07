@@ -1,0 +1,41 @@
++++
+author = "Scott Mcgillivray"
+title = "Scott Mcgillivray Quotes"
+quotes_len = "35"
+description = "the best 35 Scott Mcgillivray Quotes"
++++
+- It isn't always easy to stay within budget when committing to a renovation, but one place you can cut costs is on the demolition.
+- Before purchasing a fixer-upper property, make sure to look at the numbers. It is easy to become emotionally attached to a house, and buyers can lose sight of the true costs of the renovation work.
+- If you're struggling to get on the same page as your partner and you're not able to agree when it comes to renovations, my suggestion would be to consider hiring a designer. The introduction of a third party moderator with expertise can help break the tie and offer a voice of reason.
+- A lot of times people get caught up in bidding wars, and will go way over what their price needs to be because they love the house so much.
+- On average, you will pay less for a home on a Monday than you will on a Saturday and a Sunday.
+- So if the wall's cracked or you've got leaky faucets, or you've got mold issues, or some sort of damage to your home, selling a home that's got that kind of distress to it is the biggest mistake you will make, because immediately people who are fearful will walk away.
+- I fell in love with real estate, renovations, and became a licensed contractor when I was 26.
+- In my first home that I actually purchased, I built this nice little basement apartment, I moved into it, and I rented out the whole house upstairs. That allowed me to live there for free - because that's all I could afford.
+- Technology has really created new markets. For instance, Airbnb has created a high demand for executive short-term and vacation properties. Even 10 years ago, it was hard to find tenants without newspaper ads.
+- In a way, I've made a career out of sweat equity, and I've enjoyed sharing what I've learned in the process. It's a great feeling to educate people on how to get into their first or fifth home in the most economical way possible.
+- I think that every homeowner has a fascination with real estate. You can't deny that it's such a huge player in our finances. It's probably the most expensive thing you'll ever purchase, so you're forced to pay attention.
+- The door hardware in kitchens is super simple to update. It's essentially a few screws, standard spacing. It's a few bucks a piece and it can make a huge impact.
+- One of the biggest challenges is that once somebody realizes that they're ready to buy a home, then they realize that they haven't prepared properly, and it takes a while.
+- I think the speed limit should be increased by 20 km/h on every single road - that would save me so much money.
+- The kitchen is the most valuable room in the home, so a smart kitchen reno will bring great return on investment.
+- Trial and error does not work in real estate. It's way too expensive to learn from your own mistakes, you need to learn from others' mistakes.
+- I'm in a BMW rut. My last three cars have been BMW 3-Series.
+- I didn't come from a real estate background originally. I was going to school for business and was struggling to find a place to live because there weren't enough rental properties available to students.
+- One thing that has saved my bacon many times is talking to the neighbor about the property. Neighbors are so transparent and honest, they will give you the entire down-low on the property.
+- You have to care about the transactional cost. You have to care about the future value. You have to care about maintaining value in your home through repair and maintenance.
+- If it is a rental property, we'll typically keep it fairly neutral. If it's a vacation property, we have a lot more fun and do things a little more edgy and exciting. When we're flipping, we obviously want to make smart decisions and do things that produce great returns.
+- And personally, one of the secrets I guess you can say with success on HGTV, for not only myself and a lot of other individuals who have shows, is that we truly do love what we do. We're passionate about real estate. We love design. We love seeing transformations. We love working with our hands.
+- I was one of those late bloomers when it comes to motorcycles. I didn't get my motorcycle license until I was 25.
+- Buying a house that needs work can be one of the best ways to stretch your budget. Why pay for someone else's upgrade?
+- Whatever you put in your listing, make sure that it's a true representation of the property and it's not dishonest.
+- I can confidently say that I have a great relationship with my siblings, though I know not everybody does. I would hope that my children have a very similar relationship with each other.
+- Buying a home is a very emotional process. It's important to remain rational and stick with your price limit while buying.
+- I love a big steak or seafood dinner, but the next day I'm running outside for miles. While of course listening to music. I have to have the music on.
+- I think a lot of people try to time the market when it comes to buying or selling a property or investing in real estate, but the real secret to real estate is not timing the market, but time in the market.
+- No means maybe in real estate.
+- People automatically associate the caliber of the space based on the appliances.
+- I never thought I'd be doing TV shows about real estate.
+- Student rental is definitely a very profitable form; it is also a very time intensive type of investment. There's a lot of working involved with student rentals.
+- The biggest mistake that I see homeowners make all too often is not doing a proper inspection of the home and falling into a project that is a lot bigger than they probably anticipated or budgeted for.
+- I try to work on houses not cars. If I was as good at working on cars as I was on houses maybe I would. But I'm not.

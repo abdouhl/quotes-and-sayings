@@ -1,0 +1,104 @@
++++
+author = "Dean Ambrose"
+title = "Dean Ambrose Quotes"
+quotes_len = "98"
+description = "the best 98 Dean Ambrose Quotes"
++++
+- I've been around in WWE for quite a while now and before that had - even in Florida - I've been all around the world and seen every type of style in opponent; the way I was trained and stuff, I got a lot more tricks up my sleeve.
+- A lot of people say, 'It takes a lot to beat him,' or whatever. I'm trying to show you in the most literal terms, my body is indestructible, whether its glass or fire or barbed wire.
+- WWE is like showbiz boot camp.
+- I'll fight anyone for enough money. Give me half a million dollars.
+- You have these magical moments in these live events that are never captured on film and that only live on in your memory. Those are always my favorite.
+- I don't like the water. I'm a land guy.
+- I'd rather have too many weird fans than no fans at all.
+- I hate in-ring promos. I've never done a promo in WWE that I liked.
+- I don't go out there and put on any sort of front for people. If I'm in a good mood, I appear in a good mood on TV, and if I'm in a bad mood, I just go out there and look like I'm in a bad mood.
+- The history of the business is very fascinating to me.
+- I'm trying all kinds of crazy stuff at house shows just for my own amusement and to see what the people are gonna do.
+- I can't remember a time when wrestling wasn't my thing that I watched. As far back as my memory goes, I was already obsessed with wrestling.
+- I like, at the end of the night, to be walking back to the locker room limping and sweating, spitting blood out of my mouth. I've been doing this for a long time, and it comes naturally.
+- I like wrestling 30 minutes a night.
+- Having that main event load to carry is very comfortable for me. Anything less is uncomfortable.
+- In the back of my mind. I always knew WWE was where I should be and where I would end up. Or where I could end up. Where I deep-down wanted to end up.
+- I always take pride in the fact that nobody can mess with me, and I never let anybody mess with me my entire life.
+- A lot of guys come out, and they do the exact same thing, are in the exact same mood, and have the exact same entrance every night, I really just make up a lot of crap as I go along.
+- For me, wrestling was an escape. It was like a way out.
+- What I do in WWE is essentially a lovable bad guy.
+- If I got hit by a bus tomorrow, I get to say I was in a movie.
+- I'm big into mountain biking.
+- In North America, there aren't too many big places to go, so you find that pretty much all of the best talent in the world ends up filtering through WWE.
+- Being a nocturnal creature myself, I often find myself in dark alleys or strange places late at night. If there were werewolves around, I'd be likely to run into them, being the night owl that I am.
+- I had a hard time going to school. I probably wasn't the most pleasant young person to be around. I kept a very tight circle of trusted people.
+- From day one, The Shield was a vehicle. It wasn't, 'This is what we're doing for the rest of our lives.' It was, 'This is the vehicle we'll use to bust into WWE, to ride to the top of it, and then we fight each other.' That was always the plan.
+- I always liked the guys who lasted a long time in the match and had endurance. People like Ric Flair going an hour at the 1992 Rumble, or Shawn Michaels and the British Bulldog being one and two in 1995 and both lasting until the end.
+- It is very easy to get hurt in a match like the Royal Rumble. It seems very run of the mill, but it's always the stupid stuff where you get hurt.
+- 'Terminator' is one of my favorite movies.
+- I love adrenaline. I like senseless violence.
+- Once you get within a few weeks of the show and it becomes WrestleMania season, the energy starts picking up, and the energy feels different. You can feel it in the air, and every show means a little bit more, and everything is a little more focused and directed. Everything's directing toward that day of WrestleMania.
+- I can't imagine, I can't get in the mind of a wrestling fan who wants to break news that spoils a surprise for somebody. Would you want a surprise spoiled?
+- Where a new guy may only know one or two ways to do something, I know all of the moves, and I've forgotten more stuff than the newer guys might even know.
+- I think NXT has opened up the doors for a lot of guys to come in and create different opportunities.
+- I put in the same hours to get good at this as a surgeon who went to college. It's just a much less important job in the realm of society.
+- I have no fear of anybody or anything happening to me in WWE because nothing can be as bad as some of the injuries I went through and some of the grotesque things that have happened to my body.
+- You'll find that all WWE performers, when they go on to any television show or set of any kind, we're more prepared that we get credit for. We don't get enough credit.
+- I could totally see myself limping down the aisle when I'm 60, jumping off the top rope and breaking my hip. I could be a hilarious geriatric wrestler.
+- It's all so surreal seeing yourself in a video game.
+- I had always previously really fed off of negativity and enjoyed being the guy who everybody hated.
+- I think I'm one of the only guys here - I mean, we have so much great talent here, but I can do anything. I can literally do anything. That's not me being like, 'Oh I'm so great.' I'm just like, 'I know what I'm doing.'
+- I remember, the first times watching WWF, Bret Hart was kind of the man, winning King of the Ring, technical master, and he could go for an hour. He had a million different moves he could beat anyone with. Just rugged, dynamic champion. He was so cool.
+- I wasn't 'gifted' in the way that Brock Lesnar or Roman Reigns or somebody like that is gifted, in that they got the physical attributes and so forth.
+- I'm much more comfortable being hated than being beloved.
+- People can see through crap pretty easily. Just go out there and be comfortable. Be you. Be authentic.
+- If you're really good at doing what you do, good things will come.
+- I'm not some schmuck they just hired and threw down in the Performance Center and gave him an entrance or anything that like. I've been around enough and have enough experience; I know what I'm doing pretty much.
+- I've always fed off negativity and wanting people to hate me. That attitude really fueled me for my entire career. So being a guy that people like and want to cheer for is the weird part.
+- I might be the only guy in WWE who isn't acting ever.
+- Brock Lesnar likes to get his rest time, you know what I'm saying?
+- I don't really try to pattern myself after any particular person. I pretty much make it up as I go along.
+- It's such a high-pressure form of live entertainment that I found, once I got out there, being on a movie set isn't that different from being on 'Monday Night RAW.' It's all stuff that I was prepared for.
+- I don't know if I would ever sleep well again if I actually saw a ghost. If they exist, that's fine. I just don't want to see one.
+- I know a lot of guys say that when they are younger - 'I'm gonna get it, get my money, and get out' - and then end up wrestling until they're 50. But that could end up being me, too. I can tell you I want to get out early and end up eating my own words. All of a sudden, I'm 50, and I'm still walking out there.
+- There is a noticeable difference from a crowd surging against you and a crowd surging with you.
+- I'm Vince McMahon's favorite wrestler; quote me.
+- I probably don't have any more of a bigger following on the Internet than anybody else does - I just probably have a stranger one.
+- The thing is that, not only do you learn so much about being in front of a camera and stuff being on 'Monday Night RAW,' but at the same time, I'm not really acting on 'Monday Night RAW.'
+- To be in an Intercontinental title match at WrestleMania, that is the stuff dreams are made of.
+- Threats mean nothing to me.
+- I've suffered through the worst possible conditions.
+- The first time that somebody handed me a sheet of paper with a promo on it, it was like a 'throw up in your mouth' kind of moment. And it's not, like, their fault, you know? It's not the writers' fault. But if was my world, there would be no written promos; there'd be no scripts.
+- You have to take a certain pride in your work.
+- There's a lot of guys in WWE - you would know who they are - you know you're going to see the same thing every single match. You know you're going to hear the same thing every time they pick up a microphone. You know John Cena is never going to get mad at you no matter what you do.
+- No one really has any idea about me. To me, what I give you is what happens onscreen, and past that, anything you're coming up with in your own head, you're creating in your own mind.
+- If you're a wrestling fan, and you watch it on TV, that's great, but there's nothing quite like being there live.
+- A crowd urging you on to do well can be very encouraging. It's very fun. It can be a really cool feeling.
+- While it's cool to think ghosts exist, I don't want to see one.
+- In a situation like the Rumble, I'm looking around constantly and keeping my back against a rope as much as possible so I can see what's going on.
+- I like to fly close to the edge. I like to play with fire.
+- I may not be the biggest guy in the world or strongest guy in the world. I don't have those gifts. But I will take more punishment, and I'm willing to withstand more abuse.
+- I'm doing some more dangerous stuff on a weekly basis than professional stunt men are doing.
+- WWE prepares you for so much other stuff in entertainment.
+- When you're going in there with Brock Lesnar, you can't have anything else on your mind.
+- I keep myself flexible; I just compete at my normal body weight.
+- I'm really into rock climbing and hiking and stuff.
+- As far as social media and all that, I understand connecting with fans on a different level, but I don't feel the need to open myself up to the opinion of everybody in the world with a phone or computer. I just don't get that, being connected to everybody on such a superficial level like that. It's not really for me.
+- There is no creative process to come up with a character of Dean Ambrose.
+- There are times when you got to put a little 'extra' in, especially on a card at WrestleMania or SummerSlam because it's no time to hold anything back. You have to pull out all of the stops.
+- The calmest part of my day is right before a match.
+- I said, 'What I'm going to do is dress as plain as humanly possible.' I'm not going to wear anything fancy, I'm not going to have fancy music, I'm not going to have fancy pyro - I'm literally just going to be a dude walking into the ring. I'm going to look like I just got off work from a construction site, and I am now punching you in the face.
+- I hate ladders. I don't mind heights, but I hate getting hit with ladders and falling into ladders. Anything where there are ladders involved or inanimate, unpredictable objects or multiple people gets dangerous.
+- I like to live a spoiler-free life.
+- A lot of people feel they spend enough time watching me go through the good, the bad, and the ugly, so they feel like they know me and are a part of it. I'm kind of like a part of people's families. You can't buy that kind of connection with people.
+- I kind of miss that whole NXT thing. When I was there, it was Florida Championship Wrestling with Seth Rollins and the other guys who were there. I wrestled on, like, local-access Florida TV in front of 30 people. It was a tiny little situation.
+- The WWE Championship is the greatest championship in the history of this sport. It has the most history of anything.
+- You're always going to get comparisons. Everybody comes out and says, 'He's the next so and so,' or, 'He reminds me of so and so.' I have so many influences and stuff in my brain, who knows what's going to pop in and come out.
+- I keep my inner circle of people very small and tight, and I like to relax if I get a chance.
+- I like to think I'm a good mechanic for the company. 'Oh well, we sprung a leak? Call Ambrose; throw him in there.' I like that because I think it has really upped my value with the company, and I think that they realize nowadays, too, another Dean Ambrose isn't going to walk through the door anytime soon - or ever.
+- I listen to some Hank Williams before I go out. I tell some jokes. I have fun. I don't waste too much energy thinking about it - I like to save that all for the ring.
+- I just go out there and be myself and turn up the voltage a little bit for entertainment value.
+- Ziggler is one of those guys who don't get all of the credit he deserves for being so good consistently for so long.
+- It is hard for me to understand I am on television and people around the world watch me every week in a country I have never even been to.
+- It's not like I'm not constantly dealing with a litany of injuries that I have myself. If it's not one thing, it's another thing, but I've just been able to keep rolling.
+- I never pictured myself being liked by anybody.
+- I don't look any further than what's right in front of me.
+- I want my performance to be at the highest level of anybody in the company. I want to make everybody step up to me.
+- I was pretty happy with what we were able to do on 'SmackDown.' It was one of the best, most fun runs of my career because it was essentially a new show.

@@ -1,0 +1,32 @@
++++
+author = "Elizabeth Smart"
+title = "Elizabeth Smart Quotes"
+quotes_len = "26"
+description = "the best 26 Elizabeth Smart Quotes"
++++
+- My children have brought so much happiness and joy. To me, they're the very definition of love.
+- I think forgiveness is probably one of the greatest forms of self-love there is because you don't do forgiveness for anybody else. My captors will never care if I forgive them... It will not make a day of difference to them at all, but it will make a huge difference to me.
+- I was broken beyond repair.
+- Usually, my husband is a pretty good rock, a pretty good sounding board... He definitely brings a center of gravity into my life.
+- Even when I get on airplanes, very often, as I walk down the aisle, I notice a lot of people staring or whispering. I recognize the fact that yes, to a lot of people, I will always be that 14-year-old girl who was kidnapped and who was held captive.
+- I wake up every morning, and I feel like a very lucky and blessed woman.
+- This life is a test, and we're put down here to make choices. The truth is, the bad choices of other people can hurt us.
+- There's only one of you in the entire history of the world, and there will only ever be one of you.
+- The #MeToo campaign is monumental. It is giving a voice to so many too scared to speak out before.
+- I see myself as a survivor, and I'm not ashamed to say I'm a survivor. To me, survivor implies strength, implies that I have been through something and I made it out the other side.
+- I've got great dogs. I've got a great family. I mean, I couldn't be happier.
+- That happened to me, but I'm so much more than that girl that was kidnapped.
+- When I look in the mirror, I also see a mother and a wife and someone I am proud to be. I see an advocate. I see a survivor.
+- You are always special. Nothing can change that.
+- I will never regret being there for my children, watching them, making sure they'll be okay. But I might regret not being there for them.
+- Religion has been a huge part of my life.
+- My parents have raised me to believe in a kind and a loving God and someone who cares about me, who is always there for me, and who would never wish harm or illness or any kind of tragedy upon me.
+- I will feel like a success if I raise my children to be kind and happy people.
+- It is wrong for any person to ever judge someone in any situation saying, 'Well, why didn't you try to run? Why didn't you scream? Why didn't you try to do something?' That is so wrong and, frankly, offensive to even ask that question.
+- Vanity is a vital aid to nature: completely and absolutely necessary to life. It is one of nature's ways to bind you to the earth.
+- If I get to the end of my life, if I die, and I find out religion is one big lie, I still won't regret it because it's helped me to live a better life, to be a better person, to care about people, to believe in forgiveness, to believe in hope.
+- That was very comforting to me to hold onto that belief, that I did have a heavenly Father who was watching over me.
+- I can say I have forgiven my captors. That being said, I never want to see them again. I'm not OK with they did to me.
+- I don't feel famous personally, and I feel like when most people get to know me, they're like, 'Oh, she's just the same as everybody else.'
+- I'm grateful for rain because, when I was kidnapped, that meant that I had something to drink.
+- Privacy is so sacred, and any time a victim is returned, a survivor is found and rescued, privacy is one of the greatest gifts we can give them because if they decide to share, that's up to them, and they will come forward.

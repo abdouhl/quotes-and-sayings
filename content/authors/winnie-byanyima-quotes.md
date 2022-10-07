@@ -1,0 +1,105 @@
++++
+author = "Winnie Byanyima"
+title = "Winnie Byanyima Quotes"
+quotes_len = "99"
+description = "the best 99 Winnie Byanyima Quotes"
++++
+- I'm ready to do any kind of work, as long as it absorbs my passion for making a just world and equal world.
+- By allowing super wealthy corporations and individuals to avoid paying their fair share of tax, tax havens are denying governments' revenue that could and should be spent on schools, healthcare, and other essential services.
+- If the civil society is not transparent, honest, and accountable, then you cannot be a champion of social justice.
+- African countries lose billions every year because of tax dodging by big corporations and wealthy individuals. They lose billions more from overly generous tax incentives in a misguided belief that this is the only way to attract foreign investment.
+- Democracy in Myanmar cannot be achieved with discrimination and gross violations of human rights.
+- The struggles to overturn colonial rule were long and often bitter. But, over time, most were inevitably successful.
+- Economic inequality is a corrosive force that undermines economic growth, puts a brake on the fight against poverty, and sparks social unrest.
+- African countries lose the most from tax dodging. African governments must, therefore, do more to push for a full reform of the global tax system and demand action from countries, such as the U.K., whose financial centres sit at the heart of the global network of tax havens.
+- Cutting down a forest for timber adds to GDP, but what we don't record is the loss to our wealth in terms of natural resources.
+- Tackling the extreme gap between the rich and the poor and tackling climate change is part of the same struggle.
+- Governments and civil society must step up to ensure inclusivity in the commissioning, design, delivery, and assessment of vital public services.
+- Development cooperation between nations is very important because it is one of the building blocks of shared peace, prosperity, and human rights for all. It is one of the antidotes to the poison of xenophobia.
+- We don't have to accept an economy that doesn't work just because some people have got rich in the status quo. That is not democracy.
+- Global governments should start seriously talking about the creation of a World Tax Authority with the mission to ensure that tax systems will deliver for the public interests in all countries.
+- Developing countries can make great strides towards more progressive and effective taxation and spending through action within their own borders. But the damage caused by exemptions, loopholes, and tax havens requires action beyond national borders - it requires international action and cooperation.
+- That a country has a strong civil society is, I believe, particularly necessary for good development.
+- For me, growing up as an activist under an oppressive dictatorship in Uganda, the U.N. was a friend to those of us who fought our way to freedom, as it was for the millions who joined decolonization struggles in the African continent.
+- Rather than working for all, power and public policy is increasingly influenced by wealthy elites that are able to bend the rules - and hijack democratic institutions - to their favour.
+- The concentration of wealth in the hands of the few threatens the ability of ordinary people to raise their voices and have a say over how our societies are run.
+- When we talk about women's economic empowerment, we should be careful that we're not just giving women more to do.
+- Africa's young population could be a huge economic asset if inequality were addressed.
+- We have international organizations for health, trade, and football - even for coffee - but not tax. Why not?
+- We need to tackle extreme inequality because it is morally indefensible and socially corrosive - undermining our health, affecting our well-being, and undermining peaceful societies.
+- Wealth is used to entrench inequality, not to trickle down and solve it.
+- The U.N. must be made more inclusive, accountable, democratic, effective, and reflective of a world in which political and economic power has shifted.
+- A good leader, in my view, should have a clear vision of the future they want and the society they need to build. They must also have a connection with the people who work for them and be able to mobilise their best energies to create teams where people can be most creative and happy.
+- The conniving, rich oilmen that were so desperate to prevent and frustrate the Paris Agreement found cheerleaders in Mr. Trump and his party. They choose to protect their profits from a flailing fossil fuel industry over human lives and a clean, inclusive future for us all.
+- Corporations are driving down wages and working conditions across the globe to maximize returns for their shareholders. They use their power and influence to ensure the rules align with their interests - no matter the cost.
+- Without women's equal access to positions of decision-making power and a clear process to get there, gender equality, global security, and peace will never be realized.
+- The high price of medicines is crippling healthcare systems and denying people access to the treatments they so desperately need.
+- I am angry that the international community has failed to find a permanent solution to the plight of the Rohingya. I am also ashamed that, in not speaking out loudly enough, we - humanitarians - have been complicit.
+- I grew up in a country that was in a civil conflict for most of my childhood and adolescence. I saw violence and lived as a teenager through the time of a brutal dictator called Idi Amin. I fled and became a refugee.
+- Money doesn't just buy a nice car; it also buys better education or healthcare. Increasingly, it can buy impunity from justice, a pliant media, favorable laws, business advantage, and even elections. This, in turn, perpetuates the policies that allow a tiny elite to accumulate ever more wealth at the expense of the majority.
+- GDP excludes care work and other unpaid work, most of which falls to women and girls in rich and in poor countries alike.
+- Having an economy that works for the 99% is achievable.
+- Here's something we're rarely told growing up: our world rewards wealth, not hard work or talent.
+- Inequality, climate change, and conflict are evicting millions from their homes. But these perils are being met with 'anti-answers' such as nationalism, closed borders, lies, and hatred.
+- Oxfam is part of a global movement for social justice. We mainly work to fight for economic and social rights for people without a voice or people who are oppressed.
+- People who are denied access to power are also denied the opportunity to make or influence decisions to live a better life out of poverty and claim their rights.
+- Crucially, African governments must ensure they prioritize the eradication of tax evasion and tax avoidance.
+- I have learnt to enjoy my own company because I have lived alone many years.
+- We need a world where people do not have to live in fear of the economic repercussions of getting sick or losing their home or job. Where every child gets to fulfil their potential. Where corporations pay their fair share of taxes and work for the good of the majority, not just their shareholders.
+- It's happy and secure people who the are most creative.
+- The discrimination of women and girls goes to the core of any and all analyses of the world's economic, political, and environmental problems.
+- Investing in vital infrastructure will help to build more sustainable, equitable economies.
+- Protecting space for civil society and citizenry is particularly critical in a world marked by rising political and economic inequality.
+- The move to a zero-carbon future is unstoppable.
+- Billions of people are being left behind by economic growth.
+- Governments should end the extreme concentration of wealth in order to end poverty. This means tackling tax dodging but also increasing taxes on wealth and high incomes to ensure a more level playing field and generate the billions of dollars needed to invest in healthcare, education, and job creation.
+- Poverty is rooted in injustice.
+- My life has been varied, involving many jobs, but I have always been impatient with injustice.
+- I don't think it's helpful to go dismantling the past, but you can refuse to honor aspects of it that you don't believe in anymore.
+- High corruption and the influence of big business and the wealthy elite keeps the poorest Nigerians trapped in poverty and cut off from the benefits of economic growth and basic services. Some people - searching for the means to survive - became vulnerable to groups like Boko Haram.
+- We treat a planet at crisis point as an externality that can be shunted into a future generation. We continue to act as if we had the natural resources of several planets, not one.
+- I grew up thinking the most decent job to do was to fight injustice.
+- Ending extreme poverty is possible.
+- Extreme inequality is no temporary blip. It is hard-wired into our economies.
+- The proud fight against colonialism is one that should be consigned to history.
+- The people standing up most strongly for our democracies should be celebrated, not prosecuted - be it those countless human rights defenders who defend all our rights or the brave whistle-blowers who expose tax dodging.
+- Our economic system has enabled companies and individuals to use their power and influence to capture and retain an ever-increasing share of the benefits of economic growth while the benefits for the poorest in society have shrunk.
+- We don't want to tell young girls and boys that the odds are stacked against them from the start. Instead, we could tell them that with passion, conviction, and determination we can build a better future. This future is possible by redesigning our economy to truly reward hard work rather than wealth.
+- I believe we can build a human economy where people are the bottom line.
+- Inequality is inextricably linked with distribution of land and natural resources.
+- Women, men, and children have fundamental rights to humanitarian assistance and protection. Yet far too many states block aid and attack their own citizens, and too many others - including some of the world's wealthiest countries - turn their back on those fleeing conflict and violence.
+- Leadership is so defined by men, and we need to revise that - we need to be able to say that the people we honor are not the conquerors but the peacemakers.
+- My own life values were shaped in great part by my mother, who instigated women's clubs in my village. Women were able to organize and stand together. What inspired me most about their work was the power it gave them to assert their rights and the rights of their daughters, be it education or property inheritance.
+- Conflict and callous politics drive famine.
+- A global tax body would give all countries - not just the rich and powerful - an equal say in how the global rules on taxation are designed.
+- Whatever I do, it will be fighting for social justice.
+- Governments, the investor and business community, and civil society organizations and public representatives need to work together to ensure the necessary foundations are in place to align private finance to guarantee sustainable and equitable development and poverty reduction.
+- The world belongs to the wealthy, and nowhere is this injustice more apparent than in the workplace.
+- To build more human economies in Africa, governments must be far more strategic, wise, and forward-looking in their expenditure and build diverse economies that are going to deliver the jobs for the next generation.
+- Poverty is a result of lack of opportunity. Lack of opportunity is about being without power, without being in a position to make choices.
+- Global growth and development that is strong, sustainable, and inclusive requires the challenges of inequality to be met head-on.
+- Progressive taxation can offset the effect of growing inequality.
+- To reduce gaps between men and women, we will need to change the way people think, behave, and relate to each other.
+- The extremely wealthy have disproportionate influence on policies that impact us all. This corrupts our politics and leads to poorer people being denied the economic opportunity to flourish in life.
+- You are not going to lift everybody out of poverty through the kindness of wealthy people.
+- Oxfam believes that any global talks to reform tax rules must include all countries, including the poorest.
+- Rule of law, access to justice, and financial transparency happen by design, not accident.
+- A tax system is important because of what it can pay for, but also for how it works. When we pay taxes, we expect something back from the state; it strengthens the relationship and accountability between us and our governments. It also pays for what private finance shouldn't: our needs for healthcare, education and social security.
+- Instead of presiding over an economic system that panders to big business and a wealthy elite, a more human economy must be established which meets the needs of African women and young people.
+- Developing countries are losing significant tax revenues through corporate tax dodging.
+- Fundamental is the need for governments to protect the space for citizens to claim their rights, organize, and express themselves.
+- When men and women, boys and girls, are denied the right to education, the right to own land, the access to basic services like healthcare and clean water, a fair price for the crops they grow, a fair wage for the work they do, or the right to be part of making decisions that affect them, the result is poverty.
+- Far too many governments are cutting back on their investment in human development.
+- Citizens need to know how their countries are being run so that they can hold governments and big business to account.
+- Civil society space provides the oxygen for citizens to participate and meaningfully hold their governments and the private sector to account - and ensure that decisions are made in the interest of the majority and not the few. Without it, citizens have limited space to dissent and challenge the elites.
+- The Paris Agreement threw people of the world a lifeline, and the United States played a vital role in getting us there, not least by working closely with China to clear the decks to a global deal.
+- Wealth does not trickle down to the poor. Oxfam knows this, the IMF knows this, the World Bank knows this. Poor people have always known this.
+- We need to harness the boundless energy and creativity of our youth.
+- Tax abuse is a scourge on our global community, but especially for Africa.
+- Taxing companies, particularly successful multinational companies, is one of the most progressive forms of taxation.
+- Rather than engineering our economies solely to maximise GDP, Africa's business and political leaders must build economies explicitly designed to end poverty and inequality.
+- I grew up really being able to stand up to authority.
+- The importance of tackling inequality in Africa cannot be overstated.
+- Ultimately, developing countries and groups like Oxfam want to see a new intergovernmental body on cooperation in tax matters under the auspices of the United Nations.
+- Global governance needs recalibrating so it works in the public interest of all the world's citizens - not just for the few.
+- I am still haunted by the memory of my Ugandan friends dying from HIV years ago because high prices kept the medicines they needed out of reach.

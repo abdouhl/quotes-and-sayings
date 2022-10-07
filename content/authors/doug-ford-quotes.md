@@ -1,0 +1,35 @@
++++
+author = "Doug Ford"
+title = "Doug Ford Quotes"
+quotes_len = "29"
+description = "the best 29 Doug Ford Quotes"
++++
+- I can tell you that a carbon tax will be a total economic disaster.
+- The ferociousness of some of the media is shocking.
+- In politics, you're like a toilet seat: you're up one day and down the next.
+- I try and help everyone.
+- I'm sorry: I'm a businessman. I'm not a politician.
+- Ford Nation never left. Ford Nation has always been there.
+- People are taxed enough.
+- What drives me crazy is when you have a supervisor in government, and they report into 12 other supervisors. That's unacceptable.
+- I like the grass roots people the most.
+- I can't think of a more life-changing procedure for a young woman than an abortion.
+- My heart goes out to kids with autism.
+- I love provincial politics.
+- I want to put money back in people's pockets.
+- I don't do drugs. I don't like drugs.
+- You know when you go into your pocket and feel another hand in there? Well, that's Premier Kathleen Wynne.
+- I have no problem with the Pride parade.
+- Farm jobs are not a bargaining chip.
+- They want me to stop making my opinions and not saying a word; I know the Left wants that.
+- Until the province is willing to look internally at their inflated budget, to engage the private sector, to exhaust every other available avenue, we can't justify a series of costly new taxes on residents who are already telling us that they just can't afford it.
+- I'd be more than happy to be thrown underneath the bus for my brother any day.
+- I wasn't elected to sugar coat things.I wasn't elected to tell stories and twist the stories around to the public.
+- I hate anyone that is involved in the drug business.
+- Olivia Chow is no Jack Layton.
+- I believe building new subways must be a top priority.
+- Some entrepreneur needs to make a better bike seat.
+- My heart bleeds, goes out for families with kids with autism.
+- I have the support of the common people.
+- I'll be the mayor of all the people.
+- Union members are fiscal conservatives, a lot of them.

@@ -1,0 +1,58 @@
++++
+author = "Uday Kotak"
+title = "Uday Kotak Quotes"
+quotes_len = "52"
+description = "the best 52 Uday Kotak Quotes"
++++
+- In equities, you price the risk. As far as debt is concerned, if the markets get more sophisticated where, for the levels of risks that you take, you get the debt returns, we will certainly look at it. It's back to a philosophy of risk-adjusted returns.
+- I grew up in a joint family of 60 people with one kitchen. So I am a firm believer in the family concept.
+- I was not very keen on joining the family business... there were 14 family members working together, and it worried me that I would not have enough individuality.
+- I am a believer in the journey and enjoying the journey.
+- Kotak Mahindra Bank has very significant presence in the West and the North, and our total branch network between these two regions is 80 per cent, and in case of ING Vysya Bank, their network in South is 64 per cent of their total branch network.
+- Foreign investors are looking for a consistent and stable policy in India.
+- What we have to be careful is that if we drop interest rates where the rate of interest is lower than inflation, then savers will not put money in financial savings and move it to gold and real estate, which is bad for India.
+- My view is that, as management, the focus has to be on having a strategy and executing it. As you do the strategy and execution, it is important to communicate it consistently.
+- As we were all growing up, there used to be a very big mantra in India which was called 'export or perish.' There was a long period when we used to focus on import substitution.
+- When a lion doesn't get its prey, it remains hungry. When the prey saves himself, he has not won, but has saved his life.
+- If India grows steadily and does the structural things right and carefully unties knots, builds an institutional process which sort of cleans up the corruption and the baggage in the system, I see it as a wonderful marathon.
+- When I wear the hat of management, it is important that our management behaves and conducts as management accountable to the board.
+- For me, the real thing is make, serve and list in India. Which means we need manufacturing, we need services, and we need financial markets.
+- In a marathon, if you run too fast, you get exhausted. If you run too slow, you never make it.
+- As long as there is cash, and the economy is running, all is well. But as a bank, we'll have to test, experiment, try a hundred different things. A few may work, a few may fail, but we have to experiment and try.
+- My view is make Indian manufacturing competitive, and if it is competitive, it can serve customers or consumers anywhere.
+- Growth should take care of the fear of job losses. People will be challenged to do different things. For people who are not up to it, purely based on objective assessment, that's a different issue, which, you do it anyway.
+- There is socialism in the family that conflicts with meritocracy. And that bothered me.
+- A lot of our fiscal deficit went to fund consumption and really did not get used to build investment and infrastructure. The trouble is, you can get a spurt in GDP growth, which may not be sustainable. I would much rather build the gradient of a long-term marathon.
+- A weaker currency is a national tariff. After we get a weaker currency, we have to take advantage of that. Or else, we will waste it once more in inflation and in the inability to raise competitiveness.
+- It's true that I have always been very comfortable with numbers.
+- I am a great believer in Indian entrepreneurship. There is a whole set of people doing so many exciting things.
+- My view is that the bitcoin is in its very early days, and it is an artificial currency. But whether it is creating new money, whether it is sustainable, whether it would survive - I have many questions about it.
+- I do believe that banks are special - they are very leveraged institutions by nature; therefore, it's even more critical to ensure that the governance and the process of running a banking company are well-organised, managed and regulated.
+- A lot of family members worked in the joint commodities family business. It was a classic case of capitalism at work and socialism at home.
+- It is possible that the digital world may change the need for physical branches. We will continue to add branches incrementally, but we will reach a point - whether it is 1,500, 1,800 or 2,000 branches - where we will say enough is enough.
+- The trouble with opportunity is, it never announces when it comes. It's only after it's gone, you'd realize that you missed it.
+- I have got nothing against family companies, but there must be real equity, that is all I say. It cannot be based on influence or political friendships. It has to be based on real equity backing their dreams.
+- If companies are able to raise equity from the market, then their problems for financing incomplete projects will come to end. Investment cycle in the capital market can kick-start with the money of savers and investors.
+- Younger customers are the future, but older customers have the money. So you need both: one for the present, and the other for the future.
+- The single biggest resource India has is people and skill.
+- Our approach to banking is very different from the traditional banks or even some of the new banks. We do not necessarily go out and write single-cheque, large-ticket loans.
+- We encounter very healthy boardroom debates and pretty diverse views, so we have always had the benefit of diversity of opinion and expression before we take some important calls.
+- Technology is an enabler; you have to be at the cutting edge of technology - there is no choice.
+- My view is that at a certain age - and we can debate whether that age is 70-72 or 75 - members need to step off boards. As per the banking guidelines, that age for the director on a board today is 70.
+- I keep wondering at night, 'Will I have a bank the next morning, or will some technology company be doing banking without needing a bank?'
+- Culture is about the mindset of people, and we are very happy to have a strong combined mindset of people.
+- We are going to position ourselves as a world-class financial institution. We want to do things that are comparable to the best in the world. At the same time, we want to have very strong human qualities.
+- There's no harm being a copycat. If someone else is doing a good job, copy. It's free.
+- My view is the core engine supporting India's growth aspiration will be the financial sector, which will have to get more efficient.
+- If what you create does not outlive you, then you have failed.
+- Historically, in India, the strange fact was that the equity owner was not taking as much hit as the lender. Therefore, if we restore the first principle of economics, that first the equity owner needs to take the hit and then the lender, we will get a good solution.
+- If you look at 2009, why did the recovery happen? Recovery happened because somebody in the world's largest economy opened the tap: the U.S., followed by Europe and now Japan.
+- We are extremely focused on building some of the assets which are going into mid-India, semi-urban and rural, and that's our DNA. We are building a retail bank, and a lot of the deposit base is still in urban India.
+- If you look at the history of large financial institutions, most of them have succeeded because of a deep presence in their home market.
+- If you ask me, over time, I am a believer in the Indian financial saving story getting stronger; a lot more savers are moving money away from gold and real estate into banks, mutual funds, insurance and equities.
+- The ability to scale up is hard. So the best model for us is concentrated India, diversified financial services, and through this, we can get significant scale on an Indian platform.
+- Our entire approach to the banking and financial services business is risk-adjusted returns. We believe that in most parts of the world, and including pockets in India, banking tends to mis-price risk.
+- I am big believer that increase the size of the cake is as at least as important as distribution of the cake. To increase the size of the cake, you need to focus on progress.
+- Our view is that younger customers love our digital offering, our mobile banking applications and so on. Older customers expect relationship managers and want much more personal attention in terms of their needs.
+- I would have loved to have been a cricketer.
+- The government should move towards supporting aspirations and not entitlement. Subsidies supporting non-productive growth should be reduced.

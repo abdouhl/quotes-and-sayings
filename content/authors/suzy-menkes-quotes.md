@@ -1,0 +1,50 @@
++++
+author = "Suzy Menkes"
+title = "Suzy Menkes Quotes"
+quotes_len = "44"
+description = "the best 44 Suzy Menkes Quotes"
++++
+- I am not a hoarder, but my wardrobe is the antithesis of fast fashion. I buy clothes - beautiful in looks and make - to last. I originally stored away things like Ossie Clark because I could not bear to part with such treasures.
+- As a journalist, I cannot help imagining with excitement a new era with a face-off between Hedi Slimane at YSL and Raf Simons at Dior - a magnificent battle of style and wills to echo the Armani/Versace, Gucci/Prada or even Chanel/Schiaparelli face-offs of earlier years. But I remind myself that this is not a game of chess.
+- I was trained as journalist never to use the word 'I,' never to put my own opinion there. In fact, if you had a dollar or a euro for every time I use the word 'I,' you would be a poor person. But this is not true in general. I like the idea of being able to stand away and make a judgement.
+- With a global society hungry for luxury, distribution and supply chains are now as important for executives as a hands-on feel for products.
+- I don't really believe in elegance. Ever since I first came to France many years ago to do the Chambre Syndicale course, I always felt I was somehow lacking, first of all being British - obviously a disaster! But I was also puzzled with this idea that you have to tie your Hermes scarf just right, or you can only wear black.
+- The clothes most worn by people are the clothes least commented on by the press.
+- Minimalism? It is something I appreciate as an art form but leave to others - unless you count a collection of warhorse-workwear Yves Saint Laurent trouser suits. Maybe my penchant for hippie-deluxe eccentricity came from an escapist dream of a different world. It was tough being a working mom in the 1970s.
+- Nan Kempner wore one of the first Saint Laurent trouser suits to one of those fancy Madison Avenue restaurants and was denied access. She famously took off her pants and walked in wearing only the jacket. And it was that kind of revolution that was echoed in fashion and in life.
+- As the fashion carousel spins ever faster, the concern is that, while the stream of newness never runs out, there's going to be a good deal more crash and burn among designers in the future.
+- I was taken to my first fashion show - Nina Ricci haute couture - in Paris by the White Russian princess, down on her luck, whom I was boarding with in Paris in 1963. I was captivated by the glamour of the gilded salon, the elegant clothes, and the audience of grand ladies.
+- There is something sad about clothes laid in a tomb of trunks.
+- The clothes that fire up my emotions are colorful and 'different' pieces. My eye still picks out gilded-cloque glamour from among Burberry's streamlined trench coats or a hand-printed coat from Dries Van Noten.
+- I think there's too much mixing fashion and intellect. Fashion ultimately is designed to cover the human body, to give you joy, to make you feel better. I don't think it has to have a great intellectual meaning.
+- With the traditional six-month lead time on the delivery of international show content, designer collections can be outpaced by the so-called fast fashion chains. H&M, Topshop and Zara, or even Target and J. Crew, would have their versions for sale before the designer looks hit the stores.
+- There are some designers who flash and burn - Courreges is an example of that. But he still marked fashion history. And I don't think that longevity is always a badge of honor. Modern brand management means that we are always celebrating birthdays, when what is exciting about fashion is innovation, not repetition.
+- When I look at my clothes, I think of them as an expression of the joy and fun of fashion - with a bit of English eccentricity thrown in.
+- I find some collections to be more vibrant than others, but the designers who last are those who are able to continue to be creative within the mold they have cast, usually right at the beginning of their careers.
+- I do believe fashion should work as hard as a woman does.
+- Just as in life you always marry the same man, so I think you always buy the same clothes over time.
+- I am thrilled to become international 'Vogue' editor at Conde Nast International, which has a real commitment to journalistic excellence, and to have the opportunity to write for a wider global audience through the 'Vogue' websites.
+- Smartphones are so fabulous in so many ways that it seems daft to be nostalgic about the days when an image did not go round the world in a nanosecond.
+- The natural end of an era, as designers whose houses bear their names grow old and pass away, combined with the arrival of digital cameras and Internet exposure, has created a perfect storm.
+- My clothes are fabulous - colourful, fun and by some very special designers. They deserve a better life than being sleeping beauties in a bed of tissue inside a trunk.
+- I am not really sure that Diana Vreeland did Yves Saint Laurent a favor, as opposed to the world, by putting that exhibition at the Met in 1983. Because I'm sure that Saint Laurent started looking back at his own work. You see that with artists, don't you? Once they get their first retrospective, it's really hard for them to push ahead.
+- If fashion is for everyone, is it fashion? The answer goes far beyond the collections and relates to the speed of fast fashion. There is no longer a time gap between when a small segment of fashion-conscious people pick up a trend and when it is all over the sidewalks.
+- There is no doubt that online shopping has fed the craze for speed, because when you can't touch the fabric or try on the outfit, the only emotion you experience is the excitement of the purchase and the thrill of beating everyone else to it.
+- In the mid-1990s, when I stopped having to run from the shows to the film developing lab and first saw digital images, I blessed technology and was convinced that my working life was changing for the better.
+- I think there's a sort of agony with all intelligent and very creative designers that it's only fashion, that in the end it's only the decorative arts. I had a feeling towards the end that Saint Laurent and Berge were very keen to attain that immortality that a lot of designers long for. You know, those endless exhibitions.
+- I am grateful to have spent 25 years at the 'International Herald Tribune' - a newspaper where I had unstinting support in being able to express myself freely and honestly.
+- We know that creative people have all sorts of demons.
+- Only the fat-cat corporations can really afford to put on two mega-ready-to-wear shows a year, or four if you add two haute couture shows, or six if you count men's wear. Resort and prefall push the number up to eight. A couple of promotional shows in Asia, Brazil, Dubai or Moscow can bring the count to 10.
+- Change is good; it's what fashion is all about.
+- One thing I learned is how much easier it is to write about clothes than it is to make them.
+- Shoes? I have loved them all: '60s pumps; white Courreges ankle boots; platform soles from the first time around, in the '70s; more boots - ankle, calf, and knee-high; 1980s sneakers; pin heels and wedges; Mary Janes and stilettos.
+- Clothes, as much as music, have an eerie echo of time and place.
+- The way that people dress makes them part of an army, dressed in their own uniform, determined to do something.
+- I always have separated myself from my critiques of collections. My judgment is not about whether I would wear it - but how the collection stands in the lexicon of an established designer. As I am a maximalist, not a minimalist, I don't wear Armani or Celine - but I so appreciate what they have achieved.
+- I knew him, but never felt that I got really close to Saint Laurent. But who really did? Betty Catroux, maybe.
+- Fledgling designers need investment - but how much easier it is to put them in a dead man or woman's shoes, perhaps also backing the new designer's namesake line, but only as what the French call a 'danseuse,' a plaything.
+- At the 'Times,' all journalists on every subject followed the same rules and were supposed to meet the same standards, so I never really thought about fashion writing as being in a bubble.
+- Who needs to graduate from Central Saint Martins in London or New York's Fashion Institute of Technology when a homemade outfit can go viral on YouTube with millions of hits?
+- Clothes are like friends.
+- My style has always been to choose the charming and quirky.
+- I have a love for colorful things. I'm a fashion maximalist. I come from the school of people who look at the decoration in Marie Antoinette's bedroom, and think 'Why so reserved?'

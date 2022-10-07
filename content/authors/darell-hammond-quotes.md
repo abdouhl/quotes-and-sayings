@@ -1,0 +1,48 @@
++++
+author = "Darell Hammond"
+title = "Darell Hammond Quotes"
+quotes_len = "42"
+description = "the best 42 Darell Hammond Quotes"
++++
+- We must make sure that there is recess and P.E. class in every school, getting kids outside for 60 minutes, every day.
+- Increased physical activity during the school day can help children's attention, classroom behavior, and achievement test scores. Meanwhile, the decline of play is closely linked to ADHD; behavioral problems; and stunted social, cognitive, and creative development.
+- The lack of free, child-directed play time for our kids today will have dire consequences for these future leaders, making them less prepared to solve complex challenges and problems.
+- Public swimming pools, recreation centers, summer reading programs, youth jobs programs - they are all shutting their doors. And they are all facilities and programs relied on most heavily by low-income children.
+- Play exercises both your physical and creative muscles. It helps you move around, solve problems, challenge yourself, and think in new ways. Not to mention that it's just plain fun.
+- 'Our Dream Playground' is a new online project planner designed to help you build the playground of your dreams. It's a free resource, brought to you 'KaBOOM!,' offering step-by-step instructions to help you bring play to the kids in your community.
+- Our education system is increasingly embracing a black-and-white way of thinking, in which 'learning' and 'play' are diametrically opposed. 'Learning' is the serious stuff that happens inside a classroom and can be measured via multiple choice questions and a No. 2 pencil. 'Play' is frivolous, fun, and worst of all, optional.
+- Just as playgrounds didn't even make the priority list of most of those responding to Katrina, they all too often slip off the radar of those building our schools, designing our neighborhoods, and drafting government budgets.
+- Sendak's 1963 classic 'Where The Wild Things Are' has long been a favorite of mine because of the creative imagery, fantastic adventures and, most of all, because of how this timeless story shows us that children need to be free to roam, explore and invent in order to understand their place in the world that surrounds them.
+- In an era of parental paranoia, lawsuit mania and testing frenzy, we are failing to inspire our children's curiosity, creativity, and imagination. We are denying them opportunities to tinker, discover, and explore - in short, to play.
+- In neighborhoods without a usable park or playground, the incidence of childhood obesity increases by 29 percent.
+- As I see it, the debate between summer vacation vs. year-round school glosses over the most important questions. Namely, how can we bring play back to our nation's schools?
+- Aaah, summer - that long anticipated stretch of lazy, lingering days, free of responsibility and rife with possibility. It's a time to hunt for insects, master handstands, practice swimming strokes, conquer trees, explore nooks and crannies, and make new friends.
+- If there's one thing that 'No Child Left Behind' has proven, it's that more academics don't make for smarter children - or even higher test scores. And yet we somehow refuse to accept this reality.
+- At KaBOOM! we are crowd-sourcing a nationwide Map of Play that uses GIS data and user rankings to identify where the engaging playgrounds are located, but more importantly, where they are not.
+- Growing up in a group home, and with an undiagnosed learning disability to boot, the odds of success were not on my side. But when I joined the high school football team, I learned the value of discipline, focus, persistence, and teamwork - all skills that have proven vital to my career as a C.E.O. and social entrepreneur.
+- By providing our young children with opportunities for free, child-directed play, along with proper nutrition, we are setting them up for a lifetime of healthy habits, versus interventions needed later in life.
+- Our country's growing obsession with organized sports isn't just hurting our children, but also our communities. As play is siphoned off to gyms and fields, fewer kids are playing in our streets, parks, and playgrounds.
+- We all have a natural instinct to protect children from harm. It's never fun to see a child hurt, even if it's just a scraped knee. But on the other hand, children need to take on physical challenges to learn and grow, and scraped knees and other bumps and bruises teach them valuable lessons about their own limits.
+- During the year, our schools are busy slashing P.E. and recess to make more time for math. During the summer, we get ourselves worked into a tizzy that our children will forget their fractions.
+- Unstructured play gives kids the space they need to tinker and take risks - both vital for the budding entrepreneur.
+- Given that the biggest rise in childhood obesity rates are occurring in children ages 3 to 5 years, we must modify our efforts to place an emphasis on prevention versus intervention.
+- No child wants to fall off a jungle gym or slide. Accidents are an unfortunate fact of life, but to lower every last slide and jungle gym to a height that would only interest a toddler is doing our children a grave disservice.
+- It's absolutely crucial that every child-serving organization - be it an elementary school, daycare, or community center - provide its children with time and space to play.
+- I hope my organization will not be around in 10 years, because at a national, state, and community level, we will have evolved into a society that cares about children and the need for play.
+- Our society spends a lot of money on prison bars. For the sake of our kids, let's invest in monkey bars.
+- We are raising today's children in sterile, risk-averse and highly structured environments. In so doing, we are failing to cultivate artists, pioneers and entrepreneurs, and instead cultivating a generation of children who can follow the rules in organized sports games, sit for hours in front of screens and mark bubbles on standardized tests.
+- During National Playground Safety Week, I'll celebrate common-sense safety. I'll also celebrate skinned knees and bruised elbows. I'll celebrate so-called 'dangerous' playgrounds - playgrounds with see-saws, zip lines and towering slides.
+- Play is under attack in our nation's schools - and shrinking recess periods are only part of the problem. Homework is increasing. Cities are building new schools without playgrounds. Safety concerns are prompting bans of tag, soccer, and even running on the schoolyard.
+- We know when children have a place to play they live healthier, happier lives.
+- When given age-appropriate challenges, children tend to take them very seriously; in fact, the more obvious the risk is, the more cautiously a child will proceed.
+- The national nonprofit I founded, 'KaBOOM!,' is on a mission to save play for America's children, and has long been championing the cause in high-need communities.
+- Toddlers need to get off the soccer field and onto the playground. Children need to get out of the gym and into neighborhood stickball games. We need to give kids room to create their own rules, set their own terms, and move their bodies in their own ways.
+- People have to see play as more important than what it currently is. We don't want to get boxed into thinking play only happens on a playground. The best type of play is all kinds of play.
+- We're taking sports too far and starting kids too early.
+- Only one in five children in the U.S. lives within walking distance of a park. Many more lack access to a quality early childhood education that provides ample time and space to play.
+- Kids who don't play are not just at greater risk of falling behind academically, but also of becoming overweight or obese, failing to integrate socially, and even engaging in criminal activity.
+- This summer, we need to let our kids go play and we need to stop worrying about whether or not it's going to ruin their chances of getting into college.
+- As parents, we need to send our kids back to 'old-fashioned' outdoor summer camps, which have been on the decline as the demand for sports and academics-based camps has risen. We need to fight budget cuts to public parks programs and resist closures of public swimming pools and playgrounds.
+- I was raised in a group home for 14 years, so I was a beneficiary of philanthropy. I didn't have a family. The nameless, faceless strangers were my family. They gave me an education, put food on the table and clothes on my back. I am who I am because of that formative experience. Now I am paying it forward.
+- Play is the best natural resource in a creative economy. Kids need more of it. It is the work of childhood. We hope to intrinsically change the opinion that play is not just a luxury but an absolute necessity for kids' lives.
+- A cultural shift is needed to incorporate exercise into our children's daily lives.

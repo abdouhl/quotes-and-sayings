@@ -1,0 +1,21 @@
++++
+author = "Daphne Oz"
+title = "Daphne Oz Quotes"
+quotes_len = "15"
+description = "the best 15 Daphne Oz Quotes"
++++
+- Developing a diet that is healthful, balanced, and appropriate for your particular caloric needs is easy enough and is absolutely critical to establishing a healthful lifestyle that incorporates proper nutrition, adequate fitness, and mental resilience.
+- The Dorm Room Diet is nothing like the conventional diets you may have tried in the past. It offers guidelines for creating a healthy lifestyle on your own, without the daunting restrictions of a quick-fix diet.
+- At my heaviest, I was 5'8" and 175 pounds. I ate well, but in too large quantities, and I rarely made a concerted effort to burn off the extra calories. I'd beat myself up about being overweight, even though I had the tools to be in shape. Then I'd resort to an unhealthy diet to lose the weight that was making me self-conscious.
+- A 'diet' is simply an individual's eating regimen: it doesn't have to mean the restrictive plan we've come to associate this word with.
+- My dad, who is a heart surgeon, works with many adult patients who did not take good care of their bodies in their formative years. He is able to teach them how to break old eating and exercise habits and reshape their bodies, but not without a great deal of resistance.
+- Everyone has their own definition of a healthy lifestyle, and mine has come to mean making health a priority but not an obsession.
+- I was a good 30 pounds overweight throughout high school, and it wasn't until I was going away to college that I really wanted to make sure I was doing everything possible to feel as confident as I could.
+- My parents always wanted me to know why eating healthfully was important to overall performance, probably to drown out my whining for junk food.
+- Figuring out how to eat healthfully on your own without your parents' guidance is one of the hardest lessons you must learn when you leave home for college.
+- After my first week of no wheat, my stomachaches were gone, my mucous cleared up, and I felt incredibly energetic. My headaches were also less frequent and less severe, and I had lost 3 pounds, most of it swelling and water weight my body had been holding onto as part of its response to the wheat products in my diet.
+- Exercise is important, but exercise in a gym is not important. Go and take a walk outside. Skip the umpteenth coffee date and go for a hike instead. Take the stairs. Walk your errands.
+- I didn't grow up eating meat - I was a vegetarian until I was 18.
+- A gluten-free diet still allows you access to almost every fruit and vegetable, a variety of grains and legumes, your pick of dairy products, fresh meats and fish and a whole slew of special gluten-free delights to satisfy your pretzel-bagel-muffin-doughnut craving.
+- While fad diets might seem like the quick-fix solution to lose weight, they won't help you get healthy in the long run.
+- I have two pairs of stretchy maternity leggings and jeans, which I will never give up, because once you experience an elastic band for a waist, you will never go back.

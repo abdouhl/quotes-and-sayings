@@ -1,0 +1,28 @@
++++
+author = "Duke Of Wellington"
+title = "Duke Of Wellington Quotes"
+quotes_len = "22"
+description = "the best 22 Duke Of Wellington Quotes"
++++
+- When one turns over in bed, it is time to turn out.
+- When my journal appears, many statues must come down.
+- Next to a lost battle, nothing is so sad as a battle that has been won.
+- All the business of war, and indeed all the business of life, is to endeavour to find out what you don't know by what you do; that's what I called 'guess what was at the other side of the hill'.
+- The Lord's prayer contains the sum total of religion and morals.
+- I don't know what effect these men will have upon the enemy, but, by God, they frighten me.
+- I used to say of Napoleon that his presence on the field made the difference of forty thousand men.
+- As Lord Chesterfield said of the generals of his day, 'I only hope that when the enemy reads the list of their names, he trembles as I do.'
+- Habit is ten times nature.
+- Next to a battle lost, the greatest misery is a battle gained.
+- The whole art of war consists of guessing at what is on the other side of the hill.
+- Publish and be dammed.
+- It is not the business of generals to shoot one another.
+- The battle of Waterloo was won on the playing fields of Eton.
+- Our army is composed of the scum of the earth - the mere scum of the earth.
+- The only thing I am afraid of is fear.
+- Nothing except a battle lost can be half so melancholy as a battle won.
+- Being born in a stable does not make one a horse.
+- Educate men without religion and you make of them but clever devils.
+- Be discreet in all things, and so render it unnecessary to be mysterious.
+- An extraordinary affair. I gave them their orders and they wanted to stay and discuss them.
+- I hate the whole race. There is no believing a word they say, your professional poets, I mean there never existed a more worthless set than Byron and his friends for example.

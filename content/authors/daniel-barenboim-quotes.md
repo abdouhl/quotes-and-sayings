@@ -1,0 +1,101 @@
++++
+author = "Daniel Barenboim"
+title = "Daniel Barenboim Quotes"
+quotes_len = "95"
+description = "the best 95 Daniel Barenboim Quotes"
++++
+- Sound is often talked about in a very subjective way, as if it had a colour. This is a bright sound, this is a dark sound. I don't believe in that because I think that is much too subjective.
+- You have to really have the will to hang onto the first note as it is being played, and then really stay with it and take the flight, as it were, you know, for the duration of the piece.
+- I have loved Elliott Carter's music for many years.
+- I was never really interested in an operatic post, but I took on the Bastille because it seemed a unique opportunity to build an opera ensemble from scratch, and to deal with all the disciplines that go into opera - the music, the staging and the singing - in an interrelated way.
+- There are wonderful restaurants in London. I love Indian food and I like Arab food, and I go very often to the Arab restaurant Noura.
+- Israel is in the grip of a ghetto mentality. We have a powerful army. We have the atomic bomb. But the psychology of what comes out of Israel has the tone of the Warsaw Ghetto.
+- In Arab culture, music is for celebration. You don't play music at funerals.
+- I think that our civilisation is very much a visual civilisation - television and videos and all this.
+- Most of the dramatism in Wagner comes from a very close link between the music and the language of the text. So much of the expressivity of Wagner's music dramas comes from the singers' capacity to play with the sound of the language. This kind of thing you can do very well in concert performance.
+- Music is not a profession. Music is a way of life - one that requires much professionalism.
+- On Nov. 5, 2012, my friend Elliott Carter died in New York at the age of 103. For me, he was and remains one of the most interesting figures of music history in the past century.
+- There are many types of silence. There is a silence before the note, there is a silence at the end and there is a silence in the middle.
+- Every great work of art has two faces, one toward its own time and one toward the future, toward eternity.
+- I know so many Irish musicians. They're all over, because there has been so much emigration from Ireland. Like the Jews.
+- Playing and listening to music gives you a sense of fulfilment because you have to put everything in you at its disposal.
+- I think what history has done to Jewish people, frankly, cannot be made good by giving them a piece of land.
+- Once you start playing a piece, there is a connection between every note. You cannot say, 'I will not concentrate on this note.' You cannot ignore things the way you do in the rest of your life.
+- In my mother's belly, I remember not liking the tempi my father played the Beethoven Sonatas in.
+- You used to queue for three days and two nights for tickets for Rubinstein. People stayed in the queue for the whole day.
+- In the beginning, there was silence. And out of the silence came the sound. The sound is not here.
+- Anti-Semitism has no historical, political and certainly no philosophical origins. Anti-Semitism is a disease.
+- To have real knowledge, one must understand the essence of things and not only their manifestations.
+- I can't stand going out to one more dinner with some Mrs. So-and-So who might leave a million dollars to the Chicago Symphony Orchestra when she dies.
+- Of course there is really vile anti-Semitism in Wagner's writings, but I can't accept the idea that characters like Beckmesser and Alberich are Jewish stereotypes in disguise. Would Beckmesser be a court councillor if he was meant to be a Jewish stereotype? No Jew could occupy such a role.
+- I get no satisfaction just showing myself in every corner of the world every week.
+- An hour of violin lessons in Berlin is an hour where you get the child interested in music. An hour in a violin lesson in Palestine is an hour away from violence, is an hour away from fundamentalism.
+- I am permanently relaxed.
+- The problem with listening to music today is that there's so much of it everywhere. We've got used to hearing music without actually listening to it.
+- There is too much employer-employee relationship in America. I wish the musicians would feel that many decisions have to do with them and not delegate everything to management or to the board or to the committee. This is why you get a sense of pride in some of the European orchestras: because they are part of the decision-making.
+- Controversial means somebody who makes people think. And if you are afraid of people who will be against you, you might as well stay home and do nothing.
+- Jewish intellectuals contributed a great deal to insure that Europe became a continent of humanism, and it is with these humanist ideals that Europe must now intervene in the Middle East conflict.
+- Most of the time I spend looking for the 25th hour in the day, the ninth day in the week, the 32nd day in the month and the 367th, eighth or 70th day in the year because I feel I have a very rich life.
+- The historical importance of a composer does not always go hand in hand with the quality of their work.
+- I cannot be music director at La Scala and at Staatsoper. This would be unfair to one of the two institutions.
+- I liked very much when we lived in Hampstead. We would go for walks on the Heath. I liked it better than living in the centre of town.
+- We need to take music out of the ivory tower - both for musicians and for the public. Otherwise, classical music will not survive the 21st century.
+- Beethoven's music tends to move from chaos to order, as if order were an imperative of human existence.
+- I love conducting. What I'm tired of is music administration. I don't want that. I just want to make music.
+- We need a certain amount of energy to produce the sound. But then to sustain it, we have to give more energy, or otherwise, it goes and it dies in silence. And therefore, sound is absolutely, inextricably connected to time, the length of time.
+- When we talk about music, we talk about our reaction to it. One person might say that music is so poetic, while another says it's all mathematics. Yet another might say it's about sensuality, and so on. That's all true. But music is not just one of these things. It's everything all at once.
+- US presidents can make all the commitments and declarations they want until they are blue in the face, in the Muslim world they will always be perceived as partisan.
+- There is no way Israel will deal with the Palestinians if the Palestinians do not understand the suffering of the Jewish people.
+- The Barenboim Foundation has nothing to do with politics.
+- Every concert I've finished with the knowledge I've played a fistful of wrong notes.
+- There are many wonderful orchestras in the world, but very few who have a character or personality of their own. The Chicago Symphony Orchestra is one of them, and I think it very important to recognize and respect that character.
+- When you love somebody and they die young and you are young, too, it is very hard.
+- To play four hands requires two people who have great affinity for each other.
+- I believe education is much more important than we assume.
+- I have music in my brain all the time, all sorts.
+- When you get to be 103, modernism is a very wide concept.
+- The thing about Wagner is we're always wrong about him, because he always embraces opposites. There are things in his operas which viewed one way are naturalistic, and viewed another way are symbolic, but the problem is you can't represent both views on stage at once.
+- I don't like possessions.
+- Beethoven's importance in music has been principally defined by the revolutionary nature of his compositions. He freed music from hitherto prevailing conventions of harmony and structure.
+- I am the conductor for life of the Staatskapelle in Berlin, which fills me with tremendous joy because I feel absolutely at one with them. When we play, I have a feeling that together we manage to create one collective lung for the whole orchestra so that everybody in the stage breathes the music in the same way.
+- Every note is a lifetime for itself.
+- Music is very abstract. When we talk about music, we're not discussing the music itself but rather how we react to it.
+- I think Sharon is anti-Israeli because it's in the interest of Israel to understand the problems of the other side.
+- I have accumulated so many experiences, so much, that I want to be able to realize so many things. This is why I have basically given up most of my positions.
+- Music is an art that touches the depth of human existence; an art of sounds that crosses all borders.
+- In order to lift a certain object from the ground, we have to use energy. But then to sustain it at that level, we have to keep on adding energy, or otherwise, the object falls to the ground. It's exactly the same thing with the sound.
+- You find Jews, Irish, and Italians in every orchestra.
+- Music means different things to different people and sometimes even different things to the same person at different moments of his life.
+- It's funny, because in 1970 I met the Beatles quite by a chance at a party. It was the Beethoven bicentenary, and I was then also playing the Beethoven Sonatas. And that's all they wanted to hear about - I wanted to talk about them, and all they wanted to talk about was Beethoven.
+- I don't think I'm anti-Israeli.
+- Now the first step has to be taken, the step towards democracy. This step is full of risks, and requires trust on all sides. We don't know where it will lead. But if we just stand still, we will have no chance of escaping the violence.
+- Live life to the full, and become more curious every day. The more you find out about life, the richer your music-making will be.
+- Tradition demands that we not speak poorly of the dead.
+- Any conductor who tells you that if he is approached for the directorship of the Chicago Symphony that he's not interested in it, you know perfectly well he's lying.
+- When I played my first concert with an orchestra, I was eight years old in Berlin.
+- People need to have enough to eat and have work and money. But there are other things that are important.
+- Beethoven was a deeply political man in the broadest sense of the word. He was not interested in daily politics, but concerned with questions of moral behaviour and the larger questions of right and wrong affecting the entire society.
+- What the world is saying to us human beings is, 'Don't stick to the old ways, learn to think anew.' And that's what musicians do every day.
+- Wagner is contrapuntal in a philosophical way as well as a musical way. What I mean by that is that every tendency has its opposite, and you see that in the man himself. He's a metaphysical hermaphrodite - he embraces hard and soft, masculine and feminine.
+- You don't go out and play Beethoven's 'Opus 111' without having rethought about it every time you play.
+- I maintain music is not here to make us forget about life. It's also here to teach us about life: the fact that everything starts and ends, the fact that every sound is in danger of disappearing, the fact that everything is connected - the fact that we live and we die.
+- I used to conduct the last opera in Berlin on Sunday, get on a plane on Monday to Chicago, and start a rehearsal that same night, if it was a performance week.
+- When playing music, it is possible to achieve a unique sense of peace.
+- The greatness of a musician is measured by the degree of fanaticism he brings to his playing.
+- I am convinced that 100 years from now, people will talk about Elliott Carter as one of the most important figures in the second half of 20th-century music.
+- Children in schools need to have something to do with music and learn it the way they do literature, geography and biology.
+- For me personally, Elliott Carter was and remains one of the most meaningful composers of the late 20th and early 21st centuries because he represents substance. He was the living proof of uncompromising, complex music, which at first seems inaccessible. But it becomes accessible if one digs in and sees the development through.
+- I think the most important thing for a listener is to realize that he, too, should not listen to music in a passive way; that if you sit in a concert hall and expect to be moved or taken off your seat by the music, it will not happen.
+- I would like to be a terrorist for music education - to make a complete reform, all over the world.
+- I don't believe in changing the unchangeable.
+- I'm one of the ones who believed the Iraq War was a complete mistake from the very beginning.
+- The Iranian government still denies the Holocaust - so you can't take them seriously. And the Israeli government spreads rumours and disinformation about Iran - because it needs to for the creation of panic. I find these theological states - and in this respect, Israel and Iran are twin brothers - very, very dangerous.
+- More and more, we're used to taking things in through the eyes rather than through the ears, and opera is more of a spectacle.
+- 'Tristan' is a very unique case, not just in Wagner's output, but in music in general. It remains contemporary no matter what else surrounds it. There is something self-renewing about it.
+- It is always interesting and sometimes even important to have intimate knowledge of a composer's life, but it is not essential in order to understand the composer's works.
+- Either you live by the barometer of the music critics, or you live by your own. I choose the latter.
+- You can't expect someone born into a family with no music... to understand when I'm conducting the Schoenberg Variations.
+- The tempo is the suitcase. If the suitcase is too small, everything is completely wrinkled. If the tempo is too fast, everything becomes so scrambled you can't understand it.
+- For many people, music is here to let them forget the daily chores of life.
+- No one can be an artist without a rich inner life.
+- I feel that the Jews have always had a special connection to this part of the world, which in geographical terms was called Palestine for so many centuries.

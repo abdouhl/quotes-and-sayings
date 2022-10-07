@@ -1,0 +1,120 @@
++++
+author = "Ellie Goulding"
+title = "Ellie Goulding Quotes"
+quotes_len = "114"
+description = "the best 114 Ellie Goulding Quotes"
++++
+- I played recorder in assembly, then I became passionate about the guitar, I don't know why. I started on electric then moved to acoustic - my brother was playing bass in the next room.
+- The very first song I wrote was about a boy that I was obsessed with.
+- I got approached by SoBe a few months ago about being an ambassador and I learned about the previous ones including Naomi Campbell, so I was instantly interested! Then I tried and really liked it. It's different and has interesting flavours... we don't have anything like it in the U.K.
+- Drake, I'd like to collaborate with. He's a phenomenal lyricist. Probably the best rapper in the world at the moment. I love Kanye but there's something about Drake; he's more straight up, really clever and really poetic and metaphorical - I love that. He's just clever.
+- When I heard Bjork's debut, that was when I first realized that I could be a singer, even with my unusual voice.
+- I record stuff all the time, like little vocal things. I write random things down... Sometimes I just get things stuck in my head and I record them, and that actually becomes a song quite a lot of the time.
+- Well, on tour I eat terribly, so I balance that by running a lot. And then I started to run with my fans in certain cities. It sounds very nerdy and un-rock n' roll, but I like it. It's fun, and it's better than meeting fans in weird, awkward circumstances. So I take them running with me.
+- My guiltiest pleasure is... chocolates with strawberry cream and trashy television - 'Geordie Shore,' 'Katie,' etc.
+- I'm not afraid, as a writer, of being emotional. I'm obsessed with human emotion, body parts, physicality.
+- I don't really have a style icon but I really admire the way people dress like Gaga, Rihanna and Gwen Stefani. It's good to be inspired by singers who write music and dress incredibly - rather than models and people in the fashion industry who dress immaculately anyway because it's their style.
+- I'm a bit of a like girly-girl, really, I like flowery stuff.
+- You get to a certain age and you can't judge yourself on your dad or your parents.
+- One of the most powerful feelings in the world is after a really, really long run.
+- I'm obsessed with the countryside: woods, forests, fields, lakes, mountains. I'm really into folk music and folklore. But more so I'm into electronic music. I'm into bands that have both aspects, like Boards of Canada is a perfect example. You could listen to that type of music running through a woods. It's kind of what I wanted to achieve.
+- Ever since I've been young I've been fascinated by the human body. I've written songs about it, but you can become quite morbid if you think about it too much - paranoid and a hypochondriac.
+- Two things I'm obsessed with are the countryside and fields and being in the open space and body parts, so you'll hear me mentioning body parts and human anatomy. I've listened to my songs and I think I am quite visual and I talk about bones and flesh a lot.
+- I keep getting compared to Marina and the Diamonds because she's kind of in the same place as me at the moment. It's quite annoying being compared, actually, because it almost downgrades your work and makes you feel like you're just another female artist.
+- I wrote 'Lights' a long, long time ago. And I expected it to be on the album, because it was - I wrote it with 'Biff' Stannard. And he wrote every single Spice Girls song and every single pop song of the 90s, basically. So I thought, you know, I was really lucky to work with him, but I didn't think it would be a big song for some reason.
+- I met Prince William at a musical festival and he let me know he was a fan of my music. But the invitation to sing at his wedding reception came completely out of the blue. The fact that Kate and William knew the words to my songs was very touching.
+- I instinctively dress a bit tougher because I've spent a lot of time in the U.S. and I realised there was a certain image projected of me here. I've always been an absolute rebel. When I was in my teen years I had piercings and wore all black.
+- I feel like my figure is a challenge because I'm quite flat chested but I've got a booty so I've got to look for the right things.
+- Lauryn Hill is quite political and is very bold and isn't afraid of wearing her heart on her sleeve, and same with Bjork, except she is a little bit more kind of fragile.
+- 'I Know You Care' is about my dad. And I haven't seen him for a long, long time. And my parents divorced when I was really young. And I guess I just wanted a - it was my way of saying that I wasn't bitter or angry anymore. I was just sad and just felt like something was missing.
+- If a hundred people want autographs, sometimes you have to say no because you've got to get up for a 4 A.M. flight or something. In that sense, it really pisses me off when people think you've become a diva. It's not becoming a diva, it's because of the situation, I think.
+- My voice has been very, very produced, and very treated - but then, also, it hasn't.
+- It's so important to take vitamins. People always get ill on tour because of the close proximity in the bus with everyone.
+- Not much shocked me. You know, I worked in a home for Alzheimer's patients and my dad used to be really into murders and stuff, so I saw dead bodies. It desensitised me to a lot of things.
+- What people don't understand is that how you are as an artist depends on how you are emotionally.
+- I was a kind of angsty teenager and I would write diaries and write stuff down all the time. Sometimes I get to the level on stage where I'm singing and it feels heavy, but not always.
+- Since I met Starsmith, my producer, I really feel like I'm making music because we write it together and produce it together. I've got a proper involvement in the end product as opposed to just writing a song and finding someone else to produce it.
+- I just sing and write songs and wear what I want. It's quite a good job really. If I wanted to I suppose I could become more of a fashion icon, but singing is my thing.
+- America saw me as a projection of me that I always wanted. That's why I love going to America so much. I feel like I started off in America exactly how I wanted to start everywhere.
+- People always try to find my agenda, but I don't really have one. It's safe to say that I make pop, but I think that I'm doing important music, too. I've just always done what I wanted to do.
+- I'd like a male to listen to my music and find it kind of fascinating, what a girl goes through when they get heartbroken or get sad or get hurt by something.
+- I was super brainy and a proper geek at school, but there would always be a boy. But that sort of obsession did turn me into a songwriter. My writing has always come from that feeling of infatuation.
+- I take inspiration from everything around me, also relationships and friends. And the inside of my crazy head.
+- I start really missing London when I go away. I have a little flat, but very central. I live above a pub and you'd think it'd be a nightmare, but I like hearing the music and it's quite comforting.
+- The nature of how we are as human beings is that we're much more interested in being critical rather than praising something.
+- My hairdresser in the U.K., Adam Reed, has his own line, Percy and Reed, and it's really good. And I use Moroccan Oil and Kerastase as well.
+- Apparently I'm introspective... levelheaded... but at the same time, absolutely insane.
+- Now, if some panic hits me, you have to sort of be friends with your body, it's like your body will work against you.
+- Every day I'd say I look different. Sometimes I look really formal, sometimes I love the classic Stella McCartney, Chloe Sevigny and Gwyneth Paltrow thing. Other days I like being rock star and wearing leather jackets and studs. I love wearing Burberry - it's the perfect combination of formal and punky.
+- The only day I remember of my parents' marriage was the day my dad walked out. As I stood there at five years old, with my older sister and younger brother, I knew that he was gone.
+- The only really safe thing to do is to write a diary of where you've been, what time you went to bed, what you ate. If I wrote honestly about everything I think it'd be a disaster. It would cause a lot of trouble.
+- There are plenty of bands who never get in the charts and it doesn't mean that they're not any good. Actually, a lot of the top ten is filled with stuff that just sounds the same. I could guess what's in there now - probably a bit of GaGa, Beyonce and some U.S. R&B males.
+- I've changed the way I look a bit but not intentionally. I've cut my hair. I've got a bit of pink in it and lately I've become a bit monochrome, wearing a lot of black and white.
+- I've always been fascinated by the human body, but you can become quite morbid and paranoid if you think too much.
+- I'm never happy with my face, my hair, I haven't really got any boobs and I'm not really that tall.
+- I guess I started running when I was about 18 and... I feel like it assists my creativity a bit because it completely just flushes everything out.
+- When I sing along with Britney Spears I will sing in an American accent. But eventually I found my own voice. My songs are so brutally honest, it would be alien to sing in any accent other than my own. Don't get me wrong - I can imitate singers. I can do bar mitzvahs and weddings.
+- I'm a bit grungy - I love wearing boots. But I also love putting on a beautiful white dress and jewels. I have those two alter-egos.
+- I love designer stuff but like it will only be like, on a whim. I love Alexander Wang so much, but it's expensive.
+- It took time to really build myself a reputation as a good live performer, a musician and an artist.
+- I want to be safe in the knowledge that I can tour and play festivals for a long time. The main thing is that I want a good reputation as a live performer. If I have that, I'd be so happy.
+- Cover versions, that's my forte, that's all I ever used to do. When you play your own songs, it's quite scary, 'cause I'm quite honest and open, they can be very revealing. But covers, I don't have to think about, just get me up there!
+- I used to be obsessed with Pearl Jam, but I love having pink hair and kind of looking like a Barbie.
+- I hadn't even released my first proper single when I started to feel the strain of attention. But I don't believe that it was the attention that was giving me panic attacks. I think it was everything in my life colliding at the same time. It really did get to a serious point where I couldn't even walk down the street without getting the pain.
+- I maintain that when I finally retire from my career in music, I will go and live back in Wales - when I am an old person, if I live to be an old person. The water I miss, and the air, there's something different about it. And I miss the simple life.
+- 'I Know You Care' is really personal and fragile for me. For me, it's about losing a family member and also about a breakup. It's about this idea of losing someone for good.
+- After shows my face feels dirty with makeup and sweat, especially in the smaller venues, so it feels good to get back to the bus and smooth it away. Sometimes you need something alcohol-based, especially on tour when you don't always get a chance to keep washing your face all the time.
+- I'd like to look like Madonna when I'm her age. I also look at athletes and love their bodies. I've always wanted to be muscly, not skinny. A lot of women yo-yo around, but I'm always aware if I'm getting a bit out of shape. I never look at the scales but I can just tell. It goes on my tum and bum.
+- I love prints of skulls and bones and have some taxidermy - a crow and a rabbit - to remind me of home. I like art and have a big portrait of Bjork.
+- I don't think there was ever a moment when I was like, 'Yeah, I want to be a singer!' I guess it just happened. I performed a lot when I was younger and stuff, but I remember getting to the point where I thought I might have to get a normal job.
+- I would never create an image for myself; I'm not that clever.
+- I never expected to get the Tom Jones treatment and it amazes me that I do. Strangely it's women who throw their underwear at me when I'm performing live. My male fans tend to be quite shy. My female fans are wild. I never know what to do with all the lingerie that lands at my feet. Maybe I should open a shop.
+- I love pink - pink's my favourite. I hardly ever - weirdly - wear it, but I love the colour pink.
+- Gwen Stefani has amazing style. I used to really love Courtney Love, and anything she wore I loved. Or Chloe Sevigny, because I really love that sort of classic look, and I like being girly and flowery, and wearing little D&G dresses. I wear hats a lot, too. I think it goes back to when I was a bit grungy and was a skater girl for a bit.
+- I want to be more like Pixie Lott. She works really hard but always manages to keep smiling. She never complains.
+- As a kid I'd lie awake at night and convince myself that a meteor was about to hit the Earth. It's my fatalistic streak, which I've inherited from my mum. I firmly believe something cataclysmic is going to happen in my lifetime and I have to be prepared to run for my life when the time comes.
+- I still don't know if I can write songs. I don't think anyone ever knows if they can write songs.
+- I've got a song called 'Salt Skin' because when you run in the heat it evaporates and you've got salt crystals on your face. I love that, because it means you've worked really hard.
+- It's usually a big kind of vent of frustration or anger or sadness that puts me in the right frame of mind to write. It's such a cliche to say that artists write when they're down, but it's true for me. It's a relief to get out what's eating away at my heart or my soul or my head.
+- My mum was too busy raising four of us to encourage my hopes. But I'm glad I had the upbringing I did. It made me a worrier and a thoughtful, curious person.
+- Christmas in L.A. is weird. There's no snow. It's not even cold.
+- I'd call what I do pop music, but it's folky and electronic and it doesn't really sound like much else.
+- I'm quite private. And I never wanted to be the biggest star in the world, really. So in that sense I've got a good balance of doing great shows, of making an appearance every now and then and writing music, and I don't really have to do much else.
+- I feel more confident if my makeup looks good.
+- I'm really proud of 'Bright Lights' because I was still in the mind frame of my first album when I was putting it together, but next time I want to display something different. I don't want to be as young, immature and all about boys!
+- I can fall in love in a simple way, but I can dissect it in such an intense fashion when it ends.
+- I couldn't really relate much to my younger sister, because she was born in 1992, and I was born in 1986. And then my older sister, we just didn't get on that much. Although we bonded over hating our stepdad.
+- You pick up loads of baggage with your first record with reaction to it from fans and critics. So I went to Ireland by myself for a couple of weeks with my guitar. I read lots of poetry, I read Patti Smith's autobiography and started words and phrases and then songs started to take shape.
+- Even when I'm in quite a happy state of mind, I like writing really sad songs. I think a lot of people do.
+- Maybe one day I'll make a record that's really mysterious and no one knows where it came from or what I wrote it about. But thus far, I've just wanted to explain everything properly.
+- You should constantly write because your writing is always evolving and progressing. It's really important to start writing young.
+- I used to make my manager Jamie not tell me where I was going to be the next day, because I was so afraid of flying and of anything. But now I love flying, I love working hard, I love being around the world.
+- Men are wary of me because they know, by listening to my music, that a relationship with me will be quite deep.
+- I think all the covers I do have nice sentiments, particularly 'Your Song.' People write me very sweet messages about that song, though I'm sure there are people out there saying that I've ruined it too!
+- Because I've always been a runner I love to feel that my body is shining on the inside. I wear baggy clothes, so it's not as though I like showing it off. I just like to know I'm great on the inside.
+- I think hype is a good thing. You need it and it'll teach you valuable things and you'll grow stronger, which is what I've done.
+- I never remember having a plan. All I could think about was how I was going to afford to get into college or where I was going to stay because I hated being at home. I didn't really have time to think about anything in the future. I didn't think about a career or anything. I went to uni, got a couple of jobs, so I sort of funded it myself.
+- Mumford & Sons' music appeals to a lot of America. I'm really proud of them.
+- My fancy dress costume of choice is... something 1920s or 30s, when there was still so much elegance and attention to detail. An excuse for ultimate dressing-up indulgence.
+- I never thought I'd say the sentence 'It was a real honour' - because that implies that you've done something pretty special. But now I've done that several times. Yesterday I was in Buckingham Palace - I actually met the Queen yesterday and that was an honour. I never thought I'd do something like that.
+- Breakups just hit you harder when you're younger. When I was a teenager, it felt like the most depressing thing in the world if a boy I was infatuated with didn't like me back!
+- By the time I got writing 'Halcyon,' I was on a roll, and I realized I had so much to write about, I realized I had so much built up inside that I couldn't really alleviate before, and then all of a sudden it was like reservoir burst.
+- I could always sing, from a really young age, but my voice was really weird. I used to make my mum turn up the radio every day in our house. She was well into music so I got that from her.
+- I still love the skinny jeans thing and I wear my favorite leather jacket constantly. I like being kind of a rock star. I love that I can feel comfortable in a small dress or I can feel comfortable wearing a baggy T-shirt.
+- On stage I have to be comfortable because I play guitar so I can't wear too much jewellery, it knocks against the guitar and makes loud noises. I had this big gold eagle necklace which I love but I kept whacking myself in the face with it so had to stop wearing it. I wear things that I can sweat in, basically... it gets really hot on stage.
+- I've learned not to let it be the end of the world if a boy doesn't like you. I used to put so much effort into boys. I started playing guitar because I wanted to impress this boy. Then, I ended up in love with guitar and I didn't care about the boy anymore.
+- I guess I'm just quite observant and I pay attention to a lot of things. Human behavior really fascinates me.
+- I suffer panic attacks which has made me really conscious about my fitness and I have become addicted to jogging. It might sound odd but a lot of good has come out of it. My fans send letters saying they have taken up jogging because I do it.
+- I've always said that Adele has turned so many people on to British singers - whether female singers or just like music from this country in general.
+- I was quite a weird kid because I didn't like getting presents. I don't know why. I just went for books all the time.
+- I was the first person to go to university from my family.
+- I've watched and learnt from DJs and remixers and paid way more attention to how I want my voice to sound. Before, as long as it was loud and in tune it was fine. I've discovered the difference made by various microphones and effects, so each track has a different vocal sound, my voice is woven into everything and it's above everything.
+- I'd hate it to become style over substance, I'd hate people to start putting me in a magazine article about my style. I don't like dressing up in something I'm not necessarily comfortable in just to make it more of a show. I want the power to come from what I sing about and how I sing.
+- My favourite people to follow on Twitter are... my fans. They make me laugh so much and keep me smiling.
+- I got a random tattoo the other day. It's a red triangle, which makes everyone think I'm arty, which I'm not. I used to draw red triangles all the time. It must mean something - maybe I don't know it yet. But I'll figure it out.
+- I find male singers and what they sing about fascinating. It makes me realize how little we know about ourselves and how little I know about myself. It's interesting to see the male perspective.
+- I started getting these attacks in 2009, just as my music career was taking off. I'd be doing photo-shoots and started to feel like I was having heart attacks. Increasingly I found it difficult to step outside my flat. Things started to get better after I saw a therapist, who told me I needed to make peace with my panic attacks.
+- I feel like I write songs for the future or something. Not in an arrogant way, but I feel like maybe my songs were, like, before their time or something.
+- I never thought that I could make a living out of my voice, to be completely honest. I thought that I could probably keep playing pubs. And it was exciting for me to get even just a pub gig in my town or country, when I went to university.
+- Bjork, I'd love to do something with her. I'd love to do some sort of crazy orchestral choir thing with her.
+- There are so many things to think about when you make an album. Like, who am I trying to impress? Am I going to get respect, critical acclaim? Or am I going to sell lots of records?

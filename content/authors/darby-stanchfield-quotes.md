@@ -1,0 +1,49 @@
++++
+author = "Darby Stanchfield"
+title = "Darby Stanchfield Quotes"
+quotes_len = "43"
+description = "the best 43 Darby Stanchfield Quotes"
++++
+- Over at the Olivia Pope & Associates set, we're like middle school children. Every time there's a cut in the action, we joke and dance around; there's show tunes and fart noises.
+- I am a bit in love with a new designer, George Hobeika; I have worn him a couple of times on the carpet. Ralph Lauren is another one I really have fun with.
+- When I'm grateful for all the blessings, it puts away all the stress about things not in my control. Things like long hours, aging, pollution, scandals... it helps me create perspective by just focusing on being grateful. Take that moment twice a day with yourself.
+- My dishes tend to have a very carefree style: what's ripe at the farmers market or what's in my fridge, even if I'm cleaning out my fridge. It tends to be a very improvisational style. I major in salads, but a loose definition of salad; it can have a real robust skirt steak on top of it off the grill or quinoa or buckwheat or sprouted almond.
+- I would rather be working than be on vacation. Always.
+- I am an avid NBA fan.
+- I just have to stay away from craft services. Having that routine allows me to keep absolute focus on the physical shape I want to be in. It's also important to allow yourself to have treats every once in awhile, so I indulge in dark chocolate. It's just a balance, for the most part!
+- I don't have a wine cellar. Just tea day and night.
+- I'm lucky if I get my nails done, period.
+- What I miss most about living in Alaska is the fishing.
+- I am a chameleon when it comes the way I dress. I am constantly changing it up, and I really can't commit to one thing because dressing for the day or for an event is really a mood thing. I like variety, and I don't mean just designers, I mean mixing the high-end garments and the cheaper clothing.
+- Kerry Washington is the most fun: she cracks me up! Everyone talks about how drop-dead gorgeous, smart, and fashionable she is, and she is all of that, but I must add she's the hugest goofball. She has the best sense of humor and lightheartedness that makes coming into work every day so delightful.
+- I was born in Kodiak, and I was raised in a place called Dutch Harbor out on the Aleutian Islands. There's a show called the 'Deadliest Catch' on the Discovery Channel. And they film it on Dutch Harbor where I grew up.
+- I get homesick for snow and for winter and for seasons and, really, for weather patterns. But L.A. has some of the best weather, so who can complain when it's 80 degrees and sunny?
+- I did 'Jimmy Kimmel Live' a while ago, and Lady Gaga was in the dressing room next to mine. The outfit she wore walking down the hall was even more fabulous than what she wore onstage!
+- I've been pulled over five times for speeding - and talked my way out of every single ticket!
+- As a kid, we had one television channel and a sad little roller rink. And there was not much else to do. So I used my imagination all of the time growing up. That's the main way I played. When we moved and I went to high school, I did my first play, and I was completely addicted to theatre. It felt like home; it felt natural.
+- I grew up in Dutch Harbor, Alaska - a place so tiny, we got only one channel on TV. The high school and middle school had 50 kids total!
+- My dad was a crab fisherman.
+- For me, being successful meant not having to do my laundry at a laundromat and not having a second job.
+- My favorite cast member of 'Scandal' is Josh Malina.
+- The biggest scandal I was ever involved in was - in high school, at a basketball game, I shot and scored for the other team.
+- I'm really attracted to playing strong, outspoken, sassy women. And I love playing characters who have a little bit of conflict or who can be controversial.
+- I'm a very private person, so I didn't like this idea of tweeting about me. And then I realized, 'Oh, this is actually a brilliant device in terms of interacting with the fans.'
+- From a personal standpoint, playing someone judged negatively by her friends is not difficult.
+- If I have a preference, I'd rather have a home-cooked meal than go out to the fanciest place.
+- I text with my dad during every 'Scandal' episode. We talk story lines, acting, and fashion.
+- I try to stick to the natural peanut butter, and I have several jars in the cupboard. I'll put it on oatmeal, rice cakes, chocolate... I just love it.
+- The way that I grew up, we ate very whole, real, natural foods.
+- I'm such a good sleeper that I can have tea any time of day, and I will have no problem taking a nap. I'm a professional napper.
+- When I get ready for a high-profile event, it's really about sleep and making sure I'm eating something healthy, and then it's always important to stretch to stay limber. No matter what, you want to feel as loose as possible, because it's easy to get full of excitement or tension with all that's going on.
+- I'm like one of the tallest ones on 'Scandal.' If I'm wearing my four-inch Abby Whelan high heels, I hover over everybody. I literally have a lower pair of high heels that I wear when I do one of the scenes with the guys.
+- When I moved to Los Angeles, I was straight out of grad school, and I didn't have a single credit to my name. I knew one person in town - another actor whose name is John Billingsley. I just had to audition and audition and audition. I was plugging away for 15 years. So I earned my stripes!
+- I certainly witnessed bullying as a teen in both a small and a big school setting. I feel like it is a universal topic.
+- When I met Oprah, the first thing I thought was, 'She is the most amazing hugger ever.'
+- I'm a very private person, so I didn't like this idea of tweeting about me. And then I realized, 'Oh, this is actually a brilliant device in terms of interacting with the fans'. It's a lovely way to just get back, to thank the fans for watching the show. And to live tweet is kind of like getting the rewards of doing live theatre.
+- I went to college and did theatre. After that, I spent about three years in Seattle doing French theater and community theater and sorting it all out. Then I applied to graduate school and got accepted, so I started pursuing my master's in theatre at the American Conservatory Theatre in San Francisco.
+- I like to know what's in my food and in my drinks. It's really important for me.
+- My favorite candy bar is a PayDay.
+- I never shy away from herbs!
+- I'm really a cook. I used to be the opposite - I used to go out a lot - but now I primarily cook.
+- I love seeing a young woman embrace who she is.
+- I like to be very consistent with workouts and getting a good amount of sleep. I've really been enjoying Pilates lately. It's actually really tough to fit in my schedule, but if I can get in a workout three times a week while we're shooting, that feels right. Any more seems to deplete my energy.

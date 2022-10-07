@@ -1,0 +1,41 @@
++++
+author = "Paddy Considine"
+title = "Paddy Considine Quotes"
+quotes_len = "35"
+description = "the best 35 Paddy Considine Quotes"
++++
+- It's such a stressful environment, I find, being an actor, being put in the chair and 'Touch this, that, and the other,' it's too much for me. I find it hard to tolerate that sort of stuff. If you're not enjoying it, don't do it. You're wasting everyone's time.
+- What's my dilemma here? Am I making entertainment or am I making art? What am I saying? At the end of the day, cinema is entertainment for millions of people, but for me it's expression.
+- My fascination is not for cinema; it's for human nature and human beings because I find it quite difficult being one at times.
+- Since being diagnosed with Asperger's, I'd been working with an acting coach who has now become a good friend. We'd been trying lots of improvisational techniques to help me with some of the problems I experience. But it's a very slow process.
+- A lecturer once told me I could never be a director. I was 16. I believed him.
+- I can't afford to step away from acting, but the one thing I've learnt after all these years is that I don't fit in. It's very difficult to be at the mercy of other people's whims and visions.
+- I could never sit down and say: I'm going to do an out-and-out comedy, just to prove to people I can. You've just got to do what you do. Just listen to your soul and do your art and do it for the right reasons, and then you can't fail.
+- There's no social realism in 'Tyrannosaur.' It's not about the social landscape or the political landscape or any of that. It's just about human beings. I never made 'Tyrannosaur' in reference to anybody - I just made it because I had to make my own films.
+- I think the older that I'm getting, the more I'm understand what a privileged job I have, and what an opportunity I have. Now I'm directing films and I'm getting my first movie in America off the ground, and you start to understand how the system really works.
+- I'll admit, sometimes I've paid the bills with acting. You know the phrase, 'It's one for the money, two for the showreel.' I don't want that as a director. I don't want to compromise myself. There's a big old wide world out there. I want to explore it.
+- There is nothing worse than when actors come to a set - and it happens a lot with big stars - and they are too aware of where the camera is. They are the show. And that becomes apparent and it affects the production. I am like 'You should not know where the camera is - you should act, and I will do the rest.'
+- I worked with some directors, and it was really collaborative, and I was sort of writing with them. I was giving so many pieces of myself to their movies, I thought, 'It's about time I use my own voice for me, and establish my own voice.' So I knew I wanted to make films.
+- At the end of the day, my life isn't about other people's work. I've got to stop giving stuff away. I've got my own stories to tell, and a great need to tell them. I've got these images, these thoughts in my head, and I need to find a way to cope with them.
+- All of a sudden I'm an actor, and I spend a decade trying to fit in and realising that I didn't, really. Sometimes in the right circumstances, with the right people, it felt OK. But other times it was a bit more jobbing. I didn't fit the mould, somehow.
+- When you're having conversations about actors, you realize these same conversations have happened about you. If you want to make a film for $5m, then you cast A, B and C, but if you want $20m, you won't be able to cast them, you need X, Y and Z.
+- With directors, some have a kind of in-built ability to just know how to work with actors and get the best out of actors, and some don't have a clue about acting. I think it'd be a good idea if directors put themselves in front of the camera, or even went on a six-week drama course, just to know a little bit about what that feels like.
+- People can very quickly have a very poor self-image. It doesn't take much.
+- Being a director is almost like being another sort of character, but you're out of view.
+- I have to believe there's redemption in the darkest of circumstances; otherwise it's too bleak for me.
+- It was important that I got my own voice out there in the world. I'd used it on other people's films, collaborated, and I thought, 'You know, I can do this myself.' That was more important than anything else.
+- I got through with my ability to mimic others and make people laugh. I swaggered through life, but, in reality, I lived in fear pretty much every day. I acted like a completely normal person, and I suppose I was good at it. But, inside, it was a very different story.
+- You walk past people in streets, or they serve you in shops, and you know nothing about the horrors they may be living with.
+- The more I find out about the dynamic and how it works, the more I realize how lucky I am to have ever got anything. Like... there was no need to put me in 'Cinderella Man' - there was no need. Why? Just get an American actor - it would've been cheaper, probably.
+- I suppose I just had this Christian idea about how I ought to go about my life. I thought, 'If I work really hard and have a bit of success, the problems I'd had all my life would leave me.' But, of course, not a bit of it left me because Asperger's is not something you just get over or grow out of.
+- I know victims of domestic abuse. I know what it takes for people to get out, and I also know why people stay. It's heartbreaking.
+- The thing is, if I try to talk about acting, I come off as moaning. But I'm privileged. I think it's all about control. Acting is vulnerable because you're not in control of anything. You have to give up a lot of your trust; it's up to somebody else what they do with what you've given them.
+- I would hate to be thrust into the middle of a big film and not deliver. There's young actors and they're put into these central roles and they're commanding armies - but they can't quite pull it off. I'd much rather do it in small steps and build it from there.
+- I watched 'Rocky' and 'Raging Bull' and 'Taxi Driver' over and over again. They spoke to you, man.
+- It's different being a director. I suppose, especially if it's a story you've written and you feel compelled to tell, in some ways it's a lot easier than acting because you're orchestrating the piece. As an actor, sometimes you're trying to second-guess what people want.
+- I don't want to be disrespectful to people who are incredible at their craft, but the truth is, if I didn't get paid for it, I wouldn't act. The best-paying jobs are usually the worst films. You're a very small cog in a big machine.
+- I'm trying to make sense of lot of things with 'Tyrannosaur.' I'm trying to make sense of people who've left now. They're not here, they can't answer for themselves any more, they're gone. And I'm trying to make peace with those ghosts.
+- I live in a state of hypersensitivity, and I've always had this feeling that something bad is going to happen to myself, or my wife and children. This manifests itself in different fears and visions.
+- All you've got to do is turn up and have a few facial tics and be a lunatic and throw someone around the room or blow their brains out and people think it's good acting.
+- I think it's a shame when the arts have to suffer because of corporate greed. People will always strive to make film, and the only important thing is that we keep trying to make ourselves heard and keep making our films, no matter what the climate is.
+- 'Tyrannosaur's an arrival for me, but it's also the first step into a new career. I don't want to be moonlighting at this, like I have done with acting. Y'know, I think I've found my career at 37 years old.

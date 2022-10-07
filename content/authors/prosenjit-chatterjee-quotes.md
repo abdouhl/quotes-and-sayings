@@ -1,0 +1,106 @@
++++
+author = "Prosenjit Chatterjee"
+title = "Prosenjit Chatterjee Quotes"
+quotes_len = "100"
+description = "the best 100 Prosenjit Chatterjee Quotes"
++++
+- I do not want to be a part of Hindi cinema's rat race. But yes, if I get offers and characters which I feel would suit me as well as make some difference to me, I will do a Hindi film.
+- I don't have a fixed fitness regime, as everything depends on my work schedule and my fitness instructor. But I make sure that I work out 365 days a year for at least one and a half hours, no matter what.
+- The memories of shooting in Iceland are amazing.
+- When you are on the host's seat you have to synchronize with so many things.
+- Bengal has always produced good cinema, be it Satyajit Ray or Ritwik Ghatak.
+- Since 80% of my career has been devoted to successful commercial cinema, I have always been told that I do not know how to act.
+- As an actor, I understand how difficult it is to simultaneously do diverse roles like Mithunda has done in 'Guru' and 'MLA Fatakeshto.' That's how much respect I have for him.
+- Star Theatre in Shyambazar makes up a big chapter in my life. I worked there for three years during my struggling days.
+- If get an off on a Sunday, I try to keep my script-readings, meet my directors, plan film releases.
+- When it comes to my industry, I will always be there to voice our concerns.
+- After 20 years and 250 mainstream films, I thought I should have in my library at least 50 films, films that will be talked about when I am no more.
+- I have not planned my Bollywood career the way I have planned my career in Bengali films.
+- For me, 'Shanghai' is beyond language. For me, it's good cinema. The language is incidental.
+- For me, it was more challenging to become Netaji, as I don't have the same physical built or look like him.
+- Throughout my career, I have criticized my every single step and I am open to any criticism.
+- All of Bengal knows about my differences with my father. He's based in Mumbai. I never visit him. He never visits me. We are not enemies. But neither are we friends.
+- Well, being fit is not about flaunting muscles or biceps. Being fit is about flexibility and fit is about flexibility and body composition.
+- I share good relationships with politicians from all parties.
+- I watch all kinds of Indian cinema. There are many good films in Bengali, Marathi and Malayalam.
+- It is challenging when you are dealing with people's emotions.
+- I have no connections with any political event.
+- We should celebrate love on all the 365 days.
+- Politics is a big no-no for me. I'm not a person who can go through that journey in life.
+- When I started my career, I was faced with a challenge of making my own identity.
+- There were times when 22 of my films would release in a year.
+- I've learnt so much from Mithunda.
+- I am not cut out for politics. I don't even dream of joining politics.
+- I used to sit on the editing table to see where I may have gone wrong because after editing, only the good parts go on screen.
+- A handsome period of my childhood was spent at our house in Tollygunge.
+- I love KIFF. No one can stop me from being a part of it. I have always watched good movies there. Earlier on, that was the only space to watch good cinema.
+- When I was young, we didn't celebrate February 14. For us, Valentine's Day meant Saraswati Puja. And just a single day in a year can't be Valentine's Day.
+- Earlier, people used to say no to regional films, but now people all over the world have started watching Bengali cinema.
+- I am a person who believes in giving due respect to everyone.
+- For an actor, who has done so many commercial movies, who has a large chunk of his fan following addressing him as 'guru,' it's not easy to opt for roles that strip one of the stardom.
+- As a good actor, I think you need to know camera, dubbing etc.
+- All my life, Sundays have been a working day.
+- It's not that I won't do any horror movie. The script has to be good and also the execution has to be perfect to attract the viewers.
+- No Bengali comedy show is complete without mocking my mannerisms.
+- In my Bengali films, I am involved with all the promotional activities, release date posters etc.
+- I was not born for politics.
+- The main reason I didn't work in Bollywood was due to the tremendous pressure on me in Bengal.
+- I think, it's important to understand how to release a film.
+- Every year, I have at least one Puja release, but 'Gumnaami' is really special for me. I have come out of my comfort zone for this film. I feel really fortunate to be a part of it.
+- Working out, for me, is like brushing my teeth. So, I can't cheat on that.
+- Sankhachil' did not have a script, to begin with. It was just a thought.
+- People of Mumbai respect me a lot and they are well aware of my contributions towards the film industry.
+- My audiences are giving me awards every day.
+- When a director is remaking a film, he should tweak it, add Bengali sentiments to it and make it look like a regional movie. A copy-paste job is something I don't support at all.
+- Cinema is a temple and who am I to say which person deserves entry?
+- I am a wholesale entertainer.
+- To portray a singer who gets on stage at night, who is away from the limelight, is never an easy task.
+- I believe my biggest critic is me only.
+- At one point of time, most of my films were successful, so I could have launched a production house. But had I done that, I would not have grown as an actor.
+- I have been to Goa before on innumerable occasions. I have shot at Fort Aguada in Goa too.
+- As children we had traveled only in cars and led a lavish lifestyle. After father and we parted ways, we had little money to afford even petrol; I used to travel to the Tollygunge studios in the south of the city from our Dumdum home in the north by bus. I would do any role that came my way: hero's friend, or brother, or son, just about anything.
+- Whenever there is a discussion on Tollywood anywhere in the world, people talk about Prosenjit Chatterjee - what else can I ask for?
+- I want to act in films such as 'My Left Foot' and 'A Beautiful Mind.'
+- Cinematically, anything like 'Khawto' in Bengali cinema hasn't happened. Yes, you get such films in Hollywood, a few in Bombay. In Bengali literature, you get such stories in the works of Samaresh Basu and Buddhadeb Guha.
+- It is an honour to conduct a masterclass at IFFI.
+- The Prosenjit-Rituparna jodi is a huge contribution to Bengali cinema as we have delivered several hits.
+- When critics called me a duplicate of my father, I knew I can't do anything about my genes but I ensured that I shed the romantic image and create my individual style.
+- I was born to be an actor and I haven't exhausted myself in this particular field.
+- There is a host of directors - Sujoy Ghosh, Neeraj Pandey, Ashutosh Gowariker, Madhur Bhandarkar, Mani Ratnam and so on - who make some great cinema. I would like to work with them all.
+- With excessive digitisation, now, everyone is making films, which is good, but the makers think that they will quickly make films in digital and bag satellite rights but television channels buy satellite rights of notable films only. If we made fewer films a year, percentage of hits would be better.
+- I was barely 17 when our father decided to part ways with my mother.
+- I take eight meals a day.
+- I go to bed very late. I usually stay up till 2:30 A.M. but am up by seven in the morning.
+- There's a wow factor associated with my name. It could be due to my work as well as my behaviour.
+- Everywhere I go today, people talk about Bengali cinema. I completely refuse to accept that Bengali filmmakers are not making good films.
+- Technology is a very important part of cinema.
+- I wanted to be a hero, then I wanted to be an actor. But always I wanted to be respected as a good human being.
+- Everyone has their own way of telling stories.
+- I'm comfortable in my life.
+- I want to urge filmmakers in Bengal to choose a subject and mount the film in a way that there's a Bengali connect. They must not fall into the typical remake pattern.
+- My final ambition is to turn director.
+- I'm very happy that whenever we talk about Bengali cinema anywhere in India, people talk about me with a lot of respect.
+- Praktan' saw stupendous success in Bengal, can it not be remade in Hindi? It sure can.
+- Ask anyone in the industry if Bumbada is accessible. A technical hand can call me at 2 A.M. and I will be there to help him.
+- I came to know about my father joining BJP through the media.
+- Mithunda is a great actor. He has done all kinds of roles simultaneously and that's no mean feat.
+- Life is like a circle and you have to know when to move on. Success and failure are a part and parcel of it.
+- Comedy is something I enjoy doing.
+- I don't understand politics at all.
+- When people started recognising me as a 'chocolate hero,' I switched on to action movies and became an action star. I kept reinventing myself. it was a continuous process.
+- I've two failed marriages in the past.
+- I see a lot of similarity between Bengali and Malayalam films regarding the basic emotions, the craftsmanship, art and performance. I also feel both the industries are very true to their art and culture.
+- I respect Malayalam films the same way I respect Bengali films. I think Malayalam films have not compromised on the essence and have kept their own statement and are coming up with very good themes.
+- If the entire product is good, then no matter what the language of the film is, people will love it.
+- Shyambazar evokes a strong sense of nostalgia in me. There's not a theatre in that area where I haven't watched a movie. I also have fond memories of going grocery-shopping at Grey Street with my grandparents.
+- There used to be times when I used to be bothered about box office, director, producer, the actress... If those ticks were marked, I used to say 'yes' to a film. Later on, my focus absolutely changed. Now if a character stays with me for two to three nights, I say 'yes' to the film.
+- I've always said that we must do local cinema but not lose sight of national appeal. That's the way New Theatres, L V Prasad, Gemini Studios operated.
+- I love to prepare for my roles.
+- We lack good film scriptwriters. People like Anjan Chowdhury who could develop scripts of pure entertainers are quite difficult to find now. There are obviously some exceptions like Padmanabha Dasgupta. But how many scripts can one single Padmanabha Dasgupta churn out!
+- When I need to go to my bank, I'll do television.
+- I was never serious about Bollywood films, but when I was offered a film like 'Shanghai,' I took it because it is a good film.
+- Working with Atanu again after 'Mayurakshi' is quite a challenge for me.
+- We can change everything but we can't stop time.
+- Atanu is one of my favourite directors. His script, style of storytelling and characterisation are always very different.
+- I am open to do a Telugu, Tamil or Malayali movie. If I get a good script and good character, I will surely do it.
+- Talent is a very cliched word. Hard work is the key and I am a very hard working person.

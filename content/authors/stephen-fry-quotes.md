@@ -1,0 +1,66 @@
++++
+author = "Stephen Fry"
+title = "Stephen Fry Quotes"
+quotes_len = "60"
+description = "the best 60 Stephen Fry Quotes"
++++
+- I'm a bit of a coward, and lazy, oddly enough.
+- I feel I would love to close down for a number of years in some way and just be in the country making pork pies and chutneys and never have to poke my head out of the parapet.
+- You can act in five, six, or seven films in the time it takes to direct one film.
+- I've always had great respect for Paddington because he is amusingly English and eccentric. He is a great British institution and my generation grew up with the books and then Michael Horden's animations.
+- As someone who worked hard for a Labour victory in the 90s, do I regret it? Not really. It was bound to happen. And it'll happen with the next government, and the one after it. Because all governments serve us. They serve the filth.
+- Personally, I'd never seen a graphic novel. I knew they existed because friends of mine like Jonathan Ross collect them and some very literate and intelligent people really rate the graphic novel as a form.
+- I am a lover of truth, a worshipper of freedom, a celebrant at the altar of language and purity and tolerance.
+- It was extremely important to show that Wilde's sexuality was not just some intellectual idea. It was real, and it was about the human body. To just have mentioned it and not shown it would have been, I think, peculiar and wrong.
+- I don't watch television, I think it destroys the art of talking about oneself.
+- It's rather splendid to think of all those great men and women who appear to have presented symptoms that allow us to describe them as bipolar. Whether it's Hemingway, Van Gogh... Robert Schumann has been mentioned... Virginia Woolf, Sylvia Plath... some of them with rather grim ends.
+- I went to Cambridge and thought I would stay there. I thought I would quietly grow tweed in a corner somewhere and become a Don or something.
+- If you go looking for loonies and religious fanatics and dropouts and freaks, I dare say you'll find it.
+- An original idea. That can't be too hard. The library must be full of them.
+- I'd probably want to teach at university, because children would drive me insane. I suspect it would be English literature, Shakespeare and so forth. I've always been deeply, deeply in love with that kind of thing.
+- Because, let's face it, I do not get offered the parts that Brad Pitt has just turned down.
+- When you've seen a nude infant doing a backward somersault you know why clothing exists.
+- The point about manic depression or bipolar disorder, as it's now more commonly called, is that it's about mood swings. So, you have an elevated mood. When people think of manic depression, they only hear the word depression. They think one's a depressive. The point is, one's a manic-depressive.
+- I don't believe there is a God. If I were to believe in a god, l would believe in gods.
+- Christmas to a child is the first terrible proof that to travel hopefully is better than to arrive.
+- Generally, we admire the thing we are not.
+- Philosophy is an odd thing. When we use the word in everyday speech, you know, you sometimes hear it hilariously.
+- I shouldn't be saying this - high treason, really - but I sometimes wonder if Americans aren't fooled by our accent into detecting brilliance that may not really be there.
+- I don't watch TV. I think it destroys the art of talking about oneself.
+- I think my view is that whenever you project into the future you're never likely to be accurate in the details, or the paraphernalia and style. It's in the spirit of it.
+- My life, at least, is divided between writing and performing and mixtures of the two.
+- There's no doubt that I do have extremes of mood that are greater than just about anybody else I know.
+- It is a cliche that most cliches are true, but then like most cliches, that cliche is untrue.
+- I don't need you to remind me of my age. I have a bladder to do that for me.
+- That one can love another of the same gender, that is what the homophobe really cannot stand.
+- Now, bipolar disorder, it goes on a spectrum. There's very severe conditions of it and there are milder ones. I'm lucky enough that it's reasonably mild in my case.
+- I've never had any illusions about being a lead actor in films, because lead actors have to be of a certain kind. Apart from the beauty of looks and figure, which I cannot claim to have, there's just a particular kind of ordinary-Joe quality that a film star needs to have.
+- I like to think of myself at home in the armchair, writing, smoking and occasionally wandering down the shop.
+- There is no particular Socratic or Dimechian or Kantian way to live your life. They don't offer ethical codes and standards by which to live your life.
+- Old Professors never die, they just lose their faculties.
+- They are just 100 per cent bear, whereas human beings feel we're not 100 per cent human, that we're always letting ourselves down. We're constantly striving towards something, to some fulfilment.
+- Oh, it takes a lot for me to walk out of a film.
+- But happiness is no respecter of persons.
+- Many people would no more think of entering journalism than the sewage business - which at least does us all some good.
+- You can't reason yourself back into cheerfulness any more than you can reason yourself into an extra six inches in height.
+- Happiness is no respecter of persons.
+- I have pushed the boat out as far as I should in terms of taking on too many things. I'm getting older and I just could not take it any more. I am now monitoring myself very closely and I'm just trying not to get into that sort of state again.
+- There is so much we can learn from TV. It's a window on the world.
+- Love in all eight tones and all five semitones of the word's full octave.
+- I get an urge, like a pregnant elephant, to go away and give birth to a book.
+- To be human and to be adult means constantly to be in the grip of opposing emotions, to have daily to reconcile apparently conflicting tensions. I want this, but need that. I cherish this, but I adore its opposite too.
+- Somehow, as a writer, you tend to use words to paper over structural cracks.
+- When you get just a complete sense of blackness or void ahead of you, that somehow the future looks an impossible place to be, and the direction you are going seems to have no purpose, there is this word despair which is a very awful thing to feel.
+- I think the fact that I'm so well known to be gay makes it very difficult to have a convincing relationship with a woman on screen. It wouldn't be at all difficult for me to kiss a woman - I'll kiss a frog if you like.
+- It only takes a room of Americans for the English and Australians to realise how much we have in common.
+- My father was all brain and little heart.
+- Having a great intellect is no path to being happy.
+- No, I love the idea that someone changes. As an actor it's always the thing that you look for. He is someone who starts off bright, cheerful and confident and then has everything taken away from him. It's a wonderful journey to take.
+- It is exhausting knowing that most of the time the phone rings, most of the time there's an email, most of the time there's a letter, someone wants something of you.
+- Moving from chair to chair, from coffee machine to coffee machine is the limit of my action in most films. But I enjoy being cast in them because I love watching them.
+- Taste every fruit of every tree in the garden at least once. It is an insult to creation not to experience it fully. Temperance is wickedness.
+- Having been an actor and a writer for so long - 20 years or so - I felt that it would be daft to go to one's grave without having directed. It's a natural extension of writing and acting, and so I knew it would happen one day.
+- But if one could go back in time, I'd love to have been directed by Howard Hawks, who's one of my great heroes. One of the greatest directors there ever was. He directed probably one of the greatest westerns of all time in 'Rio Bravo'.
+- My parents were marvelously educated people.
+- You don't sit down and write a wish list about the person you are going to fall violently in love with. It just doesn't work like that.
+- I think we have all experienced passion that is not in any sense reasonable.

@@ -1,0 +1,31 @@
++++
+author = "Patch Adams"
+title = "Patch Adams Quotes"
+quotes_len = "25"
+description = "the best 25 Patch Adams Quotes"
++++
+- I've taken clowns into the war in Bosnia, the refugee camps of Kosovo, and none of those are any more important than clowning in a subway or an elevator or just walking down the street.
+- We are a breathtakingly alienated people... One of my props is the world's largest underpants. I've had the president of Costa Rica in my underpants with me.
+- The medium of response in America is fame; that's how a person that bounces a ball can make millions of dollars, and a school teacher with no fame makes $35,000.
+- Everyone who goes to a job he doesn't like is a lot weirder than I am.
+- Is letting our children watch TV a form of child abuse? If our children grow up knowing everything about Britney Spears and nothing about nature or faith, about anything, is that not a form of child abuse?
+- I'm a clown, which could be a public health role. I'm really interested in moving our society away from a society needing Xanax and Prozac, and that is really feeling depressed, to one that is celebrating, and so I find just walking around in colorful clothes, people smile.
+- The role of a clown and a physician are the same - it's to elevate the possible and to relieve suffering.
+- At the age of 18, I made up my mind to never have another bad day in my life. I dove into a endless sea of gratitude from which I've never emerged.
+- I first came to Russia because of the culture, literature and music... and my interest in the 19th-century revolutionary spirit of Herzen, Bakunin and Kropotkin. Russia is a wonderful place to bring new clowns because Russians give back a wonderful response.
+- What I really want is a world where no one alive can remember what the word 'war' means. That's my goal.
+- I'm great at a deathbed. I've never given tranquillisers or psychiatric medicine. I've given love and fun and creativity and passion and hope, and these things ease suffering.
+- Unlike a lot of people, I don't feel powerless. I know I can do something. But anyone can do something, it's not about being special. It's about deciding to do it - to dive into work for peace and justice and care for everybody on the planet.
+- You've got to know what you want. This is central to acting on your intentions. When you know what you want, you realize that all there is left then is time management. You'll manage your time to achieve your goals because you clearly know what you're trying to achieve in your life.
+- If we don't change from a world society that worships money and power to one that worships compassion and generosity, I think we'll be extinct by mid-century. I don't say that as an alarmist or as a pessimist.
+- While watching him work on the set of the film based on my life - Patch Adams - I saw that whenever there was a stressful moment, Robin would tap into his improvisation style to lighten the mood of cast and crew.
+- I've never made a penny being a doctor, so that makes it not a job. My sense of a doctor is that one is a presence caring for health. So I'm never not a doctor. People call me from all over the world who are hurting, and I care for them. Chatting is what more people want than anything.
+- I make me. At 18, I decided I wasn't going to have an unconstructed self ever. I was going to be the composer, the designer, the architect of me. It's been really fun.
+- Robin Williams was a wonderful, kind, and generous man. One important thing I remember about his personality is that he was unassuming - he never acted as if he was powerful or famous.
+- Wearing underwear on the outside of your clothes can turn a tedious trip to the store for a forgotten carton of milk into an amusement park romp.
+- I'm looking for a world where love will no longer be extraordinary.
+- I entered medicine to use it as a vehicle for social change.
+- Humor is an antidote to all ills.
+- Clowning is a trick to get love close. I can hug 99 percent of people in the first second of contact if I'm in my clown character. The clown assumes your humanity. It assumes that, whatever trauma you've had, you can still love yourself.
+- When you left the house today, you had the intention of putting clothes on and you did. You didn't try to put your pants on today. You simply put them on. The same has to hold for all of our intentions. We don't try to be more loving partners. We make the intention, and we act on it.
+- It is inexcusable that the richest country in the world does not take care of all of its people. We don't consider ourselves idealistic; we're thoughtfully trying to make a beautiful health care model.

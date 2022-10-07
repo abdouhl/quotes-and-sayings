@@ -1,0 +1,27 @@
++++
+author = "Stephen Cambone"
+title = "Stephen Cambone Quotes"
+quotes_len = "21"
+description = "the best 21 Stephen Cambone Quotes"
++++
+- And then fourth, we have that essential group of people who track programs and budgets to ensure that they align with the needs of preparation and warning, counterintelligence and support to the operational war fighter.
+- It's easy to measure success by the number of dollars spent or by the number of programs initiated, without having too much regard for what was bought and how useful it was to the people who need it - the war fighter and the analyst.
+- That's driven by any number of factors, the most prominent of which have been the combat experience of two major campaigns - one in Afghanistan and the other in Iraq - and the ongoing demands of the global war on terrorism.
+- In other words, by finding the anomalous event, what you do is you get out ahead of activities.
+- Our focus is on outputs rather than inputs.
+- Where we have the choice between putting a dollar against those that are going to advance horizontal integration and those that are going to sustain current capability, we'd rather put them against the horizontal integration activity.
+- There is a reasonable concern that posting raw data can be misleading for those who are not trained in its use and who do not have the broader perspective within which to place a particular piece of data that is raw.
+- Thirdly, as we move through this process of integrating the communications, we will begin to emulate more of the World Wide Web in our work in the future.
+- When you live in a networked environment, it's possible to separate data from applications.
+- We have been working hard to think about what our combined needs are going to be in the way of intelligence capabilities, not today but 15 to 20 years in the future.
+- The third group is focused on counterintelligence and security. I think the reason for that is fairly evident, in terms of vulnerabilities of the department and the harm that can come to it by failing to detect when we have, in fact, been harmed.
+- We've complemented that with a second office to think about how we need to prepare ourselves for that period 10 or 15 or 20 years from now, by way of investment in our technology, our organization and our people.
+- The users are not going to be in the position of accepting what's been collected; they're going to be in the position of being able to demand collection.
+- The office has oversight of people who do analysis and oversight of people who do operations, but it is not charged with doing either. That is an important point to make. Those functions are performed by the CIA, DIA and other agencies.
+- But by providing the background picture - the universal situational awareness that we desire - by showing the anomalies, the Space-Based Radar will change the nature of how we do our analysis and our intelligence.
+- That is really not much different from the search engines that are being constructed today for users throughout the entire world to allow them to search through databases to access the information that they require.
+- Over the course of two years, we arrived at a point where we began to look at the value added by making information more easily accessible across the intelligence community, both defense and national.
+- So we have a group within the office that is devoted to support for the war fighter. That's, of necessity, an operational and tactical level of concern.
+- And to do that not only for the war fighter, but also to help prepare the people in the acquisition, personnel and policy worlds who need to make adjustments in the department's business, which itself may take 10 or 15 years to accomplish.
+- One is to ensure that the war fighters and the intelligence analysts get the information that they need when they need it, in a format that's useful to them.
+- And the reason for focusing on that time frame is that it's going to take us a considerable period of time to develop the new capabilities, processes and organizations that will be needed.

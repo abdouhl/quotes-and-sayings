@@ -1,0 +1,15 @@
++++
+author = "Shahzia Sikander"
+title = "Shahzia Sikander Quotes"
+quotes_len = "9"
+description = "the best 9 Shahzia Sikander Quotes"
++++
+- For me, I always feel that I'm not sure what's going to happen next year or what's going to happen the year after or what's in the future. So I really kind of just focus on the project at hand and try to do the best that I can. And that, for me, is as much as I can control.
+- In the end, the gesture of painting becomes almost meditative, like a ritual.
+- I like driving. A lot. I think that's something I just enjoy the most. I can, at a moment's notice, drive across the country if, you know, I had to.
+- Not to be boxed in, to be able to transcend boundaries: for an artist, it's essential.
+- I don't really listen to music when I work. I really have to focus on one thing at a time. I like a lot of quiet and peace when I'm working or when I'm thinking or when I'm reading.
+- My whole purpose of taking on miniature painting was to break the tradition, to experiment with it, to find new ways of making meaning, to question the relevance of it.
+- For me, drawing is a way of navigating the imagination, and it remains the fundamental vehicle of my practice. Drawing allows me to be at my most inventive.
+- I was very, very quiet. I was always a loner, hardly spoke, and I was quite a nerd in school. So I was an outsider always.
+- When I first arrived in Houston, I was fascinated with the elaborate styles of cowboy boots and thought they were incredibly exotic. They also seemed to be a central part of a specifically 'Texan' identity, one distinct from being 'American.'

@@ -1,0 +1,24 @@
++++
+author = "Stockard Channing"
+title = "Stockard Channing Quotes"
+quotes_len = "18"
+description = "the best 18 Stockard Channing Quotes"
++++
+- When I was younger I thought I was an artist, and inspiration would just come to me.
+- You're talking to someone who has been married to various people for the last 40 years of her life. Dating is not really something familiar. I've never really been a dater.
+- Oh, my only - if I had one frustration in being on 'West Wing' is I wasn't on it enough, because I was in and out.
+- It would be interesting if this sitcom works, so I could be doing one thing all the time instead of going back and forth between all this different media which I sort of thrive on, I'm a bit of a moving target in that way.
+- I'm rather uncomfortable with celebrity, to be honest.
+- I think that's the phenomenon of our time is that a lot of women keep themselves in good shape but that there's not a lot of accommodation or people out there to connect with and the technology.
+- These things have a life of there own and never existed when I was growing up certainly worrying when one would get made. It's kind of amazing how that one movie kept living through all these years.
+- It's funny, I had dinner with my dear friend John Spencer last night and I'm not in the first episode, but he's at the beginning of it and he was telling me about it and I thought this sounds very hot because I think this is definitely the last year of West Wing.
+- You don't want to play a character you can't inhabit or commit to fully.
+- Casting can be heartbreaking. Dealing with the disappointment is the hardest part.
+- I couldn't do it at all. I was never really good at it, but I can't imagine what it can be like as a fortunate person not having to deal with it. I mean, people of all ages, not just my age, 25, 35, all the way down the line.
+- I'm kind of spoiled, but the great thing about life is that you never know what's around the corner.
+- Acting is such a bizarre way of life. Unless you're really passionate about it, you should give it up. Don't beat yourself up.
+- I hate parties. I really don't like public events. I hate dressing up. I am the worst celebrity ever!
+- I think the end of last year when we were aware of that transition was for everyone in their own way kind of bittersweet, but it's also what the show's about, one administration ends and another begins.
+- Well, I mean she's of a certain biological age but she didn't have to go around with fat patches and stuff.
+- I want to go working with good people on something that's good, because otherwise it's a big waste of time. I don't have that much time.
+- I lead a very boring, normal life.

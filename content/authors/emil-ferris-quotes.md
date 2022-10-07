@@ -1,0 +1,29 @@
++++
+author = "Emil Ferris"
+title = "Emil Ferris Quotes"
+quotes_len = "23"
+description = "the best 23 Emil Ferris Quotes"
++++
+- I never quite became the monster I wanted to be. I feel mostly monstrous as I more become myself. Because the more you become yourself, the more it disturbs other people.
+- Silent films weren't so different from my comics - the basic choice both offer an artist is what do you show and what do you tell.
+- When I read 'Maus,' I realized you could tell a story of tremendous import using the graphic novel.
+- I still do love monsters. And when I was a kid, they were really important to me. I couldn't wait for Saturday night.
+- I was illustrating, and I was cleaning people's houses; I was doing whatever I could to take care of my kid as a single parent.
+- When I'm too worn out or in pain, I lie in bed and write in my mind.
+- I learned how not to be alone in the playground.
+- The hardest thing is in terms of the drawing, because, you know, I really have to work to keep my hand fluid, and I've done a lot of recovery, but it's not the same as it once was.
+- There's the way that light shows in darkness, and it is extremely beautiful. And I think it essentializes the experience of being human, to see light in darkness.
+- I think the Hammer films really made death quite sexy.
+- I have a profound interest in embroidery, as I have female ancestors on both sides who embroidered their way through great trials.
+- I get afraid of the dark if I'm in a great deal of dark, and I have to move around inside of that fear... But there is a chance that something... will talk to me from the dark, so I have... to be prepared for that communication, which has happened.
+- Monsters are a departure from 'reality' in a way that allows for a range of fantastic possibilities. I mean this within the world of literature as well as in regards to art. When I sit down to draw, I'm energized by the possibility of creating a monster. That is where I find beauty and pathos.
+- I kept notebooks as a kid, and they were important to me.
+- I read a quote to the effect that we are always writing about ourselves no matter what we're doing. That may be so.
+- Becoming a monster sometimes isn't a choice that you have. We're all that; we're all 'the other' in one way or another.
+- Yes, doing a work, telling a story very much represents a way to save my own life, and on so many levels.
+- My mother was very, very beautiful, and I saw that the beautiful women around me were often constrained not only by their beauty but by the way that being an object of male desire frequently caused violence in their lives. And it caused them to be constrained in these terribly sad ways - their brilliance was not valued.
+- Being seen is important for people. Doesn't happen enough for anyone. We're not here long in this world.
+- My parents met at the Art Institute of Chicago as students, and somewhere in there, they procreated off to the side and created me.
+- I fell asleep once while washing dishes. I hallucinated prolifically - like, squirrels knitting whole sweaters! It was like my dreams inserted themselves in my waking life.
+- I was born with fairly serious scoliosis, and I did not walk at all until I was about two-and-a-half years old.
+- When I say 'art healed me,' it really healed me!

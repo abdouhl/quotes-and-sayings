@@ -1,0 +1,16 @@
++++
+author = "Elizabeth Pena"
+title = "Elizabeth Pena Quotes"
+quotes_len = "10"
+description = "the best 10 Elizabeth Pena Quotes"
++++
+- Every time I work with a European director, I find they hire the person that captures the spirit of the role. Americans tend to hire the best face. The person that looks more like the role, whether they can perform the role or not is a bonus.
+- I figured, if I failed, I'd tried something that I hadn't tried before and if one movie was going to destroy my career than I didn't have much of a career to start with. I just went for it. God willing I wasn't over the top and didn't embarrass myself.
+- I believe the director is the one that sets the mood and if you have this hysterical director it's a domino effect. I would work for him forever, for nothing. Don't tell my agent that.
+- It's a clique and I think a clique exists in every business. There's a circle of people that are guaranteed to open a movie and we all know their names and whether they're right or wrong for the role.
+- When I got Jacob's Latter, I was nervous because I felt I wasn't allowed to fail. I felt that they were waiting for one little failure and that would prove them right and I'd be, 'out of there.'
+- When I'm not working, my family and I have a house in the San Juan Islands. We've been here since '94.
+- I love acting. When I'm acting I feel like I'm on vacation. I'm just having a wonderful time. The nightmare is just getting the work to happen.
+- Sayles could pull a performance out of a dog. I'm serious. He was just amazing. The world could fall apart and he remained on neutral.
+- The work is getting the work.
+- It was a lot of pressure, but I loved working with Tim and I loved working with Adrian.

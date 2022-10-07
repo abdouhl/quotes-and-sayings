@@ -1,0 +1,41 @@
++++
+author = "Sarah Greene"
+title = "Sarah Greene Quotes"
+quotes_len = "35"
+description = "the best 35 Sarah Greene Quotes"
++++
+- Normal People' is an incredibly intimate show, there are a lot of love scenes in it and it's beautifully done.
+- I think 'Normal People' is a fantastic piece of art for conversations around consent. It shows that you don't have to do anything you don't want to do and looks at respecting the other person.
+- Everyone knows everyone because we've all worked in theatre. All of our 'Dublin Murders' crew came from 'Game of Thrones'. Also, we only drink in two pubs in Dublin, so we always bump into each other.
+- My mates and my family know who I am and that's all I really care about. Making my parents proud and happy.
+- Being out at work in L.A. is the nicest place to be. You don't get depressed because of the sun shining every day. I love it there.
+- I took a break from theater after 'The Cripple of Inishmaan' to make some money, to be honest, and also to feel more confident in front of a camera, and before long it was two years since I'd been acting onstage and I found that I really missed it.
+- You do burn out, going from job to job. You have to be careful of your mental health and your body.
+- Your choices are very important. The only thing you have as actors are your choices: the option to say no to something. You don't want to take on a really bad job and be terrible in something - especially in film, because if you're bad in it, you're bad in it forever.
+- They just love the Irish accent in the States. But I just talk really fast because I'm from Cork. It's my speed that really throws them, especially when I get nervous. Doing interviews there is really hard because you can't hear a word I'm saying!
+- The theatre training is second to none in Ireland and England. You meet people who haven't had theatre training - it is harder for people who worked in TV to go into theatre than the other way around.
+- I've always been very passionate about acting. I appeared in panto in the Everyman from the age of five.
+- You only have one life so love, fall in love, get hurt, live your life to the fullest and don't be scared to throw yourself into being in love.
+- It's very hard being a mother or father and not being able to provide for your family. Your job as a parent is to keep them safe and protect them, and when aspects of that are taken away it puts these people in an awful situation.
+- I wish I was a writer but I'm not. We can just hope that people realise that women actually have incredible stories to tell so tell them.
+- I'm very much about living in the moment and taking each day as it comes.
+- I can't imagine having to it to walk into murder scenes, and then trying to let that go, at the end of the day, and going home to your own family to live a normal life.
+- Actors, by nature, are insecure. I don't see that as necessarily a bad thing. It is good to question yourself, be self-analytical. You get a better performance if you challenge yourself. If you go around thinking you're great, you're never going to challenge or scare yourself.
+- People were buying two, three and four houses to be sold on and rented out. Then the money ran out. To this day you see a lot of what we call ghost estates around Ireland, which have not been finished.
+- I move my face so much, because I'm very much expressive.
+- It was kind of Saoirse Ronan who really paved the way - she's the youngest of us all, but she did. She paved the way and opened doors for all of us. We're all rising on her coat-tails and I'd take any job she doesn't want to do.
+- It's really, really tough being a woman. I think about getting work done all the time. Look at Nicole Kidman - her face is completely done.
+- I move my face so much because I'm very much expressive. I'm told a lot, 'Stop moving your face'. Because on camera, the tiniest movement tells so much, and it looks really hammy.
+- I grew up in musicals actually, and the last show I did in Dublin, 'Alice in Funderland', was a musical, and one that was written around my voice, which was nice.
+- Sarah Phelps is such an incredibly detailed writer. She's famous for bringing literature to life, like Dickens and Agatha Christie.
+- I've got quite a low voice, so it's not your typical musical theater voice, but I do love musicals; they're a very different experience.
+- I've always been a massive fan of Killian Scott and Tom Vaughan-Lawlor anyways, so to get to work with them was absolutely a bonus.
+- Procedurals are interesting to watch, but they're not as interesting to play because there isn't an opportunity to delve into any backstories. You're instead supporting the story week by week.
+- I have a film out called 'Nobel.' Film is something I would love to explore more, even though I love being on the stage.
+- I cleaned my room - I've been living out of suitcases. I live in London; I've been here six years and I still haven't got myself an English phone.
+- I think my biological clock ticking is more worrying for me than getting the right roles.
+- I'm not really scared of getting work. I gave up worrying about that a long time ago because there's no point. I'm very much about living in the moment and taking each day as it comes.
+- I got to a point where I thought, now I have a choice. I can stay in theatre, or I can challenge myself and give this a go. And I want to challenge myself. I like to scare myself.
+- You do doubt yourself and question yourself. You go from massive highs and confidence boosters - when I was in New York I was buzzing around the place - to really doubting yourself and questioning everything about your personality.
+- How many relationships have we been in where its like, are we together, are we boyfriend and girlfriend? What does that even mean? We're too scared to ask the question, we're afraid of the answers. It's a learning curve.
+- Choice is everything. Unfortunately, we do a lot of fluff. There's three boxes - profile, money, heart - and if the project ticks two of those, you do it.

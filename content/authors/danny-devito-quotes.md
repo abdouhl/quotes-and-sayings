@@ -1,0 +1,43 @@
++++
+author = "Danny Devito"
+title = "Danny Devito Quotes"
+quotes_len = "37"
+description = "the best 37 Danny Devito Quotes"
++++
+- I'll tell you one thing, it's a cruel, cruel world.
+- So we see Edward as a young man on the road and he meets a giant and he brings the giant to a circus where he meets a Miss Calloway. He sees the woman of his dreams and I am the only one who knows who she is.
+- Of course I've got lawyers. They are like nuclear weapons, I've got em 'cause everyone else has. But as soon as you use them they screw everything up.
+- There are two dilemmas that rattle the human skull: How do you hang on to someone who won't stay? And how do you get rid of someone who won't go?
+- After you've lived with somebody for 11 years, what's a guy in a robe reading from a book going to change?
+- Wherever I am, it's a really good feeling to have that connection to people. I love to go out to talk to people and be with folks. I don't shy away from it.
+- It's fun to be on the edge. I think you do your best work when you take chances, when you're not safe, when you're not in the middle of the road, at least for me, anyway.
+- I have been very fortunate in my life. I have had a lot of happiness. I have a great family and I work a lot, and that's what I like to do.
+- If you're going to have kids, there's only one way to go. They have to know they're the most important things in your life, and once you're doing that, there's no way that you could not learn from them, because they just give you stuff constantly.
+- You have to give people permission to laugh. That's why they would always cut to the banana peel in the Laurel and Hardy movies.
+- People come into your lives who you have a good time with, and time goes by and you still have a good time with them and you do stupid stuff with them. To me, that's life.
+- I'm shooting in Brooklyn, we've got all kinds of crap going on, and I'm all alone now in a big hotel suite that you can't believe the size of it and a thing sticks in my foot and I just think it's the funniest thing that's ever happened to me.
+- My parents worked their tails off, but we weren't the poorest people in town. Some people I went to school with, you could tell they were dirt poor.
+- I am self-centred. I just adore myself.
+- So, you pick this stuff here and this stuff there and then you see things in certain ways and you start visualizing and thank God I get the chance to do this. It's really the greatest thing in the whole wide world.
+- The son has always felt like he was a footnote in one of the stories the father tells. The father is an amazing storyteller and one of the tales that he tells is how he met his wife.
+- Most men somewhere in their psyche are still dragging women around by their hair. It's terrible. I have two daughters, but even before my kids were born I always thought that it was terrible.
+- I'll watch Ricky Gervais in anything he does. The guy's hilarious.
+- I've been to the Leaning Tower of Pisa. It's a tower, and it's leaning. You look at it, but nothing happens, so then you look for someplace to get a sandwich.
+- I don't know. I think it's funny! I think it's funny! I go, what? It's so absurd. I'm alone.
+- I lay on the ground, but then I can't reach - I don't want to take my foot out of the tub - but I've got to call somebody because I've got to get a band-aid or something to stop the bleeding.
+- I love women. I mean, I'm married, but I used to get in all kinds of trouble.
+- When I'm directing or producing, I like to do different kinds of stories. But you have to know what you really like, and when you do, you have to front your position.
+- What Tim does is, he calls me and sends me the script. And then he sends me a drawing, an illustration of his image of me as the character. It's so great.
+- What you do with it and things like that, but I basically chose this after I read it because I thought it was different and funny and unique and dark - things that I like to do.
+- Jersey is always with me. I was one of the lucky ones. Asbury Park is just the greatest place in the world to spend your childhood.
+- It's just an ice bucket with a bottle in it. The two flute glasses are little tray. I got to shut the curtains. I'm in my boxer shorts and shirt. I'm going to take a bath and go to bed. But I want to shut the blinds so it's really dark in the room.
+- I'm always studying and I've been doing it for a long time now.
+- This big part flies off on the floor. The other part goes like this and lands in my foot! Standing up! It's standing in my foot! Right in the side of my foot. The flute glass. I think I'm like in one of my own pictures.
+- In this movie, you have all the things you love from Tim. All the magic and the whimsy and the surreal, but he also has a fantastic story of a father and son that really gets under your skin.
+- I didn't do it because of the underlying greed that's prevailing, but it is about greed, doing the right thing at the right time using your clout when you have it and what for and what reason.
+- I don't think I've been bored, ever. I've always been working on two or three things at a time; whether it was in the early days, or whatever, I was always working on something.
+- We did 'Erin Brockovich', we did 'Man on the Moon', we did 'Living Out Loud', but now I'm going to keep going.
+- It's a first for me. It's my first nude scene.
+- I don't look ahead. I'm right here with you. It's a good way to be.
+- Well, you know, I feel like it's about a lot of things. The reason that I made it was because I thought it was really funny and unique and just a different genre.
+- I developed that for a long time. I also developed 'Sugar Sweet Science' at New Line and that didn't happen. That was a boxing movie. And between all that there were a couple of other things.

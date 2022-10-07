@@ -1,0 +1,106 @@
++++
+author = "Ekta Kapoor"
+title = "Ekta Kapoor Quotes"
+quotes_len = "100"
+description = "the best 100 Ekta Kapoor Quotes"
++++
+- When I had introduced 'Kandy Floss,' I was a bundle of nerves... I had done a non-fiction programme before - 'Kosmiic Chat' with Sunita Menon. But this one I was really scared of.
+- Though personally I'm not a fan of celebrating with fireworks, it is beautiful to watch the sight from a distance.
+- As a producer or even as a basic seller, you need to be confident about your product.
+- As a producer, I am dying to explore psychology and urban dilemmas - say, fatigue - in a marriage.
+- My creative team filters the scripts before they reach me and a few others. We evaluate them, ponder over the budget, and think of various possibilities to get the viewer excited.
+- I try to lead. I do not follow.
+- I have always wanted to outdo myself, be it films or shows.
+- For me, it's quite scary to go ahead to make my characters say things because, at times, you might actually be influencing a mind - and not one but many of thousands of minds.
+- People are always trying to figure me out, given the varied nature of my films and shows.
+- I could have never had any kind of creative freedom on TV, so then I did movies! Now, I am able to do all kinds of entertainment... and that, I feel, is the biggest blessing!
+- I love 'Koi Aane Ko Hai.' It is my favourite show because I believe in this genre.
+- If you talk to a woman, she will give you at least five incidents in a day, 5-10 in a month, where she had to work harder to prove herself because she is a 'woman,' maybe at a male-dominated work place or when she has to come across as a smarter woman if she is good-looking.
+- I've always had this fear in me. What would life be like if I wasn't Number 1 on television? But I've learnt to overcome that fear.
+- I am bad mannered, naughty, and one of those few people who lands up in controversies, but I guess that's expected of me.
+- When I want something, I go out and get it. That's Ekta Kapoor for you!
+- I've always said time and time again that I hate anything conventional.
+- I love the streets of Kolkata, and I admire the old architectural buildings.
+- Movie promotions - as with all business, it is an important part of any release because of the inherent high financial risk, and sometimes they tend to equal anywhere between half or three times the production budget.
+- I've grown up watching 'Mawaali,' 'Himmatwalla,' and my love for masala movies started from there, and ever since, there's no looking back.
+- I believe in life after death.
+- When you talk about a daily soap, it means one would be seen 28 days a month, which requires 30 days of shooting. So an actor being seen on a show airing four days a week and being telecast thrice a day comes along with a baggage of the character.
+- Everyone believes or perceives me to be a ruthless cynic, but far from it.
+- The CBFC is only mirroring society.
+- To survive in a creative economy, you need basic instinct! You have to know and smell your viewer.
+- It is very difficult for an actor to replace another actor who has already created an image.
+- I don't work that hard.
+- Most of my work is in my mind.
+- I have full confidence that the Sequel Queen is a tag that's going to stick... And I will be loving it!
+- There was a time I'd sing and dance at night clubs, but now I don't do that.
+- When I made TV shows, people called them regressive. Clearly, everyone wants to generalize everything, but I like to choose a middle path.
+- I think success is what you make of it - of course there is always the factor of luck, but one should always be equipped to seize the moment when opportunity knocks.
+- There will always be some films that the audience would like and some that they don't. But if I start becoming a slave to appreciation, I will be subjecting myself and my talent to one particular type of taste. I don't want to do that.
+- I cannot even begin to express how happy my baby's birth has made me.
+- All my shows airing on different channels have been the top shows.
+- I am very reactive and malleable. I have to figure out when to be hands on and hands off. If I am hands on all the time, I can't do too much. But my attitude works in a certain way. So the idea is to spread your personality, your attitude.
+- I don't think 'Jurassic Park' could have been so much fun had Spielberg not made a 'Schindler's List.'
+- Creative instinct is personal.
+- I am a living contradiction.
+- If someone doesn't like something, it's their prerogative not to like it. It's not possible to please everyone. That doesn't mean that I'm going to change my mental make-up. I follow my instinct.
+- People have always wondered if I'm trying to push the envelope when it comes to my cinema - they keep questioning the visual graphics and the controversial content.
+- I'm told Jodha was someone whose eyes conveyed humility, simplicity, courage, and conviction. Paridhi embodies everything I had in mind for Jodha.
+- I really find Jodha-Akbar a fine example of a couple, true or not, that people need to see today.
+- In films, I do programming I can never do in television. I have fun. Both mediums are content-led, but they are so diverse in their psychology that they cannot have a meeting point.
+- My father came from a chawl and became a top star in Bollywood and worked very hard for us. When I look at my dad, I feel very good that my papa did so much.
+- I feel whenever my shows are too hyped, they usually don't work.
+- I cannot stop gushing over the reviews that 'The Dirty Picture' has garnered. I'm glad that people are loving it.
+- I cater to a viewer because that viewer's taste matters more than anyone else's, and I will keep him first in mind and then, if it also appeals to the critics, so be it.
+- I've been able to chart out my professional life. But I can never chart out my personal one.
+- There's no certain type of cinema, but there's a certain type of promise every film comes with. The agenda is to keep an eye on quality and live up to that promise.
+- The reason for certain shows not doing well or as per expectations is that they were not aired on not so popular channels.
+- If I don't like a person, I always speak out.
+- I never said anything bad about Smriti, nor did she speak against me.
+- I'm my dad's biggest fan and, yes, sometimes his worst critic.
+- I would be surprised though if I don't get unbelievable critical acclaim for 'Dirty Picture' and a national award for my actress, Vidya Balan. The movie has one of the most well-written scripts I have come across, and a lot of youngsters in my office have looked at it with great admiration.
+- Passion keeps me going. I love my work. The need to come back, no matter what, and my passion towards my work keeps me going.
+- I have realized that the taste of the viewer can constantly change. So you need to sniff out the need for change. Constantly restructuring your own business to cater to changing taste is imperative.
+- You have to show up when your show fails - or it succeeds. When you are enjoying the glory of success, you have to show up and still work hard because it may not last. You have to do your job with the same sincerity when you started and till you can actually do it with passion.
+- Contrary to what everyone thinks, I'm not superstitious - I'm spiritual. And there is a huge difference between the two.
+- Balaji has always had great market presence, be it in film or television - everyone was talking about the titles, about what happened on the sets, even the most bizarre and outrageous things are out there to be judged by audiences who inevitably decide to come to the theatres to watch our film.
+- Very few know that I was a complete wild child.
+- I can't create magic, where all my serials will have the highest ratings.
+- I am not going to become a critical-acclaim-junkie at all.
+- I am an entrepreneur, but not in the conventional sense. I have learnt business as time passed, but I do not have a B-school education.
+- I don't think hype always works. It can get you initial audience, but eventually, it's your story, and the characters need to hold audience's attention.
+- I'm in competition only with myself, and I always want to push the envelope.
+- I am not a person who will mince words.
+- I've never had a problem with criticism. Whether films or television, I've lived with it and emerged stronger.
+- Expect the unexpected from me!
+- TV is very mass, especially now that boxes are shifting to small towns.
+- We have to stop using words like 'that time of the month' or other such variations. Say it: I have my periods. There is nothing to be shy or embarrassed about.
+- I really wish I were a superhero.
+- Television is about identifying with the characters.
+- The people in Kolkata are very different. They don't wish to be super rich but give more importance to education than anything else. They are very innocent at heart, and one can sense a lot of purity in them.
+- My work begins at around 3 P.M. I wake up at around 2 P.M., watch my serial cassettes, jog for 30 minutes, get my make-up done, and plunge into meetings lined up with my directors. By evening, I finish all meetings and go to my office, where I handle any problems that may have arisen there.
+- I don't know if somehow success has made me conservative. With every passing year and with every success, I get more aware of the responsibility on my shoulders.
+- 'Balika' is not my type of show, so I don't watch it.
+- The beauty about history is that it's open to perception.
+- Diwali is chaotic in the Kapoor household, and that's an understatement. I normally throw a huge card party with all my close friends and my close knit group from the industry.
+- I do think responsibility does come with a lot of power, and more than that, it comes with the fact that you can actually change the thinking of those not only in your country but in the countries where your films are watched.
+- If you depict one home and the drama moving around one family, people love it because the characters become identifiable.
+- My holidays are generally impromptu, since a crazy work schedule is bound to eat into a long-planned trip.
+- I'm just a simple television and film producer who started off from her garage and whose only idea was to tell a story.
+- My spirituality and my beliefs are way beyond any superstition - I'm not a conformist - and I do have a scientific outlook towards religion. Our body is made up of different elements, and certain stones help align these elements.
+- I started working at a time when most of my friends were still figuring their lives out.
+- What I want to do with cinema is keep it as universal as possible.
+- I knew I wanted to make good television, create content that's massy, and provide programming that would invite families to come together and witness these 'reel' lives.
+- Even though you might believe you have the best product on the market or the best film in a really long time, not everyone will agree. The film may be the best thing since sliced bread, but you have to have great publicity to back it up.
+- You cannot predict how well a film will do.
+- I believe that change is the essence of life.
+- I am a terrible actor.
+- I honestly believe that if you're not growing, then you are taking the space that somebody else would get if you moved forward.
+- When Balaji decides to release a film, all you will see and hear will be concerning the film - we go all out! Promotions are a big part of our banner - we believe in marketing... in letting audiences know what they are in for.
+- Constantly adapting yourself to changing times is a very integral part of a successful person's personality because change is the only constant, and one should have the ability to change and adapt to change with time.
+- I would describe myself as eclectic: Bohemian in thought and conservative in action - or maybe it's the other way around.
+- I have no issue with the CBFC.
+- I love telling stories, I love entertaining, and I love my job.
+- I remember, as a kid, when any woman/girl came close to my dad to get his autograph, I would throw a complete tantrum - yell shout and sometimes even fight!
+- I'd rather make my own mistakes and pay for them rather than pay for mistakes that are formulistic.
+- I don't want to be sitting and pondering over how many stars my film will get. It's rubbish! I make films that I like - some get really appreciated, and some don't. Till now, luckily, they have done well, but I can't become a slave to that. And I won't - never!
+- Through these years, I have attempted to create magical moments between my characters because, be it television or films, life is about the moments we create while living through it.

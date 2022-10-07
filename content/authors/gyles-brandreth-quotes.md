@@ -1,0 +1,106 @@
++++
+author = "Gyles Brandreth"
+title = "Gyles Brandreth Quotes"
+quotes_len = "100"
+description = "the best 100 Gyles Brandreth Quotes"
++++
+- If you are conscious of the journey you are taking, wherever you are it will help you know where you are going next.
+- Bob Hope said: 'You know you're getting old when the candles cost more than the cake.' And while this quote is generally amusing, it is even more amusing when you know he said that when he was old.
+- I made that great mistake of trying to be funny.
+- I have been an MP and government minister.
+- I'm happy inside my own skin.
+- We did marry in secret and it was several years before we even told our parents that we were married.
+- Once, during one of the jubilee tours, I was in the car immediately behind theirs and I watched Prince Philip telling the Queen a story. He kept her laughing for 20 minutes.
+- Life has not turned out as I hoped it would.
+- Prince Philip had formally 'retired' in the summer of 2017, a couple of months after his 96th birthday, because the Queen encouraged him to do so. She wanted to stop him 'pushing himself all the time'. She had become anxious about him.
+- I don't want to jeopardize my relationship with royalty by saying too much.
+- Whatever you wanted in entertainment, Des O'Connor could provide, so he was in a way the last of his kind.
+- Indeed, the Duke of Edinburgh's disdain for his eldest son was all the more shocking because he made little or no attempt to hide it.
+- People confuse being full of words with being terribly intelligent and informed.
+- I know that the Duke of Edinburgh's rule was, 'Don't talk about yourself, don't give personal interviews.' I know that, and I know he told his children that because he told me.
+- I have been a print journalist.
+- I did once talk non-stop for 12 and a half hours, but it was to raise money for a worthwhile charity. At least, that's my excuse.
+- Private weddings are becoming something of a family tradition. My daughter Saethryd married her husband Jason at Marylebone Register Office in 2005 while my wife and I had a lunch at Pizza Express.
+- Prince Philip is conscious of his place in the heritage of the Royal Family.
+- I've learnt that you've got to accept the audience you've got.
+- And the purpose of small talk is not to be controversial, clever or even interesting. It's simply to fill the silent void with a small gesture of common humanity. It's a spoken smile, a verbal handshake.
+- Prince Philip prides himself on being a realist. He knows he is not going to live for ever.
+- What happened between the sheets on the night of the royal wedding I cannot tell you. I was not there.
+- With a rowdy audience, the trick is not to go louder and try to beat them into submission. It's to go quieter. As they get loud, you get soft. Then they lean in towards you to listen.
+- The biggest and loudest weddings don't always produce the happiest marriages.
+- People find communication in families difficult - games can help with that.
+- Among the upper classes, especially three or four generations ago, men and women had separate bedrooms. That's just the way it was.
+- Not only did I cross-dress at 10, playing Rosalind in 'As You Like It,' I also found myself in a cross-dressed part at 60, when I played Lady Bracknell in 'The Importance of Being Earnest.'
+- The private Prince Philip - the inner man - was infinitely more difficult to reach. He was more sensitive, more thoughtful and more tolerant than you'd expect, but he kept these qualities hidden.
+- It was Napoleon who said if you want to understand a man, look at the world as it was when he was 20. When the Queen and the Duke were in their early 20s, it's around 1940. Their values are the values of Britain in 1940; all that is best of Britain in 1940 is exemplified by the Duke.
+- The Queen is frequently on her own, walking the dogs, riding her horses, playing patience, completing a jigsaw, sorting her photograph albums, watching television, phoning friends, doing the Telegraph crossword. Is she neglected? Is she suffering? Or does she simply understand her man?
+- When I was an MP, I worked at the department where we gave honors to people from the arts world, I was quite keen.
+- I said to my wife, Michele, 'What would you like for Christmas? Anything you want, darling, anything in our means.' She said she would like me to be the weight I was when we married. So I will not gorge myself.
+- The fact that the Meghan and Harry interview was aired while Philip was in hospital did not trouble him. What did worry him was the couple's preoccupation with their own problems and their willingness to talk about them in public.
+- There is an invisible moat around the senior royals.
+- When it comes to personal communication, words are all we've got. It is the simple use of language that makes us human beings.
+- Greyfriars School is like Hogwarts School in the Harry Potter stories and the whole world of magic is the world of J.M.Barrie.
+- When I was 11, at prep school, I was starring in the school play, editing the school magazine and standing as Conservative candidate for the 1959 mock election.
+- 'An Audience With Kenneth Williams.' My wife and I went with him to the recording. He was paid £10,000, the largest fee he had ever received and was so nervous he was shaking. But his performance was matchless. He knew it was the best thing he'd ever done.
+- Prince Philip's principal role since 1952 has been to support the Queen. Alongside that, he has created his own working life as founder, fellow, patron, president, chairman, or member of at least 837 organizations - as well as a Colonel or Colonel-in-Chief, Field Marshal, Admiral, Air Commodore 42 times over.
+- I was in the debating society at school, I was the president of the Oxford Union, and then I became an MP in the Nineties.
+- People are always asking me on to quizzes - they think I know all the answers because I burble on so, but I don't do terribly well.
+- I'm grateful for laughter of any kind, but it can be off-putting if one person is laughing at a different time or in a different way from the rest of the audience.
+- I own a lot of novelty knitwear and I think some of it's quite fun.
+- We're only here once and there are lots of things I want to do.
+- I was lucky enough to know Prince Philip in his prime - the most dynamic man I have ever met. And I was privileged to know him almost to the end.
+- There's nothing so unemployable as a man in his 50s who's no longer on the winning side.
+- Now I'm just loving the world of Oscar Wilde and Arthur Conan Doyle so much. I really wouldn't want to go back into the world of Gordon Brown and Alistair Darling - where would the fun and adventure be in that?
+- Prince Philip is very contrary. He challenges everything.
+- During the summer of 2000, in the run-up to Queen Elizabeth the Queen Mother's 100th birthday, I asked the Duke of Edinburgh if he was hoping to reach 100. 'Good God, no,' he spluttered, 'I can't imagine anything worse. What a ghastly idea.'
+- It's good to stretch your mind.
+- I think the Duke of Edinburgh would have been pleasantly surprised by the reaction to his death.
+- I regularly dream about the Queen. Apparently, millions of people do. I wonder who she dreams about?
+- I know I'm hated. Or rather, that people struggle with dislike for me.
+- What's interesting is I don't think you will find anyone to say anything against Des O'Connor, he was the nicest of people and the ultimate professional and he made it look effortlessly easy.
+- Several people have told me that Queen Elizabeth made slighting comments about Philip within their hearing, and referred to him - not entirely humorously - as 'the Hun.'
+- I'd known the Duke of Edinburgh over a period of 40 years, so I'd long been accustomed to his sense of humor.
+- It's called 'Odd Boy Out' because as I was writing it I realized I was a bit of an oddity as a child.
+- My introduction to the Queen was disconcerting, to say the least. 'This is Gyles Brandreth,' said the Duke of Edinburgh cheerily. 'Apparently, he's writing about you.'
+- If you were doing a Des O'Connor show, you were in safe hands.
+- I've always adored Shakespeare.
+- It is exhausting to be giving one's all in the theatre, my first duty is to my paying public, of course!
+- Contrary to the popular caricature of him, the Duke of Edinburgh was neither judgmental nor unfeeling.
+- I suppose I am instinctively flirtatious. But not exclusively to women. I want to be liked.
+- When I was a boy, I began writing a biography of Shakespeare, and since then I've written a number of biographies of actors and famous people.
+- I heard one woman say to another in the queue at a book signing: 'I shouldn't be buying this. He's a former Tory MP, you know.'
+- I learnt German as well as English, so by the time I was three my parents has already decided I was a gifted child.
+- In fact, when I shake hands with all those wonderful people at the Stratford Literary Festival, they will be shaking hands with the hand that shook the hand of Oscar Wilde.
+- I thought I would be Prime Minister.
+- The buffoon is a product of the woolly jumpers in the 1980s on 'TV:am.' It was a costume and I loved earning money before breakfast, but 9 A. M. came and I then took off the woolly jumpers.
+- Business is not my forte.
+- For more than 40 years now, relentlessly, I have been pursuing brief encounters with the great and the good.
+- I told Prince Philip that, having met them both, I was struck, not by the differences between him and Charles, but by their similarities.
+- A humorous quotation is a little window on the world that gives life a comic twist.
+- When I was an MP, John Prescott barracked me in the House of Commons, shouting: 'Woolly jumper! Woolly jumper!'
+- For centuries in Britain, the small-talk standby has been the weather.
+- If you are getting married it's about the person you are marrying, it's about the relationship. For me it's not about the party.
+- Prince Philip was a funny man who liked to laugh and make others laugh.
+- We loved the line 'I'm a luxury... few can afford.' It still makes me smile. It's a jumper for people with a sense of style and a sense of humor.
+- Being made redundant is a personal tragedy.
+- In many ways, Prince Philip was remarkably good-humored and long-suffering.
+- I am interested in the Oscar Wilde we don't know.
+- A chap can go too far in the pursuit of authenticity.
+- Playing games can contribute to making you happy, perhaps even without therapy.
+- I mean, I am relatively pleased with myself and the world. But I don't assume that I'm liked.
+- When you are standing in a corner at the party, when you've arrived early for the meeting, when the doors have closed but the lift won't start, there's nothing worse than being lost for words.
+- I'm a friend of Walter Cronkite.
+- First and foremost, I am a writer. That's what I have spent my life doing.
+- Prince Philip protected the Queen and made her laugh.
+- They're supposed to cure everything. Want a baby? Have a Brandreth pill. Don't want a baby? Have a Brandreth pill.
+- There are people who have rabbit stew still, it's quite a dish!
+- Was Prince Philip in love when he proposed to Elizabeth? At the time, he was a relatively penniless prince, with a rackety family and no home to call his own.
+- I don't poo-pooh anyone's knighthood or other honors.
+- I wanted to have a house near his grave, and that's exactly what I did get. When I woke up in the morning, I would open my window and look out upon Holy Trinity Church, where Shakespeare's grave is. Not once did it fail to move me.
+- Princess Anne is like her father. From her, you'll never hear a complaint of any kind about her upbringing.
+- If you're the Queen you don't need to say anything and you don't get into trouble. If you're the Duke of Edinburgh you say a lot of things, sometimes too many, and you do get into trouble.
+- I met Ian McKellen queueing for returns and he said, 'Are you wearing your tights under your trousers?' and I said, 'How on earth did you guess that?' and he said, 'Because I'm wearing mine.'
+- Long after Mae West is forgotten, her words will live on.
+- The essence of democracy is that you can kick people out.
+- To me Prince Philip was a hero and a role model - and a friend.
+- Quite out of proportion to the size of the country, British children's writers swept the world in the 20th century. We should celebrate them.

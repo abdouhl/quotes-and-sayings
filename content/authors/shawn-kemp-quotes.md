@@ -1,0 +1,106 @@
++++
+author = "Shawn Kemp"
+title = "Shawn Kemp Quotes"
+quotes_len = "100"
+description = "the best 100 Shawn Kemp Quotes"
++++
+- I'm all for doing positive. I've worked in the community. My wife, she's spending her life basically giving back to the community. That's something that we take pretty seriously, man.
+- I never went to the Sonics and asked for more money. I didn't ask for another dollar.
+- The NBA fits my game.
+- I just hate losing.
+- Anytime you play basketball and your backs are to the wall, you have to come out and play aggressive.
+- I don't know when, or how, but I feel it: Basketball will come back to Seattle.
+- When a person gets to the age of 35 and you go to jail, it either makes you or breaks you. It made me identify what I wanted.
+- When you lose you try to learn from your mistakes and build on them.
+- Every summer, no matter what happens to me in my life, I'm going to work out every day.
+- I'm afraid that if they bring the Sonics back, what kind of team are they going to put on the court? Are they going to put the effort out? If they bring the team back, are they going to really put a good team out there? Or do we just want any team?
+- There is no positive outlook about Shawn Kemp in Seattle. When that name is mentioned, it brings nothing but negativity.
+- Money means a lot of respect. It means a lot of accomplishment and a lot of hard work.
+- I've always thought I could shoot from the outside.
+- You can't be a losing team and get a new arena. That's not fair. That's not fair! That's how I see it.
+- I don't just want to be the best player in the NBA, I want to be the highest paid.
+- I don't always have to dunk the ball.
+- I don't go out looking to make spectacular plays. I just try to come in and be a physical presence inside.
+- Trust me, I have had my days where I don't feel great about myself. You have those days where you kind of get down. But for the most part, I have been able to stay focused and happy and use my time wisely.
+- When I was younger, I was a guy who always wanted to get to the rim and attack the rim and just dunk the basketball.
+- You never let what someone says bring you down. If you do that, you'd be a chump in this world.
+- I guess the all-American presentation of what a player is supposed to stand for is not what I am.
+- I am not a savior.
+- I started jogging, jogging and jogging. I ran this weight off.
+- I came into the league fighting, and it looks like I'm going to go out fighting.
+- When I was younger, I used to dunk and they criticized me for the dunk. They said I couldn't be an All-Star because I dunked too much. So in order to get the respect from the people, I felt like I had to change my game.
+- I will be Shawn Kemp regardless of whether I have money or not. The only thing money does is show who you are.
+- I'm just getting wiser as I get older.
+- It'll be a challenge for me to come in and fit with a team that's already good.
+- You've got to go through times in your life when you're not going to make the greatest decisions. But the thing is, I always say, you grade a person on what they've become after they've made some mistakes. Because it's so easy to make mistakes when you're young.
+- I'm relentlessly aggressive.
+- I never want to be considered a guy who made a lot of money who didn't earn it.
+- You have to challenge yourself and things happen from there.
+- I remember when I was a rookie, there was an article in 'USA Today' that said, 'Larry Bird, he's lost a step.' That night I went out to guard him, he scored, like, 47 on me.
+- I've played eight years and gotten better each season.
+- I've always enjoyed playing in the summer.
+- My love for the game is very, very high.
+- There's no second-place winners in this league.
+- I always found it a great challenge playing against Michael Jordan, to play against Magic Johnson, to play against Larry Bird, to play against all those good players because it's something that you can take away from it.
+- I was known for a lot of dunks, but my first big dunk really came here in New York. I had some others back then, but my first major dunk came against the Knicks and Kenny 'Sky' Walker. So, you know, New York has a lot of meaning to me.
+- In the NBA, you always have to make the right decisions. You should feel free to live a normal life, but you really can't.
+- You don't play eight years and all of a sudden let your game go down just for a trade.
+- It was just one of those things that, you know, you get to the NBA and have success and you just wanna play against the best, you don't wanna play with the best.
+- I always say, 'When things are quiet, you know something is going on.'
+- I'm not U.S.A. Olympic image. I didn't go to college. I came from a different route.
+- I've got some kids out there; it's no secret. I've never been late on payments. I've handled it as best as I possibly can. There's no lawsuits. I try to stay on top of it.
+- I can play full-court or half-court. It doesn't make any difference.
+- You know, I'm not going to be on a losing team. That's just not going to happen.
+- It doesn't matter who's under the basket, I'm going to try to slam or block the shot.
+- I wasn't in the right place at Kentucky, and I don't think I ever would have been comfortable in college.
+- My hopes and dreams are to be in the Hall of Fame one day.
+- When you watch the old NBA, one thing is for sure, you will see more fights, a little more talking, bigger guys, bigger bodies.
+- People are always going to be negative when they mention my name, but I can accept that and that's what makes it easier for me to go on.
+- I've made my share of mistakes, but I've learned.
+- We need the Sonics back.
+- I'm not coming back to play basketball for any financial reasons.
+- I feel I've proved I can rebound, block shots, get steals and pass the ball, too.
+- I've been called so many names and been written off by so many people who just say, 'Whatever happened to this guy?'
+- When things don't go right, people are always trying to protect themselves.
+- I'm no dummy. I have a good sense of the business end of this game.
+- When I walk into a gym full of kids, I could be having the worst day possible, but once you see the kids smile it changes your whole day around.
+- You won't see me doing a lot of talking, but you'll see me doing a lot of playing.
+- I get excited after I dunk. I yell and scream, but it's not yelling and screaming at other players to show them up. It's the way I play. What I do is have fun on the court.
+- I played so many years without having a big contract, to have the big contract and not win and not have the appreciation, it hurt.
+- I love Karl Malone.
+- My thing is to just go out and play.
+- If you have a goal, you have to step forward and try to get it accomplished.
+- Anytime you struggle, people are always going to say something.
+- I've always appreciated basketball. I never tried to disrespect the game.
+- I'm drug-free. I don't drink.
+- A lot of times, the spectacular play the fans see is not always what I tried to do. It just happens.
+- Sometimes I don't realize the things I do on the court.
+- Basically take care of your game, and your game will speak for itself.
+- Most of the time when you're going for a championship, unless you have guys who are willing to sacrifice, you're not going to win it.
+- Making it to the Finals was the hardest work. You have to go out and play the physical and mental game.
+- You don't work your butt off for 90 yards of a 100-yard dash and then just quit.
+- I actually felt bad because I was dunking the ball so much. I led the league in dunks one year, and they told me that was the wrong thing to do.
+- When I got into the NBA, the thing of it was, if you won, you got a new arena. But if you lost, you had to work to get the arena.
+- I would never let myself go back there to play another 82-game season in Seattle. I think the team deserves better and the fans deserve better.
+- My lifestyle is probably not quite what people would expect it to be.
+- The best feeling is when you dunk on a big guy bigger than you, then you can give him that look. It shrinks him down a bit!
+- Spectacular plays just happen. That's just part of the game.
+- People enjoy the game of basketball, so if you're not smiling, the fans are not going to smile. You can't go around mean-mugging everybody at every game.
+- When stuff happens to you, it just makes you tougher, man.
+- I like to try to get around the younger generation to just encourage them. But I've always been afraid of coaching because I was always hard on myself as a player.
+- I see myself as a winner. I'm not one of those guys who say, 'Let's come back next year and maybe give it a better shot.' The shot is now.
+- I just want to get as far away from Indiana as possible.
+- I make sure I stay in full contact with the kids. It is my responsibility to make sure these guys are taken care of and loved. That's what I have to do and will continue to do.
+- My game hasn't changed at all. I don't call it flair or whatever. It's just the way I've always played.
+- I'm not going to sit here and tell anybody I haven't had difficulties in my life, haven't made any bad decisions. But to sit back and consider myself a bad person or not doing something positive, it's so untrue.
+- People, when they sent me to Cleveland, what they expected was for Shawn to go to Cleveland and us to lose, you know what I'm saying? It's not going to happen.
+- I think most young players who take off from the start are usually put in a situation where they are surrounded by good, veteran players.
+- I learned so much from the people in Seattle. They taught me everything from community to business relationships.
+- I've been married 23 years now. Gone from spending all of my time on the road to being a husband and father.
+- I have always been able to handle situations well once they've happened to me.
+- You get a chance to play, you get a little more comfortable out there on the court, and you just try to make the most out of the time you get.
+- If I read an article and believed everything a guy said about me, I'd believe I was the best person in the world or the worst person in the world, so I can't go off what some guy says about me. I only go off what happens to me.
+- I'm not trying to come back and change the perception of what people think about me. They can think what they want to, man.
+- The only thing that motivates me is to become better.
+- Anytime you're playing with a team that's losing, the main guy is going to take a lot of the heat.
+- I won so many years in Seattle and then to go to Cleveland... I had a pretty nice year the first year I got there and then the last two years, we just weren't able to make it to the playoffs.

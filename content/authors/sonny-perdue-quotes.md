@@ -1,0 +1,65 @@
++++
+author = "Sonny Perdue"
+title = "Sonny Perdue Quotes"
+quotes_len = "59"
+description = "the best 59 Sonny Perdue Quotes"
++++
+- The only legacy I seek is the one that any grandparent seeks - that is, to hand off our nation... our fields and our farms to the next generation in better shape than we found it.
+- I haven't run across anyone in Georgia who is not regretful and repentant of man's inhumanity when you talk about owning one another.
+- In the business world, lower profits reflect less demand for your product. But in government the opposite is true - demand for our services increases in hard times.
+- I am a small business owner; I'm in the agri-business. That's about as blind a trust as you can get. We trust in the Lord for rain and many other things.
+- We have to get out of the mindset that, 'If I invest $1 in crop insurance, I want to make sure I get a $1.10 or plus out of that.'
+- But we know that the very God who gave us life, gave us liberty at the same time. And sometimes we're called upon to defend both life and liberty - God's blessings to Americans, and indeed, to all of His creation.
+- Floods, droughts, and natural disasters are a fact of life for farmers, ranchers, and foresters. They have persevered in the past, and they will adapt in the future - with the assistance of the scientists and experts at USDA.
+- I believe Georgia should aspire to nothing less than greatness. And I believe greatness is within our grasp.
+- Food is a noble thing to trade.
+- I call it people-to-people politics and that's what politics should be about, reaching out and helping one another and touching one another about what we're going to do.
+- It doesn't hurt to be a former governor. It helps in terms of getting your phone calls returned.
+- It is a commitment to our children and grandchildren to preserve a statewide network of land and water resources, prime agricultural and forestry lands, and natural, historic, and recreational areas for them to enjoy.
+- While some of the critics are voicing legitimate concerns about the merits of a system of academic benchmarks, Common Core is frequently a straw man for the frustrations conservatives have with the federal government.
+- It is simply unacceptable for people to sneak into this country illegally on Thursday, obtain a government-issued I.D. on Friday, head for the welfare office on Monday, and cast a vote on Tuesday.
+- We simply believe that everyone who lives in our state needs to abide by our laws.
+- I expect each and every USDA employee to uphold their fellow Americans' First Amendment freedoms.
+- I've helped create and save thousands of American jobs.
+- If I want to call somebody's name out, I want to make sure they've done wrong.
+- I don't think you ought to walk into this country one day, and the first stop you make is the welfare office.
+- You don't try to fix things that aren't broken.
+- The South is a great driving destination for tourism - heritage, cultural and many other types of tourism.
+- I want to say something in a tough-love kind of way about crop insurance. Let's face it: You don't buy insurance on your house hoping it will burn down. Neither do we want to buy crop insurance and hope our crop fails so we can file.
+- It's become a running joke among the public, and liberals have lost all credibility when it comes to climate science because their arguments have become so ridiculous and so obviously disconnected from reality.
+- The fact is that Common Core is no more responsible for a bizarre homework question than global warming is for a rain shower.
+- Yes, I'm your governor now. I'll take care of you.
+- The simple facts are these: We need higher standards in our schools, and we need to hold teachers accountable for the outcomes in their classrooms.
+- Our best teachers do more than impart facts and figures - they inspire and encourage students and instill a true desire to learn. That's a fine art in itself.
+- I want the USDA to look like America, and I want it to be the best, most effectively managed agency in the U.S. That starts with good people.
+- One of my great joys in life is being a pilot. There is a great sense of freedom in soaring through the sky. You get a different perspective up there. Seeing things that aren't so apparent from the ground.
+- We have seen levee breaks and flooding in the wake of storms, some of which have caused the loss of life, and USDA is ready to assist in any way we can.
+- I will absolutely be an advocate and a fighter where necessary.
+- I'm a big fruit-and-vegetable kind of guy.
+- Repentance comes from the heart.
+- The goal of any farmer, after producing enough to feed his own family, has always been to find the best place to sell the year's crop.
+- With global markets ever expanding, we need to make sure that our American farmers, ranchers, foresters, and producers are well positioned to continue to lead the world.
+- Requiring valid, photographic identification is a common sense step to ensure voter integrity and sound elections.
+- I'm not sure about public apologies on behalf of other people as far as the motivation for them.
+- In my eight years as governor, I did everything I could to resist federal control of issues that belong to the states.
+- When you combine the men and women deployed from our military installations with activated reservists and members of the National Guard, Georgia is contributing more personnel to the theatre than any other State in our Union.
+- Agriculture is in my heart.
+- We can love all people while loving the law and expecting the law to be fulfilled, and that's a tricky balance.
+- My philosophy of leadership is to surround myself with good people who have ability, judgment and knowledge, but above all, a passion for service.
+- No American - Christian or otherwise - should have to choose between their careers and their faith.
+- In Georgia, agriculture is one area where Democrats and Republicans consistently reached across the aisle and work together.
+- The Republican Party needs to be very, very careful that it maintains the Golden Rule in its rhetoric regarding immigration policy.
+- The jury is still out on whether humans are causing climate change.
+- Ethanol is here to stay, and we're going to work for new technologies to be more efficient.
+- Our form of government depends on a mutual bond of trust between the people and their government. But people have become cynical about their government.
+- We want a state wise in its contemplation - just in its actions - and moderate in the reach of government into our lives.
+- I'm going to be the unapologetic chief advocate, chief salesman for American agriculture products around the world. You grow 'em, we're going to sell 'em.
+- My first goal as governor is to restore public trust in state government by changing the culture of state government.
+- I think overall, from a deputy, from an undersecretary standpoint, the goal of a good leader is to get diversity across there. Geographical diversity is important. Industry diversity is important: you can't have all corn growers... Not only that, you've got gender diversity, you've got racial diversity.
+- Since I was a boy - born into a farming family in Bonaire, GA - I've had agriculture running through my veins.
+- No, our greatness does not come from our government.
+- I am a conservative Republican from the South.
+- You see, greatness for a state doesn't require some huge monument for all to see. It is not a journey to a particular destination - but a commitment to follow a course of constant and never-ending improvement.
+- I'm not very much of a 'name it and shame it' kind of guy.
+- It's not in the heart of America to see others go hungry.
+- We don't want a busybody government - a boss - that butts into our lives every chance it gets to tell us how to work, how to play, where to live and on and on.

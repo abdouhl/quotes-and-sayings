@@ -1,0 +1,106 @@
++++
+author = "Dimple Kapadia"
+title = "Dimple Kapadia Quotes"
+quotes_len = "100"
+description = "the best 100 Dimple Kapadia Quotes"
++++
+- There was always a conscious effort on my part to do different cinema. It's taken time for the directors to accept me.
+- Life has to be a roller coaster ride. Otherwise, what's the point of living? Why should I make a song and dance about mine?
+- I was lucky that my first movie itself established me as an actress.
+- I have had so many gaps that I have not been consistently working, and the thing is that you get better with more work.
+- We're in a business where we need to look good. That is what people come to see. You have to take care of yourself.
+- I have been a loner... even when I was working, you would hardly see me at any parties - unless once a year, if I have to attend some big function.
+- I believe that life begins at 50.
+- Everyone has problems.
+- I am trying to do films that stay with me for some time. 'Banaras' stays with me.
+- I was never a chiffon and satin person. I am always a cotton person. It's just the way I am.
+- I simply love Malayalam films because they do great cinema, and there is a whole lot of effort that goes into it.
+- Even men used to hide their marriages because they used to feel people will not like them anymore. It's the industry which has the false notion that an actor or an actress, if married, is not desirable to the audience.
+- I would like to do a role that has something to do with mysticism or even a supernatural one.
+- I speak Hindi, Marathi, Gujarati, Punjabi, and English.
+- People call me fussy, but that's a fallacy.
+- I'm not satisfied in the sense I am not looking for any roles, but I do make peace with myself saying that 'I am not the best in the world.' But I have tried to give my best, and I want to get better.
+- I have enough to keep me going, and I love watching 'Bigg Boss.' I totally enjoy that. I don't miss any episode.
+- People feel I look younger than my age. I don't feel that way.
+- It takes me some time to get into what I am doing - since I am not a trained actor, I don't have that skill. I have to think of what I am doing and how it comes through.
+- Akshay Kumar is more than a son to me. What I love about him is that there is never a dull moment with him. He is always up to some nonsense.
+- My candle-making business gives me decent money.
+- There is certainly no formula of making a successful film, but there are means to make a sensible film.
+- As a viewer, I decide when I see the promo of a film whether I want to watch it or not. No amount of marketing can convince me otherwise.
+- I haven't been a prototype mother.
+- I'm a very open person, and I am not ashamed of it being out there. It's part of life.
+- I never thought I would get a National Award. For me, it was huge, and I got complacent.
+- I find it very boring to keep on talking about myself! Which is why I find giving interviews also very boring.
+- People still come to me and compliment me on 'Bobby.'
+- I like a slower pace of life.
+- Where can I earn money if not from my work? We do some films for money and some for creative satisfaction.
+- God has been very kind to me.
+- I know I'm blessed with good looks.
+- There is a future for English films. Don't we all talk, breathe, and think in English? If we can talk and think in English, we can also make films in English.
+- The biggest high for me was to marry Rajesh Khanna. That was a high, and I don't think my success was as much of a high as getting married to this superstar. I used to be a big fan of his; it was dream come true.
+- When a successful man goes to pieces, his frustration engulfs the entire surroundings.
+- If I had to do it all over again, I would still get married at 16.
+- I just love candles... the colour, the glow, the light.
+- I love Priyanka Chopra, Kareena Kapoor, and Tabu.
+- If the audience likes your work, if they like you, they don't think whether you are married or have children or not. I made that quite clear.
+- I like all kinds of music, be it old Hindi movie songs or English classics.
+- I love seeing colours of various hues; they simply fascinate me.
+- I get attracted to different things. I have a different take on everything. I like to do different things. I don't like the regular stuff.
+- I don't mind talking about my professional career, but I hate interviews if I have to answer a stupid question about personal matters.
+- I think all my life's story is condensed in my face. It is neither innocent nor coy. It speaks volumes.
+- I do watch Malayalam films, but please don't ask me which are the ones that I saw.
+- I don't want to push myself and am happy doing one to two films a year.
+- I can do something for 30 days or 50 days. I can program myself, but I can't give my year for a shooting. No, I will die. I can't handle it.
+- Women sometimes get so caught up in life... their marriage takes over their life, their relatives take over their life, and then they forget who they are.
+- We used to take two years to complete a film, and sometimes, we used to be told on the sets that the scenes are still being written. Everything today is pre-planned.
+- It is a pleasure if you pull out all your clothes out of the wardrobe and manage to fit into everything easily.
+- To me, Valentine's Day is not merely limited to a lover but speaks of universal love.
+- Art is a beautiful world to get into. Once you are there, it is very difficult to get out of it. Like, once you start painting, you don't want to leave your brush and colours.
+- I don't like questions that delve into my personal life.
+- For me, filming is always like delivery pains.
+- I have realised that it has become essential to promote your film. God forbid, if a film doesn't run, I shouldn't be blamed for that.
+- My life is full.
+- I was 16 when I got married, and I must say he was not a normal man but a very special man. There are so many things I want to say about him, but one thing which strikes me is that he had a DNA of a superstar.
+- It's always exciting starting a new film.
+- I am very good at comedy off screen. I wish I could translate it so that you could get to see how mad I am.
+- I don't get too much work to begin with, and whatever I get is mostly not good enough.
+- I am a gypsy, basically.
+- I made my film debut in 1973.
+- Direction or even production doesn't fascinate me at all.
+- Hrithik Roshan is excellent - he is miles ahead of everybody in passion and dedication.
+- If there has to be one favourite actor of mine, it has to be Rajesh Khanna.
+- Being a creative person, I'm naturally drawn towards art of any kind. But I'm more attracted to paintings because they radiate an aura of their own.
+- I will continue to give justice to do whatever I want to and like to do.
+- Our family was always together. Whenever Kakaji needed something or wanted to discuss some issue, he would always bring it up with us. Certain things happened that brought us closer.
+- I read a book on candles and got curious. I followed it up by taking a course with famous London-based candle maker David Constable. And now these have become the passion of my life.
+- Actors used to concentrate on acting, but today they are businessmen, too, and think about the numbers game as well. They multi-task very well. It's admirable that they have this ability.
+- I got more than my share in life; a little more wouldn't hurt.
+- I can dress down, but I can't dress up. I'm not a great one for glitter.
+- Hindi cinema hasn't moved at all in terms of roles for actresses beyond 18 years.
+- I really swung between the extremes. From the danger of being ostracised by the society, I almost overnight found myself as virtually the darling of the millions.
+- Every life is special.
+- There is no role that I look forward to.
+- I was never a 'Mills and Boon' kind of a person.
+- I love driving.
+- I became a wife at 15 and was a mother of two at 18.
+- Films cannot change anybody's life. That's a load of crap.
+- I think Ranbir Kapoor, Deepika Padukone, and Ranveer Singh are doing a fabulous job.
+- I travel a lot; I go hunting for antiques.
+- The challenge itself is to exceed certain high standards you've set for yourself.
+- There are bathroom singers, but I am a bathroom painter. In other words, my art will stay inside the four walls of my house.
+- There aren't enough good scripts.
+- I have never struggled, and I have never done anything.
+- I often meet directors who want to cast me as the protagonist, but if the rest of the characters are not strong enough, the film is bound to fall flat on a creative level.
+- Nobody knows the man behind Rajesh Khanna, because that never existed. In his last few days, he had told me, 'Pack up, show is over.'
+- If I am not excited about a project, then how do I expect my audience to watch my film? Give me good roles, and I will be working round the clock.
+- I have done enough, and I am not dissatisfied with the body of work that I have done.
+- I think falling in love with an older woman is not abnormal. It happens a lot in our society, but it's just that it is not accepted with open arms.
+- My journey with Rajesh Khanna was good, thrilling... a roller coaster ride. I feel honoured to have two children with him.
+- Though acting offers would keep coming and going, and I would pick up only the ones that I find good, my hands are literally full with candles... I can't think beyond them.
+- I am a very lazy person.
+- I love playing poker, reading, and painting.
+- I see candles as varied things. They give a warm glow, and fire purifies.
+- 'Being Cyrus' is very young in language or grammar. I am not saying that these things can't be achieved in Hindi. All I am saying is that it would not be the same.
+- People who know me know that I am very clumsy, always fumbling, and I talk rubbish most of the times.
+- I have done fewer films than I should have. No regrets. I wanted to be at home.
+- For me, antiques are a passion.

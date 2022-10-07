@@ -1,0 +1,90 @@
++++
+author = "Yvonne Strahovski"
+title = "Yvonne Strahovski Quotes"
+quotes_len = "84"
+description = "the best 84 Yvonne Strahovski Quotes"
++++
+- I enjoy living in L.A. This is where the work is - or at least generated from - because you fly off and do movies. It's sort of a great way to see the world.
+- Most of the film directors expect their actors to want to work fast.
+- In general, I would say I'm probably a little more conscious of looking after my skin since I moved to L.A.
+- My favorite thing about being an actor is that I get to be so many different people in one lifetime. You sort of get to be all of these different characters.
+- Filming '24' is just like watching '24.'
+- I think humans are fascinating in general. We're so weird. We do so many quirky things, and we don't even know it. There's just so many layers upon layers of nuances in everything we do, and the most fun part as an actor is trying to get into all those nuances, whether they're conscious or unconscious.
+- I'm a crier. I always cry. I cry at the dumbest things, too. This is why I sort of steer clear of movies and films that I know are going to be depressing. I don't care how many awards they've won - I know they're good. I don't need to watch them, because I don't want to be depressed, and I don't want to cry.
+- You definitely cannot please everyone at all.
+- I didn't grow up with a lot of babies in my life because I only grew up with my parents - I didn't have any brothers or sisters - and I didn't have my family close by.
+- I loved school, I loved putting on my uniform and doing homework every day. I was one of those good students that the teachers liked. I guess that's got to be a pretty nerdy, geeky part of me.
+- I'm superconscious of not putting chemicals on my skin, like parabens and sulfates.
+- I think the Aussieness got beaten out of me back in the States.
+- Working on camera, your face is your career. But I'm not really one to buy into the pressures. At the end of the day, the job I do, it's more about the art and craft of it. If you're good at what you do, there's a place for you in the industry, no matter what you or your skin look like.
+- I grew up being scared of the water, which is embarrassing to say as an Australian, but it's true.
+- I was lucky that I got to do films in between seasons of 'Chuck.'
+- We did a lot of high school productions. My first was 'Twelfth Night.' I played Viola. We did 'Much Ado About Nothing' and 'Taming of the Shrew,' and a lot of musicals: 'The Wiz,' 'Bye Bye Birdie,' 'Oliver.'
+- I think a man is a man, and a man has a hairy chest, so let that be!
+- I know that one of the distinguishing things was I looked like I could hold a gun, even though I'd never held one before and I'm physically able to do the martial arts and all that stuff.
+- TV, film, and theater are considered art, and art is a reflection of life. What happens in life includes violence, unfortunately.
+- '24' is such an iconic show.
+- There's always chatter about a 'Chuck' movie. So nobody's opposed to it. It's just a matter of getting everything lined up.
+- I think it's really important that people become aware of the amount, the mass of animals that are sitting in shelters as opposed to people going out and just buying puppies that are being bred.
+- I dreamed big. So it's so great to be living my own dream. I'm working in an industry that I want to work in, and I'm doing something that I love every day. So I feel really lucky to have had so many opportunities.
+- I love watching a good, freaky horror movie. I love it. It's one of my favorite things to do, to go and see at the cinema. Just to tune out and be freaked out.
+- I wanted to honor my heritage and where I came from and keep the name. It was a tough decision to even change the spelling of it phonetically. I wanted to keep it as close to the original as it can be.
+- I love singing. I love singing at home.
+- I'm not a singer. In 'Bye Bye Birdie,' I think I was the sad girl who sits on the park bench during 'Put on a Happy Face.'
+- I don't know if this classifies as a video game, but I have a terrible obsession with Angry Birds.
+- 'The Handmaid's Tale' is a human story, and women's rights are human rights, and it's all about equality, but at the end of the day, it's not equal.
+- I was pretty nervous when I met Robert DeNiro. I kind of felt like a kid in a candy store for the first time. I couldn't wipe the grin off of my face. But Bobby DeNiro was really, really sweet and made me feel very comfortable. He's very low-key and just a superstar professional, and totally someone to be admired.
+- I grew up doing musicals in my childhood at school, along with all the plays I used to be involved in.
+- I can put my legs behind my head. That's a fun fact that not a lot of people know!
+- I've always been a very outdoors sort of girl. I'm more a tomboy than a girly girl.
+- Sarah is very strong. She's really intelligent and she's very physically capable. I like to put that into my own life as well.
+- It's nice to see more of those meaty female characters emerging because so often in the industry, it's always about the males.
+- A lot of my skills came from university. We did everything from stage work to operating the sound boards to marketing shows and more.
+- It would definitely be fun to do a musical one day.
+- I feel lucky that I got to work with some of the big legends in town.
+- I'm a big believer in exercise. I'm a bigger believer in eating right, which is simply with plenty of fruits and vegetables. I'm not a gym girl, though. I've never had a gym membership.
+- We live in a society where nothing is sacred.
+- I feel like with 'Chuck,' because it was a comedy-based show, it was more cartoon-ish. It was just more playful. We had a lot more fun with it. There was a lot of silliness in there. There were serious moments, as well, and there was a lot of heart in that show, but its baseline was comedy.
+- I've tried coconut water straight up before, and to me, it's a little funky.
+- I enjoy a character who sticks to her guns, who's always challenging herself. That's something I can relate to.
+- If someone takes you out, and you're wearing sweatpants and a T-shirt, and they take you to a fancy place and you're unprepared, that's bad.
+- I just love the culture of Melbourne.
+- It's, like, your classic journey from a drama school. I went straight to the three-year acting degree, and I waitressed throughout that to support myself and for the first six months after I graduated. Then I started to get commercials here and there, and then I got a couple of roles in Australia and then a more regular role on a TV series.
+- I remember being at Greenblatt's on Sunset, and some guy just walked straight up to me, and he had some bling on and whatever, and said something about a party down in Malibu and asked if I would jump in his car and go to the party. All I could think was, 'Who are you? I don't know you, and I don't care about how good your car is.'
+- I always had dreams as a kid. I definitely sat at home and watched the Oscars every year and got emotional every year at everyone's speeches.
+- I try to keep my private life private and the acting stuff separate.
+- I was a goody two shoes - a straight-A girl, and I took pride in my studies.
+- It's sad that people will invade someone's privacy - and this is not only regarding someone's private photos - but this goes deep into people's financial privacy, their passwords, their emails, their text messages.
+- I've never been good at meditation, but surfing is the closest I've ever come to that inner something.
+- It's just that I've always been a tomboy, so being thrown into the hot nerd category and the glam thing has been very interesting for me to swallow.
+- I grew up being a dancer, so I was always doing some sort of dance number, like the Tornado in 'The Wiz.'
+- I had an addiction to sugar growing up - major, major, major.
+- I've been very physical my whole life. I went out hiking and camping for days in the Australian forest, and when I trained at drama school for three years, we did a whole lot on stage-fighting techniques. And I was a dancer from 5 to 18, so I have a memory for choreography.
+- Whether it is television or film, the character on the page has to speak to me.
+- Ironically, I'm a really crap liar, even though I do it for a living. I give away too much, somehow. I can't lie!
+- Funnily enough, 'Chuck' prepared me for '24.'
+- I grew up with horrible skin. I had cystic acne ever since I can remember. I ended up finally listening to those people who say you are what you eat.
+- I don't eat sugar. I eat fruit.
+- I'm scared of karaoke. I think if I did have a go to karaoke song, it would be 'Whatta Man' by Salt-n-Pepa.
+- I was in Toronto when the big Women's March was going on, and I thought, 'Well, I've never been to a protest, and I can't sit this one out, and they're having a gathering here in Toronto, so I may as well go,' and gosh, I didn't expect 60,000 or 65,000 people to be there - it was huge! It was something that I didn't feel I could sit out at all.
+- The more gunk I have on my face, the less free I feel.
+- I would love to explore film seeing as I have prominently been on television. It would be nice to change it up and focus on film a little bit.
+- I'm such a boots-jeans-tops-blazer girl.
+- I have a strong dance background. I danced from age five until 18, and that helps a lot. Doing a fight routine is like doing a dance routine.
+- A lot of my friends are in Australia, and it's definitely nice to get back there.
+- Before I started surfing, I don't even know if I would have dived into the water at night alone. It was still scary.
+- I was acting since I was a kid, going to drama classes and being involved in every school play and musical that I could get my hands on, so it was something that was a part of me from a very early age.
+- If I can't do high kicks or dance in it, then I won't wear it.
+- Growing up in Australia, space exploration wasn't something I was too aware of.
+- I guess I am a bit of a traditionalist.
+- One of the books I remember reading when I was young and always thought would be a great role to play is Catherine in 'Wuthering Heights.' I like the classics.
+- I don't remember scenes. I'm like, 'Really, we shot that?'
+- That's one of the things I miss most about Australia - the countryside.
+- I was a tomboy and didn't pay too much attention to my clothes.
+- We don't really see a lot of comedic moments in '24.' In fact, I haven't seen all of it, but from what I have seen, I don't know if I've ever laughed at anything that anyone has done on '24.'
+- It's often the death of the show when you break the tension and the two lead characters get together.
+- I'm pretty gross. When I talk I can be gross and crude.
+- I grew up being absolutely in love with Tom Hanks. I remember, all the kids had Brad Pitt plastered all over their textbooks, and then I had Tom Hanks plastered over mine.
+- Carrie-Anne Moss is awesome. I am just going to put that out there.
+- I landed the female lead role on 'Chuck' within three days of landing in L.A., so it was a little overwhelming, and I definitely felt like I got thrown into the deep end.
+- There's something about trying to figure out why someone is doing something that on the outside is horrible - what drives them to do that? What could drive any human being to that kind of behaviour?

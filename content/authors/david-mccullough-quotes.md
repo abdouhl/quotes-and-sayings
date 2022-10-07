@@ -1,0 +1,35 @@
++++
+author = "David Mccullough"
+title = "David Mccullough Quotes"
+quotes_len = "29"
+description = "the best 29 David Mccullough Quotes"
++++
+- No harm's done to history by making it something someone would want to read.
+- I just thank my father and mother, my lucky stars, that I had the advantage of an education in the humanities.
+- When I read that the British army had landed thirty-two thousand troops - and I had realized, not very long before, that Philadelphia only had thirty thousand people in it - it practically lifted me out of my chair.
+- I had been writing for about twelve years. I knew pretty well how you could find things out, but I had never been trained in an academic way how to go about the research.
+- I'm very aware how many distractions the reader has in life today, how many good reasons there are to put the book down.
+- You can't be a full participant in our democracy if you don't know our history.
+- To me history ought to be a source of pleasure. It isn't just part of our civic responsibility. To me it's an enlargement of the experience of being alive, just the way literature or art or music is.
+- The pull, the attraction of history, is in our human nature. What makes us tick? Why do we do what we do? How much is luck the deciding factor?
+- My next book is also set in the eighteenth century. It's about the Revolution, with the focus on the year 1776. It's about Washington and the army and the war. It's the nadir, the low point of the United States of America.
+- I love Dickens. I love the way he sets a scene.
+- A nation that forgets its past can function no better than an individual with amnesia.
+- I love all sides of the work but that doesn't mean it isn't hard.
+- I work very hard on the writing, writing and rewriting and trying to weed out the lumber.
+- To go back and read Swift and Defoe and Samuel Johnson and Smollett and Pope - all those people we had to read in college English courses - to read them now is to have one of the infinite pleasures in life.
+- Every book is a new journey. I never felt I was an expert on a subject as I embarked on a project.
+- When I began, I thought that the way one should work was to do all the research and then write the book.
+- I'm drawn particularly to stories that evolve out of the character of the protagonist.
+- Real success is finding you lifework in the work that you love.
+- First of all, you can make the argument that there's no such thing as the past. Nobody lived in the past.
+- I would pay to do what I do if I had to.
+- My shorthand answer is that I try to write the kind of book that I would like to read. If I can make it clear and interesting and compelling to me, then I hope maybe it will be for the reader.
+- History is a guide to navigation in perilous times. History is who we are and why we are the way we are.
+- In time I began to understand that it's when you start writing that you really find out what you don't know and need to know.
+- May none but honest and wise men ever rule under this roof.
+- People are so helpful. People will stop what they're doing to show you something, to walk with you through a section of the town, or explain how a suspension bridge really works.
+- With the Truman book, I wrote the entire account of his experiences in World War I before going over to Europe to follow his tracks in the war. When I got there, there was a certain satisfaction in finding I had it right - it does look like that.
+- I can fairly be called an amateur because I do what I do, in the original sense of the word - for love, because I love it. On the other hand, I think that those of us who make our living writing history can also be called true professionals.
+- The title always comes last. What I really work hard on is the beginning. Where do you begin? In what tone do you begin? I almost have to have a scene in my mind.
+- There's an awful temptation to just keep on researching. There comes a point where you just have to stop, and start writing.

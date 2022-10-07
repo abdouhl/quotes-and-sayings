@@ -1,0 +1,112 @@
++++
+author = "Edmund White"
+title = "Edmund White Quotes"
+quotes_len = "106"
+description = "the best 106 Edmund White Quotes"
++++
+- When I was a child, I loved 'The Marble Faun' by Nathaniel Hawthorne. The reason I liked it was because it had a beautiful binding. When you're a kid, you like books because they're pretty to look at, and this one had a white calfskin cover and gold edges. That was enough to make me love it.
+- Everyone seems agreed that writing about sex is perilous, partly because it threatens to swamp highly individualised characters in a generic, featureless activity (much like coffee-cup dialogue, during which everyone sounds the same), and partly because it feels... tacky.
+- My father was a sort of John Wayne Texan who'd worked as a cowboy when he was young. He'd participated in rattlesnake round-ups and swum with copperheads.
+- It always seemed much better to be a writer - a Real Writer - than a successful hack.
+- 'One Hundred Years of Solitude' is a masterpiece because it is an episodic novel that has a rigorous form - an unprecedented combination. From the very beginning we know the town of Macondo will endure only a century, so there is a limit to the length of the narrative.
+- My father was a misanthrope who slept all day and stayed up all night so that he wouldn't have to see people. He ran a business with a large staff but would go there at night and leave things for them to do during the day when he wasn't there.
+- I suppose people hadn't really thought each decade should have its own character and be different from the others till the 1920s, although I remember in a nineteenth-century Russian novel someone remarked that a character was a typical man of the 1830s - progressive and an atheist.
+- Originally I was opposed to gay assimilation and targeted gay marriage as just another effort on the part of gays to resemble their straight neighbours.
+- I used to think that I could be successful if I pretended to be a 23-year-old black woman. I wanted to find a young black woman who would be willing to go in on this with me. I would write her novels, and then she would do the touring. I always thought I was too old and the wrong color.
+- Key West is the place where your sickly house plant back in New York grows to 10 ft. It's also the place where an 8-ft. cactus, the century plant, produces a huge yellow flower every great once in a while, like a robot proffering a bouquet. After the plant flowers, it dies.
+- In the middle of my sophomore year, I was sent to boarding school, at the Cranbrook School for boys, in Bloomfield Hills, Michigan, where I fell in love with Marilyn Monroe. I knew that she was the most beautiful woman in the world, and yet she was in pain, in need. She was unhappy. I believed that I could help her.
+- If I had been straight, I would have been an entirely different person. I would never have turned toward writing with a burning desire to confess, to understand, to justify myself in the eyes of others... I wouldn't have been impelled to live in New York and choose the hard poverty of bohemia over the soft comfort of the business world.
+- I've accompanied several dying people on their travels, and the desert seems to be a favored destination. It is very hot and dry and lyrical in its own way.
+- The great triumph of the Sixties was to dramatize just how arbitrary and constructed the seeming normality of the Fifties had been. We rose up from our maple-wood twin beds and fell onto the great squishy, heated water bed of the Sixties.
+- I asked my body if it was going to die or not from AIDS. And it said 'no.' I sort of paid attention to that.
+- Some writers are so enthralled by ideas (one thinks of Doris Lessing) that their characters become debaters, and their fables approach allegory.
+- In a memoir, your main contract with the reader is to tell the truth, no matter how bizarre.
+- Few writers in history have ever been 'politically correct' (a notion that rapidly changes in any case), and there's no reason to imagine that gay writers will ever suit their readers, especially since that readership is splintered into ghettos within ghettos.
+- I'm an atheist, I always thought, 'This is it.' If there is going to be a heaven, it should be on earth. I feel much happier than most people. I'm fairly stoic about death, but I'm not keen on dying if it's going to be long and protracted. I don't have dark nights of the soul, except occasionally. I'm such a little busy bee.
+- In the 1970s in New York, everyone slept till noon. It was a grungy, dangerous, bankrupt city without normal services most of the time. The garbage piled up and stank during long strikes by the sanitation workers. A major blackout led to days and days of looting. The city seemed either frightening or risible to the rest of the nation.
+- AIDS had won gays sympathy; they no longer seemed the privileged brats that the general populace had resented in the 1970s.
+- I was never an assimilationist. I always thought gays had some special mission.
+- Of course the success of A Boy's Own Story took me utterly off guard.
+- When I was in college, I was always saying I was a socialist.
+- I lived through the Fifties in the Midwest when everything that was happening - the repression of homosexuality, for instance, the demonization of the Left, the giggly, soporific ordinariness of adolescence, the stone-deafness to the social injustice all around us - seemed not only unobjectionable but also nonexistent.
+- Whereas fiction is a continual discovery of what one wants to say, what one feels, what one means, and is, in that sense, a performance art, biography requires different skills - research and organization.
+- There ought to be more grants that go to people in their late twenties and early thirties. That's a crucial age, although it's very hard to judge who is worth supporting and who is not. Looking back on my own life, I see that was the period when I was closest to giving up as a novelist and when I most needed some encouragement.
+- One of the side benefits of staying in the closet is you can have a much bigger career.
+- My mother was terribly invasive, all in the name of psychiatric honesty. It was a bad thing in some ways, but I do think it had the effect of making me interested in 'the truth' as a writer - more than beauty, more than having a shapely story.
+- The one thing that is sort of sneered at and not really believed is bisexuality. Any bisexual man is just seen as a closeted gay man. That shows how narrow-minded people are. The other thing that's totally neglected and which nobody approves of is celibacy. People again assume that you're just repressing something.
+- 'The Sound of Things Falling' may be a page turner, but it's also a deep meditation on fate and death. Even in translation, the superb quality of Vasquez's prose is evident, captured in Anne McLean's idiomatic English version. All the novel's characters are well imagined, original and rounded.
+- In Paris, AIDS was dismissed as an American phobia until French people started dying; then everyone said, 'Well, you have to die some way or another.' If Americans were hysterical and pragmatic, the French were fatalistic: depressed but determined to keep the party going.
+- I changed my writing style deliberately. My first two novels were written in a very self-consciously literary way. After I embraced gay subject matter, which was then new, I didn't want to stand in its way. I wanted to make the style as transparent as possible so I could get on with it and tell the story, which was inherently interesting.
+- The French are pretty thin-skinned. The few times I mentioned a French writer in 'City Boy,' the relatives would ring up in high dudgeon. I once wrote a mocking review of Marguerite Duras in the 'New York Review of Books,' and good friends of mine in France got very angry.
+- I've always seen writing as a way of telling the truth. For me, writing is about truth. I have always tried to be faithful to my own experience.
+- I didn't want to write a biographie romancee especially since I already write novels, nor did I want to challenge the rules of the biography game, arbitrary as those rules might be.
+- Perhaps no other body of literature is as subject to political pressures from within the community as gay fiction.
+- It's true that Paris is made up of equal parts of social conservatism and anarchic experimentation, but foreigners never quite know where to place the moral accent mark.
+- New York has been the subject of thousands of books. Every immigrant group has had its saga as has every epoch and social class.
+- I've always been impelled to say the truth. When I was 14, in 1954, I already wrote a gay novel, though I'd never read one. I felt that life handed me a great subject, gay life, that had scarcely been examined, and I was impelled to record it in all its strange detail.
+- Paris can be like the land of the Lotus-Eaters. You can't leave.
+- I don't have to get married myself in order to campaign on behalf of gay marriage.
+- Sometimes Peggy herself would sell tickets to her museum, and if tourists asked her if Mrs. Guggenheim was still alive, she'd assure them she wasn't.
+- The Internet's impact is immense. My students can't imagine ever paying for a book.
+- I was working for Time-Life Books from 1962 to 1970, as a staff writer, and after that, I was a journalist. Eventually, I became an editor at 'The Saturday Review' and 'Horizon.'
+- I was always ambitious - not to make money: to be published.
+- In the case of my book, I don't think it's really the coming-out gay novel that everyone really needed, even though it was received as such. The boy is too creepy, he betrays his teacher, the only adult man with whom he's enjoyed a sexual experience, etc.
+- I think I'm very stoic. Death and dying are things that I'm used to.
+- Europeans forget that one-third of the American people have had a personal conversation with Jesus Christ and that the born-again are not just little old ladies in black but also CEOs and provosts of universities and candidates for office.
+- America thrives on identity politics, left and right. But France is opposed to the idea. Since the Revolution, the French have enthroned the idea of universalism. All of us must be equal before the law as abstract individuals, and that extends to the arts.
+- In retrospect, we could see that the 1950s had been a reactionary period in America of Eisenhower blandness, of virulent anticommunism, of the 'Feminine Mystique.'
+- When I was young, I despised old people. I was provincial and narrow-minded. It's the reason I stayed stupid so long. If you only get involved with young people you don't learn anything about the world.
+- Nobody in France would ever say 'He's a Jewish novelist' or 'She's a black novelist,' even though people do write about those subjects. It would look absurd to a French person to go into a bookstore and see a 'Gay Studies' section.
+- A straight writer can write a gay novel and not worry about it, and a gay novelist can write about straight people.
+- Fiction is the thing I esteem most in my own work; I feel that, even if it's no good, only I could have written those books.
+- The Stonewall riots were a key moment for gay people. Throughout modern history, gays had thought of themselves as something like a mental illness or maybe a sin or a crime. Gay liberation allowed us to make the leap to being a 'minority group,' which made life much easier.
+- I think I could be a cook. Everybody always says I'm good, though I think it's quite gruelling as a profession.
+- I didn't get anything published until I was thirty-three, and yet I'd written five novels and six or seven plays. The plays, I should point out, were dreadful.
+- Early on, after gay liberation, there was an almost Stalinist pressure from gay critics and even gay readers to write about positive role models. We were never supposed to write negative things about gays, or else we were seen as collaborating with the enemy.
+- I was too prissy, too refined, too abstemious, too French to be a good American writer.
+- There are a lot of historical novelists who do the research about the clothes and maybe even the eating utensils, but they're basically taking modern people and putting them in old drag - it's sort of the 'Gone With the Wind' approach.
+- The culmination of a long struggle was 2013, which could clearly be labeled the Year of the Gay. State after state had legalized gay marriage, despite intense opposition from the religious right.
+- The first version of The Beautiful Room Is Empty was the first mss. I'd ever submitted to New York editors.
+- The natural enmity between leaver and left is like the absolute, immediate and always shifting hostility between driver and pedestrian.
+- In his enigmatic and cunning story 'The Crown of Feathers,' Isaac Bashevis Singer refuses to produce uncontradictory evidence of God's will but rather mixes all signals, jams the evidence, stalls every conclusion.
+- In 'A Boy's Own Story' and 'Jack Holmes and His Friend,' my idea was to take someone totally different from my real self and, at the same time, to assign to him my own life trajectory.
+- Most writers tend to get worse rather than better. I'm determined to be one that gets better.
+- Just like Barack Obama, my views on gay marriage have evolved, and now I am a reluctant groom.
+- 'The Truth About Lorin Jones' will undoubtedly shock and offend as many readers as it will amuse, since it dares to make fun of feminism - of its manners, if not its politics.
+- I think sincerity was my sole aesthetic and realism my experimental technique.
+- When my lover Hubert Sorin was dying of AIDS, he was always trying to fix me up - posthumously, as it were - with the cute busboy at the hotel.
+- I'm not such a fan of imagination. If you're alive to details, they oftentimes suggest a richer or deeper imaginative line than you would have imagined.
+- I can remember in the late 1980s and early 1990s how many men with AIDS I saw everywhere in Key West. There were hospices and medical supply stores geared to people with AIDS. It seemed that every sick man who could afford it had headed for the warmth and the tranquillity and the gay-friendliness of the island.
+- In a novel, I think you have a contract with the reader to make the character representative - of a moment in history, a social class... for instance, I wanted to make the boy in 'A Boy's Own Story' more like other gay men of my generation in their youth and not like me.
+- I always feel I'm better known in England than I am here in the U.S. Americans don't read that much, and the French are very good at knowing the names of everybody.
+- Part of my problem as a young writer was that I was too much a New Yorker, always second-guessing the 'market.' I became so discouraged that I decided to write something that would please me alone - that became my sole criterion. And that was when I wrote 'Forgetting Elena,' the first novel I got published.
+- Since, in the best Southern tradition, I was named Edmund Valentine White III, sometimes when people look up my books on Amazon they find 'Chocolate Drops from the South' by my grandfather.
+- Why did mainstream America come to accept marriage equality? Gay leaders had made a convincing case that gay families were like straight families and should have the same rights. The American spirit of fair play had been invoked.
+- From an early age, I had the idea that writing was truth-telling. It's on the record. Everybody can see it. Maybe it goes back to the sacred origins of literature - the holy book. There's nothing holy about it for me, but it should be serious, and it should be totally transparent.
+- When a woman falls in love with me, I feel guilty. I am convinced that it's pure obstinacy that keeps me from reciprocating her passion. As I explain to her that I'm gay, it sounds, even to me, like a silly excuse; I scarcely believe it myself.
+- These rejections hurt me terribly because I felt it was my life that was being rejected.
+- I never liked my father. He really was a dullard and misanthrope. My mother and he were married for 22, years and it was an ill match. She encouraged me to be a writer. She opened her home to black friends, and this was the 1950s. She didn't care later when I write about her.
+- Women and gay men have something in common after all: in that they are trying to deal with this goofy egotistical monster called a man.
+- As a young teenager I looked desperately for things to read that might excuse me or assure me I wasn't the only one, that might confirm an identity I was unhappily piecing together.
+- First, I was opposed to gay marriage because it seemed like one more way that gays were wanting to assimilate. When I realized the Christian right was so opposed to it, as well as tyrannical governments in Africa and Russia, I thought, 'It must be a good thing to fight for.'
+- There is a whole industry in America of people who want to write, and those who teach it. Even if the students don't end up writing, what's good about them taking the courses is, they become great readers, learning to appreciate the writing.
+- While writing 'City Boy,' I relied mainly on my own memories. In particular, I was able to describe the effect of gay liberation on an individual life (mine) as events paralleled my own growing self-acceptance; in this case, the political truly was the personal.
+- Paradoxically, since gay men rarely have gay parents, cultural transmission must come from friends or strangers (a problem since the generations so seldom mix in gay life).
+- Readers of novels often fall into the bad habit of being overly exacting about the characters' moral flaws. They apply to these fictional beings standards that no one they know in real life could possibly meet.
+- I think that there are empty ecological niches in the literary landscape crying to be filled and when a book more or less fills a niche it's seized on, even when it's a far from perfect fit.
+- When I was living in Paris in the '80s, I used to go out with an American model who couldn't speak French. But suddenly everyone could speak English because he was so cute.
+- Originally, I was against gay marriage because I was opposed to all marriage, being an old-fashioned gay bohemian. The straight people I knew in the sixties were very much opposed to it. I was, too, and it was never a possibility for gays, but when I saw how opposed the Religious Right was to it, I thought it a fight worth fighting.
+- Reading the several thousand pages of Christopher Isherwood's complete journals is an instructive corrective to the prissiness of reading fiction. Isherwood had faults that we'd say were unforgiveable in a novel (he was careful to distance himself from these in his autobiographical fiction).
+- I can think of no other writer who so thoroughly embodies the Jamesian spirit as Alison Lurie. Like him she can excavate all the possibilities of a theme. Like his, her books seem long, unbroken threads, seamless progressions of effects.
+- If you're a beach person or a golfer, Key West is not for you. Most of the sand has been imported, and the water is shallow until you've waded far out, and all the way the sea floor is covered with yucky algae and sea grass.
+- I longed for literary celebrity even as I saw with my own eyes how little happiness it brought.
+- I do probably come down a little hard on a group of people I call the 'blue chip gays.' I mean people who have managed to become very, very famous and are still very famous partly through staying in the closet, like Jasper Johns, Cy Twombly, Susan Sontag, Harold Brodkey and others.
+- Nothing lasts in New York. The life that is lived there, however, is as intense as it gets.
+- Looking back, I can see that the women I loved, at least early on, were status symbols. I suppose, in that sense, I was my mother's true disciple. She'd taught me that a good man, though elusive, could transform one's whole life once he was caught.
+- The talk shows in the States want celebrities, not authors. In France, it is different; writers are called upon to comment on everything. They have a very public role there.
+- If bigots oppose gay marriage so vehemently, it must be because marriage is a defining institution for them; gays will never be fully accepted until they can marry and adopt, like anyone else.
+- If I take a less defensive tone, I'd admit that I couldn't write today a very jazzy, contemporary look at America as I did in 1979 in States of Desire.
+- I've always deplored bad heterosexual values that dictate the minute a marriage is over the former partners no longer speak to each other; only straights could be so cruel and inhuman as to reject totally the person with whom they've shared their life for 20 or 30 years.
+- Biography can be the most middle-class of all forms, the judgment of little people avenging themselves on the great.
+- I hate writing. I almost never write. I write against deadlines. And when I'm teaching, I'm focused on that.
+- Barack Obama's decision to come out in favour of gay marriage may be a historic occasion, but it is not an isolated one. His administration has been making pro-gay noises for some time; his demographic in the upcoming election is young and educated, precisely the group that favours equality for the LGBT community.

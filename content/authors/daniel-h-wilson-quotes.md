@@ -1,0 +1,52 @@
++++
+author = "Daniel H. Wilson"
+title = "Daniel H. Wilson Quotes"
+quotes_len = "46"
+description = "the best 46 Daniel H. Wilson Quotes"
++++
+- You don't want to stand too close to a robot arm; it can turn your head to mush.
+- You write about what you know. It makes everything easier, and also more truthful. In this case, I grew up in Oklahoma, and I grew up in the Cherokee Nation and I'm a member of the Cherokee Tribe. Oddly enough, I know a lot about robots and Oklahoma, and so that's what comes out in my writing.
+- Robots are interesting because they exist as a real technology that you can really study - you can get a degree in robotics - and they also have all this pop-culture real estate that they take up in people's minds.
+- Right now, we have the most complex relationship with technology that we've ever had. Your regular person has more technology in their life now than the whole world had 100 years ago.
+- Over the past 50 years we got versions of X-ray specs and space vacations, and even death rays. But the X-ray specs don't fit on your face - they're big things that screen your luggage for guns. Space vacations are real, but they cost $20 million. We have death rays, but you have to be a triple Ph.D. to play with them.
+- Luckily, unreasonable expectations go hand in hand with naive young scientists. The more naive the better - otherwise we would never have the audacity to try and build a 22,000-mile-high space elevator or some sprawling underwater hotel.
+- Right now, I think robots are where it's at. And yes, I'm biased. Robots and space, because with home rocket kits and Lego Mindstorm sets, people can get involved. I was raised on Transformers and GoBots, so I can't imagine what kids who are building real robots are dreaming about.
+- Zombies, vampires, Frankenstein's monster, robots, Wolfman - all of this stuff was really popular in the '50s. Robots are the only one of those make-believe monsters that have become real. They are really in our lives in a meaningful way. That's pretty fascinating to me.
+- For people who have been raised on text-based interactions, just speaking on the telephone can be high bandwidth to the point of anxiety.
+- Robots should stand up for themselves and not try to be humans. They should either utterly destroy us or protect us from aliens. And vampires. And pirates.
+- These days the technology can solve our problems and then some. Solutions may not only erase physical or mental deficits but leave patients better off than 'able-bodied' folks. The person who has a disability today may have a superability tomorrow.
+- Sometimes a technology is so awe-inspiring that the imagination runs away with it - often far, far away from reality. Robots are like that. A lot of big and ultimately unfulfilled promises were made in robotics early on, based on preliminary successes.
+- I wrote six nonfiction books before getting into narrative fiction with 'Robopocalypse,' including 'How to Survive a Robot Uprising.' My goal all along was to start writing fiction, and I guess one day I'd just had enough.
+- There are an endless number of things to discover about robotics. A lot of it is just too fantastic for people to believe.
+- I'm not saying you have to keep up. But at the moment you choose to stop growing, your world will begin to shrink. You'll be able to communicate with fewer people, especially the young. You will only see reruns. You will not understand how to pay for things. The outside world will become a frightening and unpredictable place.
+- You probably found 'How to Survive a Robot Uprising' in the humor section. Let's just hope that is where it belongs.
+- If popular culture has taught us anything, it is that someday mankind must face and destroy the growing robot menace.
+- I don't know how anybody can work at home. I know I can't. It's just... there's too much to do at the house, and now, of course, I have a daughter that's at home, and she's always a draw. I can always drop what I'm doing and go play with her, and I do that all day.
+- I absolutely believe that a lot of the issues raised in 'Amped' about technology migrating into our bodies are issues that we're really going to deal with soon.
+- In movies and in television the robots are always evil. I guess I am not into the whole brooding cyberpunk dystopia thing.
+- Human reactions to robots varies by culture and changes over time. In the United States we are terrified by killer robots. In Japan people want to snuggle with killer robots.
+- Personally, I'm not afraid of a robot uprising. The benefits far outweigh the threats.
+- The complicated, ambiguous milieu of human contact is being replaced with simple, scalable equations. We maintain thousands more friends than any human being in history, but at the cost of complexity and depth. Every minute spent online is a minute of face-to-face time lost.
+- There are no movie references that I can think of in 'Robopocalypse.' However, there are tons of personal references. For example, the IP address that Lurker tracks actually goes back to the Robotics Institute at Carnegie Mellon University, where I studied robotics.
+- I absolutely don't think a sentient artificial intelligence is going to wage war against the human species.
+- The poster boy for our superabled future is Oscar Pistorius, an increasingly famous South African sprinter who happens to have had both of his legs amputated below the knee. Using upside down question mark-shaped carbon fiber sprinting prosthetics, called Cheetah blades, Mr. Pistorius can challenge the fastest sprinters in the world.
+- 'Robopocalypse' joins a proud tradition of techno-apocalyptic tales, stretching from high-flying Icarus, to Frankenstein's monster, and to many a giant radioactive creature who has crashed the streets of Tokyo. And then, of course, there's the Terminator.
+- As a society, I think we express our cultural mores through our politics. We're trying constantly to figure out what's OK and what's not OK. And it's hard, because our society is constantly buffeted by gale force winds of technology. Things are always changing.
+- The goal for many amputees is no longer to reach a 'natural' level of ability but to exceed it, using whatever cutting-edge technology is available. As this new generation sees it, our tools are evolving faster than the human body, so why obey the limits of mere nature?
+- 'Robopocalypse' explores the intertwined fates of regular people who face a future filled with murderous machines. It follows them as humanity foments the robot uprising, fails to recognize the coming storm, and then is rocked to the core by methodical, crippling attacks.
+- In the end, perhaps it will be the true romantics, not the nerds, who choose to flee from a world of impersonal, digitized relationships and into the arms of simulacrums with manners imported from simpler times.
+- You want to know what a robot's designed for. And if it's doing something outside the scope of what it's made to do, you should be very suspicious.
+- We've been co-evolving with our technology for a hundred thousand years. Human beings and the technology we make were always inseparable. We're finally coming into this moment where it's coming inside our body for the first time in history.
+- A robot-arm in a factory doesn't decide minute by minute whether to rivet or revolt - it just does the job is has literally been trained to do. It's if and when we build a conscious robot that we may have to worry.
+- In my books the technology that I choose to talk about has to serve the themes. What that means is that I end up having to cut out a lot of cool technology that would be really fun to describe and play with, but which would just confuse everybody. So in 'Amped,' I focus on neural implants.
+- As a kid I wanted to write science fiction, and I was never without a book. Later I really got into being a scientist and never thought I'd be writing novels.
+- We humans have a love-hate relationship with our technology. We love each new advance and we hate how fast our world is changing... The robots really embody that love-hate relationship we have with technology.
+- The fear of the never-ending onslaught of gizmos and gadgets is nothing new. The radio, the telephone, Facebook - each of these inventions changed the world. Each of them scared the heck out of an older generation. And each of them was invented by people who were in their 20s.
+- In the future, when Microsoft leaves a security-flaw in their code it won't mean that somebody hacks your computer. It will mean that somebody takes control of your servant robot and it stands in your bedroom doorway sharpening a knife and watching you sleep.
+- I was writing a scene where a guy was choking another guy to death. You can go online and type 'chokeholds' and watch scenes where martial artists choke each other out. You can hear what noises they make when they go unconscious, see how their bodies flop and everything. YouTube is amazing for the more detailed stuff.
+- You can graph human evolution, which is mostly a straight line, but we do get better and change over time, and you can graph technological evolution, which is a line that's going straight up. They are going to intersect each other at some point, and that's happening now.
+- Looking ahead, future generations may learn their social skills from robots in the first place. The cute yellow Keepon robot from Carnegie Mellon University has shown the ability to facilitate social interactions with autistic children. Morphy at the University of Washington happily teaches gestures to children by demonstration.
+- Change creates fear, and technology creates change. Sadly, most people don't behave very well when they are afraid.
+- The dissemination of advanced implantable technology will likely be just as ruthlessly democratic as the ailments it is destined to treat. Meaning that, someday soon, we may have a new class of very smart, very fast people - yesterday's disabled and elderly.
+- Each new generation builds on the work of the previous one, gaining new perspective. New verbs are introduced. We Google strange and dangerous places. We tweet mindlessly to the cosmos. We Facebook our own grandmothers. I, for one, don't want to be left behind.
+- I wrote a query letter to an editor - a friend of a friend. The editor called me an idiot, told me never to contact an editor directly, and then recommended three literary agents he had worked with before. Laurie Fox was one of them, and I've never looked back.

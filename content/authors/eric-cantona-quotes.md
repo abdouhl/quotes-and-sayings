@@ -1,0 +1,92 @@
++++
+author = "Eric Cantona"
+title = "Eric Cantona Quotes"
+quotes_len = "86"
+description = "the best 86 Eric Cantona Quotes"
++++
+- We all have common frailties but we need to treasure friends more.
+- The revolution is really easy to do nowadays.
+- I always knew I had to work hard.
+- I live to feel myself in danger.
+- On sand, you can never be sure of anything. An ordinary shot can take a wicked deflection at the last moment.
+- I'm proud of what I achieved there, but a life built on memories is not much of a life.
+- I am searching for abstract ways of expressing reality, abstract forms that will enlighten my own mystery.
+- You can feel very quickly as a prisoner of your past, of the memories.
+- I like to be fascinated by the people I photograph. Sometimes I don't admire them but I'm interested in them.
+- We all seem to be about aggression and greed. It's a massive pressure that affects us all.
+- Some people need to stay at the top. They are afraid to re-start from zero because they fear the critics.
+- I observe the world and the people surrounding me.
+- When times are difficult, I tell myself, 'I'm just passing through.'
+- I apologize for nothing.
+- I don't care about the past.
+- I have to wear clothes but I don't like to give an idea of what I am with clothes.
+- I try to find different ways of expressing myself. Without that I will die.
+- I like to stay at home and make cinema in my head.
+- For me, I don't like it when there is too much interference in our lives. We're not children. It is our own life in our hands.
+- I don't think we can be entirely happy seeing such misery around us.
+- A home is crucial, the foundation of a stable family.
+- Manchester United is stronger than anybody in the world.
+- Even as a footballer, I was always being creative.
+- Sometimes you get submerged by emotion. I think it's very important to express it - which doesn't necessarily mean hitting someone.
+- If you have only one passion in life - football - and you pursue it to the exclusion of everything else, it becomes very dangerous. When you stop doing this activity it is as though you are dying. The death of that activity is a death in itself.
+- Actually, I wanted to act even when I was still playing football.
+- Children go where they find sincerity and authenticity.
+- I know that I have a face, a look, people aren't used to seeing. A presence.
+- I always wanted to play against the best.
+- Sometimes you surprise the goalkeeper and sometimes the goalkeeper surprises you. In my career, I tried to do more of the first than the second.
+- It is enjoyable to make things visible which are invisible.
+- Being French, to me, is first and foremost being a revolutionary.
+- I don't want to be in Terminator. I don't want to go to Hollywood.
+- Often there are players who have only football as a way of expressing themselves and never develop other interests. And when they no longer play football, they no longer do anything; they no longer exist, or rather they have the sensation of no longer existing.
+- I don't need to be involved with a game watched by millions of people to be fulfilled.
+- I want to look forward.
+- I stopped playing football because I'd done as much as I could. I needed something which was going to excite me as much as football had excited me.
+- Every experience makes you a man.
+- What is the system? It revolves around the banks, the system is built on the power of the banks, so it can be destroyed through the banks.
+- Great businessmen are creators.
+- I didn't study; I live.
+- I think it's better to be involved in one or two movies a year.
+- We knew that you don't get to be world champions without a struggle.
+- I don't want to go to Hollywood.
+- I always planned to retire when I was at the top and at Manchester United I have reached the pinnacle of my career.
+- Some films I say no to and they end up working very well, but I don't care, I just want to do something exciting.
+- I prefer to play and lose rather than win, because I know in advance I'm going to win.
+- I don't know where my medals are.
+- You can lose in cinema too if you don't put on a good performance.
+- It is unacceptable that people often have to make huge sacrifices just to find a place to live, a roof over their heads.
+- I think I have a sense of mischief and that I can laugh at myself.
+- He who has regrets cannot look at himself in the mirror.
+- I'm lucky to have the privilege of being able to choose what I want to do.
+- The pressure people put on themselves and the rivalry between the teams is much more marked. And I think that's a good thing. As long as that rivalry remains within the spirit of competition, it con only spur everyone on.
+- My best moment? I have a lot of good moments but the one I prefer is when I kicked the hooligan.
+- Being on stage isn't so tough compared to the football pitch.
+- When you arrive in England for football it's a paradise.
+- I see the world become so uniform. Everybody has to be the same. I like people who are different.
+- I'm just enjoying my life at the moment.
+- Football lost its excitement for me.
+- The French have only negative things to say about everything and everyone.
+- If someone is too perfect they won't look good. Imperfection is important.
+- In England, your life is your life.
+- Desire is important.
+- My ancestors were fighters, something I have inherited.
+- You need a particular talent only to want to please. I don't have this talent.
+- I manage a team, for beach soccer. I'm the coach. Player, coach.
+- We won the European Championship last September and now the world title. That is some year for French beach soccer! Now comes the hard part. We have to keep improving and that's difficult because it's tough to do better than winning a world title.
+- I found leaving Manchester United very, very hard.
+- Sometimes in life one experiences an emotion which is so strong that it is difficult to think, or to reason.
+- I didn't want really to be involved in a normal soccer club.
+- I think life is a big game we play.
+- My father's parents were from Sardinia and my mother's from Barcelona.
+- In football you have an adversary; in cinema that adversary is yourself.
+- When the seagulls follow the trawler, it is because they think sardines will be thrown into the sea.
+- I started beach football in Monte Carlo when I retired from football in 1997. I liked the game very much.
+- It's my country but I don't want to know about France - I was born there but I feel English.
+- I try to be honest.
+- I'm never bored.
+- I have a car but it's not important.
+- When the seagulls follow the trawler, it's because they think sardines will be thrown into the sea.
+- You retire, but you're still aching to play. But in order to play, you have to resist certain temptations, and train hard. And I just didn't have the desire to do that any more.
+- The real fans of football come from the working class. Now they cannot afford to come and watch the game.
+- I have great memories.
+- I don't take life so seriously... I can just play with life.
+- We can be eaten by techniques and forget what we have inside of us.

@@ -1,0 +1,63 @@
++++
+author = "Dave Rubin"
+title = "Dave Rubin Quotes"
+quotes_len = "57"
+description = "the best 57 Dave Rubin Quotes"
++++
+- The one and only thing that every comic agrees on is that you do not steal jokes.
+- Prohibiting any words not approved of as 'politically correct' - that's not progressive. Putting 'trigger warnings' on books, movies, music, anything that might offend people - that's not progressive, either.
+- My policy with interviewing is I'm not there to teach the people I'm across from a lesson.
+- Obviously, I agree with Trump on many of his criticisms of the mainstream media. You can absolutely argue that their failure to report honestly, to get outraged before we could, and to collude with the Clinton campaign directly led to the rise of Trump.
+- I'm not even proud to say this, but I've never voted for a Republican in my entire life.
+- Even though standup seems like one-way conversation, if you're doing it right, it's actually a two-way discussion between the comic and the audience... the audience just happens to be communicating through laughter.
+- I was closeted into my mid-twenties and even into my late twenties. It screwed up my relationships; it screwed up things with my family that I've since repaired.
+- I'm so in favor of gay marriage that I even married a guy.
+- I think the media has portrayed conservatives as these cold, heartless people who want poor people to die and let half the population starve and all this. They've done that so effectively because they've owned the narrative for so long.
+- Sadly, the Left is no longer liberal at all, for it has traded in individualism for collectivism, thus placing us into an oppression Olympics where victimhood is a virtue. This post-modernism - this cultural Marxism or whatever you want to call it - can only destroy; it cannot create.
+- I spent too many years of my life stressing over and struggling with my sexuality. But it was a valuable lesson. I realised that by not sharing how you feel, you become inhibited in every facet of life.
+- Whatever differences we have, tolerating others' opinions is a prerequisite to a functioning and free society.
+- Seriously, we all need to get over being offended every time someone says something you don't agree with. Guess what? That's life. And I'd rather have that life any day than only hear from people who agree with me.
+- You are born free. I was born free. The government can take your freedom away, but it did not give you your freedom. It was your human right. The key part of that is you are free first.
+- Cable news is force-feeding you an endless back and forth of pundits who consistently get everything wrong, while at the same time, they mask their opinions as facts and argue about the endless minutia of a broken Washington, D.C., instead of arming you with real knowledge and new ideas.
+- Classical liberalism is the idea that individual freedom and limited government are the best way for humans to form a free society.
+- Just by existing as men, we are automatically guilty of everything in some people's minds. And, on top of that, we've created a situation in the media where men are only allowed to talk about politics and sport.
+- I would rather stand for what I believe in than bow down and be loved.
+- It's not about whether we should have a conservative or a liberal. It's about, do we have someone that has the mental acumen to understand what the laws are, and not write laws but defend the laws. That's the whole purpose of three branches of government.
+- What we need more than anything else is an informed populace. I believe people want to be informed.
+- I'm not a huge parade guy myself.
+- I think virtually everyone wants to do good and be good and be decent to each other and pursue something that is valuable to them and meaningful.
+- Instead of silencing speakers on campus, perhaps do what you're supposed to in college instead: listen to someone who thinks differently than you do.
+- I'm a classical liberal. A free thinker.
+- Somehow, defending my liberal values of free speech, liberty, and rights of the individual has become a conservative position.
+- It's not always about winning. If you can, really, just show people - If they're being awful, be less awful.
+- Do you know people on the Right who are tolerant of people who are for gay marriage and are pro-choice? I actually do, plenty of them. When there is a disagreement, I see way more people on the Right... more often willing to agree to disagree rather than to de-friend or to smear.
+- We voted for Obama on rhetoric of 'hope and change.' We voted for him because of some idea that he was beyond politics and certainly beyond partisanship.
+- I don't like Mitt Romney. I wouldn't vote for Mitt Romney in a million years. Mitt Romney is no ally of the gay community.
+- I firmly believe in individual liberty more than anything else. And that you have to live the life you want for yourself.
+- I got into politics when I was 12, back when George H. W. Bush was running against Michael Dukakis. We did a mock election in my social studies class, and I remember how so much of what was thought of as liberal made sense to me.
+- I remember thinking Democrats and liberals were the good guys. They cared about the little guy. They cared about poor people. They cared about minorities.
+- I'm a married gay man, so you might think that I appreciate the government forcing a Christian baker or photographer or florist to act against their religion in order to cater, photograph, or decorate my wedding. But you'd be wrong. A government that can force Christians to violate their conscience can force me to violate mine.
+- I believe the regressive Left - the group of people who use illiberal tactics to silence those defending liberal principles - to be the Left's version of the Tea Party.
+- Sometimes inaction is worse than action.
+- The thing is, Twitter made me - from silly posts about 'Star Wars,' I got fans.
+- I don't do anything in my life as far as I know, or at least consciously, that's based in religion.
+- You can Google me, and I'm pretty sure the first thing that comes up is 'gay,' so that's out there, and I'm proud of that.
+- Those who only tolerate people they agree with or like aren't actually tolerant.
+- I liked Rebecca Black's 'Friday.'
+- You are the one who makes the choices that control your fate.
+- The whole point of real comedy is that you can say something that is true, and by being funny, you can make it tolerable for people, and hopefully they'll laugh at you, too.
+- It really is this: you are either for liberty, you're for freedom, and you're for living how you want to live without infringing and impugning on anyone else's rights, or you want the state to deal with everything.
+- The terms 'progressive' and 'liberal' have virtually nothing to do with each other anymore. And if you are a classical liberal, you certainly aren't a leftist.
+- The regressive Left ranks minority groups in a pecking order to compete in a kind of 'Oppression Olympics.' Gold medal goes to the most offended.
+- People who are for diversity of thought, actually, are okay with hearing some opinions that they don't like. I quite literally see none of that on the Left.
+- As a comedian, frankly, I don't care that much about bad jokes.
+- I think we're innately good. But it doesn't mean we're gonna do good all the time. It means you have to strive.
+- Everyone that we disagree with is a racist and a homophobe and Islamophobe and a bigot. It's just silly. It's lazy thinking, and I think it gets us nowhere.
+- If you took one of these One Direction kids, because they basically are kids, my guess is one of them is gay.
+- The Right, much more than the Left, believes in the notion of live and let live, and that is the true definition of tolerance.
+- One criticism that I hear occassionally is that I am actually not a real liberal, and I am secretly a conservative. Or sometimes they will say I am the only thing worse than a conservative - a dreaded 'right-winger.'
+- The election of Trump threw the chess board up. The pieces are all over the place. That's upsetting to a lot of people, but what I think is there's a lot of fertile ground for good ideas.
+- Speaking out, sharing what you think, and expressing yourself - regardless of sexuality or anything else - is the most important thing you can do as a man, as a human.
+- I think for me, as a gay person, I can convince a lot more people to be for gay marriage by not screaming at them and berating them and embarrassing them and belittling them, but by showing them that we're all exactly the same.
+- Think about your friends on the Left - are they tolerant of people who aren't for gay marriage? Or of people who are pro-life? These used to be just political differences, and now they are a referendum on what type of person you are and whether you can be in someone's life at all.
+- People are going to say mean things to you. They're going to say things that upset you. They're going to lie to you. They're going to lie about you. You'll survive.

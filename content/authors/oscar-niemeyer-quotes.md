@@ -1,0 +1,31 @@
++++
+author = "Oscar Niemeyer"
+title = "Oscar Niemeyer Quotes"
+quotes_len = "25"
+description = "the best 25 Oscar Niemeyer Quotes"
++++
+- Right angles don't attract me. Nor straight, hard and inflexible lines created by man.
+- I search for surprise in my architecture. A work of art should cause the emotion of newness.
+- I enter my studio at 9 a.m. I have lunch here, I return right away to my work and I go out to dinner at 8 p.m. My daily tasks vary very much.
+- Surprise is key in all art.
+- The challenge of a cathedral is very good for architectural inventiveness.
+- When I was very little my mother said I used to draw in the air with my fingers. I needed a pencil. Once I could hold one, I have drawn every day since.
+- I like talking to priests, to Catholics. Everyone has their beliefs.
+- It is not with architecture that one can disseminate any political ideology.
+- I think of myself as no more than 60. What I could do at 60, I can still do now.
+- Of course, I have given my engineers some headaches over the years, but they go with me. I have always wanted my buildings to be as light as possible, to touch the ground gently, to swoop and soar, and to surprise.
+- Architecture is my work, and I've spent my whole life at a drawing board, but life is more important than architecture. What matters is to improve human beings.
+- Form follows beauty.
+- Architecture is invention.
+- There is no reason to design buildings that are more basic and rectilinear, because with concrete you can cover almost any space.
+- The artistic capability of reinforced concrete is so fantastic - that is the way to go.
+- I pick up my pen. It flows. A building appears. There it is. There is nothing more to say.
+- Architecture will always express the technical and social progress of the country in which it is carried out. If we wish to give it the human content that it lacks, we must participate in the political struggle.
+- Sometimes I lose a whole morning waiting on journalists and other people who look for me. But I always find some time for reading, talking to my friends and feeling what is happening in this world.
+- My work is not about 'form follows function,' but 'form follows beauty' or, even better, 'form follows feminine.'
+- Curves are the essence of my work because they are the essence of Brazil, pure and simple.
+- For me beauty is valued more than anything - the beauty that is manifest in a curved line or in an act of creativity.
+- When students leave college, they are like children who know nothing about the problems of life, and don't have a political stance.
+- It was the drawing that led me to architecture, the search for light and astonishing forms.
+- Humanity needs dreams to be able to survive the miseries of daily existence, even if only for an instant.
+- I am a Brazilian before I am an architect. I cannot separate the two.

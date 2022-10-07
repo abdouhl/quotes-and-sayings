@@ -1,0 +1,56 @@
++++
+author = "Dusan Tadic"
+title = "Dusan Tadic Quotes"
+quotes_len = "50"
+description = "the best 50 Dusan Tadic Quotes"
++++
+- I am very happy I grew up in Serbia. You can have tough times, good times, but you learn a lot. I am incredibly proud of where I am from.
+- I like to spend time with my family, to take rest, to go and eat something or to go for a walk.
+- Southampton is the most beautiful city in England, and everything is great.
+- I was never selfish, and I see a lot of things. If I see a person in a better position than me, I will give him my assist. This is also my way of thinking, and I expect that from my team-mate for me.
+- I am happy to give assists. It's my way of thinking and I expect that from my team-mate for me.
+- You want to feel free. Every player can show his best when he is free. If you are a little bit afraid of something, you cannot show your best.
+- Scoring at Old Trafford was a very nice feeling. A great memory and something I won't forget.
+- Normally when we play against Brazil, we will just try to stop them from winning.
+- Although I never think about goals and assists, I believe in my skills and I just want to play good and be important for the team... then everything will be OK.
+- Novi Sad is a really beautiful city, and the club is really nice. It is one of the best youth academies in Serbia.
+- I like to score and create goals. If a team-mate is in a better position, you need to search for him.
+- My hometown, Backa Topola, was in the north of the country near the Hungarian border. It is a nice part of Serbia, and I am very happy I grew up there.
+- I remember, the 1998 World Cup when we were Yugoslavia, I had the sticker albums of all the players, and I still remember that squad and who was playing.
+- We are very passionate and very emotional people in Serbia. Everything we do, it is done with emotions. We are very good at sport, tennis, basketball, football ,water polo, volleyball. We always try to show this character and use it.
+- When you fight for the game, fight to win and then get the goal in the latter minutes, especially at Old Trafford, it's a wonderful, amazing feeling.
+- With Serbia, there will always be pressure. We are the kind of players and people who do not know how to live without pressure. Even if we play against Brazil or some of the other bigger countries, we think we are better than them. That is the way we are. People expect us to beat the big teams, and we have plenty of pressure from within.
+- We have fabulous fans who are with the club 24 hours a day. It is something special to be playing for Southampton.
+- Whether you are fighting for the title or fighting at the bottom, you are always professional and want to win every game.
+- I try to score in every game, and I don't feel sorry for anybody.
+- Sometimes you have tough moments, sometimes good moments, and this is normal in football.
+- Football is like that: you never know when things will change, so you can never give up.
+- When we were young, they always teach you that you can never give up. It doesn't matter what has happened: you cannot give up. Sometimes it is good, sometimes that is not good. But still, you try.
+- It is always a tough game when you play against Arsenal; they have good players, and it doesn't matter what kind of moment they are in.
+- You are under some sort of pressure to win any match. It is natural.
+- When I was in Vojvodina, it is not possible to describe. If you play one bad ball, one little mistake, they are, 'Oh, what is that?' Then, some players, they are afraid to take responsibility. They don't feel well, you know; you don't have freedom to show yourself.
+- When you score, you don't think about what you will do.
+- When I was young, always in Serbia there were some telenovelas on television, Spanish language. Then you listen, listen, listen, you watch one series, and then you can understand.
+- I learnt a lot of things in Holland, as people have great vision there. It improved me as a player and a person. I had very good coaches that wanted to play offensive football and dominate games and be better than their opponent. You also need to play for your team-mates as well as yourself; then, afterwards, you can show your own quality.
+- Everything I heard about Southampton was nice, and I know that they want to play good football.
+- I try to be professional and do my best, and that's it.
+- I am in my best position in the middle of the 4-2-3-1.
+- I did good in the Premier League.
+- It was always my dream to be at Ajax.
+- In Serbia, it is amazing pressure. When we lose a game, it is like somebody dies. It is really horrible.
+- I respect Mark Hughes, and I respect what he has done for me.
+- Serbian people are not soft, and if the coach wants me to play, then I will.
+- When you don't have the ball, you need to be a killer, and you need to be tough. If you do have the ball, you need to feel free and to create things and to play with your head.
+- I am only doing my job, and if I score against Mark Hughes' team, it is nothing personal.
+- I always play football in my team, and I know that if you play too much long ball, then it's difficult.
+- I had beautiful years with Southampton - great club, great people, great supporters - and I'm very proud of my four years.
+- In every club, sometimes players leave. It is not easy, but this is football.
+- My head is always up, and if I see some player in a better position, I give the ball to him automatically. Sometimes I need to be more egotistical and put my head down.
+- My opinion is always that players need to be happy. You cannot keep them in the squad if they are not happy.
+- Southampton have all the advantages to create good players; when you compare it to Serbia, Southampton has the better facilities. They can produce a player who is much more ready.
+- I don't think Curcic is up to the task. I'd like to be more positive, but a coach who has not been in charge of a top team aiming for titles does not have the potential, the authority, or the knowledge to lead a national team to victories.
+- We must lift ourselves for every challenge we face, no matter who you are playing - and that applies especially to the national team.
+- You need to push yourself, and in time, everything will come together at the right time.
+- Every game you play, you try to win.
+- I like to make goals, but sometimes a nice assist is even better than a goal.
+- I like to be important for the team. That's it: to try and help my team Southampton to give fans pleasure to enjoy.

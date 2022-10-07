@@ -1,0 +1,27 @@
++++
+author = "Elvira Nabiullina"
+title = "Elvira Nabiullina Quotes"
+quotes_len = "21"
+description = "the best 21 Elvira Nabiullina Quotes"
++++
+- My view was that government officials could not sit on the board of the central bank, and I am very happy that has been upheld.
+- There's no doubt that decisions made by the leading central banks do affect the global financial markets and, consequently, our situation.
+- I believe that high, sustainable growth rates can only be possible on the basis of macro-stability.
+- We will not allow the use of crypto-currency as a surrogate money.
+- I do not feel that some things are masculine and others are feminine.
+- Cooperation on the international level could help to solve the problem of sources of sharp capital flow volatility and its consequences.
+- As a former economy minister, I can't not think about economic growth. The central bank should also think about this but through its own instruments.
+- A flexible exchange rate is important, and it shouldn't be artificially restrained because of the needs of the economy.
+- The monetary policy instruments which Russia has at its disposal are pretty well developed.
+- The most important thing is not to be dogmatic but flexible and consistent.
+- Of course I welcome all the normalization of monetary policy. I think monetary policy should be normal.
+- The use of crypto-currency as a surrogate for the ruble in trading in goods and services, in our opinion, has a risk of undermining the circulation of money.
+- Inflation in Russia is primarily related to internal factors.
+- What pleases us is that people are realising that punishment is inevitable for those who don't respect the law.
+- In my view, the key aim of economic policy in many countries, and particularly in Russia, should be the sort of policy that stimulates productivity growth because only on the basis of growth of labour productivity can we enjoy healthy growth.
+- I believe that being in a position, as a central bank, to influence economic growth does not mean losing independence.
+- One of the main priorities of Russia's economic policy is to create conditions and form our own financial resources for economic modernisation.
+- There's a lot of pressure and criticism in a crisis, but you can't miss the wood for the trees.
+- I think that many central banks and financial authorities understand that any long term attempt to compete through an artificial depreciation of their currency will not be very effective in the long term.
+- It seems to me that a market exchange rate which is not artificially controlled by central banks enables one to balance the interests of different market players - exporters and importers, investors, borrowers, lenders.
+- In general, global economic growth supports Russian economy.

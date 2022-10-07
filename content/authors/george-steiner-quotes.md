@@ -1,0 +1,31 @@
++++
+author = "George Steiner"
+title = "George Steiner Quotes"
+quotes_len = "25"
+description = "the best 25 George Steiner Quotes"
++++
+- Language can only deal meaningfully with a special, restricted segment of reality. The rest, and it is presumably the much larger part, is silence.
+- Every one of my opponents, every one of my critics, will tell you that I am a generalist spread far too thin in an age when this is not done anymore, when responsible knowledge is specialized knowledge.
+- I find so much writing colourless, small in its means, unwilling to take stylistic risks. Often it goes wrong; I am not the one to judge. Sometimes, I hope, it goes right.
+- My father loved poetry and music. But deep in himself he thought teaching the finest thing a person could do.
+- Words that are saturated with lies or atrocity, do not easily resume life.
+- I'm sorry, I'm absolutely convinced that there is at the moment no realistic prospect for very much hope in human affairs.
+- The most important tribute any human being can pay to a poem or a piece of prose he or she really loves is to learn it by heart. Not by brain, by heart; the expression is vital.
+- It took 10 months for me to learn to tie a lace; I must have howled with rage and frustration. But one day I could tie my laces. That no one can take from you. I profoundly distrust the pedagogy of ease.
+- I have students who are now in chairs in five continents. They invite me to their inaugurals. A tremendous reward.
+- I believe that a work of art, like metaphors in language, can ask the most serious, difficult questions in a way which really makes the readers answer for themselves; that the work of art far more than an essay or a tract involves the reader, challenges him directly and brings him into the argument.
+- The immense majority of human biographies are a gray transit between domestic spasm and oblivion.
+- I have every reason to believe that an individual man or woman fluent in several tongues seduces, possesses, remembers differently according to his or her use of the relevant language.
+- Books are in no hurry. An act of creation is in no hurry; it reads us, it privileges us infinitely. The notion that it is the occasion for our cleverness fills me with baffled bitterness and anger.
+- The age of the book is almost gone.
+- I learned early on that 'rabbi' means teacher, not priest.
+- The journalistic vision sharpens to the point of maximum impact every event, every individual and social configuration; but the honing is uniform.
+- Every language is a world. Without translation, we would inhabit parishes bordering on silence.
+- There is something terribly wrong with a culture inebriated by noise and gregariousness.
+- Given my age, I am pretty near the end, probably, of my career as a writer, a scholar, a teacher. And I wanted to speak of things I will not be able to do.
+- The ordinary man casts a shadow in a way we do not quite understand. The man of genius casts light.
+- Central to everything I am and believe and have written is my astonishment, naive as it seems to people, that you can use human speech both to bless, to love, to build, to forgive and also to torture, to hate, to destroy and to annihilate.
+- We know that a man can read Goethe or Rilke in the evening, that he can play Bach and Schubert, and go to his day's work at Auschwitz in the morning.
+- My writing of fiction comes under a very general heading of those teachers, critics, scholars who like to try their own hand once or twice in their lives.
+- Men are accomplices to that which leaves them indifferent.
+- To many men... the miasma of peace seems more suffocating than the bracing air of war.

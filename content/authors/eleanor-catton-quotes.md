@@ -1,0 +1,78 @@
++++
+author = "Eleanor Catton"
+title = "Eleanor Catton Quotes"
+quotes_len = "72"
+description = "the best 72 Eleanor Catton Quotes"
++++
+- I vote far-left. I am frequently angered by corporate greed and think education ought to be free and teachers paid well.
+- Teaching is a great complement to writing. It's very social and gets you out of your own head. It's also very optimistic. It renews itself every year - it's a renewable resource.
+- My father is an expatriate American; he fell in love with New Zealand in his youth and never went home.
+- I believe really strongly in imitation, actually: I think it's the first place you need to go to if you're going to be able to understand how something works. True mimicry is actually quite difficult.
+- Is the prestige conferred by the Man Booker prize for the book or me? I would prefer it on the book and for me to be treated ordinarily.
+- We throw at female artists this expectation that their work has to speak to the female experience. And if it doesn't, you're letting the side down. Throwing this stumbling block in the way of female artists is counterintuitive.
+- Long historical books get written by women, but not contemporary experiments, which still seems to be a very male-dominated field.
+- I loved 'Middlemarch,' I think that's one of my favourite books of all time, actually.
+- The nice thing about the zodiac as a system is it is quite comprehensive as a range of impulses and psychological states it can speak about.
+- I had never read Victorian novels before going overseas. I read a handful of authors, but I had not immersed myself in the literature of the 19th century.
+- To experience sublime natural beauty is to confront the total inadequacy of language to describe what you see. Words cannot convey the scale of a view that is so stunning it is felt.
+- I see disappointment as something small and aggregate rather than something unified or great. With a little effort, every failure can be turned into something good.
+- Often I listen to songs on repeat for days and days at a time. There's something hypnotic or meditative, and it mirrors the way that I am putting the sentence together, going back over the same phrases again and again.
+- I highlight everything I find interesting, and then type out everything I've highlighted, and then print out everything I've typed, and reread these printed notes as often as possible.
+- What I feel is that true creation happens when you're making something out of nothing - like it's divine, you know. Creation is a completely divine concept.
+- One of the things I really like about Victorian novels is the close anatomisation of character. People's gestures and mannerisms and the quality of their thought is very closely identified and analysed.
+- In improvising, you've got your scale; you've got the notes that are going to sound good with other notes, the intervals that are going to sound good. But you've also got all the chromatic possibilities, the possibilities of sounding dissident, of being unexpected.
+- I'm the rogue Canadian in my family - I just happened to be born here while my parents were studying here.
+- You can tell when a writer moves out of a place of struggle and into a place of comfort, and it's always a bad thing.
+- I've had countless reviews sort that have made me cry. It's funny, it doesn't ever get better either; you can't turn your ears off.
+- Writing is exhilarating, but reading reviews is not. I've been really devastated by 'good' reviews because they misunderstand the project of the book. It can be strangely galvanising to get a 'bad' one.
+- I don't feel like literature has the power to alienate. I think that's something people feel if they don't connect with a work of art. But I don't think a work of art can actively reject the person who's looking at it or reading it.
+- I think it's more optimistic about human nature to acknowledge that people are the products of their time but then to see that they have moments of grace and dignity that everybody has.
+- Margaret Atwood was the author who took me out of children's literature and guided me towards adult literature.
+- I feel very strongly influenced by long-form box-set TV drama... I feel really excited that, at last, the novel has found its on-screen equivalent, because the emotional arcs and changes that you can follow are just so much more like a novel, and so many amazing shows recently have done as much as film can do to show the interior world.
+- The ability of humans to read meaning into patterns is the most defining characteristic we have.
+- Any description of a person that comes from the outside is very hard to deal with. People don't like being summarised. It's nice to receive a compliment, but it makes me feel a bit uncomfortable.
+- There are a lot of people of my generation in New Zealand literature, young writers on their first or second books, that I'm just really excited about. There seems to be a big gap between the generation above and us; it seems to be quite radically different in terms of form and approach.
+- It seems pretentious to assume that we are not creatures of action. I think often it takes a situation of extreme absurdity, extreme action, to push us to the limits of what our character is, and to change us as people.
+- As an artist, you need to be not at all entitled in your relation with the work. So money is kind of worrying. You can start to expect things if you're used to a certain level of comfort.
+- My second novel, 'The Luminaries,' is set in the New Zealand gold rushes of the 1860s, though it's not really a historical novel in the conventional sense. So far, I've been describing it as 'an astrological murder mystery.'
+- The challenge that I set for myself was to see whether or not plot and structure could coexist, and why it was that we had to always privilege one above the other.
+- Money doesn't transform a person - the only thing that can is love.
+- I think that writers of literary fiction would do well to read more books for children.
+- My sense of injustice about our family's 'weirdness' in not owning a car was amplified by the fact that we did not own a television, either - my parents were unapologetic about this and told me very cheerfully that I would thank them for it when I was older, which was quite true.
+- It is less fun to talk about what I am feeling rather than what I am thinking. Saying 'I feel awesome' isn't really interesting or enquiring.
+- I am a New Zealander, but I don't want to swallow New Zealand identity in one gulp.
+- I grew up on the South Island of New Zealand, in a city chosen and beloved by my parents for its proximity to the mountains - Christchurch is two hours distant from the worn saddle of Arthur's Pass, the mountain village that was and is my father's spiritual touchstone, his chapel and cathedral in the wild.
+- I have always loved reading books for children and young adults, particularly when those books are mysteries.
+- Astrology's a moving system that depends on where you're looking at it from on Earth. My horoscope here in London would be completely different to down in New Zealand.
+- I really wanted to write an adventure story, a murder-mystery that was set during the gold-rush years in New Zealand.
+- I can feel the public side of my life and the private side of my life sort of drifting away from one another.
+- I much prefer a plotted novel to a novel that is really conceptual.
+- My parents took me to the Bronte parsonage in England when I was a teenager. I had a fight with my mum, burst into tears, jumped over a stile and ran out into the moors. It felt very authentic: A moor really is an excellent place to have a temper tantrum.
+- My mum was a children's librarian, so I spent a lot of time in the library. My reading life, because of my mum's work, was evenly split between American, Canadian, Australian and British authors.
+- In my experience, and that of a lot of other women writers, all of the questions coming at them from interviewers tend to be about how lucky they are to be where they are - about luck and identity and how the idea struck them.
+- The readership of Victorian novels, when they were published, was much less diverse. People were probably white, and had enough money to be literate. Very often, there are phrases in Italian, German and French that are left untranslated.
+- What I wanted to create with 'The Luminaries' is a book that had structural patterns built in that didn't matter, but if you cared about them, you could look into the book and see them.
+- 'The Luminaries' is such a different book to 'The Rehearsal.' There are only a couple of things that link the two books: there's a certain preoccupation with looking at relationships from the outside, being shut out of human intimacy; and then there's patterning.
+- I think the adverb is a much-maligned part of speech. It's always accused of being oppressive, even tyrannical, when in fact it's so supple and sly.
+- I went to a state school in Christchurch, New Zealand, and then straight on to the University of Canterbury. But I worked part-time all the way through high school: first with a paper round, then at a fast-food outlet, a video store and a hardware store.
+- In researching 'The Luminaries,' I did read quite a lot of 20th-century crime. My favourites out of that were James M. Cain, Dassiell Hammett, Raymond Chandler and Graham Greene and Patricia Highsmith.
+- I have written ever since I knew mechanically how to do it.
+- I often feel intellectually frustrated when I'm in a position where I'm not moving forward; when I'm not enquiring about something.
+- A trip to the picture framer's, with a selection of prints, is the most joyous outing I can imagine. I've spent more money on framing than on anything else I own.
+- The way that I see astrology is as a repository of thought and psychology. A system we've created as a culture as way to make things mean things.
+- I'm a Libra. I'm happy to be an air sign, but I do think I have a little too much air in my chart as a whole - some more water would be useful, especially in my personal life, as an emotional counterweight to all that abstraction.
+- I think that you have to keep the reader front and centre if you're going to write something that people are going to love and be entertained by.
+- The zodiac is a system a person can play with and see meaning in.
+- I think that's what fiction writing is actually all about. It's about trying to solve problems in creative ways.
+- When I was writing 'The Luminaries,' I read a lot of crime novels because I wanted to figure out which ones made me go, 'Ah! I didn't know that was coming!'
+- It's very brave going from a position of authority to one where you are an apprentice.
+- An interesting thing about New Zealand, you know, literature is that it really didn't begin in any real sense until the 20th century.
+- From the very beginning, I had an ambition for 'The Luminaries': a direction - but not a real idea.
+- Sometimes I'll read something on Twitter, and I'll just be in the darkest of moods for the rest of the day or the rest of the week sometimes.
+- There was a computer in our garage when I was growing up, and I'd go out there in winter and wrap myself in a blanket and write a story.
+- There are so many ways of posturing that people associate with being a writer. They imagine you wearing a beret and drinking only red wine and being full of yourself, and so, for a long time, the way I felt about writing was too private. I felt it too important and didn't want to be teased about it. So I lied about it.
+- The books that really made an impact on me were not set in New Zealand. Some were New Zealand novels, but the New Zealandness of them was not what carried me or excited me.
+- I would draw a really sharp distinction between creating and producing. I think that they're very different things.
+- I think that, in principle, a workshop is such a beautiful idea - an environment in which writers who are collectively apprenticed to the craft of writing can come together in order to collectively improve.
+- Fiction is supposed to be immersive and supposed to be entertaining and narrative, so structures have to be buried a little bit. If they come foregrounded too much, it stops being fiction and starts being poetry - something more concrete and out of time.
+- I don't see that my age has anything to do with what is between the covers of my book, any more than the fact that I am right-handed. It's a fact of my biography, but it's uninteresting.

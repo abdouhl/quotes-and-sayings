@@ -1,0 +1,13 @@
++++
+author = "Elliott Bisnow"
+title = "Elliott Bisnow Quotes"
+quotes_len = "7"
+description = "the best 7 Elliott Bisnow Quotes"
++++
+- Everyone has an 'I thought Elliott was crazy' story.
+- Entrepreneurship, entrepreneurship, entrepreneurship. It drives everything: Job creation, poverty alleviation, innovation.
+- Believe it or not, the first spark for everything I've done today came down to me meeting one person in college who changed my life. A student named Anthony Adams who lived across the hall from me in our freshman dorm showed me what it meant to be an 'entrepreneur' when I saw him launch his own start-up company.
+- That's what my life has come down to - how can I have fun for me, be with my friends and my family, and how can I help other people.
+- The only currency isn't money. For me, it's about how can you build a good business that's also a social business.
+- I believe the quickest and most sure way to reduce poverty, raise living standards and create jobs around the world is to make economies and governments more open and free, thereby encouraging business and entrepreneurship.
+- There is no greater feeling in business than building a product which impacts people's lives in a profound way. When we look around at the thousands of people who have attended Summit gatherings, it makes us smile to see the new friendships, business partnerships and philanthropic initiatives that each event produces.

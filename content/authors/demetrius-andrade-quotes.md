@@ -1,0 +1,104 @@
++++
+author = "Demetrius Andrade"
+title = "Demetrius Andrade Quotes"
+quotes_len = "98"
+description = "the best 98 Demetrius Andrade Quotes"
++++
+- If Canelo wants to unify the division, he can fight me.
+- I always believed in myself, and I knew if I worked hard, stayed positive and did what I was supposed to, that good things would happen.
+- We can go down the list... I match up with anybody out there.
+- Everybody wants something until they have a chance to really get it.
+- At the end of the day, I just need to keep winning.
+- Lara and I both had success in the amateurs, and we have continued to have successful professional careers.
+- I definitely want to fight Golovkin.
+- I'm going to knock out the Charlo twins.
+- Look at me: The guys I fight, they're in their primes. Canelo is out there fighting guys on their way out.
+- Golovkin went through a period where nobody wanted to fight him. I am that guy now - the man nobody wants to fight.
+- I'm the best out here, I'm pound-for-pound.
+- I may not be fighting the most popular guys like Canelo or GGG. But I am fighting real fighters, tough guys who want to prove that they belong and be world champions.
+- I will not turn down a Canelo fight. I won't sell myself short, but I will not turn down a Canelo fight.
+- When I first started boxing, I said that I'd fight in The Olympics, become world champion, and retire undefeated.
+- I fought Culcay as an amateur in the 2007 world championships, so we have some history together in the ring.
+- Who doesn't want to be undisputed champion of the world?
+- My father has been my coach ever since I was small, so I am always going to look to him first.
+- I didn't look past Sulecki. I just knew I was going to beat him.
+- You put anyone with me, they're getting a run for their money. I'm willing to show and prove it and fight whoever.
+- I'm a good fighter. You can't keep me hidden for too long.
+- I'm a bad man!
+- The boxing world knows I'm the baddest man out there, but not having the right promotion behind me putting me out there has hurt me and that's why I've made the changes, and Matchroom and DAZN know what I can bring and they can move me to the next level.
+- Don't get me wrong, Anthony Joshua is Anthony Joshua, but he's not as skillful and as talented as me, you know? I'm just speaking facts.
+- If I keep to my plan, nobody can beat me.
+- Every fight is going to bring something different out of you.
+- I'm not turning down the opportunity to walk out the ring with four belts.
+- I'm the best out there.
+- I'm kind of tired of chasing people, calling out everybody because I always do that. All I can do right now is be the guy to beat everybody else, so there's no more people that they can go and try to run and make fights and situations happen for them that we're allowing.
+- Not a lot of people want to step up and fight me, so thanks to Fox for that. I appreciate that. He's going to help make me a superstar, so thank you, Alantez Fox.
+- Lara always tells people that he beat me in the amateurs. I lost to him in international competition when I was just 17 years old. In that fight, he ran around as usual. I thought I had really won that fight.
+- We are fighting tough guys to get it on whereas Canelo and GGG have been cherry-picking. They can do that with the profile they have. It's just business. I'm not upset about it because my time will come when I walk in with one belt and walk out with four.
+- Listen, man, everybody has their own journey, obstacles, and some people get built through promotional companies to be a star, but really haven't fought the best guys out there. And then you have guys that really earned their spot and that happens to be me.
+- All I can do is just keep destroying the top 15.
+- My job is to keep winning, getting in the ring with the likes of, of course Canelo, GGG. I'd like to put my skills and talent against these guys.
+- I'm trying to give the fans fights they want to see.
+- If you think I'm a walk in the park, come walk in this park and see how easy it is.
+- Some people know me, some people don't. Who would know Steve Jobs if he walked down the street?
+- I could put a lot of guys down that's top 80 to 100. That's easy - anybody could do that.
+- This is why we're in fighting. It's a business. That's what we're in.
+- If they don't want to do it, that's their loss. If U.S. TV don't want to cover me, I can't beat myself up.
+- Ask anybody who has ever sent over a contract over to my team and they'll tell you that we get back to people with a response very quickly.
+- I don't slack in my punches.
+- I'm just ready to be where I need to be, where I deserve to be, and that's on the top.
+- For Canelo to call me boring, I mean, is he serious with that? I mean, I'm boring but Rocky Fielding is really exciting. Yeah, sure Canelo. Liam Smith was so exciting. Everybody couldn't wait for that.
+- I'm not going to do anything out my way to try to get somebody to watch me because I want to act a buffoon. I want to build a character that I want my kids to look up to. It's OK to be the bad guy when it's time to be the bad guy, but to live and be the bad guy all day, every day? It's like, 'No, come on, man, you're making us look bad.'
+- I played a little football but it was nothing like boxing. One on one. Me vs. you. You win, you win. I lose, I lose. It was for me to build the character inside to be like, how do I get better at this without relying on anybody else?
+- When we spar, we spar right-handers, we spar left-handers. We spar everybody.
+- I am no fool.
+- People might not know much about Akavov, but this is a guy who went overseas and gave Billy Joe Saunders absolute hell. Most people thought that he should have won the fight.
+- All great legends and all Hall of Fame fighters have their storylines.
+- Boxing is like any other sport, like football, basketball, whatever, where there's a strategy you stick to in order to win.
+- You can't just sweep me under the rug like I won't come back stronger and better.
+- I can talk the talk and walk the walk.
+- It's not something I wanted to do, go overseas, but it was something that had to be done.
+- I love being in the gym.
+- Canelo, let's get it on. I've been beating these guys. Where's Canelo? Where's Triple G?
+- Unlike GGG, who just boxed Steve Rolls who was ranked about 81 in the world, I'm fighting real guys.
+- Let's give the fans what they want and deserve to see.
+- Money talks. When you have the financing behind you, you can make deals.
+- I stay in the gym consistently.
+- At the end of the day, there's a line full of people that want to fight Canelo and there's champions that maybe fought better opposition than me, but the reason why is because these people didn't want to fight me.
+- Sulecki is no pushover. He ain't no Steve Rolls, ain't no Rocky Fielding.
+- Everyone says, 'What does Demetrius Andrade bring to the table?' Besides being the best American middleweight, and one of the top three middleweights in the world, everyone knows who I am and they know how good I am.
+- Everybody knows the work that I've put in.
+- That's where my amateur background helps. You step on a scale, you fight whoever they tell you to fight.
+- My job is to win.
+- I don't want to fight the bottom guys.
+- If you want to be the best you have to keep winning.
+- GGG is known for his knockouts. I knock out people, too, but I'm a better boxer than him.
+- There are major fights for me in the middleweight division. Those are the fights I want and I've been very vocal about it.
+- I just work hard and do what I've got to do and let my promoters and matchmakers handle that part. I basically tell them to get the guy that has the best record that wants to fight.
+- Who cares about GGG-Canelo III? Honestly, who cares?
+- I have a family to support.
+- Fighting at Madison Square Garden, where so many great fighters have fought is a true honor, and something I have dreamt about my entire life.
+- I am the best out here.
+- Willie Nelson is a true champion. He pushed me to the limit where I had to figure out what punches to throw. But I put the pieces of the puzzle together and got the knockout, baby.
+- You can't be young forever.
+- If the crowd wants me to go out there and bang out - and that's not something that I do - then they need to go watch somebody else.
+- Akavov moved, he used the ring real well.
+- Sulecki was a tough guy. He wasn't taking no for an answer. He came to fight, though, and I did what I had to do, and that's look pretty. Tall, black, handsome.
+- When I get into the ring I need to show what I can do, not tell you what I'm gonna do.
+- I want all the top guys, all the belts.
+- I put my career and my life on the line every time I step in the ring.
+- I know there's always room for improvement.
+- A belt doesn't identify me.
+- I'm the best in the world.
+- Every day, I can learn.
+- There have been times when people lost and they have come back, but somebody like me, we ain't got time for that.
+- With everything going on with COVID, you don't know what's going to happen.
+- I don't got time to sit and wait for guys like Canelo.
+- I want to make sure that when I step into the boxing ring it's an even playing field because I work extremely hard with the talents I'm blessed with and I want to let the people know there's no enhancements over here.
+- People want to see me fight.
+- I want to keep active.
+- That's all we're looking to do, make great fights, baby. That's it. And may the best man win.
+- Tony Harrison is definitely not Demetrius Andrade. Yes, he's probably a prospect and doing good things but everybody sounds good, everybody's a prospect until you get in there with somebody that knows how to fight.
+- We don't control Canelo or Golden Boy.
+- My name ain't Liam Smith, my name ain't Rocky Fielding, my name ain't Amir Khan, James Kirkland - it's Demetrius Andrade and it ain't no easy walk in the park.
+- If someone wants to come and say hi and respect the work that I've done, I'm happy to meet them.

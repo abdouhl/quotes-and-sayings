@@ -1,0 +1,31 @@
++++
+author = "Stephen Mccauley"
+title = "Stephen Mccauley Quotes"
+quotes_len = "25"
+description = "the best 25 Stephen Mccauley Quotes"
++++
+- I guess I have an aversion to writing about big events and heroic actions. The everyday has always seemed most important to me in writing, probably because I believe people reveal themselves in how they deal with small details.
+- The experience of writing under a pseudonym was tremendously liberating; I could write what I wanted.
+- It's hard to describe the work of the British-born Australian writer Elizabeth Jolley without somewhat misrepresenting it.
+- The book that made me cry hardest was 'Stoner,' by John Williams.
+- My partner and I weed through our bookshelves and throw stuff out regularly.
+- One of my pleasures is observing people's behavior and pointing out the inconsistencies that we all sort of have at the center of our lives.
+- I wrote two novels about a yoga studio in Los Angeles published by Penguin under the pen name Rain Mitchell.
+- Jill Eisenstadt's comic second novel, 'Kiss Out,' is a work of such extravagant wackiness, eccentricity, and exuberance that any attempt to squeeze it into the confines of a simple plot summary seems doomed to failure and is possibly pointless.
+- I think libraries give the feeling that people are there to work. It's a little bit like an artist's colony in the sense that there's some sort of shared experience. There's respect for quiet, more or less, but otherwise, there's activity.
+- I loved Victoria Glendinning's bio of Vita Sackville-West. I also loved Michael Holroyd's immense biography of Lytton Strachey.
+- If you aren't a reader and you have a kid with his face buried in books, it can be a bit threatening. My parents viewed my reading as somewhat effeminate, but also subversive on some level.
+- I have always had someone in my life that I consider my reading mentor because I come from a family where reading was not emphasized or even approved of.
+- It's really fun to write something for kids. You can make it a little bit more extreme and crazy than you would for adults.
+- I'm not a particularly disciplined person in terms of my work habits.
+- It's hard to imagine anyone accusing Lionel Shriver of being a timid writer.
+- Honestly, I'm, like, the least religious person in the world.
+- The only responsible way to write about anything is with honesty.
+- When you're laughing aloud at David Sedaris' every sentence, it's easy to miss the more serious side of what he's up to.
+- When you're sitting in the theater watching your own work be performed, you get to see people's reactions immediately. Unlike with a book, you don't have to wait for responses. That's very satisfying. Unless it's a joke that falls flat.
+- I write in public libraries and sometimes coffee shops. I can't write at home and gave up trying long ago. I need activity around me that I'm forced to block out. It helps me focus.
+- Early on, I got some criticism from other gay writers and queer theorists for being too 'assimilationist,' probably because my characters are outsiders, even in the gay world.
+- I keep trying to write happy endings, but my books always end on more of a bittersweet note of ambiguity.
+- Jill Eisenstadt is a writer of many admirable gifts. Foremost among them are a sharp eye for people, a playful love of language, and, it's probably safe to assume, nearly boundless energy.
+- Ultimately, Cole Porter's music might say more about his life than any biography could. His songs, with their witty lyrics and debonair style, are an advertisement for his personality and his public persona.
+- I wish I could calculate my way to a bigger audience, but I don't think I'm smart enough. Actually, I don't think anyone is smart enough. Most calculations along those lines fail.

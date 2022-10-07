@@ -1,0 +1,98 @@
++++
+author = "Sucheta Dalal"
+title = "Sucheta Dalal Quotes"
+quotes_len = "92"
+description = "the best 92 Sucheta Dalal Quotes"
++++
+- Consumers have to become an appropriately strong and vocal lobby capable of embarrassing the political establishment.
+- The good news is that the credibility of the Net is already a subject of much research and discussion and there is a serious effort to go beyond surfing tools and lists of 'best' and 'useful' sites.
+- India has no shortage of deserving causes or good leaders; there is only short supply of activists and people who are willing to support their causes.
+- We are neither prepared to deal with dubious companies nor have the mechanism for swift investigation. What's more we don't even have a culture, which imposes stringent, debilitating and deterrent punishment on wrong doers.
+- Bloomberg does not cater to the Indian audience. It does display Indian stock indices, and during trading hours has a ticker tape of Indian stocks running across the bottom, but then so do most of the news channels.
+- The existence of glass ceilings in the corporate sector has been extensively researched and documented and there is no need to reiterate the fact. Women are also, usually paid less then men for the same jobs and are grossly under-represented at the top of the corporate pyramid.
+- Motherhood, pester power and emotional blackmail - Indian marketers have cottoned on to the fact that these three themes can sell just about anything - from food and toys, to insurance products, tonics, televisions and air-conditioners.
+- India has a high level of corruption, a lethargic bureaucracy and is low on accountability. Investigations are long drawn and often aimless; those in power are rarely sacked for incompetence unless the media sets up a serious clamour for justice.
+- Security concerns are especially high with regard to the e-filing of Income Tax returns that is rapidly being extended from commercial entities to individuals. Leading IT security experts and tax consultants are unhappy at the lack of security in e-filing of Income Tax returns.
+- Anyone born after 1985 has grown up during the post-liberalisation honeymoon, when a rash of new banks, phone companies, airlines, care and durable goods manufacturers were wooing them or their parents for business.
+- Indias rapid economic growth has mainly been due to the dismantling of government controls. An attempt to reintroduce monopolistic pricing must be strongly opposed.
+- India is a little different from the developed world because discipline of any kind is alien to us. Along with the right to spit in public, we will resist all attempts to discipline our driving. As pedestrians, we will cross any road at will, and as cops, we will view traffic offences as business opportunities.
+- Logically, it may be argued that banks could indeed lower interest rates and make up their profits through larger borrowing volumes. But banks, in turn, could justify exorbitant rates by arguing that they cater to a riskier segment.
+- We do not have to sit back and suffer the consequences of corrupt government deals and inefficiency, but unless a large number of people are convinced of this, nothing will change.
+- Economic liberalisation has seen a big and often well-deserved spurt in executive compensation, especially for professional managers.
+- By creating a minority quota in lending the government is clearly playing politics and wants to fatten its vote banks, whether or not it makes commercial sense.
+- There is nothing as nervous as a highly overbought and slightly crazy stock market dominated by greedy small investors and day traders all out to squeeze a huge profit out of the present bull run.
+- There is little incentive even for the media to encourage whistle-blowing or ruffling powerful feathers. They lose advertising, are harassed by government and cut off from the all-important 'A' lists of the rich and the powerful.
+- Industrialists have begun to realise that they would probably be better at influencing policy themselves, rather than depend on some political stooge or corrupt bureaucrat.
+- A columnist is not a doctor, who diagnoses the disease and dispenses instant medicine. My job is to highlight problems, investigate issues, to provide factual information, and if necessary, goad the people into action - that too is not easy in the current political and business environment.
+- The sales tax, excise and property registration departments are all more eager to collect cash in their drawers than to collect for the government's coffers.
+- Journalism itself is by no means pristine clean; it has as many corrupt elements as other sections of society.
+- India is no stranger to crises - wars, hijackings, plane crashes - we have seen them all.
+- Some argue that even physical databases were open to abuse and fake passports or driving licenses were fairly common. But technology, coupled with poor security systems, can ruin innocent victims lives by wiping out their bank balances or investments, or by misusing their identity for dubious deals.
+- Although television and newspapers have played the biggest role in hyping up the World Cup, they are at the lowest end of the megabuck chain.
+- Technology is changing so fast that investment in hardware is getting riskier everyday. On the other hand, whether it is traditional computers or smart gadgets which are part of the convergence technologies of the future, some planning of hardware needs is still important.
+- Look around you and you see plenty of prosperous businessmen splurging money like there was no tomorrow but paying no taxes.
+- The truth is that very few newspapers in the country are willing to do a fair and impartial investigation into the shenanigans of industrialists, politicians or government.
+- The message for the smart investor is to watch out. Do not get carried away with news reports and turn smart by pooling information with like-minded investors.
+- The ambitious women usually work twice as hard to make up the handicap of being usually left out of the chummy male bonding that takes place over liquor.
+- While readers know that advertisements keep the product cost low, they still buy a newspaper for its editorial content and not for its advertisements.
+- Nobody wants to go back to the bad old days when some bureaucrat in Delhi decided what managing directors would earn, but how about more transparency in reporting pay and perks from multiple sources and giving teeth to institutional investors.
+- From toothpastes to crayons, instant noodles, chocolates and energy drinks, corporate India is now promoting these in schoolrooms.
+- Every one of us encounters, tolerates and often participates in the most blatant corruption in every aspect of our everyday existence - licenses, permissions, gas connections, until recently the black market in buying telephones and scooters, traffic violations... even violence and murder be it wife-beating, bride burning or bonded labour.
+- For Indias 40 million taxpayers, the bulk of whom are salaried employees, forking out hefty service tax is a double whammy the government taxes them on income earned as well as all their expenditure.
+- As a parent, would you not endorse a decision by your child's school, which encourages her to read a newspaper everyday? In fact, you would be even more approving if the prescribed newspaper was a leading national daily.
+- I am not knocking the Net as a research tool. It is the best, and obviously, life has never been better for students.
+- A variety of list builders, universities and non-governmental orgainsations are focussing attention on the accuracy and reliability of information on Web sites.
+- In an ideal world, judges are not supposed to read or be influenced by media reports. But it is difficult to ignore television news which does not distinguish between reportage and comment.
+- When dozens of company results are flooding newspaper offices everyday, an occasional fraudster slips in what looks like an authentic press release, with fake company results/information aimed at manipulating share prices.
+- An ordinary person who wants to invest in the stock market or a mutual fund, or simply open a saving bank account, is bombarded by ever increasing compliance regulations under the pretext of automation, efficiency, better governance or prevention of money laundering.
+- Mumbai is on a seismically sensitive zone; it is also dangerously exposed to the sea.
+- Netizens and site operators must find ways to police themselves in order to keep government interference to a minimum.
+- The Bombay-Pune Expressway, a spanking, modern, six-lane highway will, when completed, be India's first truly international road constructed on the lines of the autobahn or the turnpike.
+- Advertisers with their bag of goodies and promotions have entered classrooms and begun to put up billboards and posters inside schools. They persuade cash-starved schools into opening their doors to them by paying for access to classrooms and space for their advertising material and promotions.
+- Being an office bearer of a housing society is a thankless job that everyone wants to shirk.
+- The truth is that development of public transport facilities needs government funding or cheap loans.
+- A broker who discovers an undervalued stock does not advertise it until he has bought a large enough quantity without letting the price go up. When the brokers' connection with a stock becomes public knowledge, it is usually a sure sign of manipulation and that the broker is seeking to drive up the price.
+- People have so little faith in their elected representatives that they expect the media to push government into action. Yet, for all the hysteria that we hacks may whip up, it has little long-term impact.
+- Large and profitable newspapers have the ability to drop the cover price of their publications to increase circulation - this, in turn, attracts the advertising bucks and makes them more powerful.
+- Driving to work is a nightmare in most Indian cities; people do it because they have little choice.
+- It is true that Indian Airlines often behaves exactly like the government does. It is stingy with information, designates junior officials to deal with the serious task of communicating with the relatives and the people, and is often simply insensitive.
+- While the middle class is bled dry to meet various the expenditure of a bloated government machinery, every revenue collection agency is busy extorting money instead of ensuring compliance.
+- There is no doubt at all that the government monopoly over the insurance business had to end. There is a crying need for better service, more innovation, and a comprehensive insurance cover.
+- Apart from World Cup merchandising, television companies and game-specific advertising, you see restaurants and bars working overtime to drag people into their eateries with the lure of large projection screens and special World Cup menus.
+- Globally, the toll-free numbers advertised by companies promise more than they deliver. And even websites are at pains to ensure that customers cannot get through to individuals, so there are no names, phone numbers or direct e-mail IDs to people in charge.
+- Even in downtown office areas, people would probably beg for a shuttle bus service to ferry them swiftly to the railway stations and bus stations, instead of forcing them to travel squashed up in shared-taxis.
+- Indian companies have begun to pay lip service to the concept of intellectual capital but a miniscule of them, that too non-family run businesses, understand what that means.
+- I do know that lifting from the Net is rampant, journalists do it, students are bound to do it and obviously a lot of academics are also doing it.
+- Companies know that children have disproportionate influence over their parents' purse strings.
+- Methinks, that a broker, however good and savvy, will only speak about the stock that interest him after he has bought enough of shares already and is now in the process of booking profits.
+- Few Indians realise that the shift towards a market economy requires us to be alert and to fight for our rights and very few of us are willing to spare the time or money for such battles.
+- Mobile users happily suffer bad connections, dropped calls, inaccessible networks and pay higher charges for services that would have caused endless annoyance on a fixed line.
+- The fact that technology makes it so easy to misuse personal information and encroach on a persons privacy has triggered a debate over whether Indias privacy laws are adequate to protect people.
+- For some reason most Indians seem to think that it is the job of the media to fight corruption and their own role is restricted to sighing over their newspaper, or debates on the local train as they commute to work.
+- At the end of the day, you have to admit that it's just not cricket anymore; it is a multi-billion-dollar entertainment industry, that has to be viewed in a correct and sober perspective.
+- It is an open secret that customs officers pay millions in bribes to secure the lucrative posting in the airport, cargo terminals or ports.
+- Clearly, rules governing advertising aimed at children differ dramatically from one country to another. At the same time, multinational companies are selling their products across the globe. The need, therefore, is to evolve an international code on such advertisements.
+- It is worth asking if advertisements are ever an effective counter against negative publicity. International experience shows that it depends on the issue.
+- Entrepreneurial freedom and funding of potentially good businesses will certainly increase the number of wealthy Indians, create employment and have some cascading effect in the economy.
+- We like to joke that India has sick companies but rich promoters. Yet, even after the bad loans and non-payment of dues have turned at least three banks sick, there is no public demand for investigation, accountability and punishment.
+- Nobody expects the tax collector to be a friend, but one does expect the government to apply its mind to making payments and refunds fair and user friendly especially for those who are actually paying tax.
+- Secured debentures of the non-convertible variety were the rage in the mid-1980s, but their glamour ended on their maturity when it became obvious that there was nothing secured about them.
+- If you are a small investor, do take the basic precaution of going to a registered broker/sub-broker and getting receipts for your transactions. Or simply shrug you losses away as you would if you lost your shirt at a casino.
+- To investors, the media is largely undependable as a source of policy information they have been wrong far too often. And business leaders and industrialists are obliged to make welcoming statements, whatever their real sentiment.
+- I have missed meetings because a Speed Post from a government office reached after the meeting. But these are rare blips in a large network.
+- The postal department does indeed undertake a lot of thankless work and is forced to provide services below cost for bookpost and the like. The answer may lie in some form of a universal service obligation fund, not price-fixing.
+- Senior politicians and police officers as well as their children get away with murder and run extortion rackets. It is all accepted with some anger and a shrug.
+- We are living in a globalised world and most of us are worried stiff about powerful interest groups steadily pushing India towards obscurantist and fundamentalist beliefs and regressive economic policies.
+- The e-wallet allowed anyone with a valid e-mail ID to send and receive money from just about anybody, or to settle bills through money stored online in safe systems. All it needed was registration on the e-purse providers website by filling out a simple form.
+- If India is notorious for never punishing scamsters and letting politicians get away with loot, rape, murder and worse, it is because they are part of a cozy conspiracy of silence. There are innumerable instances of how politicians as a class let each other off the hook after kicking up some dust in parliament.
+- India needs fresh thinking and quick decision-making to get out of the stifling bind of its galloping population and deadly poverty.
+- If e-wallet providers are unregulated, dubious operators will easily manage to avoid audit trails and electronic finger-prints.
+- Even in private e-mail groups, it is journalists who seem outraged, anguished and disheartened at what has been described as the 'prostitution' of news; the reader response is always lukewarm.
+- The savvy investor is one who does not believe every rumor on the street and learns to read between the lines of newspaper reports.
+- In the e-filing system, the accountant has the user identity and password of each company. This would potentially allow a rogue accountant to play serious mischief with the accounts of an entity.
+- Everybody loves to receive gifts and free goodies, and often parents are loath to look out for hidden strings attached to corporate freebies.
+- Sachin Tendulkar is undoubtedly India's biggest national icon. Being the object of a billion people's adoration is a tough job.
+- Sure, investors do tend to overreact, but they are investing real money based on doubtful information. Complacency or a wrong move sees their money literally vanish into thin air.
+- The paper's self-confessed love affair is with the advertiser and its flourishing bottomline gives it the power to desecrate editorial space and express the confident view that all other media houses will soon follow its example.
+- In the informal hierarchy of the information media, the printed word is still considered the most credible. I am not quite sure why this is so, because television allows you to witness the unfolding of events yourself.
+- Putting an end to usurious rates is not going to be as simple as asking banks to lay down internal guidelines, policies and procedures.

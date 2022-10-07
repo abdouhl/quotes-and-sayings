@@ -1,0 +1,106 @@
++++
+author = "Elizabeth May"
+title = "Elizabeth May Quotes"
+quotes_len = "100"
+description = "the best 100 Elizabeth May Quotes"
++++
+- I can work with anyone.
+- The movement across Canada to fight toxic chemicals is a women's movement. It's a concern about health; it's very intimate.
+- Justin Trudeau certainly understands climate science, as do his ministers. But they're refusing to take action on it because of short-term political concerns.
+- Whether we make it a condition or just through persuasion or just through popular support, whatever it takes, we really do need to shift through a system of voting where the way the Canadian public votes is the way the Canadian Parliament is formed after the election.
+- I try to be friends with everyone.
+- And of course the Green Party wants to remove carcinogens from our food, our cosmetics, our backyard pesticides.
+- I've been working with every single government since June 1992 to try to get climate action.
+- Andrew Scheer talks about an energy corridor. So do I, but his corridor is for pipelines and mine is an electricity grid that's running 100 per cent on renewable energy.
+- Women care about a wide range of issues - climate change, social justice. What the Green Party tries to do is apply gender analysis to a whole lot of questions that people might not think of as women's issues. For instance, women in developing countries are the most vulnerable to climate crisis.
+- The process of forming government in a minority is one where you talk to everyone and see: What do you have in common? And is there enough commonality?
+- Democracy is too important to be left to politicians.
+- We oppose any pipeline whose sole purpose is to export bitumen from Canada to make profits in other countries.
+- ncrementalism is out, and doing deals with people just for power, when our children's futures at stake is not something I will ever do.
+- There's a lot of propaganda that contaminates a discussion around what we should do about pipelines, how our economy may or may not be dependent on exports of raw bitumen.
+- It's not a big deal for me to be leader of the Green Party. It is a big deal for me to represent the voters of Saanich-Gulf Islands.
+- First and foremost we are Earthlings.
+- We were the first party to call for equal marriage.
+- I don't think that, you know, adherence to ignorance is really something that encourages voters to support you.
+- In the world of globalization, the fossil fuel masters of the universe who are digging up our boreal forest and our muskeg and scraping out the bitumen would rather have Canadians take all the risks - and then the oceans take the risks to ship it to refineries that they've already built in other countries rather than create jobs for Canadians here.
+- It doesn't make sense to have a bitumen export economy.
+- I wanted to repeat we cannot vote confidence at any point on a confidence motion in a government that fails to have a climate target that's ground in science and consistent with what the Intergovernmental Panel on Climate Change says we must do.
+- Politics is awful.
+- We appeal to Conservatives who just can't see themselves voting for the corruption and the scandals and the contempt of parliamentary institutions. And of course, we also appeal to people in other parties who are disappointed in their own leadership.
+- I believed Justin Trudeau in 2015. I thought he would be a climate leader. I was wrong.
+- I am always interested in looking for the strongest possible leadership.
+- It's not as if being leader of the Green party is something that I do because I love being leader of the Green party. I love the Green party and this is a service.
+- I don't think that anyone is for abortion in the sense that you hope people are going to have abortions. You hope in an ideal world that every pregnancy is a wanted pregnancy.
+- I was part of Environment Canada's work to stop acid rain, create national parks, clean up the Great Lakes, develop new environmental legislation and negotiate the treaty that saved the ozone layer.
+- I actually find that Canadians are incredibly interested in democracy, and alarmed when they realize that the Prime Minister's Office is controlling virtually everything that goes on within the federal government.
+- Ah, the first NAFTA was really, had a lot of disastrous elements for Canada's environment.
+- You have to look at what the United Nations Declaration of Rights of Indigenous people says which is free and prior informed consent. Now, if you say 'we're going to build a pipeline, what does it take for us as the colonial power of Canada to make you agree?' That's not free, prior and informed consent, that's coercion.
+- I would love to focus on writing books that were not just about issues.
+- I'm not interested in a balance of power in order to have power for the Green party. What I'm interested in is the balance of responsibility.
+- Within the Green Party, we have candidates from every faith and religion and a lot who don't believe there is a God and wonder why anyone would be so foolish as to think so. And everyone is respected and welcome.
+- The reality of the Green party is that we are a party committed to bringing forward big ideas, new ideas and demonstrating by our conduct in parliament and through the election that we really want to work for Canadians, work across party lines, work across jurisdictions.
+- There's a lot I'd like to be able to talk about with relation to Stephen Harper, particularly why is he afraid to debate in English?
+- Once you got a solar panel on a roof, energy is free. Once we convert our entire electricity grid to green and renewable energy, cost of living goes down.
+- It's clear that the Green party loves Quebecers deeply. At the same time, we are Canadians!
+- I ran for parliament in 1980 as an independent against Allan J. MacEachen.
+- I don't use the word 'lying' easily.
+- I think the majority of politicians keep their positions for too long.
+- I wouldn't want anyone to think I was less than respectful for the people with whom I work.
+- We have an existential crisis, which is the climate crisis. Canada is one of the laggards in the industrialized world. Our record is terrible.
+- The safest way to ship bitumen is by rail. Now, there are other things that you get doing it that way. There's probably more greenhouse gases in shipping it by rail. I think certainly there are.
+- People who are good at maintaining a deep oil well will also be very helpful in converting it to a geothermal green energy source. People who have been laying pipe, it's the same skill as putting up a wind turbine.
+- The real dynamic is that when Greens are in the debates, Conservatives don't do as well.
+- I've been a feminist all my life, or at least as long as I've been conscious of being a woman.
+- I stick to stuff I'm pretty sure of and I know this: when the price of a barrel of oil is under $80 a barrel and you build a pipeline, you are driving up greenhouse gases.
+- We've certainly always been a feminist party, with strong feminist principles.
+- Politicians in Canada should not put their religion on their sleeve.
+- If we're serious about our kids having a livable world, building fossil fuel infrastructure in 2018 is a sign of deep negligence, which is the kindest thing I can say about it.
+- I certainly know that the NDP and the Liberals talk about understanding climate science; they just haven't put forward anything that suggests they actually understand it.
+- We import a lot of oil, particularly to eastern Canada, from Saudi Arabia, Kazakhstan, Venezuela, a lot from the U.S. So if we're looking at how do we phase out fossil fuels in the period in which we're phasing them out, let's only use Canadian.
+- To improve humanity's chances of survival, it is critical that Canada assume a leadership role, first ramping up our own ambition and then pushing for more ambition overall in global negotiations.
+- I know that when I was on my hunger strike, I reacted very negatively to people telling me what I should and shouldn't do.
+- I don't like protecting pharmaceutical industries and increasing their profits and making our drugs cost more. If the U.S. Democrats could get rid of those problems I'd be much happier.
+- I love being a parliamentarian. I love it but I don't like politics. And I hate elections.
+- I'm a firm believer that if we could restore real parliamentary democracy, the best way to do that would be to get rid of political parties.
+- I never heckle. I never swear.
+- We cannot ever accept a government that thinks they can get away with tiny targets on climate which they then don't achieve.
+- The National Energy Board process was completely flawed. It didn't allow interveners to do cross-examination, and they said we could do paper questions.
+- I think it's quite unlikely that I'll be the leader of the Green party going into a future election if it's on anything like a four-year timing.
+- But if we keep doing politics the way we're doing politics, and we keep doing climate action the way we're doing climate action, we will not have a history that judges us because we, certainly as a civilization, won't be here.
+- One thing is that you won't get climate action without equity, and Greens around the world have always understood this. This has been the dividing point between the green party of France and Emmanuel Macron: You can't get climate policy without equity.
+- It is personal - deep in my bones and my flesh - the knowledge that we squandered our chance to avoid the climate emergency; to act when it would have been so much easier, as we did to stop acid rain, to save the ozone layer.
+- I was known as an activist, described by CBC's 'The Fifth Estate' as 'the 23-year-old waitress who stopped the pulp company dead in its tracks.' Without knowing it was even possible, my activism helped me gain admission to Dalhousie University law school.
+- But Alberta has the best potential of any province for solar energy. It has enormous potential for wind power. And so replacing coal in Alberta with wind and solar is totally doable, and good for their economy.
+- My constituency is my top priority.
+- If you're serious about climate targets, you don't build and expand the oil sands and move from coal-fired electricity to inefficient fracked gas.
+- Individual actions are important because in any democracy, citizens need to feel agency. If you feel powerless, totally powerless, it's psychologically dangerous.
+- I want a group of Green MPs who will demonstrate to Canadians that it's possible to be respectful, ethical, hard working and actually stick to principle.
+- One of the things I hate about politicians, I shouldn't say I hate things, but one of the things I hate about politics is people who repeat the same talking point over and over and over again.
+- The only party that has better bragging rights than the Greens is the Bloc Quebecois.
+- My funny speech wasn't funny. That's not the first time a politician has done that.
+- Sovereigntism and separatism they are... it may seem like it's splitting hairs, but a lot of Quebecers are sovereignists - they respect the sovereignty of Quebec. They're not interested in separating.
+- The most important thing is guaranteed livable income, which will take a while to bring in because it means all the provinces have to participate.
+- I would rather not to have to fly across the country at all, but obviously, as a federal party leader, I do.
+- The oilsands will be phased out by 2030 or 2035.
+- I really think a minority Parliament delivers better democracy in Canada when parties are prepared to cooperate.
+- I think the words 'vote strategically' translates in the human brain to: 'Oh I can't vote for what I want.' And that's discouraging.
+- A woman has a right to a safe, legal abortion. I've never wavered in that position since I was, like, eight years old and realized what was going on when I heard my mother arguing with people about the issue.
+- I don't love being Leader of the Green Party. It is not really something I'd recommend to a good friend. It's not fun.
+- The reality is that Rachel Notley's adherence to pipelines and exporting raw bitumen doesn't make sense for Alberta's economy and it doesn't make sense for Canada.
+- For all my life I have had a deep connection to the natural world.
+- God, we don't have nearly enough skilled carpenters, electricians, plumbers for the work that needs to be done in taking every single building in Canada and making it carbon-zero, a net-neutral building, by improving insulation, modernizing furnaces, improving the geothermal possibilities, heat pumps.
+- I apologize that I made an attempt to be funny and edgy... and it didn't work.
+- I prefer the Greens to remain an opposition party that's able to hold the government to account.
+- The greatest level of hostility and venom, really, is between parties closest to each other on the political spectrum.
+- For as long as we're using fossil fuels at all, globally, Canadians should be using Canadian sources.
+- The only thing we're interested in as Greens is making sure that we are protecting Canada from an imminent threat and that imminent threat is the climate crisis.
+- I've never made any statements about the abortion issue at any time in my life - never retreating one inch - from a woman's rights to legal abortion. Ever.
+- I'm a sort of in the moment, good on my feet kind of person.
+- It's very clear the Conservative party does not want to move to real climate action.
+- I loved practising law when I practised law.
+- If one group of people say a woman has a right to choose, I get queasy because I'm against abortion. I don't think a woman has a frivolous right to choose. What I don't want is a desperate woman to die in an illegal abortion.
+- The Lester B. Pearson era is what I hope to replicate.
+- I'm fair-minded, maybe. Maybe I bend over backward to give people too much benefit of the doubt. And I'll give credit where credit is due.
+- When we talk about product by pipeline or product by rail we need to be highly specific about what product we are shipping and under what terms and for what purpose. Solid bitumen by rail is safe as houses, but as again crude by rail poses different risk.
+- I would urge Rachel Notley to be more like Peter Lougheed. Lougheed had a sensible plan for the oil sands, which involved ancillary infrastructure like upgraders and refineries.
+- Anyone can have a bad night and anyone can have a bad attempt at comedy.

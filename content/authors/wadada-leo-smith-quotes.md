@@ -1,0 +1,29 @@
++++
+author = "Wadada Leo Smith"
+title = "Wadada Leo Smith Quotes"
+quotes_len = "23"
+description = "the best 23 Wadada Leo Smith Quotes"
++++
+- I'm an optimist. I have always been, and I will continue to be. So I believe there's always a possibility of transforming or changing or doing something different.
+- When Barack Obama was elected, it immediately brought out all the differences in society.
+- I've got that Beethoven energy, that Stravinsky energy. And it's all a gift from the Creator.
+- I have been in dialogue with my family about what can actually be done. We've come up with this philosophy that in a truly multicultural society, the only way to have liberty and justice for everybody is to have multiple parties. And by multiple parties, I mean 50 parties, not one or two.
+- All art is political. Yes. Even the stuff that sounds like bubble-gum songs. I think all art is, by nature, intended to motivate society for change, and the only reason change doesn't happen is because within the target population, courage is lacking.
+- I wanted to identify that the black experience is American experience.
+- I think all art is, by nature, intended to motivate society for change, and the only reason change doesn't happen is because within the target population, courage is lacking.
+- I started composing when I was around 13, and back then, people used to say that I needed to be a composer or a performer, but I can't be good at both of them. I could never understand why anyone would say that. Jellyroll did both, Bessie Smith did both, and so did I.
+- I write all the time. I always have. I can pick up my horn to warm up, and an idea will pop into my head, and I'll write it down and file it away for another time.
+- There's nothing unnatural in creation.
+- The only thing that makes change possible is the idea of developing some kind of institution, because the institutions will survive individuals.
+- Jazz infers a style, but creative music has a wider field and wider specification about it. We know it from people like Scott Joplin and on through Bessie Smith.
+- When you live in the South, you're constantly part of the civil rights movement.
+- We have these old fashioned ideas. For instance, here in America, we talk about democracy - but we don't have a democracy. There are elements of a democracy.
+- Seeing the bigger picture opens your eyes to what is the truth.
+- I don't set out to win awards. I don't think any musician does, but when you receive an award, it's an affirmation: it means that people appreciate what you do. Every award I have received is a confirmation of something I have done, and that motivates me to push a little harder.
+- I always felt of myself as a composer, performer, improviser. I've never called myself a jazz man. I make art.
+- I don't set out to win awards. I don't think any musician does, but when you receive an award, it's an affirmation: it means that people appreciate what you do.
+- When I first started, I worked with my father, Alex 'Little Bill' Wallace; he was a guitarist like B.B. King. I was around 13 when I started, and I learned a lot by looking and listening. I learned how to be a bandleader from watching that band work.
+- My solo playing utilizes the deployment of suggestive psychic rhythms. I'll state these throughout a given piece and play thematic improvisations on top of that. I like to suggest that rhythmic movement without always playing it. I like to create openings that I can step into.
+- The artist is the consciousness of society... but musicians' role is very special.
+- From now back to the past, we can observe clearly that none of us is free.
+- Everything and anything is valuable.

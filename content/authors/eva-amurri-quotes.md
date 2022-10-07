@@ -1,0 +1,37 @@
++++
+author = "Eva Amurri"
+title = "Eva Amurri Quotes"
+quotes_len = "31"
+description = "the best 31 Eva Amurri Quotes"
++++
+- One of my biggest goals as a mom is to be a pillar of strength for my children - to envelop them in love and address every emotion, but also to have them be absolutely sure that I can protect them in any situation.
+- I follow 50 people on Instagram who are these humongous families, like five or six kids or whatever, and I just think it's adorable and so cute.
+- A child's sense of reality vs. fantasy can be a bit blurred at the preschool age.
+- Do not judge other moms on how they raise their children.
+- One thing I've learned is that preschool teachers really have seen it all - and they can be a wealth of information! If you have any questions about a certain behavioral hurdle with your child or if you have a question about a certain age or phase, ask them!
+- I love Dermaquest tinted SPF.
+- My big thing is I think women should birth their babies, as long as they're healthy and their doctor says it's OK, however they want, whether that means in the hospital with no drugs, at home with an epidural, elective C-section, whatever.
+- Kids get sick in preschool. A lot. Make sure that your kids are getting all the immune boosting they can to fight the germs!
+- What I learned from my son's birth is that fearing the future is normal but a waste of time.
+- Mom-shaming drives me crazy.
+- Honestly, I don't know if I'd want to be an educator. I find teachers to have more responsibility, in a way, than being a parent. You're molding hundreds of minds every year.
+- My entire pregnancy with Major, I was nervous about enduring another long labor.
+- I always say about my husband, no matter what what we're going through in life, I would rather hang out with him more than any other person.
+- I've found childbirth to be so unique in its ability to completely humble you while also completely empowering you. It reduces you to your essence and strips you of every pretense. It reminds you that you are no better than all the women who have come before you, but also no worse.
+- I'm realizing that my childhood is not my daughter's, that I can't heal myself by any actions I take with her - and that it's definitely time for me to go back to my own childhood... with my therapist.
+- If your child seems to click with another kid in the class, try to set up a time for you to meet at a park after school and get to know their parent. Seeing you be outgoing with the parents of other children will encourage your child to be open and active in their friendships, too!
+- I'm definitely not the person who's gonna sit anywhere and tell you that home birth is the only way to have a baby because I don't believe that. But I do think the only way to have a baby is where you feel great about your birth.
+- I always use some fake lashes for any kind of dressed-up face, whether it's a few individual lashes, or a dramatic strip. I find that fake lashes really bump the beauty up a notch and make me feel great.
+- A good teacher who can take the zero pay and help kids develop physically, emotionally, socially, is literally an angel.
+- The great thing about acting is that you get to be a lot of different things in one lifetime. You get to explore different personalities and characters.
+- A baby is such a huge change for everyone, so acknowledge that. It's hard, and you don't have to be great at everything right away.
+- I grew up with three kids in the family, and it's definitely a little extra tricky having that third kid.
+- I think that as my kids grow up and hit milestones that spark emotion for myself in my own history, it will always trigger personal feelings from those times - whether good or bad - and I definitely want to develop the tools I need to keep the immediacy of those negative emotions in the past.
+- My parents have always said, 'You'll be so unhappy if you're no more than your career, that it's important to get out there and do things other than just your career.'
+- I actually wanted to be an astronaut, but I don't have a mathematical brain.
+- New motherhood is such a vulnerable and powerful time, but it's also really hard.
+- If an actor is bored, then they are boring to an audience. I definitely don't want to ever be that.
+- My priority is keeping my skin looking great - perfect skin is the best beauty weapon.
+- Birth is such an emotional thing.
+- Parenthood is so wild in its ability to put a mirror directly in your face and force you to look at yourself long and hard. What a challenge this is, but also what an exhilarating gift.
+- Marriage is a journey. It's hills and valleys.

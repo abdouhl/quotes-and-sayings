@@ -1,0 +1,22 @@
++++
+author = "William Robertson Smith"
+title = "William Robertson Smith Quotes"
+quotes_len = "16"
+description = "the best 16 William Robertson Smith Quotes"
++++
+- The land of a god corresponds with the land of his worshipers.
+- The myths connected with individual sanctuaries and ceremonies were merely part of the apparatus of the worship; they served to excite the fancy and sustain the interest of the worshipper... no one cared what he believed about its origin.
+- That the God-man died for his people, and that His death is their life, is an idea which was in some degree foreshadowed by the older mystical sacrifices.
+- We are so accustomed to think of religion as a thing between individual men and God that we can hardly enter into the idea of a religion in which a whole nation in its national organisation appears as the religious unit.
+- The dissolution of the nation destroys the national religion, and dethrones the national deity.
+- In better times the religion of the tribe or state has nothing in common with the private and foreign superstitions or magical rites that savage terror may dictate to the individual.
+- This being so, it follows that mythology ought not to take the prominent place that is too often assigned to it in the scientific study of ancient faiths.
+- Religion did not exist for the saving of souls but for the preservation and welfare of society, and in all that was necessary to this end every man had to take his part, or break with the domestic and political community to which he belonged.
+- Even the highest forms of sacrificial worship present much that is repulsive to modern ideas, and in particular it requires an effort to reconcile our imagination to the bloody ritual which is prominent in almost every religion which has a strong sense of sin.
+- The god, it would appear, was frequently thought of as the physical progenitor or first father of his people.
+- But, strictly speaking, this mythology was no essential part of ancient religion, for it had no sacred sanction and no binding force on the worshippers.
+- But if it not be true, the myth itself requires to be explained, and every principle of philosophy and common sense demand that the explanation be sought, not in arbitrary allegorical categories, but in the actual facts of ritual or religious custom to which the myth attaches.
+- In all the antique religions, mythology takes the place of dogma; that is, the sacred lore of priests and people... and these stories afford the only explanation that is offered of the precepts of religion and the prescribed rules of ritual.
+- Thus a man was born into a fixed relation to certain gods as surely as he was born into a relation to his fellow-men; and his religion... was simply one side of the general scheme of conduct prescribed for him by his position as a member of society.
+- The god can no more exist without his people than the nation without its god.
+- This, it may be said, is no more than a hypothesis... only of that force of precedent which in all times has been so strong to keep alive religious forms of which the original meaning is lost.

@@ -1,0 +1,21 @@
++++
+author = "Emily Bronte"
+title = "Emily Bronte Quotes"
+quotes_len = "15"
+description = "the best 15 Emily Bronte Quotes"
++++
+- A good heart will help you to a bonny face, my lad and a bad one will turn the bonniest into something worse than ugly.
+- Honest people don't hide their deeds.
+- The tyrant grinds down his slaves and they don't turn against him, they crush those beneath them.
+- I'll walk where my own nature would be leading: It vexes me to choose another guide.
+- A person who has not done one half his day's work by ten o clock, runs a chance of leaving the other half undone.
+- Any relic of the dead is precious, if they were valued living.
+- Proud people breed sad sorrows for themselves.
+- Whatever our souls are made of, his and mine are the same.
+- I see heaven's glories shine and faith shines equal.
+- Terror made me cruel.
+- I have dreamed in my life, dreams that have stayed with me ever after, and changed my ideas; they have gone through and through me, like wine through water, and altered the color of my mind.
+- I am now quite cured of seeking pleasure in society, be it country or town. A sensible man ought to find sufficient company in himself.
+- Having leveled my palace, don't erect a hovel and complacently admire your own charity in giving me that for a home.
+- I cannot express it: but surely you and everybody have a notion that there is, or should be, an existence of yours beyond you.
+- Love is like the wild rose-briar; Friendship like the holly-tree. The holly is dark when the rose-briar blooms, but which will bloom most constantly?

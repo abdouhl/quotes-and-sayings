@@ -1,0 +1,79 @@
++++
+author = "Gautham Menon"
+title = "Gautham Menon Quotes"
+quotes_len = "73"
+description = "the best 73 Gautham Menon Quotes"
++++
+- I understand that bureaucracy, hierarchy and managing politics is not easy.
+- I know how irritating it is when a producer puts his hand in everything.
+- Though I'm happy with the response to the film, I've been hearing the feedback that 'Yennai Arindhaal' has traces of my earlier films. It was meant to be like that. Since it's part of a trilogy, hence the reference to the other two films in the franchise.
+- The only aspect I'd probably change in some of my films is the death of the heroine. I wish I'd kept some of them alive.
+- I go straight into shooting with a script that's 80 per cent complete and I wait for my characters to grow on me before I finalise the climax.
+- With Nani, what struck me was his confidence. It has been a revelation. Nani, the most confident actor and it is a pleasure to work with him. Will do a film with him anytime given a chance.
+- All the women close to me - my mother, sister, wife and friends - are strong and independent.
+- The industry doesn't usually say nice things about my work. My films take a while till they are accepted as good and I think 'Yennai Arindhaal' too will go through that phase.
+- I do a film because at that particular moment, I want to make a film. It is my attempt at moving away from the ordinary.
+- When I was approached to remake 'Vinnaithandi Varuvaaya,' I felt that it was a good way to reach out to a wider audience, every director wants that.
+- Even though I love Hindi films, I don't remember any backdrop visuals that are really striking.
+- In everybody's life, there is love, there is sorrow, there is melancholy. And there might be danger as well.
+- The Tamil audience is more receptive to unusual endings.
+- I don't like to shoot on sets at all. As much as possible, I try to shoot on location.
+- It is difficult, but I definitely do want to make a film in Malayalam at some point of my life.
+- How the audience as a collectivity feels about a movie is important.
+- Bollywood is a different ballgame. I am quite used to Tamil and Telugu films.
+- Ranbir was my first choice for 'Ek Deewana Tha.' I tried to get in touch in with. Forget about meeting Ranbir. I couldn't even meet his secretary. Yes, even the secretary refused to meet me.
+- There's nothing quite like a quiet corner in a coffee shop to gather your thoughts and begin writing.
+- Nayakan,' 'Sathya' and 'Thevar Magan' are my biggest influences.
+- Ekk Deewana Tha' will have a surprise ending to watch out for.
+- I would like to make a film in the four South Indian languages.
+- I put my heart into 'Vaaranam Ayiram.' I lost my father when I began the film, and the tragedy turned my entire script around.
+- Yes, I am nervous before a film's release and withdraw into a shell.
+- I firmly believe in copyrights and am put off by plagiarism.
+- I don't read the reviews because it somewhere affects my work. If some critic doesn't like a movie, I can't keep his criticisms in mind the next time I am making a film. Even if someone writes a great review about my film, I don't want to be affected by it.
+- If I know somebody's right about something I take it from them.
+- Unless it's a song and something fancy, I would rather shoot on location.
+- There are people who've told me cinema is a visual medium and you don't need to say so much. When I write the script, all these lines of what the characters are thinking are written. Once the film is shot and the lines are dubbed, I tone it down in postproduction if I feel it gets heavy.
+- I write linearly without knowing the full story. I discover it as I write it.
+- YVM' is a feel-good romance.
+- No matter how liberal or modern a family is, there will always be resistance when someone discloses that they are dating someone.
+- For a film like Vettaiyaadu Vilayaadu, I was particular that nothing should be revealed prior to release.
+- I think I have made too many cop films.
+- The music I listen, the book I read, and the people I meet; these are some things that keeps me going.
+- Minnale' was so earthy.
+- Most of the romance in my films has been inspired by my father.
+- I sneaked out of school to watch 'Nayakan.' I must have watched it at least 15 times at Anand theatre.
+- I understand the angst of a filmmaker.
+- Back in the day, I was keen on working on a film with the superstars - Mammootty and Mohanlal. But they wanted me to make a film with them in Tamil.
+- If I could talk in only one language for the rest of my life, it'd be Tamil.
+- I may have got a little carried away and many critics found fault with some aspects of the film, but as a coming of age film of a character, 'Vaaranam Ayiram' worked with the audience.
+- Whatever the script demands, I do.
+- What you feel about a film is what you feel when you're in love with a woman. You fight for her love and it's always a struggle... there are misunderstandings and you're always trying to prove that there's more to you.
+- One reason why I've taken 11 years to make my second Hindi film is because I am comfortable working with the stars in the South, as they are with me.
+- Even bigger directors like Mani Ratnam and Ram Gopal Varma have faced flak, that doesn't mean they've shied away from filmmaking.
+- Vipul Shah wanted me to do the Hindi adaptation of my film 'Kaakha Kaakha.' I declined the offer.
+- You need stars to create the buzz and bring audiences to the cinemas.
+- I like to show love in a way that will bring a smile or a tear to viewers.
+- The lead character in 'Yennai Arindhaal' is like an extension of the protagonists of 'Kaakha Kaakha' and 'Vettaiyaadu Vilaiyaadu.'
+- Even when 'Kaakha Kaakha' was released, there were people who gave it an average rating and said they couldn't figure out what was happening. Three days after its release, the producer called me and asked me to remove all of Jothika's scenes from the film. I told him; in that case, you can also remove my name from the director's slot.
+- The initial response to 'Yennai Arindhaal' was that it didn't have all the quintessential commercial elements, though I consider it as my most commercial venture.
+- And I'm not homophobic.
+- If I am going to be afraid of the criticisms that my films get, I am never going to make films.
+- Though I have an idea about the climax, it always changes when we start shooting.
+- It's just that I can write something nice is what motivates me.
+- I write my scripts on a whim, without worrying about plot points and graphs.
+- I'm not a big fan of fantasy; I'd rather watch 'Desperate Housewives' than 'Game of Thrones.'
+- I am not a singer.
+- When people think I've lost it, I'll make 'Chennaiyil' and show them I've still got it.
+- It is in college that one gathers confidence as the mind is open to ideologies.
+- Generally, I feel I'm cast aside because of the kind of movies that I make.
+- I'm okay with suggestions but I want to do what I believe in, because I'm inspired by an idea.
+- Nadunisi Naaigal' is new age Tamil cinema. I have tried to break the rules of regular cinema with this film.
+- I've portrayed cops as heroes for far too long, I think.
+- I try to be a friend to my boys just the way my dad was with me. Subconsciously that reflects in my writing.
+- I drove past one of the houses in Tiruvanmiyur and asked them if we could shoot there for 'Vinnaithaandi Varuvaaya' because it seemed straight out of the pages of the script.
+- I would seriously love to do a Malayalam movie.
+- Yennai Arindhaal' is perhaps the quickest film in my career.
+- In Mumbai, I feel like a stranger.
+- Today, most big stars want scripts to be written in a particular way, show them in a certain light. They want people to like them for various reasons. It's all about how much people will like me in this film than about whether it's a good film or not.
+- I am a romantic at heart.
+- If my tale has to revolve around a protagonist and there is action around him, I can only imagine him to be someone from the police or the Army.

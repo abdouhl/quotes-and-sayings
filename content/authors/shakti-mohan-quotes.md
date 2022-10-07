@@ -1,0 +1,104 @@
++++
+author = "Shakti Mohan"
+title = "Shakti Mohan Quotes"
+quotes_len = "98"
+description = "the best 98 Shakti Mohan Quotes"
++++
+- I feel from where I started, you know, enjoying dance to making it a career, it has been really amazing.
+- I don't like acting at all.
+- Make-up is such a huge fragment of my career and image.
+- I love dancing and enjoy a lot on 'Jhalak.'
+- I feel every day is a blessing because as I never expected to be where I am.
+- I studied dance and choreography in New York and even taught people there.
+- I feel we should be focussing on being more global rather than preferring only our Indian dance forms.
+- It is interesting to see how Bollywood music gels with waacking.
+- I never thought that I would judge any dance show.
+- I dress up like a boy and I'm most comfortable in a pair of jeans and T-shirt.
+- Honestly, I miss doing the Ganpati dance on the road. When I was in college, I used to go to my friend's house and dance on the road during visarjan.
+- As I learnt Bharatanatya, I found myself participating in school and college competitions.
+- Talent is evolving, today people are exposed to YouTube.
+- When we moved base to Mumbai, I was noticed by Terence Lewis, who offered me a scholarship from his dance foundation. That is when doors opened up for me.
+- One fan reaction I keep getting is 'we thought you were taller.'
+- My journey has not been a bed of roses.
+- I feel great to work under Remo sir.
+- For staying fit, 70 per cent role is played by diet, the rest 30 per cent is the exercise part.
+- I was on my way to fetch my little sister from school when I met with an accident. A bike which was at a very high speed ran over my leg while I was crossing the road. My leg was so badly fractured that it took me almost seven months to be able to stand on my legs again.
+- Dance and Mumbai go hand-in-hand.
+- I would love to pursue other things only if they are related to dance, as I have always been passionate about dance.
+- I want to take this art form to a whole new level in India so that kids say that they want to become dancers when they grow up.
+- I have done masters in Political Science but deep down in my heart I wanted to be a dancer.
+- People always assume that once you are in a reality show, you will become an actor for fame and money.
+- I am a vegetarian and not a foodie at all.
+- I used to watch Bollywood songs and learn choreographies from there.
+- Breathing is crucial in dancing and so it is an important part of my exercises.
+- After winning 'DID,' I went to London for an advanced dance course.
+- I had been acting right from my school days; naturally, I had a passion for dancing.
+- Classical is a more refined and structured dance form. Folk is made for celebration. That's not a very competitive dance form. Though you can bring classical on stage, folk becomes limited. Like you would love to do bhangra and garba at parties, but when you see it on stage, it is very limited in terms of movements.
+- I avoid oily food and in fact my friends get mad at me as I don't have cake even on my own birthday. I do have a sweet tooth though for chocolates.
+- Back then when I started off, I did not expect anything at all from myself. I just knew I wanted to dance. At that time there were no reality shows, we did not have platforms like YouTube where we could learn from.
+- I would love to choreograph a song for Sanjay Leela Bhansali... that's my dream.
+- Dancing was something I naturally enjoyed.
+- Dance like any other art form has no language.
+- It's a privilege to be a part of a show that provides a platform for promising artistes across the nation who come with a rare talents.
+- I wanted to curate a cosmetics line for years, but it needed to be credible and a game-changer of sorts, something that women around the world would respect and relate to.
+- I didn't decide that I want to be an actor because my plan was to pursue dance as a career.
+- I, along with my sisters Neeti and Mukti, did my schooling from BITS Pilani in the Shekhawati region. So, I am very well aware of Rajasthan, its culture, life, heritage, music, food and everything it is famous for. And it's no exaggeration to say that Rajasthan gave me the best childhood memories.
+- I wanted to be an IAS officer. Everything has happened by the way.
+- Classical dancing has always been the stepping stone of every dancer's life.
+- No, I do not want to be an actor. I am happy being a dancer.
+- I always wanted to work with Sanjay Leela Bhansali because the dance and music in his films are so beautiful. When I got a call from him, I was on cloud nine!
+- There's nothing to beat 'DID' on Indian television... the show that has given me so many highs in my career!
+- Ideally, a dancer should put in 10 hours of daily practice to deliver a polished performance.
+- I don't understand why no one says 'I want to become a dancer.'
+- Dance for me is a great form of exercise.
+- God is making me go somewhere and I am just following the path.
+- Here in Bhopal, the scenic locations give me peace of mind.
+- I have been living and experiencing dance everyday in my life.
+- My most memorable dance has been at the Andheri Sports Complex for the 'Dance India Dance' finale, where I performed in front of my family, teachers and 25,000 people in the stadium. I won the show at the national level and that is my most unforgettable experience in Mumbai.
+- I think the most important mantra in my life has been and will continue to be - patience, hard work and will power.
+- DID' has given me all the confidence that a new artist needs.
+- I never plan things. Whatever unfolds, I take it as a challenge and go with the flow.
+- I remember my first trip to Jaipur when I was in Class III. I was a little kid and I remember coming here with my classmates and visiting Hawamahal. The city has a charm. Along with the monuments, what I like the most is the handcrafted stuff, bags, jootis, and silver jewellery.
+- I like to start my day with meditation followed by yoga and then exercise.
+- Launching a dance calendar required so much hard work and decision making.
+- I will never run out of cycling shorts, ballet slippers, denim shorts, socks and pyjamas.
+- Being part of reality shows is not easy as I had to learn some new forms that I had never heard of. There were times when I was given two days to learn a new form and perform it in front of thousands! That was a challenge for me.
+- Nothing compares to the feeling of dancing your heart out. I believe it to be the most beautiful emotion that truly elevates happy moments in our lives.
+- I always find the time to exercise, I don't really make excuses.
+- Make-up is a natural extension of dance for me. It gives the finishing touches to my art enhancement.
+- Dance India Dance' has been a platform that has changed my life and given me so many new opportunities.
+- I think being fit is an indispensable ingredient for holistic well-being.
+- I started off as a contestant and I realise that it's not easy being scrutinised by experts. And when you are a judge you need to ensure you are judging fair. Both require a lot of hard work and commitment.
+- All the Bollywood choreographers are so talented and inspiring. I am learning a lot just by observing their work.
+- During my college days, I was known more for my dancing than for acting.
+- I drink a lot of water during the day irrespective of the season, and I follow a strictly vegetarian diet - which is a major factor for my success in staying slim and fit.
+- I look for that earnest yearning in talent, you may not be the best at what you do, but if you have the passion you can at some point become your own inspiration.
+- I feel the way India has loved and supported dancers is incredible.
+- I think without following a diet, staying fit is not possible.
+- Always wear what makes you comfortable. And when you are out shopping, make sure your bargaining skills are on point.
+- I just enjoy what I do, I don't really strive for perfection, I don't feel pressurised by the competition.
+- As a dancer I feel fulfilled and would want all dancers to be proud of themselves.
+- In fact, all the Mohan sisters are very inclined when it comes to cosmetics.
+- Like every other teenage girl, I was a great fan of Hrithik sir. This childhood crush was not like others though - the love for him was so deep in my heart that my boarding school hostel room was filled with his posters which I didn't let any one touch. My heart was broken when I saw him getting married.
+- I am ready to do whatever I need in order to survive.
+- I am at my impulsive best every time I am at airports. I end up buying a lot of stuff, and pamper myself from the duty-free stores.
+- Acting was in my instincts, I presume.
+- I would like to be a part of a movie which is based on dancing as I think I can showcase my skills completely in a dance oriented film.
+- Dance is my passion and love, and I am not abandoning it for anything.
+- Kathak and Bharatnatyam are my forte.
+- When you sit back and think, you end up creating more.
+- Being a dancer alone is somewhat weird in India. But I am determined to blaze a trail.
+- I just love Madhuri Dixit. Her presence fills me with positive energy.
+- When you are a dancer your body speaks, my body can express itself.
+- Travelling exposes you to diverse culture, art and dance.
+- I am very fulfilled just dancing.
+- Before I moved here, I had no desire to become a dancer. But when I saw the dance schools in the city and the massive opportunities, I decided to give it a shot. Mumbai being a land of unlimited possibilities gave me the confidence to go for it.
+- My dance shoes - ballroom shoes, tap shoes, ballerinas - are my life.
+- Classical dance is so pure and beautiful you don't need to add anything to its authenticity or beauty.
+- France has always fascinated me. It is a country that boasts of rich culture, heritage and of course, royalty.
+- I love doing it and I am very proud to call myself a dancer.
+- My sisters are the ones who are always well dressed. Mukti, especially, has a good taste in clothes.
+- I like being on stage more. That's stress free. Being on the panel is a big responsibility and you need to keep a check on a lot of things.
+- I believe if you are a good performer, then nothing can stop you.
+- Being in the business of the entertainment, fitness plays a more imperative role because there is a corporal representation to constantly cater to.
+- I want dance to emerge as a field where people can feel proud of being a dancer and they shouldn't feel the need to be a Bollywood actor.

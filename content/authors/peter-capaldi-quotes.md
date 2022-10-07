@@ -1,0 +1,147 @@
++++
+author = "Peter Capaldi"
+title = "Peter Capaldi Quotes"
+quotes_len = "141"
+description = "the best 141 Peter Capaldi Quotes"
++++
+- I can't imagine I'll be the new George Clooney. That's not really in the cards.
+- Shouting at people keeps you alive, healthy, young, fresh.
+- I'm creative. I can't relax unless I've got some project on the go. I'm somebody from art school, and art school during the punk era, when you just had a go at whatever came along.
+- I'm pretty good for an old geek.
+- What's now shocking is I can't say anything publicly without it having a life. Not because I have extraordinary views but because people are keen on conflict, so they'll make that the story.
+- Being asked to play 'The Doctor' is an amazing privilege. Like the Doctor himself I find myself in a state of utter terror and delight. I can't wait to get started.
+- I think the whole spoiler thing has taken over the media.
+- It's weathered many a storm, but the British film industry is, thankfully, still afloat.
+- Everybody loves monsters.
+- I hate the Internet. It's full of rubbish. I'm on it all the time, watching terrible, useless things and ossifying my brain.
+- Scottish men of a certain age have a black response to almost everything as a measure of how sophisticated they are. I have a very long fuse that eventually explodes after building up a nice head of steam, although it's only happened three times - usually at work when someone takes me for granted.
+- Nowadays, kids... young actors... they go straight to L.A. before they've even done anything.
+- The big reason that 'Doctor Who' is still with us is that every single viewer who ever turned in to watch this show, at any age, at any time in its history, took it into their heart - because 'Doctor Who' belongs to all of us. Everyone made 'Doctor Who.'
+- I don't go to pubs.
+- The only time I've tried to make plans, the cosmic sledgehammer has intervened and something else has happened. You just have to wait and see what comes your way, so that's what I do.
+- My family know not to get me any tech for Christmas. I can never get it to work, and it all becomes very tearful and pressurised.
+- Why can't jazz musicians just leave a melody alone?
+- I got into music, I was in a band, I was at art school. I was quite trendy, although I'd hate to meet myself. The over-preening, the pretentiousness, the arrogance of youth! I think, 'Oh, that guy was so full of himself.'
+- One year was so bad for me and my wife that we were going to have to sell our house until Elaine decided to change career and earn some money.
+- When I was a kid, I wrote to the BBC, and the producers sent me a huge package through the post with 'Doctor Who' scripts. I'd never even seen a script and couldn't believe that they actually wrote this stuff down. It sort of opened a door.
+- I don't like parties. There was never a party I was at where I didn't wish I was somewhere else.
+- It was great being brought up in a Glasgow working-class tenement. It wasn't miserable, and it wasn't poverty stricken. It felt very safe, full of delights.
+- I hate restaurants that play music. You come out for a quiet meal, and you're supposed to put up with all this booming. Why? It's madness!
+- You can't, as an actor, conduct yourself by making constant references to other people.
+- Once you reach a certain age, you find yourself visiting hospitals a lot.
+- I like the constant rise and fall of the British film industry. But above all, I like the workhorses who kept going no matter what.
+- I love these sort of documentaries, which you might turn on late on a Saturday night - like, say, 'The Alma Cogan Story.' But they are ripe for spoofing, because the presenters are always so serious and anxious to make themselves look like rather attractive and interesting people.
+- A girl once came to my beery flat in Kensal Green, opened the blinds and cooked me breakfast. I married her.
+- Believe it or not, one teacher used to call me a giant spastic for not being able to play football.
+- The difference between movies and TV is that in TV you have to have a trauma every week, but that event may not be the biggest event in the characters' lives.
+- I spent four months once doing a play on Broadway.
+- If you travel in time and space, most of the people you know and love will eventually be gone. But you'll also be able to go and find them again.
+- A year after winning the Oscar, almost to the day, I was directing a dog food commercial.
+- The only person that I want to love me is my wife.
+- I think the truth is always interesting, but with politicians, you don't get to see much of that.
+- I've only lost my temper three times in my whole life.
+- You can't blame anyone for being cynical about politicians.
+- What you're doing is acting with yourself. Well, I'm my favourite actor, so in a way it's quite straightforward for me.
+- It seems to me that most things that are being made are designed for young people. There aren't that many depictions of melancholic older people, even though they form a growing proportion of the population.
+- My Italian granny and my mother made great spaghetti, but it wasn't a kind of southern Italian, Godfather-esque kind of thing - it was a wonderful, big mixing pot of all kinds of people - when you came home from school and your mum wasn't in, there were lots of people you could go to.
+- I've always been interested in the idea of people who fell through the cracks.
+- We don't consider the Wizard of Oz or Father Christmas to be too old. They're still magical characters, and the fact they've been around the block only adds to their magic.
+- My parents didn't take me to the theatre to see Chekhov when I was growing up - we went to see 'Francie and Josie' once every five years.
+- I know what 'Doctor Who' fans are like because I am a 'Doctor Who' fan myself. They're good people.
+- I can't imagine I'll be the new George Clooney. That's not really on the cards.
+- I always thought it was funny that my grandparents had bought a ticket to New York and ended up in Glasgow.
+- Personally, I have as little to do with politicians as possible. The ones that I've met I've found very boring. They're extremely egotistical, incredibly self-important. If I can help it, I try to stay as far away from them as possible.
+- I'm fascinated by fire. When I was four, I wore an American fireman's hat all the time, and I still have one in my office today. Glasgow used to be called 'Tinderbox City;' there were always fires, people getting killed.
+- Crime is interesting. It's huge and fascinating, and it's what my business, TV and film, is largely based on. But the realities are tragic, and in crime drama you rarely see the pain of bereavement or any consequences. It's reduced to a chess game.
+- I think the periods of being unsuccessful have made me a better actor.
+- The best advice is to get on with it. I'm very prone to falling into depressions - not clinical, just 'can't be bothered.' It's such a waste of time.
+- Hollywood producers aren't going to say, 'Get me that swearing, grey-haired, headless chicken. We need him for our new 'High School Musical' movie!'
+- When I was acting, I was always asking abut the mechanics of filmmaking. I decided I would learn what everyone on set was doing, so I would feel less threatened.
+- I never really think of acting and directing as being separate; they are just different expressions of the same thing.
+- I love people where, at the end of the day, they'll pick up a paintbrush and paint clouds. They can physically make things.
+- Even though I am a lifelong 'Doctor Who' fan, I've not played him since I was nine. I downloaded old scripts and practised those in front of the mirror.
+- Recently, I dreamed that I returned home to find my wife had married Ray Winstone. They were kind and let me stay, but the whole thing was awkward.
+- I've lost count of the times I've been asked to 'be' Malcolm Tucker: to go on a political program on television, presumably in order to be the character and give opinions as him.
+- Of course I've had my moments of wanting to go back to Scotland, and I almost did a couple of times, but other things just came up.
+- Everywhere I go, I am The Doctor, and everyone smiles at me - they are pleased to see Doctor Who, who's far more exciting than I am.
+- Generally I draw every day just to keep my hand in. I draw while I'm sitting on the Tube or in restaurants. Just doodling things and people I see.
+- Real heroes are all around us and uncelebrated.
+- One of the very, very exciting things I have found here in L.A. is that no one talks to you about being Scottish. Whereas, if you are in London and you are trying to put films together and be a film-maker, there is a kind of unspoken sense that, if you are Scottish, you have something to overcome or else you cannot really do that project.
+- The higher your profile, the more people want you.
+- I find the closer you get to people, the harder it is to satirise them.
+- At 17 years old, STG took me under its wing and shared its resources and wisdom with me, even allowing me to take part in a show at the Edinburgh Festival. Without STG and the Ramshorn Theatre, I would not have found access to the world of drama that I later made my profession.
+- I didn't want to be Doctor Who in a 'Doctor Who' that I didn't like.
+- The British film industry has always tried to sell itself as something rather sophisticated. It's almost as if it thinks it is by royal command. It has always tried to claim the high ground, not only over Hollywood but over the whole of humanity!
+- The Americans just have a great sort of wit about them.
+- I could make the title of my memoirs: 'It's got cinematic disaster written all over it.'
+- I hated improvisation because in my early days as an actor, improvisation meant somebody had just come down from Oxford and they were doing a play above a pub in Kentish Town, and the biggest ego would win.
+- I've been really terrible in a lot of things because I learned by making mistakes. That makes you a different kind of actor, because you have to figure out for yourself what you do.
+- I failed the audition to get into drama school.
+- There are only a handful of really good TV programmes, and I'm blessed to be in one of them.
+- Every viewer who ever turned on 'Doctor Who' has taken him into his heart. He belongs to all of us.
+- Even if I hadn't been cast as Doctor Who, my acting would probably have been influenced by William Hartnell or Patrick Troughton, Jon Pertwee, Tom Baker, and all of the other guys. Because those were the actors that I really watched every moment of, as opposed to Laurence Olivier.
+- What annoys me about it is that your fate is always in somebody else's hands. It's always up to somebody else to decide whether or not they want you in their show and so the majority of actors have to play out a waiting game. The constant fear is that it could all end tomorrow.
+- I haven't found anything to complain about. But being Scottish, it won't be long.
+- I went to art school in the days when it was what you did if you didn't want to be like everybody else. You wanted to be strange and different, and art school encouraged that. We hated the drama students - they were guys with pipes and cardigans.
+- I'm not an extravagant man. The fact that I can have a coffee out whenever I want still makes me feel grateful.
+- Drawing is the only thing I've found in which I can lose myself completely. I love it. It started as something that relaxed me, but now it's a struggle because I'm pushing myself. The day-to-day sketching is fraught.
+- The Hollywood image of the movie business is all about ambition and high achievers like James Cameron. But the British film industry is much more about men who wear cravats and work with model trains and hope another series of 'Thomas the Tank Engine' will be commissioned.
+- 'Strictly Sinatra' became a compromise between me and the producers, and neither of us liked the results much.
+- A little showbiz never hurt anyone.
+- Nothing compares to being in a room full of politicians screaming abuse at each other all night. It's hilarious but also a bit terrifying.
+- My adolescence was a kind of motorway pile-up. I wish I had known that one day the geek would inherit the Earth.
+- I think it's always exciting when 'Doctor Who' touches its past.
+- I think all actors experience ups and downs.
+- I think the nice thing about 'Doctor Who' is whether people like it or don't like it, somewhere, someone loves you and will always love you - and the more everyone hates you, the more they'll love you.
+- I love Hugh Laurie, but I don't want to be a guy who goes to work every day for nine months of the year in a corner of Burbank. I really don't. I like doing a bit here and a bit there and strange things, and I think that's held me back.
+- I don't think I would have been great in the 17th century. I would have enjoyed the frocks, and certainly some of the food would have been appealing, but the disease and hygiene would have worried me.
+- Comic-Con is so legendary, so a great thrill to be invited along.
+- I was initially rather charmed by David Cameron, but I think he's revealing himself to be a slightly darker and less charismatic figure than he first appeared. There's a brutality about him.
+- There is no such thing as too much swearing. Swearing is just a piece of linguistic mechanics. The words in-between are the clever ones.
+- If I had gone to drama school, I wouldn't be sitting here now because it would have blanded me out; it would have just turned me into another actor.
+- If you put me in a real Tardis, I dread to think what would happen to the universe.
+- If people enjoy my profile from the privacy of their own home, that's entirely up to you.
+- I wake up in the morning, and I go, 'I'm Doctor Who! I'm playing Doctor Who. I'm Doctor Who.'
+- I'm not terribly well read. My wife forces books into my hands and insists I read them, which I'm grateful to her for. She made me read 'War and Peace.' The whole thing. It was amazing, but I had to hide it. You can't walk round reading 'War and Peace' - it's like you're in a comedy sketch and you think you're smart.
+- I don't want to find myself at the age of 60 waiting by the telephone for someone else to decide if I am capable of being in what might be a crummy TV production.
+- The biggest thing I have realized was that you have to choose your collaborators very carefully, and that not everybody can like you. The process of filmmaking is so difficult, there's no point in doing it unless you can do it the way you want.
+- I could never plan to have a career that went this well... you know, there were times when it didn't: when it went into the toilet, or ducked, or was difficult to get moving.
+- I don't remember 'Doctor Who' not being part of my life, and it became a part of growing up, along with The Beatles, National Health spectacles, and fog. And it runs deep. It's in my DNA.
+- I lived through a golden period where society felt that it was good to help people who didn't have a great deal of money fulfil their potential.
+- I wouldn't be here if it were not for the grant system that paid for me to go to art school - because my parents couldn't have afforded it.
+- I suppose I just like being arty. That's all. Arty.
+- I absolutely hate mowing the lawn. When I hear the mowers starting, I want to kill myself: it's the sound of death approaching. Hoovering's OK, but I never in my life wanted to have a lawn and certainly never wanted to mow one.
+- When I was at school, you couldn't draw and be into football, too. If you were into art, then you were seen as an absolute pansy, and there was no way you'd be admitted to the guys' world of football.
+- The truth is that I got to Hollywood, and I didn't know what to do once I got there.
+- The biggest problem of all is that it's very difficult to tell my daughter, 'Swearing is not clever or funny,' because I earn a living by swearing.
+- The thing that runs through the British film industry even today is a lot of unsung movies are financially the bigger ones. Even though they weren't always the greatest of movies, something in them was very potent which people loved.
+- Maybe it's because I've been an actor for such a long time, but I think, unless you're a big star, you don't really have much control over anything. I've never been able to make any plans.
+- I think it's not misplaced in 'Doctor Who' to have someone who is little bit edgy and maybe a little volatile and dangerous.
+- In Peter Ackroyd's book 'London: The Biography,' he describes the route of the medieval wall that enclosed the original city. Take the book and follow it from the Tower of London via the Barbican to Ludgate Hill. You experience the real history of London.
+- I've had very bleak experiences in hospitals, but they were also sometimes very funny.
+- I'm just physically stupid.
+- I haven't played Doctor Who since I was 9 on the playground.
+- If I was to meet my eight-year-old self, I would say, 'Don't listen to what they say about you. Wear your anorak with pride!'
+- It's one thing getting the job of Doctor Who, which is wonderful. And then the next thing they say to you is, 'We're going to announce it live on television!' And you think, 'That's not exactly what I thought I was signing up for!'
+- I turn down invitations to events where I know there will be politicians.
+- I don't mind being stereotyped as angry - it's good to have a job.
+- When I first came to London, I loved hanging around in cafes, smoking, scribbling, dreaming. It was life-affirming and fun.
+- Before 'Local Hero,' I'd been knocking about Glasgow in rock bands, drinking too much and generally being 21. My opinion of actors was that they were straight and boring, so you see, I was completely unprepared for being one.
+- I don't want to make a film to make a film.
+- 'Atlantic City' is very good.
+- I don't have any expectations of anything.
+- I just consciously try to enjoy the good things that are happening. And if it ended tomorrow, that would be fine.
+- The nurses' job is emotional and distressing. Their day-to-day work is dealing with people withering and falling to pieces. So black humour is essential for them cope with that. It's just a consequence of their environment.
+- What I've learnt being an actor is that you've got to be lucky. I got less lucky, and nobody was interested. If a part came up, it would be for the main corpse's friend's brother who was having problems with his marriage.
+- For all I know, my grandfather was a bank robber in Kilsyth.
+- STG and the Ramshorn Theatre are a vital part of Glasgow's rich cultural history. To abandon them now is to abandon not only our past, but our future.
+- One of the problems with episodic television of any color is that everything has got to be okay at the end of the episode so it can start again next week.
+- I'm sure if Shakespeare were alive today, he'd be doing classic guitar solos on YouTube.
+- I'm so lucky to have worked with Burt Lancaster, who I remember was one of the first people I'd heard swearing in a really interesting way.
+- 'Doctor Who' belongs to all of us. Everybody makes 'Doctor Who.'
+- I destroyed all my geek stuff because I didn't want to be a geek, and I regret it to this day. Consumed in the geek bonfire of the vanities was a collection of autographs and letters from Peter Cushing, Spike Milligan and Frankie Howerd, the first Doctor Whos, actual astronauts, and many more.
+- 'Doctor Who' has a certain amount of showbiz attached to it.
+- I have a fairly normal domestic life.
+- My childhood growing up in that part of Glasgow always sounds like some kind of sub-Catherine Cookson novel of earthy working-class immigrant life, which to some extent it was, but it wasn't really as colourful that.
+- I was always admiring people who seemed to conduct themselves with ease in the world. Maybe that's a great gift to give your kids if you can do that. Because they can move through the world without neurosis, this anxiety about everything, which our own parents gave us.
+- I'm not saying that all politicians are awful. I don't know any of them well enough to say whether they're awful or not. But almost every day, you find out something about them that's appalling. Maybe we shouldn't be surprised any longer.

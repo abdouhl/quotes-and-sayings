@@ -1,0 +1,73 @@
++++
+author = "Sandra Day O'Connor"
+title = "Sandra Day O'Connor Quotes"
+quotes_len = "67"
+description = "the best 67 Sandra Day O'Connor Quotes"
++++
+- Statutes authorizing unreasonable searches were the core concern of the framers of the 4th Amendment.
+- What was a problem was the excessive amount of media attention to the appointment of the first woman and everything she did. Everywhere that Sandra went, the press was sure to go. And that got tiresome; it was stressful.
+- I think the important thing about my appointment is not that I will decide cases as a woman, but that I am a woman who will get to decide cases.
+- The No Child Left Behind Program was an incentive to the schools to get their kids up to snuff on math and science and reading.
+- The power I exert on the court depends on the power of my arguments, not on my gender.
+- Having family responsibilities and concerns just has to make you a more understanding person.
+- I don't know how a judge can concentrate on being fair and impartial when he or she is faced with possible jail time for making a decision that others deem incorrect.
+- I don't know that there are any short cuts to doing a good job.
+- I've always said that at the end of the day, on a legal issue, I think a wise old woman and a wise old man are going to reach the same conclusion.
+- The destiny of the woman must be shaped to a large extent on her own conception of her spiritual imperative and her place in society.
+- We have a complex system of government. You have to teach it to every generation.
+- The courts of this country should not be the places where resolution of disputes begins. They should be the places where the disputes end after alternative methods of resolving disputes have been considered and tried.
+- I wanted to be a cattle rancher when I was young, because it was what I knew and I loved it.
+- A state of war is not a blank check... when it comes to the rights of the Nation's citizens.
+- My sense is that jurists from other nations around the world understand that our court occupies a very special place in the American system, and that the court is rather well regarded in comparison, perhaps, to their own.
+- The fact is, we are a nine-member court that sits on cases.
+- In order to cultivate a set of leaders with legitimacy in the eyes of the citizenry, it is necessary that the path to leadership be visibly open to talented and qualified individuals of every race and ethnicity.
+- Justice Ginsburg is a very competent justice, and it is a joy to have her on the court, but particularly for me it is a pleasure to have a second woman on the court.
+- It matters enormously to a successful democratic society like ours that we have three branches of government, each with some independence and some control over the other two. That's set out in the Constitution.
+- I'm a judge. It seemed to me that it was critical to try to take action to stem the criticism and help people understand that in the constitutional framework, it's terribly important not to have a system of retaliation against decisions people don't like.
+- Parents should continue to become more involved with their communities, and more involved in their children's education.
+- Apparently a great many people have forgotten that the framers of our Constitution went to such great effort to create an independent judicial branch that would not be subject to retaliation by either the executive branch or the legislative branch because of some decision made by those judges.
+- It is difficult to discern a serious threat to religious liberty from a room of silent, thoughtful schoolchildren.
+- If I stumbled badly in doing the job, I think it would have made life more difficult for women, and that was a great concern of mine and still is.
+- My hope is that 10 years from now, after I've been across the street at work for a while, they'll all be glad they gave me that wonderful vote.
+- Occasionally we have to interpret an international treaty - one, perhaps, affecting airlines and liability for injury to passengers or damage to goods. Then, of course, we have to look to the precedents of other member nations in resolving issues.
+- Historically courts in this country have been insulated. We do not look beyond our borders for precedents.
+- Society as a whole benefits immeasurably from a climate in which all persons, regardless of race or gender, may have the opportunity to earn respect, responsibility, advancement and remuneration based on ability.
+- It is a measure of the framers' fear that a passing majority might find it expedient to compromise 4th Amendment values that these values were embodied in the Constitution itself.
+- The more education a woman has, the wider the gap between men's and women's earnings for the same work.
+- The freedom to criticize judges and other public officials is necessary to a vibrant democracy.
+- Young women today often have very little appreciation for the real battles that took place to get women where they are today in this country. I don't know how much history young women today know about those battles.
+- The freedom to criticize judges and other public officials is necessary to a vibrant democracy. The problem comes when healthy criticism is replaced with more destructive intimidation and sanctions.
+- My concern was whether I could do the job of a justice well enough to convince the nation that my appointment was the right move.
+- For students, understanding the separate and unique functions of each branch of government can help them understand how different kinds of government officials can help solve different kinds of problems.
+- The Establishment Clause prohibits government from making adherence to a religion relevant in any way to a person's standing in the political community.
+- It is true that as you have children, there are a good many months when you don't want to be working full-time. I agree that that's an issue.
+- I tried to decide each case based on the law and the Constitution.
+- As a citizen, you need to know how to be a part of it, how to express yourself - and not just by voting.
+- In terms of having the American people look at the court and think of it as being fair and appropriate for our nation, it helps to have women, plural, on the court.
+- I loved my husband very much, and it was heartbreaking to have him develop Alzheimer's disease, and to stand by and watch him decline in his ability to take care of himself.
+- If parents instill a sense of civic-mindedness - and there is no better way to do that than by example - their children will probably follow.
+- I need to retire from retirement.
+- Commitment to the rule of law provides a basic assurance that people can know what to expect whether what they do is popular or unpopular at the time.
+- The members of the court were just delighted to have a ninth member - male or female. They were all kind and welcoming.
+- When I went to law school, which after all was back in the dark ages, we never looked beyond our borders for precedents. As a state court judge, it never would have occurred to me to do so, and when I got to the Supreme Court, it was very much the same. We just didn't do it.
+- Half the states have stopped making civics and government a requirement for high school. Half.
+- Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.
+- We pay a price when we deprive children of the exposure to the values, principles, and education they need to make them good citizens.
+- You have citizens who don't understand how government works and they're kind of soured on it. All they do is criticize. They have no idea that they can make things happen.
+- I care very much about women and their progress. I didn't go march in the streets, but when I was in the Arizona Legislature, one of the things that I did was to examine every single statute in the state of Arizona to pick out the ones that discriminated against women and get them changed.
+- Despite the encouraging and wonderful gains and the changes for women which have occurred in my lifetime, there is still room to advance and to promote correction of the remaining deficiencies and imbalances.
+- Each of us brings to our job, whatever it is, our lifetime of experience and our values.
+- I had become increasingly concerned in recent years about the lack of civics education in our nation's schools. In recent years, the schools have stopped teaching it. And it's unfortunate.
+- Well, it's a little odd, the path I took, because when I was young, I wanted to be a cattle rancher. That was what I knew and that was what I liked.
+- It was better for me when I was joined at the court by a second woman. When I was there alone, there was too much media focus on the one woman, and the minute we got another woman, that changed.
+- I sort of thought the framers of the Constitution were talking about the rights of individuals, not corporate entities.
+- I think we may be seeing the beginnings of a resurgence of civic-mindedness in this country. Hopefully the younger generations, which came out in record numbers during the last presidential election, will pass their enthusiasm on to their children.
+- The framers of the Constitution were so clear in the federalist papers and elsewhere that they felt an independent judiciary was critical to the success of the nation.
+- A moment of silence is not inherently religious.
+- If you take a position under the Constitution that is against the majority view, you have to explain it well enough that maybe you can persuade some of that majority to agree with you.
+- Do the best you can in every task, no matter how unimportant it may seem at the time. No one learns more about a problem than the person at the bottom.
+- There was no hostility at the court when I arrived.
+- And I went off to Stanford, I was pretty young and pretty naive. And I had a professor I really loved, who was himself a lawyer.
+- The abortion cases produced an enormous amount of mail to my chambers, vastly more than to the other chambers, I am sure. I sometimes thought there wasn't a woman in the United States who didn't write me a letter on one side or the other of that issue.
+- We don't accomplish anything in this world alone... and whatever happens is the result of the whole tapestry of one's life and all the weavings of individual threads form one to another that creates something.
+- Yes, I will bring the understanding of a woman to the Court, but I doubt that alone will affect my decisions.

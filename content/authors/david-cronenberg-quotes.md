@@ -1,0 +1,41 @@
++++
+author = "David Cronenberg"
+title = "David Cronenberg Quotes"
+quotes_len = "35"
+description = "the best 35 David Cronenberg Quotes"
++++
+- I see technology as being an extension of the human body.
+- The problem with doing a schlocky or big budget studio film is that it wouldn't actually be fun for me. It wouldn't be exciting.
+- Censors tend to do what only psychotics do: they confuse reality with illusion.
+- When you're in the muck you can only see muck. If you somehow manage to float above it, you still see the muck but you see it from a different perspective. And you see other things too. That's the consolation of philosophy.
+- I'm just observing the world. I was born into it, like you were, and then I found out there were some really disturbing aspects to being alive, like the fact that you weren't going to be alive forever - that bothered me.
+- I also think the relationship I have with my audience is a lot more complex than what Hitchcock seemed to want his to be - although I think he had more going on under the surface as well.
+- The filmmaking process is a very personal one to me, I mean it really is a personal kind of communication. It's not as though its a study of fear or any of that stuff.
+- Everybody's a mad scientist, and life is their lab. We're all trying to experiment to find a way to live, to solve problems, to fend off madness and chaos.
+- I think of horror films as art, as films of confrontation. Films that make you confront aspects of your own life that are difficult to face. Just because you're making a horror film doesn't mean you can't make an artful film.
+- Well I don't think sex and violence have ever stopped a movie from being mainstream.
+- Nah, I've done sex scenes before, you know, like in video.
+- Let's put it this way, when I was casting, I cast Viggo first and then found someone who could play his wife, rather than the other way around. So for me he's still the lead character.
+- We are at a major epoch in human history, which is that we don't need sex to recreate the race. You can have babies without sex. This is the first time in human history that has been true, and it means, for example, we could do some extraordinary things.
+- The more unique your film is and unusual it is and difficult it is, the harder it is to get it financed. That's why a lot of good filmmakers are doing television. They do HBO movies.
+- But with my last film, Spider it was agony. The money was always disappearing, nobody got paid, it was very difficult - and it's very distracting from the process of making the movie, of course. So I think things have been getting harder and harder.
+- But when you're writing a script - for me anyway - you have to sort of create an enforced innocence. You have to divest yourself of worrying about a lot of stuff like what movies are hot, what movies are not hot, what the budget of this movie might be.
+- Re-writing is different from writing. Original writing is very difficult.
+- For example I don't work with William Hurt the same way that I will work with Viggo. They're different guys and they work in different ways. So a good sensitive director has his general style and technique and personality that he uses but you don't impose that on the actors.
+- You have to believe in God before you can say there are things that man was not meant to know. I don't think there's anything man wasn't meant to know. There are just some stupid things that people shouldn't do.
+- The process of making a movie has expanded in terms of effort and time for the director, doing commentaries for the DVD for example, finishing deleted scenes so they could be on the DVD, and doing things like a web blog.
+- Of course for many years directors have had to go on the road with their movies and promote them and I've done that since the beginning. So that's not new but the forms of it are different such as with the internet.
+- If you put yourself in a group of people you cannot work with it's obviously going to be a disaster.
+- Technology is us. There is no separation. It's a pure expression of human creative will. It doesn't exist anywhere else in the universe. I'm rather sure of that.
+- Each kid has a different level of expertise and some of them are very raw and inexperienced and some are incredibly mature and experienced. So you just have to go with what they are rather than have some abstract technique that you're going to try to apply to them.
+- Do you remember when you found out you wouldn't live forever? People don't talk about this, but everybody had to go through it because you're not born with that knowledge.
+- You know, there's a saying in art that in order to be universal you must be specific. So I think every artist feels that he is dealing with specific things but that it also has significance universally.
+- All stereotypes turn out to be true. This is a horrifying thing about life. All those things you fought against as a youth: you begin to realize they're stereotypes because they're true.
+- Anybody who comes to the cinema is bringing they're whole sexual history, their literary history, their movie literacy, their culture, their language, their religion, whatever they've got. I can't possibly manipulate all of that, nor do I want to.
+- Even Hitchcock liked to think of himself as a puppeteer who was manipulating the strings of his audience and making them jump. He liked to think he had that kind of control.
+- I don't have a moral plan, I'm a Canadian.
+- You're seeing me develop, not only as a filmmaker if you've seen my earlier films, but you're seeing me kind of learn how to be a human, how my philosophy has evolved.
+- I don't mind writing so I didn't find that difficult, it's just a question of finding the time to do it. I kind of like the direct connection with the fans actually, it's pretty neat.
+- I never thought I was doing the same thing as directors like John Carpenter, George Romero, and sometimes even Hitchcock, even though I've been sometimes compared to those other guys. We're after different game.
+- For me, the first fact of human existence is the human body. But if you embrace the reality of the human body, you embrace mortality, and that is a very difficult thing for anything to do because the self-conscious mind cannot imagine non-existence. It's impossible to do.
+- So not only can you not imagine dying, you can't really imagine existence before you were born.

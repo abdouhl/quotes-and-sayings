@@ -1,0 +1,58 @@
++++
+author = "Elsa Hosk"
+title = "Elsa Hosk Quotes"
+quotes_len = "52"
+description = "the best 52 Elsa Hosk Quotes"
++++
+- You're in a bathing suit pretty much all year round working for Victoria's Secret. There's so many shoots, and we're always in lingerie, so you kinda always have to be prepared and ready.
+- Swedish people live for the summer - it transforms everyone. I don't want to miss having a Swedish summer vacation for as long as I live. It's my favorite thing in the world.
+- My hair gets very light in the summer, but the problem with using all these products and going into the pool a lot is that my hair gets very yellow. I love purple shampoo!
+- Just knowing how the body works and being athletic means it's easier to stay athletic while working a different job.
+- Being the face of 'Pink' is the greatest gig ever. The company has become like a little family for me in N.Y.C. I am constantly working with new people, and every day feels like the first day of school.
+- All-time favorite workout is basketball. It's very hard to do basketball training, though, but it's my favorite.
+- Actually, when I say my name in the U.S., people are like 'You're Elsa from Frozen!' And I'm like, I can't break their hearts, 'I could be!'
+- Working with Victoria's Secret, it is very celebrated to have curves.
+- My dad put up a basket on my street, and I was practicing every day. It was just nuts. But I miss it. Whenever I see a ball, I get itchy!
+- Black liner looks harsh on me because I'm so blond, so I do a brown liner with a black mascara. My favorite is 'L'Oreal Voluminous' on my top and bottom lashes. For a while, I only did mascara on the upper lashes, but it makes me look too pretty.
+- Playing sports is great when you're young. It teaches you how to focus, how to direct your energy, how not to think about a million other things that are going on.
+- I love fashion, so I'm always into new things. I'm not necessarily a trend-driven person. I like to kind of do my own thing.
+- I try to eat whatever I want. I don't like putting myself on a diet, but I try to eat organic, healthy, and lean with lots of green vegetables.
+- Boxing makes you kind of tight, so it's really good to mix that with barre, Pilates, or something that'll stretch you out and make you longer. I'm not the person that loves to be in the gym so much. I like to mix it up as much as possible; otherwise, I'll get bored.
+- When I was growing up, around 14, it wasn't really cool at the time to have a big butt. I would always cover it with sweaters, and I was so ashamed of it. Now I'm like, 'Why would I ever do that? That's awful!' Don't change yourself, and don't try to be anyone who you're not.
+- On my lips, I just do a little bit of liner, just a color silhouette.
+- I generally always eat what I want. I think when you work out a lot, you can afford to eat more because your body's metabolism is higher. I like healthy food and prefer that anyways, but if I want pizza or a can of Coca-Cola every once in a while, I'm going to have it. I just try to have a few slices, and that's it.
+- I have a boxing trainer at a gym, which is really fun. And I also try to complement it with flybarre, which is lengthening, strengthening, toning, just tightening everything up.
+- I love 'Victoria's Secret Sport' because what they do so well is the fit and how it makes you feel. They sculpt all the right parts of your body. Plus, there's so much to choose from - colors, prints, and cool details. It's dangerous - you want everything.
+- When I model, I use every single muscle in my body. Being fit and physical lets me know that control.
+- My eyeliner is this Kat Von D Tattoo Liner... I've tried every single eyeliner, and this is the best. I use it in Mad Max Brown.
+- I miss the archipelago, the islands outside of Stockholm, the most. That's where I spent my summers as a kid. Going on a boat and island-hopping. In August, we have a crayfish party.
+- Oh my God, I sweat so much! You have to keep deodorant in your purse and use those deodorising wipes that cool you off a bit.
+- Sleep is so important. I think more important than we know. When I haven't slept, I'm not myself. I'm not as easy-going.
+- In the daytime during the summer, I only wear 'Laura Mercier Secret Camouflage Concealer' for coverage. I keep that in my bag at all times. I love 'RMS Buriti Bronzer' because it has a little bit of red in it, and my skin is on the reddish side, so it matches really well.
+- Lots of weight training, squats, a little bit of cardio, but mostly just adding more weights into my workouts. And working out with friends to make it fun. That's always so important.
+- Natalia Vodianova is a model who always did it right. She was able to just put her personality out there, and I try to do that all the time.
+- I like a good cleanse in the morning, and I use 'Cetaphil', which is cheap but really works.
+- Being a model, you're constantly judged on the way you look, but I think you have to be really strong and confident in knowing who you are and not take anything personally, you know, because not everybody can like you, and not everybody will think you're beautiful.
+- It was a long time ago: I was 13, and my dad actually sent photos to two different agencies of all of my family, and I had no idea.
+- I would never wear a look that was all the same designer. I always wear at least one thing that is vintage. I dress according to my mood, and I usually spend money on the basics, like leather jackets, handbags, sweaters and shoes.
+- I fall asleep to a movie every night! I don't have a go-to movie, but I like Netflix or whatever I can find. Usually, it's just noise in the background; I think it's damage from living in New York, where it's so noisy.
+- Everyone has their awkward phase. I think everything passes, and that is key to remember - none of us looked like this when we were younger... Everybody grows into themselves, and you learn about yourself.
+- I used to hate my butt - like, hate it. In school, I used to cover it up. I felt like it was too big; like, I felt like I needed to wear a sweater over it. It was awful.
+- I like to be completely exhausted when I go to bed, so if I worked out and I had a long day, that's enough for me. Then I get on the bed and oof! So nice.
+- Right now there are a lot of Angels represented. We are from all over the world. We come from different backgrounds. We all had different lives before this, so it is really interesting how a lot of different nationalities are represented, and it is super cool.
+- I like vintage stores - all over the world. I have a little collection of my favorite stores here and there. Other than that, I love online shopping.
+- Don't compare yourself to anybody. I did that a lot when I was younger. I was so insecure about my butt.
+- I always do the same makeup because it's what works with my face. Just eyeliner and lots of mascara - very '60s.
+- Josie Maran anything! Love her products, especially the argan sun block moisturizer, and RMS beauty anything, always. Her eye polish colors are insane. I also always keep an Eau So Sexy rollerball by Victoria's Secret in my bag.
+- My favorite part about modeling is probably my least favorite part as well. It's traveling. Because it goes both ways. It's so amazing to get to see the world; we're so fortunate to go to all these places that I would never be in unless I was a model.
+- I switch my products so much, but right now, I'm really into organic skin care. I hope it's here to stay. I like that whole vibe and just being really gentle with your skin and not putting too much products that are harsh.
+- I know I have one of the best jobs in the world. These days, models are allowed to have bigger personalities and be celebrities on their own.
+- It has taken me so long to understand my skin, but the formula that works best for me is, gentle and less is more. But I do cleanse my skin well at night with a good natural cleanser by Dr. Hauschka or Avalon Organics.
+- Just having the whole control over your body is so important when you're modelling - to just be able to know exactly what you look like and what you're doing.
+- I love to relax. It's my favorite thing in the world. I am very good at being like a grandma and staying in and watching 'Game of Thrones' or a movie. I think I could do that every night.
+- I like a good mattress, first of all. I have a Hestia bed, and it's the best mattress in the world. I like it pretty cold because I can't sleep when it's really hot.
+- I think life is so much about enjoying and not punishing yourself or restricting yourself too much. The more I let go of all my rules, the more free and happy I am, and nothing happens. So I just enjoy.
+- I have so many indulgences - way too many. But I think also you work out to be able to eat what you want. You can be healthy, but you have to let yourself live.
+- When I work out, I make healthier choices in all areas of life, and when I don't, I tend to slack on other things, too, so I like to keep a good routine going.
+- I love the 'Victoria's Secret Knockout Front-close Strappy-back Sport Bra.' After a strenuous and sweaty workout, I don't have to pull it over my head to take it off. The front close makes it very convenient and easy, and the strappy back is super sexy!
+- I use argan oil when I have dry ends. A good hair brush, like a Mason Pearson, is great because it doesn't damage the hair. I like Kerastase shampoo and conditioner best.

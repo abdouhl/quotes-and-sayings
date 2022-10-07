@@ -1,0 +1,49 @@
++++
+author = "Wendell Pierce"
+title = "Wendell Pierce Quotes"
+quotes_len = "43"
+description = "the best 43 Wendell Pierce Quotes"
++++
+- New Orleans, more than many places I know, actually tangibly lives its culture. It's not just a residual of life; it's a part of life. Music is at every major milestone of our life: birth, marriage, death. It's our culture.
+- I worked at the American Conservatory Theater in San Francisco, lived there for three years, and lived in Baltimore for 12 years.
+- I would love to do an anthology show based on the character of Jesse B. Semple that Langston Hughes wrote about. He's sort of a Forrest Gump character in the midst of 20th century Harlem.
+- The power of a sports team in a community it's almost indescribable.
+- I consider myself a journeyman actor, and I pride myself and look forward to keeping my career choices as diverse as possible because it challenges me as an actor.
+- When a sports team is doing well in a city that's going through tough times like New Orleans, like Detroit, it bolsters this real sentiment of 'we can get through this.' And when you have that sentiment, it becomes more than feelings: It's transported into action.
+- One of the great things my grandparents and grandparents taught me was, there are those who don't have your best interests at heart.
+- We always see abhorrent behavior and say why, but then we get mad when somebody tries to answer.
+- It was really great to also see the response that people were having to 'Treme' 'cause you're in a vacuum when you're on a TV show. You see the response online, you read about it and all of that, but actually to be live and have that many thousands of fans come out, it's really wonderful.
+- One of the real worries I had before the first season of 'Treme' aired was that, man, people in New Orleans really hold movie and television shows up to a high standard in how they depict the city.
+- The key, I always thought, to my career would be diversity - a diversity of not only the type of work that you do but the mediums.
+- I just know that 'Treme' broke ground when it comes to music and film on television.
+- I would love to see a real story about Fred Hampton.
+- 'The Wire' really is an American classic, and I think that's something to be very proud of.
+- I trained at Juilliard so that I could do all kinds of genres, so that's what I'm trained to do.
+- Be your true self. Because if you're not, there are consequences to be paid.
+- The NFL is such a large, multibillion dollar enterprise with fan loyalty because they have provided not only entertainment for sports fans, but memories, good memories, family memories to these fans, that can only bring about good will.
+- Great art, the more specific you are, the more universal it becomes, and that's the thing that I loved about 'The Wire.'
+- David Simon is a brilliant writer, brilliant at being able to take what is ordinary and make it extraordinary.
+- It strengthens the acting muscles to tap into other parts of yourself. When you can accomplish something that's unexpected, for you as well as the audience, that's really important. It's also very important if you want people considering you for other projects to broaden their view of you.
+- My father was so against me becoming an actor.
+- Juilliard gave me the ability to go and do classical, contemporary, comedy, drama, everything.
+- I played trumpet for about two weeks. Sixth grade. And I didn't practice. Maybe a little longer than two weeks, but I didn't practice and I was faking it.
+- A lot of cats in New Orleans, very soulful, very soulful musicians and they assume that they're singers. And they just make that assumption. And so when there's a little intonation problem, people are very forgiving of them because they heard how soulful they play.
+- My dad prepared me for the worst of times while also enabling me to succeed in the best. He taught me to confront the insidiousness of racism head on, no matter what the ramification, so it will not fester. Defeat it and get past it. That was The Talk. Nothing scared me after that.
+- I'm a multitasker, and I kind of like it that way.
+- Culture is the intersection of people and life itself. It's how we deal with life, love, death, birth, disappointment... all of that is expressed in culture.
+- At Julliard we had some voice classes. It was really just so you could carry a tune. It always just helps with your speaking voice also, when you connect your diaphragm and your breath.
+- My mother was a teacher for 40 years. She was part of the United Teachers of New Orleans.
+- I went to Beijing for the Olympics and was literally right across the track from Usain Bolt. And when he gets to full stride, for every two steps the other guy's taking, he's just taking one.
+- And that's what art is, a form in which people can reflect on who we are as human beings and come to some understanding of this journey we are on.
+- Jon Voight is a consummate American actor.
+- What thoughts are to the individual, art is to the community as a whole. That's where you reflect on who you are, who you hope to be, what you've gone through, and where you hope to go.
+- In 1974, when the city of Boston was desegregating its schools, I watched the news with my dad and saw the police escorts in riot gear, the protesters screaming at the buses, small frightened faces in their windows.
+- The social justice movement of the 21st century is economic development.
+- I have so much love for art.
+- Ultimately, I would love to do 'The Emperor of Ocean Park' by Stephen Carter.
+- The role of culture is that it's the form through which we as a society reflect on who we are, where we've been, where we hope to be.
+- In our house, my dad had a chair. It was a Barcalounger, big and comfortable. If we missed him or wanted comfort when he wasn't home, we'd just climb into the chair and let it envelop us.
+- Gregory Hines was the most talented man I've ever met or seen. Gregory Hines is one of those people that whenever he talked to you, you felt like you were the center of the universe.
+- The world, post-Katrina, was a hard time for my city. The hardest time. For people who didn't live through it, no words can fully express the pain, the rage, the grief, and the futility we New Orleanians felt. For the people who did, words seemed like a feeble protest against a relentless night without end.
+- Coming out of school, sometimes people can be theater snobs. I only wanted to do theater, highbrow stuff. But what I learned very quickly is there can be good material in every genre.
+- I tell people all the time: get some training and become a student of your craft.

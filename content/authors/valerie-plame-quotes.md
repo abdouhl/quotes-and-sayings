@@ -1,0 +1,99 @@
++++
+author = "Valerie Plame"
+title = "Valerie Plame Quotes"
+quotes_len = "93"
+description = "the best 93 Valerie Plame Quotes"
++++
+- Even those that hate Hillary admit she is a work horse and not a show horse. She gets down into the nuts and bolts and figures out, 'What's the policy, what's the substance?'
+- One characteristic that I hope I never relinquish is an intense curiosity about the world around me.
+- Our critics would love nothing more for us to go away and just be quiet. And we won't give them that satisfaction. We have young children that, one day, when they understand more of what's happened and what's transpired, we wanna be able to say to them, you know, we did our best. And we told the truth.
+- I didn't appreciate how special and sometimes strange my CIA world was - until it suddenly and spectacularly ended in a newspaper column.
+- After President Obama's election in 2008, there was a widespread hope that it would mark an end to unseemly partisan nastiness.
+- Of course the job has a lot of glamour. But it really is about being smarter than your average bear. Your mind is your best weapon. It's great when you're a good shot with an AK-47, but it's about being clever.
+- From a counter-intelligence viewpoint, the OPM breach is really scary - but if we continue to see the erosion of purely commercial enterprises, where people lose confidence, the economy falters.
+- Whatever you think of Trump, I think most people would agree he is impulsive, and we certainly have an impulsive leader in North Korea in Kim Jong-un. That's an unholy combination.
+- My CIA colleagues were smart, dedicated, funny, and creative. Yes, there was sometimes stifling bureaucracy, boredom, colleagues who never should have been there, and later, deeply disturbing stories of the CIA's involvement in torture. Still, I got to do work I thought was incredibly important and, many times, had fun doing it.
+- I think feeling bitter or angry is really useless.
+- I can tell you, all the intelligence services in the world were running my name through their databases to see did anyone by this name come in the country? When? Do we know anything about it? Where did she stay? Who did she see?
+- There is definitely a sense that when you, as a CIA ops officer... are handling assets, they are delivering to you their trust and their well-being. And you feel very protective of them, even if they're not very nice people.
+- I come from a family in which public service was something to aspire to.
+- The Comprehensive Nuclear Test Ban Treaty, which in 1996 set out to ban nuclear tests, is an important step, but we need to do more - and we can.
+- My father was an air officer in the Second World War. My brother was a marine in Vietnam. When I was given this opportunity, I leapt at the chance because I thought it would be a hell of a lot more interesting than what my friends were doing.
+- Of course we wish that more people involved in the leak of my true CIA identity had been prosecuted, but the system worked.
+- There is no question that what we are seeing - the horrible advance of ISIS - goes back, if you will, to the original sin of the invasion of Iraq.
+- For me, I thought I had the best job in the world.
+- I think it's the height of patriotism to continue to exercise your right as a citizen and to hold your government to account. Isn't that what the very essence of democracy is about?
+- When I was happily married and found myself pregnant, I just thought that this would be just the next, normal chapter. I was absolutely thrilled. So what a surprise it was when it turned out to be the hardest thing I've ever done.
+- A chief of station is the head of all intelligence operations in any given country.
+- We need the best and the brightest to go into public service.
+- It's some weird idea to think that you've always got to say everything is great and perfect.
+- If Russia did interfere in our election - and, by most accounts, they did - then it is imperative for the health of our democracy to have a thorough and unbiased investigation into the matter.
+- Privatization is more efficient and effective in some cases, but not in intelligence.
+- I first learned the power of trust in the CIA. There is no question that when I joined the Agency as a covert operations officer, it was still run along the 'old boys' network' model.
+- I believe in much more diplomacy, not less.
+- I love my career. I thought, if I was lucky, I would retire as a senior intelligence officer, still working on the issues of counterproliferation. But that didn't happen, so - new chapter.
+- We in no way are naive to think that just because Russia and the United States agree to reduce their arsenals, that everyone else will fall in line.
+- I go to my kids' sports games and don't have to carry the enormous burden of secrecy with me every day. However, adrenaline still courses through my body whenever I go through passport control to another country.
+- North Korea is the errant teenage child, aren't they? Or toddler - they're holding their breath until they get their way.
+- The entire intelligence community is so bloated and so reliant on contractors. There's no question there's many tasks that make sense to outsource, and yet, we have followed blindly this dogma that if it's private contracting, it must be better.
+- I did a book event with a former colleague, Bob Bauer, and was so relieved that he said I got all the CIA stuff right.
+- Looking back at my career, I wish I knew then what I know now... that gender bias is built into the system, and it's unconscious in many ways. I wish I had the maturity and courage to have pushed back more. I was always trying to be a 'good girl' and play by the rules.
+- I think the Bush Administration was bound and determined on regime change, and we will be paying the price of that for some time to come.
+- I want to shine a spotlight on showing how dangerous Trump and his Twitter button can be.
+- Any time you're a poster child for the CIA, there are a lot of people that are - either have ideological or they are mentally unbalanced - that are going to try to find you and perhaps cause you harm.
+- It's lonely. That's why, in many ways, the CIA is the world's biggest dating agency, I think. I imagine it's much like two actors that get married because they understand that universe. You know, I'm pretty sure the agency's divorce rate is rather high.
+- How lucky are we to have Naomi Watts and Sean Penn playing us? We've seen the final cut now a couple times, and the scenes with the marriage fraying at the edges are still very difficult to watch. However, our hope was that no matter your political persuasion, you're taken with the idea that it's important to hold power in check.
+- In the CIA, they recruit you to be an officer, an ops officer, in part due to how well you cope with stress and how well you adapt to new situations.
+- Of course, when you're a parent, that's your paramount concern, for your children, and there were some very credible and frightening threats, and the agency declined to provide any security, and it felt like a betrayal all over again. It was really painful.
+- I think, honestly, my largest concern, there are a lot of unbalanced people out there, and all of a sudden, I'm the CIA poster girl, and our home in Washington, the front door was about 20 feet from the street. I went to the agency at a certain point and asked for security on a residence.
+- The human and environmental devastation caused by nuclear weapons - whether by testing, mistake or malice - is the very reason we need to eliminate them altogether.
+- These are issues we've been grappling with since the Constitution was written: how you hold your government to account for its words and deeds. It's all about power and the abuse of power.
+- I certainly didn't reach out to my old assets and ask 'em how they're doing, although I would have liked to.
+- I do not subscribe to the 'Trump is crazy like a fox' thing. I think that's being too generous.
+- The truth is, as long as nuclear weapons exist, we are not safe.
+- Certainly, if we had not invaded Iraq on intelligence that was clearly manipulated and cherry picked, we would be in a different position today.
+- Hillary stood with us, as she has stood with so many over the years, and we are proud to stand with her for our country now.
+- When President Ronald Reagan negotiated some significant arms reduction deals with the then-Soviet Union, he was considered a real hero, someone who was advocating for peace.
+- There's no way you can possibly intellectually justify, 'Well, it's okay for the Western Judeo-Christian countries to have nuclear weapons, but not for a country like Iran.' That logic goes nowhere fast.
+- Over the years, from serving in the CIA to sitting on non-profit boards, I have observed first-hand what the addition of even one woman to a meeting or to a decision-making body can do. Put simply, in very many instances, group dynamics improve markedly.
+- Americans want to believe that we are a nation of laws, and no one is above them, including the president. Mr. Trump's and his associates' actions during his campaign and during his brief time in office are extremely troubling.
+- I have always been appalled by the depiction of female CIA operatives.
+- When an issue is so fraught with partisanship, a special counsel provides some modicum of transparency and accountability rather the the veil of politics.
+- Of course, we all watch James Bond with envy - knowing the U.S. government would never pay for the lifestyle he enjoys.
+- When I was outed on July 14th, 2003, I was, until that moment, covert. That means no one outside of a very small circle knew where I really worked.
+- When we were subjected to a vicious character assassination campaign orchestrated by senior White House officials and championed by their allies in the right-wing echo chamber, Hillary reached out to us. Her counsel during that tumultuous period was as timely as it was wise.
+- We've made some good beginnings with the New START Treaty, but a lot more can be done.
+- In many, many parts of the world, being a female, you're really just wallpaper. If you take care to blend in, no one would think in a thousand years that you were doing anything suspicious.
+- The fundamental problem is not that Trump has access to the nuclear launch codes, but that they exist at all.
+- Hollywood does tend to portray CIA officers as totally the honey trap. Looks matter as they do in any profession. But the most important thing for me when I was working was blending into my environment.
+- She was very kind to us when Joe and I went through the darkest days of the leak of my name in 2003. And, of course, Joe worked in the Clinton White House.
+- Joe and I are still very aware of the fact that we live in a country where he criticised the government and lived another day. That trumps all. To paraphrase Churchill, democracy is the worst form of government apart from all the other forms of government. You constantly have to fight for it; you have to keep your government honest.
+- I'm not terribly confrontational, but I've gotten better at holding my ground.
+- I don't care if you are for having Mexico pay for the border wall, or you want to repeal and replace Obamacare, or if you want women to have complete access to reproductive rights - I don't care. The fact is, if you don't get the nuclear issue right, none of the other ones matter.
+- I really believe the nexus of terrorism and nuclear weapons is the world's most ominous threat.
+- According to the 2000 'Report of the U.N. Scientific Committee on the Effects of Atomic Radiation,' the long-lasting effects of nuclear testing can be qualified in simple scientific terms: 'Radiation exposure can damage living cells, causing death in some of them and modifying others.'
+- I was working for the CIA and prohibited from speaking publicly.
+- The intelligence community really is a vast bureaucratic entity, and it has been politicized in ways that are not effective for the gathering of intelligence and giving it to senior policymakers.
+- Regarding Wikileaks, I have profound ambivalent feelings about it. I am a firm believer in a strong intelligence service. There's a need for classified information.
+- Hair and make-up always helps. I did always try to be well-groomed, professional at all times. Take your job seriously - but not yourself.
+- I am angry when I hear things like Cheney whispering into Bush's ear on the way to Obama's inauguration to ask him to pardon 'Scooter' Libby and not to 'leave a soldier on the battlefield'. What kind of metaphor is that for his petty partisan views, when you have men and women giving the ultimate sacrifice? I have nothing but contempt.
+- I find it really hard to relate to the Bond women or Angelina Jolie in 'Salt.' And of course it's informed by my experiences and the people I've met along the way and the places I've been.
+- We have known Hillary Clinton both professionally and personally for close to 20 years, dating back to before President Bill Clinton's first trip to Africa in 1998 - a trip that they both acknowledge changed their lives and gave considerable meaning to their post-White House years and to the activities of the Clinton Foundation.
+- There is not adequate whistleblower protection.
+- We don't have to sit by while Trump uses his enormous global platform to undermine our national security. We would love to be able to actually force Twitter's hand to live up to its rules, explicitly forbidding hate speech and encouraging violence.
+- Joe was being called a liar and a traitor; I'm being accused of nepotism, of being a glorified secretary. The stresses that that places on an individual and, of course, a marriage were tremendous. It was - there were some dark days.
+- The great thing about fiction is you can fix things and make things better.
+- I know having a Jason Bourne all alone in a field firing at bad guys is much more dramatic, but it's not real.
+- My take is, privacy is precious. I think privacy is the last true luxury. To be able to live your life as you choose without having everyone comment on it or know about.
+- I would never jeopardize classified information. I served my country well and loyally, and I had to sue the C.I.A. on First Amendment grounds.
+- I've been working with Global Zero. They are a great organization leading the resistance against nuclear war and the elimination of nuclear weapons.
+- There's a huge impact on national security and intelligence. The new normal is going to be more and more of these hacks, whether it's Target or Home Depot or the Office of Personnel Management or Jennifer Lawrence's nude photos.
+- Leaks are always bad news.
+- The options are war versus peace, and I am delighted that, so far, it appears that peaceful negotiation has won the day.
+- To my knowledge, no one has died from a cyberattack... but there is a gray area between peace and war.
+- Our mission was to make sure that the bad guys, basically, did not get nuclear weapons.
+- I've moved on to Plan B now, writing novels.
+- So many times, genuine health workers and genuine NGO folks are really just trying to help other humans in whatever capacity they can. But they are perceived as being CIA, and therefore, it blocks their effectiveness.
+- When you're in the CIA, you anticipate the possibility that you'll be betrayed by a foreign government or a source, but you never anticipate that it would be by your own government.
+- After I resigned, I could eventually speak for myself, but when it first happened, I was in complete shock, and it took a long time for me to overcome it.
+- When you work for the C.I.A. or as a diplomat, or serve in the military, you're not serving as a Democrat or a Republican; you serve as an American, whatever your personal moral compass or political views might be. So that would describe me.

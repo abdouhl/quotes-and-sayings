@@ -1,0 +1,81 @@
++++
+author = "Wes Craven"
+title = "Wes Craven Quotes"
+quotes_len = "75"
+description = "the best 75 Wes Craven Quotes"
++++
+- My mother wouldn't even let me read DC Comics. I came from a very strict background.
+- I come from a blue-collar family, and I'm just glad for the work.
+- I've done a few interviews where I realized that 9/11 was the ultimate home invasion, not to be glib about it. You know, where the place that you think is safe and the people that you think are safe and far from evil are suddenly just slaughtered by it, and you have no control over it.
+- You don't enter the theater and pay your money to be afraid. You enter the theater and pay your money to have the fears that are already in you when you go into a theater dealt with and put into a narrative.
+- Hawks is great, 'The Treasure of Sierra Madre,' 'The Big Sleep'... He could do the Salt-of-the-Earth very well. He was a very smooth director; a very good film architect in terms of his storytelling.
+- A lot of life is dealing with your curse, dealing with the cards you were given that aren't so nice. Does it make you into a monster, or can you temper it in some way, or accept it and go in some other direction?
+- I can see that I give my audience something. I can see it in their eyes, and they say 'Thank you' a lot. You realize you are doing something that means something to people.
+- I have a lot of fans who are people of color. I think, if nothing else, I kind of understand that sense of being on the outside looking in, culturally.
+- I did many things in my life - I painted, and I'd play guitar, and wrote and did many things. But it all seemed to come together in making movies, and almost accidentally.
+- In general, I don't even have the luxury of rehearsal time on most films that I make. It is just a scene-by-scene full cast read through. It's very much just doing the rehearsal sometimes the day before, at the end of the day, but just on the spot as the scene unfolds.
+- You have to be aware of what the audience's expectations are, and then you have to pervert them, basically, and hit them upside the head from a direction they weren't looking.
+- I learned to take the first job that you have in the business that you want to get into. It doesn't matter what that job is, you get your foot in the door.
+- You just find the best actors that you can. There's an inherent drama within the framework of scares and killings and all that. In 'Scream,' there is very real drama that would be in almost any drama.
+- I remember going to a funeral at a very fundamentalist church, and I just had to get out of there. I went out in the parking lot and just sobbed. I think there was a sense of loss of that little boy not knowing if he was right or wrong. Everything I grew up with I had to walk away from.
+- 'Nightmare on Elm Street' wasn't that big. Over a long period of time it did very well, but this was different. 'Scream' didn't have a strong first weekend, and it went down the second, but then it kept going up.
+- I went to a Christian college. You would be expelled if you were caught in a movie theater. It was ridiculous.
+- I think I wrote the first draft of 'Nightmare on Elm Street' in '79. No one wanted to buy it. Nobody. I felt very strongly about it, so I stayed with it and kept paying my assistant and everything. At a certain point, I was literally flat broke.
+- You want to give the person as much freedom as you can within the boundaries of being a responsible producer with a contract to a studio. It's about giving as much freedom as you can, and the more the filmmaker proves he or she is on the track that you feel good about, then you just kind of watch dailies.
+- I didn't even know what a horror film was. I kind of made it up as I went along.
+- I was anathema in polite society after I made 'Last House.' People literally would grab their children and run from the room.
+- All of us have our individual curses, something that we are uncomfortable with and something that we have to deal with, like me making horror films, perhaps.
+- The first monster you have to scare the audience with is yourself.
+- Stories and narratives are one of the most powerful things in humanity. They're devices for dealing with the chaotic danger of existence.
+- The whole business is changing dramatically, and the way fans follow and participate in movies, and make their own movies to emulate those movies, is profoundly different.
+- If something comes along that is totally outside of horror, fine, but I find there's an immense amount of freedom within the genre.
+- I think everybody goes off and does their own vision. And I don't take responsibility for other people's work, frankly. It's bad enough taking responsibility for my own.
+- Basically, I've found that if you have two films that don't perform well, it doesn't matter that you've had a bunch of successful ones. The phone stops ringing, and after 'Deadly Blessing' and 'Swamp Thing,' that's what happened.
+- I was always told that films were evil and such, but I started to realise what a load of crap it was that something this good should be forbidden. I had been allowed to read as much as I wanted when I was younger, so I recognised great art when I saw it; I just didn't realise it would be at the cinema as well.
+- A friend introduced me to Bob Shaye. He was one of the most remarkable men I've ever met. He was a Fulbright scholar, an excellent chef, and very knowledgeable about the arts.
+- Great horror films don't win Academy Awards.
+- When you do a film like 'My Soul to Take,' and people think it sucks, that hurts. We put a lot of work into it, and it's a good film, but you go on.
+- It's not an easy place to be - to write a horror film. You go down the stairs to the dark to find these characters. It's not a place anyone can go, and sometimes it's not a place that you want to go.
+- If I'm going to be a caged bird, I'll sing the best song I can.
+- In high school, we would give away rulers to our friends that said, 'Jesus loves you.' I couldn't put together the concept that Jesus loves you, but if you don't love him back, you'll burn in hell forever. I worried, 'I'm rejecting the Holy Spirit, so I'm definitely going to burn in hell.'
+- My mother never saw any of my films until she was in her late 80s, and that was 'Music of the Heart' with Meryl Streep.
+- My goal is to die in my 90s on the set, say, 'That's a wrap,' after the last shot, fall over dead, and have the grips go out and raise a beer to me.
+- My brother and I both used to worry about dying at 40 because our father died at 40. That probably wasn't terribly rational, since my father led a rather unhealthy lifestyle, shall we say.
+- I like to think I'm making films in the film business where movies are making enough numbers for the studios to let me keep working, but you also want those films to have content that makes you proud you made the film. That's not easy, but it's a fun puzzle to figure out.
+- A big part of directing is being strong in certain circumstances and taking the gamble and hope you don't get fired.
+- Everybody's making horror films and, to me, not especially well.
+- It's great to be thought of as the master of anything. Even idiocy. Master of idiocy, Wes Craven. But if it's master of horror or fear or whatever, that's great.
+- That's what's great about the horror genre is that you're getting a load of people together in the cinema at the same place and the same time, having them all experience extreme fear and come out alive at the end. It's an uplifting experience, and there's a sense of elation.
+- I had been a college teacher. I had taught Greek mythology.
+- I never went to film school, so I never had the chance to be rejected.
+- My whole background was in voracious book-reading.
+- I didn't see many films until I was in college teaching.
+- The thing of sitting in an audience and going into a dream-like state with several hundred other people that are sharing exactly what you're feeling is a profound event.
+- I'm the kind of director, at any given moment, an idea occurs to me, I'll just do it.
+- In 'Scream,' there is very real drama that would be in almost any drama.
+- A friend, Sean Cunningham, who went on to do 'Friday the 13th,' was given a small budget to produce a scary movie, and he told me to write something. I'd never seen a horror film in my life; I'd fallen in love with Fellini.
+- A businessman can be as military as any politician.
+- At this point in my career, 'Scream' is one of the longest running stories I've told. It's fascinating to still have actors who are very much into continuing their roles and have great chemistry.
+- I couldn't find an actor to play Freddy Krueger with the sense of ferocity I was seeking. Everyone was too quiet, too compassionate towards children. Then Robert Englund auditioned.
+- I had a musician friend once tell me that it's not in the orchestra that you get the true test of the musicians but in the little trios and quintets where you really get to see if they've got the stuff. And the composer.
+- I don't know, I always had an active dream life, and there's something so profound and wonderful about a movie. It's so alive. It's so shared. The thing of sitting in an audience and going into a dream-like state with several hundred other people that are sharing exactly what you're feeling is a profound event.
+- 'To Kill a Mockingbird' was so important because it was such adult film-making - to see something that dealt with such an important issue and had such an enlightened outlook on the world.
+- I think being Jewish has been covered really well but almost nothing about being fundamentalist Protestant. For years, I've had a movie in my mind called 'Total Immersion' that looks to my life as a kid where you're immersed in this different worldview from almost everybody around you.
+- In the '60s, I was teaching humanities at a college in upstate New York and trying to publish a novel I'd written in graduate school. But nothing was happening. So I moved to New York City and got a job as a messenger at a place that made movies.
+- Within the structure of 'Scream 4,' there is the film within a film, but that's been part of the 'Scream' franchise since 'Scream 2,' when you had the 'Stab' franchise.
+- You learn a lot more from those bumps than from when things are going great.
+- Some people ask why people would go into a dark room to be scared. I say they are already scared, and they need to have that fear manipulated and massaged. I think of horror movies as the disturbed dreams of a society.
+- When you have a name that means scares, you have to live with that.
+- 'Last House' offended a lot of people. The results in the theaters, even in Boston, reminded me a bit of things from when I was studying Theater of the Absurd, and the rise and the appearance of Ionesco plays, and things like that.
+- Looking back now, if I went to film school, it probably would have helped knowing what the best of the best of foreign films were, but that wasn't the case. In some ways, I think that led to my originality, because I hadn't seen anybody else.
+- I think the experience of going to a theater and seeing a movie with a lot of people is still part of the transformational power of the film, and it's equivalent to the old shaman telling a story by the campfire to a bunch of people.
+- Everybody is afraid of the unknown. Everybody is afraid of the people that they've done terrible things to!
+- I was paralyzed from the chest down when I was 19, so I kind of put my head together about dying, and I think I've come to terms with it.
+- There will always be times where you think, 'What went wrong? Why wasn't that one more popular?' You can't always figure that out, especially if you think you've done the best job you can do and was interesting to you. I mean, 'My Soul to Take,' I thought should have done much better, and I still like that film a lot.
+- All I'm doing is rearranging the curtains in the insane asylum.
+- I've experienced a great deal of, you know, ostracism from the making of films.
+- How can you have 'Scream' without Ghostface? It's like 'Friday the 13th' without Jason.
+- I came from a very strict background.
+- The 'Scream' series is unique in that it's an ongoing murder mystery, even though it's a different killer, so if you know who that killer is, then half of the fun of the movie is gone.
+- There was a period around Columbine when horror films were being kind of assailed by the government. The studios got very afraid that they were going to be sued, and studios at about that time were all being taken over by corporations.
+- Whenever I go to have a meeting at Universal, the security guard just leaps to his feet and comes over, bumps my hand, and says, 'Thank you! Thank you - I love your films!'

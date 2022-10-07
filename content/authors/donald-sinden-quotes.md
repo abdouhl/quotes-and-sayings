@@ -1,0 +1,17 @@
++++
+author = "Donald Sinden"
+title = "Donald Sinden Quotes"
+quotes_len = "11"
+description = "the best 11 Donald Sinden Quotes"
++++
+- You come across quite ordinary, nondescript people in daily life, and I don't see why you should be subjected to them on the stage, too.
+- I've been very fortunate. I've been in theater, films, television, radio, tragedy, comedy, farce - I've been in a musical and in music halls, in pantomime. I was once ringmaster in a circus.
+- I'm really not livable with when I'm rehearsing because I'm living the character.
+- I have a disgracefully sweet tooth. My younger brother and I, all we care about are puddings. You can keep your smoked salmon and caviar.
+- Being a non-swimmer, I've never been excited by the sea so avoid it on holidays.
+- Whatever part I'm playing, I always carry with me something that's been used by an illustrious predecessor. I'm a great believer in a touching of hands. I have daggers belonging to Henry Irving and Sarah Siddons.
+- I grew up in Ditchling. It was an idyllic village at the foot of the South Downs. In those days, the village was full of artists and sculptors.
+- I remember once saying in a television interview that the only things I hadn't been in were the opera and the ballet. Two days later, I got a call from Lord Harewood, of the English National Opera, saying "Would you like to be in 'Ariadne auf Naxos?'"
+- I need to know who the audience are in any particular play. It's no good forgetting that they're there.
+- An actor who knows his business ought to be able to make the London telephone directory sound enthralling.
+- James Agate, a great critic of the day, advised me that the way to learn your job properly was to learn Shakespeare, so I went to Stratford. It really sorts out the men from the boys.

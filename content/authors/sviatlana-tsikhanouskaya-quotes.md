@@ -1,0 +1,24 @@
++++
+author = "Sviatlana Tsikhanouskaya"
+title = "Sviatlana Tsikhanouskaya Quotes"
+quotes_len = "18"
+description = "the best 18 Sviatlana Tsikhanouskaya Quotes"
++++
+- We are fighting for free, fair and transparent elections, which means that every citizen of Belarus will be able to participate in those elections.
+- I'm so proud that women are playing a great role in these demonstrations, in this so-called revolution. Because our women showed that women play a great role in everyday life.
+- I want to make it very clear, collaboration with the regime of Mr. Lukashenko at the moment means the support for violence and blatant violation of human rights.
+- You know, I thought that this whole campaign had really toughened me up.
+- I hear a lot about parents in Belarus who decided to give up on schools which were used to forge elections during the vote and are taking kids somewhere else.
+- But if it happens that we will need one day the help of other countries, help in organizing this, maybe mediation or negotiation, of course any country that would like to help us with this question is invited.
+- The protests may turn into something entirely new. Our people are very creative and well-organized. Some of them are singing in shopping malls. Students organize things here and there, without any coordination.
+- I will return when I feel safe there, when negotiations start, when political prisoners are released. Those will be the signs for me to come back safely.
+- We, the women of Belarus, are such a force. I am worried about them, but they are so strong.
+- We have two options - to continue living in poverty and empty promises or build a Belarus that we deserve.
+- A nation should not be a hostage to one man's thirst for power, and it won't. Belarusians have woken up. The point of no return has passed.
+- You know, I have to admit that this political crisis that takes place in our country is absolutely an internal affair. And we have - the Belarusian people - have a responsibility for what's going on.
+- I am not in politics for power. I am in it for justice.
+- Our plan is absolutely clear. It's organization of new elections, fair and transparent.
+- Mr. Putin has to understand that if he does something against us Belarusians, it will seriously damage the relationship between the Russian and Belarusian people.
+- Children are the main thing in life.
+- We are ready and open to a dialogue with all sides, all parties and all countries that respect the sovereignty and the territorial integrity of Belarus.
+- You know, I have been thinking about this a lot, and of course I had great stress during all this election campaign. And a lot of times, I was ready to step away because I wasn't sure that I had enough strength to continue.

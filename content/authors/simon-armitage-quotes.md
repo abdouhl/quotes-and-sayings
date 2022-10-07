@@ -1,0 +1,21 @@
++++
+author = "Simon Armitage"
+title = "Simon Armitage Quotes"
+quotes_len = "15"
+description = "the best 15 Simon Armitage Quotes"
++++
+- We still need a voice that thinks before it speaks.
+- Occasionally it's been a long and bumpy road - one I'm still travelling - but I've always felt like my home town has been solidly behind me and I'm both grateful and proud.
+- I have to make myself write, sometimes. In the space between poems, you somehow forget how to do it, where to begin. It was good to be task - based for a while. I just came downstairs each day, picked the one I was going to do that day, and wrote.
+- If you were going to choose a way of making your way in this world and a place to start from, you might not choose poetry and you might not choose Huddersfield.
+- In all the poems I've written I've not really engaged in politics, and when I've found myself moving in that direction I've always stopped myself.
+- It reminds me to say that staying local should never be about looking at the world through a closed window, but about making a home then throwing the doors open and inviting the world in.
+- I even feel guilty if I'm reading a novel, because I think I should be reading Homer again. I don't really know what free time is, because I don't have something to measure it against.
+- I'd got to a point where I wanted a break.
+- Somebody will be able to crack ebook files in the same way that people cracked music files a decade ago. An author could have worked for three years on his book, have someone buy it for their Kindle for £6.99 and then see it shared with everyone in the world for free.
+- The Huddersfield that I like best is a large town with a big heart and an open mind.
+- People who read poetry, for example, like the feel, the heft and the smell of a book.
+- I'd never really been content with just churning out these slim volumes every three or four years. I've always tried to think of poetry as an active ingredient in the language rather than just something that appears between the covers of thin books.
+- I wondered if people might not have had enough of Simon Armitage and wondered whether I hadn't had enough of Simon Armitage.
+- I once stood in the middle of New York city watching my name go round the electronic zipper sign in Times Square and I felt pretty thrilled, but not quite as thrilled as I felt when I saw my name in the 'Examiner' for the first time.
+- We don't know where print is going.

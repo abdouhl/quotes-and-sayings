@@ -1,0 +1,19 @@
++++
+author = "Peter Wright"
+title = "Peter Wright Quotes"
+quotes_len = "13"
+description = "the best 13 Peter Wright Quotes"
++++
+- I tried to learn the violin for a while.
+- I had been living with dialysis for three years or so, and the new kidney felt like a reprieve, a new gift of life. I felt alive again and I guess that has had an effect on my use of colour.
+- When I look at some of my old work, the pieces I find most interesting are the ones with people in them.
+- I think most people see drawing as subservient to the subject, a sort of meditation, a studying, a searching observation, in my case, for its own sake.
+- I have never subscribed to the Dirty Pallet school of painting.
+- Painting is seen as picture making, the making of an art object, something that can stand on its own.
+- As a kid I quite fancied the romantic, Bohemian idea of being an artist. I expect I thought I could escape from the difficulties of maths and spelling. Maybe I thought I would avoid the judgement of the establishment.
+- I never know what it's going to look like. Wouldn't be much point in painting if I already knew the outcome. I have a subject in front of me and I start flooding colour and making marks, I don't know, it's improvisation isn't it?
+- You could always go on changing things but there comes a time when you have to decide to stop.
+- I've had to do all kinds of jobs to pay the rent. I've even worked in a Cornish tin mine.
+- I used to paint landscapes without any people in them but now I paint people who happen to be in a particular place. They might be outside a pub, or on a beach or in a studio. They might have clothes on or they might not.
+- I have to experiment with methods and I'm trying to find an authentic way of making an equivalent of the living, breathing person within the limits of a single picture.
+- I felt the need to get back to painting and I thought the best way was to start drawing, so I enrolled in a life drawing class. I soon discovered that people made very interesting subjects and I am still surprised that I had never discovered it before.

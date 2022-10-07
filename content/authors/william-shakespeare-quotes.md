@@ -1,0 +1,217 @@
++++
+author = "William Shakespeare"
+title = "William Shakespeare Quotes"
+quotes_len = "211"
+description = "the best 211 William Shakespeare Quotes"
++++
+- Come, gentlemen, I hope we shall drink down all unkindness.
+- An overflow of good converts to bad.
+- By that sin fell the angels.
+- The evil that men do lives after them; the good is oft interred with their bones.
+- Better a witty fool than a foolish wit.
+- The attempt and not the deed confounds us.
+- I were better to be eaten to death with a rust than to be scoured to nothing with perpetual motion.
+- What a piece of work is a man, how noble in reason, how infinite in faculties, in form and moving how express and admirable, in action how like an angel, in apprehension how like a god.
+- Reputation is an idle and most false imposition; oft got without merit, and lost without deserving.
+- The lady doth protest too much, methinks.
+- The stroke of death is as a lover's pinch, which hurts and is desired.
+- I bear a charmed life.
+- My crown is called content, a crown that seldom kings enjoy.
+- Better three hours too soon than a minute too late.
+- I give unto my wife my second best bed with the furniture.
+- It is the stars, The stars above us, govern our conditions.
+- But if it be a sin to covet honour, I am the most offending soul alive.
+- Give every man thy ear, but few thy voice.
+- Hell is empty and all the devils are here.
+- He that is giddy thinks the world turns round.
+- How sharper than a serpent's tooth it is to have a thankless child!
+- There is no darkness but ignorance.
+- Ignorance is the curse of God; knowledge is the wing wherewith we fly to heaven.
+- When we are born we cry that we are come to this great stage of fools.
+- If you have tears, prepare to shed them now.
+- Children wish fathers looked but with their eyes; fathers that children with their judgment looked; and either may be wrong.
+- There have been many great men that have flattered the people who ne'er loved them.
+- As he was valiant, I honour him. But as he was ambitious, I slew him.
+- All the world's a stage, and all the men and women merely players: they have their exits and their entrances; and one man in his time plays many parts, his acts being seven ages.
+- My pride fell with my fortunes.
+- What is past is prologue.
+- Teach not thy lip such scorn, for it was made For kissing, lady, not for such contempt.
+- The very substance of the ambitious is merely the shadow of a dream.
+- O! Let me not be mad, not mad, sweet heaven; keep me in temper; I would not be mad!
+- The robbed that smiles, steals something from the thief.
+- When words are scarce they are seldom spent in vain.
+- Love is too young to know what conscience is.
+- Sweet mercy is nobility's true badge.
+- One touch of nature makes the whole world kin.
+- Women may fall when there's no strength in men.
+- I am not bound to please thee with my answer.
+- Most dangerous is that temptation that doth goad us on to sin in loving virtue.
+- We are such stuff as dreams are made on; and our little life is rounded with a sleep.
+- Give me my robe, put on my crown; I have Immortal longings in me.
+- We know what we are, but know not what we may be.
+- God hath given you one face, and you make yourselves another.
+- I will praise any man that will praise me.
+- Neither a borrower nor a lender be.
+- As soon go kindle fire with snow, as seek to quench the fire of love with words.
+- Fortune brings in some boats that are not steered.
+- Heat not a furnace for your foe so hot that it do singe yourself.
+- There's many a man has more hair than wit.
+- Virtue is bold, and goodness never fearful.
+- Ambition should be made of sterner stuff.
+- For my part, it was Greek to me.
+- Lawless are they that make their wills their law.
+- For I can raise no money by vile means.
+- If we are marked to die, we are enough to do our country loss; and if to live, the fewer men, the greater share of honor.
+- Death is a fearful thing.
+- Mind your speech a little lest you should mar your fortunes.
+- Many a good hanging prevents a bad marriage.
+- Poor and content is rich, and rich enough.
+- Some rise by sin, and some by virtue fall.
+- Men shut their doors against a setting sun.
+- When sorrows come, they come not single spies, but in battalions.
+- Kindness in women, not their beauteous looks, shall win my love.
+- I wasted time, and now doth time waste me.
+- Love is a smoke made with the fume of sighs.
+- Life every man holds dear; but the dear man holds honor far more precious dear than life.
+- Men's vows are women's traitors!
+- I never see thy face but I think upon hell-fire.
+- What's in a name? That which we call a rose by any other name would smell as sweet.
+- I had rather have a fool to make me merry than experience to make me sad and to travel for it too!
+- And this, our life, exempt from public haunt, finds tongues in trees, books in the running brooks, sermons in stones, and good in everything.
+- There are many events in the womb of time, which will be delivered.
+- Lord, Lord, how subject we old men are to this vice of lying!
+- Suit the action to the word, the word to the action.
+- So foul and fair a day I have not seen.
+- O, had I but followed the arts!
+- With mirth and laughter let old wrinkles come.
+- The man that hath no music in himself, Nor is not moved with concord of sweet sounds, is fit for treasons, stratagems and spoils.
+- If music be the food of love, play on.
+- Modest doubt is called the beacon of the wise.
+- We are time's subjects, and time bids be gone.
+- Uneasy lies the head that wears a crown.
+- Like as the waves make towards the pebbl'd shore, so do our minutes, hasten to their end.
+- Where every something, being blent together turns to a wild of nothing.
+- Farewell, fair cruelty.
+- There's not a note of mine that's worth the noting.
+- And oftentimes excusing of a fault doth make the fault the worse by the excuse.
+- Some are born great, some achieve greatness, and some have greatness thrust upon them.
+- No legacy is so rich as honesty.
+- If it be a sin to covet honor, I am the most offending soul.
+- Truly, I would not hang a dog by my will, much more a man who hath any honesty in him.
+- To thine own self be true, and it must follow, as the night the day, thou canst not then be false to any man.
+- Faith, there hath been many great men that have flattered the people who ne'er loved them.
+- A fool thinks himself to be wise, but a wise man knows himself to be a fool.
+- We cannot conceive of matter being formed of nothing, since things require a seed to start from... Therefore there is not anything which returns to nothing, but all things return dissolved into their elements.
+- I see that the fashion wears out more apparel than the man.
+- Having nothing, nothing can he lose.
+- This life, which had been the tomb of his virtue and of his honour, is but a walking shadow; a poor player, that struts and frets his hour upon the stage, and then is heard no more: it is a tale told by an idiot, full of sound and fury, signifying nothing.
+- The love of heaven makes one heavenly.
+- Such as we are made of, such we be.
+- Talking isn't doing. It is a kind of good deed to say well; and yet words are not deeds.
+- There is nothing either good or bad but thinking makes it so.
+- Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man.
+- Fishes live in the sea, as men do a-land; the great ones eat up the little ones.
+- O' What may man within him hide, though angel on the outward side!
+- I hold the world but as the world, Gratiano; A stage where every man must play a part, And mine is a sad one.
+- As flies to wanton boys, are we to the gods; they kill us for their sport.
+- Well, if Fortune be a woman, she's a good wench for this gear.
+- Suspicion always haunts the guilty mind.
+- What, man, defy the devil. Consider, he's an enemy to mankind.
+- Now is the winter of our discontent.
+- How well he's read, to reason against reading!
+- If you prick us do we not bleed? If you tickle us do we not laugh? If you poison us do we not die? And if you wrong us shall we not revenge?
+- Brevity is the soul of wit.
+- 'Tis one thing to be tempted, another thing to fall.
+- Exceeds man's might: that dwells with the gods above.
+- How poor are they that have not patience! What wound did ever heal but by degrees?
+- O God, O God, how weary, stale, flat, and unprofitable seem to me all the uses of this world!
+- Our peace shall stand as firm as rocky mountains.
+- The lunatic, the lover, and the poet, are of imagination all compact.
+- Praise us as we are tasted, allow us as we prove.
+- Thou know'st the first time that we smell the air we wawl and cry. When we are born we cry, that we are come to this great state of fools.
+- Things won are done, joy's soul lies in the doing.
+- I must be cruel, only to be kind.
+- He that loves to be flattered is worthy o' the flatterer.
+- Desire of having is the sin of covetousness.
+- Boldness be my friend.
+- Give thy thoughts no tongue.
+- Love is not love that alters when it alteration finds.
+- To be, or not to be, that is the question.
+- 'Tis not enough to help the feeble up, but to support them after.
+- But O, how bitter a thing it is to look into happiness through another man's eyes.
+- Time and the hour run through the roughest day.
+- O, what a goodly outside falsehood hath!
+- The devil can cite Scripture for his purpose.
+- Speak low, if you speak love.
+- Maids want nothing but husbands, and when they have them, they want everything.
+- Who could refrain that had a heart to love and in that heart courage to make love known?
+- Love all, trust a few, do wrong to none.
+- How oft the sight of means to do ill deeds makes ill deeds done!
+- Listen to many, speak to a few.
+- Alas, I am a woman friendless, hopeless!
+- Use every man after his desert, and who should scape whipping?
+- A peace is of the nature of a conquest; for then both parties nobly are subdued, and neither party loser.
+- It is not in the stars to hold our destiny but in ourselves.
+- I say there is no darkness but ignorance.
+- This above all; to thine own self be true.
+- Our doubts are traitors and make us lose the good we oft might win by fearing to attempt.
+- And why not death rather than living torment? To die is to be banish'd from myself; And Silvia is myself: banish'd from her Is self from self: a deadly banishment!
+- I shall the effect of this good lesson keeps as watchman to my heart.
+- Let me embrace thee, sour adversity, for wise men say it is the wisest course.
+- Love looks not with the eyes, but with the mind, And therefore is winged Cupid painted blind.
+- Pleasure and action make the hours seem short.
+- I may neither choose who I would, nor refuse who I dislike; so is the will of a living daughter curbed by the will of a dead father.
+- 'Tis best to weigh the enemy more mighty than he seems.
+- To do a great right do a little wrong.
+- There's no art to find the mind's construction in the face.
+- They say miracles are past.
+- Good night, good night! Parting is such sweet sorrow, that I shall say good night till it be morrow.
+- The fashion of the world is to avoid cost, and you encounter it.
+- There was never yet fair woman but she made mouths in a glass.
+- He is winding the watch of his wit; by and by it will strike.
+- Though she be but little, she is fierce.
+- O thou invisible spirit of wine, if thou hast no name to be known by, let us call thee devil.
+- They do not love that do not show their love.
+- The most peaceable way for you, if you do take a thief, is, to let him show himself what he is and steal out of your company.
+- I was adored once too.
+- A man loves the meat in his youth that he cannot endure in his age.
+- Go to you bosom: Knock there, and ask your heart what it doth know.
+- There is a tide in the affairs of men, Which taken at the flood, leads on to fortune. Omitted, all the voyage of their life is bound in shallows and in miseries. On such a full sea are we now afloat. And we must take the current when it serves, or lose our ventures.
+- 'Tis better to bear the ills we have than fly to others that we know not of.
+- In a false quarrel there is no true valor.
+- Words, words, mere words, no matter from the heart.
+- How far that little candle throws its beams! So shines a good deed in a naughty world.
+- Now, God be praised, that to believing souls gives light in darkness, comfort in despair.
+- Let every eye negotiate for itself and trust no agent.
+- Things done well and with a care, exempt themselves from fear.
+- The wheel is come full circle.
+- But men are men; the best sometimes forget.
+- Doubt thou the stars are fire, Doubt that the sun doth move. Doubt truth to be a liar, But never doubt I love.
+- Is it not strange that desire should so many years outlive performance?
+- He does it with better grace, but I do it more natural.
+- What's done can't be undone.
+- Nature hath framed strange fellows in her time.
+- There's place and means for every man alive.
+- No, I will be the pattern of all patience; I will say nothing.
+- Virtue itself scapes not calumnious strokes.
+- I dote on his very absence.
+- Nothing can come of nothing.
+- The undiscovered country from whose bourn no traveler returns.
+- Wisely, and slow. They stumble that run fast.
+- Love sought is good, but given unsought, is better.
+- It will have blood, they say; blood will have blood.
+- It is a wise father that knows his own child.
+- The course of true love never did run smooth.
+- Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives.
+- I like not fair terms and a villain's mind.
+- Words without thoughts never to heaven go.
+- False face must hide what the false heart doth know.
+- In time we hate that which we often fear.
+- If you can look into the seeds of time, and say which grain will grow and which will not, speak then unto me.
+- Sweet are the uses of adversity which, like the toad, ugly and venomous, wears yet a precious jewel in his head.
+- Cowards die many times before their deaths; the valiant never taste of death but once.
+- Let no such man be trusted.
+- The valiant never taste of death but once.
+- O! for a muse of fire, that would ascend the brightest heaven of invention.
+- If to do were as easy as to know what were good to do, chapels had been churches, and poor men's cottage princes' palaces.
+- God has given you one face, and you make yourself another.

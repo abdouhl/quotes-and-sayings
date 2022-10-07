@@ -1,0 +1,117 @@
++++
+author = "Solange Knowles"
+title = "Solange Knowles Quotes"
+quotes_len = "111"
+description = "the best 111 Solange Knowles Quotes"
++++
+- I'm a lot more interested in style than fashion - style is what makes us who we are.
+- I'm making the music I want to make, in my own space, and it's just incredible to be able to continue to do that.
+- I'm trying to cut down my cursing.
+- You have Vampire Weekend who have more African references musically than most African-American artists.
+- Beyonce adores my little boy. She takes him everywhere.
+- I try to transition my energy into just having fun.
+- In my experience, as a young black artist, you have to fulfill an archetype, or be a token - and I was unwilling to do that.
+- My parents constantly tried to talk me out of being an artist. They had gone through the whole journey with my sister and just wanted me to have a normal teenage life.
+- I was diagnosed with ADHD twice. I didn't believe the first doctor who told me, and I had a whole theory that ADHD was just something they invented to make you pay for medicine, but then the second doctor told me I had it.
+- I really fell in love with dance. By the time I was seven, I had dance class six times a week. I was obsessed.
+- Everyone talks about how, in your 30s, all of these growing pains transition into wisdom and you feel more self-assured and confident, but I think I had a bit of a jump-start on that at 27.
+- Every mom believes her kid's school doodles are amazing, and I'm no different.
+- I'm surrounded by such beautiful, creative people, and I just love sort of sharing their stories and their journeys.
+- There are a lot of historical lofts in Houston, and it's amazing for me that a lot of them were built in the 1920s. I love the exposed bricks and the very industrial stuff.
+- What's important is that my family and I are all good.
+- I'm super-sensitive when it comes to my sister. I've been known to snap off a little bit behind her.
+- I'd rather be on the cast of 'Love & Hip-Hop' than 'Project Runway.'
+- I don't ever claim to be a hip-hop head.
+- I think many people, especially from other cultures, just don't understand the role hair plays in black women's lives.
+- I have a lot of guy-like quintessential relationship qualities that I have had to work on.
+- When you take care of yourself, you're a better person for others. When you feel good about yourself, you treat others better.
+- I felt like when I took my weave out, I wasn't pretty, I wasn't noticeable.
+- I have been writing songs since I was 9 years old, so writing has and always will be my first love and passion.
+- I wear short shorts. After 10 years of strenuous ballet, it's the least my legs can do for me.
+- The Fela Kuti Queens - the band members and wives of the late African musician Fela Anikulapo Kuti - are my fashion icons.
+- I'd rather be the cool aunt than the authoritative aunt.
+- People from New Orleans are extremely prideful.
+- I don't feel like I owe anybody other than my child and my family anything.
+- I'm such a Southern girl.
+- I've always loved Dusty Springfield and Martha Reeves.
+- If a piece makes you look good and makes it easier to get dressed, it wins.
+- My sister and I were not allowed expensive clothes. We so badly wanted these Fila sneakers as kids, but my mother took us down to the flea market and got imitation ones. Look at the early Destiny's Child videos. You'll see.
+- I still stand behind the stuff I did early on, but I was on a record label, and I didn't have a lot of creative control. Another side of that is just being young and having bad taste. There was plenty of that, too.
+- When Destiny's Child released their first record, I don't think I even noticed. I was still at school, and I had my own life in Houston.
+- Why is it so important for you to give back? I honestly feel like it's our responsibility as citizens of the world to ground ourselves in selflessness and all do our part.
+- Dubai's a pretty powerful place.
+- Traveling is definitely something that your average 17-year-old doesn't get to do. One week we're in Japan, one week we're in Australia, one week we're back home going to football games.
+- People who live in L.A. don't like to leave their homes because they have so much space. They have the nice kitchens and a cook and a pool. When you live in L.A., there is a sense of isolation in terms of raising a family.
+- We are getting an education of a lifetime. We're actually out there in the real world.
+- A lot of people don't know me as an artist.
+- When you're younger, you get shoved a lot. You don't really have a say-so.
+- Whether it be a red eyeliner or a graphic line on the crease of my lids, I'm more attracted to the ideas of something interesting than being 'pretty.'
+- I think that some people get wrapped up in their own egos. They need to see certain album sales and certain monuments.
+- You're just so excited that you have this record deal or this movie opportunity that you don't stand up for yourself and say, This is what I want to do.
+- I think it's really important for every mother to find their own way.
+- My sister and I truly are best friends.
+- I have always had tremendous respect for my sister as an artist, as a woman, and now as a mother.
+- I never borrowed clothes from Beyonce when we were growing up. But now my style is a little more tame and hers is a little more adventurous.
+- I have a mother who never took no for an answer when it came to her creative pursuits. She started a hair salon in her spare bedroom and four years later had 30 employees.
+- I love hip-hop. I have gone through many difference phases in my love affair with hip-hop.
+- Once I had my son, I stopped shopping in stores because it's not an easy process to try on clothes - and I'm not an impulsive buyer. I need to do the dance in front of the mirror, the whole nine yards.
+- It's always been my dream to look like Mariah Carey in my photos with a microphone. I don't know how she does it. When she sings, she looks perfect.
+- You get educated by traveling.
+- I grew up seeing my sister in the studio. I would go to recording sessions and take notes.
+- I had my own little quirks as a child.
+- I'm not sure if it's cause I'm getting old, but my heels have to be 3.5 inch or less, or a chunky heel.
+- Anytime fashion and music go hand-in-hand and it really is an organic fit, it's amazing.
+- I think all artists have a different story to tell, and no story is the same.
+- Just going through a marriage and a divorce - which I essentially did by 21 - will give you an insane amount of perspective on life.
+- Luckily, I dated all of the losers ages ago. My love life has been stable for a while.
+- I can't take any credit for people dressing like me, you know?
+- I'm not very good at writing songs when I have a lot of clutter in my mind.
+- With Saint Heron, I really wanted to celebrate and continue to cultivate the community for genre-defying R&B artists.
+- For me, I always have looked at 'indie' as a term of 'independence.' Never associated a sonic gesture with that in the same way that pop music has always meant 'popular' to me; you know, it didn't define a sound.
+- You just have to know that the more successful you get as an artist, the less of a normal life you have. It's a trade-off.
+- At 15, saying I wanted to do a reggae album after growing up in a snazzy house in Houston - it was kind of random.
+- Both my parents are first-generation success stories.
+- When you think back in history about producers and artists or writers who've had good synergy, a lot of times they date, or they're married, or there's a friendship and a kinship.
+- I'm happy that I have a beautiful, wonderful, amazing child who's made me a better person.
+- My ultimate beauty icon is Diana Ross.
+- I have a father who was the first black student at his junior high and high school and had to do a lot to get to that point.
+- I have more to offer than music that is automatically dance.
+- My son spends as much time with his dad as he does with me.
+- Through style, you can communicate to the world who you are and what you stand for.
+- I really enjoy my privacy and being able to walk my son to school every morning and pick him up every afternoon.
+- Mainstream media tends to showcase a very specific kind of Mardi Gras, but my experience of Mardi Gras is very different; it's very cultural.
+- Beyonce has set the tone as an aunt. I've set the tone as a mom.
+- The one thing I'm really excited about is that the Saint Heron shop is not grounded in just fashion and clothing. We have connected with artists and artisans in every landscape.
+- It is always an honor to work with those that share your passion for music and just enjoy making great music.
+- My earliest love, which was sort of an obsession, actually, was Nas. I was in seventh grade, I believe, when 'Nastradamus' was out, and I took it pretty far.
+- Motherhood is such an evolving journey.
+- My sound is Solange. It's definitely not Destiny's Child.
+- If I had to define 'sexy' now, as Disney as it sounds, I would have to say it's about complete and utter confidence.
+- It's really special to have a niece because I have a son, so I get to have a little girl, too.
+- My name, Solange, means 'Angel of the sun,' and I'm completely enamored of my African history. The culture is so expressive.
+- There are a lot of times when people are diplomatic about things, and I'm not that type. I'm not afraid to say exactly what I mean.
+- My mom's best friend growing up was diagnosed with AIDS, and he basically raised me when my mom was launching her business. Although I didn't understand at the time what HIV or AIDS was, I knew that's what he passed away from.
+- Every teenage artist out there is mostly talking about boys, and I think there's so much more to being a teenager than just boys.
+- I can tell you what I really love: when I run into people on the street that tell me they have connected with my music.
+- Opening Ceremony is my number one favorite place to shop here. It's the only place I'll shop in New York with my son. All of the sales people are so cool; the music is great; it's just like a big fun house, so he stays entertained.
+- Major labels act as banks in terms of how they produce and release your album. No major label is really good or bad; they just 100 per cent operate as a business, which makes sense... no hard feelings.
+- Self-love is really a foundation for everything, and however you practice or express that is so, so important.
+- I really feel like because I had my son so young, I didn't want everyone's help. I think people felt entitled to give advice, so I'm always very sensitive to moms and letting them feel their way out.
+- My beauty ethos? Well, I'd love to tell you it's something like 'less is more,' but honestly, it all starts with happiness. If only someone could bottle that up - when I'm happy, I'm at my most radiant and glowing. It does me better than any product ever could. And I stand by how cheesy and cliched that sounds.
+- I actually love my natural hair when it's in a twist out and it's been slept on for five days and revived by the steam of the shower.
+- Colors and prints are part of my style.
+- I have so many friends who are designers of color.
+- Fashion is a strange world sometimes. Amazing, but strange.
+- I stand for people who are firm in their journey.
+- If I have on a bright red lip, you'll rarely ever catch me with eyeshadow on. It's one or the other for me - pick one feature for the day and really focus on that.
+- I'd rather live in the U.S. than Europe.
+- I feel like I was 30 when I was 17, and I decided to get married and have a baby.
+- My blog is actually all self-photography unless it's a photo shoot.
+- It's so sad, actually, how teachers and parents tell their kids, 'You're never gonna be anything.'
+- I'd rather be the protector than the protected. I'm naturally the protector - being a mother and having a famous family. You have to navigate when it's right to protect.
+- I really wanted people just to get to know Solange on my first album, just to establish Solange's sound, just to establish Solange's personality.
+- Any decision I make is based on myself, and the only person I have to give an explanation to is God.
+- From a very early age, I decided that I wanted to be able to do my music but still be able to live a normal life.
+- I'm really good at telling people 'no.'
+- The Hadley Street Dream is a tribute to making a vision come to life. My father built a compound on a dessert city block, he saw something in that space we couldn't see. It was years later the album was born right there on Hadley St. He built the studio I started recording the album at.
+- In any relationship, there's gonna be conflict.

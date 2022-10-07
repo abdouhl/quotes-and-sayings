@@ -1,0 +1,106 @@
++++
+author = "Shannon Purser"
+title = "Shannon Purser Quotes"
+quotes_len = "100"
+description = "the best 100 Shannon Purser Quotes"
++++
+- I don't know why, but I'm more intimidated by sharing my singing than just performing as an actress.
+- I like being known for who I am.
+- I feel that responsibility to really be authentic with people because I think that's what they deserve, especially in a time when it's very easy for people in the public eye to sort of cultivate an image.
+- I've been singing since I was a kid, but I take my voice a lot more personally than my acting. I feel a lot more personal criticism when somebody tells you that you don't have a good voice.
+- As I got older, I fell more in love with movies and thought it would be incredible to someday be in one.
+- You never think about someone dressing up as you for Halloween.
+- As I got into high school I sort of came into my own and gained some confidence and, luckily, wasn't really bullied by others.
+- I think we take our friends for granted a lot in high school. We're so busy worrying about our own problems that we ignore the fact that we have these people who are supporting us and taking care of us like all the time.
+- Everyone has been an outcast at one point in their life.
+- I related to 'Sierra' in the fact that I tend to come off as pretty confident in who I am, but definitely in high school I had a lot of insecurity and was unsure if I should be changing myself to fit in more.
+- I think people find it so easy to write off teenagers and millennials as just being like these shallow, self-centered people who don't have anything real going on and who are always just on their cell phones. But being a teenager is really hard.
+- Acting isn't always about the amount of talent you have, or your ability to cry on command. The point is, how well can you take direction? How well can you put aside your own ideas or ego and listen to the ideas of the director and the people above you, while not giving up the passion and drive of that character?
+- I was into this one guy that was like, punk and cool and rock 'n roll. So I went out and bought black high top Converse.
+- We're constantly bombarded with perfect airbrushed images. Every magazine you look at is like 'top 20 tricks to have the perfect body' and it's ridiculous.
+- I love that 'To All the Boys I've Loved Before' is an interracial couple.
+- People will send me pictures of T-shirts with my face on it and it's nothing that I ever would've imagined in a million years as a kid.
+- Looking back on my wardrobe from 'Stranger Things,' I would probably wear a lot of it. I might style it a little bit differently but I like the pieces.
+- As an actor, your life is filled with so much uncertainty.
+- I think there were so many times that I just felt so overwhelmed by school and by my relationships with my friends and I felt like I was going to be stuck in high school forever and I was never going to achieve my dreams.
+- My existence in Hollywood is a political statement, because there are so few women who are plus-sized or above a size 6.
+- Being on set is just a unique and surreal experience, and it's one I always dreamed about having. And then I had it.
+- I love to sing.
+- I understand that feeling of insecurity, like you're not good enough as you are, and you need to change.
+- Stranger Things' was my first job, and I was learning everything as I was doing it and it was such a whirlwind.
+- With 'Stranger Things' especially, I couldn't expect the show to become what it was, and I definitely didn't expect the whole Barb thing to become what it was.
+- Everybody has had that experience where your friend drags you to a party because the person they're crushing on is there, and you don't really want to be there but you go there with them anyway.
+- I totally am dorky and weird, and that's fine with me.
+- When I was younger, I felt very alone and that I didn't fit into my own skin. I loved the idea of becoming somebody else, and acting was an outlet for me and those emotions.
+- I'm always going to love Barb and I'm always going to be grateful to 'Stranger Things' and for the incredible opportunity I've had.
+- It's incredible, but I will sing the praises of therapy. I think everybody should be in therapy. It helps so much to have somebody educated you can talk to.
+- The most evil and insidious thing about mental illness is that it isolates us and makes us feel so different that we think no one can possibly relate.
+- That's what I love about movies and TV: You can go anywhere any time and be whoever you want.
+- Playing the nerd isn't necessarily the most ego-boosting role.
+- I'm pretty introverted and I spend a lot of time in books, a lot of time thinking and by myself, because that's what I enjoy to recharge.
+- Some of the best relationships I had in high school were not romantic - they were with my best girlfriends.
+- I think people need a little light and a little happiness in their lives.
+- I'm seeing a lot of roles written explicitly for plus-size women, which is so cool.
+- I do think technology really has changed the way that we communicate with each other and texting can be the way to communicate and to kind of get up the nerve to say things that maybe you wouldn't say in real life, but that also comes with a price.
+- There's such a stigma around mental illness, and this idea that you're going to come off as disturbed or weak somehow by being open about these things. I've never felt embarrassed or shy talking about it; it's such an integral part of my life.
+- I love the style from the '80s, obviously some of it is a little, you know, out there.
+- Instagram is great but I'm not an amazing photographer and I don't wanna post selfies constantly.
+- I watch Jimmy Fallon all the time. I think he's hilarious.
+- I just think about little me - what it would have meant to me to see a chubby girl in movies and a big girl get the guy and be the princess, be the hero. I think that would've really changed a lot for me.
+- It's always been important to me to do work that I'm proud of and be part of stories that I'm proud of, so being on a popular show was never really the goal.
+- It's movies like 'Love, Simon' that are so pivotal because it's this sweet rom-com that you would watch about a straight couple, but it's two guys. It feels natural and real and just charming. I would love to see more movies like that.
+- I think the best relationship you'll ever have is the one with yourself. That might even be the most important one.
+- I'm very interested in makeup and fashion and beauty.
+- I've found beauty in such unexpected places. I think the most beautiful thing you can do is be yourself and to own it.
+- As fun as it is to be the nerdy best friend. I'm capable of more than that, and I feel that I have emotions to share, and there are roles I can add something to. I just hope there are other people who are willing to take that chance on me and let me tell their stories.
+- Technology is a double-edged sword for sure. You can use it to get in touch with somebody, to get to know somebody, to have really meaningful conversations, or you can use it to hurt and bully people.
+- When I was a kid I was a huge reader, I always had a book in my hand.
+- I certainly hope that we will get more women in power, when it comes to executives and producers and directors, because the problem is not a shortage of females who are qualified to do the job. It's just that women are not favoured or chosen.
+- I'm excited to see a new age of rom-coms, and especially teen romantic comedies, because when I was younger, I was watching 'Harry Potter' and 'Hunger Games' and stuff like that. I loved those movies, but they are a little bit heavy. We didn't really get to have the lighthearted love stories.
+- It's something that I feel every young person goes through, this idea that they're not doing enough, or that they're stuck. Definitely when I was in high school I was like, 'What am I doing here, I want to be an actor, instead I'm just stuck at school and I'm not doing anything.'
+- I would definitely love to see a queer rom-com because representation matters. It does so much to help normalize things in the mind of society.
+- I've been singing since I was a little kid, but 'Sierra' was my first time singing on camera, which was definitely intimidating at first.
+- A lot of times, gay characters are represented in unrealistic or stereotypical ways.
+- People have actually had my face tattooed on to their bodies, which is so odd.
+- I'm aware that I don't look like the traditional or the stereotypical type of Hollywood starlet and that is OK with me.
+- I think once I kind of got to a place of self-acceptance, looking past all the insecurities that I have, I've really grown so much as a person.
+- I had this incredible opportunity with 'Stranger Things,' and now all it tells me is that people like my work, so I need to keep working. I need to push forward and put as much of my heart into every character I play as I did into Barb.
+- Such a big part of acting is getting your face out there and getting recognized.
+- I think temptation is ever present to become something that you think is more socially acceptable.
+- I was about 15 when I decided that acting was what I wanted to pursue professionally.
+- There's this book that I love called 'Eleanor & Park.' It's an incredible story about these two misfit kids who fall in love. I've loved that book for years and I'd be so thrilled if I got to be in an adaptation of that.
+- I did have an emo phase. It was sort of like armor for me.
+- It's just as important to be a good human being as it is to be a good actor.
+- I love the nostalgic feel of the '80s and, oh, I love Winona Ryder so much. I was such a huge fan of hers growing up, so breathing the same air as her was an honor for sure.
+- I didn't even have a career before 'Stranger Things' - it was my first acting job, my first time on a professional set, and my character wasn't even supposed to be a big deal - it all just exploded.
+- When I was a little kid, I used to get in trouble a lot for lying. Being raised religious, I believed that lying was sinful, so I felt guilty.
+- I've always felt, as a person, that I wanted to make people feel included and loved because I think at some point in all of our lives, we've felt not included and unworthy, especially in terms of appearances.
+- It's very important to me that people know that depression doesn't discriminate. A lot of people look at people who have depression and think that it's not legitimate because they're wealthy or it looks like everything seems to be doing fine. But it doesn't pick and choose. It can affect anybody in the brain, no matter how perfect your life seems.
+- Specifically, my time in therapy has changed my life. It was such a relief to have a trained professional listen to my thoughts and help me positively restructure my thinking.
+- I guess everyone's had an experience when they felt overlooked, ditched, hurt or taken for granted. Where they felt like the only one behaving with common sense but still got the short end of the stick. We all feel like the odd one out at some point.
+- I feel like, especially in Hollywood, you meet people with ulterior motives, who are trying to get something from you.
+- Sierra' is me being a plus-size woman.
+- When you're on stage, you're playing to whoever is in the back of the room, and TV and film is so much more detailed and nuanced, but I think that's what I always wanted to do. As much as I love theater and musical theater and would love to do it again, I really love the subtleties of film and theater acting.
+- I've been a huge Winona Ryder fan for a while. I'm one of four girls, so there are four sisters, so we used to watch 'Little Women' seriously, maybe once a month.
+- I think people are more alike than they are different, especially in high school. No matter what clique you belong to, everybody's trying to get approval and trying to fit in.
+- I was always taller than every other boy my age. So, whenever there was one boy who was taller than me I was like, 'Yes. He's the one.' Even if he definitely wasn't.
+- Mental health affects every aspect of your life. It's not just this neat little issue you can put into a box.
+- The '80s weren't perfect and people made some questionable fashion choices but in terms of music and movies, it was revolutionary and wonderful.
+- I'm a real homebody, I don't do a whole lot.
+- I don't have a typical body type, and that used to be something that made me feel very alone and weird.
+- I didn't get recognized a whole lot at first, but all of a sudden it just started happening. People would look at me out of the corner of their eye, deciding whether or not they were going to come up to me!
+- Things like the Women's March have been just so encouraging, and I'd like to see that continue.
+- But I've always loved the whole costuming part of acting.
+- I didn't really have a normal high school experience. I was home-schooled and went to a co-op, so basically a school with about maybe 200 other home-schooled kids that would come together for classes.
+- You don't have to be the next Einstein. You can just be you, and that's more than good enough.
+- I was diagnosed with depression and anxiety several years ago, so it's something I've been battling most of my life.
+- I had a really, really bad case of it. Everybody hears OCD and they think, 'Okay, you like to clean or be organized.' That's really not what it is, especially not for everybody. In my case, it was me being super self-conscious, to the point where it was debilitating.
+- The idea that I get to kind of redefine what is beautiful and whose story deserves to be told and showcase that you know, big women have love lives and complex colorful lives like everybody else, that's really important to me.
+- I think society is so hard on young women. Growing up, the images that I saw, the standards that I had to live up to in terms of how I looked and how I fit into my social groups - it was a lot of pressure.
+- I was definitely always the bigger girl and kind of weird. I didn't make friends very easily and I was a big reader, so I was very antisocial, and I knew that people were judging me.
+- I do feel like young people feel pressured to be extraordinary in a new way. Of course everybody is extraordinary in their own special way... but not everybody has been an activist, or volunteered somewhere incredible, or has perfect scores. So it's a lot of pressure to put on young people.
+- I think the media in general hasn't been very kind to fat women or fat people. We see so many insensitive portrayals of plus-sized people. That kind of stuff really affected me - not even necessarily the portrayal of fat people, but the absence of fat people.
+- I grew up in a house with all girls, so I'm used to having a lot of hormones around that can create craziness.
+- At some point, I stumbled across an article about OCD. As I read, I was blown away by how identical the writer's description was to what I was experiencing. It was overwhelmingly comforting to finally realize that I wasn't alone and that nothing was wrong with me. It was a treatable disorder.
+- I was diagnosed with OCD and depression, and that was a huge relief, because now my struggles had a name and could be reckoned with. With a combination of therapy and medication, I got better. I learned to love life again. My problems didn't go away, but they became much easier to face.
+- I mean, I definitely relate to not being a part of the popular crowd.

@@ -1,0 +1,48 @@
++++
+author = "Pixie Lott"
+title = "Pixie Lott Quotes"
+quotes_len = "42"
+description = "the best 42 Pixie Lott Quotes"
++++
+- I'm not afraid of hard work. I like it! It's the other bit - the not working - I find more problematic. If I'm not busy, I just get antsy. I've been this way since I was a child. Sitting still is like torture for me.
+- I find some really cool, unique stuff in vintage shops. The good thing about vintage if that it doesn't quite fit you can customise it, like, make it shorter. The shorter the better!
+- We all like music in my family, but I'm the only one who's made it my life.
+- I've actually been compared to every female singer going from Britney, Christina, Mariah, Duffy, Amy Winehouse, everyone. And they are so different, so I think it's cool that people see me as so many different artistes but I think I'm a little different, yeah.
+- What's good is that my music is different from everyone else's. It's got the soul element, like Duffy, but it's not very retro. It's a contemporary, pop, fresh sound. That's what makes it different.
+- I always prefer to write songs about emotional situations and heartbreak because I like getting into the character.
+- I long for the old days of Marilyn Monroe and Audrey Hepburn, stars who had real glamour and mystique. We only knew so much about their lives; the rest was a mystery.
+- My two style icons are Edie Sedgwick and Brigitte Bardot.
+- I don't do lies!
+- I knew I wanted to be a singer from the age of five. I've been lucky to be so single-minded - some of my friends still don't know what they want to do, and they're finding it hard. There are home videos of me singing and taking centre stage at family parties when I'm about three.
+- When I was born, I was born very prematurely so I was very tiny and small. And so, my mom just nicknamed me Pixie, like a little fairy.
+- I've always loved '60s fashion; it's so sexy.
+- I'm a really bad liar. My mom finds out every time, especially now that she's got Facebook.
+- Hmm... my bedroom's really messy. It's probably the messiest bedroom you could ever think of. Like, you think it's messy, but when you go there, you can't see one bit of floor anywhere. Clothes, makeup... I'm getting sent loads of clothes and stuff, so it's just piling up everywhere. I've to jump over it in order to get into my bed.
+- I like the big smoky eyes look, and I always do my eyes first when I'm putting on my make-up.
+- I just like boys who are good-looking, really! I like people who are tall with a good sense of style. My faves are the indie look, the smart look or the surfer look.
+- I like to mix it up, but I do like a lot of '60s fashion. But I like to make it a bit more edgier, sometimes a bit more rockier, sometimes a bit more classic.
+- I just always wanted to be a singer. My mom said I was even singing in my cot!
+- When I was younger I was really shy, but I'd always be singing, driving my family crazy. Apparently I was even singing when I was in the cot. That probably didn't sound too good!
+- Every year since I was very small, my family - Mum, Dad, sister Charlie-Ann and brother Stephen - and I have been holidaying in Carvoeiro in the Algarve, so that has very fond memories for me.
+- I don't think I'd get caught up in the crazy side of the music industry because it's just not in my nature.
+- I like to wear girlie things, but only if I can rock them up with biker boots or a jacket.
+- You won't see a picture of me rolling around in a gutter, but I sometimes have a photo taken when I'm leaving a club looking tired, and there'll be headlines saying, 'She's out of control'. You can't prepare yourself for those things; you just have to shrug them off.
+- Every time I get up and sing for people, I get such a high. I just want to do it again and again.
+- I take my inspiration for the song writing from little experiences, not even if I've experienced them myself but say if something has made me sad, I will use that emotion. I just use everyday life and write about it.
+- I can't imagine ever not making music, making albums, writing songs, doing shows. That's all I really know, and that's all I really do.
+- My favourite designer is Mulberry - their bags are lovely, but their clothes are amazing, I don't think people realise. I love D&G, Fendi, Moschino, Chanel, Armani - all the classics!
+- I don't want to be one of those people who falls out of cabs drunk. But I don't want to be known as some boring girl who just sits at home and doesn't do anything.
+- I love dressing for the winter - especially in baggy chunky cardigans.
+- I always feel like I want to write a song when I'm really upset. And when I'm in an argument with my family, I go straight to the piano and just kind of take it out on the piano and get all emotional.
+- I don't really follow any fashions. I just wear what I want to wear each day. I don't care if they clash or not.
+- I don't believe in open relationships. If you want to be with someone else, you shouldn't be in a relationship in the first place.
+- The paparazzi stuff is a little weird. I used to leave the house in my pajamas. I can't do that anymore, but I'm not complaining!
+- I would really love to go to Thailand as so many people have told me how wonderful it is.
+- I'm not afraid to use my personal experiences and put them into a song. I think that's when you get the best stuff anyway, when it's real emotion.
+- The worst thing about me is my toes. I've thick joints from wearing pointe ballet shoes - I went to a dance school from the age of 11 and danced every day.
+- I love to have Heinz Salad Cream on all my food!
+- I don't try to pretend to be what I'm not. I don't feel I need to do anything outrageous.
+- When I was growing up, I read Britney Spears' and Mariah Carey's biographies. I just wanted to see how they did it because I was so eager to get into the biz.
+- The biggest turn-off for me is people who think the world of themselves. Arrogance is not a sexy quality, and it really gets on my nerves.
+- I'm not going to do anything that will damage my voice because my voice is my career and singing is my passion. I was singing in the cot and I'll still be singing when they're nailing down my coffin.
+- As a kid, I'd watch MTV and think how great it would be to have my own music videos on those shows. Now I turn on MTV and, along the bottom of the screen, it often reads, 'Coming next... Pixie Lott.' That's so strange that I can't even begin to make sense of it.

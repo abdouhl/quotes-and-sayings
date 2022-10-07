@@ -1,0 +1,88 @@
++++
+author = "D. B. Sweeney"
+title = "D. B. Sweeney Quotes"
+quotes_len = "82"
+description = "the best 82 D. B. Sweeney Quotes"
++++
+- I love Vanna White as much as the next guy.
+- If you learn the craft, you can make a movie and get by with tricks.
+- Push your luck. If you see a pretty girl in a bar, say something.
+- If I go to a baseball game, I hear 'Shoeless Joe,' but otherwise, I hear 'toe pick' five times a day. No matter how many more movies I make, that'll be on my gravestone.
+- I've seen people who stink, but the film editor shows them just where they didn't stink. But if you're empty and manipulative on stage, it's clear.
+- I'm a sucker for doing something fun. If somebody wants to pay me to learn how to fly a plane or be a better golfer, that certainly would be a plus - or if it's filming in Tahiti.
+- In A-ball, you're either going to move up, or you're going to get released. That kind of paranoia played a lot into the players' mentality leading up to the events of 'Eight Men Out.'
+- As far as actors go, you're not going to find many ballplayers better than me.
+- What really makes it fun for an actor is when the script is good.
+- On a movie set, there's so much down time, adjusting the lighting. It gave me time to nap, call my friends, relax, work out. But with TV, there's no break time. None.
+- I thought it's very funny that I ended up as a voiceover guy because when I started out as an actor, I had a very strong Long Island accent.
+- You always love to fantasize you'll get your dream role.
+- More is asked of you on stage. It's no way to make a living. But it's like a bullfight. You find out who can do it and who can't.
+- Hire the best people, and trust what you hired them to do.
+- It took me a long time to realize you don't choose what you're famous for.
+- I think Joe Jackson is a great American figure. In my opinion, he became a scapegoat.
+- When you play on a team, you learn that there will always be five guys you like, a bunch of guys who are OK, and five you despise. The trick to getting along in any system is not to worry about the five you despise.
+- I had cooked a lot in restaurants, in Rocky Point and on golf courses on Long Island, and my mother said, 'Be a chef,' and my dad said, 'Be a lawyer.' But instead, I auditioned for N.Y.U.'s Tisch School of the Arts.
+- I have never been one of those actors who say, 'Oh, my character wouldn't do this,' or 'My character never wears an orange shirt,' or any of the number of inane things I've heard on movie sets throughout my career.
+- I'd love to do a movie like 'Bullitt.'
+- I got typecast early in my career as the guy who is very intense. Once you get into a certain mold, people see you that way, as much as it's disproved time and again.
+- I've been doing this for 33 years, and sometimes you make movies and nobody cares. But when people care, it's the greatest thing in the world - even when it's passionately against the title - because it's going to start a conversation.
+- If you skate with an Olympic level skater, they make you so much better because you're skating behind them, and you're trying to imitate their stride and their stance. It's like having the world's greatest training wheels.
+- Whether or not your person wins or loses, give him a chance.
+- It's especially gratifying to have done a film like 'Eight Men Out' because it's hard not to have fun when there are so many bats and balls around.
+- I don't know; it's hard for me to understand people that want to get out there and protest on the first day we elect a new guy.
+- I believe in luck. My luck's real streaky.
+- A producer wouldn't think of making a film about ballet dancers without using real dancers, but they will cast actors who have never held a bat in baseball films.
+- I like hanging around the set and learning how people do things, how the set runs.
+- I don't like the NFL, where I think it's a problem: some guy scores a touchdown, now he's got some kind of dance that he planned. To me, I just want to change the channel.
+- Who needs MGM? Who needs any of these places?
+- The great thing for me about 'The Resurrection of Gavin Stone' is it's a throwback to the old fashioned Hollywood movie that you can watch with your family, has a message, and is funny and entertaining. They didn't call them faith-based movies; they just called them good movies.
+- I really like the way Fox handles their shows.
+- Why should a filmmaker turn over the irreplaceable asset, the movie, to a distribution center?
+- Say something personal, not from a publicist.
+- With the Red Sox, you have more of a literary interest in it. You know they're going to lose; you're just interested in how the plot is going to unfold.
+- Skating is tough to pick up when you are a grown up.
+- 'It's a Wonderful Life' was a mainstream Hollywood movie about faith, redemption, religion, and it was rated G.
+- I felt like the world of baseball in 1919 was much closer to what A-ball would be now - guys riding buses, there's no training staff, and there's a lot of paranoia.
+- Romantic comedies are particularly hard to make.
+- All these big corporations like Amazon, those places have great distribution arms, but they can't create content.
+- I had a teacher senior year in high school. He was a theater teacher, and he basically was a little bit like 'High School Musical.' He kind of encouraged the jocks to get involved with the plays. I did it as kind of a senior year lark.
+- DeNiro did a good job playing a catcher in 'Bang the Drum Slowly,' but he's great in everything he does.
+- Any time I get to work a home game, it's awesome.
+- I think it's particularly stupid that filmmakers have traditionally said, 'Yeah, I like baseball, but the movie's not going to be about the intricacies of the game.' I mean, you wouldn't cast an overweight guy with stubble if you were doing a ballet film.
+- When I played sports, if you lose the game, and then you complain, that makes you a sore loser. That doesn't make you protester - that just makes you a whiner.
+- You get a lot of speeding tickets, and you say, 'I'm so unlucky!' No, you're not. You're speeding. Slow down.
+- When you do a play, or even a movie, you have weeks to finesse your character. You really understand why they do what they do. In TV, you get new material weekly about your character.
+- The more I learned about Shoeless Joe, the more I felt he was maligned.
+- I try to have a normal life since I have an abnormal job.
+- I wanted to play this part: the goofy rock and roller who can't hang up his guitar when it's clear to everyone else that he should.
+- The actors in 'Eight Men Out' really know how to play, and the background athletes are all professionals.
+- I had heard that Robert Duvall was interested in doing 'Lonesome Dove,' and he's one of those actors with whom I'd work on any project. So I tracked down the script and started to bug the producer, Dyson Lovell, to get in there.
+- There's no doubt my having been a ballplayer made me feel a special sense of responsibility to Joe Jackson's life.
+- If I'm not going to bet on myself, why would anyone else bet on me.
+- John Sayles is good. He's like a good thoroughbred owner - he leaves the trainers alone.
+- I know some black actresses who have to wait every 19 films for a role. I can be cast in practically every one as a young white male.
+- I'm not one of these million-dollar actors. I have always been just a working actor. I probably work more than I would like to.
+- I would love to do another hockey movie. There are a lot of people in Hollywood looking for the right hockey script.
+- If Gretzky was velvet, Ovechkin is electricity.
+- I didn't want people to think I'm just in the movies, where you make money and wait around for 13 hours before you get to do 20 minutes of work.
+- I don't play the bass. I'm not in a band. I tried to think of ways I could touch base with the troops and support what we're doing.
+- I grew up Catholic, so the more non-denominational Christian experience was a new experience for me.
+- The problem with most Hollywood movies is they don't give the director enough control.
+- I got to be good friends with Scott Hamilton.
+- I didn't know anybody in show business, and I never thought it was the path I'd go down. I was hoping it was sports, like so many kids.
+- To anybody who says to me, 'I'm in character,' I say, 'You should be in an asylum.' If you don't know that you're pretending, then you should really seek medical help. I don't have patience for that stuff.
+- I'm sure that President Trump will do plenty of things that people don't like, plenty of things people do like, and the people who don't like it, at that point, certainly take advantage of your rights and protest it - and try to seek change or do whatever you want.
+- I think you have to do certain things in the pilot to get your network's attention - to break through... So maybe you push a little further in the first show.
+- What I've learned is sometimes it's good not to have all the same actions and have all the same takes. The variety you provide gives the director later on in post-production the ability to construct a more interesting performance as he puts the movie together.
+- I think Ovechkin is everything the NHL needs.
+- I was taking hitting clinics every chance I got. I really worked on it. It was just fun to be given that invitation from the director to make the baseball as good as we can.
+- Joe Jackson was a tragic figure. He was a serene country boy who signed a confession he couldn't read. He was illiterate.
+- There's nobility in hard work, traditional values.
+- Fifty-million-dollar movies gobble up the medium movies. A lot of people aren't working in Hollywood because of this.
+- I try to keep a low profile.
+- I'm so proud and honored to have been in 'Lonesome Dove' and 'Eight Men Out.' How come I'm not known for one of those?
+- I bat righty.
+- My sister Kathleen - one year older - was the school's acting legend. Her thing was getting all the parts, even Tiresias. And I wasn't going to mess with that.
+- When you're 47 years old and playing at a world-class level in the fastest sport, and you have zero percent body fat, you need to be brought down a peg as often as possible.
+- You have to identify your shot and be 'Push your luck' ready for it.
+- I'm a huge baseball fan and follow it very closely.

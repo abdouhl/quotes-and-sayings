@@ -1,0 +1,20 @@
++++
+author = "Oscar Hammerstein Ii"
+title = "Oscar Hammerstein Ii Quotes"
+quotes_len = "14"
+description = "the best 14 Oscar Hammerstein Ii Quotes"
++++
+- Do you love me because I'm beautiful, or am I beautiful because you love me?
+- I know the world is filled with troubles and many injustices. But reality is as beautiful as it is ugly. I think it is just as important to sing about beautiful mornings as it is to talk about slums. I just couldn't write anything without hope in it.
+- If you become a teacher, by your pupils you'll be taught.
+- What is a sophisticate? He is a man who thinks he can swim better than he can and sometimes he drowns.
+- The dearest things I know are what you are.
+- Be brave, young lovers, and follow your star.
+- You gotta have a dream. If you don't have a dream, how you gonna make a dream come true?
+- There is nothin' like a dame.
+- A bell's not a bell 'til you ring it, A song's not a song 'til you sing it, Love in your heart wasn't put there to stay, Love isn't love 'til you give it away!
+- You've got to be taught to hate and fear.
+- If you don't have a dream, how are you going to make a dream come true?
+- The number of people who will not go to a show they do not want to see is unlimited.
+- Peace is not the product of a victory or a command. It has no finishing line, no final deadline, no fixed definition of achievement. Peace is a never-ending process, the work of many decisions.
+- All the sounds of the earth are like music.

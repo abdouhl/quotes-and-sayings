@@ -1,0 +1,17 @@
++++
+author = "Sidney Hook"
+title = "Sidney Hook Quotes"
+quotes_len = "11"
+description = "the best 11 Sidney Hook Quotes"
++++
+- Students rarely disappoint teachers who assure them in advance that they are doomed to failure.
+- I was guilty of judging capitalism by its operations and socialism by its hopes and aspirations; capitalism by its works and socialism by its literature.
+- Tolerance always has limits - it cannot tolerate what is itself actively intolerant.
+- Those who say that life is worth living at any cost have already written an epitaph of infamy, for there is no cause and no person that they will not betray to stay alive.
+- To silence criticism is to silence freedom.
+- Before impugning an opponent's motives, even when they legitimately may be impugned, answer his arguments.
+- Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+- Idealism, alas, does not protect one from ignorance, dogmatism, and foolishness.
+- Everyone who remembers his own education remembers teachers, not methods and techniques. The teacher is the heart of the educational system.
+- Fear of death has been the greatest ally of tyranny past and present.
+- Philosophy, most broadly viewed, is the critical survey of existence from the standpoint of value.

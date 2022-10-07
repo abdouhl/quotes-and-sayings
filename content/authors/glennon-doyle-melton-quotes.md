@@ -1,0 +1,88 @@
++++
+author = "Glennon Doyle Melton"
+title = "Glennon Doyle Melton Quotes"
+quotes_len = "82"
+description = "the best 82 Glennon Doyle Melton Quotes"
++++
+- We are - each and every one of us - unlearning misogyny. It's going to take some time. But be aware and active of your prejudices. Notice when they kick in and resist. Fight to stay soft and open. Step back and squint hard.
+- Rock bottom is a crisis... and everyone wants to avoid crisis. But what 'crisis' means literally is 'to sift' - like a child who goes to the beach, lifts up the sand, and watches all the sand fall away, hoping that there's treasure left over. That's what crisis does.
+- You need to remember that being rejected by church is not the same as being rejected by God. God did not kick you out of church, honey. The church kicked God out of church.
+- Over time, I have come to believe that 'brave' does not mean what we think it does. It does not mean 'being afraid and doing it anyway.' Nope. Brave means listening to the still small voice inside and doing as it says. Regardless of what the rest of the world is saying.
+- I'm not big on faith rules, but if I had to choose one, it would be that every person must choose a faith issue upon which to hang her hat that requires her to change - not somebody else.
+- Making sensible family rules around cell phones and driving is a way to love yourself, your marriage, your children, and the world well.
+- If you ask a woman who she is, she'll tell you who she serves and sometimes what she does. But that isn't the whole story.
+- I'm nothing if not a tangled, colorful ball of contradictions.
+- I don't think that I'm broken at all. I no longer think that I'm a mess. I just think I'm a deeply feeling person in a messy world.
+- Nothing separates a woman or a family from God's love. Not death, and certainly not divorce.
+- I ask only child-free pals for parenting advice because they're the only ones sane and well-rested enough to have any real insight.
+- When in doubt, I choose love above any particular ideas offered to me about faith.
+- The truth is that cleaning up socks and trying to get someone to really listen to you is marriage. It's less sweep you off your feet and more sweep the kitchen four times a day. Like everything good in life, it's 98% back-breaking work and 2% moments that make the work worthwhile.
+- Sometimes when you love someone like a mother loves her child, that love can turn into fear. It happens to me all the time. I am so afraid that the world will not be kind to my children.
+- If we are going to ask for our daily bread, we've got to take the time to receive it and eat it. God provide, but we've got to slow down long enough to taste and see.
+- I am not, at the end of the day, a mother, a wife, a writer, an activist, a friend. I am a child of God. That's who I was when I came into this world and who I'll be when I leave it. No one can take that from me.
+- Habits are learned. And children learn their habits by watching what we do, not by listening to what we say. So we have to stop talking and teaching and preaching and just go do.
+- Life is a conversation. Make it a good one.
+- I don't want to take anything to the grave. I want to die used up and emptied out. I don't want to carry around anything I don't have to. I want to travel light.
+- When people express opinions that differ from yours, take it as a chance to grow. Seek to understand over being understood. Be curious, not defensive. The only way to disarm another human being is by listening.
+- We all have this misunderstanding about heartbreak, which is we think we should avoid it. But what I think is that heartache is a clue toward the work we're supposed to be doing in the world. What breaks each person's heart is different - be it racial injustice, war, or animals. And when you figure out what it is that breaks yours, go toward it.
+- I snap at people I love all the time, and that makes me feel bad about myself. I want to be Zen. I am so not Zen. Whatever Zen is, I'm the opposite of it.
+- You do not have to agree with me to love me.
+- We are all trained by Disney to believe that the wedding is the finish line, but the wedding is just another starting line. In light of this fact, we should quit the huge, fancy, debt-inducing weddings.
+- If you're not okay, you might as well not pretend you are, especially since life has a way of holding us down until we utter that magic word: help! That's when angels rush to your side.
+- Questions are like gifts - it's the thought behind them that the receiver really feels. We have to know the receiver to give the right gift and to ask the right question. Generic gifts and questions are all right, but personal gifts and questions feel better.
+- We'll tell fear it can come along with us in our minivan, okay? But we'll just tell fear it can't drive. Sometimes we'll tell it to not even talk. Like when we tell our kids, 'Enough. No words.' We're going to play the quiet game with fear. Fear is not the boss of us.
+- I wrote in my first book that I was broken, and now it just makes me mad every time. This is why writing words in books is so precarious. This is why Jesus only wrote in the sand, right? I just - I hate that I wrote that.
+- Parenting is the most important thing to many of us, and so it's also the place we're most vulnerable. We're all a little afraid we're doing it wrong.
+- Many of us spend the first part of our adult lives becoming - stepping into the roles we take on so that they come to define our lives. But I've learned that we don't really grow up until we unbecome.
+- To me, full-time mothering felt like way too much and yet not nearly enough. Lost in a landslide of diapers, birthday parties, and others' needs, I ached to reestablish myself.
+- The closer you get to people who are different than you, the more you learn that we're all same.
+- I've seen my name on marquees and bowed to standing ovations. I've also been called a fraud, a mental case, a heretic. People all over the country wait in line to hug me or curse me.
+- Christianity asserts that God made himself human. Those are two different categories - two different levels of worthiness. God is one category, and human is another. That's a downgrade. After that jump, there are no more categories - no more downgrades. There are no human levels of worthiness. There is no hierarchy in God's eyes.
+- I can't even carpe 15 minutes in a row. So a whole diem is out of the question.
+- One of the reasons we stay so alone in our lives is because we're ashamed to talk about the hard stuff. It's as simple as that. We're all in pain in different ways, and we don't get the help we need because we're too ashamed to talk about the pain.
+- Compassion does not just happen. Pity does, but compassion is not pity. It's not a feeling. Compassion is a viewpoint, a way of life, a perspective, a habit that becomes a discipline - and more than anything else, compassion is a choice we make that love is more important than comfort or convenience.
+- Often, we need to ignore the words people say and attend to their underlying, urgent, life or death questions: Am I valuable? Am I loved? The great thing is that the answer is easy: Yes! The answer is always yes. We don't have to think too hard.
+- Book tours are super hard for me as a raging introvert. I love humanity, but actual humans are hard for me. So something like a book tour - where I'm constantly on the road - scares the hell out of me.
+- My greatest fear is that I'll fail my kids.
+- I used to choose friends based on similarity in age and life stage, but I've learned that those were the wrong criteria. Trying to live life exclusively alongside others our own age is like attempting to climb Mt. Everest without a Sherpa. It's a little dangerous.
+- When folks decide they love any institution more than the individual souls inside them, they're missing the mark.
+- I think that in order to parent effectively, we are going to have to admit two things: We can't keep our children safe. We can't accept the fact that we can't keep our children safe.
+- Love is kind, right? It's not about calling someone out on every little thing you feel.
+- It is suggested to us a million times a day that our bodies are projects. They aren't. Our lives are. Our spirituality is. Our relationships are. Our work is.
+- I realized I didn't just want to parent children in my own little home but to mother the whole world. What's the point of gaining influence if you're not going to use it?
+- We need to make friends with ourselves. We are stuck with our self all day, so let's be kinder, gentler, more amusing company. Let's take our own hand and say, 'There, there, sister. You're doing a good job. I'm proud of how you're handling all this craziness down here. Don't give up. Carry on, warrior.'
+- Sometimes the rewards of risk don't leave us wrecked. Sometimes we find our passion, our purpose, courage, connection, and comfort. Every good thing in our lives is a direct result of risk.
+- The hardest part of living without social media was remembering that my little life was enough, so I could just stay there and live it without asking for anyone else's permission or validation. I realized that for me, posting is like asking the world, 'Do you 'like' me?'
+- If grace isn't shocking and countercultural and scandalous and a little ridiculous, then it's not Grace.
+- 'Brave' is very specific and extremely personal. It can't be judged by people on the outside. Just can't. Sometimes brave means letting everyone else think you're a coward. Sometimes brave is letting everyone else down but yourself.
+- The fact that we define ourselves by our roles can be an admirable thing - it's how we build a life and make a living. But it's also precarious. Roles change. Sometimes overnight.
+- I know how I like my house. I like it cute and cozy and a little funky, and I like it to feel lived in and worn, and I like the things inside of it to work. That's all. And for me, it's fine that my house's interior suggests that I might not spend every waking moment thinking about how it looks.
+- If no pain, then no love. If no darkness, no light. If no risk, then no reward. It's all or nothing. In this damn world, it's all or nothing.
+- I just think that if we are going to call ourselves pro-life, we must also agree that starvation and poverty and disease and immigration and health care for all and war and peace and the environment are also pro-life issues.
+- The Internet is neither good nor bad. It's neutral - it becomes for each of us exactly what we bring to it.
+- The amazing thing about love and attention and encouragement and grace and success and joy is that these things are infinite. We get a new supply every single morning, and so we can give it away all day. We never, ever have to monitor the supply of others or grab or hoard.
+- It blows my mind when I actually consider that men are as human as I am. How can you possibly be as human and have all of the thoughts and feelings that I have and never be able to talk about it, ever? Guys are in desperate need of truth telling. They are in desperate need of a revolution.
+- We should live out our particular brand of faith, sure - but we should never force our brand of faith upon anyone else. All violence starts with the desire to change others and then never, ever ends.
+- You can be shattered, and then you can put yourself back together piece by piece. But what can happen over time is this: You wake up one day and realize that you have put yourself back together completely differently. That you are whole, finally, and strong - but you are now a different shape, a different size.
+- When I was detoxing from social media, I realized that I was thinking in status updates. It seemed I had trained my brain to translate everything I experienced throughout the day into 140 characters or less.
+- The most important thing on Earth is for all of us to make this sentence true: Compassion is what people do.
+- Integrity means there is not a real-life you and an internet you. The two are one and the same. If you're not kind on the Internet, you're not kind.
+- I've never believed in or understood romantic love. Love at first sight was always a complete joke to me.
+- Young people: marry simply, start your life, and party later. Think of how much babysitting for your future colicky baby you could buy with that wedding budget. Think of how much marriage therapy you could buy. Invest in your marriage, not your wedding.
+- When we shrug and say we don't care, it's usually a lie. Every girl cares. We've just been taught not to expose ourselves by showing it. What the world needs now is girls and women who aren't afraid to care - who are done saying, 'Whatever.'
+- The Internet has become my enabler. It keeps me from stillness and discomfort, and this keeps me from growing.
+- A safe life includes following your dreams with the full knowledge that doing so is not, in any way, shape or form, safe in the traditional meaning of the word. Because living safely means dying without too many regrets. That is safe.
+- Life is not safe, and so our task is not to promise our kids there will be no turbulence. It's to assure them that when the turbulence comes, we will all hold hands and get through it together.
+- We're told that to be successful girls, we have to be small and quiet. Yet to be successful humans, we have to become big and have a voice. There's an inherent contradiction.
+- It makes no sense to me that my gay friends cannot get married to each other because a certain slice of Christianity doesn't believe in gay marriage.
+- I believe in people because I believe in God. I think God knew what God was doing when God made each of us.
+- I think of love and marriage in the same way I do plants: We have perennials and annuals. The perennial plant blooms, goes away, and comes back. The annual blooms for just a season, and then winter arrives and takes it out for good. But it's still enriched the soil for the next flower to bloom. In the same way, no love is wasted.
+- We can be shiny and perfect and admired, or we can be real and honest and vulnerable and loved. But we actually do have to choose.
+- We'd better not speak against misogyny if, in the same breath, we're not also speaking against transphobia and homophobia and racism and classism and poverty. This is one fight. It always has been.
+- One day we will finally see that when we reject any person or group of people, we reject a part of our very selves. All are one. All are in. All are God's beloved children with a place at the table.
+- Being a mother is a little like 'Groundhog's Day.' It's getting out of bed and doing the exact same things again and again and yet again - and it's watching it all get undone again and again and yet again. It's humbling, monotonous, mind-numbing, and solitary.
+- I hated writing 'Love Warrior.' It's the hardest thing I've every written. I cried.
+- Pain is mandatory for all of us. It's what teaches us. Suffering is what's optional. That's what happens when we try to skip over the pain.
+- Your body is not your art - it's your paintbrush. Whether your paintbrush is a tall paintbrush or a thin paintbrush or a stocky paintbrush or a scratched up paintbrush is completely irrelevant.
+- I am not bound to spend my precious days on Earth trying to keep up with the Joneses - because the Joneses are really just a bunch of folks in conference rooms changing 'trends' rapidly to create fake monthly emergencies for us.
+- Do not measure your marriage by how much love you feel today: measure it by how much love you've offered today.

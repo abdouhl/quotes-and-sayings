@@ -1,0 +1,51 @@
++++
+author = "Gerry Harvey"
+title = "Gerry Harvey Quotes"
+quotes_len = "45"
+description = "the best 45 Gerry Harvey Quotes"
++++
+- I believe you should help people.
+- For me, anyone who is over 80, I generally sit down and have a chat to because he is over 80, and he is going OK.
+- The people I know who have retired, so many of them lose interest and die; they just become nobodies overnight.
+- The internet thing is what I have the greatest problem with. I don't know if anyone in the media gets the internet thing and Harvey Norman. I think they have some strange interpretation of it that bears no resemblance to what actually happens.
+- I had a trial run with Norman Ross for 21 years, from '61 to '82. I didn't have it in mind to open a chain like Harvey Norman. I opened one shop, but then the next thing you know, I've got another shop and then another shop.
+- What I think is that we should be helping people so they can reach an even greater potential.
+- I was talking to Rupert Murdoch the other day at a lunch, and he said, 'Maybe I'll live to 100'. He actually thinks he will live to 100!
+- All I can say to you, if you look after your health, eat the right stuff, do enough exercise, keep your mind active, you might be around when you're 100 having this conversation with someone.
+- We're good at what we do because we're a family - this is in our bloody DNA; this is what we do.
+- There are plenty of people smarter than you by a long way. I just got lucky.
+- If a company in Australia has to pay tax and the other one doesn't, of course it's a disadvantage.
+- That's not in my nature to run away - I'll stand up and fight.
+- If you do genuinely care about people and love them a little, eventually you all have this common goal about where you want to go. They see it, and they believe it, and they become believers with you, and you can achieve wonderful things.
+- I'm a great believer in governments doing as little as possible and people power doing the rest, so I'm in favour of governments being there to govern in the areas that need governing, not a whole heap of other things that they stick their sticky fingers into.
+- I am a commonsense sort of a person, and I don't get carried away with emotion and fears.
+- Even if you sell the same number of plasma televisions - if you are selling them for 20 or 30 or 40 per cent of the original price, your revenue goes down, and the profit goes with it.
+- If I think something is right, I'll fight for it - always have. If it's wrong or I've been proved wrong, I'll walk away, and I'll apologise.
+- Importantly, I still give money to homeless people - and all other charities.
+- I know people like myself where we've got resorts, or we're in the hospitality business, and we just can't make money because you're paying someone minimum $42 per hour or something on a Sunday.
+- I would think that most of the online business will be conducted by traditional retailers and that over 90 per cent of the e-retailers will, in fact, all go out of business.
+- I still have a fear about going broke. I always think about it.
+- Making decisions quickly isn't for everyone, and I've had my disasters, but overall, it works for me.
+- I try to develop others. I get a great deal of joy out of helping people who, over the years, I've spent a lot of time mentoring - and just trying to get them to another level.
+- People don't just come to work to make money; they need satisfaction.
+- We're supposed to be an entrepreneurial company; we're meant to be expanding and looking for opportunities - but the minute you do it, you get your head bashed in.
+- I'm probably not your typical business person in many ways. I don't wear a suit. I don't carry a briefcase. I don't wear a tie. I'm fairly casual. I haven't got a big office, and it's in a very ordinary part of town. I'd much prefer to downplay than impress.
+- There is no Internet business in furniture or bedding. Zero - practically in the world.
+- I'll be amazed in my lifetime if my business gets to being 5 per cent online.
+- I get a lot of comments from people that I'm just an ordinary bloke. They immediately feel they have a closer relationship with you; they relate to you.
+- The political system is broke. It doesn't matter who the leader is if you are frozen in time and your hands are tied. Social media is so strong that minority groups get a huge say.
+- I'm hoping there'll be, if not a boom, then a big pick-up in housing because if that happens, then it will employ a lot of people, and the domino effect will go through the community, and it will help everyone.
+- People are out there saying we have to devalue our properties because of the Internet, but it hasn't even come into play!
+- I've given away tens of millions of dollars over the years - probably to almost every charity in Australia.
+- As a retailer, we want everyone out there to earn more money, but then if you're running a business, and we can't make money because the wages are too high, that's a problem.
+- You've got to open on a Sunday, but at the end of the day, you've just lost a lot of money by opening on the Sunday, so it's very, very difficult to make money when you're paying unskilled people $42 per hour.
+- Society might have been better off without them, but we are supposed to look after the disadvantaged, and so we do it. But it doesn't help the society.
+- The cost to do business in Australia is higher, and the lack of scale is a part of that - Australia is a very small market compared to the U.S.
+- Everybody, be they female, whatever your religion, whatever your nationality, you're an individual, and if you perform well, we want you, and if you don't, we don't.
+- You could go out and give a million dollars to a charity tomorrow to help the homeless. You could argue that it is just wasted. They are not putting anything back into the community.
+- At the end of the day, the more quality individuals you develop in the community, the better off the community should be.
+- Some analysts think people come into our shops and then go and buy the product on the Internet, but the manufacturer knows if the customer can't see the product and assess it, they won't buy.
+- Kids go to school; we develop them at school. We develop them later on in the workplace so that we get better quality individuals, so that we get less people that are dependent or get into problems.
+- I think the main thing you measure your success by is what you do in comparison to your opposition. If you're in an industry where you're the leader, then you're performing very well.
+- You get that air of satisfaction from achievement. It makes you feel good. We are only here for a very short time, and so you're crazy if you don't go out and try to milk it to the greatest extent you can.
+- If you are a manufacturer, an Internet company doesn't suit you. An Internet company does not display your product; it can't upsell. But we do a better job than any of the opposition.

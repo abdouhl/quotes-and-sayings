@@ -1,0 +1,113 @@
++++
+author = "Ellen Degeneres"
+title = "Ellen Degeneres Quotes"
+quotes_len = "107"
+description = "the best 107 Ellen Degeneres Quotes"
++++
+- The truth is - and this is corny - I fall more in love with Portia all the time. I really do. She surprises me all the time.
+- But seriously, I think overall in the scheme of things winning an Emmy is not important. Let's get our priorities straight. I think we all know what's really important in life - winning an Oscar.
+- I ask people why they have deer heads on their walls. They always say because it's such a beautiful animal. There you go. I think my mother is attractive, but I have photographs of her.
+- I have an amazing team; I have amazing producers; I have amazing writers, but at the end of it, it's me making the decisions on the writing, the tone, the editing.
+- My grandmother started walking five miles a day when she was sixty. She's ninety-seven now, and we don't know where the hell she is.
+- I just like observing people - it's something I've done ever since I was a kid, and I got really good at it. That's a big part of why I became a comedian. My audience is filled with every kind of person you can imagine, and I love that.
+- I was raised that you don't use something nice until there's someplace to go.
+- Here are the values that I stand for: honesty, equality, kindness, compassion, treating people the way you want to be treated and helping those in need. To me, those are traditional values.
+- You have to stay in shape. My grandmother, she started walking five miles a day when she was 60. She's 97 today and we don't know where the hell she is.
+- I hate having to do small talk. I'd rather talk about deep subjects. I'd rather talk about meditation, or the world, or the trees or animals, than small, inane, you know, banter.
+- I work really hard at trying to see the big picture and not getting stuck in ego. I believe we're all put on this planet for a purpose, and we all have a different purpose... When you connect with that love and that compassion, that's when everything unfolds.
+- No matter how popular you are as a stand-up - you can go out and fill a 10,000-seat arena and be smart and funny - it's delicate to host an awards show and know where your place is and know that it's not about you, that it's about the people who are nominated, and respect that, but at the same time have your moment to show them who you are.
+- There would be nothing to get me to run for president. I don't even understand how anyone would want that job at all. Although I would be able to play golf which I don't seem to have time now.
+- I love kids. But that's such a big commitment. And it seems long-term. It seems like a commitment that you have to stick with. And I just don't know if I can - it's too risky. Like, what if I don't like the kid?
+- The only thing I really recommend, if you're starting out in stand-up is to not try to copy anybody else. You can be influenced by people. I was influenced by Steve Martin and Bob Newhart and Woody Allen, but I never tried to be someone else. I always tried to be myself. And the reason people are successful is they're unique.
+- I've moved about 10 times over the past 15 years. I don't move for the sole purpose of getting rid of stuff. I'm not crazy. I also move so that I never have to wash any windows.
+- I still have the shirt I wore my first time on Johnny Carson's show. Only now I use it as a tablecloth at dinner parties. It was very blousy.
+- Right before I decided to come out, I went on a spiritual retreat called 'Changing the Inner Dialogue of Your Subconscious Mind.' I'd never been to anything like it before, and all my friends were taking bets on how long I'd last with no TV, no radio, no phone. But for me that was the beginning of paying attention to all the little things.
+- I am a really sensitive person.
+- I grew up in a very conservative home.
+- I wanted to have money; I wanted to be special; I wanted people to like me; I wanted to be famous.
+- Nothing says holidays, like a cheese log.
+- I do have ADD and in real life, I'm all over the place and can hardly focus. If we were talking for, for more than an hour or so, I'd start drifting off... I can't sit still too long.
+- The first house I bought was a little Spanish bungalow on Clinton Street in West Hollywood, right behind the Improv. I was renting it, and I asked the owners if I could buy it, and they were really nice and let me work out a deal. And I fixed it up and later sold it. That was when I realized that if you make some improvements, you can make money.
+- Yeah I'm thirty-six, but on the show I'm thirty-two. Nobody wants to watch a thirty-six year old woman, so they decided to make me thirty-two. Much more appealing somehow.
+- Faith is part of who I am, yes. I was raised Christian Scientist. The most important thing I saw every single week on the wall at Sunday school was the Golden Rule.
+- Even before I knew I was gay, I knew I didn't want to have a child. I knew I didn't want to have one. I never want to have to release it from me. Listen, I love babies. I love children. And I melt when I'm around them. I also love my freedom and I love that I can sleep at night.
+- I get bored easily, so I need to do a lot. I've started a record label, so I get to nurture new talent and talk about music, which is a passion of mine. I've written another book. And I get to come to work and do the TV show, which is always really fun.
+- The first time probably people really were aware of me, I unfortunately had the title of Showtime's Funniest Person in America. And that's a really tough title to travel around with when you're not even known.
+- I'm grateful for everything. I'm grateful for my health, and I'm so grateful for the love in my life.
+- I like being busy and juggling a lot of things at the same time. I get bored easily, so I need to do a lot.
+- So many people prefer to live in drama because it's comfortable. It's like someone staying in a bad marriage or relationship - it's actually easier to stay because they know what to expect every day, versus leaving and not knowing what to expect.
+- People always ask me, 'Were you funny as a child?' Well, no, I was an accountant.
+- While I was doing stand-up, I thought I knew for sure that success meant getting everyone to like me. So I became whoever I thought people wanted me to be. I'd say yes when I wanted to say no, and I even wore a few dresses.
+- Find out who you are and be that person. That's what your soul was put on this Earth to be. Find that truth, live that truth and everything else will come.
+- It's our challenges and obstacles that give us layers of depth and make us interesting. Are they fun when they happen? No. But they are what make us unique. And that's what I know for sure... I think.
+- If we're destroying our trees and destroying our environment and hurting animals and hurting one another and all that stuff, there's got to be a very powerful energy to fight that. I think we need more love in the world.
+- I became vegan because I saw footage of what really goes on in the slaughterhouses and on the dairy farms.
+- We have two dogs, Mabel and Wolf, and three cats at home, Charlie, George and Chairman. We have two cats on our farm, Tom and Little Sister, two horses, and two mini horses, Hannah and Tricky. We also have two cows, Holy and Madonna. And those are only the animals we let sleep in our bed.
+- I have a great career, and I have wonderful fans who really are supportive and loyal - because I'm not hiding anything from them.
+- I had everything I'd hoped for, but I wasn't being myself. So I decided to be honest about who I was. It was strange: The people who loved me for being funny suddenly didn't like me for being... me.
+- When we were growing up our parents somehow made it clear that being famous was good. And I mistakenly thought that if I was famous then everyone would love me.
+- The reason I do what I do is because I was influenced by Steve Martin, by Woody Allen, by Bob Newhart, by Carol Burnett, by Lucille Ball.
+- Whatever you define family as, family is just a part of belonging to something that takes care of you and nurtures you... and when you have lost that, and you want to get that back, it's pretty easy to get emotional about it.
+- A lot of money with the wrong career is not going to make you happy. If you have money without happiness, it doesn't mean anything. It's all about happiness.
+- I do like men and I had, you know, a guy in high school that I wanted to marry desperately. He's the mayor of some small town in Texas. I could be the mayor's wife right now.
+- My father was a first reader in the Christian Science Church, which is similar to being a preacher. There was no drinking, smoking or cursing.
+- I'm probably the most honest person you'll ever meet - to a fault, like, I-will-hurt-your-feelings honest. I'm sure if I lied about anything, it would have been silly, but I haven't retained that information.
+- I would love to have the same rights as everybody else. I would love, I don't care if it's called marriage. I don't care if it's called, you know, domestic partnership. I don't care what it's called.
+- I collect old portraits. They're all just interesting pictures of people, and you just kind of wonder who they were and what they were. There's a guy - I don't know who he is, but he's wearing a suit. He's got his arms folded, and he looks like he sold insurance or something. I'm just wondering why someone painted him.
+- I think everybody should have the same anger towards the injustice that's happening and the hatred that's happening, and just fight it with love and compassion.
+- Sometimes you can't see yourself clearly until you see yourself through the eyes of others.
+- I'm a lesbian, an Aquarian, and a vegetarian.
+- I just want to find somebody special, somebody that I click with.
+- We focus so much on our differences, and that is creating, I think, a lot of chaos and negativity and bullying in the world. And I think if everybody focused on what we all have in common - which is - we all want to be happy.
+- It's not like I grew up playing pranks on people, and I was not that girl in school.
+- I just feel like every kid is growing up too fast and they're seeing too much. Everything is about sex, and that's fine for me. I'm not saying I don't like it. But I don't think it should be everywhere, where kids are exposed to everything sexual. Because they have to have some innocence; there's just no innocence left.
+- We need more kindness, more compassion, more joy, more laughter. I definitely want to contribute to that.
+- I get those fleeting, beautiful moments of inner peace and stillness - and then the other 23 hours and 45 minutes of the day, I'm a human trying to make it through in this world.
+- Just go up to somebody on the street and say 'You're it!' and then run away.
+- In the beginning there was nothing. God said, 'Let there be light!' And there was light. There was still nothing, but you could see it a whole lot better.
+- I was raised around heterosexuals, as all heterosexuals are, that's where us gay people come from... you heterosexuals.
+- Designing is my hobby. If I didn't do what I do for a living - at some point when I don't do this for a living - I'll probably just do design work. I love finding really special pieces of furniture.
+- I'm not an activist; I don't look for controversy. I'm not a political person, but I'm a person with compassion. I care passionately about equal rights. I care about human rights. I care about animal rights.
+- People love gossip. It's the biggest thing that keeps the entertainment industry going.
+- People are constantly asking Portia and me if we are going to have children. We thought about it. We love to be around children after they've been fed and bathed. But we ultimately decided that we don't want children of our own. There is far too much glass in our house.
+- I love clothes, so when I wear clothes, they're usually somebody's. You know, I'm not wearing Kmart.
+- Most comedy is based on getting a laugh at somebody else's expense. And I find that that's just a form of bullying in a major way. So I want to be an example that you can be funny and be kind, and make people laugh without hurting somebody else's feelings.
+- If you're going to be honest with yourself, you have to admit that you go into show business wanting people to talk about you and wanting everyone to know who you are. But that also means there are going to be a whole bunch of people who don't like you. No matter who you are.
+- I'm sure there's somebody out there who doesn't like Betty White because she's short and has white hair.
+- Usually, I wear tennis shoes because my feet are flat, and it hurts to wear anything other than shoes that are cushiony.
+- I was coming home from kindergarten - well they told me it was kindergarten. I found out later I had been working in a factory for ten years. It's good for a kid to know how to make gloves.
+- I think anybody who wants to be president has to be a politician, but I would like to find somebody who's coming from a loving place instead of a political place.
+- People give me such a hard time because I don't wear dresses. What's that got to do with anything?
+- I would love for the world to be happier.
+- Portia and I constantly say to each other, 'We are so lucky.' Sometimes it's lying in bed at night before I go to sleep, and I just say thank you to whatever, whoever is out there.
+- I've gotten to a place where I really am just settled. Really.
+- I am saddened by how people treat one another and how we are so shut off from one another and how we judge one another, when the truth is, we are all one connected thing. We are all from the same exact molecules.
+- I'm on the patch right now. Where it releases small dosages of approval until I no longer crave it, and then I'm gonna rip it off.
+- I learned compassion from being discriminated against. Everything bad that's ever happened to me has taught me compassion.
+- Comedy can be, especially in a writer's room, really aggressive, kind of a very male-dominated room, and it would be hard for women. It's not a nurturing place. It's not like a lot of women are going to say, I can't wait to live that lifestyle and be in a writer's room until 2 or 3 a.m.
+- I do fantasize about having my own shop one day.
+- I didn't see deep emotion from my parents. It was all very polite and very surface. I never knew how anybody was feeling.
+- I have sadness in me. I have anger in me. I have heartbreak in me.
+- I'd like to be more patient! I just want everything now. I've tried to meditate, but it's really hard for me to stay still. I'd like to try to force myself to do it, because everybody says how wonderful meditation is for you, but I can't shut my mind up. So patience and learning is the key.
+- For some reason, we can't just enjoy somebody else's success. Somehow, that's going to affect us. If they have more, then I have less - and I don't know why.
+- The world is full of a lot of fear and a lot of negativity, and a lot of judgment. I just think people need to start shifting into joy and happiness. As corny as it sounds, we need to make a shift.
+- If we're destroying our trees and destroying our environment and hurting animals and hurting one another and all that stuff, there's got to be a very powerful energy to fight that. I think we need more love in the world. We need more kindness, more compassion, more joy, more laughter. I definitely want to contribute to that.
+- I don't pay attention to the number of birthdays. It's weird when I say I'm 53. It just is crazy that I'm 53. I think I'm very immature. I feel like a kid. That's why my back goes out all the time, because I completely forget I can't do certain things anymore - like doing the plank for 10 minutes.
+- I didn't grow up in a house - we moved a lot, and we always lived in apartments. But we looked a lot; we went to open houses almost every weekend. I think that's why I always wanted a house.
+- I was raised in an atmosphere of 'everything's fine.' But as I got older, I was like, 'Well no, everything's not fine. There is stuff that's sad.' I am a really sensitive person. I think I am too sensitive sometimes.
+- I'm a comedian, and I definitely see the humor in a lot of things. I am also sad a lot. I cry often and easily. I think you're supposed to feel all kinds of things.
+- I used to beat myself up about weight and working out, and no matter what I did I never felt good about myself. I decided to accept myself and know that I am good.
+- The stand up, everything was accidental. I never grew up and was the class clown and had to get the attention. It was - it really is, I have a career despite myself.
+- People love their animals so much so that they put little clothes on them and necklaces and booties and things like that. And if you love your animal, then you should feed them something that's not dangerous for them. There's a lot of poisonous stuff that they're putting in a lot of that food, those by-products.
+- My dad is still Christian Scientist. My mom's not, and I'm not. But I believe in God, and that there's a higher power and an intelligence that's bigger than us and that we can rely on. It's not just us, thinking we are the ones in control of everything. That idea gives me support.
+- I never buy a house thinking that I'm going to sell it.
+- I've been trying to find women writers for my staff for a while now and I have three women on my staff and three guys so it's pretty equal. I don't know why that is. It's been the same thing for a while. It's hard for female comedians to stand out. That's weird. That's a shame.
+- I'm a fan of people getting together.
+- When people show me clothing that seems very, very feminine, it's hard for me to embrace that, because it just doesn't feel like me.
+- If you want to get rid of stuff, you can always do a good spring-cleaning. Or you can do what I do. Move.
+- Hosting the Oscars is pretty much the scariest thing you can do. To me, this is right up there with bungee jumping!
+- I know that every time I list something that I am, I am potentially alienating a whole group of people. Publicists and managers will encourage you not to say what political party you belong to, what you eat, what you don't eat, who you sleep with and all that stuff.
+- I say always follow your passion, no matter what, because even if it's not the same financial success, it'll lead you to the money that'll make you the happiest.
+- I think they should have a Barbie with a buzz cut.
+- A kid should be told that you can have feelings.
+- Trying to get the talk show, looking back on it, we had to beg a lot of station managers to pick up the show because people thought no one would watch it because I'm openly gay.

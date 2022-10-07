@@ -1,0 +1,71 @@
++++
+author = "Whitney Tilson"
+title = "Whitney Tilson Quotes"
+quotes_len = "65"
+description = "the best 65 Whitney Tilson Quotes"
++++
+- The mark of a wise person isn't never making mistakes - everyone makes plenty of them. Rather, it's the ability to quickly admit - and fix - them!
+- I am part of the 1 percent of the 1 percent. By that, I mean that I am fortunate to be a wealthy American, and I say, 'It's okay to raise my taxes.'
+- Parents are, of course, most important in shaping their children's lives, but teachers are critically important as well. Who among us doesn't look back on a few great teachers who inspired us, opened up new worlds, and helped make us who we are?
+- I love and celebrate good teachers, and it's critical that we do more to identify them and keep them happy and motivated.
+- In life, an abundance of confidence gives us higher motivation, persistence, and optimism and can allow us to accomplish things we otherwise might not have undertaken.
+- I think that most people who complain about our government have no idea what they're talking about because they've never been to a country with a bad government.
+- Mueller is the leading North American provider of water infrastructure and flow control products - things such as fire hydrants, valves, pipes, fittings, and couplings. While this is no doubt a mundane business, it is also an excellent one.
+- When reviewing one's portfolio, it is important to be aware of common mental mistakes that may lead to bad decisions. The most powerful is commitment bias, which, as manifested in investing, is the tendency to fall in love with one's stocks.
+- My advice to most people is don't short stocks. It's a very, very difficult business. And you can really get clobbered.
+- Pence is far too conservative for me, but by all accounts, he's an intelligent, experienced, decent man with no skeletons in his closet.
+- There is a natural tendency for investors to devote a significant majority of their time to finding new ideas. After all, uncovering great companies selling at great prices is the lifeblood of successful investing. But in the never-ending quest for the next great idea, investors often give short shrift to their existing investments.
+- Nirvana, to a value investor, is paying a cheap price for a company that is growing in value every year at a nice rate - this largely explains why today we own stocks like Berkshire Hathaway, McDonald's, Wal-Mart, Microsoft, Costco and Anheuser-Busch.
+- Assessing management quality is clearly one of the most important aspects of an investment decision.
+- Most chief executives rise to that position by being good operating managers. Few have extensive experience or training with capital allocation. What CEO wants to return excess cash to shareholders when it could be used to expand his or her empire?
+- I have never believed that large-cap stocks are too well followed to be anything but efficiently priced.
+- Netflix is a better company with more upside than we had given it credit for than when we shorted it.
+- If you look at the history of technology gadget makers, hardware makers, it's littered with the corpses of Palm and RIM and companies like that.
+- One can't be a successful investor without a healthy dose of confidence. To commit your own and others' hard-earned capital requires conviction, and conviction requires confidence. But as with fine brandy or coffee ice cream, too much of a good thing can be problematic.
+- Shorting saved my butt in 2008... Shorting kept me in the game. It generates cash when the market's crashing. And that's what you want when the market's crashing - cash.
+- Humans are hard-wired to be irrational when it comes to financial decisions. We must understand that so we don't become the sucker at the poker table.
+- The best way I know to get rich long-term is to invest prudently and conservatively and not try and get rich quick but try and get rich slowly, basically.
+- While I take no pleasure in others' misfortunes, we've historically made most of our profits from other investors behaving in a panicked and irrational fashion and selling us certain stocks at prices far below their intrinsic value. More volatility equals cheaper stocks, which equals higher returns.
+- My portfolio consists of many companies I find fundamentally undervalued in which I expect activism to play a role in the value being realised.
+- The key thing when you short is to make sure you're not wrong on the fundamental intrinsic value.
+- While there's always plenty of room for improvement, our government is actually quite effective and efficient. Our military and judicial systems and national parks are the best in the world. Unlike in countries where government corruption is rampant, I've never once been solicited for a bribe.
+- It's difficult to fix a truly broken business, but when it happens, the returns can be extraordinary.
+- Because I'm a very public figure, everybody knows what my returns are.
+- Well-managed companies with independent boards have nothing to fear from activist shareholders.
+- No one would suggest completely ignoring news about your investments. Enron investors, for example, would have been well served to sell once early reports of accounting irregularities surfaced. But the key is to keep news in context and act only if further reflection or study indicates that the core thesis for an investment has changed.
+- You just have to approach every day and say, 'If you were starting fresh today, what would my portfolio look like?' So that's how we think about it.
+- We like to say we pray in the church of Graham, Dodd, Buffett, and Munger.
+- I'd say the general outline of a sound investment approach is, first of all, you have to decide are you going to try to be an investor yourself? The answer for most people is probably they shouldn't try. You should put your money in index funds and not try to be a stock picker.
+- The relative illiquidity of small-company shares - which often contributes to their being undervalued - also increases their volatility.
+- There is no sure-fire way to get rich quickly. In fact, the pursuit of that usually leads to ruin.
+- The deal machinations many companies put themselves through, while certainly a bonanza for investment bankers, can confound the typical investor.
+- While everyone would love to have that perfect portfolio of stocks that can be bought and held forever, it usually does not work out that way. Markets, technology, and businesses change too quickly to put portfolios on autopilot.
+- My experience is that very few people have what it takes to be a successful investor, as I discussed in The Arrogance of Stock Picking.
+- One of the best places to look for value is what I call 'babies thrown out with the bathwater' - in other words, scour the most out-of-favour sectors for good companies whose stocks have been crushed due to overblown concerns about the industry that do not, in fact, have an impact on the company.
+- When it comes to owning stocks of the best-known businesses in the world, value investors usually feel like children looking through the window of the candy store, unable to afford the treats inside because they refuse to pay the prices such high-quality franchises typically bear.
+- Without doubt, timely and democratic access to financial and market information contributes to smoothly functioning financial markets.
+- There's a real company in Facebook and then a lot of pretenders riding their coat tails.
+- I have long believed the corporate world is plagued by poor capital allocation decisions.
+- It's critical to have a disciplined investing approach and stick with it.
+- The potential rewards of small-cap investing do not come without risk.
+- Early in my career, we were just pure bottoms-up stock pickers.
+- I have encountered thousands of value investors over the years and am constantly struck by their differences - and their similarities.
+- I think most people agree with the idea of shared sacrifice, but for many, when push comes to shove, that principle goes out the window.
+- In the game of politics, both parties are sometimes guilty of passing really stupid laws that, in reality, are purely symbolic and have no real impact on anyone.
+- Small-company stocks, like any asset class, can get picked over from time to time, but there are fundamental reasons why diligently mining them with an eye for unrecognised value can get market-beating returns.
+- Many significant stock-price inefficiencies can occur when a company is spun off.
+- If I bring to light a company that's poisoning customers, defrauding investors, or something like that... there just aren't enough regulators in the world to keep up with all of the fraud and malfeasance that goes on out there, particularly in the little nooks and crannies of the market.
+- Even the greatest companies encounter problems or otherwise fall out of favour.
+- Wall Street, in the main, hates uncertainty, which manifests itself in depressed share prices of companies whose prospects lack 'visibility.' But where the market can err is in confusing uncertainty with risk.
+- The consequences of overestimating a company and your ability to analyse it are greatly diminished when you're paying a lot less for it than your analysis shows it is worth.
+- We call ourselves 'opportunistic value investors.'
+- Investing is a probabilistic business. Every once in a while, it's sort of like you're throwing six-sided dice, and anything except a one or a two, you're doing well. Statistically speaking, you throw the dice enough times, you're going to throw a one or a two five times in a row, and you're going to look pretty foolish, right?
+- It's human nature: for most investors, the pain of stocks going down is more tangible than the joy of when they go up. The common impulse is to do something - anything - to minimise the pain.
+- Dealing with uncertainty is always a key challenge for investors. But dealing with uncertainty doesn't mean avoiding it - on the contrary, it is often fuzziness about a company's future that creates the type of opportunity bargain-hunting investors cherish.
+- As in most subjects relating to money management, there's a wide diversity of opinion on portfolio concentration versus diversification.
+- Just because a company's future is highly uncertain doesn't mean an investment in it is risky. In fact, some of the best potential investments are highly uncertain but have little risk of permanent capital loss.
+- When high-growth companies slow down, growth and momentum junkies often sell indiscriminately, which can create great opportunities for value investors. Just be careful not to anchor on the stock's previous price or earnings multiple, which are no longer relevant.
+- The exact details of how you practice value investing will vary investor to investor, but the fundamental principle of scouring the world, looking for dollar bills that you can buy for 50 cents or at some big discount - that is universal to value investing.
+- To a large extent, equity investors put their hard-earned capital into the hands of management and count on it being employed skilfully and honestly. When that doesn't happen, losses typically follow.
+- I believe our schools will actually get better if layoffs are done carefully, such that only the very worst teachers are let go.
+- There are far too many ineffective teachers and, in particular, far too many truly terrible teachers who are harming children and poisoning the system.

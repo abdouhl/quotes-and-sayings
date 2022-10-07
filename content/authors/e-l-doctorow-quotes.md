@@ -1,0 +1,66 @@
++++
+author = "E. L. Doctorow"
+title = "E. L. Doctorow Quotes"
+quotes_len = "60"
+description = "the best 60 E. L. Doctorow Quotes"
++++
+- My sense of what a book should be has changed so radically. I like to think for the better.
+- History is the present. That's why every generation writes it anew. But what most people think of as history is its end product, myth.
+- Like art and politics, gangsterism is a very important avenue of assimilation into society.
+- The historian will tell you what happened. The novelist will tell you what it felt like.
+- I began to ask two questions while I was reading a book that excited me: not only what was going to happen next, but how is this done? How is it that these words on the page make me feel the way I'm feeling? This is the line of inquiry that I think happens in a child's mind, without him even knowing he has aspirations as a writer.
+- Congress is so beholden to the money that any solution in the general interest will be frustrated and subverted by the corporate interests who feel they will be damaged by progress, fair play and justice.
+- Good writing is supposed to evoke sensation in the reader - not the fact that it is raining, but the feeling of being rained upon.
+- The writer isn't made in a vacuum. Writers are witnesses. The reason we need writers is because we need witnesses to this terrifying century.
+- I get intrigued by a first lin and I write to find out why it means something to me. You make discoveries just the way the reader does, so you're simultaneously the writer and the reader.
+- I don't think anything I've written has been done in under six or eight drafts. Usually it takes me a few years to write a book. 'World's Fair' was an exception. It seemed to be a particularly fluent book as it came. I did it in seven months. I think what happened in that case is that God gave me a bonus book.
+- I can walk into a bookstore and hand over my credit card and they don't know who the hell I am. Maybe that says something about bookstore clerks.
+- Things that appear on the front page of the newspaper as 'fact' are far more dangerous than the games played by a novelist, and can lead to wars.
+- I like commas. I detest semi-colons - I don't think they belong in a story. And I gave up quotation marks long ago. I found I didn't need them, they were fly-specks on the page.
+- Writers are not just people who sit down and write. They hazard themselves. Every time you compose a book your composition of yourself is at stake.
+- I did have a feeling then that the culture of factuality was so dominating that storytelling had lost all its authority.
+- It seems to me that in literature, books have always been answers to other books.
+- Each book tends to have its own identity rather than the author's. It speaks from itself rather than you. Each book is unlike the others because you are not bringing the same voice to every book. I think that keeps you alive as a writer.
+- When I'm writing, I like to seal everything off and face the wall, not to look outside the window. The only way out is through the sentences.
+- In fiction, you know, there are no borders. You can go anywhere.
+- I started on computers with 'Billy Bathgate,' a little orange screen with black letters. I thought it was really cool, but it actually slowed me up for a while because it's so easy to revise, I tended to stay on the same page. I've learned to discipline myself.
+- I discovered Einstein said the same thing about his celebrated theories of relativity that writers say about their work when he said he didn't have any feelings of personal possession of these ideas. Once they were out there, they came from somewhere else. And that's exactly the feeling when you write. You don't feel possessive about it.
+- The important thing is not to be too comfortable when you're writing. Noise in the street? That's good. The computer goes down? That's good. All these things are good. It has to be a little bit of a struggle.
+- My books start almost before I realise it. Once in a while, some accident causes an idea to rise to the surface and say: 'now.'
+- Suffering isn't a moral endowment. People don't always do well under duress, and it seemed to me to be truer to a fellow in that situation to make him angry.
+- A new reader shouldn't be able to find you in your work, though someone who's read more may begin to.
+- Movies are too literal.
+- Writing is immensely difficult. The short forms especially.
+- Writing is an exploration. You start from nothing and learn as you go.
+- My theory about why Hemingway killed himself is that he heard his own voice; that he reached the point where he couldn't write without feeling he was repeating himself. That's the worst thing that can happen to a writer.
+- I've outlasted many marriages at Random House.
+- Writing is a socially acceptable form of schizophrenia.
+- My father was the proprietor of a music shop on Forty-third Street, where many of the finest performers and musicians of the day would come to shop. He knew the classical repertoire inside out.
+- Here's how it goes: I'm up at the stroke of 10 or 10:30. I have breakfast and read the papers, and then it's lunchtime. Then maybe a little nap after lunch and out to the gym, and before I know it, it's time to have a drink.
+- I'm not the sort of writer who can walk into a party and take a look around, see who's sleeping with whom and go home and write a novel about society. It's not the way I work.
+- In the twentieth century one of the most personal relationships to have developed is that of the person and the state. It's become a fact of life that governments have become very intimate with people, most always to their detriment.
+- Obama is a great man who's just beginning to understand the realities. And I'm not just saying that because he reads my books. I would have voted for him anyway.
+- Planning to write is not writing. Outlining, researching, talking to people about what you're doing, none of that is writing. Writing is writing.
+- I got married very early, and in no time at all, we had three children. And it seemed to me I had an obligation to support them.
+- One of the things I had to learn as a writer was to trust the act of writing. To put myself in the position of writing to find out what I was writing. I did that with 'World's Fair,' as with all of them. The inventions of the book come as discoveries.
+- A period of time is as much an organising principle for a work of fiction as a sense of place. You can do geography, as Faulkner did, or you can dwell on a particular period. It provides the same framework.
+- I have a number of vices, one of which is moderation.
+- It's like driving a car at night. You never see further than your headlights, but you can make the whole trip that way.
+- When you're writing a book, you don't really think about it critically. You don't want to know too well what you're doing. First, you write the book, then you find the justification for it.
+- Somewhere along the line the rhythms and tonalities of music elided in my brain with the sounds that words make and the rhythm that sentences have.
+- We're always attracted to the edges of what we are, out by the edges where it's a little raw and nervy.
+- Books are acts of composition: you compose them. You make music: the music is called fiction.
+- If we ever find out how the brain works, with all its complexity, then we will be able to build a machine that has consciousness. And if that happens, that is a road to planetary disaster because everything we've thought about ourselves, since the Bronze Age, the Bible, all of that will be gone.
+- The nature of good fiction is that it dwells in ambiguity.
+- I thought I would lose, so I didn't prepare a speech.
+- When you're working well, you don't do research. Whatever you need comes to you.
+- People come out of the mid-west and go to the Ivy League. I kind of reversed the direction.
+- Washington is designed not to solve problems. Congress is so beholden to the money that any solution in the general interest will be frustrated and subverted by the corporate interests who feel they will be damaged by progress, fair play and justice.
+- One of the things I had to learn as a writer was to trust the act of writing. To put myself in the position of writing to find out what I was writing.
+- Writing is like driving at night in the fog. You can only see as far as your headlights, but you can make the whole trip that way.
+- I like to think of myself as an unmediated novelist - or perhaps a national novelist.
+- From my undergraduate days, I've always been interested in the major philosophical questions that don't seem to have an answer that everyone agrees on.
+- I try to avoid experience if I can. Most experience is bad.
+- There are two books that impressed me when I was very young. One was 'The Adventures of Augie March' - the idea of having something so generous, and so adventurous and improvisatory. The other was 'The U.S.A. Trilogy,' by John Dos Passos.
+- There is no longer any such thing as fiction or nonfiction; there's only narrative.
+- To have the regard of one's peers is immensely moving.

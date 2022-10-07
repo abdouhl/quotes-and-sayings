@@ -1,0 +1,32 @@
++++
+author = "Douglas Wood"
+title = "Douglas Wood Quotes"
+quotes_len = "26"
+description = "the best 26 Douglas Wood Quotes"
++++
+- Dick Van Dyke was my first idol. He's an amazing physical comedian, like a classic clown, but also very smart and not afraid to show vulnerability.
+- I love all of Albert Brooks' work from 'Defending Your Life' back to his first film, 'Real Life', but am sorry that he seems to have lost his edge in his more recent work.
+- I became much happier when I realized I shouldn't depend solely on my career for my sense of self. So I developed other interests and surrounded myself with a small group of friends I could trust.
+- I would rather read a poorly structured story that has fresh ideas than a tightly structured one with cliches.
+- I'm more concerned with getting them to find and strengthen their original voice as writers rather than imposing my own subjective tastes, judgements or sensibility on the project.
+- The best way for a beginner to write for animation is to closely watch animated films, then read the screenplays for them afterwards.
+- Write the kind of movie you would want to see, in a genre you love.
+- I know a lot of people in the business recommend the many Story Structure seminars being offered here, but I point to them as the single biggest contributor to lousy scripts.
+- While I've lived in L.A. since 1985, I'll always consider Chicago my home town and have much affection for it. My parents and sister still live there so I try to visit as often as I'm able.
+- I was born in Chicago and grew up in the suburb of Evanston.
+- Right now, writing for me is most rewarding because I'm old enough now to have something to say, which probably wasn't always the case.
+- When I saw 'The Player', I came out with knots in my stomach because it was so true to my experience.
+- All of the material for 'The Fine Line' was created via improvisation with my partner, but not in front of an audience. We'd continue to refine it in front of an audience based on their responses until it was set and scripted.
+- But so much of being an actor isn't so great - the auditioning, the rejection, the financial insecurity.
+- I used to love Woody Allen but feel he's become a hack as a director. 'Bullets Over Broadway' is the only film of his I've enjoyed in the last 10 years.
+- I was only in one play at Steppenwolf, in the early days.
+- Fear of failure has always been my best motivator.
+- Originality is, for me, the most important quality in a script.
+- Unfortunately, all the cliches we see about Hollywood are true.
+- That said, I should also add that I learned a great deal from being allowed in these privileged circles and am grateful for the opportunity to have worked closely with some of the most powerful and successful people in the business including Steven Spielberg and Ted Turner.
+- There is nothing like the high of being on stage and reaping applause, especially for emotionally needy people like me!
+- I am a big fan of the TV series 'Taxi' which combined comedy and pathos better than any other show I've seen.
+- Working in Hollywood can be tumultuous, with incredible highs and lows and you need to be grounded.
+- Robert Altman's 'Nashville' is my all-time favorite film because it covers all the bases - it's original, moving, and has something to say, but also funny and incredibly entertaining.
+- The major studios don't differ very much from one another as they all operate under essentially the same principles and pressure.
+- Animation scripts tend to be much more descriptive and are lighter on dialogue.

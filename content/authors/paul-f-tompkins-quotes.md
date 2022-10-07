@@ -1,0 +1,106 @@
++++
+author = "Paul F. Tompkins"
+title = "Paul F. Tompkins Quotes"
+quotes_len = "100"
+description = "the best 100 Paul F. Tompkins Quotes"
++++
+- Obviously a president can't rule as a king and ban all guns. But I think we need a president who is going to make sure that there is gun control and that people still feel like their freedoms are intact.
+- When I started my own podcast, I realized I definitely wanted to do characters.
+- When Huell Howser died, James Adomian had done Huell Howser for years. As crazy as that impression was, James genuinely loved Huell Howser.
+- As much as I love live performance and as much fun as it can be to travel around, it really is nice to be able to stay at home and make a living and pay the mortgage and spend time with my wife.
+- I long ago vowed, as Batman did before me, never to make fun of stuff that people couldn't help. Because it's (1) easy and (2) not fair. There are plenty of things that people have complete control over that are worthy of ridicule.
+- Everyone is always asking me about clothes.
+- I love clothing, and I love fashion, but I think that there is too much pedantry in fashion, and saying, 'You have to wear all of these things together; you can't button this button.' You know, all of that kind of stuff.
+- I love words, and I love that there's so many words available to make a point and to create a picture.
+- I think I've almost killed myself 1,000 times eating some sandwich as fast as I possibly could and almost choking. It's a miracle that I'm still alive.
+- My first car was a 2011 Mini Cooper, because I only learned to drive in 2010.
+- What I do with impressions, I try not to be mean-spirited. To me, it's just about being silly.
+- I love to do the stream-of-consciousness thing, because it's exciting for me, and I like to think it's exciting for the audience, too.
+- I just approach everything by just doing the best job I can do and try to be a pleasant person.
+- I always liked dressing up. I think, because I always liked performing, I always liked costumes and things like that.
+- You can find nice clothes that suit your style at any number of places - Goodwill, Salvation Army, stores like that. They're all over the place. If you put in the time, you can find good stuff at decent prices.
+- I have a friend who only buttons the bottom button of his suit jacket, which you're not supposed to do. 'Supposed to do.' But it's his thing, and it's his personal style, and it's like you've got to honor that. People can do whatever they want.
+- Puppets can get away with saying things that human beings can't. Because they are cartoonish just to look at, they're not real, you can assign them insane things to feel and vocalize.
+- The way we get our news is very important, and the idea that the media doesn't always do right by us, and that they focus on things they shouldn't for ratings, is very important, and it's absolutely worthy of ridicule.
+- In an effort to devote more time, energy and focus to fewer projects, I've had to make some tough decisions, and one such decision was 'retiring' from 'Speakeasy.'
+- For me, writing is just a means to an end. It gives me something to do on stage.
+- Earwolf had approached me a long time ago, even before I had started the 'Pod F. Tompkast.' I knew that I wanted to do a podcast, and I knew everyone there and that it was something for me to do, but I didn't know quite what I wanted to do yet.
+- I think, in a way, the stand-up prepped me for the improv, because I do a lot of riffing in my stand-up.
+- Performing live can be a drag, the process that leads up to the actual performance. It's all the travel, it's working up all the details and everything, which I hate.
+- I love The Rock. I never want him to be president.
+- Mork, played by Robin Williams, was my introduction to improv, and my first real peek behind the curtain of television production; I had seen Williams riffing on 'The Tonight Show' and soon put it together that certain scenes with Mork were not scripted.
+- I think that a lot of times Mr. Peanutbutter is absolutely speaking directly to the audience and saying basic, human truths that we need to hear.
+- More than just a sobering history lesson, 'Angry Birds' is a beautiful game. It's absolutely lovely.
+- I consume a lot of podcasts. I'm a voracious podcast consumer.
+- I like 'Denzel Washington is the Greatest Actor of All Time Period' podcast.
+- When I go in to 'Comedy Bang Bang,' I'll go in most of the time with some beats of where we're going with the idea. Everything else is improvised. Nothing is scripted. A lot of times I'll go in there with nothing and it's just conversation with the character.
+- Part of our job is to dig deep and rediscover the joy that we had when we were first starting out. Also, when you gain responsibility, if you are the host of a TV show and you have responsibilities as a producer and a writer and so forth, you then have to deal with the mechanics of it, which is not always fun.
+- I have Peter O'Toole's autograph on a first-edition copy of his autobiography that I acquired under false pretenses.
+- I would love to see the Replacements get back together at the Spoleto Festival in South Carolina, because I never got to see them live and I love Charleston.
+- Happy Days,' 'Laverne & Shirley,' 'Mork & Mindy' - it takes no effort at all to conjure, physically, the profound excitement I felt watching these shows in prime time. I remember sitting on the floor, too close to the TV, rapt.
+- I've had people - I've seen people do routines that I knew they didn't take from me but they had - because for whatever reason I had stopped doing it a long time ago. There's no way they would have heard this bit. But it ends up being pretty much the same thing.
+- Dress how you like to dress. Don't worry so much about rules.
+- The ideas that you find funny and the things that you are offering to an audience are tied up with who you are and your soul and your heart.
+- I always wanted to be a performer.
+- The first time I did Cake Boss or Ice-T or Andrew Lloyd Webber was on 'Best Week Ever.'
+- A big difference between podcasts and radio is the intimacy. Radio oftentimes feels big and loud. To me, podcasting is closest to that weird late night stuff, whether it's late night love song request lines, or it's some talk radio show where you feel like you're the only person listening to it.
+- Writing a book is something I actually feel like I could do. I don't know when that would happen, but I feel like if the right idea strikes, whether it be short stories or a novel or even a memoir that would be more substantial than most of the comedian memoirs people put out where it's big font and all the chapters are like ten pages long.
+- When you're getting your facts from people, consider the way that they are being given to you.
+- I make my money from a lot of different sources, so I'm not depending on any one thing to really pull through.
+- The thing you have to be on guard against, more than anything, is self-sabotage. You have to make sure you're not your own worst enemy.
+- If you pay attention, stand-up can be great improv training ground. But one of the things that helped me the most was doing warm-up for the 'Mr. Show' tapings way back when.
+- Fonzie was impossibly cool.
+- Overall, I just love performing so much that when I write, I want to write for me. I kind of learned that on 'Mr. Show,' that even in an environment where you can write whatever you want - which is what that environment was - I realized, 'Man, I still want to be the guy out in front.'
+- I'm fascinated by people who can keep who they are in the midst of this business, which is all about not only pretending to be other people, but also that perception of who you are and how successful you are and your standing in the business.
+- I've said things that, now, I wish I hadn't said because times have changed and like the me of 15-20 years ago made a joke that I wouldn't make today because I - just because I look at the world differently now, you know. And because the world is different now. And, you know, it's all part of a maturation process, I think, for everybody.
+- What I love about improv so much is that we are all discovering it at roughly the same time. The performers are maybe, what, a half second ahead of the audience? There's very little lag time. I think of a thing, I say it, then the audience is laughing and it all happened in a second.
+- An audience can become a mob very easily.
+- Just because I have a good vocabulary, I don't think of myself as anachronistic - just because I try not to use the word 'like' every other word.
+- It's important for us all to elect people not just on blind party loyalty. We've got to really examine what candidates say and do.
+- Cake Boss, I guess, has been made aware of my impression and finds it amusing and recognizes that it's not a completely accurate impersonation of who he is in his daily life. He seems to be a good sport about it.
+- Politics is a thing that is kind of the same over and over and over again. But we have to find new ways of poking fun at it and letting the air out of people and satirizing things that are worthy of satire.
+- The old Johnny Carson 'Tonight Show' was great in that he was so good with the guests, and it was not about him. I think he was very smart in realizing 'I have plenty of screentime on this show. I do my monologue and we do sketches and stuff like that.' During the interview, he really made it about trying to bring the best thing out of the guest.
+- Being in Los Angeles, I've had access to some of the best improvisers around and I really study them and what they do. It really it just about listening and what you can add to it.
+- I always like things that shrink the world for me, that make me feel a strange connection, not just to the person that I'm listening to but to the world.
+- How did we kill time before smartphones? I honestly can't recall. I have a vague recollection of flipping through magazines in waiting-room-type situations, but what did we do, say, in line at the post office? Waiting for a bus? Waiting for someone to meet us at a restaurant? I mean, did we just look around or something?
+- We each have our own style but yeah, when you boil it down like there are certain things that human beings just are predisposed to laugh at and we're just kind of all putting our own spin on it.
+- I loved Garry Marshall. The television shows he created in the '80s were the most deeply important entertainment of my childhood.
+- A struggle in my life is to feel like I'm a good person and to feel like I'm a nice person. I try to be and anytime I fall short of that it feels really bad.
+- I don't find monkeys inherently funny.
+- The podcasting world has changed the way I book my shows. I knew that I could announce a gig on a podcast and that people would hear it. People that like what I do would hear, 'Oh, he's in my city.' And that makes it so much easier.
+- It is so easy to avoid getting in a fist fight. If you're at a point where you're squaring up against someone in public, then it's on you. There are so many ways to not get in a fist fight.
+- People are going to hire you, or they're not, and there's only so much you can do to hedge your bets.
+- Comedy Bang! Bang!' has meant so much to me over the years, and has brought me so much and so many new fans.
+- Nobody held a gun to my head and forced me to write recaps about the tenth season of 'American Idol.' Although I feel like someone must have and I just forgot about it.
+- When I started stand-up, the people I admired most were the people who were the most themselves onstage.
+- I seem to be one of those people that's immune to Super Bowl fever. I may be a carrier, but I'm immune to it myself.
+- It's great to work with friends. Sometimes it works out, sometimes it doesn't, but everybody goes into it knowing that. Like, 'We might be really good friends, but we might be terrible collaborators.'
+- I got married and we had a relatively simple wedding and there were not a lot of thrills to it.
+- Ultimately, some of these things I did not get paid for, they did not further my career, they were done just for fun.
+- Elections are so crazy.
+- When I first started doing stand-up back in Philadelphia, the idea of being a professional writer was completely beyond me. It didn't even occur to me that that was something you could do.
+- You know, back when I was a kid who wanted to be in show business, everybody on TV wore nice clothes. They were very glamorous when they would be on the 'Tonight Show.' All the dudes wore suits and ties and that just seemed like real show business to me.
+- TV jobs that I've had in the past, one of the side effects that is so wonderful is that it gives you a sense of normalcy because you're going to the same place every day, and you sleep in your own bed at night.
+- There's so much being said about Donald Trump already, all the time, and the more you joke about him, the more you risk making the same jokes other people are making about him.
+- The first thing you start with when you're trying to write something funny is it has to - it really has to come to you first. I has to be an idea that you have that first makes you laugh, that strikes you as funny.
+- On 'Best Week Ever,' I met a few previous 'Idol' winners, and they were the nicest young people you'd ever want to meet. It is a tribute to them that they emerged from 'Idol's' cynicism factory seemingly without mercury poisoning of the soul.
+- I don't know grammar but I do know that I love playing games on my phone.
+- Ice-T is a great sport about people doing impressions of him, apparently, obviously, and so I have no choice but to be a great sport about being pranked by Ice-T.
+- When the response to comedy becomes cheering instead of laughing, that is so irritating. It's the worst.
+- We all forget that when a TV network says, 'Look, we're broke,' it means that they're not making as much money as they would like to be making. They're still making millions and millions of dollars - they're just not making billions and billions of dollars.
+- I enjoy very traditional stuff, and I enjoy kind of outlandish stuff, and I just really like clothes. I always have.
+- I do think I'm terrific at giving advice. Although in our hearts we usually know what we should do. It's rare that you get in a situation in life where you don't know how to proceed. You know the thing you should do, but don't want to.
+- It seems the more shallow and mean the candidates are the more they rise in the polls.
+- There are absolutely no limits with podcasting because you can do anything you want.
+- When the task is mocking pop culture, it's easy to make sarcastic comments and consider the job done. After a while, I began to feel like this route was completely pointless. Talking about silly, inconsequential stuff doesn't mean you can't put some effort into it.
+- From a personal standpoint I really like that Bernie Sanders is making so much noise.
+- When I started doing stand-up in the late eighties, that was not an uncommon thing, that people dressed for the stage. I've seen that change as time has gone by to where, for me, it's something that people remark on. And that's when I started to really embrace it in a way and get more flamboyant and foppish with the way that I dress.
+- I think that we all enjoy silliness to varying degrees but I think everyone can enjoy a relatable thing if it is expressed in a funny way.
+- Well 'The Pod F. Tompkast,' as much as I love the result of it, was a really labor intensive show. There's a lot of writing, there's a lot of scheduling, there's a lot of recording - it's not a show that we can necessarily do in one day because there are so many moving parts to it.
+- If written with enough care and thoughtfulness, a joke can make you laugh at a belief you hold dear.
+- You can make me laugh at a thing that I think is horrific. You can make me laugh at a thing that affects me personally. But if you've done your homework and you've gone about it the right way, it will still be funny.
+- I'm not afraid of you, 'American Idol.'
+- Some people just want to make up the funny things and play pretend.
+- I think you can make jokes about anything. But you have to accept that there will be people who don't like it. And they are completely within their rights, just as you are completely within your rights to say whatever you want to say. They're within their rights to react how they're going to react.
+- Look, we have long known that birds and pigs are mortal enemies. That's just the way of the world. Birds hate pigs.
+- I have a hernia scar from when I was a kid. I had a hernia when I was like in fourth grade.

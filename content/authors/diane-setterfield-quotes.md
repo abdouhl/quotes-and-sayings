@@ -1,0 +1,16 @@
++++
+author = "Diane Setterfield"
+title = "Diane Setterfield Quotes"
+quotes_len = "10"
+description = "the best 10 Diane Setterfield Quotes"
++++
+- You have to relax, write what you write. It sounds easy but it's really, really hard. One of the things it took me longest to learn was to trust the writing process.
+- Excessively narrow reading is unhelpful, certainly. Reading only Serious Literature is no better than reading only trash in this respect.
+- My liking for Scandinavian crime fiction led me into exploring literary writers from the same countries.
+- I have kept a reading diary since I was 18. I am jealous of my friend who has kept hers since she was ten.
+- We are made of the stories we have heard and read all through our lives.
+- My mother says that after I first visited the home of the man I later married, she knew it was serious when I told her, 'Mum, he has more books than me!' So, books are at the very heart of my life.
+- I see people as haunted by the selves they don't know... I don't have children, but I have nieces and nephews, and one thing I notice is how fascinated they are by stories of their lives before they can remember.
+- The addictive pleasure of abandoning yourself to a book, of losing consciousness of your worries, your body, and your surroundings, to become a ghost haunting other worlds has influenced me in many ways.
+- I am always happy up a ladder with a paintbrush in my hand. And I wish I had more time to spend in the garden - not least because I get good ideas for writing when I'm out there.
+- For several decades, I believed it was necessary to be extraordinary if you wanted to write, and since I wasn't, I gave up my ambition and settled down to a life of reading.

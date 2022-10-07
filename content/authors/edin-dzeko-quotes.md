@@ -1,0 +1,97 @@
++++
+author = "Edin Dzeko"
+title = "Edin Dzeko Quotes"
+quotes_len = "91"
+description = "the best 91 Edin Dzeko Quotes"
++++
+- I turned down a lot of money by not going to Chelsea, but that's not what I'm interested in.
+- I never want to stop, and I want to try to be even better.
+- I never played any games like this in Germany, not when you have to fight for 90 minutes. But if I want to be successful in England, I have to get used to it.
+- I started to play football when I was about 10; my father brought me to one school because there were more pitches where we could play.
+- If you win, you must be a good team.
+- The secret? Hard work. And more hard work.
+- I want to do more and more; it provides me with an incentive.
+- I have spent four wonderful years with Manchester City. They have grown a lot over the years.
+- The fans have always shown so much faith in my ability, and I feel so much love, both from supporters inside Manchester and from those all over the world.
+- Manchester City didn't pay all that money for me because they saw me once on YouTube. They saw me scoring good goals. And I haven't forgotten how to score goals.
+- For every striker, it's important to have some crosses. Sometimes they come, sometimes not.
+- That's the English Premier League. You can win against the best teams and then lose against the last.
+- Every time I see a paper, for what seems like a year or more, there is a story saying that I am leaving City or that I want to go. But I've never said that, so the stories don't come from me. I've always wanted to stay at City and fight for my place.
+- I was six when the war started. It was terrible. My house was destroyed, so we went to live with my grandparents. The whole family was there, maybe 15 people all staying in an apartment about 35m square. It was very hard.
+- I think, for every player, it is important he knows the manager believes in him, and it is important he has the confidence of the manager. That helps you to find the best form.
+- Chelsea is a great team with some amazing players.
+- Since I left, I follow every City game in every competition, and it's just natural for me because I feel it is still my club, even if I'm not there anymore.
+- I will never be a super sub. I want to play.
+- To be honest, I don't feel like I am able to say that I had a childhood, not in a way normal kids my age had. I had something that was specific to Bosnia in '90s, something I call a period of survival.
+- Honestly, I don't know why we can't transfer the mentality we have in the Champions League to Serie A.
+- Regardless of what I was and who I am, above all, the most important thing is to remain human.
+- When the opportunity came, it was a fantastic thing for myself and my family to do, I couldn't wait to put on a Bosnia shirt, and I haven't really looked back since.
+- I have spent some of the best moments of my career at Manchester City, moments that I will never forget.
+- United always had that flag which counted the years City were without a title, making fun of our fans. After the 6-1, they were quiet!
+- When you score in the first minutes, everything changes.
+- If we start the season with negative thinking, we'd never win anything.
+- Communication is important, and when you have an understanding with someone on the pitch, it is the most important thing.
+- After I finish with football, I will definitely go home. I won't stay in England, but I like it here, and I'm happy I'm doing what's best to give everything on the pitch, and then when I can, I relax. But the only bad thing is here maybe the rain is much more than in my country, but everything else I am happy with.
+- I've followed Roma because my friend Miralem Pjanic is here. It's a great club. I have a good relationship with Miralem.
+- Of course, there is no greater honour than to captain your own country.
+- Shevchenko was always the favourite player for me. He was my idol. When we met, we exchanged shirts and talked for a while. It was great.
+- The first goal is always very important.
+- I'm fine at Wolfsburg, and I'm happy to be able to play in the Champions League.
+- For the two and a half years in Italy, I can be happy with what I did.
+- I played my first derby, I won, and I scored. As good as it gets!
+- I will continue to be a big fan of Manchester City, to whom I wish all the best and many more trophies and happiness in the future.
+- I was always attracted most to joining City, and I am pleased to be at such a good club with such a big ambition as Manchester City.
+- I cannot hide being sorry for failing to move to Juventus.
+- If you do not play well, it is normal that they criticise you. But criticism is part of the game, so you accept it.
+- I try to assist team-mates.
+- I really don't need luxury.
+- Nothing compares to Rome. Nothing. People there are crazy about football - in a positive way.
+- At Roma, it's not easy: if you win three games, you've won the league title; if you lose one, everything is bad.
+- Every player needs time to settle in and to get used to a new club, from knowing the league to the other players - everything.
+- Of course we all dream about doing big, playing for big clubs, but I wanted to play football because of the love for the game.
+- I've always tried to help younger players and to talk with everyone.
+- Everyone expects goals, and I want to score them, but most of all, I want to contribute to a successful team.
+- Saying goodbye to close ones is always the hardest.
+- Working hard, I hope to achieve the things I did in Manchester with Roma.
+- Having been raised during the war, I know very well how childhood hampered by displacement, poverty, violence, and fear looks like.
+- When you're a young boy, you don't think; you just go for it. When you have more experience, you have to play more with your head.
+- I'm really happy here at City. It's a second home to me, so it was an easy decision to stay for the long term. I knew from the beginning when I started here that I wanted to stay for a long time - I can't see any place better than here.
+- I was never a super sub before I came to City. I used to play always from the beginning, and I scored a lot of goals not as a sub.
+- Never have I doubted myself, because I know what I am capable of.
+- When you get 10-15 minutes, you can't be sad or angry with the coach. You just have to play your game and do your best. That is in my mind always.
+- Every striker is stronger when we play with wingers.
+- Nobody is happy when they're not playing.
+- I don't like to talk too much about differences between managers.
+- I am genuinely flattered by Chelsea's interest. It's a club I really respect, and hold in great esteem.
+- Every player has his goals.
+- I'm happy to be with Roma, and I think the club should be, too.
+- I love the Bundesliga, and I will return to the Bundesliga. I can just not say when I will return.
+- I came here to win titles with Roma. I can only promise one thing, and that is that I will give my best for this club in every game.
+- That was always special, playing Manchester United. I loved the feeling of the derby, that pressure, the atmosphere around it. And I did have some good matches there, didn't I?
+- I think the No. 9 will always be in football. You need the proper No. 9s in football; that's my opinion.
+- War made my everyday problems seem much smaller, and when it is hard sometimes, I just remember that it could be much worse.
+- Goals don't bother me, even though it is my job. I am as happy when team-mates scores as I am when I score. Winning is what matters.
+- For every striker, it's important to have the confidence of the coach.
+- English Premier League is much harder and quicker, and also, the referees are totally different because in England, they don't whistle after every small contact like in Germany.
+- I wish to thank all fans who support me, but the others should be ashamed because I am a born winner and always played my heart out for the national team.
+- I'm not interested in money.
+- We want to show the world that even if you go through some bad periods, you always have to think positive just to go forward.
+- I owe Wolfsburg everything. Without them, I would not have had the chance to play for Manchester City or Roma.
+- For every player, it is important to be fit and have a good pre-season behind him.
+- I know people will criticise when you play bad; that is part of this job, and I am fine with that. That is not a problem. The problem is the insults. That is what hurts the most.
+- I love Manchester. I really do. It's a lovely city, lovely people, and I really enjoyed it there.
+- I still have a home in Sarajevo, and there is a room where the walls are covered with football jerseys. One is a Milan shirt with Shevchenko's name and number on the back. It is an original from one of his Serie A appearances, and he has autographed it. It has pride of place. It really is my prized possession.
+- Strikers are expected to score, and I have two goals in eight games.
+- Hopefully I'll have a lot of success.
+- I'm happy I've stayed because Rome has become my home and an indelible part of my life, in an almost unreal way.
+- David Silva is a great player, and also, off the pitch, he's a great lad.
+- I am excited to play alongside players such as Carlos Tevez and Yaya Toure, whom I have only seen on TV, and to be in the same team as players I have played against such as Jerome Boateng and Vincent Kompany.
+- City are playing for first place in the Premier League, and that is what I want.
+- I can just remember what I have seen, and then I often think about how I do well throughout the match, and then, if I miss one chance, everyone talks about the miss. Only that.
+- I try to do my best in every game to help the team.
+- Everybody speaks about City having lots of money, but it is not about that. It is about ambition, and I have spoken to Coach Mancini, and he told me, 'This is the best club for you.'
+- My motto has always been, 'Never give up.'
+- I am happy that United seems to be one of those against whom I score a lot!
+- I'm just a regular guy. I have a lot of friends and love to spend my time with them.
+- I am not a player who stays on the edge of the box and waits for a chance.
+- I always try to do my best. Sometimes is that enough to get a good result, sometimes not, but I never give up, and I never will.

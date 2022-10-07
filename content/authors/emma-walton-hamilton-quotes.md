@@ -1,0 +1,38 @@
++++
+author = "Emma Walton Hamilton"
+title = "Emma Walton Hamilton Quotes"
+quotes_len = "32"
+description = "the best 32 Emma Walton Hamilton Quotes"
++++
+- And for me I think I was originally a theater person, a producer/director/actor.
+- I think writing and reading are completely synergistic; not necessarily in that one has to be a good reader to be a good writer or vice versa, but that they so inform each other.
+- When I was three years old, a nanny took me shopping and I saw large cut-outs of Mary Poppins in the store and yelled, 'That's mummy!' These women walked by and said, 'Oh how cute. That little girl thinks that Mary Poppins is her mum.'
+- I think I personally, as a writer, read differently knowing how tough it is to write, knowing how challenging it is to articulate it, to express clearly and economically and with focus and with purpose.
+- My husband, Steve Hamilton - an actor/producer and co-Director of the Southampton Playwriting Conference - and I had been working in the theatre in New York for many years.
+- Netflix is so amazing because they take chances. They'll take a risk, be edgy, be quirky.
+- I have a picture of me sitting on the step of a brownstone stoop with my mom and all the Muppets around us. And Perry Como, for some reason.
+- I think that children who read are better writers, and children who tell stories appreciate books.
+- I was able to hide a lot behind 'Walton,' and found that to be quite useful.
+- I have a transgender nephew on my father's side of the family. So I'm extremely aware of how important it is to support and advocate for young people who are experiencing that in their lives.
+- I am my mother's daughter.
+- Mom was never self-pitying. She was ferociously focused on making sure that everyone understood that she knew how fortunate she has been.
+- I don't remember a time when it wasn't, when I didn't feel like the LGBTQ community was part of my life and part of reality.
+- Stay strong. Stay true to yourself and to who you are because there is community out there. It may not be in your town or perhaps even in your family, but you are wanted and you are loved and there are places in the world where you will be safe and supported.
+- If you wait until you're an adult to be exposed to the arts, it could seem elitist, it could seem out of reach, it could seem scary.
+- We certainly had our moments when I was growing up. But the great thing was, if Mom was working on a night shoot, she'd be up making breakfast before school.
+- The arts are the most uniquely suited to provide young people with critical-thinking skills, problem-solving, teamwork and collaboration, empathy and tolerance and compassion, looking at the other point of views.
+- My background is in arts education and we know, absolutely for a fact, that there is no better way for kids to learn critical thinking skills, communication skills, things like empathy and tolerance. This is true across every boundary, across cultural boundaries, across socioeconomic, it's a great leveler in terms of unifying our world.
+- We're both very passionate about the arts. Mom, of course with her arts background. I have a theater background and work with children.
+- The arts give kids the building blocks with which to then play.
+- Sometime in my 20s, a wise mentor said something that dramatically changed my outlook and that has stayed with me ever since. She told me to 'wear the mantle with dignity and pride.'
+- Yeah, I think the arts and literature have always been irrevocably connected. Because if you think about it, every film script, every play, every song starts as words on the page before it is ever performed or filmed or sung.
+- Stony Brook is a phenomenal university and I am proud to be affiliated with it, so it is gratifying to be able to support this wonderful institution in whatever way I can.
+- My parentage set me up to want to make a life of my own in the arts, but also contributed to my feeling a certain amount of pressure, especially in my early years, to figure out who I was and how to make my own mark.
+- I think that at a certain point in our lives we should have to interview our parents.
+- At a time when there is so much tension in the world - between cultures, and nations, and so forth - there is nothing that levels the playing field more than the arts.
+- With my mother, Julie Andrews Edwards, I've authored such children's books as the 'Dumpy the Dump Truck' series, 'Dragon: Hound of Honor,' 'The Great American Mousical,' 'Simeon's Gift' and 'Thanks to You: Wisdom from Mother and Child.'
+- My work in the theater began to shift more towards young audience type of work and education programs for children, arts education programs.
+- So often we think, well, kids learn to read at school, I don't have to be responsible for that. But in fact they learn to love reading at home, and therefore it's really important that we as parents preserve the joy of reading by supporting them and reading things that speak to their hearts, books that they love.
+- If the arts are in peril, we must do our small part to to fight the good fight and protect and preserve.
+- My mom's coping mechanism was to be strong and resilient. She is very compassionate and nonjudgmental.
+- Young children especially are receiving so much of the world through their ears and their eyes, particularly if they're pre-literate. So engaging them with sound, particularly sound that stirs them emotionally because of the sequence of notes, will make them pay attention.

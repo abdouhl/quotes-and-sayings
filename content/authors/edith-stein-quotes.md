@@ -1,0 +1,31 @@
++++
+author = "Edith Stein"
+title = "Edith Stein Quotes"
+quotes_len = "25"
+description = "the best 25 Edith Stein Quotes"
++++
+- Diverse forms of memory can have a variety of gaps. Thus it is possible for me to represent a past situation to myself and be unable to remember my inner behavior in this situation. As I transfer myself back into this situation, a surrogate for the missing memory comes into focus.
+- If anyone comes to me, I want to lead them to Him.
+- The emotions have been seen as the center of woman's soul. For that reason, emotional formation will have to be centrally placed in woman's formation.
+- Because human development is the most specific and exalted mission of woman, studies in anthropology and theory of pedagogy are essential in girls' education.
+- The entire educational process must be carried out with love, which is perceptible in every disciplinary measure and which does not instill any fear. And the most effective educational method is not the word of instruction but the living example without which all words remain useless.
+- Since Mary is the prototype of pure womanhood, the imitation of Mary must be the goal of girls' education.
+- As for what concerns our relations with our fellow men, the anguish in our neighbor's soul must break all precept. All that we do is a means to an end, but love is an end in itself, because God is love.
+- The nation... doesn't simply need what we have. It needs what we are.
+- My longing for truth was a single prayer.
+- The limitless loving devotion to God, and the gift God makes of Himself to you, are the highest elevation of which the heart is capable; it is the highest degree of prayer. The souls that have reached this point are truly the heart of the Church.
+- The community that stands behind a culture as a comprehensively productive personality must be so extensive that in it, to a certain degree, all partialities balance out and work together.
+- Peoplehood tends to develop into nationhood if the people achieves a certain maturity. This is analogous to an individual person who becomes acquainted with herself only in the course of her life, without being able to say that she possessed no personal uniqueness at all before that 'self-recognition.'
+- One could say that in case of need, every normal and healthy woman is able to hold a position. And there is no profession which cannot be practiced by a woman.
+- The state has got to be its own master. The modalities of civic life may not be prescribed for it through any power standing outside of that state - be it a private person or be it a community superior, collateral, or subordinate to that state.
+- On the question of relating to our fellowman - our neighbor's spiritual need transcends every commandment. Everything else we do is a means to an end. But love is an end already, since God is love.
+- During my early years, I was mercurially lively, always in motion, spilling over with pranks, impertinent and precocious, and, at the same time, intractably stubborn and angry if anything went against my will.
+- In order to be an image of God, the spirit must turn to what is eternal, hold it in spirit, keep it in memory, and by loving it, embrace it in the will.
+- A community having the breadth and scope of a people still cannot claim to be an ethnic community unless and until there emerges from its mentality a distinctive culture particularized by the community's special character.
+- Those who join the Carmelite Order are not lost to their near and dear ones, but have been won for them, because it is our vocation to intercede to God for everyone.
+- Every true prayer is a prayer of the Church; by means of that prayer the Church prays, since it is the Holy Spirit living in the Church, Who in every single soul 'prays in us with unspeakable groanings'.
+- All our own present experiences are primordial. What could be more primordial than experience itself?
+- As the possessor of complete knowledge, God is not mistaken about people's experiences as people are mistaken about each others' experiences.
+- Whoever resorts regularly to the lessons of Holy Scripture as an apt pupil will take the Savior into her group, and the children will perceive that He is present and that He assists in their work; thus, He will take possession of their souls.
+- This is a serious warning cry: Surrender without reservation to the Lord who has called us. This is required of us so that the face of the earth may be renewed.
+- Both spiritual companionship and spiritual motherliness are not limited to the physical wife and mother relationship, but they extend to all people with whom woman comes into contact.

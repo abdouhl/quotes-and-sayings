@@ -1,0 +1,30 @@
++++
+author = "Greta Scacchi"
+title = "Greta Scacchi Quotes"
+quotes_len = "24"
+description = "the best 24 Greta Scacchi Quotes"
++++
+- The only work I did for the next five years after splitting from Vincent was work I'd already lined up.
+- On the stage, you alone hold the key, and on the night you have to trust that the director has inspired you enough to take the material and run with it.
+- I have invested some money and I have a home, but people don't realise that you might only be working for a few weeks of the year and remain unemployed the rest of the time.
+- In many ways, when you're young and sexy, it's very annoying to be whistled at and to have someone always trying to attract your attention, but now when it happens I find myself registering the fact almost warmly.
+- I look for people who're passionate, dedicated to the text, and in whom I trust completely.
+- I feel lucky, happy and philosophical about it all.
+- You seldom get that in film where you're lucky if you get any say at all in the final cut.
+- Hollywood will accept actresses playing ten years older, but actors can play ten years younger.
+- I'm a heathen when it comes to marriage.
+- Theatre is a sacred space for actors. You are responsible; you are in the driving-seat.
+- I always knew it was going to be difficult when I got beyong 40, but I didn't realise it would start at 35.
+- I've been through some very difficult stages in my life, but I wouldn't change anything.
+- My father was absent and he was a hero to me.
+- A relationship requires a lot of work and commitment.
+- I avoided nudity unless a film couldn't be told without those scenes. If you look at my films, few of them have that element, yet nudity and male fantasies have become emblematic of my work.
+- I want to come across as a positive person.
+- Once, I had so many scripts coming to me that I could hardly read them all.
+- Having had a reputation for being sexy is a great prop to lean on now.
+- Two people can make love but that isn't necessarily love.
+- I came to Ireland 20 years ago as a student, hitch-hiking round for a week and staying in Dublin.
+- I have done everything I can to make sure my daughter knows her father because you form your own identity by rebelling against your parents - but first you have to know them.
+- I had the conviction that lovemaking fools you. The overpowering emotions it induces make you think you're sharing the same feelings as the other person and that they're imagining the same as you.
+- With a theatre audience there's always the additional sense of a sustained challenge of which I'm acutely aware and for which you need to have the tools ready - your voice, physicality, brain.
+- It helped me when I decided that we're on this planet to learn to live together and get along.

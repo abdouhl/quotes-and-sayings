@@ -1,0 +1,125 @@
++++
+author = "David Petraeus"
+title = "David Petraeus Quotes"
+quotes_len = "119"
+description = "the best 119 David Petraeus Quotes"
++++
+- I think no commander ever is going to come out and say, 'I'm confident that we can do this.'
+- I had the privilege of serving in uniform with British forces in Cold War Europe, Bosnia, Iraq, Afghanistan, and the greater Middle East.
+- The foremost threat to Iraq's long-term stability and the broader regional equilibrium is not the Islamic State, it is Shiite militias, many backed by - and some guided by - Iran.
+- Reconciliation is what takes place, of course, at higher levels. President Karzai has been very clear about the red lines for reconciliation, accept the constitution, lay down their weapons, cut their ties with al Qaeda and essentially become productive or at least participating members of society in that regard.
+- Beyond Iraq, I am also profoundly worried about the continuing meltdown of Syria, which is a geopolitical Chernobyl. Until it is capped, it is going to continue to spew radioactive instability and extremist ideology over the entire region.
+- In counterinsurgency operations, the human terrain is the decisive terrain.
+- We will win again in Iraq; I do think that Iraq can definitely be handled. I think that it can be kept intact.
+- Iraq is a country I came to know well and the place where I spent some of the most consequential years of my life.
+- The bottom line is, you really have to commit to something if you're going to be successful in it.
+- Mubarak would meet with me when I was at Central Command. He would lean and put his hand on my knee, as if a father figure, and say, 'General, don't ever forget the Arab Street. Listen to the Arab Street.' I'd like to go to him now and say, 'Mr. President, what about that Arab Street, what's that all about?'
+- I considered our British comrades to rank with the finest men and women of any armed service in the world. And I know that my fellow American soldiers - and those of the other coalition countries under my command - valued very highly the professional expertise, capability, courage, and determination of our British partners on the battlefield.
+- There is no question that the Islamic State will be defeated in Mosul; the real question is what comes afterward. Can the post-Islamic State effort resolve the squabbling likely to arise over numerous issues and bring lasting stability to one of Iraq's most diverse and challenging provinces? Failure to do so could lead to ISIS 3.0.
+- In the 101st Airborne Division headquarters in Mosul, we had a sign on the wall. It was a question that we would ask ourselves before every new operation or policy initiative. It asked: Will this policy or operation take more bad guys off the streets than it creates by its conduct?
+- Iraq does have many, many different tensions.
+- Over time, the desire of Iraqis to contribute to their own security has manifested itself in citizens volunteering for the police, the Army, and concerned local citizen programs.
+- Like a nuclear disaster, the fallout from the meltdown of Syria threatens to be with us for decades, and the longer it is permitted to continue, the more severe the damage will be.
+- Only Nixon could have gone to China. Anyone else would have been criticised from the Right.
+- Obviously, resilience matters. I was no stranger to adversity, but it's different when it's personal. Not something I would recommend.
+- If you look at casualties, you find countries that had much higher loss rates per capita than the US. Denmark comes to mind, the United Kingdom, they have suffered heavy losses at various points, the Germans as well.
+- The idea is to go to bed every night with fewer enemies than you had in the morning.
+- Setting aside moral considerations, those who flirt with hate speech against Muslims should realize they are playing directly into the hands of al-Qaeda and the Islamic State. The terrorists' explicit hope has been to try to provoke a clash of civilizations - telling Muslims that the United States is at war with them and their religion.
+- I've truly tried to be apolitical.
+- I will not ever run for political office. I can assure you.
+- I don't vote.
+- The Middle East is not part of the world that plays by Las Vegas rules: What happens in the Middle East is not going to stay in the Middle East.
+- We cannot kill or capture our way out of an industrial-strength insurgency.
+- I really started to get a sense of how, if you will, special Zarqawi was, I guess, sort of midway through 2004.
+- No greater privilege than I had as a soldier and then as a spymaster and to some degree now in the business world.
+- There were very few people who were both intercollegiate athletes and Star Men.
+- I am not going to second-guess my old battlefield comrades from Iraq and Afghanistan; each has his own reason for what he has done.
+- Being in combat is not unending high-five moments.
+- When I was commander of Central Command, obviously we were very concerned about the developments in Yemen, the developments in Somalia and elsewhere, in Africa and so forth. But the al Qaeda senior leadership is under unprecedented pressure.
+- I've been in a position before where a president has turned to me in the Oval Office in a difficult moment, without any pleasantries, and said, 'I'm asking you as your president and Commander in Chief to take command of the international security force in Afghanistan.' The only response can be, 'Yes, Mr. President.'
+- The Germans have done wonderful work. Not long ago, a German battle group battalion conducted a very impressive counterinsurgency operation in a portion of Baghlan province. I think these are the first counterinsurgency operations conducted by any German element after World War II. And they did a very impressive job.
+- The Afghan people do not take kindly to conquerors.
+- People often ask, why aren't you reading about what it is you're working on right now? And the truth is, you only get three pages a night before your eyelids close.
+- We all have to strive to learn what motivates us, learn from our experiences, and what feels right and what feels wrong. There's a strong component over the years to having formal processes that help to identify lessons that need to be learned, and actions that need to be taken. In other words, how do you find the big idea?
+- There is not a military commander alive today who is genetically predisposed to say that he has enough ISR and assets, and particularly not in the Central Command theater.
+- This is actually true of the overall fight against al-Qaeda and trans-national extremists, that as you put pressure on them in one location, they'll seek safe haven sanctuaries in other areas. So you do have to continue to pursue them. But they have less capability.
+- Life is a competitive endeavor.
+- The Pakistani Army, the Frontier Corps, the Frontier Scouts and Police have carried out quite impressive counter-insurgency operations.
+- Every civilian's death diminishes us, collectively.
+- Ungoverned spaces in the Islamic world will be exploited by people who wish us ill. They will not be contained.
+- If you're asked, you've got to serve - put aside any reservations based on campaign rhetoric... and figure out what's best for the country.
+- The challenge of Mosul and Nineveh is the considerable number of ethnic groups, religious sects, tribes, and other elements that make up the province.
+- At a certain point, you have to take the rearview mirrors off the bus and focus forward, and that's what we've sought to do.
+- Even before the missteps that I've had, I was never going to run for office. My family is adamantly opposed to it, and frankly, my politics don't necessarily work for the primaries of either of our parties.
+- I refuse to use terms like 'optimist' or 'pessimist' and instead prefer 'realist.'
+- The president and I sat down in the Oval Office, and he expressed very clearly that what he wants from me is my best professional military advice.
+- As you will recall, soon after the 9/11 attacks, an international coalition led by the United States conducted an impressive campaign to defeat the Taliban, al Qaeda, and other associated extremist groups in Afghanistan.
+- The situation in Iraq was dire at the end of 2006, when President George W. Bush decided to implement the surge and selected me to command it. Indeed, when I returned to Baghdad in early February 2007, I found the conditions there to be even worse than I had expected.
+- I am not a politician, and I will never be, and I say that with absolute conviction.
+- You have to keep on disrupting. If you let up the pressure, then al-Qaeda senior leadership will come back.
+- The Orlando terrorist is an example of someone who was in the sights of law enforcement but never crossed the threshold from pre-criminal to criminal behavior and, thus, was not tracked adequately before this horrific act.
+- I do talk to individuals still in the business of tracking individuals in the homeland and abroad. A lot of them have felt that they were hanging on by their fingernails a bit in terms of tracking all the potential threats out there.
+- Leading the coalition military effort during the surge in Iraq in 2007 and 2008 was the most important endeavor - and greatest challenge - of my 37 years in uniform.
+- We can put a stake through the heart of Islamic State as an army. We can put a stake through the heart of its leaders. You can take away its territory. But you can't put a stake through the heart of the ideas, of the ideology, that sadly, tragically, still has some attraction for some small numbers in the Islamic faith.
+- Nothing means more to those in harm's way than the knowledge that their country appreciates their sacrifices and those of their families.
+- We need to learn from our experiences and take responsibilities for our actions and drive on.
+- I'm living the dream.
+- The proximate cause of Iraq's unraveling was the increasing authoritarian, sectarian, and corrupt conduct of the Iraqi government and its leader after the departure of the last U.S. combat forces in 2011.
+- At least from a national security standpoint, none of the problems the U.S. and U.K. face will become easier to solve if the U.K. is out of the E.U.; on the contrary, I fear that a 'Brexit' would only make our world even more dangerous and difficult to manage.
+- Leaders of the various Iraqi elements will likely have their own militias, and there will be endless rounds of brinkmanship on the road to post-Islamic State boundaries, governing structures, and distribution of power and resources.
+- I don't comment directly on actions or statements of candidates.
+- The more the Iranians are seen to be dominating the region, the more it is going to inflame Sunni radicalism and fuel the rise of groups like the Islamic State.
+- Counter-insurgency, as you know, is a roller-coaster affair.
+- I think it's reality that Iran is going to have influence in Iraq. All elements of Iraq accepted that.
+- Rumors of the American demise... have been greatly exaggerated.
+- The progress in Iraq is still fragile. And it could still be reversed. Iraq still faces innumerable challenges, and they will be evident during what will likely be a difficult process as the newly elected Council of Representatives selects the next prime minister, president, and speaker of the council.
+- In many... cases, of course, the Arab Spring has brought about instability rather than greater stability. And rather than bringing about government that is more representative and more responsive to the people, you're seeing, frankly, the opposite, or you're seeing all-out war.
+- Iran has had a very harmful effect in a variety of ways in the region... fomenting unrest to a degree in Saudi Arabia, undoubtedly in Bahrain, and definitely in Yemen with Hamas, with Lebanese Hezbollah among other activities in locations.
+- When Western politicians propose blanket discrimination against Islam, they bolster the terrorists' propaganda.
+- All Americans should take great pride in the men and women serving our nation in Iraq and in the courage, determination, resilience and initiative they demonstrate each and every day. It remains the greatest of honors to soldier with them.
+- After being married for over 37 years, I showed extremely poor judgment by engaging in an extramarital affair.
+- The word 'insurgency' had connotations that really sent a shiver down the spine of folks in Washington, in the United States - for good reason, because it means this is something much bigger than just a few terrorist cells.
+- The tragedy is that political leaders failed so badly at delivering what Iraqis clearly wanted - and for that, a great deal of responsibility lies with Prime Minister Maliki.
+- We're here so that Afghanistan does not once again become a sanctuary for transnational extremists the way it was when al-Qaeda planned the 9/11 attacks in the Kandahar area, conducted the initial training for the attackers in training camps in Afghanistan before they moved on to Germany and then to U.S. flight schools.
+- If you don't want to have to kill or capture every bad guy in the country, you have to reintegrate those who are willing to be reconciled and become part of the solution instead of a continued part of the problem. And then, above all, the resources.
+- We periodically note that there are no silver bullets, there are no magic formulas, there's no single action or component of the overall... comprehensive civil-military approach.
+- To do de-Baathification without an agreed process of reconciliation threw tens of thousands of people out of their jobs, out of their homes, out of their future, and even robbed them of their position in society.
+- You cannot deal with an industrial-strength extremist problem just with force of arms. You have to have that political component as well.
+- During the surge and in the years after the surge, Iraqi forces fought and died for their country at vastly higher numbers than did U.S. and coalition forces. We know that they can fight.
+- Committing to a particular goal publicly puts pressure on oneself. It becomes an enormous action-forcing mechanism and often helps you achieve more than you might have had you kept your goals to yourself.
+- Leadership is an individual sport, one that has to be fine-tuned to each of the people that reports to you. Leaders also need to provide the direction, energy, encouragement and inspiration for each person who reports directly to the leader as well as for the overall organization.
+- The fact is that Iran doesn't want to see the Taliban come back any more than do most Afghan citizens.
+- America is not in decline.
+- Needless to say, innumerable challenges exist in all areas of governance, and much more needs to be done to help the Afghan government assume full responsibility for addressing the concerns of ordinary Afghan citizens.
+- The formulation of sound national policy requires finding the right overarching concepts.
+- The truth is that a number of us have been saying for quite some time that it was only a matter of time until someone went to a gun show, bought a military-like semi-automatic assault weapon with a large capacity magazine, and did enormous damage.
+- A certain degree of intellectual humility is a good thing.
+- Iraq's Sunnis need to be brought back into the fold. They need to feel as though they have a stake in the success of Iraq rather than a stake in its failure.
+- Proud parents document the arrival and growth of their future CIA officer in all forms of social media that the world can access for decades to come.
+- President Obama has said that our aspirations should be realistic. We are not going to turn one of the poorest countries in the world, that was plunged into 30 years of war, into an advanced, industrialized, Western-style democracy. What we want to achieve is Afghanistan's capacity to secure and govern itself.
+- As we used to say when I was privileged to be the commander there, Nineveh province has the most diverse human terrain in all of Iraq - Sunni Arab majority to be sure, but also Shia Arabs, numerous Kurdish communities, and they are broken out into several different political parties.
+- We're all outriders out there, and what we have is all these large number of tasks - that's the herd; that's all the cattle - a whole bunch of individual, hundreds if not thousands of projects at any given time ongoing that we're trying to complete. So we're trying to keep the cattle herd, keep it all just going in the right direction.
+- Folks really need to be very cautious about overanalyzing or overparsing what I've said to this reporter or that reporter.
+- The central problem in Syria is that Sunni Arabs will not be willing partners against the Islamic State unless we commit to protect them and the broader Syrian population against all enemies, not just ISIS.
+- There is nothing I can do to undo what I did. I can only say again how sorry I am to those I let down and then strive to go forward with a greater sense of humility and purpose, and with gratitude to those who stood with me during a very difficult chapter in my life.
+- The bottom line is that Daesh's defeat requires not just hammering them on the battlefield but, simultaneously, revived political reconciliation with Sunnis.
+- I think carpet bombing is an absolutely tremendous idea if the enemy accommodates you by laying himself out like a carpet in the middle of the desert without any civilians or infrastructure around him. Sadly, the Islamic State has learned that that is a losing proposition and does not accommodate us in that way.
+- It wasn't just Shia that would go to Tehran and see the commander of the Quds Force and others and the legitimate government leaders. It was also Kurdish leaders and Sunni Arabs who would even link up with Qassim Suleimani, the commander of the Quds Force - maybe not in Tehran but in Turkey or somewhere else.
+- But clearly, this is what this is about. It's about pushing the security bubble out. It's about rooting out every last guy, so that there's not even somebody who can fire a single, solitary RPG round from some little qalat out here.
+- Items of interest will be located, identified, monitored, and remotely controlled through technologies such as radio-frequency identification, sensor networks, tiny embedded servers, and energy harvesters - all connected to the next-generation internet using abundant, low-cost, and high-power computing.
+- The Congress, the executive branch, and our fellow citizens have done an enormous amount to support our troopers and their loved ones. And all of us are grateful for that.
+- I can't for the life of me think of the link between Iraq and why a fruit vendor self-immolates in Tunisia and cracks this seemingly solid crust that turns out to be so fragile that societal unrest touches off.
+- In all of our efforts, we continue to emphasize the importance of inclusivity and transparency on the part of the Afghan government and leadership, especially in linking nascent local governing institutions to the decision-making and financial resources in Kabul.
+- Ethno-sectarian violence is a particular concern in Iraq, as it is a cancer that continues to spread if left unchecked.
+- Partners from the Islamic world are of particular importance. Indeed, they have huge incentives to be involved, as the ongoing struggles are generally not clashes between civilizations. Rather, what we are seeing is more accurately a clash within a civilization: that of the Islamic world.
+- I'm heartened that, for the first time, we're seeing some of the Internet Service Providers and the social media sites taking action against the Islamic State. That's the kind of initiative that can very, very much augment on an industrial scale what the government is trying to do.
+- There aren't always a hell of a lot of absolutely right answers out there.
+- There is no question in my mind that a 'Brexit' would deal a significant blow to the E.U.'s strength and resilience at exactly the moment when the West is under attack from multiple directions.
+- During the surge in Iraq, we were able to roll back the tide of al-Qaeda and associated insurgents because we succeeded in mobilizing Iraqis - especially Sunni Arabs - to join us in fighting against the largely Sunni extremist networks in their midst.
+- Central to achieving progress in Afghanistan - and to setting the conditions necessary to transition security tasks from the international community to the Afghan government - is increasing the size and capability of ANSF.
+- In many respects, Afghanistan represents a more difficult problem set. It does not have a number of the blessings that Iraq has in terms of the oil, gas, land of two rivers, the human capital that Iraq built up over the years, the muscle memory of a strong government - albeit one that was corrupted over time.
+- The biggest of the big ideas that guided the strategy during the surge was explicit recognition that the most important terrain in the campaign in Iraq was the human terrain - the people - and our most important mission was to improve their security.
+- Well, the oil, the oil spot, if you will, is a, is a term in counterinsurgency literature that connotes a peaceful area, secure area. So what you're trying to do is to always extend that, to push that out.
+- Needless to say, it was the greatest of privileges to serve with the selfless men and women - Iraqi and American and those of our coalition partners, civilian as well as military - who did the hard, dangerous work of the surge. There seldom was an easy period; each day was tough.
+- The process to resolve post-Islamic State issues will be difficult and intense.
+- The art of coalition command - whether it is here in Afghanistan, whether it was in Iraq or in Bosnia or in Haiti - is to take the resources you are provided with, understand what the strengths and weaknesses are and to employ them to the best overall effect.

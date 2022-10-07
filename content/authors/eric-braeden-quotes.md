@@ -1,0 +1,36 @@
++++
+author = "Eric Braeden"
+title = "Eric Braeden Quotes"
+quotes_len = "30"
+description = "the best 30 Eric Braeden Quotes"
++++
+- My heart goes out to many women that I've met across the country who barely make enough to make a living, and they want to have kids. That's very understandable, but what do you do with the kids?
+- The great thing about America, what I've loved about it, is how sports-friendly it is. In America, sports are respected and loved.
+- The directors I respect are the ones who have a collaborative attitude, who collaborate with actors.
+- There are some directors I hear about in nighttime or some I used to work with who walk around like gods.
+- When I think about my great conversations with Marlon Brando on the set of 'Morituri,' I think there's a story there, just as I do with my experience working with James Cameron on 'Titanic.' And then there are all my years on 'Y&R' and all that has happened there.
+- Writing for a soap - writing for 25 characters day in, day out - is one of the most difficult jobs in Hollywood.
+- Raising children is an enormously important part of life. I think one of the most important, or the most important, period.
+- I think 'Y&R's future is contingent upon the ratings. Obviously, none of the soaps are kept alive for the sake of loyalty. It's all about ratings. It's show business. Period.
+- Being in love, and I'm not an expert in this, I've lived it as much as anyone has, but I've not dissected it.
+- The challenge in daytime in particular, I think, is to go against all the traditional cliches of daytime and try to make it real.
+- I'm not a politician.
+- That's the biggest shame there is, that L.A. doesn't have a team. I was a big fan of the L.A. Rams, and when they left, I lost interest. Then there was the Raiders, and they left. How they can't have a football team in the biggest market in the world is beyond me.
+- Some situations are so hopeless when you look at them from the outside you say, Why are they still married?
+- If you're a young couple when you start out and are both working, trying to raise children, that is tough.
+- Not too many people can afford for the wife to stay home and raise the kids.
+- To support my brothers and me, my mother got a job so menial that we never discussed it.
+- It's very difficult to judge relationships from the outside. You never know what happens in intimate moments with two people to know why they really support and love each other.
+- How many reality shows can you watch? They're so obviously phony.
+- To establish personal relationships with the people you work with is stupid, because you never know when the winds will change. I try not to get too close to people.
+- There's no one more willing to do something than an actor when it comes to perfecting a scene.
+- The workplace should have a place where the kids can visit. They should have places at the mother's or the father's work where professionals can have their kids visit them whenever they feel like it.
+- I have a feeling that being in love sometimes means the projection of your desires onto another person. The important thing is that you like the other person, respect the other person and want to raise children with the other person.
+- If it's really so wonderful that both partners have to work to make a living to pay for their house, for health insurance, someone is obviously going to get the short end of the stick.
+- If we keep on ignoring and leaving children to their own devices at home, they become latchkey kids, and trust me, the consequences of that are not good.
+- In the end, I'm an actor. I'm paid for what I bring to the screen.
+- A mother's got to be there to raise the children. That's all there is to it. I feel badly for those mothers who work hard, and can't do it all the time.
+- If both parents must work, I think it is more important that the mother has proximity to the child to therefore establish a childcare situation at the big corporations not once a day, but many times a day.
+- America has the best athletic programs. Even when the Soviet Union existed, that was Mickey Mouse compared to the U.S.
+- I'm not saying that people should not divorce, but at the rate at which it happens here is sick. The kids, they suffer. I don't care what anyone says.
+- A relationship has to be cultivated. There have to be feelings of love for another first. But then you have to really like the person.

@@ -1,0 +1,26 @@
++++
+author = "Willow Shields"
+title = "Willow Shields Quotes"
+quotes_len = "20"
+description = "the best 20 Willow Shields Quotes"
++++
+- It's not a struggle, but sometimes when you're gone for a month or two, you start to miss your friends. I love acting so much that it fills that gap of being sad about not being able to see my friends.
+- I have mostly been terrified of listening to scary stories around a campfire. We camp a lot as a family, and at night my dad would try and tell us scary stories. This made eating s'mores difficult. The story would start with something like... 'and the old man who lived in these woods...' I would then run back into the camper terrified.
+- I'm not really allowed to drink a lot of caffeine, because I'm 11.
+- I'm interested in a lot. Like right now, I'm just really excited for 'Catching Fire' and 'Mockingjay' Part 1 and 2. But I love playing characters like Prim - I mean, Prim is like my dream character - but after 'The Hunger Games', it would be fun to look and see what else I could do well. But right now, Prim is like my dream role.
+- I thought it was really funny that half the people I autographed things for said, 'Autograph the back of my phone.' I was like, 'What? Really? Seriously?' They didn't have anything else.
+- My brother was a huge fan of 'The Hunger Games' for a couple of years before I got the role, so he was really excited when he heard that I got the role.
+- My brother said 'I want to start acting,' and me and my sister just said, 'Oh we'll try it, we'll see.' It was just one of those things - we were just like, 'Oh, we'll see what happens.'
+- Well, my life hasn't really changed... I've been homeschooled for a long time. So that helped a lot because of shooting and stuff. But, I have had friends who I've been friends with for years and years and they are my true friends, you know?
+- I know with Gary Ross especially, he kind of gave me pointers here and there, but he kind of let me become firm in any way that I needed, and he just let me try things and to explore what I can do with my acting. So that was very helpful.
+- I have three dogs, a cat, fish. I'm a huge animal lover. They're amazing.
+- I find it not hard to make friends, but it's definitely different when I go somewhere like summer camp and everyone already knows that I'm in 'Hunger Games'... My life is still pretty normal, and I still have some really great friends.
+- Two of my favorite actresses are Meryl Streep and Angelina Jolie. So, I would love, love, love to work with them. But I also really love AnnaSofia Robb. There are a lot of great actresses I would love to work with.
+- It's weird because I've grown up a lot after filming the first 'Hunger Games' movie. Growing up with a character is really interesting because you feel like you have this connection with the role.
+- I definitely look up to Meryl Streep because she's been in so many amazing movies, and I just think that she's one of the greatest actresses out there. I also look up to Jennifer Lawrence, especially knowing her and knowing that she is so awesome and so nice.
+- I have a home-school group with a couple of my friends. We switch off going to each others' houses and going to the library to do art and stuff. It's almost like our own little school - a really little school.
+- I didn't audition for the part! The role was offered to me, and I was so excited to be a part of 'The Haunting Hour.' It is such a cool show and it was so much fun shooting the 'Intruders.'
+- For 'The Haunting Hour,' I thought it would be a lot of fun. It was great to play this cool kid role. My episode is called 'The Intruders' and my character is this mean, angry teenager because her younger brother was just born and he gets all of the attention. She's always playing tricks on her family, and there are some cool twists.
+- I really want to try to become a great actress when I get older and continue to do what I'm doing now.
+- 'Poltergeist' terrifies me! When the little girl Carol Anne is talking to the TV, I get shivers every time.
+- It's been crazy. My life has totally changed. One week I was in school, hanging out with my friends and the next, I'm going to the L.A. premiere of one of the year's biggest movies. It's been a crazy experience.

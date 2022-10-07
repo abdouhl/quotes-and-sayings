@@ -1,0 +1,76 @@
++++
+author = "Victor Moses"
+title = "Victor Moses Quotes"
+quotes_len = "70"
+description = "the best 70 Victor Moses Quotes"
++++
+- I'd like to put on record my sincere thanks to everyone at Wigan Athletic for the tremendous support they showed me during my time there.
+- I can play on the right, from the left, behind the main striker, or upfront - it depends on where the coach wants me to play.
+- It's a big step up for me, coming from the Championship to the Premier League, and, at the end of the day, it's up to the gaffer when I play and what role I take up.
+- As long as I can help the team achieve its objective, then I am happy playing anywhere upfront.
+- When I started going to school, I started getting used to things, like the language. After that, I started adapting to school, friends, and everything. It was really difficult, to start with, but I survived.
+- I have always believed in the ability that I have got.
+- Chelsea is one of the biggest football clubs in the world.
+- I'm sad to leave Palace because they're a great club and gave me my chance in football, and I want to say thanks to everyone there.
+- Every preseason, I feel I've done well, and it's just about being given a chance.
+- I want to play in every match, score goals when the opportunity presents itself, and help players in good positions to also score goals.
+- My ambition is to contribute my quota to the overall success of the team.
+- If I get my chance, then I've just got to go out there and take it and help the team to do as well as possible.
+- I don't really mind where I play - left, right, up front on my own, or with another striker. I'm just versatile like that, and I don't mind playing anywhere in attack.
+- In football, you have to learn from everything, but everyone makes mistakes.
+- I just want to enjoy my football.
+- I started playing for a team called Cosmos in the Tandridge League before I went for a two-week trial with Palace. They must have liked what they saw.
+- As long as you work hard, the manager will see it, and he'll give you an opportunity.
+- You've got to keep on going up and down the wing for the whole game in that wing-back role, so you obviously need a lot of stamina to do that, and I think I've got that.
+- He is a legend - not just Africa and Chelsea but the whole world. Didier is a great player.
+- I don't regret turning out in the colours of Super Eagles. I love Nigeria, and I was prepared to come and play for the nation.
+- It's the best feeling, representing your country, and I always want to perform and give 100% for the team.
+- Every season, I want to be the best I can to be Africa's best player. I will do the best I can.
+- I want to do the right thing and also to enjoy myself on the pitch.
+- As a young boy in a new country, you had to make new friends, and that was really difficult.
+- The main thing is to be on the pitch and enjoy my football.
+- If I have got an injury, I have got an injury. Whenever I want to play for Nigeria, I must be 100 percent, I want to give everything. But if I have got an injury, I don't want to force myself, because I am going to look stupid on the pitch.
+- It is good for a manager to believe in the ability that you've got and give you the confidence to go out and enjoy your football.
+- When I play against a winger, because I'm a winger myself, I understand what they are going to do before they try and go past me, so it makes it a lot easier for me.
+- Changing position comes naturally to me, to be honest.
+- There was only a little spell at Wigan, when I first signed there, when I wasn't in the team every week.
+- When you're playing, you enjoy yourself.
+- That is my position, really: staying out wide and, most of the time, going into one v. one situations, which I am good at.
+- I enjoyed it very much, my first Champions League game.
+- It's a massive experience: playing against Galatasaray and Besiktas, you can feel the atmosphere. It feels like the stadium is going to fall down due to the fans singing and bouncing.
+- It is always good for a player when a manager believes in you.
+- As a winger, you want to get at defenders and make it hard for them. Instead of them going forwards, they have to defend against you.
+- That's always been on my mind - to play games.
+- As long as I'm helping the team, I just want to play football.
+- I just want to keep on working hard and helping my team-mates out.
+- I have always believed in myself. As a footballer, it is essential to have that belief.
+- The opportunity beckoned me to play for England, but I chose Nigeria because it has always been my ambition to play for the Super Eagles.
+- He scores goals, assists, and he's got everything that you'd ask for in a striker. We, as African players, are all proud of what Didier achieved as a player. The way he holds himself is unbelievable.
+- It's tough, as Chelsea's a very special place for me, and I've always had a great relationship with the fans, but it became very obvious that I was not in the manager's plans. I have achieved great things there, but I just needed to play football, and that's why I got the move to Fenerbahce.
+- The position I am playing at right wing-back, I know I can score goals there.
+- They watch the Premier League everywhere in Africa.
+- I waited for the opportunity to be invited to play for the national team of Nigeria, and immediately, they found me worthy; I did not waste time to honour the call.
+- My footballing idol is Zinedine Zidane; he was an amazing guy on and off the field.
+- It feels great being in the Champions League.
+- It's a massive thing to win the African Nations. It will go down in history. It was my first tournament with Nigeria, and winning it was a bonus for me; it was a good experience for me.
+- To me, I would say that Cesar is underrated. As a defender, he has got everything. He's quick; he's got that desire, passion for the game. He just wants to play football. Azpilicueta is never tired. He can run all night in every minute. He wants to play every game.
+- I just want to keep improving in every game.
+- I love to play football. Why would I run away from playing football?
+- When a manager doesn't have any interest in you, you can see that as a player.
+- It's good to score goals, but my teammates are fantastic - they really support me - but the opponents just want to tackle me hard!
+- It was Cosmos who actually told Crystal Palace about me. Palace came to have a look, liked what they saw, and they took it from there.
+- I really admire Zinedine Zidane and Frank Lampard. They are really skilful, and I like the way they shoot from distance.
+- I had a good time at Liverpool. They were great lads. The manager had his reasons to keep me on the bench, and at the same time, they were on a good run.
+- I played for England Under-16s, 17s, 18s, 19s, 20s and then 21s... then... I just decided to make the decision to play for Nigeria.
+- I have always known that I've got the ability to play in a big club like Chelsea.
+- I want the fans to be able to recognise I am doing something good for the club, but at the same time, I want to work hard for the team and make sure we win games.
+- I'm looking forward to every game that I'm going to be involved in, whether it's the Champions League, Premier League, or anything else.
+- For a club to come and get you, they are going to use you at some stage.
+- I'd like to thank the chairman, Dave Whelan, and all of the staff at Wigan for giving me the chance to play in the Premier League.
+- I never run away from challenges.
+- By playing, you learn.
+- I'm proud of being a Nigerian international and am always committed to playing for my country.
+- As a footballer, if you work hard, then everything else falls into place.
+- The more games I play, the better I get.
+- Nigeria has always been my choice if called up, and when they did, I was happy.
+- What I can confirm is that I will always give a 100 per cent for Nigeria like I do at my club.

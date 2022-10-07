@@ -1,0 +1,36 @@
++++
+author = "Peter Higgs"
+title = "Peter Higgs Quotes"
+quotes_len = "30"
+description = "the best 30 Peter Higgs Quotes"
++++
+- My inbox and doormat are full with emails and letters from people who want me to endorse their Higgs board game or to inaugurate the walkway of their new office atrium. There's even a microbrewery in Barcelona which wants to know what my favourite beer is so they can brew a similar one in my honour. It is quite mad.
+- It shouldn't be a Higgs field. If it's anybody's, it should be Goldstone field, I think. When Nambu wrote his short paper in 1960, Jeffrey Goldstone of Cambridge University, who was visiting Cern, heard about it. He then wrote a paper which was conceptually similar to what Nambu had done, but a simpler model.
+- I'm a great admirer of 'The Simpsons.' It's very surprising because it's backed by a right-wing television company in the U.S., and quite often it's poking fun at the people who would be its audience.
+- The point came when people were doing things I didn't feel competent to do myself. I'm not being modest; I honestly get lost. I was lucky in spotting what I did when I did, but there comes a point where you realise what you're doing is not going to be much good.
+- As a theoretician, I am proud to be part of a counter revolution... discovering that quantum field theory language was not dead and finished but had not really been explored thoroughly enough.
+- I liked Edinburgh as a university in a way that I'd never enjoyed King's College London. I realised after I came to Edinburgh that perhaps it was a mistake to have gone to a college which was bang in the centre of a vast city. It had a bad effect on the social life of the students because a lot of them were commuting from outer London.
+- The first interview I gave to the press was in 1987 when some people thought a previous machine at Cern, called LEP, might have enough energy to produce the particle.
+- I was already, I think, at the age of 18, showing signs of being incompetent in the lab.
+- Between 1972 and 1976, I really didn't do much.
+- I can only speak for particle physics. But it has become obvious that on the experimental side, there has been a huge evolution in the number of people who have to collaborate because of the gigantic size of the instruments used, but also because of the enormous task that is data analysis.
+- The model I came up with in 1964 is just the invention of a rather strange sort of medium that looks the same in all directions and produces a kind of refraction that is a little bit more complicated than that of light in glass or water.
+- Nobody else took what I was doing seriously, so nobody would want to work with me. I was thought to be a bit eccentric and maybe cranky.
+- When the basic status of a theory is clear, and all that needs to be cleared are details, you can collaborate. But if the main structure of a hypothesis isn't established, and you want to change the paradigm - like it was the case in the 1960s - it's better to work alone.
+- After I retired, it was quite a long time before I went back to my department. I thought I was well out of it.
+- The Nobel Prize has been a disturbance at the beginning of October for some years. It would be gratifying to win, but it would be quite an ordeal, too, with all the events which go on for two days. I'd think carefully about what I was doing the day it is announced and maybe not be around, or be around, but elsewhere.
+- My recollection of the higher school certificate, which involved a practical exam in physics, was being confronted with an experiment involving a sort of barometer arrangement, wondering why I couldn't make it work.
+- One of the first things I did on arriving at school was to break my left arm falling into a bomb crater.
+- I don't regard television as the outside world. I regard it as an artefact.
+- If the U.K. were threatening to withdraw from Europe, I would certainly want Scotland to be out of that.
+- The growth of our understanding of the world through science weakens some of the motivation which makes people believers. But that's not the same thing as saying they're incompatible. It's just that I think some of the traditional reasons for belief, going back thousands of years, are rather undermined.
+- I'm a fan of supersymmetry, largely because it seems to be the only route by which gravity can be brought into the scheme. It's probably not even enough, but it's a way forward to get gravity involved. If you have supersymmetry, then there are more of these particles. That would be my favourite outcome.
+- What kind of pupil was I? Well, I was a swot, but I was allowed to be without any ill effects by my contemporaries because I was excused from games due to my asthma. So being a swot was something to compensate for not being to play football.
+- I'm rather cynical about the way the honours system is used, frankly. A whole lot of the honours system is used for political purposes by the government in power.
+- I was easygoing in terms of being adaptable in my social life. But maybe I suffered a personality change in the mid-'60s and became more dedicated to things involving work because it had become successful in some way.
+- When my wife and I got married, she thought of me being an easygoing person, and I warned her I wasn't.
+- In 2002, a Scottish journalist, during a dinner meant to be private, absolutely wanted me to react to Stephen Hawking's comments. I said one shouldn't pay too much attention to what Hawking was saying because he was a celebrity but not a specialist of elementary particle theory.
+- It's nice to be right sometimes.
+- Edinburgh is my adopted home. It's a place where I wanted to come and live, and I managed to arrange my life so it happened.
+- I was an embarrassment to the department when they did research assessment exercises. A message would go round the department: 'Please give a list of your recent publications.' And I would send back a statement: 'None.'
+- My first visit to the Large Hadron Collider was in April 2008, before it started up, and CERN had some open days. They were slightly shocked by the end of it because I think they got something like 50,000 visitors.

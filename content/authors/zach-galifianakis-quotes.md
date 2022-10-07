@@ -1,0 +1,61 @@
++++
+author = "Zach Galifianakis"
+title = "Zach Galifianakis Quotes"
+quotes_len = "55"
+description = "the best 55 Zach Galifianakis Quotes"
++++
+- A fantasy of mine is to do a podcast that's Marcel Marceau and I, and you only hear me laughing at him and trying to figure out what he's doing.
+- My real last name is Galifianakisburg.
+- I used to be really cute. I could send you earlier photos where I'm stunning. But I've gained about twenty pounds over the past two years, and the more weight I've put on, the more success I've had. If you drew a diagram of weight gain and me getting more work, a mathematician would draw some conclusions from that.
+- Have you seen that show on Lifetime about that woman...?
+- I'm not versed enough in constitutional law to run for office. I'd have to go back to school or something.
+- Actually, I used to be a busboy in a strip joint in New York and so I hate strip joints. I'm not that kind of person.
+- My dad doesn't get any of my jokes. He laughs at them, but he doesn't understand them. He's just laughing because people around him are laughing.
+- I am going to be the next Ryan Gosling.
+- I don't like cursing in movies. I feel like cursing has become the new hackiness. You try to find substitutions for cursing.
+- Fat jokes to me are always, always hilarious, as long as they're done towards yourself.
+- I understand Tea Partyers' anger with the system, but they are in way over their heads and often racially motivated, and I can't be part of that.
+- I try to write three jokes every day. I don't sit down and write them, it's just things that pop into my head. Then I'll go watch it fail onstage that night.
+- Some people can be choosy because they're ultratalented or lucky or whatever, but yeah, there are certain things that might not be the greatest thing on my resume. But I don't sit back and go, 'Gosh, I wish I didn't do that.' It's all part of the growth of a career, whether you're an entertainer or a librarian.
+- I wish I could sit back and say, 'Oh, I'm gonna wait for a Merchant-Ivory film to come my way. Or Ivory-Merchant. Whatever it's called. But you just take what's given and then, hopefully, down the road you can be more choosy and only do, say, Wayans brothers movies. That's my goal: to be more Merchant-Ivory-Wayans.
+- When a role seems fun it's easy to play. It kind of comes organically.
+- Inappropriateness is funny to me. Rudeness is hilarious.
+- I would have changed my last name if being famous were my goal.
+- There was a long time where I was an 'artist' in quotes, who had no money. But I guess back then I also never had a girlfriend.
+- I think comedy does have that powerful thing that doesn't seem too preachy because you're also making people laugh, so it's really kind of a good tool for messaging.
+- A good stand-up, you lead the audience. You don't kowtow to the audience. Sometimes the audience is wrong. I always think the audience is wrong.
+- We all know how funny Morrissey is. Actually, you know what? I say that sarcastically. His songs are some of the funniest songs I've ever heard in my life. I mean, really. I mean, not that the 'Girlfriend in a Coma' is, like, really funny.
+- As a comic, it's anti-comedy to be known. I think a lot of comedic actors get lost in this world of Hollywood and all this stuff. They lose what brought them there in the first place. I'm very trepidatious about it.
+- My forte is awkwardness.
+- That's one of the great things about comedy: we can - and should - say the things that other people aren't supposed to say. If we didn't do that, if we didn't push against those limits, we'd just be standing around onstage and yelling.
+- I am not into publicity. I'm not good at it. I get anxiety about it.
+- I like dark comedies. That's why I like the Wayans Brothers.
+- We talked about politics constantly in my family growing up in North Carolina. There were always debates. Being of Greek background, it's in our blood to drink coffee and talk politics.
+- When I do stand-up for a long time, I'll get burned out, then I'll get an acting gig. For me, the grass is always greener. I'd like to do a mixture of all of it. My goal is just to do small movies that I've written. That's what I'm trying to do now, just write smaller movies.
+- American society loves to prop people up and then take them down.
+- Hollywood's built on insecurity. People are trying to prove things. And I probably have that. I probably do. Probably guilty of it, in a way.
+- Reciting lines is hard; making stuff up is much, much easier.
+- There's more to life than being an actor in a Hollywood movie. I'm not going to adapt my life after that existence, where a lot of people do. And they get the publicist, and they get all that stuff, and it becomes them. I think it's a stupid way to live your life. A really dumb way to live your life.
+- I can get away with anything. But when I try to be sincere, people just roll their eyes.
+- Comedians paint ourselves into corners all the time, and tastes in comedy change. The guy in 'The Hangover' was a really fun character to do, and it was easy to do. But you have to find other things because audiences will let you do that for a little bit, and then they're like, 'What else do you have for us, monkey?'
+- I haven't been hit since Leon Spinks hit me in '92.
+- That show, 'The Amazing Race' - is that about white people?
+- I kind of put myself out there as is. I'm a quiet person. I don't know if that's surprising. I'm a Pilates junkie.
+- I've been happily dedicated to the same woman for a number of years. I never even look at other women.
+- As you get older, you see the world at a different angle, maybe more cynically, but I just bury my anger.
+- Privacy is big for me. To do interviews even, I have a very love/hate with it.
+- My name is Zach Galifianakis and I hope I'm pronouncing that right. I'm named after my granddad, my middle name. My name is Zach Granddad Galifianakis.
+- I'm terrible about people wanting to take pictures with me. I'm a giant baby about it. They treat you like a cartoon. There's nothing you can do except make light of it. That's if I'm in the mood - sometimes I get superbummed.
+- Whether you are on the Right or the Left, everyone can agree that there are a lot of outside influences in American politics that are not good for the system. There's just too much money.
+- I'm Greek. My body produces feta cheese.
+- It's not good for comedy to be like, 'Thanks for liking me.' Being popular is poison.
+- When I was in high school I used to sit by myself in the cafeteria - not necessarily by choice - but I thought it was funny to talk to people that weren't there.
+- The congressmen and senators used to go have a drink in D.C. They would disagree all day long, but they would find that time to sit down and learn about each other personally. I think that's totally wiped out; I don't think it really exists anymore.
+- I talk to younger actor types, and they bring up that word, 'brand,' and it's like, 'All right, if that's the way you want to look at yourself.' Diet Pepsi's a brand; you're a human being.
+- I have a 60-acre farm in North Carolina, and I have a tractor and a farmhouse. As soon as I groom the land, I want to put cabins around and have a place where people can write and hang out. It'll be either that or an all-black nudist colony.
+- People get TV deals by doing something in their grandmother's basement. It is definitely the wave. Everybody is trying to do all that stuff. I mean, the Internet is the only reason that I've gotten work is because I've somehow created a line and people have seen it. And then I've been asked to auditions.
+- I think if they put a laugh track on 'Intervention,' it would be funny.
+- I get burned out on standup. But I like acting. I do like it. But sometimes you just feel like a monkey. You just feel like a complete tool. But I like it. I do like it. Stand-up is just more free. A lot more freedom because you just do what you want to do.
+- I just try to keep myself a traditionalist. I liked being an underground comic doing my thing. I want to maintain that. I just do.
+- You know, sometimes if you work - if you do a lot of takes and you work long hours, for me, at least, there is a delirium that starts kicking in on the fifteenth hour, and that can help. Below the just thirteenth hour is where I have a concern, because everybody's so tired.
+- I've been wanting kids for 10 years. I'd love to adopt, have them naturally - all of it. I want, like, 15.

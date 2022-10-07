@@ -1,0 +1,31 @@
++++
+author = "Paul Kalanithi"
+title = "Paul Kalanithi Quotes"
+quotes_len = "25"
+description = "the best 25 Paul Kalanithi Quotes"
++++
+- Science is based on reproducibility and manufactured objectivity. As strong as that makes its ability to generate claims about matter and energy, it also makes scientific knowledge inapplicable to the existential, visceral nature of human life, which is unique and subjective and unpredictable.
+- We build scientific theories to organize and manipulate the world, to reduce phenomena into manageable units.
+- Science may provide the most useful way to organize empirical, reproducible data, but its power to do so is predicated on its inability to grasp the most central aspects of human life: hope, fear, love, hate, beauty, envy, honor, weakness, striving, suffering, virtue.
+- I had spent so much time studying literature at Stanford and the history of medicine at Cambridge in an attempt to better understand the particularities of death, only to come away feeling like they were still unknowable to me.
+- People react differently to hearing 'Procedure X has a 70 percent chance of survival' and 'Procedure Y has a 30 percent chance of death.' Phrased that way, people flock to Procedure X, even though the numbers are the same.
+- When there's no place for the scalpel, words are the surgeon's only tool.
+- During my sojourn in ironclad atheism, the primary arsenal leveled against Christianity had been its failure on empirical grounds. Surely, enlightened reason offered a more coherent cosmos. Surely, Occam's razor cut the faithful free from blind faith. There is no proof of God; therefore, it is unreasonable to believe in God.
+- Before my cancer was diagnosed, I knew that someday I would die, but I didn't know when. After the diagnosis, I knew that someday I would die, but I didn't know when. But now I knew it acutely.
+- Human knowledge is never contained in one person. It grows from the relationships we create between each other and the world, and still, it is never complete.
+- The root of disaster means a star coming apart, and no image expresses better the look in a patient's eyes when hearing a neurosurgeon's diagnosis.
+- I have sat with countless patients and families to discuss grim prognoses: It's one of the most important jobs physicians have. It's easier when the patient is 94, in the last stages of dementia, and has a severe brain bleed. For young people like me - I am 36 - given a diagnosis of cancer, there aren't many words.
+- Words have a longevity that I do not have.
+- The diagnosis was immediate: Masses matting the lungs and deforming the spine. Cancer. In my neurosurgical training, I had reviewed hundreds of scans for fellow doctors to see if surgery offered any hope. I'd scribble in the chart 'Widely metastatic disease - no role for surgery,' and move on. But this scan was different: It was my own.
+- While all doctors treat diseases, neurosurgeons' work is the crucible of identity. Every operation on the brain is, by necessity, a manipulation of the substance of our selves.
+- The good news is that I've already outlived two Brontes, Keats, and Stephen Crane. The bad news is that I haven't written anything.
+- Before operating on a patient's brain... I must first understand his mind: his identity, his values, what makes his life worth living, and what devastation makes it reasonable to let that life end.
+- The tricky part of illness is that, as you go through it, your values are constantly changing... You may decide you want to spend your time working as a neurosurgeon, but two months later, you may want to learn to play the saxophone or devote yourself to the church. Death may be a one-time event, but living with terminal illness is a process.
+- Putting lifestyle first is how you find a job - not a calling.
+- The physician's duty is not to stave off death or return patients to their old lives, but to take into our arms a patient and family whose lives have disintegrated and work until they can stand back up and face - and make sense of - their own existence.
+- Time for me is double-edged: every day brings me further from the low of my last cancer relapse, but every day also brings me closer to the next cancer recurrence - and eventually, death. Perhaps later than I think, but certainly sooner than I desire.
+- What patients seek is not scientific knowledge that doctors hide, but existential authenticity each person must find on her own... the angst of facing mortality has no remedy in probability.
+- Had I been more religious in my youth, I might have become a pastor, for it was the pastoral role I'd sought.
+- I knew medicine only by its absence - specifically, the absence of a father growing up: one who went to work before dawn and returned in the dark to a plate of reheated dinner.
+- A resident's surgical skill is judged by their technique and speed. You can't be sloppy, and you can't be slow.
+- Everyone succumbs to finitude. I suspect I am not the only one who reaches this pluperfect state. Most ambitions are either achieved or abandoned; either way, they belong to the past. The future, instead of the ladder toward the goals of life, flattens out into a perpetual present.

@@ -1,0 +1,16 @@
++++
+author = "Sung Jin Park"
+title = "Sung Jin Park Quotes"
+quotes_len = "10"
+description = "the best 10 Sung Jin Park Quotes"
++++
+- I like old rockabilly style. I always wear denim on denim with suspenders and slicked back hair.
+- If I am to choose two words that best describes myself, they are 'self-esteem' and 'guts.' Guts helped me become a global model.
+- I was never happy, and neither were many of my friends. We were just normal kids that were not so excellent at what society wanted from us at that time.
+- In New York, you get lots of trade. Rad Hourani gave me a cool hooded parka.
+- I still do all my developing and printing in my darkroom. Being in New York, you get tremendous exposure to great arts. In my student years, I saw exhibitions of August Sander and Diane Arbus. I still go back to their pictures. I don't really go for contemporary photo shows.
+- I was never an A student. I never really liked going to school like many of my friends. There were just too many students and too competitive. We were sort of forced into studying to go to college. It was like if we didn't go to college, society looked at us as failures. We didn't know what to do with the situation.
+- My cousin knew a manager in the model agency, He offered me a shoot for a Korean brand called Kai-aakmann, and it was a good pay. I was working at a shop selling surfing items in Busan, but I quit the job and came to Seoul for a better future.
+- Marc by Marc Jacobs was my favorite. The stage was so big, and there were so many people there. I had very bad vision during the show because I forgot to put in my contacts, but I didn't fall or anything.
+- I was born in Seoul, South Korea; then I moved to New York City at the age of seventeen. In New York, I studied art and photography. I thought I would be a painter; then I saw Walker Evans when I was in college, and that had a great impact on me. Being in the darkroom making B&W prints was such a magical experience.
+- Some Korean models may be seen in European Fashion Week, but it is hard to find them in New York.

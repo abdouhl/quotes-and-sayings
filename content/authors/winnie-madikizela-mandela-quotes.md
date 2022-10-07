@@ -1,0 +1,53 @@
++++
+author = "Winnie Madikizela-Mandela"
+title = "Winnie Madikizela-Mandela Quotes"
+quotes_len = "47"
+description = "the best 47 Winnie Madikizela-Mandela Quotes"
++++
+- We have a shared destiny, a shared responsibility to save the world from those who attempt to destroy it.
+- I don't want a grand villa in a rich suburb alongside white people where many of my former comrades choose to live. I would never betray my roots in that way.
+- You all must realize that Mandela was not the only man who suffered. There were many others - hundreds who languished in prison and died. Many unsung and unknown heroes of the struggle.
+- One of the greatest things I fear is letting down my people. I wouldn't live with that type of conscience, of having let down my people after they've been brutalized for so long.
+- I am not the sort of person to carry beautiful flowers and be an ornament to everyone.
+- I'm like thousands of women in South Africa who lost their men to cities and prisons... I stand defiant, tall and strong.
+- To me, David Astor was a freedom fighter. To me, he wasn't just a journalist; he was a freedom fighter.
+- I believe in myself and the justice I've fought for all my life.
+- I wanted to be a doctor at some point, and I was always bringing home strays from school: people who were too poor to pay fees or have food. My parents never rebuked me or told me that they were hard-pressed, too.
+- Politicians are not lovers.
+- We should have sent the apartheid monsters to jail, not let them off with an amnesty.
+- This name Mandela is an albatross around the necks of my family.
+- The government can become so elitist and concentrate on elitist interests. To help the government, you must constantly hold its attention.
+- When I was born, my mother was very disappointed. She wanted a son. I knew that from a very early age. So I was a tomboy.
+- I have a good relationship with Mandela. But I am not Mandela's product. I am the product of the masses of my country and the product of my enemy.
+- I knew what it is to hate.
+- There is nothing the government has not done to me. There isn't any pain I haven't known.
+- It would be a most despicable thing to suggest I would exploit the poor for my own personal gain.
+- As much as the South African racist regime is prepared to fight to the last man, so are we determined to fight to the bitter end.
+- I'm not ashamed of anything I've ever done in the name of fairness and justice for my people.
+- I am a living symbol of the white man's fear. I never realized how deeply embedded this fear is until I came to Brandfort.
+- We cannot pretend we do not have problems; we cannot pretend things are not wrong in our country. A lot of things are wrong.
+- I identify... with the ideas that Malcolm X stood for.
+- I never talk about my private life.
+- You build dreams, you build castles in the air, and you hope that at least part of that will be realized, even under apartheid.
+- We talk of a rainbow nation - in a country that remains dichotomized between black and white. We must acknowledge that the rainbow, in fact, is still a dream.
+- I don't say we should have performed miracles, but surely there ought to have been a difference between the apartheid regime and governance of the ANC after 17 years.
+- The brutality of apartheid drains you of that emotion of fear if you have gone through everything you can be put through in the process of harassment.
+- I learned to deal with the police... to be tough... to survive.
+- It is any wife's dream to lead a normal life with her family.
+- I was married to the ANC. It was the best marriage I ever had.
+- I often wonder why I attract so much criticism.
+- Mandela did go to prison, and he went in there as a burning revolutionary. But look what came out. Mandela let us down.
+- It dawned on me then that you either had to survive apartheid, or you had to perish with it. And I decided to survive.
+- In the normal course of things, journalists want their story, and as soon as they are through with it, they pack their cameras and go. That was never the impression that David Astor gave when you were interviewed by him. It was far deeper than that.
+- My continent knows more about me than I do myself.
+- I am not sorry. I will never be sorry. I would do everything I did again if I had to. Everything.
+- The ANC has failed to address the problems of the black majority quickly enough.
+- The life of the President's First Lady would not have been for me. And I don't know how I would have been as a housewife.
+- Nelson was locked up on Robben Island, and wives like me had been warned we would bring our husbands home as corpses from that place. But I always believed he would be released. It was my duty to have a home ready for us.
+- I was so hooked by the fight for freedom that nothing mattered to us so long as we fulfilled the dream of years and years of our people being liberated. I thought normal life would come the day after.
+- The years of imprisonment hardened me... Perhaps if you have been given a moment to hold back and wait for the next blow, your emotions wouldn't be blunted as they have been in my case. When it happens every day of your life, when that pain becomes a way of life... there is no longer anything I can fear.
+- No one under international copyright law has the right to depict me or my husband without our consent. I have been surprised by the many people, particularly Americans, who are either writing books or going to produce films about the Mandela family without even bothering to consult us.
+- The solution of this country's problems lies in black hands.
+- Those 18 months in solitary confinement... bruised my soul. If I had had a weapon, I would have fought my way out.
+- We shall liberate our country.
+- They think because they have put my husband on an island that he will be forgotten. They are wrong. The harder they try to silence him, the louder I will become.

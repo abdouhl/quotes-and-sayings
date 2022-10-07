@@ -1,0 +1,69 @@
++++
+author = "Vanessa Kirby"
+title = "Vanessa Kirby Quotes"
+quotes_len = "63"
+description = "the best 63 Vanessa Kirby Quotes"
++++
+- My characters are always unlucky in love. It's annoying, but perhaps there is something in me that is suited to characters that have a darkness. Maybe it's why I play such damaged people when I'm not particularly damaged myself, I would say.
+- Trying to balance theatre and film is really important to me.
+- It's quite rare that you find something that you can quite literally have an absolute ball doing, as well as the tough stuff and the difficult stuff and the pain.
+- I try to focus on each day and try to be the best I can be today.
+- I've been told that I have no filter.
+- I always go for the underdog or the rogue or the rebel.
+- When I first started doing screen work, I thought, 'I'm not beautiful enough for this profession - all the actresses I watch on screen are gorgeous and beautiful goddesses, but I'm just a scrawny, scruffy girl from southwest London.'
+- I just love people. I love them a lot.
+- My hair has been so wrecked over the years by various things.
+- Just simple things - I like black and white, monochrome; I like suits.
+- I feel people naturally have a brightness. When that is extinguished by circumstances - be it a wrong marriage or a situation that you cannot leave psychologically - there's something about that dying spark that I'm drawn to playing.
+- I've always been pretty indifferent towards the royal family. I went on a school trip once to Buckingham Palace, and all I can remember is that it was really boring.
+- Chris McQuarrie cast me in 'Mission Impossible' because he'd seen 'The Crown' and loved it.
+- Wherever you are in the world, whoever you are with, sometimes you feel desperately lonely.
+- You are what you think. I really believe that. And I don't think you ever stop doubting yourself.
+- Love whoever you want to love.
+- I don't see the point of grumpy people.
+- You're always one of the only girls, because there are so many male writers, and there are not enough good parts for women.
+- I've played a lot of untalented people.
+- I do tend to find when you're playing characters, often - just for the time you're playing them - there are sides of your personality that get stronger because you draw on them more.
+- On screen, everyone stares at your face, but on stage, you can basically play anybody.
+- I don't have a lot of instinctive fashion style myself.
+- I love the idea of being an Aries.
+- Before filming 'The Crown,' I couldn't care less about the royal family. But now... I'm obsessed.
+- I never want to make any characters one-dimensional, especially as women can often be portrayed as the dark one or the evil one.
+- I was always bossing my sister around.
+- I think my natural home was always the stage.
+- I always look at actresses who I most respect, and they make me think that you can make a choice in life. It's whether or not you choose to go down the route of publicising your personal life. I choose not to.
+- I did apply for drama school when I was 17, and I didn't get in; I had a really bad audition.
+- As I'm getting older, I feel like maybe I need to grow up a bit.
+- You should choose who you love.
+- As a person, I'm incredibly overfamiliar. I have to be careful what I say!
+- I did The 'Acid Test' at the Royal Court, by Anya Reiss, who's the most wonderful, amazing female writer. She was only 19 when she wrote it. She wrote it about three girls in a flat on a Friday night, and that was magic because it was so rare to have three girls in your age group in a play. It just doesn't happen.
+- So many times, you pick up a script, and you think, 'OK, so she's the sexy one,' or, 'She's the ex-girlfriend.'
+- The thing I really know is that I'm not a model. I'm an actress.
+- I always saw myself as a stage actress, and that was the reason I wanted to act, but very slowly, I've changed.
+- To play anybody real and famous is very scary.
+- I became completely obsessed with the Royal family, or at least the psychology behind them.
+- We know all about actors and singers because they do interviews, but with the royals, everything's so tightly controlled. They live this strange reality behind closed doors.
+- I've got a really tight group of friends from university and school who help me forget what I do and keep me grounded.
+- My thoughts are ridiculously loud and fast.
+- When I was auditioning for drama school and looking for a monologue, it was all, 'I'm whinging about my period or my baby that has died or my boyfriend...' Why can't you have a normal girl, talking about ideas?
+- I'm not interested in being known for anything other than the work.
+- I've always been so uninterested in playing any kind of archetype of some pure, innocent, virginal woman. I just don't believe it.
+- I'm interested in what stops people getting what they want.
+- My favourite thing is cooking for my friends. There are 13 of us who all met at university. They come round once a week, and I make a huge lasagne.
+- My parents would always take me to the theatre, and I was bored a lot of the time. Loads of Shakespeare, and I didn't know what the hell was going on. And then, when I was 13, we went to see 'The Cherry Orchard,' and it changed everything for me.
+- I doubt myself a lot but go forward at full throttle anyway.
+- What your insides are doing, your outside reflects, and what you give to yourself, you can give to others.
+- Family relationships are just so fascinating - how they shape you as a person, how you can wound each other, how you're imprinted in a way by your family and the conditions under which you grow up.
+- When you see yourself on a 40-ft. screen. you go, 'Oh My God! I look so weird!'
+- Acting is a very weird job. But if you know you're an actor, you just have to do it. You can't do anything else.
+- Some of my favourite characters have been people like Masha in 'Three Sisters' and Elena in 'Uncle Vanya.'
+- I'm not a model. I don't really think much about how I look. If I did, I'd go mad.
+- Peter Morgan's writing is so much about what you don't say: you're saying one thing but there's 10 other things going on, and those are the best writers like Chekhov... they're masters at a sort of naturalism, and yet there is all the subtext.
+- I hate the idea of massive fame. I think the scariest thing for an actor is when your name becomes bigger than your craft or what you can do.
+- I went to a very academic school, but I never really quite... I think because not that many people were particular creative or arty, I felt a little bit different.
+- My dad is a big extrovert - he's a doctor - but he always loved Shakespeare, and he took us to tons of theater.
+- I've been really lucky to work with a lot of theater directors in the film, like Stephen Daldry on 'The Crown' and Richard Eyre on 'The Dresser.'
+- Growing up, the image I had of Princess Margaret was completely different. I knew that she was a slightly tragic figure, but I didn't know why. Now, I love her with my all my heart. She was such an amazing person, and getting to 'know' her better was an honor.
+- I love the Sixties and all those iconic women, Bridget Bardot and things like that, so I tend to lean towards those sorts of things.
+- I wanted to do theatre - it has always been my thing.
+- I thought, 'If I go to uni, I can read and watch people and take many different subjects - take philosophy modules - and have time to travel in the summers,' which I did. I thought, 'I hope this will make me a better actor,' and it did.

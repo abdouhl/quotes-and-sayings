@@ -1,0 +1,35 @@
++++
+author = "Dave Mccary"
+title = "Dave Mccary Quotes"
+quotes_len = "29"
+description = "the best 29 Dave Mccary Quotes"
++++
+- My dream was never necessarily comedy. I really wanted to make film or television and was interested in darker stuff over comedy, but I knew I liked dark comedies.
+- We started Good Neighbor in like 2006? Right around the time that Kyle graduated college. And I was doing freelance editing.
+- I totally cared - that I didn't have access to the money to get the coolest clothes ate away at me.
+- Film is a very specific world in which I don't think you really need to go to film school.
+- I think of our YouTube experience very much like a gym. We were practicing and getting stronger with each rep.
+- I think wrestling was the most fantastical thing I was exposed to.
+- I'm just generally lazy.
+- When you go into pre-production on a movie, you can spend weeks and even months working on the nuances of the animatronics on the bear head. If we were to write a sketch about an animatronic bear on 'SNL,' we'd have to come up with every aspect of the suit within 24 hours.
+- Working on 'SNL,' you can have a really stressful experience or a really bad week, and I could see how much of a nightmare that could be for someone who doesn't have a network of buddies going through that with them.
+- Even if I'm not having the best time in a social situation, I'll force a smile.
+- With filmmaking in general, I have never absorbed the traditional knowledge of film history or filmmaking. It has always been just pick up the camera and go figure it out.
+- Everybody has their own story or they've been shaped by their upbringing, and we have to love them for what that experience created.
+- It's unfortunate that it's not realistic that you can get people to come to a movie theater not knowing anything about the movie.
+- I think when you work enough on your doing freelance stuff on other films, you start to feel what it feels like to work with people who are not totally on the same page as you.
+- On YouTube, we were our own masters. We could sit on an edit until we got it right, we could choose quality over quantity.
+- I think we've faced all the typical challenges that young filmmakers go through over the years - time, money, negativity - but it's a lot easier to manage when you can learn from and laugh about all those mistakes and anxieties with your best pal.
+- My dad was a Seventh-Day Adventist pastor, and from an early age I was put off by being force-fed a belief system.
+- At 'SNL,' we don't have the luxury to perfect things. However a video turns out, that's what we have to present. There's a number of things that I'm super embarrassed by and wish didn't air.
+- And it's just my opinion that I don't think film school is necessary for filmmakers. But I don't want to discourage someone who really wants to learn that way.
+- I just don't like filming scenes where it's like, that's not how people talk. People aren't saying a joke every five seconds.
+- We see the worst versions of ourselves - things we did or could have done - in the characters who inspire us.
+- Once I got into film, I was never like, 'I want to make comedies.'
+- It's just so fun to share that experience with your best friend when you're finding your voice as an artist.
+- The path that Lonely Island took got us excited to think we could get somewhere legitimate by making little videos.
+- I think I'm just a little, for a lack of a better word, primal in how I operate in all aspects of life.
+- I don't need to spend money on school when I can just do it myself. I have pretty much everything I need with a camera and some funny friends.
+- I got a lot of my film education from sneaking into media labs at USC. I probably owe USC a lot of money.
+- But I really like our experimental, performance and monologue videos, where there's barely jokes in the video, where it's almost a joke in itself that the monologue is even being recorded.
+- But 'Brigsby Bear' was really important to me, because I wanted to tackle something dramatic.

@@ -1,0 +1,71 @@
++++
+author = "Sussanne Khan"
+title = "Sussanne Khan Quotes"
+quotes_len = "65"
+description = "the best 65 Sussanne Khan Quotes"
++++
+- Homes are always a reflection of the people in them, my whole job is to understand the psychology of the family I am designing for, the world of design they'd like to live within, be happy and comfortable in.
+- My mum used to be an interior designer in those days. I was 5 years old when I used to go with her on sites and I fell in love with the world of color and design.
+- There was a time, about six or seven years ago, when everything was extremely bling and decorative. I was not at peace with that kind of world.
+- Always speak out. Even if what you think is a bad idea, always voice it. You never know who you may inspire and what that one seed idea can blossom into.
+- Acting is equally a tough job but it didn't attract me. There was no question of not going in designing.
+- I have a team that works with me toward offering products that are important to and well suited to what the shopper wants, along with an engaging editorial content I'm involved with.
+- Creating a personal space with individual items that you love is so much easier on the wallet and really expresses your creativity.
+- I believe that one should always be contributing towards life and never stay idle.
+- And I respect actors but the job demands that you have to be self-absorbed. You have to concentrate a lot on yourself and I think that was something that never interested me.
+- I'm extremely grateful for the way my career has panned out. My journey thus far has been satisfying and especially as the Style Editor for The Label Life, curating The Power Dressing Edit, knowing we are catering to the modern Indian women.
+- I do my work with only one intention: that I have to think different, nothing else matters to me. I don't get involved in any other things.
+- I have got two sons and they are seven and five and I believe that the most difficult thing in this world is to be a working mother. Being a working mother doesn't give you a chance to be lazy.
+- My kids are my energy. They have a very strong sense of design in them already at this age and they love to see my work, they love to sit with me and see all the houses that I am designing.
+- Hridaan, my younger son, has this unique talent of drawing incredible doodles and anime. Watching him draw soothes my mind. He is so detailed and focused that it never fails to amaze us.
+- I love my lip-gloss and eyeliner, though apart from that, I avoid wearing too much make-up.
+- Everything from the logo to the products and different looks that you see, has been put together with so much detail. There is no way I wouldn't be completely involved. It's very important for me that I give my whole to everything that I am involved in. Otherwise, what is the point?
+- I have enjoyed everything that I have done during this journey in a certain way trying to break through the mundane way of philosophies in designs and going towards my instincts.
+- I loved the idea of offering customers a website where they could have access to a designer shopping experience at great value.
+- When I walk into a room in its grey state, I kind of understand what vibe the room should give out when it's done. Sometimes, it's about serenity, sometimes it's about love, it could be about a married couple or, could be about warmth and companionship with your family home, so it depends on the space.
+- Diwali is the period when your house is the cleanest and has a sparkly feel. So, whether it's the upholstery, curtains or paintings, each and every thing needs to be done up, even if it isn't being replaced with something new.
+- Most e-commerce sites focus on a product lists, they don't have stories. They don't tell you why the products are made or a reason you'd want to have this in your home.
+- I always advise young women to have a career irrespective of how happily married they are. In fact, their in-laws and husband will value them more if they have an independent side to them.
+- Drawing a line between work and home is something I strongly advocate for. Only by keeping that balance in check can you continue to be inspired at work and at peace at home.
+- I include lots of nutrients like Omega 3 fish oils in my diet, which work wonders for my skin, hair and nails. I also pack in the greens and drink lots of water, rather than choosing foods that make me feel lethargic.
+- Well, The Charcoal Project is my store that has designer products. It's a brand that feeds the needs of a certain audience. The website focuses more on accessories and creating a look.
+- As for buying new things, it all depends on what really attracts you. It could be anything from art installations to silver, sculptures and new furniture. The whole idea is to give the environment an auspicious touch to let in new energy.
+- I sincerely believe you can never be too old to grow, change and learn. It's essential.
+- There is no wrong design. There are no rules. Anybody can get it right by giving it a sort of story.
+- I love earth tones, jewel tones and everything that is natural. I also like natural materials like cottons, silks... I don't like synthetic. Even the wood we use has to be authentic.
+- Exercise is the best way to keep you looking young and fresh. It raises your heart rate and boosts your blood circulation.
+- Home Label was a part of me that wanted to reach out to a wider audience, a wider clientele. People who like design, who aspire for better design but they're too intimidated by the metros, all the big designers and the big label.
+- I have always marvelled at the grace and beauty with which my mum balanced her life.
+- We were four kids and my father and mother brought us up with very strong values. We weren't spoilt at all.
+- An online store cuts through the inhibitors that retail poses. It doesn't matter which city you live in or what income bracket you fall into, as long as you're interested in learning.
+- When you see a space for the first time, you aren't just thinking about how to decorate it, you are thinking of architectural design, the logistics of electrical planning, etc. You need to understand all that, to give your client the best possible solutions.
+- Like I always said, Hrithik and I are parents first and have to be in-sync regarding our priorities as parents in order to make sure our boys get the best upbringing. They are and always will be our main priority.
+- If I had to give a tip to aspiring designers, it would be to re-look past designs and be inspired. But don't just copy.
+- You have to let kids be kids. Robbing them of their childhood and/or adolescence is not fair.
+- My family trusts my judgment. Although I take suggestions from all of them, since they are as house proud as me, I always choose things that the family will be equally interested in.
+- I have always been a design student and my mind focused on design from a very young age. So, for me, creativity is a very satisfying and motivating process.
+- It surprises me how quickly the press likes to reach conclusions about my life.
+- Since I was 5, I was bitten by the bug of designing. It was all around me in my home.
+- You realise this is life; there will be ups and downs. It is important to focus on your passions, devote time to your family and work and all will be good.
+- I think it all comes down to being little sensible with your timetable and scheduling with a little discipline with your timings, you can enjoy everything in life.
+- I was fresh from college and worked with my mum and even freelanced on my own with her team of people. I was young and had to face all kinds of tantrums from my clients. I was not disheartened.
+- When you walk around the property, everything ties up together and looks good. That is the main goal as a designer.
+- I don't have an MBA from Harvard Business School. I learnt everything on the job.
+- By the grace of God, our boys have been inclined towards music from a young age.
+- I love the films and the industry, but I am so happy being where I am in my profession.
+- When you have kids, like I do, you have to also make sure that nothing, in terms of renovation and doing up things is dangerous to your children. Their safety is of paramount importance.
+- Technology is a huge part of our lives and it's only a matter of time that it becomes a part of every corner of your home, even part of something like furniture.
+- I am a very hardworking mother and my kids keep me fit. Also, being a working mother, you are always on the go. You always have too many things to do, so you don't have the chance to be lazy and I think that keeps me fit and motivated.
+- I don't like to restrict my style. I believe I am a student in the world of design. I love all kinds of design elements and more than that, I love to mix them up.
+- My kids are go-getters. They organise things.
+- Yes, my children are fascinated by design of technology and computers. And I am very happy with that. Today design is a wide world; it doesn't have to be interiors or architecture. It could be anything.
+- Like any doting parent, I believe the most important work we do is the way we bring up our children.
+- Obviously, as with any business, a celebrity can only add so much to a brand's image or vision. So the product must be in keeping with the celebrity's talents.
+- When you try to redecorate or design your home yourself, nothing is really wrong, because it's your touch. You're going to live there. You should be happy with it.
+- In fact, I schedule my day in a way so that I can pack in every aspect of what I enjoy, whether it's being with my kids or my workout sessions and on top of it, I will absolutely be a hands-on working person.
+- I want to work because I am too passionate about what I do. As long as my children and husband don't feel neglected, I do the balancing.
+- When COVID-19 was declared a pandemic and the news was out that a lockdown would be imperative, Hrithik and I decided that staying together in the same home would be the more intelligent and soulful decision for our sons, and for us.
+- I've learned not to let life get in the way. One should learn to live off their creative juices because that's where you will have maximum satisfaction and growth.
+- Beauty comes from having a good metabolism because it enhances you from the inside. It reflects on the skin and face.
+- A working woman will never have the time to indulge in time-wasting activities such as gossiping.
+- I have a huge connect with South. My father can speak fluent Tamil. He studied in Bengaluru. My brother studied in Kodaikanal. I am familiar with the South.

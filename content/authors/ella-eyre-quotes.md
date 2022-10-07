@@ -1,0 +1,35 @@
++++
+author = "Ella Eyre"
+title = "Ella Eyre Quotes"
+quotes_len = "29"
+description = "the best 29 Ella Eyre Quotes"
++++
+- I use writing as a counselling session - recently I've written a song for Paloma Faith, so after being a singer, I'm happy to keep writing for other people.
+- I found out that I'd broken up with someone when I wasn't even aware I was going out with them!
+- My mum's a bouncy, energetic, driven, crazy woman, and my dad's very relaxed, doesn't say much. I have the best of both worlds in my personality.
+- I take up my make-up with Garnier's Micellar and then exfoliate with a Kiehl's exfoliating cream.
+- There's a lot less time in the day when you're in a relationship.
+- My background was always more soulful pop. I was named after Ella Fitzgerald, and when I was a kid, I was listening to Lauryn Hill, Etta James, Joss Stone. For me, it was always about the voice.
+- I love fierce performers.
+- On a normal day, I crawl out of bed before 8 A.M., have a protein shake, chuck my gym kit on, and go for a class or personal-training session. When I'm back, I'll have poached eggs with salmon or spinach for breakfast before my stylists arrive to do my hair - which takes ages. I then go wherever I am needed.
+- I always have Giorgio Armani's Luminous Silk Foundation, Bobbi Brown's Jenna lipstick, and my Estee Lauder Double Wear Concealer.
+- I learned a lot from Rudimental's live set. It's all about good feelings, good vibes and a good time, and that's what I want from my shows. I like big, bolshy performances, like Beyonce. I can't dance like her, though.
+- It's so nice to be inspired by so many females - particularly the girls around me like Jess Glynne, Becky Hill, Sinead Harnett, Foxes - we all have similarities, but we're all very different, and I think it's nice that people are respecting that and noticing and enjoying us all equally.
+- People are always looking for something new and something to latch on to and to back something from an early stage.
+- I like Aveda shampoo. I've used it since I was a swimmer.
+- I've always had loads of teddy bears.
+- My mum is very driven and has always kept me busy... She used to say to me, 'Nobody likes a teenager. So use your teenage years to work. Then enjoy your life when you're slightly older.'
+- I find my vocabulary is quite a lot better when I'm hungover. I feel like I unlock a key of words that I don't usually use in day-to-day life.
+- My mum told me that grown-ups don't like teenagers, which is the last thing you want to hear when you are one yourself!
+- I'd never been on tour until I met the Rudimental boys. Never done a live show in front of an audience.
+- It's a small world. No matter what the circumstances, be nice to everyone, as you never know who you're going to see again.
+- I'm actually quite good at being friends with my exes. I'm friends with almost everyone. In fact, everyone! So I let them burn to a certain degree, and then I put out the fire for a while.
+- I went to boarding school in Somerset and loved it so much that my teachers had to make me phone home when I first got there. Whenever I spoke to my mum, at the end of the call I would say, 'Love you, Mum', and she would say, 'Love you the most.'
+- I think for us up-and-coming artists, once you're out there, once you've put stuff up, once people know who you are, once you discover who you are, we're all in the same boat: it's down to whether people appreciate the music or not.
+- I don't wash my hair very often. Once a week if I can. Because the more you wash it, you end up stripping out the natural oils. What I like to do is just rinse out the products that I've used during the week and then put leave-in conditioner in and let it dry naturally.
+- I don't see life without a musical career. I really enjoy doing what I do.
+- I wake up every morning, and life is different. I've got a gig or a shoot. Flying here, flying there. Meeting wicked people. Going to amazing places. I'm relishing it.
+- I was a competitive swimmer as a teenager, only stopping when I got persistent ear infections. Every day was a 6 A.M. start to swim before lessons, then choir or dance classes after.
+- My hairstylist uses the Bumble & Bumble hairspray, which is the best smelling hairspray there is!
+- I love sushi. Once on Valentine's Day, someone I was dating rocked up at the airport to pick me up with a bag of salmon because I love it so much.
+- Always keep wiping your face with towels when you work out because I find that the more I exercise, that's when I have my breakouts. You've got to keep the sweat off because the pores are open when you're hot and can get clogged.

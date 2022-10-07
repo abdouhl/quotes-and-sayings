@@ -1,0 +1,130 @@
++++
+author = "Zbigniew Brzezinski"
+title = "Zbigniew Brzezinski Quotes"
+quotes_len = "124"
+description = "the best 124 Zbigniew Brzezinski Quotes"
++++
+- You know who's messianic? Netanyahu, because he talks that way. And that's a very risky position.
+- Bipartisanship helps to avoid extremes and imbalances. It causes compromises and accommodations. So let's cooperate.
+- We can't have an intelligent foreign policy unless we have an intelligent public, because we're a democracy.
+- Rushing to war is not a wise course of action.
+- I'm all in favour of grand important speeches, but the president then has to link his sermons to a strategy.
+- Indeed, for almost 10 years, Moscow had to carry on a war unsupportable by the government, a conflict that brought about the demoralization and finally the breakup of the Soviet empire.
+- Sometimes in international politics, the better part of wisdom is to defer dangers rather than try to eliminate them altogether instantly.
+- Hard power makes sense under some circumstances. But there's not a universal solution to global problems.
+- We have actually experienced in recent months a dramatic demonstration of an unprecedented intelligence failure, perhaps the most significant intelligence failure in the history of the United States.
+- Foreign policy should not be justified through making oneself feel good, but through results that have tangible consequences.
+- Can we really mobilize support, even of friends, when we tell them that if you are not with us you are against us?
+- Human affairs require some combination of moral commitment with disciplined political action. And that is what keeps me intrigued and challenged and wanting to influence events.
+- I would like to promote internal change in Iran - which is more likely if we don't fuse Iranian nationalism with Iranian fundamentalism.
+- If the United States and China can accommodate each other on a broad range of issues, the prospects for stability in Asia will be greatly increased.
+- Missing from much of the public debate is discussion of the simple fact that lurking behind every terroristic act is a specific political antecedent. That does not justify either the perpetrator or his political cause. Nonetheless, the fact is that almost all terrorist activity originates from some political conflict and is sustained by it as well.
+- Terrorism cannot be isolated from its political, historical, and even social context.
+- A Russia that gradually begins to gravitate toward the West will also be a Russia that ceases to disrupt the international system.
+- Being a former first lady doesn't prepare you to be president.
+- Saddam Hussein was an odious dictator, but he was also a very effective opponent of Iran. He was also a very effective opponent of al-Qaida.
+- During the nineteenth century, men died believing in the cause of royalty or republicanism. In reality, much of their sacrifice was rendered on the altar of the new nationalism.
+- A waning United States would likely be more nationalistic, more defensive about its national identity, more paranoid about its homeland security, and less willing to sacrifice resources for the sake of others' development.
+- Pessimism about America's future tends to underestimate its capacity for self-renewal.
+- The fact of the matter is the Arab elites are more inclined to accommodate our wishes because of certain overlapping interests that are often financial. That is not the case with the Arab masses.
+- There's something troubling about a condition in which one country alone, which has roughly 5 percent of the world's population, spends more than 50 percent of the world's defense budgets. There's something weird about it.
+- The public has been told repeatedly that terrorism is 'evil,' which it undoubtedly is, and that 'evildoers' are responsible for it, which doubtless they are. But beyond these justifiable condemnations, there is a historical void.
+- Yes, ISIS is a threat. It's more than a nuisance. It's also in many respects criminal violence. But it isn't, in my view, a central strategic issue facing humanity.
+- The war of choice in Iraq could never have gained the congressional support it got without the psychological linkage between the shock of 9/11 and the postulated existence of Iraqi weapons of mass destruction.
+- It is axiomatic that the security of America and Europe are linked.
+- Americans don't learn about the world; they don't study world history, other than American history in a very one-sided fashion, and they don't study geography.
+- Because America is a democracy, public support for presidential foreign-policy decisions is essential.
+- It is in the U.S. interest to engage Iran in serious negotiations - on both regional security and the nuclear challenge it poses.
+- A president who aspires to be recognized as a global leader should not personally stake out a foreign-policy goal, commit himself eloquently to its attainment, and then yield the ground when confronted by firm opposition.
+- But if Russia is to be part of this larger zone of peace it cannot bring into it its imperial baggage. It cannot bring into it a policy of genocide against the Chechens, and cannot kill journalists, and it cannot repress the mass media.
+- The financial catastrophe of 2008 nearly precipitated a calamitous economic depression, jolting America and much of the West into a sudden recognition of their systemic vulnerability to unregulated greed.
+- Basically, I see Iran as an authentic nation-state. And that authentic identity gives it cohesion, which most of the Middle East lacks.
+- I was deeply involved in the decision that President Jimmy Carter made to boycott the Olympics in Moscow in 1980.
+- There may be circumstances in which damaging our relationship with countries over human rights is counterproductive and the benefits to human rights may be very small because of our limited capacity to enforce our stance. That was the dilemma the United States faced after Tiananmen Square.
+- Waging a colonial war in the post-colonial age is self-defeating.
+- With the decline of America's global preeminence, weaker countries will be more susceptible to the assertive influence of major regional powers.
+- Pakistan's political instability is its greatest vulnerability, and a decline in U.S. power would reduce America's ability to aid Pakistan's consolidation and development.
+- War on terrorism reflects, in my view, a rather narrow and extremist vision of foreign policy for a superpower and for a great democracy with genuinely idealistic traditions.
+- Palestinian terrorism has to be rejected and condemned, yes. But it should not be translated defacto into a policy of support for a really increasingly brutal repression, colonial settlements and a new wall.
+- As America's nuclear strategic monopoly faded, the United States sought to create advantages elsewhere, notably in the peaceful cooperation between the United States and communist China under Deng Xiaoping.
+- It is said that the West had a global policy in regard to Islam. That is stupid. There isn't a global Islam.
+- War triggers unforeseeable military dynamics and sets off massive political shocks, creating new problems as well as new opportunities.
+- I have been struck by the pervasive frequency of pompously patriotic ads for the defense industry, usually accompanied by deferential salutations to our men and women who are heroically sacrificing their lives in our defense. Do we really need all of that for our security?
+- America's decline would set in motion tectonic shifts undermining the political stability of the entire Middle East.
+- We don't have a public that really understands the world anymore, and in the age of complexity, that problem becomes much more difficult.
+- In Iraq we must succeed. Failure is not an option.
+- The mullahs are part of the past in Iran, not its future. But change in Iran will come through engagement, not through confrontation.
+- Look: I don't want to live with a nuclear Iran. I would like to make it uncomfortable for them to seek it.
+- Fear obscures reason, intensifies emotions, and makes it easier for demagogic politicians to mobilize the public on behalf of the policies they want to pursue.
+- American power worldwide is at its historic zenith.
+- We cannot have that relationship if we only dictate or threaten and condemn those who disagree.
+- I realise that in an electoral campaign, you don't want to antagonise large groups which are highly motivated.
+- Not to mention the fact that of course terrorists hate freedom. I think they do hate. But believe me, I don't think they sit there abstractly hating freedom.
+- The Chinese are really good at diplomacy - and even at making their interlocutors feel very uncomfortable.
+- The 'war on terror' has created a culture of fear in America.
+- One-sided national economic triumphs cannot be achieved in the increasingly interwoven global economy without precipitating calamitous consequences for everyone.
+- We all have the right to comment about each other.
+- Eurasia is the world's axial supercontinent. A power that dominated Eurasia would exercise decisive influence over two of the world's three most economically productive regions: Western Europe and East Asia.
+- We defended our allies in Europe for 40 years during the worst days of the Cold War - very threatening days of the Cold War - and nothing happened. So deterrence does work.
+- Moderation and bipartisan consensus go hand in hand.
+- The congressional role in declaring war is especially important not when the United States is the victim of an attack, but when the United States is planning to wage war abroad.
+- Both World War II and the subsequent Cold War gave America's involvement in world affairs a clear focus. The objectives of foreign policy were relatively easy to define, and they could be imbued with high moral content.
+- It is important to ask ourselves, as citizens, whether a world power can provide global leadership on the basis of fear and anxiety.
+- If we end up with war in Iraq, Afghanistan, Pakistan, Iran at the same time, can anyone see a more damaging prospect for America's world role than that?
+- We should seek to cooperate with Europe, not to divide Europe to a fictitious new and a fictitious old.
+- The Sino-American competition involves two significant realities that distinguish it from the Cold War: neither party is excessively ideological in its orientation; and both parties recognize that they really need mutual accommodation.
+- What is most important to the history of the world? The Taliban or the collapse of the Soviet empire? Some stirred-up Moslems or the liberation of Central Europe and the end of the Cold War?
+- Look at Islam in a rational manner and without demagoguery or emotion. It is the leading religion of the world with 1.5 billion followers.
+- The future is inherently full of discontinuities, and lessons of the past must be applied with enormous caution.
+- All the historical pretenders to global power originated in Eurasia.
+- The difference between the Bush I war against Iraq and the Bush II war against Iraq is that in the first one, we appealed to the sentiments and interests of the different groupings in the region and had them with us. In the second one, we did it on our own, on the basis of false premises, with extremely brutality and lack of political skill.
+- According to the official version of history, CIA aid to the Mujahadeen began during 1980, that is to say, after the Soviet army invaded Afghanistan, 24 Dec 1979.
+- The culture of self-gratification and deregulation that began during the Clinton years and continued under President George W. Bush led to the bursting of one stock market bubble at the turn of the century and a full-scale financial crash less than a decade later.
+- Japan needs the American market and it also needs American security protection. Japan also needs America as the necessary stabilizer of an orderly world system with economies truly open to international trade.
+- The Soviet Union's termination, which brought to an end the bipolar world, ushered in an era of U.S. hegemony. Hegemony, however, should not be confused with omnipotence. Hegemony is not omnipotence but is certainly preponderance.
+- There's no point considering something which is very unrealistic.
+- The worsening of relations between a declining America and an internally troubled Mexico could even give rise to a particularly ominous phenomenon: the emergence, as a major issue in nationalistically aroused Mexican politics, of territorial claims justified by history and ignited by cross-border incidents.
+- To increase the zone of peace is to build the inner core of a stable international zone.
+- I think it is important to ask ourselves as citizens, not as Democrats attacking the administration, but as citizens, whether a world power can really provide global leadership on the basis of fear and anxiety?
+- We didn't push the Russians to intervene, but we knowingly increased the probability that they would.
+- I don't approve of the notion that we should be announcing who should step down from the position of a head of a state unless we are seriously prepared to remove that person. But if we are not, if we are being prudent and careful, then let's also be careful with how we talk.
+- You go to Paris, or you go to Portugal, you go to Poland, and you ask, 'Who are you people?' They'll tell you, we're Portuguese, we're Spanish, we're Polish. Who are the people that are really European? The people in Brussels, in the E.U. bureaucracy. Europe has not been able to move to the level of patriotic identification with the concept.
+- Anniversaries are like birthdays: occasions to celebrate and to think ahead, usually among friends with whom one shares not only the past but also the future.
+- Peace between Israel and Palestine would be a giant step toward greater regional stability, and it would finally let both Israelis and Palestinians benefit from the Middle East's growing wealth.
+- Let's cooperate and challenge the administration to cooperate with us because within the administration there are also moderates and people who are not fully comfortable with the tendencies that have prevailed in recent times.
+- If we slide into a pattern of just thinking about today, we'll end up reacting to yesterday instead of shaping something more constructive in the world.
+- The legitimacy of the leadership depends on what that country thinks of its leaders.
+- If we can deter the Soviet Union, if we can deter North Korea, why on earth can't we deter Iran?
+- Commitment and credibility go hand in hand.
+- Democrats should insist that a pluralistic democracy such as ours rely on bipartisanship in formulating a foreign policy based on moderation and the nuances of the human condition.
+- Constant reference to a 'war on terror' did accomplish one major objective: It stimulated the emergence of a culture of fear.
+- The problem with the Iranian regime, of course is, one, its unsettling effects on the Sunnis, particularly Saudi Arabia, and, secondly, its potential threat to Israel.
+- I do think America has made it quite clear that it is in the interest both of America and China to avoid situations in which they will be pushed toward a collision.
+- America's victory in the Cold War was not without painful social costs.
+- I think we have to pay attention to the Arab masses not just in the Gulf States, but also in the hinterlands.
+- Neither the United States nor Israel has the capacity to impose a unilateral solution in the Middle East.
+- We need to ask who is the enemy, and the enemies are terrorists.
+- I draw a very clear distinction between populism and democracy.
+- Economically, we are, to some significant degree, interdependent with Chinese well-being. That is a great asset.
+- We should be therefore supporting a larger Europe, and in so doing we should strive to expand the zone of peace and prosperity in the world which is the necessary foundation for a stable international system in which our leadership could be fruitfully exercised.
+- I cite these events because I think they underline two very disturbing phenomena - the loss of U.S. international credibility, the growing U.S. international isolation.
+- During the twentieth century, men fought on behalf of nationalism. Yet the wars they fought were also engendered by dislocations in world markets and by social revolution stimulated by the coming of the industrial age.
+- AIPAC has consistently opposed a two-state solution, and a lot of members of Congress have been intimidated, and I don't think that's healthy.
+- I don't feel I was 'born American,' but my homeland was denied to me after the end of World War II, and I craved something I could identify with. When I became a student at Harvard in the 1950s, America very quickly filled the vacuum. I felt I was American, but I think it's more revealing of America how quickly others here accepted me.
+- The first 'world' war was in reality the last European war fought by globally significant European powers.
+- The Cold War did end in the victory of one side and in the defeat of the other. This reality cannot be denied, despite the understandable sensitivities that such a conclusion provokes among the tenderhearted in the West and some of the former leaders of the defeated side.
+- The first and most important is to emphasize the enduring nature of the alliance relationship particularly with Europe which does share our values and interests even if it disagrees with us on specific policies.
+- The security link between us and Europe is very important for European security but also for our security.
+- The United States should not engage in tit-for-tat polemics directed at its most important allies. That is as demeaning as it is destructive.
+- The costly unilateralism of the younger Bush presidency led to a decade of war in the Middle East and the derailment of American foreign policy at large.
+- Americans must place greater emphasis on the more subtle dimensions of national power, such as innovation, education, the balance of force and diplomacy, and the quality of political leadership.
+- To his credit, Obama has undertaken a truly ambitious effort to redefine the United States' view of the world and to reconnect the United States with the emerging historical context of the twenty-first century. He has done this remarkably well.
+- Only a dynamic and strategically-minded America, together with a unifying Europe, can jointly promote a larger and more vital West, one capable of acting as a responsible partner to the rising and increasingly assertive East.
+- World War II and the ensuing Cold War compelled the United States to develop a sustained commitment to Western Europe and the Far East.
+- Sovereignty is a word that is used often but it has really no specific meaning. Sovereignty today is nominal. Any number of countries that are sovereign are sovereign only nominally and relatively.
+- War on terrorism defines the central preoccupation of the United States in the world today, and it does reflect in my view a rather narrow and extremist vision of foreign policy of the world's first superpower, of a great democracy, with genuinely idealistic traditions.
+- Given the accelerating velocity of history, we should begin charting deliberately the next phase in its trajectory.
+- The potential for regional conflict in the absence of an internationally active America is real.
+- Eurasia is home to most of the world's politically assertive and dynamic states.
+- We now have the opportunity of giving to the USSR its Vietnam war.
+- The external Soviet empire lasted 45 years. It is shattered, beyond redemption or repair.

@@ -1,0 +1,69 @@
++++
+author = "Eric Swalwell"
+title = "Eric Swalwell Quotes"
+quotes_len = "63"
+description = "the best 63 Eric Swalwell Quotes"
++++
+- Americans are at our best when we build bridges between us, not walls around us.
+- I've seen that most of us want the same things: to be safe where we live, secure in our finances, and free in our lives.
+- The first half of Special Counsel Robert Mueller's report, even in redacted form, leaves no room for debate: This president and his campaign eagerly exploited help from Russian agents, despite being aware that Russia was sabotaging our election.
+- I love country music. Like, I really, really, really love country music.
+- If people are interested in changing the direction of the country, Iowa is the battleground.
+- The power of incumbency cannot be underestimated.
+- That issue of student debt and college affordability is probably what I would say reinforced that I was a Democrat.
+- Americans have bravely risen to overcome great challenges, but we still have a long way to go to ensure that everyone shares in the freedom to dream of and achieve a better life for themselves and their kids.
+- The best piece of advice I've received is find a mentor, but also mentor others. You have two hands, so reach up, look for as many mentors as you can to get where you want to go, but never forget that you have another hand, and you have to reach down and lift others up, too.
+- For years, America has helped protect against terrorist attacks by telling Americans, 'If you see something, say something.' The same should go for protecting our elections against foreign interference.
+- One of my goals here in Congress, being the youngest member of the California delegation, is to really try and get the institution to upgrade the way it communicates with its constituents.
+- Being the first in my family to go to college, I believe, is my greatest accomplishment. It's not my accomplishment; it's my family's accomplishment.
+- I think having a national system that tracks who owns guns is fine. I don't think we need to be printing it on the Internet.
+- I support gun safety measures, and I'll tell you, I grew up in a family of gun owners and hunters, and I went hunting with my dad as a kid, and you know, I have deep respect for the Second Amendment and the culture of our country.
+- Only the mob takes the Fifth.
+- When people of color and their allies say today that Black Lives Matter, the nation must hear and see it through the lens of all that has come before and understand that they speak truth.
+- I support an assault weapons ban, and I'll tell you why. We already have one in California, so I don't support doing anything above what we do in California.
+- Our country needs help, and I think the best way to help the country is to bring new energy, new ideas, and new leaders to solve the problems.
+- Rule of law is based on probable cause.
+- When athletes take a knee during the National Anthem, we must ignore President Trump's absurd claim that they're 'un-American' and instead understand that it's very American to peacefully protest systemic injustice.
+- California is among several states that already have fought their way out from under partisan gerrymandering by taking line-drawing authority away from the Legislature.
+- It is clear that Michael Cohen was not truthful with the House Intelligence Committee, which is all the more reason that we never should have ended our investigation.
+- I was raised to believe nobody is above the law - especially not a president.
+- I've told town hall participants and reporters in the media that we can protect the Second Amendment and also protect people's lives.
+- Our rights to live and to love each other, those rights are greater than any other right in the Constitution, period.
+- Reinstating the federal assault weapons ban that was in effect from 1994 to 2004 would prohibit manufacture and sales, but it would not affect weapons already possessed. This would leave millions of assault weapons in our communities for decades to come.
+- Don't confuse evidence with a conclusion.
+- Holding office often requires swearing an oath to support and defend the Constitution of the United States against all enemies, foreign and domestic. Running for office should include accepting responsibility for this, too, so that our democratic republic's underpinnings can remain strong for generations to come.
+- My mom and dad are Republicans. At least two of my brothers are.
+- The rule of law, and the idea that it applies to everyone regardless of what office that person might hold, is the chief ingredient in our democracy.
+- I have great faith that most Americans are law-abiding and care about the rule of law, and if they're told a weapon is no longer allowed in their community and they would be compensated, they would find a way to do the right thing.
+- Americans feel frustrated, distanced, and disenfranchised from our elected government. We deserve more: a government in which we truly all have a voice.
+- Coming into Congress, I didn't really have much of a worldly experience.
+- I think the best term limit is to have public financing of campaigns and independent redistricting.
+- For millions of Americans, federally subsidized student loans and Pell Grants are an important resource for us to get ahead so we can achieve the American dream.
+- Your health shouldn't rely on pleas for kindness from strangers. We can and will do better.
+- I played soccer in college, at this little school in North Carolina called Campbell. It was the only place in the world where they would offer to pay for everything.
+- If you're sick, you should be able to see a doctor. And if you're seen, you should be able to afford the bill and your medicine without going broke. There is absolutely nothing radical about this.
+- We will accept no corporate PAC money, and we're not going to be driven by the polls.
+- I believe in the promise of America, which is if you work hard, you do better for yourselves, and you dream bigger for kids.
+- My parents worked really hard.
+- Why do we not have online voting? There's a security system in place already - on our cellphones. We already use biometrics to log into our banking. We use it to log into our health records. Why can't we have online safe and secure voting?
+- I don't think I voted in 2000.
+- I want us to be a country of free ideas, free markets, and a freedom to dream.
+- When I was a prosecutor, I got to shoot at the range so I could explain to juries how the firearm worked. You know, to prove intent or to prove that the person didn't accidentally discharge the firearm, I would have to learn everything about the firearm.
+- We believe that every child has a right to learn without fear, that every parent has a right to hug their beautiful little babies when they come home from school, and that all of us, we have a right to dance at a concert, laugh at the theater, pray at a synagogue, at a church, and at a mosque.
+- For me, there's nothing more important than serving my constituents and winning the House.
+- If we can put a probe on Mars or put online orders on your doorstep within hours, surely we can harness our unparalleled innovative spirit to prolong and better our lives while creating thousands of new jobs in the life sciences.
+- My position has always been that the House of Representatives does not take reservations. It's walk-in only.
+- The differences between Rand Paul and millennials are vast - not just on economics, but on social issues that matter to young people, too.
+- The NRA - they are a paper tiger.
+- America needs a president who knows how we live and work, who delivers on promises to those who need help, who won't use fear and hate as a political cudgel, and who works to solve our biggest problems instead of nibbling around the edges - a president who will go big, be bold, and do good, and stirs all Americans to do likewise.
+- Democrats are fighting to make sure that everyone, no matter your background, has a chance to get ahead.
+- We should trust judges to be independent, investigators to be independent.
+- When I got injured, I think I was starting to sense that there was more to the world than just sports. This dream of playing professional soccer probably wasn't the best track for me.
+- My dad was a cop.
+- Donald Trump, for years, had been working with the Russians. He brought people on his campaign who had ties to the Russians.
+- As the country gets to know me more, they will see the reason I care so much about Russia is I understand why they thought to help Donald Trump.
+- If you say you're going to do something, you better damn well do it.
+- All the arrows continue to point to a personal, political, and financial relationship that Donald Trump had with the Russians.
+- I've worked since taking a newspaper route at age 9 and served as a prosecutor, a planning commissioner, a city councilman, and a congressman to pay back some of what my community and nation gave me.
+- Our military shouldn't be outgunned.
+- My back's not big enough for the number of targets on it.

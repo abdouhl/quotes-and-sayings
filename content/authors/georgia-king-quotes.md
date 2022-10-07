@@ -1,0 +1,19 @@
++++
+author = "Georgia King"
+title = "Georgia King Quotes"
+quotes_len = "13"
+description = "the best 13 Georgia King Quotes"
++++
+- I pretended to be super-cool and not be bothered by things and play off any kind of heartache when I was younger, for sure.
+- Skydiving is special because it's almost the closest to an out-of-body experience you can have. We live in such a stimulated, connected, busy world - to be up in the air with nothing but yourself and the landscape is incredibly peaceful.
+- If I need to take a break from work, I'll just Google dogs that are up for adoption in L.A. I really want a poodle mix, and I want to name her Rita. That's my dream, and one day it's going to happen.
+- I've already bungee jumped, so I am thinking about diving with sharks. I watched a little snippet of 'Jaws 2,' and I was like, 'Nope! I'll save it for a rainy day.' Unfortunately, I live in England, and it's always raining.
+- I grew up in the countryside, in literally the middle of nowhere. We had one neighbor and a lot of sheep.
+- I'm a massive sports fan and have a lot of energy, so I'm always running around doing crazy amounts of exercise.
+- I do, I love to mock stuff. I am a British person.
+- We're often blinded by romance; we decide to not see things we don't want to see, and put up with behavior that we shouldn't put up with.
+- Fame is a weird thing. I think maybe I learned to never get too big for your boots. Keep your feet on the ground and keep your head down and work hard - that's probably what I learned from my parents more than anything. Remain generous and kind, and have humility.
+- My dad discouraged me and my older sister watching too much TV. I don't want to portray them as crazy hippies, but I definitely feel like I was influenced by their creativity. But did I want to have an acting career myself? I didn't think so. I think my goal really was to direct. I really wanted to make stories in that capacity.
+- My dad was in these pretty big films that were relevant to my age group. I remember him doing 'Richie Rich' when I was eight-years-old, and then 'Jumanji.' I remember going to these sets, and I loved being on film sets. I just found it fascinating watching how stories were made.
+- I grew up on Jane Austen novels and was a massive literature fanatic when I was a kid - I read everything I could get my hands on.
+- When I say that I'm a grade-A student in motocross, I mean that I can sit on a bike and ride it. But I'm confident that, with time, I could do a 12 o'clock.

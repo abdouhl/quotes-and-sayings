@@ -1,0 +1,16 @@
++++
+author = "Ed Mcmahon"
+title = "Ed Mcmahon Quotes"
+quotes_len = "10"
+description = "the best 10 Ed Mcmahon Quotes"
++++
+- There was a time... when people didn't go out of their house on Tuesday night at eight o'clock because Milton Berle was on.
+- All Americans need a sense of place. That's what makes our physical surroundings worth caring about.
+- Golf courses sell real estate and that's why they're built.
+- There is no planning. On the night it is really great, it's euphoria and if it is not so great there is always tomorrow night. That was his attitude.
+- The majority of people who buy homes in golf course communities don't play golf. Golf is way down at the bottom in terms of total numbers and growth.
+- Like Venice, Italy, New Orleans is a cultural treasure. And everyone who lived in the city should be allowed to come back. But that doesn't mean that they all should live in exactly the same spot that they lived before.
+- Honesty is the most single most important factor having a direct bearing on the final success of an individual, corporation, or product.
+- It's really kind of hard to be a suburb of nothing. If you don't have a downtown, you really don't have anything. It's hard to build a community around parking lots and subdivisions.
+- Johnny once described our relationship by saying we were as close as two people could be without being married.
+- You can grow without destroying the things that you love.

@@ -1,0 +1,64 @@
++++
+author = "Essie Davis"
+title = "Essie Davis Quotes"
+quotes_len = "58"
+description = "the best 58 Essie Davis Quotes"
++++
+- I'm incredibly ambitious, but I feel I've got a fantastic career, and I love the anonymity. I love that no one knows who I am.
+- I personally don't resent having my children.
+- Goals are essentially private things.
+- Phryne Fisher could walk down the red carpet; Essie Davis is something else.
+- Being a mother impacts every aspect of your life. It's a rite of passage which gives you an entirely different outlook on things.
+- I think my morals are perfectly... tight!
+- I want to carry a really great role in a great film.
+- I think you've got to understand your character and where they're coming from.
+- I don't know if I want to walk down the street and have everyone staring. I think that would be awful. I'm a pretty shy person, really.
+- It's nice being married to somebody who thinks you've got something better in you.
+- Even if the Tonys aren't as glitzy as the Oscars, being a part of the ceremony is no less exciting.
+- I'm just a very fortunate actor who has not been typecast.
+- I've really had a great career. It's been part fortune and part my own choices that steered my own career into playing the great roles that I've played on stage in Australia and at the National and West End in London and on Broadway.
+- One of the things I have loved so much about the career that I have had is that pretty much every character I have played is diametrically opposite to the one before it.
+- I've sung before, first in a band in high school and then in a band in Norway, but never in a musical.
+- As soon as you become a parent, everyone gives you their parenting advice. It's like an onslaught of information about how other people do it.
+- Film directors don't come to the theatre in Sydney. In London and New York, they do.
+- People who don't know how old I am can cast me as the woman in 'Girl with a Pearl Earring' and can cast me as Stella in 'Streetcar Named Desire,' and they are miles apart.
+- I would love to get a job in France!
+- I used to buy things for every hotel room or every place I lived in to make it feel like home.
+- Sometimes it's easy to do brave things in front of a thousand people, but it's hard to do them in front of a handful. It feels so much more exposing.
+- Even though I love fashion and the red carpet dresses are a great, fun, glorious thing, I don't really have my finger on the pulse, as Phryne Fisher does, of the fashion industry.
+- There are some jobs that you go for because achieving them would take your career in a direction that you would like it to go, but mostly, I want to play the roles and have had the great good fortune and opportunities to play some fantastic roles and been very, very fortunate.
+- Parenting is meant to be just a natural part of life. You just think you know how to do it but, of course, it's much more complicated than that.
+- There are many books that I love dearly, and I've seen many televised or film recreations that I just haven't thought were up to scratch.
+- I think it's an actor's gift to be as old as people think you are.
+- Trying to get over to the 'on camera' side of things has been hard work.
+- I grew up with a love of words.
+- I honestly do think that every character - you pick up the things, little things that you like about them in your life. Especially if you play a character for a long time.
+- I learn the techniques and then take what I need. I have the Essie Davis technique of acting. I'm an instinctive actress.
+- The news is so instantly available to us without delay, interpretation, or a filter. What is hot right now is streamed live without context or perspective.
+- I want to have the great roles that move people profoundly. I want to have the choice and be given the opportunity to play those roles, and unfortunately, fame plays a huge part in that.
+- It's such a magnificent thing to be able to love someone and expect nothing from them.
+- Awards and nominations really help sell films.
+- I never said I wanted to be a movie star.
+- I was terrified of being a mum because I didn't think I'd ever be grown up enough.
+- 'The Custodian' was my first film, and there were so many lessons to learn in that week. It was really fun, but for me, I look at it as a training film, and I'm not really proud of my work in it.
+- I often get mistaken for all different kinds of ages; some of them flattering, some of them not.
+- I think the unemployment rate for actors is pretty much the same in Sydney, London and New York. In all three cities, there are more actors than there are jobs. But I do think that there are far more acting opportunities in London and New York than in Sydney, where there are approximately seven actors that you see over and over again in every play.
+- Most mothers think they are bad mothers. We all make terrible mistakes, often, and always think we're getting it wrong.
+- I love Australia and loved growing up here, and that's something I don't want to deny our children, but it's difficult sustaining a career in Australia.
+- I feel lucky that I've managed to get the roles I've wanted.
+- I always knew I wanted to go to NIDA. I think I was very fortunate, and I do doubt myself often, but I didn't see any possibility of me not going to NIDA. I believed in myself, and I believed that, if you really do want something, you get it.
+- I never spend more than a week away from the children.
+- I miss my friends in London, and I really miss New York. But I also miss the stability of staying in one place and being able to just open a drawer if you've run out of sticky tape and chuck a new roll in the holder.
+- I think every character rubs off on you a little bit.
+- I've had really a great choice of roles that have been very different from one another. And I think I kind of set out to do that when I began my career - to aim to never play the same thing twice.
+- There's something great about being on location with a bunch of people - there's a camaraderie and intimacy that builds up over time.
+- Acting is embarrassing.
+- Getting fan mail from Brazil is kind of funny.
+- I wanted to be an actor, but only because I wanted to be everything, and that was the only way I could be a marine biologist as well.
+- 'The Slap' is not like anything else. It's an incredibly well-written novel that has been turned into a great and intriguing series that reveals both less and more about each character than you learn in the book. It's a novel that has been given a second chance to live.
+- I have children, and they demand my full and complete attention. They get that when I'm at home, even during the night, but it is really hard, and I do wonder how a lot of women do it without bawling their eyes out every day.
+- I do like having a private life.
+- I have learnt a lot about theatre, and I would like to know the same about film.
+- It's hard, but what's the point of having children unless you're there to raise them, I reckon.
+- Everyone has a point of view about corporal punishment.
+- I'm a fan of mindfulness, and if colouring in is a way of reaching mindfulness, then I think it's great. But I'm amazed that anyone has the time to do that. I certainly don't.

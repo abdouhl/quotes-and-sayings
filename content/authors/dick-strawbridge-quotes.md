@@ -1,0 +1,40 @@
++++
+author = "Dick Strawbridge"
+title = "Dick Strawbridge Quotes"
+quotes_len = "34"
+description = "the best 34 Dick Strawbridge Quotes"
++++
+- With a little bit of common sense, anything is achievable.
+- Sadly, I have very vague memories of Burma. The family was forced to leave when the generals took over.
+- I have always thought of myself as being Northern Irish because that's what I am.
+- For a nation that spends a lot of time talking about the weather, we don't seem to realise just how much sunshine we actually get. Maybe that's because we tend to concentrate on the negative aspects.
+- We forget the importance of engineering, but it's been used to design everything from St. Paul's Cathedral to The Shard.
+- I left the Army in 2000 and went into industry before I started appearing on TV in 2003. My best job there was on a series called 'Crafty Tricks Of War' for the BBC. I loved that because it celebrated how clever and inventive people are and the ingenuity that goes into solving problems.
+- For over 20 years, I was in the Army, and it's given me a real love of history.
+- For me, London seemed to be frantic without going anywhere.
+- My old man used to say that I would argue the hind leg of a donkey. If I didn't agree with something, I wasn't prepared to accept it.
+- I love a challenge and a bit of fun.
+- I love the whole idea of family and what gets left behind when you are gone. I'm very proud of my children; I was one of seven.
+- I was captain of the rugby side at Shrivenham - as were my two brothers after me.
+- I had an idyllic childhood with the freedom to go and play.
+- Nature is so phenomenal.
+- I was quite capable at school, but I spent a lot of time in detention.
+- I just think our British cuisine and the different influences we pull together make it special when it comes to food.
+- All insulation is environmentally friendly. Some installation has better environmental credentials, but what matters is the energy it saves.
+- I'm a very simple person.
+- My body was built through years of good food - and beer.
+- Although I am the oldest with the biggest moustache, my brothers are progressively taller; I put it down to the extra potatoes they were able to eat after I left home.
+- I've spent 20 years in the Army, and I'm just so fiercely proud of being British.
+- Cooking is about ingredients.
+- As one of seven children, our family life was full of energy and fun - we all knew how to laugh and work hard.
+- There was always laughter in our house. And I have great memories of my dad making an Ulster fry on a Saturday morning. They were legendary even though he couldn't really cook.
+- Life is all about energy and passion and living it.
+- When you work with people, you buy into it, you work together and you pull together. It doesn't matter what your challenge is: there's a sense of achievement at the end of it.
+- All insulation takes energy to make it, but that is not a reason not to invest in it. The savings, for both the planet and the bank account, can be impressive.
+- I could never work out how to shave my top lip without cutting myself.
+- My daughter, Charlotte Strawbridge, has recorded an album, and my favourite song from that is 'Empires Made Of Sand.'
+- When I joined the Army in the late '70s, there was a real threat from Eastern Europe and the Soviet Union, so all of the '80s, I was engaged in what could be classed as conventional operations - that involved digging lots of trenches in Germany.
+- I was still a serving officer when I competed in 'Scrapheap Challenge,' initially as a major and then a lieutenant-colonel when I was joined by my brothers in a team called 'Brothers in Arms.'
+- Who doesn't like playing with a railway? I think we've all got Thomas the Tank Engine in our blood.
+- When I started presenting 'Scrapheap Challenge,' I was rubbish at tuning V8 engines.
+- I passed the 11-plus and went up to the senior school, where my two older sisters had already gone. I was in the 'A' stream, but in the third year, they asked me to give up Latin; no one had ever got 7 per cent before.

@@ -1,0 +1,44 @@
++++
+author = "Swara Bhaskar"
+title = "Swara Bhaskar Quotes"
+quotes_len = "38"
+description = "the best 38 Swara Bhaskar Quotes"
++++
+- Mumbai is a spider web. You do a film and make 10 connections and do something else and make 10 more connections. You keep moving like that.
+- Frankly, Indian women inherit this collective cultural unconscious - this sense of guilt, shame, and dishonour. I think Indian girls need to become shameless and a little selfish, too.
+- All my life I have faced this awkwardness, as I almost sound like a guy. In fact, whenever I would call my friends, their dads would say, 'Hold on son.'
+- I'm an actor, and I don't judge my parts.
+- Remember that you have to be happy to make other people happy. Don't get weighed down by duty, guilt, and responsibility all the time.
+- I am an extremely laidback person when it comes to 'looking hot.'
+- Being unapologetic about my body, my sexuality, my life's decisions is a political belief that, as a feminist, I strongly espouse.
+- When I came to Mumbai, I didn't know a soul. The only person I knew was an assistant director, which, everyone agrees, is the lowest form of life on the set. So, it was not a great contact to have. So, I knew from day one that I wasn't going to be launched opposite a superstar.
+- I have had to answer questions like, 'But you don't look like lead material.' Now, I still don't know what 'lead material' looks like because everyone has eyes, a nose, and a face.
+- Honestly, and seriously, I know I have to do a Telugu film. It was my grandmother's dream to see me in a Telugu film before she died. I couldn't fulfil her dream before she passed away, but I don't want to let go of it, either.
+- As a student, I was a total jhalli who used to wear torn denims, faded kurtis, kohled eyes and thought that I was the coolest girl ever! We were a bunch of students who used to do social-issue-based street plays and believed that we could bring about a change in the world.
+- You have to look beyond your known limited experience. Politics should be based on compassion.
+- My parents are very democratic and liberal people who made the mistake of being democratic and liberal in the upbringing of their children! And in my case, they are still paying for it! Paying in the literal sense as well.
+- Lately, I have realised that as an actor, I am representing certain aspirations to the world, and it's important that I respect the love people have for me.
+- I was an avid reader as a child. I am losing that habit now, as my brain congeals into cabbage from wearing too many heels and too much foundation.
+- Bollywood, as an industry, is based on relationships. It has always been star-driven, and it has an element of feudalism.
+- I am a self-destructive idiot.
+- I love acting, though I don't like the frills around it - red-carpet appearances, dressing up to look a certain way.
+- When I grew up, I realised what an amazing thing my parents did. It was such a big deal for my mom, a middle class woman, to decide to leave her children and husband to go and do her Ph.D. for three years. And my dad, who is even more middle class, a traditional South Indian, to let his wife do that.
+- There have been instances when people have told me that I look too intelligent to be an actress.
+- I feel glamour has a legit place on the ramp and in the fashion world. In films, glamour has to service the story.
+- I'm a typical Delhi girl. Professional parents, nuclear family. My father was in the navy. I've spent my whole life in government accommodation, and it's been lovely.
+- In India, thousands of people want to be in the movies because Bollywood plays such a huge role in our lives.
+- In the industry, I am judged by what I wear. If I want to be taken seriously, I have to hire a team of stylists. It's an occupational hazard. But it's not as though I am any less of a feminist.
+- In India, we are parented in a way that we get very good values. But the whole culture forgets to tell us to also value ourselves. It's really OK sometimes to take into consideration your own happiness.
+- Once, I had a huge fight on a film set with an actor who threw tea on a spot boy's face. I refused to shoot until he apologised.
+- Bottom line is, off-beat film or commercial films, Tollywood or Bollywood, it's the role that matters to me.
+- Let me be honest - I might do a franchise film like 'Golmaal' if it comes my way. Eventually, we are all in Mumbai to become bigger stars, not better actors.
+- I was once caught climbing out of the classroom window while bunking a class. I lied that I had to go to the bathroom and the exit was crowded. The principal believed me.
+- Somewhere, the audience relates to my characters and their vulnerability. I believe they see themselves in me.
+- Politics should come from human stories.
+- I've been propositioned by men who were in a position to cast me. I lost a few roles because I didn't give in.
+- I am a greedy, selfish actor, and for me, my role is important.
+- I was an avid 'Chitrahaar' and 'Superhit Muqqabala' watcher. We did not have cable TV for a long time, so that was my only source of entertainment growing up. My great fantasy was to be in 'Chitrahaar!'
+- I never saw myself as a character actor or a lead actor; I've only seen myself as just an actor.
+- I have become a little more cynical and, I would like to believe, a little wiser. When I first came to Mumbai, I was very idealistic. Now I can look anyone in the face and tell a lie. But I'm in a good place.
+- I feel that where I came from made me the actor that I am, and I wouldn't want to trade that with anything else.
+- The contentious issue of pay parity between male and female actors is easily resolvable if a number of big actresses decide to put their foot down. But we have to also consider the factors of time and labour. If a female actor has shot only for 40 days and the male actor for 200 days, she cannot expect to be paid the same amount.

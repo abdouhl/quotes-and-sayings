@@ -1,0 +1,23 @@
++++
+author = "Wyck Godfrey"
+title = "Wyck Godfrey Quotes"
+quotes_len = "17"
+description = "the best 17 Wyck Godfrey Quotes"
++++
+- Sometimes people get in position where they get in a big movie and overplay their hand. What that huge check does is put a target on an actor's back.
+- There are very few movies that become real phenomenons the way 'Twilight' or 'The Hunger Games' did.
+- I find, a lot of the time, kids can get stuck on, 'Oh no, he doesn't have blue eyes,' with books. You're kind of like, 'Well, that you're going to get over by the time the movie comes out.'
+- You'll go see a movie like 'Matrix 2,' and the car chase goes on and on and on and on. They had all the money in the world and all the time in the world. It doesn't make it an any better action sequence.
+- As a kid, I was always the jokester. I was telling stories at dinner and trying to make people laugh.
+- I've done a lot of genre movies.
+- 'Fault' became the book everybody and their mother had to read, and 'Paper Towns' is one that's beloved, but it's a bit of a smaller book.
+- A lot of times, you finish a movie, and you're either going, 'Oh, thank God, that's over,' or 'Oh, my God, it's over, and I don't want it to end.'
+- Because of the 'Twilight' series, our company gets every speculative piece of fiction from people hoping for the next 'Twilight,' and so you read them, and they all kind of wash over you after awhile.
+- It's important to push the agenda of hiring women directors.
+- I guess I've always just been naturally inclined to tell stories.
+- 'New Moon' was such a serious, depressing movie that people felt we had lost a little humor of the books.
+- Young people like things that are fresh and new. If something does seem fatigued, or derivative, they're going to let you know.
+- The final battle of 'Eclipse' kind of blows the socks off everything we've seen earlier in the series, because you finally have wolves interacting with humans and vampires in a way that's really sophisticated visual effects that we're doing in it.
+- When you cut a film, certain scenes fall away and don't fit into the shape of the movie.
+- I think, a lot of times in Hollywood, the right idea comes along at the right time, and it becomes in retrospect, 'Wow, why didn't I think of that?'
+- You spend your childhood wanting to get out from your house and wanting to get away and out into the real world, and then as adults, we start to learn that things are not what we thought they were.

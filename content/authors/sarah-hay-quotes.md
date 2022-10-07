@@ -1,0 +1,38 @@
++++
+author = "Sarah Hay"
+title = "Sarah Hay Quotes"
+quotes_len = "32"
+description = "the best 32 Sarah Hay Quotes"
++++
+- The amount of effort and energy that goes into being an actor is something that I can't compare to anything else.
+- My dad influenced my musical taste. I grew up listening to Bob Dylan and The Rolling Stones and a bunch of rock music from the '60s. Now, instead of watching TV, I'll play a record from start to finish.
+- I want to act in a Tarantino movie and be a vixen in one of his films. Maybe I'll secretly drop an episode of 'Flesh and Bone' in his mailbox and see what he thinks.
+- I prefer to be covered. I don't wear a lot of low-cut things. I'd rather keep the attention to my brain, my face.
+- I've been with Semperoper Ballet in Dresden, Germany, for five years - I wanted to escape the competitive dance world and go somewhere where I felt appreciated for my talents. Stateside, it was always kind of a struggle. And the competition? Not into it.
+- I'm more a 1950s hourglass shape.
+- I like vintage clothes, a lot of '80s band shirts. I wear a lot of my boyfriend's clothes, too.
+- I'm a very sensitive person by nature. Things move me very easily, like music or videos on Facebook, and I feel for people.
+- I was kind of a loser at ballet school. It's all rich kids, and I was not a wealthy kid. I didn't have the Chanel butterfly clip everyone else did.
+- I went to school in New York and grew up in and out of New York. I love it, and I miss it, and every time I go back, I think, 'Why am I in Germany?' I do know that my career is really important to me, and in Germany, they've always been so much more supportive than my previous engagements in the dance world.
+- I would have to change my entire life if I went into acting. I dance eight hours a day, and then suddenly to be sitting on a set for 12 hours a day is a big difference for my health.
+- I love to play a character. If I'm playing Cinderella or Aurora in 'Sleeping Beauty' or something like that, then I enjoy classical a lot. But to do just a two-minute solo, purely to show classical aesthetic, is not my favorite thing to do.
+- Over-the-top dance reality shows are hard for me to watch. The real drama in our world is much more emotional, personal, and extreme. There is manipulation and sneakiness.
+- I love playing a role, anything that's dramatic. I'm enjoying living that kind of life: being someone else, getting to die, being a temptress. I enjoy being someone else on stage.
+- I'm into the scruff. I like an unkempt man. I mean, not like beard to the chest, but I'm definitely a Johnny Depp kinda girl.
+- I'm not really a girly girl, so for the most part, I'm really into wearing baggy clothes. A little on the grungy side of things for the dance world. I'm not really into the tutus or the flower hair clips, either. As dancers, we're pretty much next to naked with each other all day, so you kind of get used to being not so clothed.
+- I've been in companies where they have galas. U.S. companies aren't government-funded, so they invite wealthier people to come to these events. It's a very glamorous art form. They send you off to talk to bankers, and they make you feel objectified in a way.
+- In the dance world, you have to have a certain muscular shape; you have to have long limbs and willowy shoulders. It's hard to have breasts.
+- I like my body. I don't want to have to change it for anything - even if that means I have to take a step down as a dancer. I don't think I'm ever going to sacrifice my figure for anyone else to accept me.
+- There's only a certain amount of space in every ballet company. You're basically on a team. You want to succeed as a group but all want to have the same roles.
+- I'm definitely happier dancing in Germany; in the U.S., there's a different level of competition. I find in general that I try to get my voice heard about protecting women. It comes from everything I've been through personally - I'm opinionated, and that doesn't make it that easy.
+- I was bullied a lot as a kid.
+- I'm not the most confident dancer, to be honest. Dancing on film was very difficult for me because you can see it after it's been done.
+- I have a lot of relatives that were dancers and musicians and artists. They basically came out of the womb doing it.
+- I think that 'Flesh and Bone' represents the dance world very authentically. There's always this aspect of drama put on top of it, and it's showcasing the problems of the dance world, but I've had experiences in reality that were written into the show.
+- There's always very high tension with dance auditions! You're in a group, watching the people in the front of the room, hoping you'll get something, anything that will relieve a bit of the stress.
+- I would like to do some serious drama. I really connect with emotional characters who have struggles and a lot of emotion and colors. I don't really want to do anything smiley and cheesy; it's not really my personality when I'm working.
+- Women should be happy with their bodies. Not being afraid of yourself is very empowering.
+- I tend to be... they say 'workaholic,' which I just find to be 'motivated.'
+- I had some struggles to find my footing. I couldn't really find a place to appreciate me - I'm a little bit curvy for the dance world.
+- I've danced since I was 5 and went to the School of American Ballet at Lincoln Center at 7.
+- Instead of watching cartoons when I was little, I had Russian ballet videos from, like, the 1950s and 1940s.

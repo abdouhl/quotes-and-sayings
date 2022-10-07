@@ -1,0 +1,89 @@
++++
+author = "David Attenborough"
+title = "David Attenborough Quotes"
+quotes_len = "83"
+description = "the best 83 David Attenborough Quotes"
++++
+- The fundamental issue is the moral issue.
+- Many individuals are doing what they can. But real success can only come if there is a change in our societies and in our economics and in our politics.
+- We are a plague on the Earth.
+- The more you go on, the less you need people standing between you and the animal and the camera waving their arms about.
+- I had a huge advantage when I started 50 years ago - my job was secure. I didn't have to promote myself. These days there's far more pressure to make a mark, so the temptation is to make adventure television or personality shows. I hope the more didactic approach won't be lost.
+- It is vital that there is a narrator figure whom people believe. That's why I never do commercials. If I started saying that margarine was the same as motherhood, people would think I was a liar.
+- I suffer much less than many of my colleagues. I am perfectly able to go to Australia and film within three hours of arrival.
+- Natural history is not about producing fables.
+- London has fine museums, the British Library is one of the greatest library institutions in the world... It's got everything you want, really.
+- I'm swanning round the world looking at the most fabulously interesting things. Such good fortune.
+- Very few species have survived unchanged. There's one called lingula, which is a little shellfish, a little brachiopod about the size of my fingernail, that has survived for 500 million years, but it's survived by being unobtrusive and doing nothing, and you can't accuse human beings of that.
+- I think a major element of jetlag is psychological. Nobody ever tells me what time it is at home.
+- I like animals. I like natural history. The travel bit is not the important bit. The travel bit is what you have to do in order to go and look at animals.
+- I think we're lucky to be living when we are, because things are going to get worse.
+- We really need to kick the carbon habit and stop making our energy from burning things. Climate change is also really important. You can wreck one rainforest then move, drain one area of resources and move onto another, but climate change is global.
+- I'd like to see the giant squid. Nobody has ever seen one. I could tell you people who have spent thousands and thousands of pounds trying to see giant squid. I mean, we know they exist because we have seen dead ones. But I have never seen a living one. Nor has anybody else.
+- The question is, are we happy to suppose that our grandchildren may never be able to see an elephant except in a picture book?
+- You can cry about death and very properly so, your own as well as anybody else's. But it's inevitable, so you'd better grapple with it and cope and be aware that not only is it inevitable, but it has always been inevitable, if you see what I mean.
+- If my grandchildren were to look at me and say, 'You were aware species were disappearing and you did nothing, you said nothing', that I think is culpable. I don't know how much more they expect me to be doing, I'd better ask them.
+- What I am interested in with birds, just as I am with spiders or monkeys, is what they do and why they do it.
+- I mean, it is an extraordinary thing that a large proportion of your country and my country, of the citizens, never see a wild creature from dawn 'til dusk, unless it's a pigeon, which isn't really wild, which might come and settle near them.
+- The only way to save a rhinoceros is to save the environment in which it lives, because there's a mutual dependency between it and millions of other species of both animals and plants.
+- Apart from anything else, I am designed by evolution, like we all are: if we see a little thing like that, big eyes, tiny nose, we go 'aaah'. That's what evolution does. We are programmed to do that. So to find babies the most amazing, isn't surprising, I don't think.
+- I've been to Nepal, but I'd like to go to Tibet. It must be a wonderful place to go. I don't think there's anything there, but it would be a nice place to visit.
+- I'm not an animal lover if that means you think things are nice if you can pat them, but I am intoxicated by animals.
+- You know, it is a terrible thing to appear on television, because people think that you actually know what you're talking about.
+- We keep putting on programmes about famine in Ethiopia; that's what's happening. Too many people there. They can't support themselves - and it's not an inhuman thing to say. It's the case. Until humanity manages to sort itself out and get a coordinated view about the planet it's going to get worse and worse.
+- If I can make programmes when I'm 95, that would be fine. But I would think I'll have had enough by then.
+- All we can hope for is that the thing is going to slowly and imperceptibly shift. All I can say is that 50 years ago there were no such thing as environmental policies.
+- If I can bicycle, I bicycle.
+- You have to steer a course between not appalling people, but at the same time not misleading them.
+- The most extraordinary thing about trying to piece together the missing links in the evolutionary story is that when you do find a missing link and put it in the story, you suddenly need all these other missing links to connect to the new discovery. The gaps and questions actually increase - it's extraordinary.
+- Getting to places like Bangkok or Singapore was a hell of a sweat. But when you got there it was the back of beyond. It was just a series of small tin sheds.
+- It was regarded as a responsibility of the BBC to provide programs which have a broad spectrum of interest, and if there was a hole in that spectrum, then the BBC would fill it.
+- The climate suits me, and London has the greatest serious music that you can hear any day of the week in the world - you think it's going to be Vienna or Paris or somewhere, but if you go to Vienna or Paris and say, 'Let's hear some good music', there isn't any.
+- Dealing with global warming doesn't mean we have all got to suddenly stop breathing. Dealing with global warming means that we have to stop waste, and if you travel for no reason whatsoever, that is a waste.
+- The process of making natural history films is to try to prevent the animal knowing you are there, so you get glimpses of a non-human world, and that is a transporting thing.
+- The climate, the economic situation, rising birth rates; none of these things give me a lot of hope or reason to be optimistic.
+- I would be absolutely astounded if population growth and industrialisation and all the stuff we are pumping into the atmosphere hadn't changed the climatic balance. Of course it has. There is no valid argument for denial.
+- All our environmental problems become easier to solve with fewer people and harder - and ultimately impossible to solve - with ever more people.
+- Everyone likes birds. What wild creature is more accessible to our eyes and ears, as close to us and everyone in the world, as universal as a bird?
+- Being in touch with the natural world is crucial.
+- I believe the Abominable Snowman may be real. I think there may be something in that.
+- An understanding of the natural world and what's in it is a source of not only a great curiosity but great fulfillment.
+- In the old days... it was a basic, cardinal fact that producers didn't have opinions. When I was producing natural history programmes, I didn't use them as vehicles for my own opinion. They were factual programmes.
+- I don't think we are going to become extinct. We're very clever and extremely resourceful - and we will find ways of preserving ourselves, of that I'm sure. But whether our lives will be as rich as they are now is another question.
+- It seems to me that the natural world is the greatest source of excitement; the greatest source of visual beauty; the greatest source of intellectual interest. It is the greatest source of so much in life that makes life worth living.
+- It's extraordinary how self-obsessed human beings are. The things that people always go on about is, 'tell us about us', 'tell us about the first human being'. We are so self-obsessed with our own history. There is so much more out there than what connects to us.
+- Crying wolf is a real danger.
+- I don't run a car, have never run a car. I could say that this is because I have this extremely tender environmentalist conscience, but the fact is I hate driving.
+- There is no question that climate change is happening; the only arguable point is what part humans are playing in it.
+- Cameramen are among the most extraordinarily able and competent people I know. They have to have an insight into natural history that gives them a sixth sense of what the creature is going to do, so they can be ready to follow.
+- I can mention many moments that were unforgettable and revelatory. But the most single revelatory three minutes was the first time I put on scuba gear and dived on a coral reef. It's just the unbelievable fact that you can move in three dimensions.
+- People are not going to care about animal conservation unless they think that animals are worthwhile.
+- It is that range of biodiversity that we must care for - the whole thing - rather than just one or two stars.
+- People talk about doom-laden scenarios happening in the future: they are happening in Africa now. You can see it perfectly clearly. Periodic famines are due to too many people living on land that can't sustain them.
+- I've been bitten by a python. Not a very big one. I was being silly, saying: 'Oh, it's not poisonous...' Then, wallop! But you have fear around animals.
+- I just wish the world was twice as big and half of it was still unexplored.
+- I often get letters, quite frequently, from people who say how they like the programmes a lot, but I never give credit to the almighty power that created nature.
+- It's a moral question about whether we have the right to exterminate species.
+- To suggest that God specifically created a worm to torture small African children is blasphemy as far as I can see. The Archbishop of Canterbury doesn't believe that.
+- I am an ardent recycler. I would like to think that it works. I don't know whether it does or not.
+- If you watch animals objectively for any length of time, you're driven to the conclusion that their main aim in life is to pass on their genes to the next generation.
+- We are not overpopulated in an absolute sense; we've got the technology for 10 billion, probably 15 billion people, to live on this planet and live good lives. What we haven't done is developed our technology.
+- You can only get really unpopular decisions through if the electorate is convinced of the value of the environment. That's what natural history programmes should be for.
+- Birds are the most popular group in the animal kingdom. We feed them and tame them and think we know them. And yet they inhabit a world which is really rather mysterious.
+- I'm against this huge globalisation on the basis of economic advantage.
+- The whole of science, and one is tempted to think the whole of the life of any thinking man, is trying to come to terms with the relationship between yourself and the natural world. Why are you here, and how do you fit in, and what's it all about.
+- I don't approve of sunbathing, and it's bad for you.
+- There are some four million different kinds of animals and plants in the world. Four million different solutions to the problems of staying alive.
+- Nature isn't positive in that way. It doesn't aim itself at you. It's not being unkind to you.
+- It's coming home to roost over the next 50 years or so. It's not just climate change; it's sheer space, places to grow food for this enormous horde. Either we limit our population growth or the natural world will do it for us, and the natural world is doing it for us right now.
+- As far as I'm concerned, if there is a supreme being then He chose organic evolution as a way of bringing into existence the natural world... which doesn't seem to me to be necessarily blasphemous at all.
+- Television of course actually started in Britain in 1936, and it was a monopoly, and there was only one broadcaster and it operated on a license which is not the same as a government grant.
+- Before the BBC, I joined the Navy in order to travel.
+- I'm luckier than my grandfather, who didn't move more than five miles from the village in which he was born.
+- People must feel that the natural world is important and valuable and beautiful and wonderful and an amazement and a pleasure.
+- I don't like rats, but there's not much else I don't like. The problem with rats is they have no fear of human beings, they're loaded with foul diseases, they would run the place given half the chance, and I've had them leap out of a lavatory while I've been sitting on it.
+- I'm not a propagandist, I'm not a polemicist; my primary interest is just looking at and trying to understand how animals work.
+- I'm absolutely strict about it. When I land, I put my watch right, and I don't care what I feel like, I will go to bed at half past eleven. If that means going to bed early or late, that's what I live by. As soon as you get there, live by that time.
+- Well, I'm having a good time. Which makes me feel guilty too. How very English.
+- I'm not in politics.
+- Steve Irwin did wonderful conservation work but I was uncomfortable about some of his stunts. Even if animals aren't aware that you are not treating them with respect, the viewers are.

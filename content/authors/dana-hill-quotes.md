@@ -1,0 +1,18 @@
++++
+author = "Dana Hill"
+title = "Dana Hill Quotes"
+quotes_len = "12"
+description = "the best 12 Dana Hill Quotes"
++++
+- People are never quiet. It's go, go, go. I'm a go-getter, but you need rest and silence, just to sit around and think about things.
+- My mother keeps things in perspective for me. She makes me realize that the acting I do and love is no more important than what one of my brothers does-he works in a shoe repair shop. If my career ever tapers off, I'll go to college.
+- I'm a lot luckier than most people, although I used to look at it the other way around-that so many people seemed luckier than me.
+- I had to start being aware of what I ate, what I'm planning to eat and take my twice-daily medication accordingly. That's not so difficult now, but when you're 10 years old, it's tough, let me tell you.
+- If one thing that bothers me about acting, it's that there's no clear-cut number one. The closest you can get is winning an Academy Award, and I'm going to work on that if it takes me the next 50 years. To my peers, it will mean that I'm the best!
+- I'm a normal teen-ager except for my size.
+- I love TV. I know all the theme songs from the shows I watch. I'm not one of those who'd rather be a movie star. I prefer TV because of the rushed way of working-on a movie set, you sit around and wait and wait to do a scene because they're adjusting the lights.
+- I know all the critics.
+- Now that I'm more mature, in a funny way, I can even appreciate that I've bad to become more aware of my body. Since I've chosen acting as my career, I have to keep my weight down anyway-I've been used to it for years, so it's no problem. And there's nothing I can't do.
+- I'd be nervous about skiing, wondering what I'd do if I felt shaky on top of a mountain; but other diabetics do ski, so there's no reason I couldn't.
+- I used the diabetes as my weapon. Of course, I was only hurting myself and making myself sicker, but I guess it was something I had to go through. I never went overboard so much that I really hurt myself, but my early teenage years were very tough.
+- I like school very much, and I'll go to college if my career slows down. But kids go to college to be where I am today. Not to put college down, but for me, it would be digressing.

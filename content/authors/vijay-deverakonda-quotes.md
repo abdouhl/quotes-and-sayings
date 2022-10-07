@@ -1,0 +1,57 @@
++++
+author = "Vijay Deverakonda"
+title = "Vijay Deverakonda Quotes"
+quotes_len = "51"
+description = "the best 51 Vijay Deverakonda Quotes"
++++
+- I would say that it's wrong to milk someone's misery.
+- I have always fought for respect, I have always fought for survival, so fighting is nothing new to me.
+- The approach I take in selecting a script is based on what I fancy from the the scripts I'm offered.
+- There are a lot of grey areas in my personality. We all have them.
+- Once you become an actor, you have to say goodbye to your personal life.
+- Arjun Reddy's fits of rage, his ill-tempered responses towards the girl he loves... I think we all have these dark areas in our personality.
+- They say, all you need is love. But what is better? Finding love, even if you don't have enough money? Or is money important, even if you don't have time to find love?
+- I come from a place where getting a call to do a film is a big thing. I would work double hard to better a partly-convincing film than be without work.
+- I spent half my life in a boarding school where we were shown only the sporadic wholesome classic like 'The Sound Of Music.' So, I am not familiar with most of the works of the acting greats in Bollywood, Hollywood, or Tamil-Telugu cinema.
+- I am happy with my role in 'Taxiwala.' It gave me a chance to do a character that was fun. I didn't have to agonize over every scene.
+- I feel very awkward about receiving attention for the wrong reasons.
+- In 'Taxiwaala,' I am not Arjun Reddy. In fact, the two characters are so different that if they were to meet, they'd hate each other.
+- We made 'Arjun Reddy' with Rs 5-6 crores. And it seems it will make a lot more money than we had thought it would. So you see, miracles do happen! I believe in them.
+- I couldn't be working in a bank and launch a clothing line. It's only because cinema gave me a lot of access that I have been able to launch a clothing line.
+- I am averse to incompetency. I need mentally stimulating people and intelligent conversations.
+- I think there is no need for anything. There is only a choice of role that an actor has to make. He must live by it.
+- I ventured into cinema after theatre because I didn't want to confine myself to just one auditorium. I wanted the whole world to talk about me.
+- We all observe political leaders and scams. People are affected because of political apathy. We all get frustrated because of what we witness. 'NOTA' was a platform to vent my frustration.
+- I didn't even choose to be born! It was my parents' decision to have a child.
+- The intensity of 'Arjun Reddy' was too much for me.
+- I am constantly evolving. If I believe in a particular philosophy today, I may have a contradictory opinion tomorrow.
+- I enjoy watching the genre of family dramas. I love family films like 'Nuvvu Naku Nacchav,' 'Malleeswari,' and 'Bommarillu.'
+- Those trying to drag me down through piracy, I want to tell them that I will somehow achieve what I want. I am focused enough to achieve what I want and give the audience what I can.
+- To the Tamil media, I have mostly interacted in English since I am not fluent in Tamil.
+- I am comfortable with doing mistakes. It's a normal thing. If a mistake happens because of my own decision, I am OK with it.
+- I have a particular taste, I do films according to it and promote it accordingly.
+- I am fascinated with singers. I find them cooler than actors.
+- It's nice to fool around with clothes, and that comes from some recklessness. I suddenly feel like wearing a lungi and a jacket, and now I have the access to do what I want. When I was doing theatre, my Muslim friends would invite me to an Iftar party, and I'd go wearing a dhoti while others would be in a kurta-pyjama.
+- I like Naga Chaitanya a lot. The first time I met him, I could see a chilled, relaxed vibe about him.
+- I was always motivated to make my parents proud and wait for that one opportunity. Finally, it happened with 'Yevade Subramanyam,' and since then, I have never looked back.
+- Cricket, politics, and cinema is what a majority in our country are most passionate about. They have the power to divide the best of friends depending on which side you are on.
+- I always wanted to see my parents without any stress and accordingly knocked every audition for an opportunity.
+- I guess you cannot prepare yourself enough for stardom, even though you strive for it all your life.
+- Everybody in the two Telugu states, especially the residents of Vijayawada, love both cinema and politics. And 'NOTA' is a cinema with a political subject.
+- I had a temper problem even before I did this film, but doing 'Arjun Reddy' has made me more impatient.
+- My father came to Hyderabad to become an actor, took an acting course, and realised he was camera conscious.
+- I'm not sure if career can be planned.
+- I have thought about this often - I don't know much of the life I was before I was born. I don't know of a future after I am gone. What I know is the life I have right now.
+- I love acting. I had a backup option in writing or direction. But I have gone on to become an actor.
+- A film will have many events such as audio release, promotional activities. I did not have that fancy-looking clothes to look good before the camera. So I used to ask my producers for the clothes I wore in the film. I still have my 'Yevadu Subramanyam' clothes in my wardrobe.
+- A learning experience is the best way to sum up my first film credit. It's hard to break into the film industry, and it was a minor role but still my only shot at the movies while I was doing theater.
+- There are very few actors who elevate a scene through their persona. Like for example, Rajinikanth does it with his style. He doesn't need anything else.
+- Post-'Pellichoopulu,' I received a lot of offers from Tamil industry. I decided I won't do a Tamil film unless I know the language. If I want to do it, I wanted to do it perfectly.
+- Why do human beings find it so hard to live and let live? Countries are messing with each other. Religions are messing with each other. Castes are messing with each other; people mess with each other.
+- I can't show, let alone share, my emotions. In fact, I've kept it all locked up within myself all my life. Yeah, it's a problem, especially when it comes to relationships with the people close to me.
+- An actor's life is abnormal! It feels like I'm being watched all the time, whether I'm at a restaurant, gym, or anywhere. I sometimes feel I don't want to be looked at.
+- When I started 'NOTA,' I didn't know a thing about Tamil politics.
+- No two people react to things the same way, and even the same person reacts differently at a different time.
+- Exploring the dark side of my characters' personality is my forte.
+- I like Chandrababu Naidu because he is the person who developed the city of Hyderabad and created the software boom. I also like K.T. Rama Rao for his work and the way he helps through Twitter and responds to many causes.
+- I like receiving attention for the things that I do, like a good film.

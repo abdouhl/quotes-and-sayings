@@ -1,0 +1,34 @@
++++
+author = "Danny Glover"
+title = "Danny Glover Quotes"
+quotes_len = "28"
+description = "the best 28 Danny Glover Quotes"
++++
+- It's also important for those who promote those issues within the white community - the somewhat privileged community - to talk about issues affecting people of color.
+- I'm not so vain as to believe that my involvement changes anything whatsoever.
+- If we look at Houston, which is a very environmentally toxic place, we find that it has one of the highest levels of young men going to prison and also among the highest levels of illiteracy in the country.
+- Since 1957, black people have experienced double-digit unemployment - in good times and bad times. Look at the population of African Americans in prison. They represent more than half the population of prisoners in the country, 55 percent of those on death row.
+- What happened to Haiti is a threat that could happen anywhere in the Caribbean to these island nations, you know, because of global warming, because of climate change and all this.
+- Every day of my life I walk with the idea that I am black, no matter how successful I am. And our success is tempered by that; you're successful in this way given the fact you are black, and most blacks don't get to that point.
+- I've been a Goodwill Ambassador for the UNICEF and the UNICEF family for more than twelve years.
+- One of the main purveyors of violence in this world has been this country.
+- Some of these things I saw in foreign films - African films, Cuban films - long before I decided to really go on this course as an actor. I started to think about what values I saw in those films that I wanted to bring to my projects.
+- The progressive movement against the war of occupation in Iraq is a reason for hope, as is resistance to free trade agreements in Latin America. Those are moments that we have to celebrate: that people still find the resolve and energy to resist.
+- Freedom Summer, the massive voter education project in Mississippi, was 1964. I graduated from high school in 1965. So becoming active was almost a rite of passage.
+- I've always been able to make choices that don't embarrass me.
+- If we talk about the environment, for example, we have to talk about environmental racism - about the fact that kids in South Central Los Angeles have a third of the lung capacity of kids in Santa Monica.
+- But I think it's very key that there's a plan for Haiti. And we have to begin to - as progressives and people who are concerned about Haiti and have been concerned about Haiti, we have to begin to build some sort of consensus, a movement around the Haiti that the Haitians envision.
+- I try to find hope in struggle and resistance in small places as much as I can.
+- This country has always been run by elite, and it's an elitist democracy. And that's not a radical concept. It's elitist democracy. When people talk about democracy, they don't talk - really talk about participatory democracy, until the point that we get us at Election Day.
+- You know, we do not want the militarization of Haiti. We do not see a Haitian as a protectorate where it relinquishes its own sovereignty.
+- I never thought about being an actor.
+- When you've moved past a point where you're just scrambling for jobs, you think about the things that you want to do. And the things that you want to do are governed by what you've seen, what you choose to embrace.
+- I'm a child of the Civil Rights Movement.
+- If we talk about literacy, we have to talk about how to enhance our children's mastery over the tools needed to live intelligent, creative, and involved lives.
+- But rarely have I made choices that made me feel I was really compromising what I believe.
+- I was able to do The Saint of Fort Washington, on the relationship between two homeless men.
+- I was able to do To Sleep with Anger, a very powerful film about African Americans, their spirituality, and the things that happened within a small community and a family.
+- We have to be that wedge that drives the question and asks the hard questions.
+- In 1967, the students at San Francisco State invited the poet Amiri Baraka to the campus for a semester. He attracted other influential black writers such as Sonia Sanchez, Ed Bullins, Eldridge Cleaver. What emerged was something we called the community communications program. That's how I got involved; I got involved in a little play.
+- New Orleans is a city whose basic industry is the service industry. That's why it makes its money. That's - it brings people to the city. People come to the city and experience the wonders of this extraordinary city and everything else. The question is that, how do we create jobs which are the jobs that have pay, that - living wages?
+- Well I don't know because I don't have a real relationship with the industry.

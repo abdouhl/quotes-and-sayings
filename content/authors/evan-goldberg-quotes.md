@@ -1,0 +1,25 @@
++++
+author = "Evan Goldberg"
+title = "Evan Goldberg Quotes"
+quotes_len = "19"
+description = "the best 19 Evan Goldberg Quotes"
++++
+- In the pie chart of my brain growing up, there's a huge slice for 'Ghostbusters.'
+- I went to a Christian all-boys' college one time to pick up my buddies so we could go play baseball, and I just remember walking through the halls, and there's all these crucified Jesuses. It's scary.
+- 'Lincoln' was OK; I thought it was a rock-solid eight out of 10, but it shouldn't win all the awards.
+- All my cousins are almost old enough to start seeing my movies. I'm going to have some 'splainin' to do.
+- I don't read good reviews. I like to know what percentages are going on. When Sony sends out something saying that people are liking the movie, I like to know that, but I don't actually sit and read the good stuff.
+- I actually barely ever go on the Internet.
+- I don't fully understand my wife's emotions - and I'm supposed to write an excellent female character and unravel the secret of women?
+- I can't wait for them to convert old movies to 3D. I am 100% confident I want them to convert 'Terminator 2' to 3D more than I want anything in the world.
+- I just want to keep going for broke, making bigger and bigger things like 'Lord of the Rings' until they kick me out of Hollywood. I just want to do the biggest thing I can.
+- The thrill of doing visual effects doesn't exist.
+- Growing up in Vancouver, it's not like growing up, you know, in Middle America or the middle of Canada or something. It's a very movie town.
+- I'm not an Internet person that reads behind-the-scenes stuff. I see a trailer, and if it looks good, then I go. That's that.
+- Everyone knows that in Hollywood, when you're hot, you've got to run with it. Because eventually they kick you out.
+- I was the - my trendsetting moment was my bar mitzvah had the first, like, temporary tattoo guy.
+- The theater remains relevant because of 3D. It makes it an event. You go there, 400 people put on their glasses, and it's just fun.
+- 'The Hangover' was, like, solid. I laughed a bit, you know. Seven out of 10, maybe. But I made it 32 minutes into 'Hangover 2' before I walked out.
+- In America it's all, 'I'm gonna make something of myself, leave my tiny town and go to L.A!' Canadians are like, 'I'm gonna make something of myself, go to L.A., and then come right back again to hang out with my buddies!'
+- The hardcore fanbase of nerds that live on the Internet are not nearly as powerful as I thought they were. They really, really aren't. They also flip-flop like mad.
+- As a director, you can't stop a guy if he thinks something's hysterical, because if you do, then he'll get depressed because he thinks he didn't come up with a good joke. So if a guy's going on some run and it's killing him, and he thinks it's hilarious, you gotta do enough so that he thinks you can use it in the movie.

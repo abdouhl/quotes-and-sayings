@@ -1,0 +1,110 @@
++++
+author = "Deborah Tannen"
+title = "Deborah Tannen Quotes"
+quotes_len = "104"
+description = "the best 104 Deborah Tannen Quotes"
++++
+- In my own writing, I avoid 'female' and try to say 'woman' because I feel that the word 'female' has connotations of not just biology but also non-human mammals. The idea of 'female' to me is more appropriate for a female animal.
+- Many mothers and daughters are as close as any two people can be, but closeness always carries with it the need - indeed, the desire - to consider how your actions will affect the other person, and this can make you feel that you are no longer in control of your own life.
+- When women told me they'd always wished they had a sister, they were thinking of this ideal of mutual encouragement and support. Many of those who have sisters also yearn for this ideal because their relationships with their sisters don't always live up to it.
+- I've long believed that if you understand how conversational styles work, you can make adjustments in conversations to get what you want in your relationships.
+- I would say 'woman' used to be a noun, and now it is a noun and also an adjective. And words change their functions in that way. It's one of the most common phenomena about words. They start as one thing, and they end up as something else.
+- I interviewed more than 100 women about their sisters, but if they also had brothers, I asked them to compare. Most said they talked to their sisters more often, at greater length and, yes, about more personal topics. This often meant that they felt closer to their sisters, but not always.
+- A sister is like yourself in a different movie, a movie that stars you in a different life.
+- I think of myself as a writer as much as I think of myself as a linguist and an academic. I really enjoy writing - playing with language and getting just the right metaphor.
+- I wouldn't say that it's hard for sisters to treat each other with respect. Many do.
+- We all know we are unique individuals, but we tend to see others as representatives of groups.
+- The meanings of words and the uses of words come from practice from the way people in a given culture use those words.
+- Back when the powerful 19th-century senator Henry Clay was called 'the great compromiser,' achieving a compromise really was considered great.
+- In the past, great communicators were great orators, but great communicators today sound conversational, and interrupting is common in conversation. And public discourse is now more about entertainment than enlightenment.
+- Most non-New Yorkers, finding themselves within hearing range of strangers' conversation, think it's nice to pretend they didn't hear. But many New Yorkers think it's nice to toss in a relevant comment.
+- The long history of conversations that family members share contributes not only to how listeners interpret words but also to how speakers choose them.
+- Mothers and daughters find in each other the source of great comfort but also of great pain. We talk to each other in better and worse ways than we talk to anyone else.
+- I grew up in Brooklyn, N.Y. For part of my life, I was living in Detroit, and I remember a friend of mine commenting she could always tell when I had been speaking to my mother because my New York accent had come back.
+- One of the nice things about the United States is that, wherever you go, people speak the same language. So native New Yorkers can move to San Francisco, Houston, or Milwaukee and still understand and be understood by everyone they meet. Right? Well, not exactly. Or, as a native New Yorker might put it, 'Wrong!'
+- The word 'sister' evokes an ideal of connection and support, like the friendships that made Rebecca Wells's 'Divine Secrets of the Ya-Ya Sisterhood' and Ann Brashares's 'The Sisterhood of the Traveling Pants' into best-selling novels and successful films.
+- We tend to assume that we have a baseline of speech that's going to be normal in all contexts, but the truth is, we all change our ways of speaking depending on who we're talking to. And so I think it's kind of a gesture of politeness to the people you're speaking to to try to say something in their own idiom.
+- If you understand gender differences in what I call 'conversational style', you may not be able to prevent disagreements from arising, but you stand a better chance of preventing them from spiraling out of control.
+- My interest in the linguistic differences between women and men grew from research I conducted early in my career on conversations between speakers of different ethnic and regional backgrounds.
+- One of the first studies in the field of gender and language, by Don H. Zimmerman and Candace West in 1975, found that in casual conversations between women and men, women were interrupted far more often.
+- There's the bond of a connection and the bond of bondage... When you are connected to somebody, everything each one does affects the other, and it's a kind of bondage. You're not as free as you would be if that person wasn't in your life.
+- Women as mothers grapple with corresponding contradictions. The adoration they feel for their grown daughters, mixed with the sense of responsibility for their well-being, can be overwhelming, matched only by the hurt they feel when their attempts to help or just stay connected are rebuffed or even excoriated as criticism or devilish interference.
+- In a world of status, independence is key, because a primary means of establishing status is to tell others what to do, and taking orders is a marker of low status. Though all humans need both intimacy and independence, women tend to focus on the first and men on the second. It is as if their lifeblood ran in different directions.
+- There are those who believe that the existence of gender differences at very early ages is evidence that these differences are biological or generic in origin.
+- Why don't men like to stop and ask directions? This question, which I first addressed in my 1990 book 'You Just Don't Understand: Women and Men in Conversation', garnered perhaps the most attention of any issue or insight in that book.
+- All of us aspire to be powerful, and we all want to connect with others.
+- While the requirements of a good leader and a good man are similar, the requirements of a good leader and a good woman are mutually exclusive. A good leader must be tough, but a good woman must not be. A good woman must be self-deprecating, but a good leader must not be.
+- For girls and women, talk is the glue that holds a relationship together - and the explosive that can blow it apart. That's why you can think you're having a perfectly amiable chat, then suddenly find yourself wounded by the shrapnel from an exploded conversation.
+- Sister relationships span a huge range, from best friends to worst enemies. From 'I adore her; I talk to her five times a day' to 'I decided to cut her out of my life.' For most women, it's in between.
+- I'm a linguist. I study how people talk to each other and how the ways we talk affect our relationships.
+- It's an interesting point about sisters not getting the same attention as parents and children, and even brothers. I suspect it's just because women didn't count that much and weren't the ones writing the accounts.
+- Sisters, to me, are fascinating because it is a unique connection of the coming together of connection and competition. The fact that you have these age differences is a built-in power struggle, and the fact that you're all trying to get attention and resources from the same parents creates competition.
+- People vary. You change your style, your hair, and the way you dress. Talking differently will be a part of that.
+- The death of compromise has become a threat to our nation as we confront crucial issues such as the debt ceiling and that most basic of legislative responsibilities: a federal budget. At stake is the very meaning of what had once seemed unshakable: 'the full faith and credit' of the U.S. government.
+- New Yorkers seem to think the best thing two people can do is talk.
+- There is probably no such thing as a level playing field in political campaigns.
+- When evidence emerged that Clinton was a devoted mother, Margaret Carlson writing in 'TIME' found her guilty of 'yuppie overdoting on her daughter.'
+- Everything we say has metamessages indicating how our words are to be interpreted: Is this a serious statement or a joke? Does it show annoyance or goodwill? Most of the time, metamessages are communicated and interpreted without notice because, as far as anyone can tell, the speaker and the hearer agree on their meaning.
+- Maybe we're kind of predisposed to think that anything a politician does is calculated and therefore suspect.
+- There is more excitement, more amazement when a first is born. No subsequent babies can have that impact.
+- You're not from Puerto Rico, so you should say Puerto Rico like all the other people from the place that you come from.
+- For each other, at each other: Sisters can be either or both. The same could be said of people in any close relationship. Yet there is something special about sisters - specially gratifying and specially fraught.
+- The Pavlovian view of women voters - 'plug the words in, and they will respond' - sends a chill down my spine because it sounds like an adaptation of something I have written about communication between the sexes: When a woman tells a man about a problem, she doesn't want him to fix it; she just wants him to listen and let her know he understands.
+- As a sociolinguist, I want to know how cultural differences affect the ways people talk and listen. My research method, inspired by the work of Robin Lakoff and John Gumperz of the University of California at Berkeley, is sociolinguistic microanalysis. I tape-record and transcribe naturally occurring conversations.
+- The dynamic of fathers and sons seems to be more around competition regarding things such as knowledge, accomplishments, expertise.
+- I have two sisters; one is two years older, and one is eight years older. That helped me understand how completely different sister relationships can be.
+- Conflict can't be avoided in our public lives any more than we can avoid conflict with people we love. One of the great strengths of our society is that we can express these conflicts openly.
+- I can't tell you how many times I heard from younger sisters that their older sisters were bossy and judgmental.
+- The culture of critique undermines the spirit not only of people in public roles but of those who read about them, afraid to believe in anyone or anything because the next story... will tell them why they shouldn't.
+- In this world, conversations are negotiations for closeness in which people try to seek and give confirmation and support, and to reach consensus. They try to protect themselves from others' attempts to push them away.
+- The biggest mistake is believing there is one right way to listen, to talk, to have a conversation - or a relationship.
+- Conflict and opposition are as necessary as cooperation and agreement, but the scale is off balance, with conflict and opposition overweighted.
+- We all feel wistfulness or regret about roads not taken.
+- The double bind lowers its boom on women in positions of authority, so those who haven't yet risen to such positions have not yet felt its full weight.
+- An assumption underlying almost all comments on interruptions is that they are aggressive, but the line between what's perceived as assertiveness or aggressiveness almost certainly shifts with an interrupter's gender.
+- It might seem at first surprising that when I studied women and men talking at work, I found that women 'interrupted' each other more often than men did - when they were in all-women conversations.
+- My job is to analyze conversations and discover why communications fail.
+- Our ways of relating to each other become like habits.
+- The effect of dominance is not always the result of an intention to dominate.
+- Where the daughter sees power, the mother feels powerless. Daughters and mothers, I found, both overestimate the other's power - and underestimate their own.
+- Much of my work over the years has developed the premise that women's styles of friendship and conversation aren't inherently better than men's, simply different.
+- The trickiest thing about the double bind is that it operates imperceptibly, like shots from a gun with a silencer.
+- The political Right is particularly vehement when it comes to compromise. Conservatives are now strongly swayed by the Tea Party movement, whose clarion call is a refusal to compromise regardless of the practical consequences.
+- A sister is the one person you can call in the middle of the night when you can't sleep or the one who doesn't want to hear about your problems unless you're ready to do something about them. She's the one who is there when you need her or the one whose absence when you need her hurts the most.
+- My mother cared a lot about clothes. It was a point of friction because when I was a teenager, and I only wanted to wear my father's shirts, and I never wanted to wear makeup, she would say: 'Put on lipstick.' That was her thing.
+- Each underestimates her own power and overestimates the other's.
+- Everything you say in a family carries meaning from all that was said before. So with friends, there is less likelihood of a few words triggering associations from childhood, where our deepest emotions often are rooted.
+- When daughters react with annoyance or even anger at the smallest, seemingly innocent remarks, mothers get the feeling that talking to their daughters can be like walking on eggshells: they have to watch every word.
+- Mothers subject their daughters to a level of scrutiny people usually reserve for themselves. A mother's gaze is like a magnifying glass held between the sun's rays and kindling. It concentrates the rays of imperfection on her daughter's yearning for approval. The result can be a conflagration - whoosh.
+- My writing is about connecting ways of talking to human relationships. My purpose is to show that linguistics has something to offer in understanding and improving relationships.
+- We tend to look through language and not realize how much power language has.
+- Asian cultures... place great value on avoiding open expression of disagreement and conflict because they emphasize harmony.
+- The study of gender and language might seem at first to be a narrowly focused field, but it is actually as interdisciplinary as they come.
+- I believe the switch from 'lady' to 'woman' was part of the women's movement. 'Lady' was a euphemism for 'woman,' and that was one reason that we wanted to move away from it.
+- I think it is important to remember that there are so many different ways to be sisters.
+- A sister is someone who owns part of what you own: a house, perhaps, or a less tangible legacy, like memories of your childhood and the experience of your family.
+- Our spirits are corroded by living in an atmosphere of unrelenting contention - an argument culture.
+- Now I am married to a man who is a partner and friend. We come from similar backgrounds and share values and interests. It is a continual source of pleasure to talk to him.
+- The contrasting focus on connection versus hierarchy also sheds light on innumerable adult conversations - and frustrations. Say a woman tells another about a personal problem and hears in response, 'I know how you feel' or 'the same thing happens to me.' The resulting 'troubles talk' reinforces the connection between them.
+- Many mothers or daughters assume that words only mean one thing. 'If I feel criticised, that has to be the whole story', and 'if I feel I am being helpful, that has to be the whole story'.
+- In some ways, siblings, and especially sisters, are more influential in your childhood than your parents.
+- Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence. To survive in the world, we have to act in concert with others, but to survive as ourselves, rather than simply as cogs in a wheel, we have to act alone.
+- I am the youngest of three girls. My first linguistics book was a study of 'New York Jewish conversational style'. That was my dissertation.
+- Conversations with sisters can spark extremes of anger or extremes of love. Everything said between sisters carries meaning not only from what was just said but from all the conversations that came before - and 'before' can span a lifetime. The layers of meaning combine profound connection with equally profound competition.
+- For most women, the language of conversation is primarily a language of rapport: a way of establishing connections and negotiating relationships.
+- Relationships are made of talk - and talk is for girls and women.
+- 'Right' and 'wrong' aren't words a linguist uses.
+- For many women, and a fair number of men, saying 'I'm sorry' isn't literally an apology; it's a ritual way of restoring balance to a conversation.
+- American popular culture, like individuals in daily life, tends to either romanticize or demonize mothers. We ricochet between 'Everything I ever accomplished I owe to my mother' and 'Every problem I have in my life is my mother's fault.'
+- If you talk to your friends the way your parents talk, they will think you are stiff and odd.
+- If women talk in ways expected of them or project a feminine demeanor, it's seen as weak. But if they talk in ways associated with men or bosses, then they're seen as too aggressive. Whatever they do violates one or the other expectation: either you're not talking as you should as a woman or as boss.
+- For women, detailed conversation is our lifeblood, while for men it's just not as critical.
+- When Clinton first appeared on the national stage back in 1992, the young wife of the Arkansas governor running for president, she kept her natural-brown hair off her face with a headband.
+- A double bind is far worse than a straightforward damned-if-you-do, damned-if-you-don't dilemma. It requires you to obey two mutually exclusive commands: Anything you do to fulfill one violates the other.
+- Each person's life is lived as a series of conversations.
+- When did the word 'compromise' get compromised? When did the negative connotations of 'He was caught in a compromising position' or 'She compromised her ethics' replace the positive connotations of 'They reached a compromise'?
+- It is easy to understand why conflict is so often highlighted: Writers of headlines or promotional copy want to catch attention and attract an audience. They are usually under time pressure, which lures them to established, conventionalized ways of expressing ideas in the absence of leisure to think up entirely new ones.
+- It's a particularly modern myth that married people are best friends. The best-friend concept is a uniquely female phenomena.
+- I was one of those daughters who saw my mother as my enemy when I was a teen.
+- This idea that we should be best friends with our partner of the opposite gender leads toward tremendous frustration. Did you ever notice that while men often refer to their wives as best friends, women usually refer to another woman in that way?
+- Birth order is fascinating, and it is forever.

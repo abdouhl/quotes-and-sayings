@@ -1,0 +1,104 @@
++++
+author = "Donald Cerrone"
+title = "Donald Cerrone Quotes"
+quotes_len = "98"
+description = "the best 98 Donald Cerrone Quotes"
++++
+- I've never pulled out of a fight, never not showed up to fight, so injured or not, I'm coming.
+- I'm a guy who likes to keep fighting five, six times a year, so if I ask for too much money, they might say, 'Well, we pay you too much. We can't let you keep jumping backwards and forwards and promote it.' The money I'm making is good to keep grabbing short-notice fights. I love them; they're my favorite ones.
+- The only thing I can do is fight. Win or lose, I'm here every damn time.
+- I've been all over the world. I've been to Japan, Africa, Morocco, everywhere. Heck yeah, I would go to Ireland. Why not?
+- They aren't going to take my guns. I have 44 guns, and they aren't going to take my guns.
+- This sport gives you the highest highs and the lowest lows.
+- For a while, I drank the juice - I did things the way everybody else said to. I listened to their advice. But it didn't work.
+- Milk Duds and Hot Tamales are what I love.
+- Put 'Cowboy' on every card. I'd be ready to go.
+- I feel so much better at 170, man.
+- I want the belt. Always.
+- They need to enforce how and who to give guns to. But there are Americans like me who are responsible, and they shouldn't take that away. If they outlaw guns, they won't take mine.
+- I live a wild and crazy life.
+- If you want to be the best, you've got to beat the best. The only problem is when I get that belt, who's going to be left to fight? That's what I want to know.
+- If you're in the UFC, you're one of the baddest dudes around.
+- I remember being a kid and saying, 'One day, I'm going to have a ranch. One day, one day, one day.' And now, I'm fighting in the UFC. I'm here making the money, and that one day is here. I can finally go get those things that I want.
+- Wrestling is something I feel really confident in now.
+- You ever try to beat your dad up? It just don't happen. He's got that old man strength.
+- I just take the fights and do what I love.
+- I own everything. I own my RV, my house, my trucks, my boat. Everything is paid for.
+- I don't care where I fight on the card, but to get people motivated or excited, like, 'Cowboy's fighting!' that's my overall goal.
+- It's hard to have money in the bank and want something and then not get it.
+- I don't even know who Michael Chandler is.
+- I'd be lying if I said I didn't want to be the best, but I would just fight anyone, any time. I don't care.
+- You have a short window, you know, and if I plan on living the lifestyle I want, I've got to make a nest egg.
+- Standing there and throwing, that's what everyone likes to see.
+- I wish I had millions in the bank; I'd never go broke. Let's get that belt and get millions in the bank.
+- Sometimes you just don't show up, and in our profession, it's a bad day.
+- Fighting in the UFC means that I'm at the top of the sport, and it means that I'm able to pursue my goal of being a champion in the UFC.
+- When they raise your hand, Oh my God, the feeling is unbelievable.
+- As soon as I get it, I spend it. I need to start saving it.
+- There is nothing more I love more than being in a throw-down on a Saturday night.
+- I want all of the blue collar American working class people to know that I'm out there fighting for them.
+- My time with the WEC was great for me; it was great to be able to get big-show experience, headline fight-cards, and fight for world titles.
+- When I got picked up by the Tapout crew and was featured on their reality show, that really jumpstarted my career.
+- I just love to be out on the lake, wakeboard, surfing, just playing, man.
+- I'm not worried about a title. It's just go and have fun.
+- To be honest I quit taking training and fighting so seriously and went back to living my life and having fun. I try to teach that to all the guys who come out here to train and live with me.
+- You're not just top-10 UFC because you suck.
+- For me, fighting is just so fun; I love it. It's just what I enjoy doing, and for me to go out there and go wake boarding and go rock climbing and then turn around and go fight, how awesome is that?
+- Fighting's not me - it's just something that I do.
+- You've got to know what you put in your body. That's it.
+- It's kind of stupid that people think I'm just partying all the time.
+- The UFC has been very good to me, man.
+- Dos Anjos, his wrestling and grappling is supposed to be good, but I feel my Jiu Jitsu, wrestling and striking is way better. I'm better than him all across the board.
+- I'll fight on Fight Pass; it's all the same to me.
+- Fighting angry and fighting mad isn't good.
+- I thought I would be laying hardwood floors in Colorado - a construction worker. Middle class or working class, that's where I was! I just fought because I loved it. It was so fun! Being able to go in there and outthink your opponents.
+- I want to be a professional wakeboarder.
+- I don't take much pride in fake fighting.
+- I've got to control my emotions. When I fight out of emotions, it doesn't end up so well.
+- I took up scuba diving, and my next big thing is BASE jumping.
+- Even when I was a little punk kid, I would fight anybody - it didn't matter. That's who I've been my whole life.
+- Why not drive a snowmobile? I own an Artic Cat. We bought them because we enjoy doing things like that. I enjoy doing fun things, and that's definitely one of the things.
+- I train every day and do what I love.
+- I don't want to sound arrogant or cocky, but taking a fight on short notice against 'Cowboy,' you have to be mentally strong.
+- I'm not trying to be anything other than the way I was born and raised.
+- You see all the movies where people say, 'Don't fight out of anger'? They say that for a reason.
+- I thought that Yoel Romero and Tim Means got the only two tainted bottles of protein in the world. I thought it was crazy. You never know with these companies; you've got to be careful.
+- Is there any hungry fighters out there that say they don't get paid enough by the UFC? I tell you what: Cowboy's got the answer. Sign on the line. I don't care where you're at on the roster. Let's go.
+- I love fighting as much as I can and as often as possible.
+- Bull riding is fun, but fighting is it.
+- Aw man, I spend it pretty much as fast as I make it. If I want something, I don't wait around and plan or nothing. I just go out and get it.
+- I'll go to 185 pounds; who cares? Just give me fights.
+- Colorado's home for me.
+- The opponent never matters to me. That's something I've always said.
+- I could definitely make 145. But if 'Cowboy' is going to 145, I'm going after somebody who matters.
+- You don't have to get ready if you stay ready, alright? I'm always in the gym, always training, all the time.
+- The UFC has been nothing but great to me. I can't complain; they give me what I want.
+- I enjoy fighting. It's one of my favorite things to do in the world, so I'm just enjoying every minute of it.
+- I signed a contract to fight at UFC 187, so I'm going to fight at UFC 187, whoever it is against. It's the same thing.
+- The young guys keep me motivated. Youngsters coming up behind me.
+- I eat a lot of candy. I can't survive without candy.
+- Jose Aldo, he's a stud, and I would be honored to be in there to throw down with him.
+- I made it this far eating fruit roll-ups and having soda pop and having fun. I feel like I tried changing that to do like everyone says I should, and I just feel better being me.
+- I didn't really have intentions of fighting in MMA; it just kind of fell into place. Once I started fighting, though, I loved it, and I walked away from kickboxing right away.
+- People ask me, 'Why don't you take time off?' but the working class doesn't take time off. They're out there working every day. That's what I do, too. I want them to know there is hope, and I'm out there just like they are.
+- I remember kickboxing and traveling the world when I was young. I would go to Japan or Africa, and I would go for the experience. As soon as I got off the plane, we'd go have a good time, party. Fighting was just the outlet of what I was doing there.
+- It's a relaxed intensity I've got to live my life in.
+- That Evan Dunham fight, I went back to not being serious. I was going to the lake and literally brought some wrestling mats down with me. We have a shop at the lake where we park the boat. I'd throw the mats in there, wakeboard all day, and train all night. I was having a good time, getting back to work.
+- I just fell in love with the cowboy way of life.
+- I would fight every month. Think about the finances I would have. That would be financial freedom.
+- People get all caught up thinking they have to train a certain way or take a certain approach to things, but there's so much more to this than fitting into what other people think you are supposed to do. You have to have fun and enjoy what you are doing; otherwise, what is it all worth?
+- MMA makes you sore and tired every day. I wonder what we're going to be like when we're 50 or 60. I wake up some mornings and just say, 'Oh, God.' And then I go scuba diving.
+- That's my style of fighting. I am throwing down, you know? Having fun. And that's my approach to life.
+- Whether I'm in the main event or on the preliminary card, the same Cowboy is going to be out there.
+- I tend to worry about now, now, and I'll worry about then, then.
+- I've had people say I'm inconsistent, and sure, I've never held a UFC or WEC title.
+- A great fight that I'd love is B.J. Penn. That would be so awesome. He's a veteran of the sport. He's fought everywhere.
+- We have no one to stand up for the fighters' rights. If something bad were to happen, no one backs him, and it's just him alone, and everything gets washed out. We need people to stand up and fight for it.
+- Bring the fights on. If I'm going to be the champ, I gotta beat everyone anyway, so what does sitting and waiting and holding my position do?
+- I see the business side of it and moving up the ladder towards the title. That's where the money's at. That's the overall goal.
+- I'm not going to grant Bobby Green his wishes by fighting him and responding to his nonsense.
+- Everyone at home sitting on their couches, they think it's so easy to fight. Stepping inside that cage is probably the hardest thing in the world to do. I truly believe that.
+- I'll fight every weekend - hell yeah.
+- When I fought Benson Henderson for the first time, or Jamie Varner, it was always like, 'Oh man... I'm in here fighting these guys. Do I really belong here?' That's all changed now.
+- I am never more or less motivated for a fight - it's always the same.
+- Who am I to say CM Punk is a joke?

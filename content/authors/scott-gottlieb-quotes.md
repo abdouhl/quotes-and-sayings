@@ -1,0 +1,106 @@
++++
+author = "Scott Gottlieb"
+title = "Scott Gottlieb Quotes"
+quotes_len = "100"
+description = "the best 100 Scott Gottlieb Quotes"
++++
+- President Obama famously promised that the Affordable Care Act would not only slow the growth in health care costs, but would also reverse these trends, making the average health insurance plan cheaper. That isn't happening.
+- Over the years, EpiPen's manufacturer, Mylan, made meaningful modifications to its auto-injector pen. The company maintains some important intellectual property around these revisions. Mylan rightly argues that these features differentiate its device.
+- It once seemed that the most profound feats stemming from DNA-based science would spring from our ability to read and detect genes, which we call the science of genomics. But the real opportunities lie in our ability to write DNA, to synthesize new gene sequences and insert them into organisms, resulting in brand-new biological functions.
+- More government control of doctors and their reimbursement schemes will only create more problems.
+- When the price of a drug rises, it becomes profitable and the target of new competition.
+- EpiPen is not unique. It falls into a category of old drugs, many of which should have long been subject to generic competition.
+- America tolerates a heavy toll from the flu on health and productivity. But if Covid becomes a twin risk, the heath-care system will struggle to fight both at once.
+- At the heart of President Barack Obama's health-care plan is an insurance program funded by taxpayers, administered by Washington, and open to everyone. Modeled on Medicare, this 'public option' will soon become the single dominant health plan, which is its political purpose. It will restructure the practice of medicine in the process.
+- It is true that some off-label drug use is based on very unsettled science and has more risks. But medicine - and not just cancer care - involves lots of hard choices. And the more serious the disorder, often the more likely it is that for every right and wrong treatment choice there are many other practical decisions painted in shades of gray.
+- ObamaCare has accelerated many of the detrimental trends doctors see in their profession, and introduced new ones.
+- One of the untold elements of the rapid decay underway in the Obamacare exchanges is the massive shift toward the Medicaid managed care companies, and away from the traditional commercial insurers like UnitedHealth Group and Aetna.
+- Rather than redistribute physician income as a way to subsidize an expansion of government control, Mr. Obama should fix the payment system to align incentives with improved care.
+- As Apple advances the medical promise of its watch and smartphones, it has also made clear that its foremost aim is to steer clear of Food and Drug Administration regulation.
+- Smallpox can be personally devastating. After a 14-day incubation period, patients experience high fevers, headaches, and sometimes severe abdominal pain. A rash resembling chicken pox appears in the mouth and throat, face, and forearms, and spreads to the trunk and legs. As patients recover, scabs break and pitted scars appear.
+- Covid is likely to persist once its pandemic phase has passed and circulate each winter alongside the flu. Even after more of us contract coronavirus infection and develop immunity to it or even after an effective vaccine arrives, some people will still get very sick.
+- A true legislative alternative to ObamaCare would support physician ownership of independent medical practices, and preserve local competition between doctors and choice for patients.
+- America is home to a vast, dynamic life-science industry.
+- Trying to stretch the mission of a health program like Medicaid, as a way to launder redistributionist goals, ends up serving nobody well.
+- Antibiotic resistance is as old as the dirt that coats our planet.
+- Advocacy groups like Families U.S.A. imagine that once Medicaid becomes a middle-class entitlement, political pressure from middle-class workers will force politicians to address these problems by funneling more taxpayer dollars into this flawed program. President Barack Obama's health plan follows this logic.
+- The authors of the Affordable Care Act wrongly assumed that new kinds of health plans, engineered in Washington, D.C., would emerge to displace the national for-profit insurers.
+- There's instinctual discomfort about using evidence of past immunity as a factor for decisions about health, work or even questions like whether it's safe to visit someone in a nursing home. But there are ways to deploy immunity information to help us understand our own health status and keep us safer from Covid, without surrendering privacy.
+- One of the striking features of the early episodes of AMC's hit television show 'Mad Men' is the similarities in the lifestyle enjoyed by the lowest paid members of Don Draper's advertising company and its wealthy partners.
+- Obamacare mandates a largely uniform structure and set of benefits and insurance design across the entire country. It leaves consumers with very little real choice of the health benefits they want.
+- Limiting Covid's impact requires us to think differently about confronting respiratory pathogens in the winter.
+- Obamacare is making the market for health care less competitive.
+- The overly engineered, overly regulated market that Obamacare created resulted in restrictive health care plans that provide little choice, and coverage that is far too costly for what the plans offer.
+- Even with all its political bells and whistles, the Obamacare plans increasingly resemble Medicaid in terms of networks and drug lists.
+- Zika is an addressable threat. While it falls outside of the regular routine of public health preparedness, we shouldn't be scrambling for new resources each time a threat like Zika starts to emerge.
+- Obamacare's costly regulations mean that the mix of people who sign up are tending to be older and sicker. Many young and otherwise healthy individuals continue to be priced out of the exchanges, even after the benefit of federal subsidies are baked into their costs.
+- Why do physicians prescribe powerful antibiotics? Generally not because our patients ask for them. Most people who come in with a sore throat would be just as happy leaving my office with a prescription for Chloraseptic as clarithromycin.
+- When gene therapy was believed to harbor latent risks, research was largely put on hold until the risks were better understood. Sometimes, the theoretical risks have led to a principle of absolutist precaution that impedes progress.
+- The ACA purposely constrains choice as a top-down means of cost control. Obamacare isn't a consumer-driven, high-deductible scheme. It's hollow coverage.
+- In short order, Obamacare is evolving into a Medicaid marketplace. Not only in terms of the design and quality of the narrow-network plans that are being offered, but in the actual carriers that sell those policies.
+- For one thing, Medicaid is an inefficient if not ineffective platform for redistributing income. It doesn't get the dollars to poor people in forms that they can best use. Dollars are laundered through healthcare benefits that people may not need. It also means propping up a lot of healthcare interests rather than individual Americans.
+- Our Founders thought politicians should be accountable when it comes to citizens' right to life, liberty and the pursuit of heart surgery.
+- Once an effective drug is approved to treat a deadly condition, introducing a second drug to treat the same disease can be hard. It's tough to recruit patients with a debilitating disease for a clinical trial when a proven medicine is already available.
+- The convergence of information technology and biology allows scientists to translate the human genome into digital data that can accelerate diagnoses and cures.
+- It's now evident that public health is part of national security.
+- When I was a medical student, a pulmonary professor of mine cajoled me into joining a clinical trial that she was running. The general aim of the tests was to determine whether prolonged periods of short and shallow breathing would cause a person's lungs to go into spasm. It turns out, as I can attest, that they do.
+- Policies I advanced as FDA commissioner aimed to get smokers off cigarettes and onto less-harmful forms of nicotine delivery.
+- The period of time between the uncovering of some fundamental scientific finding that underpinned a medical advance, and the realization of the corresponding advance in the form of a new drug or medical technique that improves the health of patients, is being continually hastened.
+- Printing novel DNA might open the way to achievements once only conceivable in science fiction: designer bacteria that can produce new chemicals, such as more efficient fuels, or synthetic versions of our cells that make us resistant to the effects of radiation.
+- Accurate diagnostics are key to enabling successful public health measures.
+- In countries such as France and Germany, layers of bureaucracy like health boards have been specifically engineered to delay the adoption of new medical products and services, thus lowering spending.
+- Regulators at the Food and Drug Administration have a tough job.
+- A seductive technology that works like a dream and improves lives will set off a consumer clamor, whether the new tool is an iPhone 4S or an implantable blood-sugar meter.
+- From West Nile to swine flu to Ebola to the global outbreak of dengue fever, the capacity to deal with threats like Zika must be designed into our preparedness posture.
+- It's important to protect the old and the vulnerable, who are at the highest risk of severe illness and bad outcomes. But like most issues of medicine, it isn't a binary choice. Given the uncertainties of how this virus spreads and its high risk of infirmities, it would be unwise to abandon efforts to limit Covid spread wherever possible.
+- The fact is, many poor patients visit ERs simply because they don't have a family doctor.
+- Under Obamacare, doctors have been strained by costly new regulations, intricate payment 'reforms' that tie their Medicare reimbursement to complex federal reporting requirements, and mandates that they install and make 'meaningful' use of electronic health records.
+- Among the most common reasons why people come to an emergency room are bouts of heart failure or pneumonia. Sometimes they have a touch of both.
+- Before Obamacare, insurance networks typically covered an entire state. Under Obamacare, insurers are able to bid to offer coverage mostly on a county-by-county basis. It means that health plans only need to fashion doctor networks as wide as the county that they're bidding to offer coverage in.
+- Reformers in Washington need to do a better job of explaining how market-based alternatives to ObamaCare are a better outcome for the structure and delivery of health care.
+- The higher cost of getting a generic drug approved by regulators means that many old medicines don't face competitors. It's only after substantial price hikes that these drugs offer enough revenue to offset the rising generic entry costs, and start to entice competition.
+- By law and institutional culture, FDA seeks to apply a single tool to its approach to regulation - the requirement for pre-market approval. The agency is accustomed to compelling innovators to submit evidence to FDA and seek permission for marketing.
+- The nature of food processing had changed substantially in America. Much of it owed to corresponding changes in food packaging and the logistics for faster shipping. The scope of outbreak from foodborne illness no longer has a clear geographic boundary.
+- Creative destruction is an increasingly prominent feature of modern medical practice.
+- The fact is that Medicaid doesn't even serve well the medical needs of people who should be its principal focus - Americans who are poor in large part because their chronic health problems leave them unable to earn a stable income.
+- When people age, the main valve carrying blood out of the heart becomes brittle. As this aortic valve narrows, it can cause debilitating heart failure, and even death.
+- Science offers the chance to cure debilitating and once-intractable disorders like hemophilia and sickle cell disease. But we need to make sure the ability to access these therapies, or the risk that someone can be locked out of them, doesn't widen gaps between the rich and poor.
+- Health-assessment software such as CareEvolution's 'Safer Covid' tool can combine multiple health factors to evaluate a person's total risk of contracting Covid or suffering a bad outcome.
+- There are two main types of immunity to an infection. Innate immunity comes from circulating cells that attack any invader the body views as foreign. Adaptive immunity is specific to the pathogen presented. Through adaptive response, immune cells are programmed to secrete antibodies that are primed to target a viral invader.
+- A respiratory pathogen may pose an asymmetric risk to America, given our culture, economy and federalist system.
+- One of the noxious features of Obamacare was its forced march into a single, federally designed package of health benefits.
+- The key to the generic-drug economic model is to keep entry prices low enough to attract multiple competitors.
+- One option is to run Medicaid like a health program - rather than an exercise in political morals - and let states tailor benefits to the individual needs of patients, even if that means abandoning the unworkable myth of 'comprehensive' coverage.
+- Covid spreads too easily to think it can be confined to the young.
+- Americans broadly consent to funding clinical research because they believe in the promise of medical research. But people support scientific work only if they trust that it serves societal interests, respects patient dignity and operates with guardrails.
+- Before Obamacare, many working class Americans had an upper middle class healthcare benefit that they got at work.
+- Patients would be better off if states were able to tailor the benefits that Medicaid covers - targeting resources to sicker people and giving healthy adults cheaper, basic coverage.
+- Gene therapies and other treatments that can cure - not just treat - disease are going to be expensive. All of the cost of innovating and reaping an economic return may need to be recouped in a single payment.
+- The spread of HIV through contaminated blood was a tragic illustration of the risk that blood products could harbor undetectable and latent infection that's only revealed once it's widely distributed.
+- Cell-based and regenerative medicine can restore human functions lost to disease, including returning some sight to the blind.
+- Obamacare has made insurance costlier and far less comprehensive.
+- Many inherited disorders can perpetuate poverty by leading to disabilities that disrupt people's ability to work. In turn, someone's capacity to secure an effective new cure for these diseases can mean the difference between a life led productively, or one plagued by infirmity.
+- One of the biggest factors fueling the angst over drug prices in the U.S. is that some older medicines that should be sold cheaply as generics are still priced very high, often owing to a dwindling number of generic competitors and the rising cost of producing these drugs.
+- The pace at which fundamental discoveries of basic science are being uncovered is accelerating, as is the speed at which medical practice is being transformed by these inventions.
+- Covid-19 may be here for a long time.
+- In fast moving fields like cancer, where doctors tailor treatments based on evidence that's constantly evolving, two years can be an eternity of waiting to learn about important science. For some patients, that interval can be fatal.
+- The truth is that the greatest innovations in health-care delivery haven't come from federally contrived oligopolies or enormous hospital chains. Novel concepts - whether practice-management companies, home health care or the first for-profit HMO - almost always have come from entrepreneurial firms, often backed by venture capital.
+- While faulty information from a digital health tool can influence people to make bad decisions, the risks are far lower than those posed by the usual products FDA subjects to pre-market review.
+- There's a big difference between apps that help you manage your medical information and draw clues from your own bodies, and those that seek to actively doctor you.
+- What makes the EpiPen unique is its delivery vehicle - an auto-injector that's packaged in a convenient, pen-like device. The product's key attribute is its ability to reliably deliver accurate doses of the essential medicine.
+- The first nation to develop a vaccine for Covid-19 could have an economic advantage as well as a tremendous public-health achievement. Doses will be limited initially as suppliers ramp up, and a country will focus on inoculating most of its own population first.
+- When some states introduced mandatory smallpox vaccinations during the epidemic of 1898-1903, Americans resisted by the thousands. The ensuing battles produced medical conventions and case law that altered the balance between government authority and medical practice, in favor of federal control.
+- In the U.S, Zika outbreaks are hopefully going to be easy to isolate. The biggest threat is likely to be from the fear Zika sows, especially among expectant moms.
+- One thing about Covid-19 is clear: We don't fully understand its severity and transmission. At various turns, we've both underestimated and overestimated the virus.
+- In 'Pox: An American History,' Michael Willrich meticulously traces the story of how the smallpox vaccine was pressed into service during a major outbreak.
+- Historical records show that smallpox was a human scourge for thousands of years. The virus produces high fever, severe back pain and scarring eruptions of flat red spots on the skin that turn into pustules and then into scabs - a two-week process during which the disease is highly contagious.
+- Gene editing will be used to alter DNA to erase the origins of a range of debilitating inherited disorders.
+- Covid-19 has altered world history.
+- We've been scared from using antibiotics and antivirals out of some kind of weird sense of communal responsibility to keep bugs naive to our powerful weapons.
+- Biologics must be grown in living systems - fermented, for example, in large vats of bacteria cells. This makes them hard to replicate. For decades, biologics weren't subject to competition from copycat generic medicines, even once patents and exclusivities had lapsed on originals.
+- Confronting a dangerous pandemic requires containing spread wherever it is reasonably possible. Sensible measures such as universal masking, testing and widespread and rapid contact tracing can help. The best way to protect the vulnerable is to try to protect everyone.
+- The ability of working class Americans to bargain for health coverage at work gave them access to the same basic packages of benefits as executive management teams.
+- If drug development becomes the domain of government researchers, it's a sure bet that political lobbying will eventually trump scientific promise and commercial viability when it comes to investment decisions.
+- We need to make sure that access to a curative drug doesn't become a yardstick by which poverty is eventually measured. Doing so requires a shared commitment between innovators and the insurance plans that are harder pressed to offer these advances to the poor.
+- Politicians wage broad wars on medicine to claim thin strips of ideological terrain. This would be good political theater if there weren't so many human victims.
+- A major part of the conservative plans to reform Medicaid turn on the assumption that states will be better able to manage the program, and deliver its benefits, free from all the intrusive regulation that Washington imposes.

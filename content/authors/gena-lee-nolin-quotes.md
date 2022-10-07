@@ -1,0 +1,31 @@
++++
+author = "Gena Lee Nolin"
+title = "Gena Lee Nolin Quotes"
+quotes_len = "25"
+description = "the best 25 Gena Lee Nolin Quotes"
++++
+- With my first, I gained 40 pounds; in the second, I gained 35, and with Stella, I gained 25. My thing is to get most of your weight off, or at least get into good eating habits and exercise routinely, the sooner the better.
+- Midwestern people stick together. Gee willikers, they work hard. There's no glitz, no glamour. When I was a girl in Duluth, Minnesota, I used to get up early and milk cows, so I know what hard work is.
+- It was later in life when I found out that I had thyroid issues and gained a ton of weight. I got up to 200 pounds.
+- I've spent the better part of two decades running both toward and away from an image - the Hollywood image - that had come to define me.
+- You're told to look good and to show Tupperware, and that was my job. Coming from that to being, like, 'Oh my God, you're a superstar' - it's almost overnight, and it's overwhelming beyond belief.
+- My children are the reason I laugh, smile and want to get up every morning.
+- I love a guy in a suit - someone who puts on his nice Armani pants.
+- The show was that we were sexy lifeguards. Clearly, the suits were probably five sizes too small and all of that, but it was just part of what it was, and that's why it was so popular.
+- I think people assume that having thyroid disease means you're older and overweight, but in reality, thyroid disease strikes at all ages and affects all sizes.
+- I think that people sort of stereotype me as the blonde 'Baywatch' girl who's always in a swimsuit, so, I think, to tell my story - that I got up to 175 lbs., was so depressed I couldn't get out of bed - will show that life wasn't always good for me.
+- I value a buck, and when they're giving you $300,000 to lay down and look cute and pretty for a commercial in Korea, you gotta just go, 'Holy crap, this is unbelievable.'
+- I was named honorary woman of distinction 2007 for the Crohn's & Colitis Foundation, and I have recently become involved with Save the Children's Make Time for Change.
+- Don't be hard on yourself! You just had a baby. It took nine months to get there, and I believe it takes nine months to get back. For me, I really watched what I ate and exercised as much as I could with three kids.
+- Somewhere deep inside, I knew I had to be an actress.
+- You really become aware of your own life, what really matters, and it's not about the car you drive or what you have materially. It's family, healthy children, and it is to be cherished.
+- To this day people will say, 'What do you think about doing 'Playboy?'' I feel honored to be a part of that bit of history with Hugh Hefner. No regrets.
+- I didn't go to L.A. to be a star; that wasn't my intention. When I auditioned for 'The Price Is Right' and got it, I was very content doing it - 'I don't have to work three jobs anymore. This is great.'
+- My tradition, as an adult, is to have an open-door policy on Thanksgiving. I always host, and I welcome absolutely anyone into my home. I think it's really special. If people are going through hard times or not getting along well with their family, they flock to my house. And I'll have my tree up!
+- I think Baywatch is such a hit here because of the weather.
+- It was scary. It's a public beach that we're filming on, so there was tons of paparazzi, especially when Pamela would be working. It was absolutely mayhem.
+- My children teach me to slow down and enjoy life.
+- I want to work, but being a mom is my No. 1 priority.
+- Whether it's a spouse, family member, coworker, former classmate, or the mother of your child's best friend - you know exactly what I mean. Just when you feel your worst and are judging yourself harshly, someone comes along who seems determined to make you feel even worse about yourself than you already do. Who needs it?
+- When you get into the public eye, one day, you're kind of unknown, and the next day, you have people in your bushes waiting to take a picture of you.
+- I knew I had to be on stage. I always felt like there was something bigger and better for me. If not that, I would be a hair stylist for sure. I almost enrolled at Vidal Sassoon hair academy in Santa Monica.

@@ -1,0 +1,113 @@
++++
+author = "Omari Hardwick"
+title = "Omari Hardwick Quotes"
+quotes_len = "107"
+description = "the best 107 Omari Hardwick Quotes"
++++
+- I think, by nature you know, I'm very attracted and I gravitate toward the very strong girl who can watch a ballgame, but who's also extremely feminine.
+- I know that Donald Trump is a smart man.
+- You can't look at the dollar and say, 'I'm not what I dreamed of being unless I do this type of movie and it's a blockbuster that gives me this amount of dollars.' That's not good.
+- I really had a problem with being 'the man.' I'm past it now, but that was my insecurity. I ran from that. I was cool with being No. 3 on the call sheet or No. 2.
+- It's really rare to come across a character, a show, or a movie that allows you to completely play four or five different characters within a season, let alone a week.
+- I would say, as loving as I am... I am definitely an extremely temperamental man who has a very large temper.
+- We are a total of our sum parts, right? I came from a family of very strong women - black women. And if I go back as far as my great grandmothers, there was always that love and the ability to be nurturing. Then I grew up in a household where my father was the one who was more affectionate with me.
+- I grew up in a two-parent household. We all played sports, all sports, which cost a lot of money. My pops was an attorney; he went to College of the Holy Cross with Clarence Thomas. My mom worked a bit, then gradually came home and took care of us full time.
+- Spike Lee gave me the greatest reaction to the fact that I was this athlete-meets-artist, because I think he saw that I was different. I learned that oftentimes, Spike directs in a sense that he might just stare at you and look at you in a telepathic way of communicating.
+- I'm safe where I'm at just being the guy where people go, 'That's a really good actor. What's his name again?' I liked being at that place.
+- If your character is just out there acting a fool, viewers are gonna say, 'Why am I watching this?' But if he's whispering, 'I don't really want to die,' there's a level of vulnerability cemented in these bad characters.
+- Women are so necessary for us in terms of support.
+- I've approached every character I've ever played with a poem, first and foremost.
+- As an actor, I come to set, and I have already broken the character down by writing a poem about the character. I try to write in his voice, the way he would write it.
+- If I could remake any Eighties project, it would be less an action flick than a character-driven drama with a rich story to tell.
+- I use Aveeno cleansers and moisturizers.
+- Know that the tattoos are all significant. They're all extremely insignificant. I can't break each one down, but it's 20 years. The first one was 21 years of age from a football teammate.
+- I did 'Fences' off-broadway at the Beacon Theater, so it's amazing that Denzel Washington and Viola Davis brought it to Broadway.
+- It's an interesting thing to play the heroes of our society, like cops and firefighters. They're the basic heroes that, as little boys and little girls, you look up to as the first heroes of your small, specific community.
+- To make your own family is just the most empowering thing ever. It's the greatest thing you can ever pull off.
+- Playing a cop goes a long way. I have a lot of friends who are working as actors, and as soon as I started playing military characters or cops, and not the actual criminal that we're chasing on this show, they all said, 'You actually can have a career now.'
+- 'Power' is a funny thing. Maybe it's a show that draws people in because they are watching people do things they secretly wish they could do or know they could get away with.
+- Poetry has, in a way, been my bridge to my acting career.
+- I was going from Furman to the University of Georgia. I transferred to play football.
+- I'd say my artistic bent definitely came from my father, who was a trial lawyer. And if you're smart, you know that a trial lawyer isn't that different from an actor. He was a poet as well.
+- I'd done 'Peter Pan' in a little pre-K class or whatever.
+- Life as a poet and actor truly became full circle as I stood on stage as host of 'Verses & Flow' and lived in both of these outfits. It was one of the best experiences of my professional life.
+- Acting is the art of being and existing, and not being fake.
+- I think what's most important is family.
+- I'm addicted to the hotel life. It's humbling and fly at the same time.
+- The way the recession has affected Hollywood, a lot of actors that had robust opportunities before in film no longer have such plum options, so cable has done a good job of becoming a happy medium for artists deemed film actors.
+- I kept on hearing the voice of God saying if you are going to be the minister that your mom mentioned... then you have to act. My pulpit is acting.
+- My dad was really complex, and I was raised by that. My mom is really bright - very book bright - and so those things collide... I learned that I could put all of that stuff together in the world of acting, and I could make a dollar at it.
+- Women are amazing lovers.
+- For me, I went from showering at the YMCA in L.A., eating chicken sandwiches and ramen noodles if lucky, and going from couch to couch. I'm a real story. I know the struggle.
+- I got in trouble for saying I would move my family to Europe, but I said it.
+- There were uncles in my life that definitely knew the street life.
+- I don't think there's a fan out there who hasn't had a family member or known someone personally who's been in the midst of divorce - perhaps not necessarily gotten the divorce or executed it, or perhaps they have - and still, in many cases, they found themselves back with the person that they were married to.
+- Shoes make an outfit; they're like rims for a car.
+- I grew up in Decatur, Georgia. We had three boys in the household; actually, it felt like four of us. My pops sort of raised my uncle, too. So, it was four boys and, later, a younger sister.
+- It's rare for artists to really stare deeply at themselves in the mirror, literally, because there's constantly a mirror on you.
+- That's the thing with me being a former athlete: in the way I attack characters and attack poetry is from the base of being an athlete.
+- I tend to want to put my fingers over my ears and not hear all of that, not hear that there are so many fans.
+- I've been writing for years, you know, and when I get to a particular place, city, or different locale, I find myself first of all being challenged by those that love me to write more.
+- That point of life when I learned I could cook, that always made me understand what cooks felt like feeding other people. It's okay to receive, but it's really cool to give, so food is to me sexy because it's the fact that someone is giving it to someone else.
+- I was at a ballpark as much as I was in school. I was on a basketball court or football field as much as I was in school, so I definitely was receiving mentorship when it came to coaches, my father, my grandfather, and my uncles.
+- I think 'Dark Blue' came to me while I was doing a project in London. I read it, and the character immediately popped out at me.
+- When it's all said and done, I am secure enough with my manhood to say to the world, 'I am a male actor, and its okay for me to play a gay man.'
+- Deciding to not attach ourselves to something that doesn't appropriately represent us is extremely powerful.
+- Unlike many Californians or New Yorkers, college football is a religion down south.
+- I've been described as a smart actor because I've attended college. Or I've been called an artsy jock. And I am thinking, 'So, are actors supposed to be dumb?'
+- I'm not shutting myself off from kids; I'm remaining open to kids and the energy that they bring.
+- I don't make a big deal out of playing football at UGA to people who have interviewed me.
+- I think I'm an athlete who's trained as an actor, and when you smash it all together, you get whatever Omari is doing as a performer right now.
+- Sometimes my schedule doesn't allow time to go to the hotel after I get off the plane, so I bring my Freebird boots or my old school Adidas shell-toes to throw on after I land.
+- I think Gil Scott-Heron is a king. He's a brilliant, broken king.
+- I was definitely a Daddy's boy.
+- I think actors make for very good directors, and I would like to do that one day.
+- If reality shows are so popular, that means their viewers are screaming for more realness.
+- I was at UGA playing with Champ Bailey and Hines Ward - both guys who will probably touch the Hall of Fame one day.
+- I think the universe just brings people around others they find to be interesting.
+- I realized, 'Oh, it's easier to get what I want if I embrace the sex symbol thing.' Microphones are more in my face, and I can say things about the kids that I mentor and open more access to more doors.
+- I would say that the woman's ability to multi-task and to be maternal in instinct, it fosters a different approach to the character that makes sense as an actor.
+- So many athletes who have been close to me have been everything to me.
+- Actors are intelligent. Yet, many of them do not communicate well. That's what makes it so hard to have a relationship with one.
+- As a poet, I would always hear emcees come up to me and say, 'Yo, you should rap,' and I was like, 'No.' You know, the label was tough for me. I'm a poet. I was proud of that distinction between the two, not wanting to be the other.
+- Some of the most amazing people I've met in life are cops.
+- I was trying to pay the bills with poems, and it was easy to memorize my poems, because I'd be riding my bike in California trying to memorize them before going on stage at a poetry lounge.
+- I come from the stage, so I started in New York, lived there for eleven years.
+- I was raised looking at women who were strong, and they weren't really into playing race cards or playing gender cards. I didn't grow up around women who were like, 'Well, let the boys do that, and let the girls do that.' I didn't really see that in my house.
+- I didn't want to just do a show where my character stood out and other characters were flat or one-to-two-dimensional. I wanted everybody to have meat.
+- If you remain open to great directors who look like you, who know what they're doing and are making impactful films that are destroying these 'blockbuster films,' you can do okay, and everybody can get more of a piece of the pie. But you've got to be open and brave.
+- For me, music was a cathartic way to free me from the nut of Ghost. After working on set for 'Power' for 14 hours, it allowed me to pour my sanity and insanity into the music.
+- I'm a black Catholic raised in Decatur, Georgia, which was very gang-infested. Then, I went to an all-white private high school and excelled in sports and wrote poetry, then played football at the University of Georgia, minoring in drama.
+- I always have a backpack. I was a poet, so it reminds me of being a backpack poet.
+- I found poetry at 12 and 13 and, lo and behold, learned that my attorney father had a background in poetry - as he wore dashikis and Afros in the '70s and named his kids Arabic names. He was a poet and a lot like The Last Poets and Gil Scott-Heron and all of these folks. He definitely was an artist.
+- You don't go to church and tell the choir how to sing if you're a visitor.
+- When you start out on a project as an actor, you know, you approach the character from the standpoint of maybe writing a list - even if it's a mental list that you make - of the adjectives that the character has or that character possesses.
+- I worked on the workshop of 'Topdog/Underdog' before it went to Broadway. My minor in school was theater, so I'm based in that, and then I moved to Los Angeles.
+- Like anybody who grew up in the Eighties, I cringe at the thought of these movies being remade, because of the corniness and cheesiness of the originals.
+- You know how you can be romantic? You can be romantic by going to a beautiful setting, sitting on a park bench, and getting good ole-fashioned golden arches, a.k.a. McDonald's. That's probably the best I can do romantically.
+- What we have as artists is the immortalization opportunity that others don't have, because our work is lasting; it's there forever to view.
+- As an African-American male born with a couple of strikes against you because of your skin color, I think it's very, very important to have some positive role models around, especially male influences.
+- I always had an interest in telling stories.
+- I've definitely had my moments in relationships where I've been able to say yes, I have been heartbroken, my heart has been broken.
+- 'Dark Blue' was a really solid show, and it stopped at season two.
+- Craft is everything.
+- For me, I'm always looking for the opportunity for a character that challenges me and lets me play two for the price of one.
+- I always go into a character thinking, 'If it scares me, I can do it.'
+- I would honestly say I'm in the turtle's race. My journey is a marathon.
+- 'Power' is really such a good show that I forget I'm in it sometimes.
+- A powerful person is equally cool with their flaws and things that aren't powerful about them at all.
+- I'm such a carnivorous researcher as an actor - I chew it up like it's meat, and I really don't know how to do that without the people that are producing or creating or writing that which they want me to chew up.
+- I don't think you really have chemistry in the way that you want between two actors unless frustration is there as well.
+- I have very much been a guy who's acknowledged how many women have directed me, have produced... it's been unbelievable.
+- I was a 200-pound defensive back on Saturday, but after the season, I was performing 'Lysistrata' or 'Fences.'
+- For a long time, I had been very secretive about a lot of the things I'd been through personally, and a lot of that is purposeful. My fan base, for the large part, is the younger generation. They're like, 'I want to know everything! I want to know it all!'
+- When I think about the person who's been most in my ear, it's Joe Dumars.
+- People are fond of that 'crabs in a barrel' mentality, and I'm like, 'No, there needs to be more so we can create more barrels; there doesn't need to be one barrel.'
+- You know, I think anybody who has been in relationships has access to heartbreak - I don't think we have to go far to find it, whether we inflicted the heartbreak or whether we were the recipient of it.
+- The reality is our story and the way we love and our taste in clothing and everything else. And what we ambitiously feel we can be.
+- If I can just be thought of as Omari Hardwick who had a really, really solid career, and whose work is appreciated in its own right, I think that would be a great legacy to leave behind.
+- On 'Being Mary Jane,' I learned to embrace sex symbol.
+- Real to Reel is a rare opportunity for new filmmakers to screen their work for industry insiders.
+- I'm always like, 'Well, let's not rest on a critical acclaim or on a incredible review or on a great reception.'
+- Poetry is almost like my foundation for everything. I almost feel I am a better actor and writer because of it.
+- I'm really nerdy, and I read a lot.

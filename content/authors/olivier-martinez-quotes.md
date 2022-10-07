@@ -1,0 +1,48 @@
++++
+author = "Olivier Martinez"
+title = "Olivier Martinez Quotes"
+quotes_len = "42"
+description = "the best 42 Olivier Martinez Quotes"
++++
+- But when you work with the director and the real person who is playing opposite you, it changes everything. You are almost in a working session. I was very comfortable, and that's maybe what helped me to get the part.
+- I don't feel restricted by the language: I feel more free.
+- But what I really like are old Hollywood movies. Very often I watch AMC.
+- I really believe great actors, even with disease and age, can be great.
+- If you want to be happy, live discreetly. Does that make sense in English?
+- And what's more I've got no need for anyone to tell me how to do it. I am not interested. You act how you want to and leave me alone to do my own thing.
+- I was born and raised in a suburb of Paris by a working-class family.
+- The first time Adrian saw me was on tape. But you should know that this never works - never in the history of movies has someone been cast from a video.
+- I always say I was born too late in the world, too old.
+- It's nice to have some distance with your family. As long as you're closer to them by love.
+- I don't want to dig in the truth all of the time. Let me dream.
+- Otherwise, to be a movie star, it's a lot of compromise and also a lot of headaches. You can't do what you want. You become a prisoner of your fame. This happened to me in France and I don't want it.
+- Also, I have found that I really like to work in English. It's very strange because it's exactly the opposite of what I thought it would be like.
+- Before, I was so stupid. But, you know, when you have friends who died on the street, you say, okay, let's calm down. It's not the kind of energy I want to have in life. I want to go slower, and longer.
+- Love is based on imagination.
+- There are two smells that I can recognize right away. The smell of the boxing ring and the smell of a garage. That's where I grew up. I can recognize these places with my eyes closed.
+- My son will be an American, but I remain French.
+- Just being famous feels cheap to me.
+- It's not only imagination, it's the distortion of the vision. You suddenly think, This person is idealistic, this person is strong, this person has dreams, when you know better most of the time. You put what you want to see on people.
+- The longer you stand with people, the better it becomes.
+- I don't have goals in life.
+- Every morning, I can lose myself just by looking at my son.
+- My father was champion of North Africa and he beat the European champ. He was very good, a professional for 12 years. We're from a big family of boxers. My father has seven brothers.
+- I played a scene at the end of my first year, and that's how I was discovered.
+- I'm not a movie star like other actors in the way that I need to walk with a bodyguard.
+- And I think it is the genius of actors to be able to escape whatever people are expecting of them. Otherwise you become like a factory worker.
+- I want just to be happy and peaceful. And that's not always the case when you're married.
+- Sometimes you have to laugh about what gets published; sometimes it's annoying, but in general I don't care.
+- I see my friends, my family, my cousins work all day long for very little money, and if I have this problem of not being able to wall on the streets, it's not a big deal.
+- Imagination creates some big monsters.
+- I'm French - it's less important. Meaning, I remain a Frenchman in America, but I adapt to American culture. I feel good there - but I'm still a foreigner.
+- Who knows what happens tomorrow? We'll find it tomorrow.
+- If you compare me to an actor, I'm probably one of the best boxers in the profession. But if you compare me as a boxer, I'm probably one of the best actors.
+- It's like all the signs were telling me that I shouldn't be a boxer, so I quit.
+- I'll always be a foreigner.
+- The big difference with Juliette and the others in that film is that she goes beyond acting.
+- I wanted to become a champ - I was surrounded by champs in my family and in my neighborhood - and because of this stupid accident, I lost my opportunity.
+- I quit after a bad car accident. The thing about boxing is that you can be a star for five or six years, but when you go back to the old life, it's tough.
+- I like Brad Pitt; I just have nothing to do with him.
+- I never analyze why I was with one woman instead of another.
+- People sometimes recognize me here, but they are very nice.
+- In Hollywood, you can live alongside very famous but still incredibly boring people. I've never wanted to be immortal. Even if nobody remembers me after my death, it's still okay with me.

@@ -1,0 +1,13 @@
++++
+author = "William Dampier"
+title = "William Dampier Quotes"
+quotes_len = "7"
+description = "the best 7 William Dampier Quotes"
++++
+- Among the New Hollanders whom we were thus engaged with, there was one who by his appearance and carriage, as well in the morning as this afternoon, seemed to be the chief of them, and a kind of prince or captain among them.
+- While we were at work there came nine or 10 of the natives to a small hill a little way from us, and stood there menacing and threatening of us, and making a great noise. At last one of them came towards us, and the rest followed at a distance.
+- The 6th of August in the morning we saw an opening in the land and we ran into it, and anchored in 7 and a half fathom water, 2 miles from the shore, clean sand.
+- In the road ships must ride in 30, 40, or 50 fathom water, not above half a mile from the shore at farthest: and if there are many ships they must ride close one by another.
+- The world is apt to judge of everything by the success; and whoever has ill fortune will hardly be allowed a good name.
+- The island Mayo is generally barren, being dry, as I said; and the best of it is but a very indifferent soil.
+- I commonly went ashore every day, either upon business, or to recreate myself in the fields, which were very pleasant, and the more for a shower of rain now and then, that ushers in the wet season.

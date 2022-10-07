@@ -1,0 +1,41 @@
++++
+author = "George Clinton"
+title = "George Clinton Quotes"
+quotes_len = "35"
+description = "the best 35 George Clinton Quotes"
++++
+- Hip-hop is getting to the point now where they are going to start sounding like Al Jarreau or Bobby McFerrin or some of the other poets. Some of the better rappers can rap real fast without even melodies. It'll get to that same point.
+- If some people don't like funk music then it's just the wrong time for them. They will get it. It's addictive.
+- I always try to find the kids that's getting on your nerves - because your instinct let you know they pushing you out the way, you getting old. And you don't let that bother you, have fun! You ain't got to hang out with them, but you can work with them.
+- I'd bite off the Beatles, or anybody else. It's all one world, one planet and one groove. You're supposed to learn from each other, blend from each other, and it moves around like that.
+- Once you reach a certain age with radio stations, you've got to be an oldie but a goodie. If you wanna do something new, you've got to find a new way to present it to people.
+- Styles move too fast to be partial to anything. If it's funk, that's enough for me. I don't care how fast or slow it is. I got my grandkids up front rapping and doing the new thing. They're teaching each other, bringing us up to date.
+- I feel lucky and blessed that I got away with the things that I did do. But there's got to be an easier way to do that. I guess people have to go through whatever their time requires them to go through and if they can see it as inspiration, you know, fine. But I'm not taking no blame for it.
+- Once you get to 22 or 23, you're already old school. It's the bubblegum ones that buy records, have fun, party. You get older, you get sophisticated, and you don't go buy no records too much.
+- Style is whatever you want to do, if you can do it with confidence.
+- Even though I loved the Fifties doo-wop, you couldn't hold on to it. You had to change, or you was gon' be antique real quick, like the Ink Spots. And then we were at Motown and you had the Rolling Stones, simple rock & roll became the new thing.
+- I was at the Apollo Theater all the time, skipping school, and I worked in a barbershop. That's how I started with doo-wop. Now I've come full circle. I did all kinds of music. I used to work on Broadway and Tin Pan Alley.
+- So I usually call the songs when I get on the stage, according to what the crowd feels like to me. I can jump from 50 years ago to right up to now, and people will be familiar with the songs. And since we never do them the same way, it's a new experience.
+- Testify' went from a clean Motown song to straight psychedelic. Loud and feedback and people was loving it, because Motown was ending now.
+- I'm always surprised that I'm still around funk and that people are still into it.
+- And I always say, when Southern people get on the dance floor, they ain't getting off.
+- If you got maggots in your brain, everything you think is gonna be rotten.
+- I think a lot of people really have religious overtones of having come from somewhere. I mean, even the whole concept of religion is kind of alien.
+- Pay attention to them kids, don't let your feelings be hurt because they taking your place. They supposed to. But if you wanna stay around with them, you ain't got to copy 'em. Just get the ones that's real young, too young to even be copying yet, because you know they gonna be the next thing.
+- You stayed up on the record business by knowing who was doing what. You watched the Phil Spectors. That's what told you what to do, what was hot.
+- I pick up on styles, way before they get popular, pretty much before young kids do. I see 'em coming.
+- The Mothership is in the Smithsonian now. That's probably one of the biggest displays there.
+- Well, I try to be as funky as I need to get.
+- My mother gave me the discipline to follow my dreams. You know: you can do what you want as long as you put your back into it. Just keep ploughing away.
+- When I'm just tryna funk, it's gonna be the Staple Singers, man - Pop Staples. And Ray Charles. Ray could take 'Eleanor Rigby' and make that funky.
+- I save all the energy until I get on the stage and then I have a burst of energy and look like I've been jamming all day long. But other than that, I'm a granddad, great granddad.
+- I'm not worried about no charts or how long it's been out. Our records never go away.
+- A few people thought I was Bill Clinton, because of the name. I've never complained. Just the fact that you recognise me is enough. Even if you think I'm Chaka Khan.
+- You can rebel against everything adults say. When I want to find out what the new music is, I find out what parents hate.
+- The words I use too often are X-rated, something an old man like me shouldn't be talking about anyway.
+- Record companies would rather you stay dumb, not even think of it as a business, so they can either rip you off or get you out of the way in five years to make way for the new groups.
+- When I hear music that parents hate, or older musicians hate, I know that's the new music. When I hear older people saying, 'I hate Rap or Techno' I rush to it.
+- As you grow older, you learn to appreciate all the artistry. I'm actually on my way back to the blues, you know, that my mothers and fathers liked.
+- The whole history of music has turned out to be something perfect. It's all come around. The music we did with Funkadelic and Parliament was the DNA for hip-hop.
+- I came in after the Smokey Robinsons, Temptations, Clovers, and Clyde McPhatter and the Drifters. I came along at that level, when there was harmonizing.
+- The key to looking good in a cape is the way you take it off. You should look like those sword-fighting people, the Three Musketeers. Taking it off, swinging it, that's what makes it cool.

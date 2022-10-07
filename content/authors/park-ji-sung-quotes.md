@@ -1,0 +1,96 @@
++++
+author = "Park Ji-Sung"
+title = "Park Ji-Sung Quotes"
+quotes_len = "90"
+description = "the best 90 Park Ji-Sung Quotes"
++++
+- I am not worried about playing in front of a big crowd.
+- I don't know why I performed well against Arsenal, but probably we prepared well, and it could be their football style as well.
+- Throughout Manchester United's history, we always come up with answers to problems. Big stars come and go, but still, the team keep producing the same performances.
+- My father went to catch wild frogs. I was skinny and weak, and my father heard their juice would give me size and strength. It tasted very, very bad... but I had to drink it because I wanted to be a footballer, and everyone said I needed to be bigger and stronger.
+- I try to help the team to win, and my role is to run a lot and bring energy to the side. It's my job, so I have to do it.
+- I watched Hiddink and Ferguson at close quarters, and I realized that I am not a coach.
+- Many Asian players have seen they can play in Europe at a high level.
+- There are no easy games in the Premier League.
+- I don't want fame or to make money by appearing on TV, but I would not mind appearing on TV if it is related to what I am doing for football.
+- My priority is what the manager wants me to do.
+- North Korea and South Korea speak the same language, and actually, we are the same country.
+- In Korea, if a player doesn't play well, you would never criticise him, but in European countries fans criticise their own teams; sometimes they boo them off the pitch.
+- The likes of Wayne Rooney, Dimitar Berbatov, Michael Owen, and Ryan Giggs - I can see it live every day. I don't have to sit in front of a TV to study it.
+- All I can do is my best.
+- Mentally, you have to be strong, particularly in away games at the places where the fans are very passionate.
+- The best goal I have scored for the national team would be during the 2002 World Cup against Portugal. It was my first World Cup and my first goal in the World Cup. It was like a dream, and that's why it was so memorable.
+- It's not an easy game at Goodison Park - it's always difficult there.
+- Lee Chung-yong has been playing well and trying hard at Bolton and has grown in confidence. His improvement is valuable for the national team.
+- Marcus Rashford has done really well. He had a great first season, and then people had really high expectations, but he showed his quality on the pitch in the second season.
+- When I'm back in my country, it's like being David Beckham. But it's like that for David Beckham all over the world. It must be more difficult for him than for me.
+- A lot of the South Korean players are very interested in the Premier League. They ask questions about what life there is like, so I try to give them answers.
+- I have to stop rushing things. I have to be composed in my mind and slow things down. I think that will make me a better finisher.
+- The best coaches have strong charisma to motivate the whole team while managing the relationship with the media, which can be tense.
+- The manager wants to show his tactics, and if I do them perfectly, he'll pick me.
+- There is no question that Korean footballers have the ability to play in Europe. The real challenge is whether they will be able to adapt to western culture.
+- I thought the sports law sector would be boring, but it was unexpectedly interesting.
+- To mark Pirlo was not easy.
+- Although the Premier League is tough because players have good physiques and can switch swiftly in offense and defense, it can be overcome after adapting to the league for a few months.
+- I've had fans coming up to me and speaking Chinese or Japanese. It's not a case of mistaken nationality. I just don't think they realise that we don't all speak the same language.
+- I am very happy that I proved Asian players can deal with the high levels of European football.
+- After Sir Alex Ferguson, it's been a difficult time for Man United, but actually, many people know that after Sir Alex Ferguson, it would be difficult for Man United.
+- There is still a big gap between South America and Europe and Asia, and if we had more players playing in Europe, the gap would be smaller.
+- There aren't many Asian players in Europe or the Premier League, so that's more attention for me.
+- I have a lot of good memories, especially the days when I have lifted trophies. They are great feelings. That is why Manchester United players want to lift trophies again and again.
+- It always feels good to score goals against big teams.
+- I study the other players in training, particularly the forwards, and I look at how they are scoring goals. What do they do when they finish a chance?
+- Early goals make us more confident and energetic for the rest of the game.
+- Manchester United is the world's best club. There is no reason to move to any other team.
+- The biggest thing for Asian players to remember is the football style is different in Europe - as is the culture - so they have to accept that. Mentally, they need to be ready and very strong.
+- I'm looking forward to playing my part in keeping United at the top of the game.
+- It would be honour for me to keep playing for Manchester United.
+- Against Japan and any Asian teams, we've had good results, so I would say that history proves we are the best Asian team.
+- Football can make things different, and football can make change around the world. I hope football can do something for Korea.
+- I wanted to show that Asian players could make it in Europe. But it was far more important for me just to become a better player. That is why I came to Europe from Asia.
+- By training with some of the world's finest footballers and manager, I feel I have matured in all areas - mentally, physically, and technically.
+- It was a very difficult decision to leave United.
+- It doesn't matter how I'm asked to play, or if the football is good or bad: I like football when I'm on the pitch, not when I'm on the sidelines.
+- Europe is leading the world in the sport of football. I want to utilize my experience from Europe to support the development of football in Asian countries.
+- As Europe is more advanced in football administration, I would like to learn more there.
+- When I was with PSV Eindhoven in Holland, some people still thought Asian players weren't good enough to play in Europe. It's always good to rise to the challenge and prove them wrong. When I first came to United, I had to prove my ability again.
+- I want to show the world how good Korean players are by playing well in the top flight.
+- I need to improve my finishing. I need more goals.
+- Managers now don't just use 11 players; they have to care about all the squad of 25 or more players.
+- Once I became more famous, I was proud that people in Asia started to look towards me.
+- All the Asian people respect me and watch me. But I don't want people to think of me as an Asian player. I am just a football player.
+- Asian culture is that people are quite excited about the players.
+- I do not think of myself as a standard bearer for Asian players. I just try to work hard for myself.
+- I just want to be a normal person.
+- When I go home, it is quite difficult. Being at Manchester United means it is a huge thing, and when I walk down the street, most people recognize me.
+- We need more of our players to follow the trend and move to Europe, which is the biggest stage in world football, but we're not doing that, and that makes it difficult for us to compete with other countries.
+- The AFC Asian Cup is the most important and biggest competition in Asia, and we should do our best to win it.
+- My first goal is the World Cup, and then my second goal is to win the Asian Cup.
+- If you have luck on your side and are strong mentally, you can succeed in Europe.
+- I don't like to be famous.
+- If it is possible I want to finish my career at Manchester United.
+- In Korea, if a player makes a mistake, the other players don't like to point it out. Rather, they try to embrace it; they take the attitude, 'Let's do better next time.' But in the West, if you do something wrong, another player will make a point of saying something, and you will have to fix it immediately.
+- I just want to be good at soccer and have a normal life; it is a little ironic that you can't have both.
+- When I made up my mind for Manchester, I felt I had betrayed Hiddink. I knew he wanted me to go to Chelsea, so I found it difficult.
+- To become a good coach, it is important to be equipped with tactics and strategy. But first of all, you need to have strong leadership.
+- There's no truth at all that I would leave United - I want to stay here, and I have no reason to leave. I would like to stay here for life, of course - why not? It's the best club in the world.
+- When I am in Korea, I can't walk down the streets. But I don't want to be famous or popular; I just want to be a good player.
+- Always the Premier League has several clubs fighting for the title.
+- I have enjoyed every minute of my time at United.
+- It's unbelievable. I never thought I could play for United 200 times.
+- My reputation has increased, not just in Korea but across the continent.
+- When we had a good relationship between North Korea and South Korea, we always connected with sports.
+- I love playing for United and have lots of good memories from my time here.
+- We always try to keep going and stay concentrated. Early goals help that a lot.
+- It was funny because on the day that I joined the club, the newspaper that broke the news was one that people don't always trust or believe. Then, when I signed, and there were pictures of me and Sir Alex Ferguson, people believed it.
+- They are always open to come to South Korea and play, because we never reject North Korean athletes.
+- I don't like rehabilitating myself. It is one of the things I dislike.
+- It's quite difficult to explain, but I really enjoyed playing against Arsenal, and I'm really pleased that we had great results against them during my career.
+- The happiest moment was when I just played with a ball as a boy, carefree, without worrying about anything.
+- Asian fans chase me and shout; it is different in England.
+- Maybe one of my strengths was to bring the energy to the team, and then defensively, I contributed a lot compared to other players, which is quite essential for the big matches; you know, against big clubs, you need to be very cautious with opponents that attack.
+- Sometimes I miss playing football, but it's a past thing now.
+- Some players aren't able to show their ability in Europe, but some players can - I think the most important quality in the successful players is that they are mentally strong.
+- We have a long history with Japan. When South Korea play against Japan, the fans tell us that if we lose, they are going to throw the players into the sea.
+- Of my own career, I have many happy memories, but perhaps it - the 2010/11 season, where United broke the record for number of title wins - was the best. I was very satisfied with my performance that year.
+- At Old Trafford, we are not afraid of anyone.

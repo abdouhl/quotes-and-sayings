@@ -1,0 +1,99 @@
++++
+author = "David Ignatius"
+title = "David Ignatius Quotes"
+quotes_len = "93"
+description = "the best 93 David Ignatius Quotes"
++++
+- U.S. adversaries exploit power gaps. It's easier for Russia to invade Ukraine with irregular forces out of uniform, the so-called 'little green men,' than to send a conventional army that would challenge NATO.
+- This experience of getting so lost in my writing that I lose track of time, or of anything outside the imagined world, is a release for me.
+- The worm of paranoia begins to eat into even the hardest adversary.
+- If you want better behavior from bankers, then make their financial incentives more like those in the hedge-fund world - where managers have 'skin in the game,' and their net worth is tied to their long-term performance.
+- Movies have a way of distilling moments in our culture, and 'Gravity' may be the defining film for the lost-in-space year of 2013: Nothing works.
+- Real security will come when it's a moneymaker for private companies who want to satisfy public demand for an Internet that isn't crawling with bugs.
+- Sometimes good countries are so traumatized by events that they lose their bearings and embrace bad leaders.
+- Paradoxically, the United States' determination to protect its troops can be self-defeating. Allies and adversaries see U.S. forces living in secure compounds, eating fancy chow and minimizing their exposure to potential terrorist assaults.
+- Helping Wall Street regain confidence and stability was the last thing an angry public wanted in 2009 after the markets crashed. But without such support, markets can buckle and liquidity can disappear - often for decades, as has been the case in Japan.
+- The ISI is above all a paramilitary organization. It doesn't do all that much collection of intelligence. It's not a very good spy agency, but it's good at running covert action.
+- Intelligence services exist to do things that are illegal abroad. They exist to tell lies.
+- The nation's chronic weakness is its political system, which is nearing dysfunction. If the U.S. can elect better political leadership, it should be able to manage problems better than most competitors.
+- I began writing fiction because it was the only way to tell all the intricacies of a real-life spy story.
+- The world has changed, the CIA is having to change, and again, the challenge for someone like me as a spy novelist is to write realistically about where they're actually going.
+- If you want to hear arguments against deploying a big U.S. ground force in Syria, just ask a general.
+- Yes, Europe needs to be more welcoming, but that's only half of it. Muslims need to embrace the obligations of European residence and citizenship.
+- The attack on the U.S. Consulate in Benghazi has become a political football in the presidential campaign, with all the grandstanding and misinformation that entails.
+- As Obama prepares to begin the last year of his presidency, he stands in an unusual position on the national stage: He is the rationalist, a creature of intellect rather than emotion.
+- Europeans don't like to talk about intelligence, and they often pretend their countries don't spy.
+- The best restraint is old-fashioned market discipline, in which financial traders know that they, personally, will lose a ton of money if they take risky bets that don't pan out.
+- Panic is a natural human response to danger, but it's one that severely compounds the risk.
+- Empty political space will be filled by extremists unless the United States and its allies build strong local forces that can suppress terrorist groups and warlords both. When the U.S. creates such local forces, it must be persistent. If it withdraws from these efforts, as America did in Iraq in 2011, it invites mayhem.
+- The truth is, as you know, people like us look at what's happening in the world, and then we project it forward. We think, 'If I know A and B, then I've got to know that C and D are coming,' and that's kind of the way it's been with my fiction.
+- Journalists couldn't do their jobs overseas without taking risks, and the same is true for diplomats and intelligence officers.
+- The secret of any kind of reporting is to go with a guide. So if you, you're going to see Hezbollah in Beirut, you go with someone who knows the local people, and you'll be fine.
+- The European Union needs to reinvent its security system. It needs to break the stovepipes that prevent sharing information, enforcing borders and protecting citizens.
+- Making economic policy isn't a popularity contest, especially when financial markets are in a panic.
+- Things felt pretty crazy on earth in 1969, but the cosmos was friendly. Astronauts had round-trip tickets; they got home.
+- Images sometimes capture particular periods in history. The unreachable green light, beckoning from across the bay in 'The Great Gatsby,' has become a symbol of the yearning of America in the 1920s.
+- 2011 was a year in which events rarely turned out as predicted, and when much of the world seemed shrouded in turmoil and uncertainty. It was difficult for government analysts back in Washington to know just where they were on the map, let alone where they were heading.
+- This is a universal human dream - that brains, not brawn, will rule - and the fact that America has the world's finest institutions of higher education may be our greatest single national asset.
+- Sometimes James Bond movies drive me crazy. They're fun to watch, but they don't have anything to do at all with what intelligence officers really do.
+- American politics, like most things, is a story of what statisticians describe as the reversion to the mean.
+- 2011 is one of those years that historians are likely to look back on as a 'hinge.' And the truth, at once frightening and exhilarating, is that we don't know yet which way the door will swing.
+- Fear brings out the best in some people and the worst in others. It's a test of character, for individuals and nations.
+- During an economic crisis, what matters is that the government keeps its foot on the accelerator.
+- Machiavelli did believe that it was better to appear to be good than to be good. If you're good, you're just too vulnerable, but if you appear to be good, you get all the benefits plus you can be sneaky and, when necessary, stab someone in the back.
+- Experts say that Britain and France have strong spy agencies; Germany's is competent but afraid to level with its public; the rest are relatively weak, and there is no Europe-wide spy agency.
+- The Chinese are planning a manned mission to the moon sometime after 2020, and subsequently, to Mars. The U.S. has abandoned that dream.
+- When historians look at the Obama presidency, they're likely to credit him especially for doing the politically unpopular things that were needed in 2009 to salvage the financial wreckage.
+- The value of catastrophic events is that they can help people face up to problems that are otherwise impossible to address.
+- Saudi Arabia is a frightened monarchy. It's beset by Sunni extremists from the Islamic State and Shiite extremists backed by Iran.
+- What frustrates U.S. officials is that China sometimes seems more comfortable accommodating a strong United States, as it did in past decades, than partnering with an America that's less dominant.
+- A disaffected America can be drawn into a civilized - but disruptive - dialogue about political change and reformation.
+- We haven't usually had to face the extreme questions about liberty and order because we're not a nation of extremists. We love freedom and good government both.
+- Chinese experts noted that the U.S. economy has rebounded from the 2008 crash more strongly than some analysts here had expected, while China's own growth is slowing after several decades of rocket-ship acceleration.
+- I've tried, in 'Bloodmoney,' to tell a story that gets at the crazy relationship between the ISI and the CIA, these absolutely fascinating, often mutually destructive two scorpions in a bottle kind of relationship that they have.
+- It's easier for China to assert its maritime power by creating artificial islands in the South China Sea than by defying the U.S. Pacific Fleet with an aircraft carrier.
+- Russia is emerging as an essential diplomatic and security partner for the U.S. in Syria, despite the Obama administration's opposition to Moscow's support for President Bashar al-Assad.
+- We have a complicated intelligence relationship with France. We have a complicated intelligence relationship with other - with other allies.
+- European Muslims need to feel ownership of security, rather than viewing the police as an occupying army.
+- I'm as prone to 'declinism' as the next over-mortgaged middle-aged guy.
+- Training a reliable military force that adheres to Western norms and standards is the work of a generation, not a few months.
+- Bob Gates has unusual standing in the debate about the Obama administration's foreign policy: He was defense secretary for both a hawkish President George W. Bush and a wary President Obama. He understood Bush's desire to project power and Obama's skepticism.
+- Middle Eastern wars rarely end with outright victory and permanent stability, so the word 'settlement' may promise too much. At best, for many years, it may simply mean stable ceasefire lines, reduced bloodshed, fewer refugees, and less terrorism.
+- We're grappling with the same issue facing all advanced economies - how to revive growth and distribute its fruits more fairly. An America that can tackle that problem head-on can perhaps help revive a stagnant global economy.
+- Foreign policy is about the execution of ideas as much as their formulation.
+- The framers hated the tyranny of King George, but they were also afraid of the mob. That's why they put so many checks and balances into our system, to guard against the excesses of a government that might be inflamed by public passion or perverted by a dictator's whim.
+- Russia isn't likely to have any more military success in Syria and Iraq than has the United States.
+- Apple chief executive Tim Cook is such a respected figure that it's easy to overlook the basic problem with his argument about encryption: Cook is asserting that a private company and the interests of its customers should prevail over the public's interest as expressed by our courts.
+- Politicians need to rethink their reflexive invocations of the Second Amendment and the idea that the gun lobby is too powerful to challenge.
+- Make the financial industry pay for its mistakes. That's the idea behind the best of the Obama administration's reform proposals: If banks issue securities backed by mortgages, say, then require them to hold some of that paper so that they will bear some of the losses.
+- President Obama was right to ban torture, but the public must understand that this decision carries a potential cost in lost information. That's what makes it a moral choice.
+- As so many writers know, the experience of creating an imaginary world is closer to dreaming than it is to normal, grit-your-teeth work. It's preconscious rather than conscious. Ideas fall into your head, and the book writes you, rather than the other way around.
+- It's a genuine dilemma for governments, deciding how much information to share in this threat-filled era.
+- Frightened people want to protect themselves, sometimes without thinking about others. Often, they get angry and want to find someone to blame for catastrophe. Inevitably, they spread information without checking if it's true.
+- Big mistakes were made in Benghazi, and people should be held accountable. But the brave officers who staff American posts in crisis zones know how dangerous the work is.
+- The Founding Fathers' instructions were clear: The right to free speech includes bad speech; it means tolerance of ideas that many find obnoxious.
+- CIA officers aren't idiots. They knew they were heading into deep water - legally and morally - when they signed up for the interrogation program. That's part of the agency's ethos - doing the hard jobs that other departments prudently avoid.
+- Thanksgiving is America's favorite holiday because it's a time when we put aside our cares, much as the struggling Pilgrims did nearly four centuries ago, and eat a gut-busting meal without worrying about the 'out years.'
+- The American experiment has always depended on a measure of tolerance and good sense.
+- Hedge-fund managers make too much money relative to their social utility. I wish their rewards were a bit closer to those of, say, schoolteachers.
+- In a chaotic world, U.S. diplomats will probably have even less contact with the people they need to reach.
+- World War II provides a string of celebrated cases of deception and manipulation.
+- At the center of President Obama's strategy for dealing with the Islamic State is an empty space. It's supposed be filled by a 'Sunni ground force,' but after more than a year of effort, it's still not there. Unless this gap is filled, Obama's plan won't work.
+- If you walk into the front hallway of the CIA, you will see, on your left, a statue of William 'Wild Bill' Donovan. Bill Donovan was the person who created the OSS, the Office of Strategic Services, which was America's spy agency during World War II and then kind of morphed into what's now the CIA.
+- Politicians often call for sanctions as a way of sounding tough when they don't want to take riskier measures.
+- U.S. power flows from our unmatched military might, yes. But in a deeper way, it's a product of the dominance of the U.S. economy.
+- Gen. David Petraeus, commander of U.S. troops in Iraq, Afghanistan and at Centcom, is probably the most decorated officer of his generation.
+- Energy Secretary Ernest Moniz, arguably President Obama's best Cabinet appointment, has been leading a quiet revolution in clean-energy technology. Innovation is transforming this industry, costs are plummeting and entrepreneurs are devising radical new systems that create American jobs - in addition to protecting the planet.
+- Moscow and Washington have evolved a delicate process for 'de-confliction' in the tight Syrian airspace, where accidents or miscommunication could be disastrous.
+- Self-proclaimed saviors and other outliers come and go throughout our political history. Occasionally, they're successful; most times, they're not. But the system has rebalanced toward the basic principles of tolerance, freedom and democracy that were set forth by the Founders.
+- A world in which there are no secrets that can be protected at all is going to be a pretty dangerous world.
+- The CIA in real life, we know, is looking for new kinds of cover. It's looking for new platforms, as they like to say, and it's trying to use the revolution in communications technology, the ability to use all sorts of corporate entities in ways that are hard to detect to get our spies in the places where they need to be.
+- 'Cyber-security' is one of those hot topics that has launched a thousand seminars and strategy papers without producing much in the way of policy.
+- The surest way to empower the new terrorist gangs would be to withdraw from U.S. diplomatic missions.
+- The revival of the U.S. financial system after the crash of 2008 is arguably the Obama administration's biggest domestic policy success.
+- It's fashionable with the Sarah Palin set to attack Harvard and treat its graduates as elitists. But if you spend any time on campus, you see students drawn from all over the world - an astonishing number these days with roots in Asia - whose chief assets are brainpower and hard work.
+- Prominent scientists have become increasingly convinced that the connection between carbon emissions and rising temperatures is real, but skeptics have whole truckloads of studies to demonstrate the opposite.
+- Maybe it's the spy novelist in me looking for a future plot, but I hope the U.S. and its allies are thinking how to operate 'unconventionally' in Iraq and Syria in ways that undermine the Islamic State.
+- Enter the candidates on horseback: While military leaders can sometimes be dangerous in politics, our best generals and admirals embody the democratic values and leadership skills for which the country is yearning.
+- Donald Trump tests the limits of campaign speech. He makes false statements and refuses to correct them. He attacks other religions and ethnic groups, inflaming domestic tension and foreign terrorist rage.
+- My guess is that before Obama departs, he will adopt some of the more aggressive military options he has been resisting, such as 'safe zones' inside Syria and more aggressive deployment of U.S. special forces.

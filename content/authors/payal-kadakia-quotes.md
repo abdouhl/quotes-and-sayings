@@ -1,0 +1,105 @@
++++
+author = "Payal Kadakia"
+title = "Payal Kadakia Quotes"
+quotes_len = "99"
+description = "the best 99 Payal Kadakia Quotes"
++++
+- The impact we have on people's lives, to me, is more important than any title anyone can carry.
+- In a startup, there have to be challenges. Otherwise, someone else would have done it already. And that's almost the most exciting part.
+- I think I had a lot of people who were like, 'Payal, we love you, but product's not there,' or 'business is not there.' I never gave up, though.
+- The best thing I could do is build a successful company and continue to innovate and be in the right role I want to be in. If I'm not doing that, I'm inauthentic. That's not a good role model to anyone. That, to me, is the most important thing.
+- I work out once a day - it's built into my ethos.
+- Focus on your product. A lot of people focus on the name of their brand or the legal aspects, but it's more important to create your product. It's why people join. It's your vision. Without your product, nothing is going to happen.
+- I love barre because even when I'm not dancing, I feel like I'm training those same muscles.
+- No business is good when, on the last day of the month, you're like, 'What was the usage for the month?'
+- Surround yourself with people who only lift you higher.
+- Dance has always been the center of who I am. It has given me the inspiration to help other people find a hobby, passion, and activity that fulfills them. It also taught me some of the many skills I need as an entrepreneur: a hard work ethic that takes practice to master and the confidence to persevere through any challenges.
+- We're encouraged by the engagement on ClassPass and the tremendous growth we've had that shows we are fulfilling our mission of helping people live a more active life.
+- You need people to encourage you along the way, both during your success and failures, because there will be both.
+- Surround yourself with people who lift you higher.
+- The only way to do everything in your life is to find awesome people to lean on so you can focus your time.
+- I like to work out every single day. And it's about movement.
+- ClassPass, to me, is people are choosing a lifestyle to live; it's saying, 'Yes, I want to work out and live my healthiest happiest.'
+- I am anal about my Gmail calendar. It's my life. I put everything in there - my to-do list, or even if I want to do things.
+- When I was 5 years old, I saw people dancing in my head. In college, I would choreograph for the cultural shows, and in my notes, I would actually create formations of people. It was how my whole brain worked.
+- I think I learned to overcome some things in life through dance.
+- I thought, 'I have ideas. I'm creative.' I just didn't see why I should be pigeon-holing myself in the business world or staying in corporate America when I already knew that I was capable of taking risks.
+- Founders are exceptional, and they all want to go back to creating. And I feel privileged to be able to do that.
+- I think, as a founder and entrepreneur, you just keep hustling through it.
+- You can always change your branding or hire lawyers, but it's critical that you figure out if you have product market fit, and if you don't, figure out how to course-correct without getting stuck.
+- You need to find that thing that's going to get you through your day and that you're excited about. No day should ever be lived without feeling like it was a fulfilling day. You need to set yourself up for that.
+- I get bursts of creativity with bursts of physical activity.
+- I basically live in workout clothes.
+- Growing up as a South Asian-American, I didn't have any female role models.
+- I want to stay active. I want to find that mind-body connection every single day, and I want other people to have that because we spend our lives on our phones, at our desks. We're not thinking about our bodies and the mental connections we should be having, and those moments help us push through to live our best life.
+- I'm an artist in my heart.
+- I think, when I see entrepreneurs, they tend to talk about the market and the industry - which is obviously very important, but the most important thing is you're product. What are you selling? And does it really have product-market fit?
+- When it's time to recharge, I don't feel guilty about it.
+- I travel pretty frequently, but a few things that are routine are going for a run, getting my green tea in the morning, and checking email... well, all the time!
+- Failure is an amazing data point that tells you which direction not to go.
+- My assumption was that people are already motivated to go to a fitness class. That's who I am. I was already ready to go out there and get to class. All I needed was a search tool. But it turns out people need more than that, and that's why gym memberships exist.
+- I always say investors invest in lines, not dots.
+- Some people have that school of thought where fitness isn't enjoyable, but we're making it enjoyable, I think, by making it more fun, challenging, and engaging rather than this boring thing that you have to do. It's about using technology and data to change this experience.
+- I never feel bad. You can't feel bad - you have to just make the best decision you can at the time you're in and be like, 'That's the decision I believe in.'
+- As we've got more data, and ClassPass has grown, we've had to change rather than have a one-size fits all approach.
+- I set goals for myself every three months. I write them down.
+- We want you to find that thing that will make your life better.
+- I'm not going out there screaming, 'I'm CEO! I'm CEO!' That's not the way to do it.
+- If I exercise once or twice a day on vacation and don't want to wash my hair too often. I pack a lot of dry shampoo, like Amika's.
+- When something is aspirational, you don't want someone to be thinking about payment every single time.
+- Sometimes people go to a yoga class and think it's not for them, but it might just not be the right studio or teacher - try a new one!
+- When I dance, I go to a different side of who I am. I feel like I can solve a problem without knowing I'm solving one.
+- Every moment you wake up and you want to go for a run, or you want to take a class, you should be able to just go.
+- I remember going out to raise my Series A and ending up with multiple term sheets when I had gone to Silicon Valley probably four times at that point and coming back with nothing.
+- Working out is so mentally and physically important.
+- You make sure to set True Norths for your company. You can't be involved in every decision and every meeting; you have to make sure the mission is very built into the culture, the product, and how you communicate.
+- Every person is different and unique. I am a female. I'm Indian. I'm 4'11". People should never be defined by what they look like and sort of these demographical parts about them, but the most important thing is the work you do, so females are just as capable as doing that as males, and the same thing with any other person out there.
+- There are so many times when I think I don't have time to dance, but I force it into my life because I know it's so important.
+- It's really about if you do the work. Work hard; your results will speak for themselves.
+- I'm 4'11", but that doesn't matter if I'm showing conviction and confidence in what I'm doing.
+- I think it's so important to have a great support network when you feel like you can't - I would actually go and talk to the people who tell you that you can.
+- We want people to be active so you'll be happier and be more yourself.
+- If you love what you do, it's not work.
+- Allowing our staff to mix their life with work only makes them more productive and in love with the work that they're doing.
+- Any time you find yourself doing something out of obligation, that's a time you should start questioning whether you're spending your time wisely.
+- Sometimes females feel like they should act like men, but they should really just be themselves.
+- We're not trying to be Nike. It's about evolving into new products that are going to make people's lives better.
+- If you feel good, it doesn't matter what you're wearing.
+- What's crucial is to never get stuck. Making hard decisions is such an important part of being a startup in order to keep moving forward.
+- When I first started out, there were times I would dress or act in a way because I thought it was expected of me or that people would take me more seriously. But once I started leading in a way that was authentically me, that is when I really started to see success.
+- Without a story, people aren't going to connect to what you're telling, what you have a pain point about. It's so important for them to know why you've created the company, without that connection to the broader vision that you have - why are you going to do it? What are you going to accomplish?
+- I want our staff to be able to feel like themselves.
+- It's really lonely trying to build something by yourself. It's good to have thought partners to bounce ideas off of.
+- It's OK when something doesn't work. It gives you another data point when things do work.
+- I needed to build a product that got people back to working out.
+- Millennials are a bit more free-spirited, more able to go into new places, to feel more assertive and fearless about trying new things.
+- Being a dancer or athlete of any type teaches you the fundamentals of discipline... and the ability to know you can grow.
+- I love meeting our users and partners and talking to them about how ClassPass has made an impact.
+- Whenever people are trying to give you money, and you're like, 'No! Don't,' you have to stop and consider, what am I saying no to?
+- To me, I will be a stronger person if I'm moving forward, doing the work I want, and continue to drive: force the purpose that I want to create versus doing what other people think I should be doing, which is never a way to live.
+- I truly believe that everyone can be creative; you just need to find your form of expression.
+- The variety and flexibility of ClassPass is limitless, ensuring that you'll never get bored, and neither will your muscles.
+- I will always do what's best for the company.
+- The worst thing you can do is sit there and do nothing, right?
+- We never would have built ClassPass if I hadn't learned so much from the Classtivity experience.
+- As long as I'm building and doing what I want to do, that's the only thing that matters.
+- You have to learn to sell yourself. I think people forget they need to look at where else they've really performed in their life, where they've been in a place where they were confident.
+- Every day is quite unique, which is one of my favorite things!
+- We stipulate about where we need to be in life: By this age you should be married, by this age you should have kids. But it's not that you can only do this or only do that. It's really about creating a holistic life: about planning ahead and being efficient with your time and really listening to yourself.
+- I reason that as long as I'm smiling 90 percent of the time, I can handle the setbacks that occur 10 percent of the time.
+- Be true to yourself and surround yourself with positive, supportive people.
+- It's about knowing yourself and what you're good at. Females, males - anyone can be anything they want to be.
+- The more you practice something, the easier it'll become.
+- I want little girls to believe that they can be CEOs.
+- You can't replicate Seamless or OpenTable for another industry.
+- In running my own company, I was too busy for a while, and I thought, 'Maybe I'll stop dancing for a bit.' It was the worst decision ever. I just lost my creativity and my drive.
+- I believe you win the race by looking forward, not behind.
+- I remember, at MIT, we had to write an essay about something mathematical that you do in your extra time. I basically wrote about how dance, to me, was geometry: it was all shapes.
+- I work out once a day. When I'm in a massive dance show mode, I'll probably be active for about 20 hours each week.
+- Having challenges in your life open doors for you.
+- When I started fundraising like me and leading like me, that's when I really started to shine and find my own rhythm.
+- You need to keep having data points of progress, so even if an investor - and we've all had investors say no to us - there are times where you go back, and you keep them in the loop, and you keep telling them the progress and the perseverance you have.
+- You should wake up in the morning and say, 'What do I want to do today? What's going to make me happy?'
+- People saw more magic in me than I saw.
+- Movement inspires a lot in me.
+- I plan my time to a 'T.' I plan when I am going to sleep; I plan when I am going to relax. I obviously leave time to have spontaneous life experiences - I think that's really important. But so much of it is setting up you mental energy in the right way to get the most out of your day and time.

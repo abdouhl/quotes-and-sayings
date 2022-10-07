@@ -1,0 +1,106 @@
++++
+author = "Dustin Poirier"
+title = "Dustin Poirier Quotes"
+quotes_len = "100"
+description = "the best 100 Dustin Poirier Quotes"
++++
+- Grit, determination, the right amount of crazy, self belief - everything it takes to be a champion. I have that.
+- I have mouths to feed and I want big fights!
+- I'm not fighting just to fight. I'm fighting to be the world champ.
+- I feel like everybody's who fighting, young fighters and still learning and growing, that should be their goal - to be the UFC world champion.
+- Years and years ago, like in 2006, my wife, I didn't have a car, she would drive me to weigh-ins, we would sleep in broken-down motels and I would fight the next day. Just me and her.
+- I think I fought my first fight in Zuffa in 2010.
+- I've said it before, I'm not a matchmaker, I don't call the shots. I just prepare and fight the guys after I sign the contract.
+- My goal and path is always to get to the mountaintop and be a world champion, and leave a fighting legacy.
+- Just because I haven't fought wrestlers doesn't mean I'm not wrestling in every camp.
+- I feel like my wrestling and jiu-jitsu is so underrated.
+- You have to be tough. All these guys are tough. But at some point, you have to outsmart and outhink and outplan these top fighters.
+- Of course every fighter, whether they admit it or not, they have aches and pains and they go into fights hurt.
+- It's MMA. Anything can happen. Nothing's for sure.
+- This isn't a Toughman competition; you don't just fight everybody because they want to fight.
+- The way I feel, I'm the best in the world.
+- I was a born fighter before I got technical, and that's still in me.
+- I want the title. But these hands are working hands, and sometimes you've got to get them dirty.
+- I want to entertain the fans and put on great fights and have 'Fight of the Nights' and have exiting matchups, but at the same time I want to be the undisputed world champion.
+- No matter where I came from, I'm a fighter.
+- That grit of fighting is addictive, I'm scared of it. It's a very weird thing.
+- Those deep, dog fights - I love that. That's why I fight.
+- I've been the underdog my whole life.
+- I come from south Louisiana where everyone has a blue-collar work ethic.
+- I'm proud of everything I accomplished in this sport.
+- I'm not the same fighter I used to be.
+- I'm not a quitter, man. Just look at my history.
+- I feel like I've always been a great fighter but I'm learning the patience part of it and not getting overwhelmed with emotion and adrenaline and going out there and brawling like a maniac.
+- It's not hard to look great against a guy who isn't moving a lot.
+- If you're training for a fight, you're going to be pretty much, there's going to be days where you're hurting.
+- I really work hard to stay in great shape and make weight.
+- My goal is to prosper and be a world champion and make money and retire and say I did it.
+- If you move in and out, throw shots and use angles and the guy's feet are planted, you look a lot better.
+- I just want fights like that. Fights that get me excited. Fights that are going to be exciting.
+- I'm chasing gold. And whatever fight can get me closer to being a world champion, those are the fights that I want.
+- Fighting is what I do.
+- You can't just go in and say, 'I'm going to be tougher that you,' you know? Heavy bags are tough, but I've never been beat by one.
+- I don't see myself ever going up to 170.
+- You can't just be only going to the gym when you sign a fight contract or you'll just be the same fighter every time, just more experienced.
+- My father was a fighter. My grandfather was a fighter. It's just in my blood.
+- There's always the pressure to win. That never goes away, but being a main event, I want to go out there and put on a great show for the fans and live up to being a main event. That doesn't really stress me out or pressure me anymore. The fight is enough.
+- Normal pain is no problem, that just comes with the job.
+- This sport is a crazy thing, and what happens, it's unpredictable.
+- Fighting, you have to be selfish.
+- My whole career, the ups, the downs, the victories, the defeats, the lessons I've learned and kept rolling, that's what's made me the fighter I am today.
+- The cut made me hate the process of getting ready for a fight. I was focused on how to make weight instead of how to beat my opponent.
+- Of course, every time I get beat out there, I want to avenge those losses. I'm sure every fighter does.
+- I'm never going to go down to 145 again.
+- Fighting comes down to who you are as a person. With B.J. Penn, he has no problems, not a hard upbringing and came up with money or whatever and he's just a fighter, he enjoys the fight and he refined his skills so I don't think it necessarily has to be a rough upbringing for guys to be great fighters.
+- Cutting to featherweight took months of intense weight cutting and training. Going to lightweight, I can fight more often.
+- Yeah I do think featherweight is done for me. It sucks because I worked hard and fought a lot of hard fights and did a lot of things right to move up the rankings and I have to abandon all that moving to 155 starting fresh.
+- I'm not a small guy.
+- Win or lose or draw, you always go back and critique your performance and say you could have done things better. Even if I put the guy away in one round, I can go back and say I made a lot of mistakes and need to tighten up. But that's the type of person I am. Improve. Improve. Improve. When I lose I come back stronger than ever.
+- I've put it all on the line every time, win, lose, or draw, and that's what I want to be left behind in my legacy.
+- Korean Zombie beat me, and I was prepared that night. He beat me, he beat me that night.
+- I have a pretty high fight IQ.
+- I never took the easy route.
+- Any time Nate Diaz fights, I'm tuning in, I promise you.
+- People I grew up with, my family, work in the oil fields. Everyone works a labor job - construction, concrete. All we know is work. It's a physical culture.
+- I want to fight guys I'm excited to watch fight.
+- I don't usually talk crap about guys.
+- If I would have thought like fans think, I'd be broke and brain dead and fighting everybody every weekend.
+- I think a lot of fighters are cutting way too much weight.
+- This is a business. I'm a professional athlete. This isn't, 'poke somebody and start a street fight.'
+- I want to fight the fights that fans want to see.
+- Norman Parke needs to stay off of Twitter before he gets himself in a fight he can't win.
+- I've always fought the best guys.
+- I feel like I can submit Khabib, but feel like I'm going to stop him. I don't know how it's going to happen, but I'm either going to knock him out or I'm going to submit him. I'm going to finish Khabib Nurmagomedov.
+- I'm a complete fighter and I'm not scared, I'm very willing to use every part of the game to get the win by any means necessary.
+- I'm the kind of guy that grows, and that's what I do everyday in the gym. Work on new stuff and stay relevant.
+- Seven years is a long time, and seven years of fighting the best guys in the best organization in the world, the biggest organization in the world, it hardens you. You don't stay seven years without evolving. It doesn't happen.
+- I'm not a matchmaker, I don't know the logic behind the decisions they make.
+- I've never pulled out of a fight. I've never missed weight.
+- I want a rematch with Cub Swanson, I think I deserve to be 100 percent and fight.
+- I don't talk bad about people who I roll with.
+- I need to celebrate life because I'm in a good spot, I work hard, and I am happy with who I am and happy with what I do for a living, and sometimes I just focus and overwhelm myself so much with the fights and getting better, that I just need to slow it down and enjoy life and enjoy training.
+- The side of town, the side of Louisiana that I grew up on, there's a lot of poverty.
+- Nothing in my life was ever easy.
+- When your body quits on you, it doesn't matter how mentally tough you are.
+- Every fight is like a different landscape of what you go through. But sometimes it's small injuries. Sometimes it's lessons you walk away with. Every fight is different but they all hurt, for sure.
+- Now I'm with the American Top Team, I'm a better fighter, I'm a more patient fighter, I've improved in every aspect.
+- I'm not really chasing rematches.
+- When I'm in south Florida I'm training, resting, training. I'm working on my craft out here, very tediously. That's what I come out here for.
+- The champs are the guys who can do it the best, to lock it in for 25 minutes and do what they plan to do.
+- Adversity teaches a man a lot about himself.
+- Destiny doesn't make mistakes.
+- Everybody has their own path. Everybody peaks at different times.
+- I've just been in a lot of big fights, and I've been in some good spots and some bad spots.
+- I'm familiar with adversity.
+- I'm not a frontrunner. I'm a complete fighter.
+- If a champ has to take a long layoff then I think that's the only time interim titles should be introduced to the division.
+- I knew I had the ability to become a world champion, I knew I did. I knew I just needed the opportunity.
+- I try to work on the small things.
+- I don't want to have an asterisk next to my accomplishments for the rest of my life. I don't want everybody to say, 'interim champ' every time someone says Dustin was the champion.
+- They had to re-shape the head of my femur back round. They had to trim my hip socket up a little bit. I had a lot of extra bone growth just from years of stressing it out. Because of that bone growth, it caused an impingement in my hip, which tore my labrum off the bone.
+- I probably should have been fighting at 155 for a long time, but I was so close to the top at 145.
+- I want to fight for the real belt, not the interim title.
+- Every fight, every camp I learn about myself and I get better. But every fight I get better.
+- My dream is to be the best fighter at 155 pounds in the world.
+- Winning solves everything.
+- All weight cuts are hard.

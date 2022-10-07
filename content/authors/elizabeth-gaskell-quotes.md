@@ -1,0 +1,16 @@
++++
+author = "Elizabeth Gaskell"
+title = "Elizabeth Gaskell Quotes"
+quotes_len = "10"
+description = "the best 10 Elizabeth Gaskell Quotes"
++++
+- How easy it is to judge rightly after one sees what evil comes from judging wrongly!
+- My heart burnt within me with indignation and grief; we could think of nothing else. All night long we had only snatches of sleep, waking up perpetually to the sense of a great shock and grief. Every one is feeling the same. I never knew so universal a feeling.
+- I'll not listen to reason... reason always means what someone else has got to say.
+- A little credulity helps one on through life very smoothly.
+- Madam your wife and I didn't hit it off the only time I ever saw her. I won't say she was silly, but I think one of us was silly, and it wasn't me.
+- People may flatter themselves just as much by thinking that their faults are always present to other people's minds, as if they believe that the world is always contemplating their individual charms and virtues.
+- A wise parent humors the desire for independent action, so as to become the friend and advisor when his absolute rule shall cease.
+- Sometimes one likes foolish people for their folly, better than wise people for their wisdom.
+- The cloud never comes from the quarter of the horizon from which we watch for it.
+- To be sure a stepmother to a girl is a different thing to a second wife to a man!

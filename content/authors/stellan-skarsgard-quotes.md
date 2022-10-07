@@ -1,0 +1,120 @@
++++
+author = "Stellan Skarsgard"
+title = "Stellan Skarsgard Quotes"
+quotes_len = "114"
+description = "the best 114 Stellan Skarsgard Quotes"
++++
+- All directors have their strengths and weaknesses, as all actors have, and all artists. What you try to do is complete the relationship and take care of the stuff that the director won't take care of.
+- I've been offered a lot of police series, but I'm very good at staying away from them. They're usually based on such a boring formula.
+- I'm not always happy when Hollywood does remakes of films, but that's usually when they have a very, very, very good film, and they take away anything controversial from it and make flatter.
+- I am not only lucky to be an actor, but I am lucky to be one of the most privileged actors in the world because I can do all kinds of films and genres and everything.
+- For 'Avengers,' in the Albuquerque desert, we shot New York there. And I was standing on a platform, nine feet high... and it was the rooftop of a skyscraper in New York. And it was all desert around me!
+- When you work in Norway, you actually have to have a contract about lunches because Norwegians don't eat lunch normally, so they just throw out a loaf of bread and some coldcuts.
+- I am indeed a fan of John le Carre's novels.
+- If you look at Kirsten Dunst's performance in 'Melancholia,' which I think is absolutely wonderful - it's not even in the text, because she doesn't say much; it's all in her eyes. She doesn't have to explain what she's feeling. You just feel it.
+- I still live in Sweden. That's my base. When I'm not working, I'm there.
+- With Fincher, you can take chances and try things. And what happens is that any pretension and preparation you've done, all the square, intellectual work, you can't keep that up for 40 takes. It breaks down, and new things start popping up. This, for me, is the most exciting thing about film-making.
+- All directors are control freaks and very obsessive. I get the feeling that directors as kids, they all have had a childhood with not too much contact with other kids. They constructed their own reality and they continue to do it. It's a funny breed, directors.
+- I've made six films for Disney, and they have a clause in their contracts called the morality clause that I've always refused to sign.
+- I did a Norwegian film called 'Insomnia' that was remade and that was a good remake by a good director, so I'm honoured.
+- There's so many films made out of bad books, and I don't have time for those.
+- I am not a nationalist in any way, and I hate flag waving, and I don't think much good has come out of nationalism. I am proud of Scandinavia in the sense that we have actually managed to create a very tolerant and human society, which is very livable.
+- When I had kids, I became a better actor. I just stole from them.
+- I don't know if I am a good cook, but I am a dedicated cook.
+- I mean... mankind has for hundreds of years known that torture is not a very smart way to get information. It's horrible that we're going back to medieval times.
+- Even the most despicable person is still a human being.
+- A film doesn't exist until it meets its audience.
+- I wanted to be a man who travelled the world to make peace. I didn't realise that most diplomats are megaphones for their governments.
+- I like working with Kenneth Branagh.
+- The distribution systems and the cinemas have adopted to the blockbusters, and they now get their main income from selling popcorn, and if you don't make a film that sells popcorn, it's very hard to get it out there.
+- Of course, working with Halle Berry is fantastic. Every day, you're looking at a performance that you would be prepared to pay to watch. She's truly great and truthful, and it's a joy.
+- I don't do sports, really.
+- I'm almost sometimes too subtle in my acting.
+- When we did 'Breaking the Waves,' he had a sign on the wall that said, 'Make mistakes.'
+- Rupert Murdoch is in bed with Cameron. Of course they want to kill the BBC... anybody who is in the way.
+- You don't know why you fall in love.
+- I'm not a signing or dancing man.
+- Very often, it's the director that I'm attracted to. If it's a really good director, I don't even have to read the script to say yes.
+- Some actors are what I call more like mirror actors, which means that they do a performance at home in front of the mirror, and then they go deliver it. I'm not that type.
+- There will always be storytelling, whether it's on the big silver screen, or it's your television or your iPhone or whatever, people will keep on telling stories.
+- I wanted to get the opportunity to do what actresses do: play the inside of a person.
+- The way I look at humanity, I don't think there's good guys or bad guys. We're all potentially bad and potentially good.
+- I know how to cut meat, yeah. I know how to cook, basically.
+- The Sermon on the Mount is a very nice piece about being good, but most of the Bible is a very revengeful, childish, brutal God.
+- I reflect over my actions; I don't dwell on them.
+- My father used to stress that he valued us all as individuals, but that no one in the world was worth more or less than anyone else. This was a good principle to establish in a large family.
+- I can say yes to some directors without even reading a script. But the first-time directors I've worked with, the scripts have not been perfect, but they had something that I liked.
+- Norway is a small country, about half the size of Sweden, but it has a very good film climate because they have municipal cinemas, so even in the smallest towns you have a cinema that shows art house films from all over the world.
+- My parents were rather unconventional and did not accept rules unless they thought they were defendable. They were atheists when Sweden was a very Christian country.
+- Some directors are interested in acting, and others are only interested in cranes and moving the camera.
+- I think Dan Brown is a terribly bad writer, but he has cliff-hangers after every chapter which makes you continue reading.
+- There was a Russian director named Elem Klimov, who did his films during the communist days. They were constantly struggling with the authorities and to be allowed to express themselves. But he did one of the best war movies I've ever seen - it's called 'Come and See.'
+- Even if you're the President of the United States, you still act like a little child and think like a little child sometimes. Childish behavior is what I look for in all of my characters because that is what makes them human.
+- The countries where you have the most fear of immigrants are the countries where you have the least immigration.
+- I love having 30 shots of every scene.
+- I've got a lot of weaknesses. One of them is that I often get scared and tense when I'm working - and fear is one of the big threats to any good performance, because it closes you down and makes it harder for you to produce life in front of the camera.
+- I never help my kids and I never encourage them and I never give them any advice.
+- Man is such an amazing animal, and the possibilities are infinite for each person.
+- I've never thought of myself as a professional. I very rarely do something I don't enjoy.
+- I did a guest appearance on 'Entourage.' That was horrible, because I'm used to analysing the characters, working with all the details... and they said, 'No no no, walk and talk, walk and talk! It's energy energy energy!' - so it didn't quite suit me.
+- If you understand each other's way of thinking, you understand what kind of film someone is trying to make, and all the ideas that I come up with will fit into that film.
+- All male roles are written in a way where you just hide what's going on inside you, and all female roles are written in a way where they expose everything.
+- Kenneth Branagh is one of the funniest directors on the set. You laugh a lot. He's very skillful.
+- We have to know that the bad guys are not different from us in the world.
+- When Lars Von Trier calls me, I say yes without reading the script because often the script hasn't been written yet, and if Fincher called me again, I'd say yes without reading the script, too.
+- Any society that starts forbidding certain words or expressions is a society you should be wary about, whether it's the KGB or social consensus that enforces it.
+- Maybe there is something specifically Scandinavian that comes out of the long, dark winters - you have to learn to laugh at misery, in a way.
+- My life reads more like Proust than a tabloid.
+- Most of my acting in general is about what's going on in the head, and the lines are just something that comes out.
+- We were working under very harsh conditions on 'Zero Kelvin.' We were up there in the Arctic, closer to the North Pole than to a hospital. Sometimes you had to sleep in small Arctic tents with guns to protect yourself from polar bears and stuff.
+- I treat everyone as equals. I can't work if I'm not having fun, and I can't have fun if not everyone is happy.
+- Lars von Trier is a very good storyteller. He's like an H. C. Andersen for adults.
+- How many big American films do you see where the heroine has no vanity whatsoever?
+- I think I was 13 years old when my father put in my hands 'The Spy Who Came in from the Cold.' It was the first real adult book I ever read, and it opened a new world.
+- The first time I did a big American film, I was surprised by all the different financiers who came to the set and told the director what to do.
+- My preparation for roles are less about the character's profession than who they are, what their dreams are, and in what way are they childish.
+- In Europe, the director is the king: it's his vision. It's an auteur tradition.
+- You could probably ask anyone who loves Fincher films, and they couldn't answer why.
+- The ethical code of my upbringing was be good to people and try not to hurt them. You don't need a god to tell you that.
+- Shooting should not be about delivering something I've prepared; it should be a live process of finding things out. When things happen that you haven't planned, that's when the film comes alive.
+- You always have to figure out what the director is good at before you work with them; then you can fill in if need be.
+- I do believe in humanism, and I believe that we should treat each other with respect and care and look after each other. All human beings should have an equal chance to survive in society, and inequality is a big problem in society.
+- One of the beauties of 'The Girl with the Dragon Tattoo' is the very delicate and strange relationship between the two main characters.
+- The core to what makes Fincher really interesting - all the technique and all that, that is not in the center even if it's a big big part - what is in the center is the characters, and he really is interested in that.
+- It's fun to play characters with a past, but it's also fun to play any role that is what I would call a 'pressure cooker' kind of character, where the lid is on, and it's left to simmer throughout the movie.
+- Because of ignorance, I wasn't a big fan of Marvel. I hadn't read the magazines. They were not as big in Europe as they are in the United States. They're more a part of modern American mythology. I know more about the original Thor than the Marvel Thor.
+- I grew up in a family where you were allowed to say anything; you were allowed to show weakness... I have no problems talking about anything, basically. But at the same time, I know I'm different than a woman.
+- Norwegian kids, they grow up well educated in film. So they have a lot of good directors there.
+- I don't know - personally, I don't watch many films where the violence itself is the main entertainment, because I find them boring.
+- I said yes to 'Nymphomaniac' before it was written.
+- Casting a film, you can have the greatest actors in a film and it doesn't work. It's a combination of all of the elements.
+- I really enjoy being part of the Marvel Universe. It's a cool bunch of people to work with, and they know what they're doing.
+- When you work with someone you don't quite know, you have to figure the director out, and you can come up with ideas that are counter-productive.
+- It's not in the tradition: not even the schoolkids have hot lunches in Norway. They bring a couple of sandwiches from home.
+- It's good to pay high taxes - you have free schools, free universities. It's a much more decent society than those where everybody pays their own way, and some people don't get anything.
+- My performance is totally dependent on what the other actors are doing.
+- You learn a lot from kids.
+- I only did 'Thor' because it was Kenneth Branagh directing, but I enjoyed it much more than I thought I would.
+- I'm so full of useless information; I'm the kind of person that collects useless information. I like to know everything!
+- I go where I think I can enjoy myself. Sometimes it's on a big movie, and sometimes it's even on a silly movie.
+- The first time I saw Istvan Szabo's 'Mephisto,' I came out and I was in shock. I was shaking.
+- Everybody thinks I'm so serious and the dark side is very accessible to me, so of course it's a challenge to do something funny.
+- I played a heap of snow in a school play. I was under a sheet, and crawled out when spring came. I often say I'll never reach the same artistic level again.
+- If I ever lose a job because I've talked about being an atheist, then I don't want that job.
+- The biggest enemy of any actor is fear.
+- I was the eldest of five children, and although I never saw myself as any kind of leader, as the eldest, like it or not, you have some power inherent in that position.
+- I started acting as an amateur when I was a kid, but I wanted to become a diplomat. It was self-centered and weird, but I had this idea of going out in the world and solving conflicts and making the world a better place. But I kept on acting, and eventually, I just dropped out of school and continued acting.
+- I've worked with Lars von Trier on many films, and there's always a female character that's like an open wound - everything just pours out of this person.
+- The difference between an experienced director and a new director is not as big as the difference between individual directors, the temperament they have, and the things they're interested in.
+- It takes a long time to make me beautiful, but it goes fast to make me ugly.
+- When you have kids, you see what's important.
+- There is no overacting, only untrue acting.
+- It's a disease we have that we think that everything is explainable. It's a merchandising idea because you can sell explanations and cures for everything, but it doesn't work like that. It's very hard to understand everything.
+- The only respect you should have is the one you earn.
+- I don't feel ashamed or humiliated when I am naked, but I definitely feel it when I am playing games.
+- Acting is such a strange, vague profession, but my kids know it's hard labour.
+- I'm not lazy on set. I'm lazy in the rest of my life.
+- I'm in Stockholm in my office. I just got here after seeing my eighth child on an ultrasound, so I'm in a good mood. It's beautiful: an energetic little skeleton.
+- From my second son Gustav, I bought one of his complaints for 200 kroner. He was complaining that he was a middle child - he wasn't the beloved first child, and he wasn't the cute little youngest child. So I said, can I use that same wording in a film? And he said yeah. So I bought it from him.
+- People don't want to read subtitles.
+- Even with limited success as an actor, you usually have a more interesting life than in many other professions, so it's not an unreasonable choice.

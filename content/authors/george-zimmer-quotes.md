@@ -1,0 +1,12 @@
++++
+author = "George Zimmer"
+title = "George Zimmer Quotes"
+quotes_len = "6"
+description = "the best 6 George Zimmer Quotes"
++++
+- I never considered the clothing business in college. But my father was a manufacturer of men's wear in the Northeast and wanted to investigate manufacturing in Asia. In 1972 he sent me to Japan, Taiwan, and Hong Kong for four months. I'm convinced it was his way of getting me into business, rather than letting me be a hippie.
+- I believe in giving people a second chance.
+- We rent one in three tuxedos in the U.S. and Canada, and if we make a mistake, our employees will deliver to the customer's home, office, or wedding. We get a couple hundred letters a week praising the service in our stores.
+- Instead of fostering the kind of dialogue in the boardroom that has in part contributed to our success, the board has inappropriately chosen to silence my concerns through termination as an executive officer.
+- We opened the first Men's Wearhouse in Houston in August 1973, then a store a year for 10 years in Texas. In the early 1980s I opened a store in the San Francisco Bay Area. Within the year, the Texas economy was in total disarray. We were facing Chapter 11, and if not for the California store, we might not have survived.
+- In 1997, I was working with Greg Wilson of Red Ball Tiger, our ad agency at the time, when he came up with an addition to the famous slogan 'I guarantee it' that I was known for saying.

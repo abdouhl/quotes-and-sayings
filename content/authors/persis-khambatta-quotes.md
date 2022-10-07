@@ -1,0 +1,33 @@
++++
+author = "Persis Khambatta"
+title = "Persis Khambatta Quotes"
+quotes_len = "27"
+description = "the best 27 Persis Khambatta Quotes"
++++
+- After Star Trek, I was with the top agencies, but producers and directors did not know what to do with me.
+- I'm going down in history with Star Trek. It's a great feeling.
+- One thing about me, as far as my career is concerned, is that I'm very confident. I know I'm good.
+- I arrived in Hollywood and lived much of my life in America, but the fans did not really know me.
+- If I send out positive messages, it will set a chain of healthy thought processes.
+- Everybody told me to stay in Hollywood. This was the place they said I could have a big career. What they failed to mention was that no one would quite know what to do with me.
+- Every star, whether it's Harrison Ford or Robert De Niro, is remembered by one film. Persis is a star in the sky - how can a star be forgotten when all you have to do is look up and see her?
+- I was brought to Hollywood by Gene Roddenberry and Michael Eisner, chosen from 600 hopefuls to star in the original 'Star Trek' motion picture. The success of the film, coupled with the allure that I had shaved my head for the role, put a spotlight on me.
+- I mean, every Star Trek episode you saw was just phenomenal.
+- Gene Roddenberry was a genius.
+- Creative people are very insecure people because they don't know whether people like them or are in awe of them. That insecurity always comes out. It makes them a better actor, I feel.
+- We are all part of the same energy that envelops.
+- It's tough to make it as an actor, tougher still to make it as an actress - the Screen Actors Guild is eager to provide the statistics to verify the latter.
+- Having shaved my head for the role put a spotlight on me.
+- I know that nobody can become a star without a team.
+- Basically, they had asked me if I would shave my head or wear a bald cap. I said look, if you are doing a series for five years I would want to shave my hair because I would go bald with all the gum and glue from the bald cap.
+- If there is an exotic woman it's always a terrorist role.
+- I thought I was very pretty without hair. Naked, more honest somehow. No glamor, just bald old me. I seldom wore wigs or hats. But some people must have thought I was an exhibitionist or a religious fanatic.
+- I just have beautiful memories of what has happened in my life.
+- I only went to one Star Trek convention and that was in the late '80s. I hadn't gone to a convention before that. It was quite amusing, with the people dressed up and all of that.
+- I had a growing career as a model and an actress in London - I had starred opposite Michael Caine and Sidney Poitier in 'The Wilby Conspiracy' - but everyone told me to stay in Hollywood. This was the place, they said, and I could have a big career. What they failed to mention was that no one would quite know what to do with me.
+- I was thrilled, because I like the big screen and I could then move on to the next thing. It was the biggest break for me. In a way, though, I wish it had been a TV series because then you are working for five years.
+- Besides, a bald cap would have never looked real.
+- Maybe I'm being philosophical and spiritual, but I believe that if you put negative energy out there that that is what will come back.
+- I love America. I eagerly became a citizen. I have no bitterness toward those casting directors who dismissed me because of my accent, nor toward the producers and directors who wanted to cast me but thought the audience wouldn't accept my accent. I think they're selling their audience short.
+- I also had this artist friend who'd paint butterflies and things like that on my head.
+- I love what I do, and I'm not doing anything either for money or for the sake of some unfulfilled ambition.

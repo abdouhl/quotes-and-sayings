@@ -1,0 +1,21 @@
++++
+author = "George Jones"
+title = "George Jones Quotes"
+quotes_len = "15"
+description = "the best 15 George Jones Quotes"
++++
+- I miss all of my old friends who have passed away. Sometimes you just don't understand why they were taken so soon. I loved and miss Johnny Cash. I miss my old buddy Johnny Paycheck, who happens to be buried in an area of the cemetery that I bought for my family.
+- We'd just go to church and sing. My dad would get me and my sister Doris, and we would sing together. I sung the harmony, and my sister Doris took the lead.
+- There's nothing prettier in the world than a melody. I can get lost in a song with a melody. A lot of times I have, and the song wasn't that good, but I would get lost in that melody, and I'd want to do the song.
+- I tried to be a house painter, but I couldn't stand all that paint all over me.
+- Country fans need to support country music by buying albums and concert tickets for traditional artists or the music will just fade away. And that would be really sad.
+- I loved Roy Acuff with all my heart, and I never dreamed I'd be able to meet him or see him onstage, or especially become good friends with him. For all this to happen, it's hard to explain what a dream this is when you love something as much as I love traditional country music.
+- Roy Acuff was a big hero for me, and I was so sad when he passed. It's hard as you get older to lose your friends and family.
+- When you don't act right to your family and friends, that's bad, but they also have the opportunity to experience the 'good' side as well. Disappointing the fans is an entirely different thing because the fans love your music and save up money to see you in concert.
+- There were a lot of songs during my MCA years that I thought should have been singles but were not. You can't worry about what wasn't - I was very lucky to have as many hits as I had.
+- The only music we ever listened to out in the piney woods was Roy Acuff and the Grand Ole Opry. That was the only night of the week I was allowed to lay in the middle of the bed with Mama and Daddy, just long enough to hear Roy Acuff sing; then I had to go back to bed.
+- After the first couple of years recording, I did a lot of praying. I said, 'Lord, please give me a hit.' I want one so bad.
+- I just wanted to sing, in church or wherever.
+- There was no such thing as production at Starday. We'd go in with the band, we'd go over the song, I'd look over and tell the steel player to take a break or kick it off, and I'd get the fiddle to play a turnaround in the middle.
+- My mama loved me more than anybody ever did.
+- I was born in Saratoga, Texas, a little town there in the Big Thicket about 60 miles north of Beaumont. Needless to say, we were very, very poor, but we always managed to have enough to keep our bellies full.

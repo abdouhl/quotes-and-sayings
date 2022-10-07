@@ -1,0 +1,28 @@
++++
+author = "Dennis Muren"
+title = "Dennis Muren Quotes"
+quotes_len = "22"
+description = "the best 22 Dennis Muren Quotes"
++++
+- And it's very hard to do this stuff too because there are so many effects movies being done, so many companies busy doing this work and the public just wants to see it. Good work is being done all over the world.
+- Other times you can get showy for three minutes, and that's OK with certain films. But that isn't right with an Ang Lee movie, you have to fit right in. You have to understand Ang, respect him and be part of the team and not be in charge of it - he is in charge of it.
+- And then you start getting into the technical side of it and the aesthetic side and with those areas you can come up with new ways to visualise things, new ways to render and use the computer to make things look different and new and stuff like that.
+- I'm always reaching for something we really haven't done, and War of the Worlds has a lot of this sort of documentary look to it and first-person camera view that is a new thing for me. I've done some stuff like that before, but nothing like the extent of this and digitally.
+- It's harder for me to work on a Forrest Gump kind of movie, where everything is invisible.
+- And I also trust that there's more than one way to do something.
+- So much of it is the design of the shot or the motion of the character; it's the work you do so that it has the same things that are in the movie. In just a few frames it's got to communicate something clearly and dramatically.
+- Just going along with this, what I did, or what I do is I imagine not being myself seeing it, but imagine somebody else who's seeing it for the first time.
+- To me the biggest breakthrough was when we did Terminator 2 that just opened the door for Jurassic and all of the others and that was as big as when we did motion control on Star Wars. But I don't see another big thing coming.
+- Yes, if I had it my way I would do all the shots myself - I used to do that when I was just a cameraman, an operator - but there's no way; you can't do that anymore.
+- I've done enough of this that I can tell early on if it's going in the wrong direction or not.
+- You know a lot of what worked on this was taken from Harry Potter 2, the little Doby character, we had a lot of our skin stuff worked out and that helped a lot. We have a lot of exchange happening.
+- I see the tool set being the same and maybe doing virtual movies and that's fine for some stories but not for others. And maybe make all CG movies but they are already doing it.
+- I just focus on one show, when this is over then I'll start looking at what is coming up.
+- What you want to do is, you want to get away from people being afraid to show their work, which is the first thing, because they don't want to be shot down.
+- I think you've got to talk to the director, see the director's films and recognise that it's important that the work fits right in and see if as part of the movie.
+- I took business classes as a back up but I made movies all the time. I would get my classes done in two days and then spend the rest of the time making my movies.
+- Steven and I have worked together a lot and I'm far ahead of the curve than most people in knowing what he wants, but he knows far more than I know about what's important for the story. So, most of the changes he will make will involve story changes.
+- Everyone is trying to do something that hasn't been done and that's a really good thing. You can only do so much with a story and some scripts don't give you the opportunities and other scripts do give you the opportunities to do things that haven't been done before.
+- I have never had trouble with any actor being able to visualise things. They are amazing. As long as you have your monster head on a long stick, so you can hold it up there and you can wave it around and let them see it and explain it to them, they are just great.
+- Because you're telling a story, and I'm sure people fifty years ago would tell the same story differently if they were telling it to you today. Because the time is different. The film is the work of today's audience.
+- But you don't hire Ang Lee to do a typical children's movie. But it's such an interesting combination, whoever thought of getting Ang together with a comic book, that was just great.

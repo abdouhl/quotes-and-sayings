@@ -1,0 +1,75 @@
++++
+author = "Paul Rust"
+title = "Paul Rust Quotes"
+quotes_len = "69"
+description = "the best 69 Paul Rust Quotes"
++++
+- I grew up in Iowa, so I would go hunting. I took a hunter's safety course in eighth grade to get extra credit in school.
+- I would never turn down an invitation to co-write another Pee-wee Herman movie!
+- The thing that I get most excited about is that it does feel like a new realm of storytelling is being created before everybody's eyes. You can do something that's not exactly a movie and not exactly a TV show, something in between.
+- With Quentin Tarantino, he makes movies imagining himself as the audience. To be specific and true to what he wants resonates to people who like his movies.
+- I watched 'Freaks and Geeks,' and I was like, 'Oh, if you write about your own personal experiences, and if you're specific about it both in what happened and how you felt about it, it can make for scenes that are really compelling.' For the rest of college, I was basically ripping off 'Freaks and Geeks' with plays I wrote and stuff like that.
+- I grew up loving Pee-wee Herman. I was obsessed. I was the kid at school who everyone knew was obsessed with Pee-Wee.
+- The thing I always liked about 'Pee-wee's Big Adventure' was Pee-wee's, obviously, an oddball, but nobody in that universe points a finger at him and goes, 'Look at the weirdo!' I think that's why weirdo, arty kids like it so much: because it's sort of like a utopia.
+- If you watch most of the stuff on TV and in movies, it's usually put-down humor. It's like somebody being mean or cynical or thoughtless to another person. I never wanted to be that type of comedian.
+- Growing up in a small town, in the Midwest, and Catholic - those are sort of three layers of repression.
+- My sweet spot, the stuff I like the most, is hopeful melancholy. Optimistic melancholy.
+- Growing up in Iowa, there weren't many people who looked like me. And then when I moved out to L.A., every guy in comedy looked like me.
+- In your 20s, you're checking your bank account to make sure you're not broke. In your 30s, you're looking at yourself and realizing you're broken.
+- Me and my comedy writer friends talk a lot about how we love 'Die Hard,' but we'll never be able to write 'Die Hard.'
+- I was going to go to a midnight screening of 'Pee-wee's Big Adventure' in college, and it's the sort of thing where people dress up. So I got dressed up, and then I got lost. I was speeding, and a cop pulled me over while I was wearing a Pee-wee suit. That's a hard ticket to get out of.
+- At one point, I just decided that it might be more creatively rewarding to put my time into writing on stuff that I could really be proud of rather than trying to get a one-episode part on 'Modern Family' or something.
+- I gotta say, the Catholic Church has churned out a lot of great artists and directors and actors, so if that's all they do, that's fine by me. If they're good at churning out tortured artists, that's great!
+- Most relationships probably start with people going, 'Meh, it's probably best not to be embarking in this relationship.' We do it, though, because our brains are wired to make babies or whatever.
+- I think it's sort of rare in TV shows or movies to see people being vulnerable. That's sort of scary to an audience.
+- I don't believe in love at first sight.
+- Judd Apatow and Paul Reubens are two people who I'd be more than happy to learn from because I think they're geniuses at what they do.
+- It's funny; before I started writing professionally, I had a job logging video footage for behind-the-scenes footage for special features.
+- Being sincere and true to yourself is a scary thing but, ultimately, a rewarding one.
+- I remember watching Quentin Tarantino accept an Academy Award for screenwriting for 'Pulp Fiction.' If I'd known then that 15 years later one of his movies would again be nominated for an Oscar and I'd be in it - that would be pretty crazy.
+- I come from standup and improv.
+- In real life, there are some times where a partner has cheated on somebody, and that person never found out about it. I have to imagine that that's happened before. It's a thing we don't really want to think about, because it's maybe the most painful thing to think about in a relationship - 'What if I've been cheated on and never knew?'
+- Certainly on a date, I've been over-focused on, 'Is this person comfortable or not?' and then deciding for them that they are not comfortable and I will help them, which is death for a first date.
+- A lot of the time, a comedy script is just dialogue, and that's the main thing you have to worry about.
+- I love watching movies. That's, like, my favorite thing to do with friends.
+- I came of age right around the time that the sort of priced-to-own VHS world began, and so the movies that you really enjoyed, you were able to kind of watch as many times as you wanted.
+- The challenge in writing a show that's about people and their flaws is that it can easily tip over - okay, I'll sometimes watch something, and there will be characters that are written in a way that I'll know that the writer just hates human beings. They're expressing this misanthropic point of view with these detestable characters.
+- If I'm not emotionally stable, should I put myself in a relationship? Because wouldn't that mean that I'm just using it as a distraction from my problems?
+- I wrote on the fourth season of 'Arrested Development.'
+- It's a lot of people's goal to be the lead in a movie, and that was never my goal. I just wanted to be the third banana in an ensemble comedy.
+- I'm married now, but I fell in love with my wife because she was talented. Talent - it's the big one.
+- It made me proud to know I'd join a long gallery of actors covered in blood in movies.
+- It would be easy for someone to think growing up in a small town would be like 'Footloose' or something, that it would be, 'No dancing allowed!' all the time, but it was quite the opposite. People always got excited for me and my successes and supported me even though I was a little weirdo goofball.
+- I'm sure that it's a universal experience, but I wonder if it gets exacerbated more in Los Angeles, where people are constantly looking over at the other people, going, 'Why don't I have that? I want that. Their table looks warmer.'
+- In high school, I was crazy in love, and I would make handmade construction paper valentines every month for our monthly anniversaries. Then I'd go early in the morning and tape one to her car. It sounds sweet, but let's be honest: it was a little weird. I was probably crossing some lines.
+- The thing that I like about Pee-wee is it can exist on the level of midnight college cult movies that the hip kids are into and, at the same time, it could be something a kid and his family watch together. Being able to straddle both lines of being subversive and, at the same time, very inclusive - I love that about the character.
+- Scott Aukerman and Judd Apatow are two people who I owe a lot to, and it's always great to work with Scott whenever I can.
+- I remember doing this little physical gesture of holding up my foot and having my foot wave around while I held my ankle. It got a big laugh, and when people started laughing, it dumped some chemicals on my brain. It just felt so good.
+- I always liked the 'Mad Men' philosophy where people don't really change.
+- Some people have interpreted the title of the show - 'Love' - as ironic. For me, it's sincere. The idea that we have to agree with love is a genuine statement about love.
+- It's such a thrill in a relationship to be able to collaborate creatively. It's very romantic, and I like it.
+- With so much of what I write, I'm just constantly wondering out loud, 'Do other people feel this way?'
+- In real life, a relationship takes a long time. Either somebody is involved with somebody else, and that's ending, or somebody's hung up on an ex, or your job isn't going right, and so you're focused more on that than relationships. It just takes a lot for two people to get together.
+- It's tough - and I'm not the first person to say this - but cliches exist because they actually happen in real life.
+- The first three times we met, I don't think I remembered anything. I was just in this daze like, 'Oh my gosh, I'm sitting here with Paul Reubens.' And I kept almost calling him Pee-wee.
+- I try not to rely on pop culture references as a crutch for jokes, because then, I think, that's when the timelessness quality is lost.
+- I want to give every single character the dimensions and complexity of a main character.
+- It's been a challenge for me my whole life in that my insides don't necessarily match my outsides... People try to strike up a conversation with me about Dungeons & Dragons or comic books, and I'm like, 'I can't. I'm sorry.'
+- Things are constantly in flux and changing, and as crazy-making as that can be, it's also the thing that can get you through tough times - 'Well, things change.'
+- 'Cannonball Run II' - you watch that, and it looks like they're having a good time, but it's not necessarily a masterpiece.
+- I don't really like the term 'honest.'
+- Love takes a lot of work.
+- If you read scripts, you would see people rarely speak like that in real life, in complete sentences.
+- I want to be liked. Everybody wants to be liked.
+- My mom did this really cool thing: when 'Pulp Fiction' came out on video, she made, like, a 'mommy edit.' She took two VCRs and dubbed 'Pulp Fiction' from one tape to the next and edited out all the parts she thought were unsuitable for a kid. It was basically, like, the opening and ending credits.
+- I think the desire to be funny was a mixture of wanting to be liked but also wanting to throw your elbows a bit.
+- The Magic Castle is not a place that people know nationally, but as soon as you move to L.A., you hear people talk about it.
+- Every day, I thanked my lucky stars that I got to work with Gillian Jacobs, who is such an amazing actor and brings so much depth to everything that we do.
+- Conflict comes from a person's own actions, not what someone else does to them.
+- I'm not the first person to talk about this, but L.A. is just sort of a weird city because it's just a bunch of little towns put together under the umbrella of L.A. So people feel disconnected from each other and far apart, and in a relationship, that can also be a thing.
+- Probably around junior high, I became obsessed with films.
+- I was such a fan of Quentin's growing up. I remembered I wanted to see 'Pulp Fiction' so badly, but my mom had seen it, and even though she loved it, she just thought it wasn't appropriate for a 13-year-old.
+- I grew up in Le Mars, Iowa, and even though it's a great place to grow up and be raised as a kid, there wasn't a lot to do. It was fairly boring, and I think the way I either escaped the boredom or found a way to keep myself occupied was through movies and TV shows.
+- The first text I ever got was somebody breaking plans on a first date. That was, like, the worst way to be introduced to a new technology is with rejection.
+- I've noticed, as a comedy fan, that I really like Paul Thomas Anderson or Quentin Tarantino because when they're funny, they're actually funny. It's not like when other dramatic writers have comedy, and I'm just like, 'Well, that's not funny. Why are you even trying to make a joke here?'
+- Writing on 'Love' is so steeped in self-analysis. The writer's room can feel like therapy.

@@ -1,0 +1,57 @@
++++
+author = "Steve Nash"
+title = "Steve Nash Quotes"
+quotes_len = "51"
+description = "the best 51 Steve Nash Quotes"
++++
+- Whether it is with friends or family, I expect them to set a great example for me, and hopefully I will do the same for them. And that is all part of being a leader.
+- Anytime you play a finalist it's going to be a challenge.
+- I had role models in my community, guys that were older than me and played at university or on the national team. Eli Pasquale was always around UVic when I was a young player, and the national team was around Victoria a little bit, so I got to watch those guys and learn from them.
+- I know that to be a good player, you have to stay healthy, and you have to be as athletic as you can possibly be.
+- My free time at home is usually spent emailing, listening to music, reading and talking on the phone. I wish I was on the phone less, but I have been fortunate to stay in touch with so many incredible friends.
+- I hope my kids learn to put themselves first.
+- You know, once you have been through a certain amount of things in life, you definitely grow more comfortable with yourself.
+- I use a lot of balance training and functional training. Basically it's where you add an element of instability to a regular exercise. So whether it's on the physioball or the Bosu ball or just balancing on one leg, I try to incorporate an instable plane and/or movement to the exercise, so the body's doing two or more movements.
+- My best move is probably my pull up jump shot.
+- Play because it's fun, and not to become a pro. If your goal is to become pro, the best way to realize that is by loving what you do.
+- I want my kids to have passion for life, to really have a passion for life. I think when you have a passion for something, you can overcome obstacles, if you float through life without having anything to hold on to or get you fired up emotionally and to focus on, I think it's really hard to overcome things.
+- The NBA has the best point guards in the world, so it is important that I come ready to play every night.
+- I've always loved kids, but to have your own little munchkins is unlike anything else. It's the greatest form of love; it's challenging and scary, but so rewarding and exciting.
+- My best memories are because I was on teams I love - even going back to being a kid. Not just in the NBA.
+- I've always wanted to shoot a good percentage for my team, because I'm the point guard, and I can take fewer shots, still score more, so that I can get my teammates feeling good about themselves. That was always my feeling - that if I shoot a high percentage, I don't have to shoot a ton.
+- My parents are from north London, and so it's not like I'm some Yank who wants to make a profit out of football. I don't care about making money. I just want to see Spurs succeed and, if I can help, that's great.
+- You have to rely on your preparation. You got to really be passionate and try to prepare more than anyone else, and put yourself in a position to succeed, and when the moment comes you got to enjoy, relax, breathe and rely on your preparation so that you can perform and not be anxious or filled with doubt.
+- I used to collect hockey cards. It was like Vegas at my school. You'd go to school with your box of cards, and at recess and lunchtime there were all these games we'd play.
+- I don't care what other people say. I fight every day to be the best player I can.
+- The crowd gives us so much energy and we are able to really feed off of it. Hitting those shots and having the crowd go crazy helps boost our confidence. We love our fans.
+- I am a huge believer in giving back and helping out in the community and the world. Think globally, act locally I suppose. I believe that the measure of a person's life is the affect they have on others.
+- I've spent half my life in gyms, if not more, and I love physical fitness and health; couple that with the fact that I love for people to be healthy, whether it's mentally, physically, or emotionally, and it's just a great opportunity for me to do something I love and have an impact on people's health.
+- When you play with Kobe Bryant, the ball is gonna be with him most of the time, which is understandable.
+- Basketball isn't as popular in Canada as it is in the US. Hockey is by far the most popular sport in Canada.
+- Sometimes I'm very impatient. I also feel the need to please everyone, which is unnecessary and impossible.
+- Our centers spread the floor, shoot the three and block shots. We can play pick and pop.
+- I have to say I've worked very few days of my life. I used to have to cut the lawn, and when I was in junior high school, I worked at a concession stand at a stadium.
+- I'm really passionate about things I enjoy, and I like to be out there doing things, and learning and challenging myself. So it's just more fun that way, just to get out and try and do and learn and meet people and try to do something new.
+- You should be able to voice your opinion and respect the voice of the other side. You should be willing to educate yourself and know what it is you're dealing with.
+- In the preseason, in the month of October, I work out almost every day, lifting weights for 20 or 30 minutes, and then during the season I usually lift weights twice a week, sometimes a little more.
+- We were excited to win, staying undefeated is just the icing.
+- Once you have been through a certain amount of things in life, you definitely grow more comfortable with yourself. To persevere and hang in there and believe in yourself.
+- I have definitely gone through my ups and downs and faced my adversity and my nay-sayers, but managed to do all right. It is a pretty classic tale.
+- The fans in Dallas were hard on me my first year, but after having a great year last year they are now supporting me. It feels great to have my hard work pay off, especially when the fans made it hard for me.
+- I realize that although I'd like to make films as a career after I'm done playing, I really love basketball; I really love my career, an opportunity to compete every day and to push myself physically, mentally and emotionally.
+- What happened in the past is just that, the past. Champion or not.
+- My father was a soccer player. All my friends played basketball though, so I stuck with basketball.
+- It's important for us, if we're going to be a good team, to be a good defensive team in the fourth quarter.
+- Nothing is black-and-white, except for winning and losing, and maybe that's why people gravitate to that so much.
+- We've been playing ugly. Without all of our bodies, we've been kicking it all over the shop, but fortunately we've been able to make the big buckets and rely on our defense for once.
+- There are so many different ways to lead. The most important thing is to be genuine. To have people around you trust you, trust in what you stand for and who you are. And I think that if people watch you day in and day out and believe in your motives and they believe that you set a high standard for yourself.
+- I try to go with the flow, and I feel pretty comfortable with who I am. I feel courageous enough to go outside myself and try something new, like everything in life.
+- I've been lucky enough to play on NBA teams I really enjoy, teams where I've liked everybody and had fun, and had that college kind of experience with an NBA team. When you have that, and I don't know that everyone does, but when I've had it, that's what it's all about.
+- It's a strange one - I've been away for 20 years now; I've been away longer than I lived in Canada, but for some reason I remain wholly Canadian.
+- Leadership is possible in all different ways, and in all different areas of life. Whether it is with friends or family, I expect them to set a great example for me, and hopefully I will do the same for them. And that is all part of being a leader.
+- People have always doubted whether I was good enough to play this game at this level. I thought I was, and I thought I could be. What other people thought was really always irrelevant to me.
+- My ideal day would be to get a good work out in, listen to music, talk to my family and friends on the phone, read and go to a good movie.
+- I usually settle into a routine during the season where I shoot for about 15 or 20 minutes before and after practice, and then do the whole practice.
+- I think you can get too focused on the championship and forget how rewarding it is to be part of a team.
+- The playoffs are the playoffs. You just play who is put in front of you.
+- The person who's had the biggest impact on my career is Rick Celebrini, the physiotherapist.

@@ -1,0 +1,67 @@
++++
+author = "Elizabeth Wurtzel"
+title = "Elizabeth Wurtzel Quotes"
+quotes_len = "61"
+description = "the best 61 Elizabeth Wurtzel Quotes"
++++
+- People who think that Sylvia Plath was a poor, sensitive poet are not getting that she had great amounts of ambition and anger that moved her along, or she wouldn't have been able to fight against that depression to produce such an incredible body of work by the age of thirty.
+- There are some remarks that are so stupid that to be even vaguely aware of them is the intellectual equivalent of living next door to Chernobyl.
+- Because trying to see all sides, such an instinct is particularly Jewish.
+- As it is my good fortune to be American, I live in the only country that as a matter of policy is pro-Israel regardless of party allegiance; Democrats and Republicans equally unite behind the blue-and-white.
+- I am baffled by men. When they want me, I don't want them; when I want them, they don't want me.
+- I'll see Naomi Wolf on television periodically, I have nothing against her and what she says, but I'll feel that she's a politician, like she's got an agenda to get across and that she doesn't always say what's really true or exactly what she feels.
+- Feminism is a good venue for getting yourself across as much as for getting your point across.
+- I had a really hard time after 9/11. I was basically living across the street from the World Trade Center, and a big chunk of debris fell on top of my building, and the roof caved in. I thought I was going to die. Really. I'd never thought that before, but on that day I sat there and thought 'I cannot believe it's going to end this way.'
+- Age is a terrible avenger. The lessons of life give you so much to work with, but by the time you've got all this great wisdom, you don't get to be young anymore.
+- My imagination, my ability to understand the way love and people grow over time, how passion can surprise and renew, utterly failed me.
+- I was meant to date the captain of the football team, I was going to be on a romantic excursion every Saturday night, I was destined to be collecting corsages from every boy in town before prom, accepting such floral offerings like competing sacrifices to a Delphic goddess.
+- I've calmed down. Looking back, I was engaged more in dramas than I was in relationships. I've spent a lot of my life being in it for the plot, and I don't do that anymore. I'm satisfied. I'm not competing with myself. I accomplished things I wanted to do, so everything I do now is because I want to, not because I'm trying to prove something.
+- Yes, the United States is still the great meritocracy it's always been; but now, if you aren't brilliant or beautiful or both, there isn't much to do, because they can do it cheaper in Shanghai or Mumbai.
+- I am not a nostalgic person.
+- I admire Bruce Springsteen because he's a heroic person who has lots of integrity and has this incredible body of work that is so vital.
+- I am fortunate to have been well paid for an almost pathological honesty.
+- Judaism will be enmeshed in pride and shame for as long as it endures. But to endure as a country, Israel must shun both these tendencies.
+- I wish I were shyly, quietly intriguing, like Jacqueline Bouvier Kennedy, like someone French and fashionable who knows how to twirl her ladylike locks just so and walk adroitly on kitten heels, who is all gesture and whisper - but I am unfortunately forward and forthright: When I am interested in a man, he absolutely knows it.
+- It's like Samson and Delilah: watch your back, because trouble could be the person you're sleeping with.
+- Why does the rest of the world put up with the hypocrisy, the need to put a happy face on sorrow, the need to keep on keeping on?... I don't know the answer, I know only that I can't.
+- I am a hopeless, shameless flirt.
+- Bruce Springsteen really got any creative person's dream career, and his good-heartedness and good-spiritedness are part of it: both because it made the people behind the scenes want to do their jobs that much better, but it also means that he connects with an audience in a way that holds them close.
+- I made 'Prozac Nation' necessary reading because I write necessarily. I tell my story because it is about everyone else: in 1993, people took pills to relieve the pain just like they do now, but it scared them; it doesn't any more, because talk is not cheap at all - it is tender.
+- Everything's plastic, we're all gonna die.
+- Women who have it all should try having nothing: I have no husband, no children, no real estate, no stocks, no bonds, no investments, no 401(k), no CDs, no IRAs, no emergency fund - I don't even have a savings account. It's not that I have not planned for the future; I have not planned for the present.
+- The truth is that I'd always wanted to go to law school.
+- Israel fights back, which is very much at odds with the Jewish instinct to discuss and deconstruct everything until action itself seems senseless.
+- You don't even have to hate to have a perfectly miserable time.
+- I thought depression was the part of my character that made me worthwhile. I thought so little of myself, felt that I had such scant offerings to give to the world, that the one thing that justified my existence at all was my agony.
+- I have had the same friends since college, although as time has gone on, the daily nature of those relationships has changed, such that it is not daily at all.
+- I don't want any more vicissitudes, I don't want any more of this try, try again stuff. I just want out. I've had it. I am so tired. I am twenty and I am already exhausted.
+- Am I worried people will say I'm repeating myself? Sure. One thought I had was to publish it as a novel but eventually I just decided to do what I wanted to do.
+- That's the thing about depression: A human being can survive almost anything, as long as she sees the end in sight. But depression is so insidious, and it compounds daily, that it's impossible to ever see the end. The fog is like a cage without a key.
+- By never marrying, I ended up never divorcing, but I also failed to accumulate that brocade of civility and padlock of security - kids you do or don't want, Tiffany silver you never use - that makes life complete.
+- I always carry lots of stuff with me wherever I roam, always weighted down with books, with cassettes, with pens and paper, just in case I get the urge to sit down somewhere, and oh, I don't know, read something or write my masterpiece.
+- I did not have a mobile phone in 1993. No one did, except the occasional banker or Hollywood star seeming smart, or the main character in 'American Psycho.' In 1993, every day was 'let's get lost.' I could walk Greenwich Village for hours and not be found.
+- I always knew I was a writer. And I always thought to myself, 'Well, why not me?' Someone has to be on the best-seller list, 'Why not me?' Someone has to write for the 'New Yorker,' 'Why not me?' And I didn't really get much positive reinforcement as a kid, so I thought, 'Well let me show you what I can do.'
+- The American Dream, coupled with government subsidies of utilities and cheap consumer goods courtesy of slave labour somewhere else, has kept the poor huddled masses from rising up.
+- Insanity is knowing that what you're doing is completely idiotic, but still, somehow, you just can't stop it.
+- The men have piled up in my past, have fallen trenchantly through my life, like an avalanche that doesn't mean to kill but is going to bury me alive just the same.
+- Like, in high school, I was a good student and got straight As. It was very strict and you couldn't do well there unless you studied very hard, but every time there was any trouble, I was the first person they would be talking to.
+- Like everyone, I was a huge fan of David Boies, and from what I knew about him, I thought he might 'get' me. So I sent him an email. I said I want to practice law but that I didn't want to stop writing and I asked if there was any way I could practice law for him.
+- In a strange way, I had fallen in love with my depression.
+- I used to feel that I spent too much of my time in my pajamas doing nothing, and I'd think 'in the time that I don't spend writing, I could raise a family of five.' In a lot of ways, being a writer is lonely and alienating.
+- I'm a huge Springsteen fan, and yet if either he or Bob Dylan had to be erased from the world's hard drive, I would save Bob Dylan's work for sure - he's the greater talent, and by leaps and bounds and skyscrapers and rocket blasts. But Bob Dylan is an alien to his public.
+- Convention serves a purpose: It gives life meaning, and without it, one is in a constant existential crisis. If you don't have the imposition of family to remind you of what is at stake, something else will.
+- In life, single women are the most vulnerable adults. In movies, they are given imaginary power.
+- I don't know what to do if I am not inspiring some sort of false fascination.
+- Sometimes I think that I was forced to withdraw into depression because it was the only rightful protest I could throw in the face of a world that said it was alright for people to come and go as they please, that there were simply no real obligations left.
+- I believe women who are supported by men are prostitutes; that is that, and I am heartbroken to live through a time where Wall Street money means these women are not treated with due disdain.
+- Everything good takes a great amount of effort. Like, things went wrong with 'Prozac Nation' so much, and it went through so many rejections and incarnations, but I felt so much that it needed to exist. But if I hadn't been so persistent and insistent, it wouldn't have happened.
+- It was just very interesting to me that certain types of women inspire people's imagination, and all of them were very difficult women.
+- I am motivated to write because it is what I am meant to do. It is not a choice - it is what I am. I did not choose writing - it chose me. And I believe it is necessarily that way. Anyone doing this for some other reason should not be.
+- Some people just seem like they are up to no good. Like, in high school, I was a good student and got straight As. It was very strict, and you couldn't do well there unless you studied very hard, but every time there was any trouble, I was the first person they would be talking to.
+- Sometimes I wish that there were a way to let people know that just because I live in a world without rules, and in a life that is lawless, doesn't mean that it doesn't hurt so bad the morning after.
+- My life's actually been quite dull; it's not all that glamorous.
+- All I do is go to the movies.
+- I'd really like to write a book about Timothy McVeigh, but it would only work if he cooperated.
+- I start to think there really is no cure for depression, that happiness is an ongoing battle, and I wonder if it isn't one I'll have to fight for as long as I live. I wonder if it's worth it.
+- I start to feel like I can't maintain the facade any longer, that I may just start to show through. And I wish I knew what was wrong. Maybe something about how stupid my whole life is.
+- If you want to see that human story unfold, if you want to understand that only the unexpected life is worth a damn, spend some time with 46 years of Lou Reed's work: music that leaped and then looked. Safety is for the godless and the faithless.

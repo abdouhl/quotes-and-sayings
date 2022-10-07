@@ -1,0 +1,33 @@
++++
+author = "David Remnick"
+title = "David Remnick Quotes"
+quotes_len = "27"
+description = "the best 27 David Remnick Quotes"
++++
+- Clearly independent journalists - domestic journalists - run a high risk if they dare to take on serious investigative work.
+- I'm a civilian, a citizen.
+- I think dealing with the U.S. Senate is very different from dealing with the electorate.
+- There is no single field of activity, not a single institution, free of the most brutal sort of corruption. Russia has bred a world-class mafia.
+- If the story is good enough, if it's imaginative enough, if it's moving enough it is going to reach deeper than the level of sheer information and change somebody's life two degrees. That is an enormous achievement.
+- I understand the difference between journalism and scholarship that comes 20 years later.
+- The Cold War was wildly expensive and consumed the entire globe.
+- 98% of the people who get the magazine say they read the cartoons first - and the other 2% are lying.
+- Not all political prisoners are innocents.
+- I'm a journalist - I'm not Robert Caro. I have a day job, and a pretty consuming one - a joyfully consuming one.
+- I left Gorbachev's office thinking that everything about him was outsized: his achievements, his mistakes, and, now, his vanity and bitterness.
+- I'm interested in Russian language, culture, history... and I lived there, for four years, as a reporter for the Washington Post and have visited many times since.
+- The world is a crazy, beautiful, ugly complicated place, and it keeps moving on from crisis to strangeness to beauty to weirdness to tragedy. The caravan keeps moving on, and the job of the longform writer or filmmaker or radio broadcaster is to stop - is to pause - and when the caravan goes away, that's when this stuff comes.
+- Nature is cold, wet, hard and unforgiving.
+- Most magazines have peak moments. They live on, they do just okay, or they die. 'The New Yorker' has had a very different kind of existence.
+- I'm not the slowest writer that you know.
+- To some extent, the mainstream's absence means the Tea Party is the Republican Party.
+- I actually have great hopes for the future.
+- Very rarely is there a spike in news-stand sales.
+- Capitalism in Russia has spawned far more Al Capones than Henry Fords.
+- Russian is such a tough and complex language that I am happy enough to understand everything and read most things pretty well, but, without constant practice, my speech is not what I wish it was, and I would sooner write in crayon than write a letter in Russian.
+- You know what writers say about their long books: If I had another year, the book would be half as long.
+- I have to always remember, writing is really hard.
+- Everybody has a cartoon of themselves. Mine is: I write very fast, and I'm ruthlessly efficient with my time.
+- My time as editor has been overlapped by a crisis - a prolonged, labyrinthine, tragic, seemingly non-ending crisis - that involves the prehistory of 9/11, 9/11, Iraq, Afghanistan, fraught histories between the United States and almost everyone.
+- Reform is not a period of retreat.
+- A.J. Liebling, one of my heroes, used to say that he could write better than anyone who wrote faster, and faster than anyone who could write better. I'm one nine-hundredth as good as Liebling, but that principle may slightly apply.

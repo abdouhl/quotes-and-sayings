@@ -1,0 +1,16 @@
++++
+author = "Dick Ebersol"
+title = "Dick Ebersol Quotes"
+quotes_len = "10"
+description = "the best 10 Dick Ebersol Quotes"
++++
+- She says that I wore some pretty sexy leather pants to that first meeting, but I don't remember.
+- The definition of winning has become distorted. If winning the rights to a property brings with it hundreds of millions of dollars in losses, what have you won? When faced with the prospect of heavy financial losses, we have consistently walked away and have done so again.
+- If there's anything that is the center of my career both creatively and emotionally, it's the Olympics.
+- I live more than anything else to produce the Games.
+- I was never really a big presence in the home.
+- The second host that I had was an actress I didn't know named Susan St. James.
+- The Olympics were produced absolutely the same way from 1960 through 1988. It was always the Western World against the Eastern Bloc. You didn't even have to spend one second developing the character of any of the Eastern Bloc athletes. It was just good guys and bad guys.
+- Out all of these zillions of letters, one of the first ones that came was, as it turned out from Johnny Carson within the last five or six weeks of his life. I had worked with him. He lost a son who had worked for me.
+- I will never be cynical again about people.
+- You want to do Olympics just like you do a pro football game or a basketball game? Be my guest. Watch it all fade away.

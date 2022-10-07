@@ -1,0 +1,30 @@
++++
+author = "Stephen Graham"
+title = "Stephen Graham Quotes"
+quotes_len = "24"
+description = "the best 24 Stephen Graham Quotes"
++++
+- I'm drawn to dramas that make people think. I want to make an impact.
+- If I get the walk of a character, that helps me find them. So I'm constantly looking at airports and train stations, registering walks.
+- I did 'Gangs of New York' with Martin Scorsese, and they used to call me 'Little Joe Pesci' on the set.
+- There has to be something that I like about a character for me to be able to play him.
+- I'm great at telling stories with the kids. I do all my different accents. We make our own stories up all the time, the four of us, me and Hannah and the kids.
+- Rudeness makes me very angry.
+- I like how TV used to be - 'Boys from the Blackstuff' and 'Play for Today', instead of 'Stars in Your Eyes' and 'Celebrity Come Cook With Me' or whatever. I hate all that stuff.
+- I'm a mixed race lad from Liverpool. I get to play a lot of hard characters, and some people perceive that's what I'm like, but it's great for me 'cos they're always the most interesting characters.
+- I'm more of a shirt, jeans and trainers man, and I'll never stop that.
+- I always try and keep a jacket from everything I do. I've still got my original coat from 'Snatch' and my jacket from 'This Is England'.
+- I work to live, not live to work, so my head's at home, not in some showbiz life.
+- I like time ticking the way it is.
+- People in New York are surprised when I open my mouth.
+- I adore my job. I think I'm one of the luckiest people out there. I've worked hard, but I get to mess about every day - that's how I see it.
+- There are moments when you're stepping out of a really nice car on to a red carpet, and you feel inside like, 'This is quite nice,' but I'm never whisked off my feet.
+- I don't need to move to the States; I love our little village, Ibstock.
+- I've become very close with Tom Hardy. I love Tom to bits.
+- I wouldn't rule out L.A. life, but I love England. I have a lovely house and nice garden, I walk my kids to school - family is most important to me.
+- I was going to become a youth worker because I do voluntary work with the kids in the little village where I live. I make little films with them and stuff when I'm not working. I thought, I'll pack it in then, and go and do something I love doing, and get a regular job because I've got two kids and a mortgage.
+- Mum and Dad always wanted me to do whatever I was happy doing. I nearly went to art college at 16, but decided to do a BTEC in performing arts.
+- I love my creature comforts.
+- When I was 27, I didn't have a clue what was going on! At that age, to have that much power and to have that much ambition is something.
+- There are always certain things that you tap into, your own personal experiences, and I try to base my characters on someone I know or someone I've seen.
+- I was 10, and I played Jim Hawkins in 'Treasure Island' at school, and this great Liverpudlian actor called Andrew Schofield - he was Johnny Rotten in 'Sid And Nancy' - came to watch it, and he had a word with my mum and dad afterwards and told them I should have a go at the Everyman youth theatre. I've never looked back.

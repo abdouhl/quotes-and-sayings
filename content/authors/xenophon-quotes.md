@@ -1,0 +1,31 @@
++++
+author = "Xenophon"
+title = "Xenophon Quotes"
+quotes_len = "25"
+description = "the best 25 Xenophon Quotes"
++++
+- You know that neither numbers nor strength give the victory, but that side which, with the assistance of the gods, attacks with the greatest resolution is generally irresistible.
+- You see, O Greeks! The enemy already acknowledge the country to be ours; for when they made peace with us, they stipulated that we should not burn the country belonging to the king, and now they set fire to it themselves, as if they looked upon it no longer as their own.
+- A horse is a thing of beauty... none will tire of looking at him as long as he displays himself in his splendor.
+- The true test of a leader is whether his followers will adhere to his cause from their own volition, enduring the most arduous hardships without being forced to do so, and remaining steadfast in the moments of greatest peril.
+- I see that it is impossible to remember a long poem without practice and repetition; so is forgetfulness of the words of instruction engendered in the heart that has ceased to value them.
+- For what the horse does under compulsion, as Simon also observes, is done without understanding; and there is no beauty in it either, any more than if one should whip and spur a dancer.
+- Those men who, in war, seek to preserve their lives at any rate commonly die with shame and ignominy, while those who look upon death as common to all, and unavoidable, and are only solicitous to die with honour, oftener arrive at old age and, while they live, live happier.
+- Wherever magistrates were appointed from among those who complied with the injunctions of the laws, Socrates considered the government to be an aristocracy.
+- Socrates gave a lifetime to the outpouring of his substance in the shape of the greatest benefits bestowed on all who cared to receive them. In other words, he made those who lived in his society better men and sent them on their way rejoicing.
+- There is small risk a general will be regarded with contempt by those he leads, if, whatever he may have to preach, he shows himself best able to perform.
+- All the children of the great men in Persia are brought up at court, where they have an opportunity of learning great modesty, and where nothing immodest is ever heard or seen.
+- For myself, I think that those who cultivate wisdom and believe themselves able to instruct their fellow-citizens as to their interests are least likely to become partisans of violence. They are too well aware that to violence attach enmities and dangers, whereas results as good may be obtained by persuasion safely and amicably.
+- I will venture to maintain that where the teacher is not pleasing to the pupil, there is no education.
+- We are all sensible that the king and Tisaphernes have caused as many of us as they could to be apprehended, and it is plain they design, by the same treacherous means, if they can, to destroy the rest.
+- For drink, there was beer which was very strong when not mingled with water, but was agreeable to those who were used to it. They drank this with a reed, out of the vessel that held the beer, upon which they saw the barley swim.
+- Cyrus was observed to have more docility than any of his years and to show more submission to those of an advanced age than any other children, though of a condition inferior to his own.
+- Let a man sow a field or plant a farm never so well, yet he cannot foretell who will gather in the fruits; another may build him a house of fairest proportion, yet he knows not who will inhabit it.
+- Fast is fine, but accuracy is everything.
+- He who eats with most pleasure is he who least requires sauce.
+- A Persian army being then subject to great inconveniences, for their horses are tied and generally shackled to prevent them from running away, and if an alarm happens, a Persian has the housing to fix, his horse to bridle, and his corslet to put on before he can mount.
+- If any among you covet riches, let him endeavour to overcome, for the victorious not only preserve their own possessions but acquire those of the enemy.
+- Excess of grief for the dead is madness; for it is an injury to the living, and the dead know it not.
+- You see that even the enemy did not dare to declare war against us till they had seized our generals, for they were sensible that, while we had commanders and yielded obedience to them, we were able to conquer them; but, having seized our commanders, they concluded that we should, from a want of command and discipline, be destroyed.
+- Menon the Thessalian did not either conceal his immoderate desire of riches or his desire of commanding, in order to increase them, or of being esteemed for the same reason. He desired to be well with those in power, that his injustice might escape punishment.
+- The sweetest of all sounds is praise.

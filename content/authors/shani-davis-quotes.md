@@ -1,0 +1,18 @@
++++
+author = "Shani Davis"
+title = "Shani Davis Quotes"
+quotes_len = "12"
+description = "the best 12 Shani Davis Quotes"
++++
+- Some of the best things in my life have happened to me because I listened to my mother. And some of the worst things in my life have happened to me because I listened to my mother.
+- I started skating at age 2 on roller skates on the South Side of Chicago, where I grew up. By age 4, roller-skating was something I really enjoyed. Everyone around me wanted to do the 'roll bounce' thing, but I was pretty much only interested in going fast.
+- Whenever I put myself out there on the line, skating against other people, I simply want to win.
+- The real preparation for races is done in the off-season. I put in the hard work during the summer and fall, and I'm always working on technique so that when the actual races come around I'm ready to go.
+- I'm a speed skater. That's who I am, in my heart.
+- As soon as I was introduced to ice speed skating, I was instantly hooked. I never thought about pursuing skating professionally; I just enjoyed doing it.
+- Mentally, my key is just focusing on the little things I need to do in a race, whether that's tempo, turn entry, start speed, things like that. I'm not thinking about that much before or during a race. I just trust in my ability and all the hard work I put in and let the race come to me.
+- Things haven't changed since I was a young kid. I just wanted to be the fastest guy I could be, and I am still chasing that dream to this day.
+- I developed a sense of maturity when it comes to being dependent upon other people. I don't feel anyone really truly wants me to win more than I do.
+- Being born and raised in Chicago made me tough. It made me strong. I feel like I can deal with anything. I truly believe that in my heart.
+- I usually just write down what I'm doing and how I felt. How I felt if I'm skating fast, compared to if I'm skating slow or if I'm tired. I can always go back and look as a reference and see what I was doing. It's pretty much my life on ice.
+- No other teammates can help you when you're on the ice by yourself against the clock. So I decided that if I'm going to race on my own, I'm going to train on my own.

@@ -1,0 +1,20 @@
++++
+author = "Eric Kripke"
+title = "Eric Kripke Quotes"
+quotes_len = "14"
+description = "the best 14 Eric Kripke Quotes"
++++
+- If I had a worldview, and I don't know if I do, but if I did, it's one that's intensely humanistic.
+- It's hard asking someone with a broken heart to fall in love again.
+- When you start a show, the plans are not set in stone. They're really mutable, cocktail napkin sketches.
+- Television showrunners are a foolishly optimistic bunch.
+- Religion and gods and beliefs - for me, it all comes down to your brother. And your brother might be the brother in your family, or it might be the guy next to you in the foxhole - it's about human connections.
+- People love a good mystery; I understand that.
+- I've had a lifelong obsession with urban legends and American folklore.
+- Beyond all our Blackberries and iPhones, we're dangerously separated from our food and water supplies.
+- I'm not a fan of endless mystery in storytelling - I like to know where the mythology's going; I like to get there in an exciting, fast-paced way - enough that there's a really clear, aggressive direction to where it's going, to pay off mystery and reward the audiences loyalty.
+- I like to tell stories that have beginnings, middles and ends.
+- People pitch me the crazy mystery mind-blowing thing all the time. My response is, 'Great, but how do the characters feel about it, and how do we reveal new facets and new dimensions of who they are?'
+- Mythologies become exhausting burdens, from a writer's perspective.
+- People simply don't make eye contact anymore.
+- Every so often, you want to map out your plot mythology but never so specifically that you can't let a story surprise you. You want to allow the type of action of the writer's room so that you have the ability to take a left turn.

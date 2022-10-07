@@ -1,0 +1,106 @@
++++
+author = "Ed Reed"
+title = "Ed Reed Quotes"
+quotes_len = "100"
+description = "the best 100 Ed Reed Quotes"
++++
+- We had church and sports, and that's how we stuck together. We were so hungry sometimes, but if somebody's playing football, you can completely forget about eating until later on that night.
+- Pretty much just stay humble. And continue to work hard and let the game come to me and try not to make even more plays or jump plays. Just let the game come to me and play my defense and my responsibility.
+- Everyone has their own greatness. Whether you reach your own greatness depends on your environment, your structure, the company you keep and your attitude.
+- We tend to want to stay here in Louisiana as Louisiana people. We've just got to be mindful that there are other things out there, and we really need to open our kids' minds to get them to go to college. Get them to get away. Then come back and help the next ones behind us.
+- Help each other, encourage each other, lift each other up.
+- I never came out of a game unless I was truly hurt.
+- If the youth has a good foundation, then I think they won't grow into the bad situations they get into.
+- Not everybody likes Ed Reed.
+- Coming out of college, I wasn't considered the fastest, the biggest or the smartest. There was no way around that.
+- I don't want to be like these guys having neck surgery, then you got to go have another surgery just to continue to play this game. I love this game but I love myself more.
+- Football is what we do. It's our job, it's a business.
+- Just being from Louisiana, being from the southern part of Louisiana, Metairie, close to New Orleans and growing up in St. Rose. There are a lot of things to overcome.
+- I've just been playing football for a long time. I've been playing football since I was a little kid, so it's just some natural blessings that God has blessed me with to get to the ball and understand what I've been doing over the years.
+- That's what being a human is about, leaving this place better than we got it.
+- You don't hear about tradition in the NFL, but we have a tradition in Baltimore. It was just an awesome place to be.
+- My older brother, he did everything. He played baseball, he played basketball. Just being able to watch him as a youngster, wanting to be like him, wanting to play on the team with him and watching those older guys in my neighborhood play sports.
+- We all played sports, my brothers, my daddy, my uncles. That's all we had.
+- I know the hustle that is in Louisiana. Knowing where you are from, really where you're from, helps you to help the community. That's every city, but New Orleans is just different. We have big hearts, but it's just a matter of us having the information, having the people to push you along like I had.
+- When you play sports, when you're on a team with people from different walks of life, and you have to look after each other and count on each other, race and all that stuff goes out the window when you are in the locker room.
+- I love this game, and I put my heart and soul into it.
+- I was a two-star athlete. I got looked over.
+- I can't be lackadaisical when it's time for me to make any play, whether it's a tackle, fumble recovery, anything that it might be.
+- You've got to be smart about tackling.
+- The only way we protect ourselves, the only way a player gets what he wants is by holding out.
+- My dad would leave at 4 or 5 in the morning and then I wouldn't see him until evening. The conversations we used to have, he would tell me, 'A man takes care of his home first. A man handles his responsibility. He doesn't ask another man for anything.'
+- We have a bunch of American citizens who step up because that's what we do. We'll step up and go across the world to help people out. When it comes to our own backyard, it's always a different conversation.
+- We are human and regular people at the end of the day. We're not immune from the trials and tribulations that go on through life.
+- My philosophy was simple. I was trying to score when I got the football in my hand. There was no question about that.
+- Football is a reaction sport.
+- When kids grow up into adults now... they learn that taking care of their body is like taking care of their car. You're not going to put bad gas into your car. Why not treat your body the same way? It makes all the sense in the world for us to do the right thing for our bodies.
+- There's only so many guys on a football team that really have a voice. So anytime you have a microphone, you should use it for the betterment of humanity, for the betterment of this country, for the betterment of our kids coming up behind us, for the future of the world. Why not? Make the world a better place.
+- Especially in black communities, we've been so groomed to stay where we are and not like people in the other neighborhoods. It's crazy. It won't allow people to experience life and see what the world truly has to offer. People are stuck in their ways, stuck in their communities, stuck on their streets.
+- I've been treated with the utmost respect by the whitest of white guys, and I've been treated bad by the whitest of white persons. I've been treated bad by the blackest of black persons and treated good by the blackest of black persons. So at the end of the day, I know it's about humanity - do you have a good heart or a bad heart?
+- Stay in school because education provides you with an opportunity. Opportunity is all you can ask for.
+- Baltimore, I love that city.
+- Sometimes I wake up and I think, where did my memory go? But at the same time, I signed up for it. Football has been like that for a long time, for ages.
+- My time in Baltimore was awesome, every bit of it.
+- I always said I wanted to become a master of my game, like Bruce Lee. I mastered my art of football, because that's what it truly is when you understand it.
+- Yeah, some people don't know anything about football.
+- To be playing in my first Super Bowl in New Orleans, it's special.
+- I don't want to play till I'm 40.
+- Now that I know the dangers? Yes, I still would do it again. Why? 'Cause look at me. Look at my family. They're able to eat, they're able to have food and shelter over their head. Would I play football again? Yes.
+- I love Bill Belichick. He is a great coach, great man - raising men to do the right thing and win championships in this league.
+- I always know how to play this game. It's about being smart.
+- It wasn't about accolades, but showing that I was bred and predestined to be one of best football players to come into the league - and, every Sunday, to help my team to win.
+- God gives you talent to nurture. God gives you talent to be something. Some people realize it and some people don't.
+- There will be good and bad, right and wrong. Your reaction of choice, good or bad, has consequences that affect you and those around you.
+- There's a reason why, outside of me dropping a few, people don't throw my way, man.
+- When I make a tackle or make a play and I have a slight pain or something, you're going to react the way you react.
+- Monday night, there ain't a better time to showcase your talent.
+- I am going to graduate school, but that ain't got nothing to do with football.
+- There's a lot of good fans out there, but there's also a lot of bad - I don't want to say bad people, but a lot of people who just want to try to get on your nerves and stuff like that, man.
+- When I'm on the football field, I'm giving you everything. Do the Ravens know that? Yes they do.
+- Football was easy.
+- The game takes a toll on your body.
+- It's a kid's game we play. Nothing more than that.
+- Football has always been a contact sport, and it's always going to be a violent sport, and there are going to be repercussions from that. But every player that ever played this game and will play this game, they're signing up for it.
+- It helps you as a person when you're teaching something to somebody to understand it even better.
+- Baltimore is my heart. The fans are family.
+- There's not many people - only really the great ones - who realize what they were born to do.
+- We've got to help our community out. We've got to help Baltimore out, because it's a lot of things that have been handed down in our society that we're dealing with.
+- I always will be a Raven. That's where I was kind of raised in the NFL. I did a lot of growing, and we did a lot of special things. That's something that can never be taken away, and it never will. There's a lot of love there.
+- I'm always excited about life.
+- The relationships I have in Baltimore will never change.
+- Those inner-cities, they're not giving kids a chance. They're not giving the teachers a chance to really help those kids. They're making it real tough. You're either gonna help or you're hurting your own country.
+- Working out is a part of life.
+- You know mental illness is one of the biggest problems in our world.
+- Encourage those around you. Encourage yourself.
+- You have to be coachable.
+- I take care of myself. I try my best.
+- I'm not the kind of person to hold my tongue.
+- Not every officer is a bad police. I work with police officers. I know first responders.
+- We had a great staff in college, so after I got to the league, I'd already seen stuff I knew. Then it was enhanced, playing the game with great guys like Ray Lewis and Terrell Suggs, Haloti Ngata, Chris McAlister.
+- I know everybody wants to make it to the NFL, but it doesn't happen like that.
+- There's no place like Baltimore.
+- The football fans loved the way I played the game.
+- Ever since I was a kid, I knew I could play in the NFL because I had a knack for the game. But I can't play this game forever. When I'm finished, maybe I'll become a motivational speaker, maybe a preacher. But children need to know that life may be hard, but you can always overcome.
+- I know a lot about football. I know a lot about this game.
+- Not everybody is going to understand you. You can't please everybody. That's just human nature. Everybody has their opinion, and that's going to be there. You deal with it. You take it in stride. You take the good with the bad, the bad with the good. That's part of life.
+- If you play NFL football, you play football, these are the consequences. There's choices and consequences in life for everything. There's consequences if you play football.
+- I look at the quarterback and the receivers. You look at the quarterback, the formation. I focus on the passing game and react on the running game. You look at it over and over, then sooner or later, it becomes like a movie. You ever notice how you quote movies? That's all film watching is.
+- I always play the game a certain way, regardless of what guys say.
+- It's tough for kids to stay focused if they don't have something to get them off the streets... that's where the kids can get into the bad things.
+- When you've been playing the game for so long and sports for so long, it can take a toll on your body, and that's what we're putting on the line, and that's what our argument is as players when we're doing negotiations and stuff like that.
+- I know I have the abilities to be a head coach or D-coordinator. It's something I wouldn't mind doing. But it's tough being a player and going back and doing something like that, because egos get in the way.
+- The old G's, or the gangsters, turned me away from the street because they knew my dad, and they had a lot of respect for my dad, but because I was an athlete.
+- We're all going to have our trials and tribulations, but you can work through them and everything will be all right.
+- We always said it's not suit-and-tie on the football field.
+- Not every game is going to be perfect. Not every game is going to be an interception or two or a big-bang tackle, so to say.
+- I was very proud to hear that my friend Andre Johnson was like, 'Man, I'm going back to school.' I was so excited because, yeah you have great talent. You do everything on Sundays, you do everything on the field, but you went to college, and I'm not saying that you forgot about it, but that was on your mind when you first went.
+- The fact of the matter is that people don't understand that football players are regular people just like them. And half of them don't understand the business. And most of them just want you to entertain them.
+- I want to be the best, but it comes with a lot of work. And it can be pressure if you put it on yourself in that way. But if I keep going the way I'm going, and with the good Lord guiding me the way he's been guiding me, and the way I let him take control of my life, the sky is the limit.
+- When I was in Baltimore, it was all about raising me and not having players come in and out of there. It was about raising men, and there was a reason why it built up to the success.
+- I wasn't about one season, but career and longevity.
+- I tried to go and get my master's in-season. That's a tough cookie to try to eat, but it's just a great thing.
+- We need more of our young youth graduating from college trying to get their education, and trying to be contributing members, positive contributing members to the community.
+- Everybody in the world knows that plans tend to change.
+- I love to have my football camps. I love being a part of that.
+- God has blessed me with the ability to play football.
+- I was a San Francisco fan when Joe Montana and Ronnie Lott and those guys where there. And I watched Joe Montana get cut and go to K.C. and still ball.

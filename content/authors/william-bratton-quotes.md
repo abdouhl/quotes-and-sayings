@@ -1,0 +1,29 @@
++++
+author = "William Bratton"
+title = "William Bratton Quotes"
+quotes_len = "23"
+description = "the best 23 William Bratton Quotes"
++++
+- Stop-and-frisk is not something that you can stop. It is an absolutely basic tool of American policing. It would be like asking a doctor to give an examination to you without using his stethoscope.
+- Some cops I don't like - the corrupt, the brutal.
+- If an African-American or a recent immigrant - or anyone else, for that matter - can't feel secure walking into a police station or up to a police officer to report a crime, because of a fear that they're not going to be treated well, then everything else that we promise is on a shaky foundation.
+- I disliked everything about the '60s.
+- American history and the black experience are inextricable. And both are inextricable from policing. Far more often than not, that's been a good thing.
+- Cops have been complaining about morale since police forces were created. I used to complain about it a lot when I was a young cop.
+- Policing has to be done compassionately and consistently. You cannot police differently in Harlem than you're policing downtown. The same laws must apply. The same procedures must be employed. Certain areas at certain times may have more significant crime and require more police presence or more assertiveness, but it has to be balanced.
+- Clearly, a large number of people who shouldn't have firearms actually apply through the process and obtain firearms.
+- You cannot police a community without effectively working with the community.
+- I like having ambitious people around me. I could care less if they want my job.
+- If there's one crime for which there has to be a certainty of punishment, it is gun violence.
+- We all have a fundamental right to live free from fear, free from crime, and free from disorder - but while we share that right, we also share the duty to secure it.
+- I have a temper, and it can flare from time to time, but as I've gotten older and more experienced, I think I use it in a controlled way. Oftentimes, I'm acting.
+- Many of the best parts of America's history would have been impossible without police. All the freedoms we enjoy - freedom of speech, freedom of worship, freedom from fear - sit on a foundation of public safety.
+- It's an unfortunate fact that in the male black population, a very significant percentage of them, more so than whites or other minority candidates, because of convictions, prison records, are never going to be hired by a police department. That's a reality. That's not a byproduct of stop-and-frisk.
+- Broken-windows enforcement is really about controlling behavior to such an extent you change it: If you deal with the little things, you can keep them from going into the big things. Zero tolerance implies zealotry. It's oppressive. And it's not achievable. You're never going to be in a position to eliminate all crime.
+- Quality-of-life policing is based on probable cause - an officer has witnessed a crime personally or has a witness to the crime.
+- I've spent my life in the police profession, and I'm proud of that. But I am also very cognizant of the profession's limitations, its potential for abuse, and its potential negative impact.
+- Slavery, our country's original sin, sat on a foundation codified by laws enforced by police, by slave-catchers.
+- You have to bare your fangs once in a while.
+- Race is something that's always haunted American policing.
+- No place is unpoliceable; no crime is immune to better enforcement efforts.
+- I was still a recruit in the Boston Police Academy when I attended my first police funeral. It was September 28, 1970. I remember it still.

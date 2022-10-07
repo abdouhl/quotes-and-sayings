@@ -1,0 +1,106 @@
++++
+author = "Pranitha Subhash"
+title = "Pranitha Subhash Quotes"
+quotes_len = "100"
+description = "the best 100 Pranitha Subhash Quotes"
++++
+- I plan my schedule in such way that I get enough time for everything, even personal time.
+- I waited a long time to get a break with Indrajit's Huduga Hudugi.'
+- I try to pick roles that excite and interest me.
+- I was very excited for 2020 since I had two Bollywood releases to look forward to but then the lockdown happened.
+- I have not had any negative experiences. But I am fully aware of the issues that some of the female actors faced in the industry. Some of them shared their bad experiences with me.
+- 'Brahmotsavam' is a heart-warming family drama that will tug at the heart strings of the audience.
+- Recently, I read a quote which said that if a woman is beautiful, she's called an Angel' in English and a Bapu Bomma' in Telugu. I think that sums up the legacy he has left behind.
+- You never know why a film gets accepted and why it doesn't. I have learnt to just go with the flow.
+- I'm not very comfortable with skin show.
+- I am really excited to be launching my very own app. I have always enjoyed keeping in touch with my fans and interacting with them but with this we take it one step ahead since it's so personalized.
+- I have this special connect with Tollywood, some kind of a Karmic connection.
+- While I was a part of the movement Teach For Change, an NGO which focuses on training government primary and high school students in leadership skills and English language, I realized that the standard of facilities in government schools was very low.
+- Even when I meet people, they start talking to me in Telugu, even though I'm a Kannadiga. But my character in Hello Guru Prema Kosame' will change that image of mine. You'll see me as an urban city girl in glamorous clothes.
+- The experience of chilling in the Dead Sea is beyond words!
+- I've a sweet tooth, so I love to binge on anything sweet when I have the option.
+- I've been offered bi-linguals and tri-linguals to be made in Hindi and south languages.
+- When I was young I did not know about the Telugu film industry. Then I forayed into it and one project led to another.
+- I think Porki' will be my best break as it has all the ingredients of a good film.
+- And I'm glad that Macao Government Tourism Office offered me an opportunity to explore and experience Macao - the country best known for its heritage, food, culture, and festivals across the world.
+- I always yearned to explore the entrepreneur in me.
+- After working in Porki,' it took a long time for me to sign my second Kannada film. But, I didn't plan that break.
+- I'm happy with the way my career is progressing. But I didn't even imagine that being a Kannadiga, from a highly academic-oriented family, I would ever get into films.
+- If you have multiple events and don't want to spend a lot, I think a solid colour crop top can be used for many different looks.
+- There was a call for part-time volunteers to teach at local government schools in Bengaluru and I was part of this program. That was when I realized the situation in these schools. I taught them English and even Class 7 kids didn't know basic English.
+- I was taking a connecting flight from Vijayawada to Hyderabad and Kajol was on the same flight. We were waiting for the lift and when I got in, the doors began closing. Kajol and her manager were all set to get in, but by then, the lift began moving up. I was so embarrassed that when I met her later, I apologized for the goof up.
+- In Jarasandha,' I can relate to my character pretty well, considering it is about a progressive and smart girl. She is a small time model, who is quite forward in her thinking.
+- When I got a call to be a part of the Save Governments School initiative as an ambassador, I happily accepted. I even adopted a government school for a small amount of Rs 5 lakh.
+- Unless you are born into an army family, you are never quite prepared for life with someone from that background. These are people who are putting their lives on the line to protect the country and everyone in it, and to be married to someone like that seemed like a risk.
+- I think all industries are warm, inclusive and professional.
+- When I am not shooting, it gives me time to follow my other hobbies.
+- I have always been slow to sign films, ever since my debut.
+- I have always played the homely girl who's clad in traditional attires which is why I get a lot of saree and jewelry brand endorsements.
+- It's one of those once in a lifetime opportunities for me to be sharing the screen with a star of the stature of Pawan Kalyan, and I jumped at it. The intensity that he brings to the screen is incredible, he's a phenomenal performer.
+- Although I play a modern-day girl in Brahma,' there are portions in the second half that require me to shed that image.
+- There are quite some interesting roles. Just take my career for instance. I played a vivacious aerobics instructor in Porki.' In my Telugu debut Bava,' I played a lively girl from a village. In Udayan,' my Tamil debut, I played a soft spoken Brahmin girl.
+- When a film becomes a hit you can't take all the credit, and similarly when it doesn't do well you shouldn't worry.
+- While handling social media pages, my father accepted every friend suggestion that popped up on the screen. He's shared some random videos and commented on people's posts. I told him it's silly paa ' and he laughed. Maybe on Father's Day, I'll teach him to order his favorite food on an app.
+- I cannot wait to see Salman Khan, I feel like a young fan.
+- I'm hoping to do more performance-oriented roles.
+- The same way that we as humans stay groomed in summer, shower more and get the occasional haircut, pets need to be groomed too - nothing drastic, just a trim and some cleaning to keep fleas away.
+- You can't plan the best day because it just happens. But if I had to plan it, then I would go away for long drive for sure.
+- I am actually a big planner, but I have learnt to take it easy.
+- I never planned anything in my life.
+- I believe traveling to new places and experiencing different cultures and traditions really helps you to broaden your perspective towards life.
+- The thing that nature needs the most from us humans is space. We need to distance ourselves for a while so that we can make amends for all the damage done, and let nature heal.
+- If it were to me, I'd usually just chill in my room or go to the spa.
+- Whether glam or deglam, performance is what everyone wants in a heroine.
+- I have a Husky named Blu. One would think, given his country of origin, that he would love a cold water bath, but he is a third generation Husky who has quite adjusted to the climate in Bengaluru.
+- Crop tops with high waist skirts and palazzos with a lot of glitter have a very party vibe to it.
+- I am not an actress who demands for only business class tickets.
+- I'm happy to do good roles, irrespective of language.
+- Down South, I have predominantly acted in typical candy-floss films, where I have played cheerful college-girl roles with songs and romantic scenes.
+- There are many people who are unable to eat even a single meal in a day and it is our responsibility to help in whatever way we can.
+- Humanity has to step up, take some time out consciously for nature, and help it recover itself.
+- It's a big opportunity to work with a director like Shashank who's had hit films.
+- What a fantastic move against black money to ban Rs 500 and Rs 1000 notes.
+- Being a South Indian, I think it was easier for me to pick up the languages on the go.
+- Till now I have mostly done the glam roles. But I do look forward to work for films which will give me more scope to perform as an actor.
+- I prefer to wear big earrings because then you're sorted jewelry-wise.
+- I like all languages equally.
+- I have fantasized about people I haven't worked with for sure. Sometimes, when am watching a film, I'll be thinking, Oh my god, I should've got this scene or this song.'
+- We're living in an era where the audience are welcoming content-driven stories, and not just asking to see actresses as glam props.
+- I have often played the cute, girl-next-door character, who is in love with the hero.
+- People are forced to become doctors or engineers today. It makes no sense to force children to study something they are not interested in. I believe each one should be encouraged to follow their dreams.
+- To be honest, I never even planned my career in South. I simply went with the flow and took things as they came.
+- I hate those actresses who want everything to be luxurious.
+- Whenever I take a break for a couple of years, people use the term comeback.'
+- There's not enough awareness about healthcare and people don't realize the importance of getting a timely health check-up until it is too late.
+- Once while sliding under a table, I hurt my knee badly.
+- 'Mass Leader' not only gave me the opportunity to work with Shivanna and that too as his romantic interest, but it also brought me together with a great team.
+- I consider myself a very bubbly girl who takes only the good from any situation that comes my way in life.
+- I always thought that owing to their social standing, army spouses had to maintain a dignified appearance, no matter what, at all times and that their only source of entertainment was the officers' parties.
+- I can see the gravity of this pandemic as my parents are doctors. This is not only a health crisis and we need to be on humanitarian grounds. It gives me immense satisfaction to help people who are in need and it is a very basic thing that I can do in these tough times.
+- There are a lot of offers. But I don't like to overwork.
+- I've always been like this, very slow, I like to work aaramse.
+- Strangely, I was just not interested in biology.
+- After Porki,' I immediately got a film opposite Siddharth. Getting into Tollywood opposite a big hero and under a big banner was a big deal.
+- I've seen celebrities like Mammootty and Rahul Dravid traveling in economy class.
+- Language is no longer a barrier for artistes.
+- I had been on a vacation to Sharjah a couple of years ago and it was absolutely amazing. We stayed at this beautiful resort that itself was a place to behold as it was replete with water sports and other amenities.
+- Once I taught him how to operate an online bank account, my father began handling transactions for my foundation-related activities.
+- I like being versatile and perhaps that's what pushes me as an actor.
+- I think proficiency in language helps greatly with acting.
+- Even if I had not become a doctor like my parents, I would've done something to do with academics.
+- India and Israel share great relations, and with Israel known as a start-up country, there are a lot entrepreneurship opportunities to explore on social projects.
+- I'm a bad judge when it comes to my own films because I tend to like everything.
+- I keep traveling regularly, whether it's for my work life or merely a break from my work life.
+- While I have got to work with someone as experienced as Ajay Devgn sir in my first film, it is exciting to work with a promising actor like Meezaan in my second.
+- Cinema is my profession while food is a passion.
+- I shopped at Harrods and Louis Vuitton, as they were top on my priority list. And that's when a friendly shopkeeper told me that I could get mugged as my luxury bags were screaming for attention. And he gave me garbage bags to cover them. So here I was walking around in London with garbage bags in my hand.
+- I think one needs to be passionate about food to be in the food business.
+- I think palazzos are very comfortable. It looks like a skirt, yet you can sit in them for hours.
+- My father hails from Shantigrama in Hassan, but my family moved to Bengaluru. Even though I was born and raised in Bengaluru, I have strong ties with my roots.
+- There's no harm in kissing scenes. I'm open to them as far as the script demands it.
+- A popular number from the movie Pedda Pedda' has become an instant hit and the audience is loving it.
+- I carry a small handbag and it has cash and credit cards, phones, hair ties and lip balm.
+- I love being part of Tamil movies.
+- Sometimes, when I look at Bollywood, I think, Damn, this is dream stuff.'
+- Everyone wants to be fit these days, everywhere you see people are talking about being healthy and lifting weights. I did it for four months and the results showed.
+- Being a vegetarian, beans like avarebele are the biggest sources of protein for us.

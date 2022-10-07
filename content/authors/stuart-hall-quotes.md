@@ -1,0 +1,36 @@
++++
+author = "Stuart Hall"
+title = "Stuart Hall Quotes"
+quotes_len = "30"
+description = "the best 30 Stuart Hall Quotes"
++++
+- The nature of power in the modern world is that it is also constructed in relation to political, moral, intellectual, cultural, ideological, sexual questions.
+- The NHS is one of the most humanitarian acts that has ever been undertaken in peace time.
+- I have a funny relationship to the British working class movement... I'm in it, but not culturally of it... I was aware that I'd come from the periphery of this process. I was reluctant to go canvassing for the Labour party. I don't find it easy to say, straight, face to face with an English working class family: 'Are you going to vote for us?'
+- Three months at Oxford persuaded me that it was not my home. I'm not English and I never will be. The life I have lived is one of partial displacement. I came to England as a means of escape, and it was a failure.
+- My family belonged to a very particular formation - middle-class and coloured, not black. That meant it had a closer connection to the plantocracy than many other people did. So I didn't feel like an ordinary black Jamaican boy.
+- Race is more like a language than it is like the way in which we are biologically constituted.
+- If I have to read another cultural studies analysis of 'The Sopranos,' I give up. There's an awful lot of rubbish around masquerading as cultural studies.
+- Politicians always think they know what people feel. It's a fallacy, because there is no such thing as 'the people.' It is a discursive device for summoning the people that you want. You're constructing the people, you're not reflecting the people.
+- Identity is becoming more dependent on what people are willing subscribe to and less dependent on objective criteria such as skin colour or where they're born. Ways of identifying blackness are no longer black or white. It's not a case of us or them, you can now be us and them; like them but different.
+- The DuBois Institute in the heart of Harvard is an extremely important political intervention and I'm delighted to be invited to speak here.
+- Britain is not homogenous; it was never a society without conflict. The English fought tooth and nail over everything we know of as English political virtues - rule of law, free speech, the franchise.
+- People have to have a language to speak about where they are and what other possible futures are available to them.
+- Popular culture is one of the sites where this struggle for and against a culture of the powerful is engaged: it is also the stake to be won or lost in that struggle. It is the arena of consent and resistance.
+- You must have the modesty of saying, this is a bloody good idea but I probably won't believe it in five years' time.
+- I came to the U.K. at the age of 19 and I didn't know anything about the working-class tradition, the Labour Party and the unions. I learned it. And in doing so, I came to appreciate that, if you're going to intervene politically, you'd better bloody well know something about the class on whose side you want to align yourself.
+- I sometimes fee like the spirit of the past resurrected... After all, didn't cultural studies emerge somewhere at that moment when I first met Raymond Williams or in the glance I exchanged with Richard Hoggart? In that moment, cultural studies was born. It emerged full grown from my head!
+- While every effort is being undertaken to make the memory of the Thatcher government disappear, Thatcherism is still working its way through the system.
+- I would say that New Labour come closer to institutionalising neoliberalism as a social and political form than Thatcher did.
+- I've never been a disciple of any school. I've lived too long. I've seen all the schools, I've seen people say, I'm sorry, Althusser was wrong after all. You can only do that about three times in your life; after that, you begin to feel like a fool!
+- A lot of crap goes on in media studies, like in almost everything.
+- The question of hegemony is always the question of a new cultural order.
+- I got involved in cultural studies because I didn't think life was purely economically determined. I took all this up as an argument with economic determinism. I lived my life as an argument with Marxism, and with neoliberalism. Their point is that, in the last instance, economy will determine it. But when is the last instance?
+- I'm the blackest member of my family. You know, these mixed families produce children of all colors, and in Jamaica, the question of exactly what shade you were, in colonial Jamaica, that was the most important question. Because you could read off class and education and status from that. I was aware and conscious of that from the very beginning.
+- Identity is never singular but is multiply constructed across intersecting and antagonistic discourses, practices and positions.
+- I thought I might find the real me in Oxford. Civil rights made me accept being a black intellectual. There was no such thing before, but then it was something. So I became one.
+- The very notion of Great Britain's 'greatness' is bound up with empire. Euro-scepticism and Little Englander nationalism could hardly survive if people understood whose sugar flowed through English blood and rotted English teeth.
+- Thatcherism, as an ideology, addresses the fears, the anxieties, the lost identities, of a people. It invites us to think about politics in images. It is addressed to our collective fantasies, to Britain as an imagined community, to the social imaginary.
+- There's no permanent, fixed class consciousness. You can't work out immediately what people think and what politics they have simply by looking at their socio-economic position.
+- What I realized the moment I got to Oxford was that someone like me could not really be part of it. I mean, I could make a success there, I could even be perhaps accepted into it, but I would never feel it was my place. It's the summit of something else. It's distilled Englishness.
+- I tend to think some things are off-limits. Not in the sense that you should not be able to say them, but you need some care about how and when you go into them. If you wanted to make a joke about concentration camps you should think twice. At least twice.

@@ -1,0 +1,106 @@
++++
+author = "Dabo Swinney"
+title = "Dabo Swinney Quotes"
+quotes_len = "100"
+description = "the best 100 Dabo Swinney Quotes"
++++
+- You may not have any interest in Clemson whatsoever, but if Clemson calls, and they want to pay for you to come, and feed you and put you in a hotel, well, who doesn't want to go do that? Sign me up. Let's go, man.
+- You better have an anchor in life. It doesn't matter if you're a Division I head football coach or Joe Schmo from Okemoh. Bad things happen. If you're not anchored, you're going to be washed away.
+- It's hard for me to come up with a plan and hold my players accountable until I self-evaluate and hold myself accountable.
+- The thing I enjoy the most about being the head coach is that I get to create the climate. I get to control the environment everybody comes to work in every day, and I'm very in tune to the chemistry, the morale of my staff, my support staff, my secretaries, the guy cleaning the building, the players, the walk-ons.
+- I've just never really gotten caught up in what people think about me, because I can't control that.
+- My dad was the biggest Alabama fan ever, and I was brainwashed.
+- You don't have to sacrifice your family to be a great coach.
+- When you get a young group of people that believe, are passionate... and committed to a single purpose, you better look out. Great things can happen.
+- I don't ever want to come in the locker room and have players in there pouting.
+- My entire life, nothing's been easy. This is the way it ought to be.
+- Listen, I come from the most screwed-up dysfunctional situation. You've got violence. Police at your house. Your dad's gone. Nowhere to live. I want people to know, if I can make it, anybody can make it.
+- I'm not going to apologize for having a great team and a great program and a bunch of committed guys, and Coach Saban is not, either.
+- I don't think it's good to be a distraction to your team.
+- Colin Cowherd? I never met him; I don't know him.
+- I just look back at my entire life. You know, my faith. I knew that I was where I was supposed to be.
+- I've had people say things to me like, 'Don't change.' I don't know how to be anything other than myself.
+- I love the trips that I've experienced as a player and a coach.
+- I have an MBA, but my Ph.D. is in people. Everything I do is about relationships.
+- Sometimes fans... they want more and more and more, and they think you win a national championship every year. It doesn't work that way.
+- When a guy comes unofficially, then he, to me, is sending you a message that, 'You know what? Hey, I'm interested in Clemson.' Now, he may hate it when he gets here. But at least he came on his own. That's just my personal philosophy.
+- I've never seen myself as a second-class citizen.
+- It's the journey to get there. It's that moment in that locker room when you're with a group of people that have gotten it done. There's nothing like it. If you could bottle that up and take that out in the world, you'd dominate.
+- My driving force in this business is to create and build great men, and to do that, you have to have great relationships.
+- I'm thankful for the experience and to be able to coach other young people on their journey through college football. It's a privilege.
+- I'm a big believer in the student-athlete part. I value the education and what it provides for you. Football is a vocation. Only 1.67 percent of these athletes go on to the NFL. An education provides you an opportunity for a career. A lot of people just don't get that. To say they aren't getting anything is misinformed.
+- A win is a win, and I've just always felt that way, and I've always been passionate about that.
+- I hate the fact that, all of a sudden now, it's not cool to go to the Gator Bowl. Are you kidding me? I don't like that mindset.
+- I'm not trying to be like everybody else. I want to be Clemson, and Clemson's not for everybody.
+- I go to a church that's an interracial church.
+- I want to get to the top. I want to be the best. But I want to do it the right way and to enjoy the whole deal.
+- I thought, 'If I ever get a new football building, I want a slide.' Now I go down it every day.
+- When you lose a parent, it's a strange feeling. It's a hard thing to get used to.
+- God creates us to compete. He creates us to win. It matters. But you've got no chance if you don't do your best.
+- I'm not a sympathetic guy when I see people throwing their lives away and using their life's obstacles as excuses to fail. I just don't buy into that.
+- There's a lot of 'oops' from us in life as people. I always say that God never says 'oops.' That's just kind of how I've always lived my life, but we're so imperfect that there's a lot of times that we say, 'Oops, my bad.'
+- Everyone will be judged one day, but it's not up to me to judge somebody.
+- If Alabama were 8-4, they'd still be dominating the conversation.
+- All I know is, there's nothing we can't do at Clemson. I don't have to go somewhere else to win at the highest level, to recruit great players, to have great support - I really don't. I'm just really fortunate.
+- I was one of those kids who watched the Bear Bryant Show every Sunday, and every time Alabama played, I was listening on the radio. I'd fight you if you talked bad about Alabama.
+- I just made a decision a long time ago: I'm not going to be defined by a scoreboard.
+- I love that about college football. I love all the funky matchups. I love the Funky Cold Medina Poulan Weed Eater Bowl. I love all of that. I like the crazy games. There's obviously a market for it because them TVs love to put it on there.
+- Everything in life is how you respond to it. If everything went perfect all the time - you never lost a game, you got to the championship every time, you always won, you always got the top recruit, you always made the A - you really wouldn't truly appreciate all that goes into it.
+- I was the first one in my family to go to college.
+- As long as I've been at Clemson, there's not a guy that's more committed to Clemson than Kelly Bryant. There's not a better leader. This guy, he's the epitome of what you want. He's what you want your son to be like. I love him like a son.
+- I think God has got a sense of humor. I really do.
+- I'm a wimp. I'm from Alabama. I don't like the cold.
+- The key to coaching is love. It's not knowledge; it's not discipline. If you love 'em, you can discipline them. If you love 'em, you can yell at them and laugh about it later.
+- If my coach told me to go run them bleachers, you didn't ask no questions. I turned around and started running until he said stop.
+- My dad was a great man, and I loved him, but he had some demons he fought. It was tough to see some of those things as a kid, but I believe God doesn't save you from things; he saves you through them.
+- Any time you have a Heisman-caliber player, it just - that means he's a Heisman guy for a reason. So usually, that - for your team, that means a lot of big plays. Usually, there's a lot of wins tied to those Heisman guys, that's for sure. So it's always great when you got great players.
+- No matter what's behind us in the rearview mirror, it's always about what's next.
+- I know the price I've paid to be where I am.
+- When you win by three touchdowns in a state championship and you've got people who can't appreciate that? That's really sad.
+- We're all going to experience death and failure and setbacks and disappointments and cancer and, you know, it's a really difficult world. And for me, God has always - in my relationship with Christ - He's given me hope and peace.
+- I've always really respected Mark Richt. I think he's a great man, first of all, and I think he's a great coach and a guy that truly cares about the players and always has.
+- For me, and I've been on record saying it, let's create two leagues: one for players who want the college football experience, and another for those that want to get paid, have the NFL help fund it, whatever. Guys who don't want to go to school to get an education, let them go to work.
+- I'm not a 'more is better' guy.
+- Trust me, people that know me know I ain't perfect, but I do try to live my life in a way that hopefully can be pleasing to my maker because I know I'm going to meet Him one day, and He's not going to pat me on the back and talk about how many wins I had or how many Coach of the Year trophies we got or how much money I made.
+- You're looking at a guy who grew up in the state of Alabama, and my dream was to play there.
+- For me personally, joy comes from focusing on Jesus, others, and yourself.
+- I'm not perfect. I don't claim to be perfect. So, when people point out I'm imperfect, so what? That's just who I am.
+- Fans can have whatever mindset they want to have. But I don't want anything to creep into the culture of our program, because our players, they get stuff pushed at them - social media.
+- Everybody sees me now, and I'm the head coach at Clemson and this and that, but my life hasn't always been this way.
+- I'm a Christian, but I've coached and played with Muslims and all kind of different religions.
+- I'm counting every silver lining I can get.
+- I didn't get into coaching to make money. I got into this for the coaching and teaching part.
+- My vision is for other schools to be like Clemson. My vision is to build a model program.
+- I ain't never going to apologize for a 21-point win over a state rival, ever.
+- Continue to do common things in an uncommon way. Continue to be 'all in.' Continue to apply 'best is the standard.' Continue to be a person of excellence in everything you do.
+- My father figures were my coaches.
+- I think we have a sin problem in the world. It's so easy to say we have a race problem, but we got a sin problem.
+- That's just my - I think that I made a decision when I was 16 - I grew up in a family that I was taught there was a God and all that, but I didn't really have a relationship with Christ until I was 16. And that was a game changer for me. That's really become the foundation of my life.
+- I'm just telling you: I don't know what the heck I'm talking about - I'm just an old funky college coach - but Deshaun Watson is the best by a long shot.
+- I always told people Alabama was the smartest state because it has four As and a B.
+- You got to be a champion on the inside.
+- I'm kind of a bottom-of-the-barrel guy.
+- In recruiting, you talk about anything and everything a recruit wants to talk about that seems relevant.
+- Always remember, the goals that we have achieved pale in comparison to the daily commitments it took to get there.
+- I want guys that are sincerely interested in coming to Clemson. I don't need any practice recruiting, and I don't like wasting time. I want to be transparent, and I want prospects to be transparent, and if they're really interested in Clemson, then they're going to come here unofficially on their own.
+- I'm always just focused on being great where I'm at and blooming where I'm planted.
+- A football team is really just a reflection of society. You've got 118, 120 guys on the team, you got a little bit of everything.
+- I am who I am. At the end of the day, you've got to be who you are.
+- I've never failed at anything in my life.
+- I just think there is a right way to do things, and I don't think two wrongs make a right.
+- If you grow up with traditions in your family, it's always nice to be able to get home and have those moments.
+- No, we don't control who our parents are. We don't control what color we are. We don't control what home we are born into. But we control our attitude. We control our work ethic. We control our drive and our commitment.
+- I always tell people, good coaches are a dime a dozen. Good coaches that are good people, good husbands, good fathers, that love their players and are passionate about doing things in a way that I believe is important, that pool gets real small.
+- There's nobody tougher on the players than me. Nobody.
+- I'm the biggest pansy you've ever seen.
+- I had a lot of time as a kid to dream. There wasn't much else left to do.
+- Let's not be miserable when we win. There's definitely people in places that, even when they win, they're not happy. That's sad.
+- Everybody runs, but only one wins first prize. So, run your race in such a way as to win.
+- In Alabama, when you come out of the hospital, they have to stamp your birth certificate with either Alabama or Auburn, or you don't leave.
+- We work too hard to be miserable.
+- My job is to recruit the best players I can recruit. When they get here, challenge them and grow them into their best version.
+- There's some criminals that wear badges. Guess what? There's some criminals that work in the media. There's some criminals that are football coaches. There's some criminals that are politicians. There are criminals that work in churches.
+- As I've said many times, it's one thing to dream about something; it's another thing to experience it. It's one thing to think you're good enough; it's another thing to know you're good enough.
+- A lot of these things in this world were only a dream for Martin Luther King. Not a one-term, but a two-term African-American president. And this is a terrible country? That was a dream for Martin Luther King.
+- There's a lot of good police officers. There's thousands of perfect traffic stops. Lot of good men. Lot of good women. But those don't get the stories.
+- I've never really hired anybody that people thought I should hire.

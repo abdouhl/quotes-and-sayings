@@ -1,0 +1,106 @@
++++
+author = "Sven-Goran Eriksson"
+title = "Sven-Goran Eriksson Quotes"
+quotes_len = "100"
+description = "the best 100 Sven-Goran Eriksson Quotes"
++++
+- If you're manager, you're always responsible for the good times and the bad times. Every time you don't win a game you think if you could have done it another way.
+- I've always been a Liverpool fan.
+- I always thought I did a good job with England. But people at the time didn't think so. They had had enough of the Swedish guy only making the quarter-finals.
+- I would like to return to the Premier League but I think if you put that question to more or less every manager in the world, then they would like to do it as well.
+- In Italy, so long as you are not criminal, they couldn't care less about your private life. It's when you lose a football match that they criticise you - a lot.
+- Sooner or later, an African team will win the World Cup.
+- I always treated my players like men.
+- There is so many good people in Africa. And a huge talent among the football players.
+- I have a big TV screen and I sit there and watch the Premier League and I get angry sometimes - 'I'm better than that guy sitting there.' Of course, I am joking. But I analyse. I look at it technically, how they play, how they defend, how they attack, why did he change that player? That's the only way I can look at it after all these years.
+- To leave a job with a bad result is, I think, the worst thing in life to do. They will always remember you as a loser.
+- England has always been famous for great goalkeepers, before I came. We had good goalkeepers, but we didn't have the big world-class 'keeper, maybe.
+- My parents would make the journey across the border to Norway to buy butter and flour, staples that were cheaper there than in Sweden.
+- You know if you go far in the World Cup you are away for almost two months and I think it's against human nature, not to have families there.
+- You don't give Capello advice. Capello's a better talker than listener.
+- I didn't care: if I liked a woman and wanted to meet her, why shouldn't I be able to?
+- Personally, I was oblivious to any financial hardships that my parents endured.
+- Probably I would have got more money if I'd stayed in Italy. It was said that I took England for the money. Absolutely not. I took it because it's the biggest football job in the world, the finest job you can have. I enjoyed it every day.
+- I like challenges, yes.
+- I don't feel like I'm a failure for what I did with England. No I don't feel like that.
+- I had a contract with England, it was going to finish, and in football you can't really wait until your contract runs out.
+- David Beckham deserves all the respect you can give to him.
+- The big question for me is - are the players happy? Because in my mind it is all about building the right relationship with your players and creating the right atmosphere.
+- It is more difficult for any coach to work in the Premier League than any other league. You can lose or win against any team.
+- Maybe I trust people too much.
+- If my style is typically Swedish, I don't know. But I never shouted in all my life at players and I never did it at my children.
+- My private life, I prefer to have that private.
+- If I am going to write a book, which I have done, I think we have to get it right - whatever has been written about me, about football, about my private life.
+- I must say, the standard of football we play in League Two is better than I thought. I think, if you compared it with the fourth division in other countries, such as Italy, Germany and Spain, League Two is much, much better - and that's very positive. The intensity and the tempo is as high as the Premier League.
+- Italian football in the eighties and nineties was the most beautiful league in the world. The hardest, most beautiful of all.
+- Yes, England lost to Iceland at Euro 2016 but you need to look at what Iceland had, as well as what England didn't. Maybe Iceland were not technically strong but they looked very strong together and England were not the only ones surprised by them.
+- Serie A was the best league in the world when Roma offered me the job of manager in 1984.
+- If you are the coach of Bayern Munich, Barcelona or Real Madrid, the chances to win something are huge. When you go to the Premier League, you have six, seven, eight teams who are fighting to win.
+- It's always nice to see Brazil playing football.
+- You don't criticise Totti in Italy. There might have been reasons to, sometimes, but you don't touch him.
+- If you want to keep up with the changes, then you have to watch as much football as you can. Live is the best way but also on television. All the best teams: Barcelona, Real Madrid, Bayern Munich and now City. What are they doing? If possible, go and see them training. You can always learn.
+- I know Mourinho very well. He has a very strong mentality and is very peculiar man.
+- By April 1998, the fortunes of Lazio were on the rise as they won their first trophy in 24 years. Meanwhile, my salary of around £400,000 basically tripled overnight when TV companies started paying for rights to broadcast games.
+- I met Ulrika Jonsson on December 8, 2001, at some party hosted by the Daily Express, or maybe it was the Daily Star. The FA wanted me to travel around to various newspapers to be courteous and meet the editors. I visited the News Of The World too, and met a woman with big, red hair. I didn't memorise her name.
+- The pressure on the English national team has always been very big at all the big tournaments.
+- Shanghai is a beautiful city, with theatres, shopping malls and restaurants that can rival anything in London.
+- I'd won three cups with Lazio - then, against the odds, we won Serie A, the Italian equivalent of the Premier League. Rome went wild. Thousands of people filled the streets, and fans even jumped on my car. I became known as Il Mitico - 'the legend.'
+- No-one wants to finish a job badly. If you know that you are going to finish your job in six months, then you want to finish well.
+- When I was in Italy in the 90s, early 2000s, everybody wanted to go to Italy, all the players.
+- Football is important, football is my life, I love it but life is more important than football.
+- You know I never hate anyone in my life. I don't think I have many enemies but I hate Samir Khan because you can't treat people like he has done.
+- England was the biggest coaching job that I had. You know, in England, the football is connected to all the things in a incredible way. I'm very proud to have been there.
+- Sir Alex Ferguson must be very high up on the list of greatest managers ever. Then there is Fabio Capello, and people forget how much Giovanni Trapattoni achieved at Inter and especially Juventus.
+- I had a lot of respect for Ferguson. How could you not? He had built so many great teams throughout the years and I appreciated that his teams always tried to play attacking, positive football.
+- The Philippines is unfortunately not a football country - basketball is more popular.
+- Football is beautiful and cruel.
+- The treatment of Wayne Rooney told me something about the way England fans view the national team.
+- My private life has absolutely nothing to do with my football.
+- Sir Alex Ferguson was a genuinely nice man. We met many times and even had dinner together on a few occasions. But woe to the person who threatened or bothered Manchester United in any way. Then Ferguson would not spare his venom. I know, because he often aimed that venom at me.
+- Ranieri won the Premier League and no one would've expected that.
+- I think if you want be a big team and stay a big team, it costs money. Whether you like it or not, it doesn't matter.
+- Many clubs use sports psychologists today. But you have to work with a mental coach for months. You can't just start when you are in the World Cup.
+- Italian footballers can take a coffee and sit for two hours talking, laughing.
+- David Beckham, for me, every time he came to England camps he was an extremely professional football player.
+- Didier Drogba is one of the best strikers in the world and he has showed that for many years now in the Premier League.
+- I loved managing England more than anything but there were times during those five years when I thought, 'Why did I leave Italy?' because you are criticised so much.
+- China is beautiful.
+- The World Cup is the biggest party in football and it's a party for the world, it's incredible. It goes for a month and there is a huge amount of interest. It's the greatest thing you can do and it's beautiful.
+- Gerrard is quiet; if he speaks people listen. If he has something to say, it's important and clever. He's a hard worker, disciplined.
+- Sometimes I thought that maybe it would have been better to stay in Italy, to stay at Lazio.
+- Before England, I had never been sacked in my life.
+- My second year in Rome was very good. Back then, a striker was a striker. Strikers scored goals; they didn't defend. Today this is normal, but it wasn't at that time. If you wanted to play my style of football you couldn't have old players or famous players who were unwilling to do the job both ways: attacking and also defending.
+- When we fail at something it's because it needs work.
+- Scholes was England's best football player. He had everything except the ability to tackle without earning a yellow card. It was impossible to take the ball from him, and he never mishit a pass.
+- My role as Manchester City manager was different to being manager of clubs in other countries. You share responsibility more in other European countries. You have the last word, though, in who to buy and who plays and things like that.
+- If Rooney had been Italian, he would have been loved like Francesco Totti was at Roma.
+- After three years with Roma, I spent two seasons at Fiorentina. I could have stayed there for longer, but they only had ambitions to be in the middle of the table - not to win anything. Their ambition was to not go down.
+- From 1997 I was at Lazio for three and a half years and they were lucky times - a beautiful time. The chairman did almost everything I asked. We won seven trophies and were excellent.
+- As a football man, I always want the best team.
+- Personally, I've never liked confrontation.
+- You look at the way some of the big English players in the past, like Rooney and David Beckham, have been criticised and you have to ask: 'What do you want these players to be?'
+- If you travel around the world with David Beckham it's total chaos everywhere you go.
+- I have remained a Lazio fan and that was the strongest team I ever coached.
+- Paul Scholes was at home on a cold February day away to Newcastle.
+- When I was at Shanghai SIPG, I had the Brazilian player Hulk, who had joined for over £50 million from Zenit St Petersburg. He had no problems with life in China - his only problem was that he got injured on his debut and was out for two months after that. But I never heard him complain about life in China at all - everything else was good.
+- My private life was not very private in England.
+- Premier League is one thing. World Cup is totally different.
+- The first time I met Faria Alam was at the Football Association offices in London.
+- My worst moment was in 2006, in Germany, without any doubt! The defeat in the knockout phase of the World Cup 2006 against Portugal.
+- Without big money you can't stay at the top. Maybe you can reach it for one year but you can't if you don't have money to buy important players.
+- It's not that India, China and the United States need football, but football needs these three countries. Because it will be even bigger.
+- With England, every time we lost I was 'not passionate.' But I tried to say we won a lot of games when I was the same.
+- When you go to a World Cup, the whole nation should be behind the team - and then the team have to play their part, too.
+- I think, that it's sort of a dream, for many coaches to have a long contract with African countries. The problem in Africa, they do the qualifiers with some coaches, and when the World Cup comes, they change to have bigger names. And then, they recruit a coach for two, three months and when the World Cup finish, they send him back.
+- How many Messis do you have in India if they had the chance to play?
+- To be a manager, you have to perform always. You cannot live in history. It's now and tomorrow that counts.
+- Sometimes things go wrong in 'football. You can lose games, own-goals, you can buy the wrong players. But you do it in the right spirit and you do it honestly. That is not how it went wrong at Notts County.
+- I liked friendly games, but I took them like a test to test new players. People didn't like that very much.
+- No woman was good enough for me, according to my mother.
+- I have two great children, even if they don't live with me.
+- I would certainly never walk past a player in the corridor and not speak. Why should I do that? They have to play for you so of course I would speak to them. If you want them to do everything they can for you, then you have to treat them with respect.
+- The player picked as No 23 in the squad will not win the World Cup for you.
+- Over time I realised that the most important thing is not the system but the players you have. Then you make a system for them.
+- I thought I was prepared for England but I was not prepared for things outside football, my private life. I am not very proud that fans could probably name three of my former girlfriends. I don't think it damaged my football results. But my image outside football it damaged, yes.
+- The truth is that I never cared about money. Not one bit.
+- China, if they decide to do something, they do it. Not only in football but whatever it is. If you think about the billion population, there must be Messis or Ronaldos out there. There must be many talented football players out there.

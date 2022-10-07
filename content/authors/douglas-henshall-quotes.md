@@ -1,0 +1,62 @@
++++
+author = "Douglas Henshall"
+title = "Douglas Henshall Quotes"
+quotes_len = "56"
+description = "the best 56 Douglas Henshall Quotes"
++++
+- It's been great being on location in Shetland and out in the fresh air.
+- But as an actor, you spend the majority of your life being rejected.
+- The Catholic Church is wealthier than Coca-Cola, but takes from some of the poorest people in the world.
+- In some respects, I was almost a country boy. I ran around in streams and rivers and all that sort of thing.
+- My ma wanted to go and have a wee look at where all the Scottish kings had been buried. So we traipsed over Mull, in the pishing rain, with the parents desperately trying to find things to do as is the case with a holiday in Scotland, then on to Iona.
+- Well you know, there's a lot of people on Shetland who've never been to Fair Isle. The place itself is very unique but also the people there were fantastic. They couldn't have done enough for us.
+- I wanted a jumper. After all, in Shetland you are in the land of the Fair Isle sweater. But then everyone said to avoid that - Sarah Lund has cornered the jumper market.
+- Normally, I bolt at the idea of playing anyone for too long because I don't want it to become dull and like another job.
+- Do you know, I didn't play a policeman up until I was 40, and then suddenly that's what I have been asked to play.
+- I got to be in a western, which was the best fun ever. It's one of those boxes you tick. I've wanted to be in a western since I was seven and suddenly I got to go out there and be a sheriff, ride a horse and have the badge, firing a Smith & Wesson.
+- I entertain people. I think that's pretty good. That's what I contribute to society. I'm proud of what I do.
+- With 'Shallow Grave' people realised that you could set a film in Scotland and it didn't have to be about leaky boats in the Highlands. Then 'Trainspotting' made it fashionable.
+- I'm sure there are people who associate Iona with what they want it to be but for me it's just a nice place.
+- When I was growing up in the 1970s, my dad wouldn't take me to Ibrox or Parkhead because of all the sectarianism.
+- I wanted the world when I was 20, and when I took stock at 40 I realised I hadn't come anywhere close to getting it.
+- I live in London, where you're assaulted, from the minute you wake up. Your head becomes like a hive of bees, with all the noises being thrown at you, all the time. And then, you go somewhere like Shetland and you start to hear birds, wind, and natural sounds.
+- For me, the best thing is the young actors that come in to the series as to see the depth and breadth of talent coming into the business is fantastic.
+- It's one of those weird things you start doing: you get to have on-screen teenage children and play policemen. That's what happens to you when you hit 40.
+- Fundamentally, I do a job at which I can make a living and I like it. That's the bottom line. I still really enjoy it. I like getting up and going to work. I've spent my whole adult creative life doing this.
+- When you're young, there are always going to be one or two people who take a shine to you or get you and want to help you. Thank God for them.
+- I do believe in my national identity. I'm very proud, of what I come from and where I come from, and there are values up there that I like and that I hold on to: loyalty I suppose, and a sense of humour, and a lack of self pity.
+- I always feel I'd like to just play people who are a bit less complicated.
+- I could never call myself a Chelsea fan. I'm a St Mirren supporter. But after about 35 years of watching St Mirren, I think I'm entitled to go and see what else there is.
+- Fatherhood, parenthood, is something that completely overwhelms you and absorbs you, and you just have to be the best dad that you can be.
+- I'm interested in how people interact with the landscape around them, and the effect that has.
+- One of my pet hates is people re-Tweeting praise, I loathe it more than anything else in the world.
+- I suppose if the script and storyline is good, you've got to take what you're given, really.
+- We have a rich cultural tapestry in Scotland, it's not that there's a lack of stories.
+- I'm the only emotional frame of reference I've got.
+- Sometimes it's easy for things get away from you, a little bit, if you have too many people coming in all the time, trying to put their mark on it. If something is successful, you don't have to do that. All you have to do is keep doing what you're doing, or have been doing.
+- After my marriage ended - a hundred years ago - I had a few memorable Christmases on my own: what doesn't kill you makes you stronger.
+- I'm a big basketball fan. I like the NBA.
+- Every job I still think 'I wonder if this is the one they're going to sack me for'.
+- God, when I was about nine or ten years old, my whole summers were spent playing tennis. I was there from when it opened till when it closed. They had to kick me off the courts, I loved it so much.
+- I always think that your first test of loyalty as a young lad is your football team.
+- Where I was brought up, if you were walking down the street and you looked at someone and they looked at you, you acknowledged them.
+- Nobody aspired to be an actor where I came from and I didn't think I would get in anywhere.
+- What the Americans have done is refuse to back down. They've refused to make the cheapest, lowest common denominator forms of entertainment for TV and instead have championed television drama as an important part of our culture.
+- When I was a child growing up in Glasgow my parents did Christmas incredibly well. They were as excited about it as we were.
+- Ninety percent of the time when you see rape on the television it is gratuitous and there to either bolster viewing figures or as a lazy way of treating female cast.
+- No, my ma died nearly 20 years ago. I still miss her, and I still think about her a lot but the memories I have are warm, rather than melancholic or tinged with sadness.
+- No, I wouldn't like to be a policeman.
+- I'll lie awake and think about scenes I could have done better, that I could have filmed in a different way.
+- One of the first jobs I did out of drama school was a panto at the Magnum.
+- Flying to Fair Isle from Lerwick is an experience I'll never forget.
+- It must be terribly odd if you spend most of your time on somewhere like Shetland and come to a big city.
+- The Scandis blew the crime genre out of the water and the Americans have been doing interesting things with it for years.
+- We were in Shetland for over a month so when we arrived back in Glasgow I felt quite disorientated. It was just everything, the noise, the people. It was weird that after just a month in Shetland I felt slightly assaulted by the city.
+- I had a film career in the late 90s. And then I stopped having a film career because suddenly I didn't do anything.
+- David Hayman gave me my Equity card and my first job out of drama school - the first person I really looked up to professionally.
+- I'm not very good at being objective about myself.
+- I started doing more theatre because I love that and I ended up doing television. I ended up doing it.
+- I always wanted to do good work, but not in order to buy big houses and big cars. I just wanted to be 'alright', to have enough money to be able to live on, to go to the cinema when I wanted to, and buy the books I wanted to read.
+- I read Ann Cleeves's books and think the way she paints Shetland is very interesting.
+- When you've got an audience, there's a silence in there that you don't find anywhere else. And it's really powerful. People are there listening with you and you're affecting them in some way.
+- I don't think I am someone who sits on someone else's coat tails while others do worthwhile work.

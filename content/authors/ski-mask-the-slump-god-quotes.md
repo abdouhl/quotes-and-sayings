@@ -1,0 +1,34 @@
++++
+author = "Ski Mask The Slump God"
+title = "Ski Mask The Slump God Quotes"
+quotes_len = "28"
+description = "the best 28 Ski Mask The Slump God Quotes"
++++
+- I want to make people have fun again and show people that people can just rap and snap.
+- There's always a ying-yang in life. With everybody. There's evil in all of us. It's just about how you balance out the evil and the good and having faith in yourself and how you carry yourself.
+- Music changed my life in so many ways.
+- I like to just make flex music. So when I do make emotional music, it's hard for me, because I feel like I'm cliche. But I guess cliche is the best thing sometimes, because it's real.
+- I been seeing other people work with Belaire like DJ Khaled, Rick Ross, and stuff like that. But other than that, I just wanted to work with them because they showed me mad love and were genuine when we were locking in the deal. For me, it had to make sense and be genuine, and this partnership definitely felt that way.
+- I have 'Very Rare' tatted on my face.
+- Adapt to yourself, bro. What I wanna say is don't let nobody tell you that you should stay in your lane, bro.
+- I used to really like Method Man and Redman for some reason. And Fabolous. A lot of New York rappers, too. Cam'ron. Jim Jones. Hurricane Chris.
+- I don't want to ever be categorized. I want to be able to hit every genre.
+- I don't like being categorized as a rapper. I make music; I don't just rap.
+- Every time before I go on stage, I'm nervous.
+- You have to be strong for people when you don't wanna be strong. You have to be clean-showered, clean, clean-cut for people. You have to set an example.
+- The song that's mostly changing my career or made the biggest impact on my career would be 'Catch Me Outside.' Mainly because it hit YouTube, and that was, like, my first-ever video, so people never really seen what I looked like or knew exactly what I was about, so that was, like, the first taste of what they got.
+- 'Faucet Failure' was my favorite because I just had fun with it, and it was just 10 minutes, and I didn't overthink anything, and I wanted to just have fun with the song.
+- Timbaland is my favorite producer.
+- If you see somebody dressing like me, you know they're purposely trying to dress like me because I dress like nothing.
+- I know I do swag rap also, but I also take it seriously. It's like 50-50.
+- For me to work with someone, I have to know who I'm working with so I can learn how to deal with each other and try to help each other. At the end of the day, it really just comes down to building a genuine relationship. I think that's a very important factor in business.
+- I've always wanted to make that change from a rapper into an artist.
+- I'm gonna keep Very Rare as a street brand. I wanna make a new clothing brand and group. It's gonna be more... high fashion.
+- I hate anything that seems like something that has been done.
+- I'm one of the most humble people you'll probably ever meet.
+- A lot of us have energy that we can tap into. We sell ourselves short.
+- There's really nobody who taught me how to dress.
+- One thing that I do want to say is Drake, as an artist, anybody has to respect him. He's in the game, and he's been in the game - he has longevity, even if he doesn't write or writes his music.
+- I have a song called 'Young Voorhees,' because I like to call myself the new Jason Voorhees, and it samples 'Courage the Cowardly Dog.'
+- I want to make theme-setting music, music that sets a theme without being cliche.
+- At the time me and X met, we weren't homeless, but we were basically homeless.

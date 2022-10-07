@@ -1,0 +1,26 @@
++++
+author = "Ellen Glasgow"
+title = "Ellen Glasgow Quotes"
+quotes_len = "20"
+description = "the best 20 Ellen Glasgow Quotes"
++++
+- Women are one of the Almighty's enigmas to prove to men that He knows more than they do.
+- What happens is not as important as how you react to what happens.
+- I haven't much opinion of words. They're apt to set fire to a dry tongue, that's what I say.
+- Violence commands both literature and life, and violence is always crude and distorted.
+- To teach one's self is to be forced to learn twice.
+- Nothing in life is so hard that you can't make it easier by the way you take it.
+- Doesn't all experience crumble in the end to mere literary material?
+- Women like to sit down with trouble - as if it were knitting.
+- A tragic irony of life is that we so often achieve success or financial independence after the chief reason for which we sought it has passed away.
+- No idea is so antiquated that it was not once modern. No idea is so modern that it will not someday be antiquated.
+- There wouldn't be half as much fun in the world if it weren't for children and men, and there ain't a mite of difference between them under the skins.
+- Nothing is more consuming, or more illogical, than the desire for remembrance.
+- No matter how vital experience might be while you lived it, no sooner was it ended and dead than it became as lifeless as the piles of dry dust in a school history book.
+- No life is so hard that you cannot make it easier by the way you take it.
+- He knows so little and knows it so fluently.
+- Mediocrity would always win by force of numbers, but it would win only more mediocrity.
+- I waited and worked, and watched the inferior exalted for nearly thirty years; and when recognition came at last, it was too late to alter events, or to make a difference in living.
+- All change is not growth, as all movement is not forward.
+- It is lovely, when I forget all birthdays, including my own, to find that somebody remembers me.
+- The only difference between a rut and a grave are the dimensions.

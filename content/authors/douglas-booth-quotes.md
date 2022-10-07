@@ -1,0 +1,95 @@
++++
+author = "Douglas Booth"
+title = "Douglas Booth Quotes"
+quotes_len = "89"
+description = "the best 89 Douglas Booth Quotes"
++++
+- I'm definitely interested in taking on roles where I don't look like myself. But I'm not saying I'm going to go out of my way to play a disabled person in order to win an Oscar.
+- I remember someone saying to my mom that it must be so glamorous to have a child acting in movies. They had no idea how hard it was for her.
+- We live in a beauty-obsessed age and success sometimes appears to hinge solely on the presentation of an image that is acceptable to the press.
+- I grew up in London, and that's where I spend most of my time. Unless I have a really good reason not to be, I'll always be in London.
+- I have always wanted to work with Judy Dench, and that hasn't happened yet, so that would be fun.
+- For me, if Shakespeare was around today, he'd be writing screenplays - a big Hollywood movie.
+- Yeah, 'Requiem for a Dream' - it'll put you off a lot of things, that film, that's for sure.
+- One of the biggest things I used to struggle with was about things like going on holiday. Whereas all your friends can talk about something and plan something all year long, I know that I'm probably going to be away and I'm going to miss all of it. If a job comes up, you just can't be there.
+- I've spent a lot of my teenage years working on sets. I've missed out on more than just playing rugby, but I think I've managed to keep my feet on the ground and keep my friends around me.
+- It's great to fall head over heels in love at a fast pace, and nothing's more romantic, but you need to look after yourself.
+- It's a bit of a cliche, but I think girls like to get flowers. I think books are quite romantic, too. If you can find an interesting book, that brings something out in your partner that can be very romantic.
+- I suppose 'Worried About the Boy' was a brave choice, but only in the sense that if I didn't get it right, my career would be over before it had begun.
+- My friends joke I'm a 90-year-old stuck in a young man's body.
+- I tried to forget about playing Romeo in 'Romeo and Juliet' and just think about him as a normal guy, as a normal character, and just try and approach him the same I would every other character.
+- I saw 'The Fountain' because my friend came over one day and said, 'This is my favorite movie I've ever seen. Please watch this,' and I watched it, and that was amazing.
+- If a rock band throws a TV set out of a hotel window, it's seen as anti-Establishment.
+- I'm a huge festival fan. I love to dance and dance all night long.
+- I loved 'Harry Potter' growing up. I'm dyslexic and a slow reader, but I could get through the thick ones in days!
+- I'm pretty romantic.
+- I just think if you're going to do something, do it properly.
+- The British actors I've met and worked with have all been very supportive of each other.
+- When I was younger, I looked a lot older than I was. They have these working laws in England where you have to be 16: if you're over 16, you don't have to be restrained by working hours and things like that. In America, it's actually 18.
+- Articles always end up being about my appearance. I had a conversation with Jude Law: he told me people's obsession with looks goes away after a while.
+- I turned down one of the big young adult franchises.
+- I bike everywhere.
+- It's fun to play a dark character, but you go home at the end of the day not feeling very good about yourself. You go away feeling dirty. It seeps into the air.
+- It's very important to hold on to what you want. In front of you is very easy fame and very easy money.
+- I'm not a player; I'm just a lovely guy, and I can show a girl a good time.
+- Darren Aronofsky is on another level. You get lost in a scene, and he'll come over and whisper something in your ear, and suddenly everything makes sense.
+- If my feet ever left the ground, my mother would soon put them back down.
+- When you're forced to watch something in school, you never really enjoy it; you sort of rebel against it in a certain way.
+- I took up drama and did so much extracurricular work, like the National Youth Theatre and Guildhall's Saturday school. Acting is where I felt most comfortable and how I wanted to express myself.
+- It's better to think of life as a proper journey with a beginning and an end. Maybe, I can settle for being immortalised on screen.
+- I only want to work with interesting filmmakers.
+- I fell in love at 14 and I remember that mad, tense feeling and all the mad things you do for the person - all those extremes and all the stuff you don't mind putting up with.
+- I loved 'Gladiator' when I was young. Russell Crowe was a big inspiration; the fact that he plays my father in 'Noah' was amazing.
+- Sometimes a script comes along that really makes you sit up and pay attention... 'Life at These Speeds' has an emotional intensity that really kicked me in the guts.
+- Sexuality is such a small part of the make-up of someone; it's not who they are.
+- You can have an amazing director and terrible script, and the film's not going to be great. But if you have the most incredible script and an okay director, you could still get a really good film.
+- Communication is important.
+- My grandfather was a great chef.
+- I may not have seen my girlfriend for two or three months, but then we can spend two or three months together solidly. It's swings and roundabouts.
+- Who doesn't want to fly around in a spaceship?
+- I looked on IMDB, at the message boards there, and someone had posted something about a sheep having more talent than me.
+- To be able to experience a thousand different lives within my lifetime is something that always appealed to me. I wasn't content with just being one person for the rest of my life.
+- I like to wake up late, around 11 A.M., especially if I have been out the night before. Then I go to brunch with either my friends or my girlfriend. I then like to just chill out: read the papers, read some scripts and then take it very easy. If it's sunny, I go for a walk with my dog, Niles, in the countryside.
+- David Cameron was a good-looking chap in his day!
+- I love clothes and do sort of change my wardrobe a lot. But a thousand dollar jacket? I'd rather spend it on an experience, like traveling.
+- The first lead that I ever played was a young Boy George when I was seventeen. I shaved my eyebrows off. That's as far from leading man looks as you can get.
+- You may have a broken heart, but you may find someone else.
+- Even to this day, when someone says something derogatory about Boy George, it still upsets and offends me. Part of me will always be quite attached to him.
+- On a Friday night, I like to go out because my friends, who have been working normal hours, just want to let go after a stressful week at work.
+- I don't feel like I've ever kissed any of the people I have done for acting. That moment didn't exist for you; it existed for that person.
+- I try to find more interesting material with each project I do.
+- The 'boy next door' parts I get offered, I don't find interesting.
+- Some people call me Dougie Fresh. I don't know why.
+- I can play the trumpet. Before I became an actor, I wanted to be the next Louis Armstrong. I started young and got to grade seven. When I turned 13, everyone started whipping out guitars, looking cool and joining rock bands, so I stopped playing.
+- Romeo and Juliet were stunning and beautiful, but a lot of the other characters surrounding them were caricatures.
+- I saw 'Othello' at the National Theatre in London, and it was so stunning. I was so moved. It's beautiful.
+- I've never been aware of the difference between so-called posh actors and working-class actors.
+- I was lucky enough to get a very good agent at the age of 15, and got my first film when I was 16, so it's been rolling on since then.
+- 'Noah,' for me, wasn't a decision about taking on the Bible. It was about working with Darren Aronofsky.
+- I dreamt of being an actor ever since I was young.
+- I've always enjoyed being on a horse.
+- I've met some of the most beautiful women in the world, and I can tell you lots of them are the most unattractive people I've ever met.
+- It's important to read as much as you can because you never know when you will find the best script that you want to do next. I'm always quite picky in what I read and what I go for.
+- I think I'm low-maintenance.
+- I get bored quite easily, so I like to keep my mind entertained by challenging myself.
+- What annoys people is the idea that somebody has everything, and they're allowed to get away with anything. It's the sense of entitlement that gets up people's noses.
+- I love the challenge of playing characters forced on life-changing emotional journeys. To work on a project with Billy Crudup and Sam Rockwell is just a dream come true.
+- I love art. My sister is an artist and my mother is a painter, so it is very much in the family. I haven't ever wanted to be a fine artist myself - my sister robbed me of my artistic talent, I think.
+- Every year I look at the 'GQ' Best-Dressed List and have thought what an honour it must be to be included. I couldn't believe my eyes when I saw my own face in there.
+- I believe if you're prepared to kill the animal, you're allowed to eat it.
+- Dickens writes such brilliant characters and stories, and his themes and social commentary are still so relevant. I think that's why he's still so loved today.
+- 'GQ,' you've been patiently and stylishly educating me forever. To be truly stylish, you have to be kind and courteous.
+- I would hope I was raised polite and charming.
+- I think Hollywood is interesting. As an actor, Hollywood would be a horrible place to go if you weren't actually invited.
+- I love to dance and dance all night long.
+- I love history, and Churchill is one of my favorite people to study. He's a fascinating, fascinating man.
+- The negative about acting is that you have to spend a great deal of time away from your friends and loved ones, but it's not like working a 9-5 job and only having two or three weeks off a year. I may not have seen my girlfriend for two or three months, but then we can spend two or three months together solidly.
+- 'Romeo & Juliet' is still relevant and real.
+- The grittier, the dirtier, the worse I can look, the happier I am. It takes the pressure off.
+- I love to go see films, even on my own. I just walk to the nearest cinema. There's nothing better than watching a movie alone; you can just sit there and zone in.
+- I am huge water sports fan. I love to jet ski, speedboat, water ski. So I love to get away to somewhere sunny and just get on the water and have some fun with some friends.
+- For the moment, whenever I read, it is normally scripts. You start a book and then you think, 'I should be reading these five scripts.'
+- External beauty is a bizarre thing to me.
+- When I do my own wardrobe, I try to wear a designer from each of the countries I'm visiting: Tom Ford for New York, Hugo Boss for Germany, Burberry for England.
+- I don't necessarily want to hear about my talent or my greatness as an actor.
+- I'm literally into any type of music imaginable.

@@ -1,0 +1,39 @@
++++
+author = "Vaclav Havel"
+title = "Vaclav Havel Quotes"
+quotes_len = "33"
+description = "the best 33 Vaclav Havel Quotes"
++++
+- Isn't it the moment of most profound doubt that gives birth to new certainties? Perhaps hopelessness is the very soil that nourishes human hope; perhaps one could never find sense in life without first experiencing its absurdity.
+- Work for something because it is good, not just because it stands a chance to succeed.
+- I think theatre should always be somewhat suspect.
+- It lies in human nature that where you experience your first laughs, you also remember the age kindly.
+- The exercise of power is determined by thousands of interactions between the world of the powerful and that of the powerless, all the more so because these worlds are never divided by a sharp line: everyone has a small part of himself in both.
+- Modern man must descend the spiral of his own absurdity to the lowest point; only then can he look beyond it. It is obviously impossible to get around it, jump over it, or simply avoid it.
+- Hope is a state of mind, not of the world. Hope, in this deep and powerful sense, is not the same as joy that things are going well, or willingness to invest in enterprises that are obviously heading for success, but rather an ability to work for something because it is good.
+- What's certain is that a totalitarian enclave like Cuba's can't continue to exist, so change will definitely come there, eventually.
+- Anyone who takes himself too seriously always runs the risk of looking ridiculous; anyone who can consistently laugh at himself does not.
+- As soon as man began considering himself the source of the highest meaning in the world and the measure of everything, the world began to lose its human dimension, and man began to lose control of it.
+- There's always something suspect about an intellectual on the winning side.
+- In my opinion, theater shouldn't give advice to citizens.
+- There are times when we must sink to the bottom of our misery to understand truth, just as we must descend to the bottom of a well to see the stars in broad daylight.
+- Sometimes I wonder if suicides aren't in fact sad guardians of the meaning of life.
+- I really do inhabit a system in which words are capable of shaking the entire structure of government, where words can prove mightier than ten military divisions.
+- But if I were to say who influenced me most, then I'd say Franz Kafka. And his works were always anchored in the Central European region.
+- Hope is definitely not the same thing as optimism. It is not the conviction that something will turn out well, but the certainty that something makes sense, regardless of how it turns out.
+- Hope is a feeling that life and work have meaning. You either have it or you don't, regardless of the state of the world that surrounds you.
+- Even a purely moral act that has no hope of any immediate and visible political effect can gradually and indirectly, over time, gain in political significance.
+- Just as the constant increase of entropy is the basic law of the universe, so it is the basic law of life to be ever more highly structured and to struggle against entropy.
+- The attempt to devote oneself to literature alone is a most deceptive thing, and often, paradoxically, it is literature that suffers for it.
+- Theater is there to search for questions. It doesn't give you instructions.
+- The deeper the experience of an absence of meaning - in other words, of absurdity - the more energetically meaning is sought.
+- Drama assumes an order. If only so that it might have - by disrupting that order - a way of surprising.
+- If we are to change our world view, images have to change. The artist now has a very important job to do. He's not a little peripheral figure entertaining rich people, he's really needed.
+- I think it's important for one to take a certain distance from oneself.
+- When a truth is not given complete freedom, freedom is not complete.
+- Lying can never save us from another lie.
+- Hope is not the conviction that something will turn out well but the certainty that something makes sense, regardless of how it turns out.
+- The salvation of this human world lies nowhere else than in the human heart, in the human power to reflect, in human meekness and human responsibility.
+- None of us know all the potentialities that slumber in the spirit of the population, or all the ways in which that population can surprise us when there is the right interplay of events.
+- The tragedy of modern man is not that he knows less and less about the meaning of his own life, but that it bothers him less and less.
+- Without free, self-respecting, and autonomous citizens there can be no free and independent nations. Without internal peace, that is, peace among citizens and between the citizens and the state, there can be no guarantee of external peace.

@@ -1,0 +1,15 @@
++++
+author = "David Brooks"
+title = "David Brooks Quotes"
+quotes_len = "9"
+description = "the best 9 David Brooks Quotes"
++++
+- When you cover politics, you realize that knowing how to talk about character matters more and more. The way we hold ideas is more important than the ideas.
+- This death cult has no reason and is beyond negotiation. This is what makes it so frightening. This is what causes so many to engage in a sort of mental diversion. They don't want to confront this horror. So they rush off in search of more comprehensible things to hate.
+- People used to complain that selling a president was like selling a bar of soap. But when you buy soap, at least you get the soap. In this campaign you just get two guys telling you they really value cleanliness.
+- America is not just a democracy, it represents a certain culture of competitive mobility and personality aspirations, politics is not merely a clash of interests, but a clash of dreams.
+- The rich don't exploit the poor. They just out-compete them.
+- To explain the unknown by the known is a logical procedure; to explain the known by the unknown is a form of theological lunacy.
+- People want reality that tells them how right they are all the time.
+- What family you were born into matters so much more than it did before in a perverse way.
+- Highly educated young people are tutored, taught and monitored in all aspects of their lives, except the most important, which is character building. When it comes to this, most universities leave them alone.

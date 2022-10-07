@@ -1,0 +1,24 @@
++++
+author = "Delphine Arnault"
+title = "Delphine Arnault Quotes"
+quotes_len = "18"
+description = "the best 18 Delphine Arnault Quotes"
++++
+- I'm quite discreet. I think I'd rather focus on my work. So, I only speak when I have something to say. 'Live hidden, and live happy.' Is that the same in English as it is in French?
+- Louis Vuitton has a long history with collaborations.
+- You have to be very brave and very entrepreneurial - you have to dare to create your own brand.
+- I'm lucky that it's about fashion and perfume and cosmetics. If my father had owned a tire company, I don't know what I would have done.
+- The worlds of art and fashion have always been very intertwined at Dior. Francois-Xavier Lalanne and his wife, Claude, for instance, did windows for Monsieur Dior. Dior himself was a gallerist before becoming the revolutionary fashion designer we all know.
+- In the States, entrepreneurs inspire a lot of people and are respected for creating jobs. That makes people dream and feel happy for their country.
+- I have a passion for modern and contemporary art. I spend a lot of time in museums; I particularly like the Guggenheim, MoMA in New York or LACMA and the Getty Museum in Los Angeles, for example. I cannot wait for the Louis Vuitton Foundation to open.
+- When you're a young talent, and you want to launch your brand, you always have tons of questions: Where should I produce? Should I launch a second line? Should I do shoes, accessories? If you have someone who can coach you and give you advice and help you find the right supplier, it's a big help.
+- I think it's interesting to speak when you have something to say.
+- I think an art collection is a lot like a diary. Your taste evolves with time. I try to never sell anything, because it's part of my journey.
+- I think it's a great thing to support fashion and support designers.
+- Although I feel very French, a part of my heart is in the States. When my brother and I arrived, we didn't really speak any English, and when we left, that's all we spoke when we played together. It was just a beautiful place to grow up.
+- It's important to celebrate the monogram. It's the DNA of Vuitton. I think - I hope - there is an interest in the philosophy and culture of the Vuitton name. It's quite coherent and intellectual, and the products are great. These are things you will want to pass on - things you treasure.
+- I firmly believe that success lies in the combination of both talent and business savvy, and that the magic comes through partnership between both.
+- The Americans are very effective and action-driven.
+- At LVMH, we have amazing heritage brands, and we put interesting talents in those brands, sometimes very young, like we did at Givenchy with Riccardo Tisci at the time, or like we just did with J.W. Anderson at Loewe, but also talents that are already further along in their careers, like Raf Simons at Christian Dior or Nicolas at Vuitton.
+- I can't imagine myself not working. And I hope my daughter will work when she's older.
+- It's always important to invest in young talents and the talents of tomorrow.

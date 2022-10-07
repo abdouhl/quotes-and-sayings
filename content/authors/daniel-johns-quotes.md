@@ -1,0 +1,40 @@
++++
+author = "Daniel Johns"
+title = "Daniel Johns Quotes"
+quotes_len = "34"
+description = "the best 34 Daniel Johns Quotes"
++++
+- Kinda when I stopped eating was on our second album, just as it felt like everything was so out of control.
+- When we first began and I was 14, my influences were the stuff that was in my parent's record collection like Deep Purple and Led Zeppelin.
+- I'm always active in trying to educate people when it comes to eating animal products, testing on animals, and the health benefits of being vegan, although I'm probably not the best person to be talking about the latter at the moment.
+- I have not really experienced any significant conflict with anyone in regard to my choice to be vegan, although going out to eat is hard sometimes.
+- None of us are really dumb and none of us are really smart. We're in the middle.
+- I had to try and find a way to express happiness without sounding corny.
+- I get very anxious and am scared in crowds and things like that.
+- Touring doesn't kill me and I can handle it.
+- I think I definitely got scared by the second or third time a doctor told me I was dying.
+- We were perceived as a post-grunge band.
+- We never considered ourselves to be a good band or anything, we just thought we were playing for fun and we wanted to play music that sounded like Black Sabbath or Soundgarden or the music we were into at that time.
+- The touring for this album was definitely going to be the most intense touring we've done.
+- There was three or four years of my life where I hated myself and you know, would have quite happily ended it.
+- I am doing everything humanly possible to try and get well, but lately things have just kept getting worse.
+- I start sweating and shaking and having panic attacks if I am not at home.
+- I know if I don't tour people will forget the record and you run a high risk of the record failing.
+- I have never had a social life, don't ever want one because it's boring. I'm just not very good with people, and you meet people every night who expect you to be this rock star with these developed social skills, which I don't have.
+- With our first two records we backed ourselves into a hole musically.
+- Reactive arthritis is something I've been dealing with for nearly a year.
+- I never really paid attention to sales until the second record.
+- I'm lucky the arthritis happened at the time that it did because of the record.
+- I try to stay positive by focusing on how much I'll appreciate my health if I get better.
+- It makes it hard to get over a certain period of your life when you are constantly revisiting it every night.
+- We were really motivated to do something with this record overseas, even though I hate touring.
+- There's an inherent thing in me where, if things are going too smooth, I'll sabotage the hell out of them, just to make the music more of a sanctuary.
+- It just makes everything more pleasurable when you've got someone that emotionally is there to rely on.
+- Basically, the reason I'm vegan is because when I was about 16 or 17 years old, I began to understand that we don't need to contribute to the killing and exploitation of animals to feed our bodies correctly.
+- There are no big groupie fans or anything.
+- We met The Cult and were talking to them for a while. We went a few places with Offspring.
+- So I went and visited a doctor and he diagnosed me with reactive arthritis.
+- I have a theory because I was being beaten up a lot by people outside of school, it was almost like if I could make myself sick enough they'd take sympathy on me.
+- Though, since the first record, I've dramatically changed my expectations for our records.
+- I am very scared of being outside my home for long periods of time.
+- I wrote... Neon Ballroom in that time where I hated music, really everything about it, I hated it.

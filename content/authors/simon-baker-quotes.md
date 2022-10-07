@@ -1,0 +1,40 @@
++++
+author = "Simon Baker"
+title = "Simon Baker Quotes"
+quotes_len = "34"
+description = "the best 34 Simon Baker Quotes"
++++
+- I do have a lot of Australian friends.
+- I don't like fancy fiddly girlie stuff.
+- French are what they are without excusing themselves to be.
+- I need some challenges in love or I'm bored.
+- When I have to play the same role every day, I have the flexibility to play the character in so many different ways. It's almost like playing five different roles.
+- In general, the problem in a relationship is when the couple stagnate.
+- I like putting my money into things like food and shelter. I'm probably a bad example of an investor.
+- I'm a big fan of Alan J. Pakula's films like 'All the President's Men', 'The Parallax View,' and 'Klute.' I'm a big fan of those movies.
+- L.A.'s a better place to live than it is to visit.
+- Sometimes the intensity and the grind of doing television can wear you down, but at the same time there's something about the repetition, the sheer mass of work that you do that's also liberating.
+- For an actor working in television or film, I think it's important to understand how the medium works - how the camera and lenses work and how the sound and the editing works.
+- I think this Occupy Wall Street thing is great. I think that is a good thing and that people need to stand up, voice their opinions, and be heard.
+- I've always been a shy person.
+- I don't use deodorant. If you drink enough water, you shouldn't have to. I think I smell pretty good without it.
+- I love con-men characters in film.
+- In network TV, you have to present the box before you can step outside it.
+- I don't like the idea of talking down to kids. I think I was talked down to, and you rebel against that.
+- There's more of a family connection when you're working on a TV show. That's not to say that you don't make great connections when you're working on films, but it's different unless you're there working every day.
+- I think my kids are pretty well-rounded citizens of the world.
+- I am very straight-forward and direct. If I disagree with something, I say something about it.
+- I've seen the odd tarot reader and had my palm read in various countries and explained to me in many strains of broken English. Did I believe a word? To be honest, I didn't understand much, but I loved watching the presentation.
+- Time goes a lot quicker when the work is a lot more enjoyable.
+- It's always difficult when you're on a show that goes for more than a year or a couple of years.
+- My life is pretty hectic, but I'm really into it.
+- Every TV show is a crapshoot, really. But every once in a while, a show gets anointed as 'the show.'
+- I cut my own hair most of the time. You just do it all by feel.
+- I'm pretty good at gardening. It consumes my time, and it feels like I'm doing something constructive.
+- I would love to do a rom-com, but they are not good - good and successful doesn't equate to the same thing.
+- I try to be straightforward and honest with my kids, and I believe nothing beats good old hard work.
+- The French have the reputation of being arrogant. I don't think it's arrogance but a certain authenticity.
+- Well, capitalism is going to grow and grow. The nature of it is that the guy who has the most poker chips on the table has more leverage than everyone else. He can eventually outbluff everyone else and outraise everyone else at the table. That's what has happened and it needs to be corrected.
+- A shot is only as every as good as how well it tells the story.
+- As a kid I was always a bit of a clown, a performer.
+- My kids think I'm old and over the hill.

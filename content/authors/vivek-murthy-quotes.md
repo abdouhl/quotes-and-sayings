@@ -1,0 +1,106 @@
++++
+author = "Vivek Murthy"
+title = "Vivek Murthy Quotes"
+quotes_len = "100"
+description = "the best 100 Vivek Murthy Quotes"
++++
+- Surgeon generals are appointed by presidents, but our work isn't about politics. Our highest duty to to the public. Our true guide is science. Our job is to speak the truth about public health, even when it's controversial or perceived as political.
+- Emotional well-being is more than the absence of a mental illness. It's that resource within each of us which allows us to reach ever closer to our full potential, and which also enables us to be resilient in the face of adversity.
+- While there are relatively few extreme introverts or extroverts, most of us lean in one direction or the other. If we lean more toward introversion, we'll generally prefer less social activity than more extroverted people. One inclination is not 'better' than another, but our culture can make it seem as if extroverts have a social advantage.
+- Part of the reason people don't talk about their loneliness is that they feel they will be judged for it.
+- There are several factors in modern society that contribute to loneliness. One is that we are more mobile than we have been in decades past, which is fantastic in many respects, but also leads to us to move away from communities that we grew up with and got to know over time.
+- I'm calling for a cultural change in how we think about addiction. For far too long people have thought about addiction as a character flaw or a moral failing.
+- Loneliness is different than isolation and solitude. Loneliness is a subjective feeling where the connections we need are greater than the connections we have. In the gap, we experience loneliness. It's distinct from the objective state of isolation, which is determined by the number of people around you.
+- In the short term if I feel loneliness, it's like any other biological signals. It's like hunger or thirst. It's alerting me that something that's critical for my survival is missing.
+- It is true that there are some parents who have concerns about vaccines, but while we hear about these concerns a lot in the media, I don't want people to think that the majority of parents out there do not believe in vaccines and then most kids aren't getting vaccinated. In fact, it's exactly the opposite.
+- It turns out that our ability to connect with other people is driven by our ability to connect deeply with ourselves. And that can be just a few minutes sitting on your porch feeling the breeze against your face. That can be a few moments spent in meditation or in prayer or remembering three things you're grateful for.
+- Be very disciplined about dedicating some time - even if it is five minutes a day - to calling or talking to someone you love. That kind of consistency, even if it is just five minutes a day, helps to remind us that we have a well of connection in our lives.
+- Unlike many other illnesses, what I find profoundly empowering about addressing loneliness is that the ultimate solution to loneliness lies in each of us. We can be the medicine that each other needs. We can be the solution other people crave. We are all doctors and we are all healers.
+- What defines loneliness is our internal comfort level.
+- Despite growing up in very poor circumstances, my father had big dreams.
+- It's easy to say that health is all about personal responsibility and we should all make good decisions for ourselves, but the reality is far more complicated. We know that in the case of motor vehicle accidents, how other people drive makes a difference in how safe you are.
+- The A.C.A. is not perfect, but it has helped us move forward.
+- When I look at the patients that I've cared for with mental illness, I know that many of them took years to come forward and tell somebody that they were in pain and that they needed help.
+- Well, the responsibility of the surgeon general is to make sure that the public has access to science and access to it in a way that is understandable and that is applicable to their everyday lives.
+- I believe that inspiration is one of the most powerful forces in life. In career and in relationships, it's worth searching for the path that inspires you. Pursuing such a path often entails risk - it may involve making a big change in what you're doing - but the career risks we regret most are the ones we don't take.
+- Many people feel that if they're lonely, that means that they're not likable or that they're broken in some way.
+- We can work on sharpening our prescribing practices, working with clinicians to ensure we're treating pain safely and effectively.
+- Whenever you have large numbers of people who are dying for preventable reasons, that constitutes a public health issue.
+- Climate change poses a serious, immediate and global threat to health.
+- While loneliness has the potential to kill, connection has even more potential to heal.
+- We forget some of the oldest medicines we have are love and compassion, and they can be deployed by everyone.
+- One of the things that happens in our regular lives is that when we're in moments of pain or feeling alone, we may hesitate to reach out to others because we may think - they're not going through the same experiences I am.
+- There's a tremendous sense of shame that people who are lonely feel. I say that as someone who felt ashamed of being lonely as a child and even at points during adulthood.
+- In fact, people with mental illness are more likely to be the victims of violence rather than anything else. So it's important that we not stereotype folks with mental illness.
+- The amount of sleep you get has an impact, not just on how you feel the next day, but it has an impact on your long-term health as well.
+- I think sometimes in the focus on deep friendships and on romantic relationships, we can lose sight of how important the small connections we make are with strangers and with people that we may encounter for just a few seconds or a few minutes, whether it's the barista at our coffee shop or the stranger next to us on the subway.
+- I do not intend to use the Surgeon General's Office as a bully pulpit for gun control.
+- When I began my tenure as surgeon general, I did not intend to focus on emotional well-being.
+- A few colleagues and I began Doctors for America with a simple belief that physicians should play a leadership role in designing and running our nation's health care system.
+- When I was younger, my family suddenly and unexpectedly lost all of our life savings to a man we had trusted as a friend. The financial loss was difficult, especially because my sister and I were both in college. But the breach of trust was even more painful.
+- Emotions are a source of power, and that's what science tells us. But many people I encounter have been led to think of emotions as a source of weakness.
+- Most parents vaccinate their kids. That is the bottom line.
+- We can no longer remain within our exam rooms and ignore what happens in our communities. As physicians and dentists, we must have a presence in both places. Our sacred responsibility is both to help the patient in front of us and also to safeguard the health of the nation.
+- I can learn a lot from reading briefing books and talking to experts, but that pales in comparison to what I can learn from going out and talking to people about what they're actually experiencing and hearing about their ideas.
+- We don't do enough to help older people recognize how much they matter.
+- Without strong communities, we cannot pull together during times of hardship. Our diversity turns from a source of strength to a source of conflict.
+- Service is a powerful pathway of getting out of loneliness. It takes the focus off of you and puts it onto someone else.
+- If you're very introverted, you prefer to spend much of your time alone, and when you do connect, you'd rather get together with one or two close friends than face a crowd.
+- It turns out the most powerful way we can turn the tide on chronic disease is something we have been doing for millennia: That is walking.
+- When it comes to our relationship with loneliness, specifically, it's important to understand how our relative introversion or extroversion informs our preference for social interaction.
+- Gun violence is a problem that this country should be addressing.
+- Science tells us more and more now that there is a strong connection between emotional well-being and health outcomes, and that you can proactively cultivate emotional well-being through relatively simple practices like sleep, social connection and meditation.
+- I want to work with faith-based leaders to address the negative attitudes that are still too often associated with mental illness, attitudes that hold people back from getting the help that they need.
+- Anchors are those people in your life who remind you of who you are - your values, aspirations, and worth - even when you forget. Keep them close and always let them know how much they mean to you.
+- Touch is incredibly important as part of the human experience. Our ancestors relied on human touch to form and strengthen bonds with each other. Touch can accelerate a feeling of connection and releases hormones in our body that engender trust and build connection.
+- I have long believed that there are fundamentally two forces or emotions that drive our decisions - love and fear. Love has its many manifestations: compassion, gratitude, kindness, and joy. Fear often manifests in cynicism, anger, jealousy, and anxiety. I worry that many of our communities are being driven by fear.
+- We know that chronic loneliness has consequences. It certainly depresses our mood. And in terms of our health, people who struggle with loneliness also have an increased risk for cardiovascular disease, dementia, depression, and anxiety. Loneliness is also associated with a shorter lifespan.
+- Sometimes when you get sick and you go to the doctor, it can feel like you didn't get your money's worth if you don't come away with a pill. I've had many, many conversations with patients who I've cared for over the years about why it's actually in some cases better not to go home with antibiotics.
+- When you're in a pocket with low vaccination rates, that's when you find yourself at greater risk of getting measles.
+- If we approach other people understanding our own value, being confident in who we are, being centered and grounded, it's actually easier for us to connect with them because we can listen more deeply and we can express ourselves more authentically without fear of being judged or not being enough.
+- I think that if we want to create a healthier country, we need to empower more people to make changes in their lives. But we also have to empower them to help change their environment.
+- As all of us know, health is deeply intertwined with culture: what we eat, how active we are, how much we sleep. These are rooted in cultural norms.
+- Giving and receiving kindness are easy ways to feel good and to help others feel good too. People, organizations, and societies thrive when they are grounded in a culture of kindness.
+- I trained in internal medicine, and I expected most of my time would be spent on diabetes or heart disease or cancer. What I didn't expect was that so many people I saw would be struggling with loneliness.
+- When I was Surgeon General, I spent a lot of time talking to people in living rooms and town halls all across the country, and one of the things I started to notice was that behind many of the stories of addiction, violence, depression and anxiety were threads of loneliness.
+- When I was training in medicine for example, there was a culture in medicine that strong people didn't need sleep, that the less you slept, the more you just powered through a tough call not on no sleep, the stronger you were. That is not helpful to have a culture that supports healthy practices like that.
+- I am a big basketball fan. I have been watching basketball ever since I was a young boy.
+- I have experienced loneliness at many, many points in my life and felt this profound sense of shame about it - all the years when I was a child that I struggled with feeling lonely when I was scared to go to school and petrified of walking into the elementary school cafeteria because I was worried I wouldn't have anyone to sit with.
+- For far too many people, the stigma around addiction prevents them from stepping forward for help.
+- When we have emotional pain in our lives, we are going to seek to relieve that pain in some way.
+- You can be surrounded by many people but still feel quite lonely if you don't have strong connections and if you feel you can't be yourself with them. Conversely, you can just be around a few people, but feel deeply connected to them.
+- When people tell you that you're less-than and that you don't matter and that you're inferior, you internalize some of that.
+- Not all social interaction is uplifting.
+- We don't just want to eradicate illness. We want people to achieve their full potential.
+- My journey to working on loneliness was certainly not an expected one or planned one.
+- Our health care workers are the heroes of the Covid-19 response.
+- My mother was from a middle-class background.
+- Our nation absolutely has what it takes to overcome the COVID-19 pandemic that's claimed tens of thousands of our loved ones. We have the talent, resources and technology.
+- We have to recognize that we can help increase happiness of other people by reaching out, and building connections. People have done that for me in my life. There have been many times that my family and friends have reached out to help support me and contributed to my emotional wellbeing, and ultimately to my health.
+- Kindness is more than a virtue. It is a source of strength.
+- A prevention-based society is one in which every institution, whether they're a hospital or a clinic, or a school, an employer or a faith-based organization, recognizes and embraces the role that it can play in improving health.
+- When you help someone else, not only do they benefit, but you reaffirm to yourself that you have something of value to give them, and you help to strengthen and nurture a bond with an individual that you're helping.
+- My father grew up quite poor actually in a small farming village in South India. His grandfather was a farmer, his father was a farmer, and he was expected to be a farmer as well - his life took a different path.
+- Empathy is choosing to see ourselves in another despite our differences. It's recognizing that the same humanity - the same desire for meaning, fulfillment and security - exists in each of us, even if it's expressed uniquely.
+- We will not solve the addiction problem in America if we don't address social connection.
+- We can't underestimate the power that we have as individuals to provide the support that people need to provide that transition from a place of pain to a place of possibility.
+- When I went through my confirmation hearing to serve as surgeon general they asked me what my priorities would be and I didn't list loneliness in that priority list because it was not one at the time.
+- What you quickly realize once you commit to getting more sleep is it can increase your productivity, it can improve your mood. And that doesn't just help you at work, but it helps you be the kind of person you want to be with your family and your friends and that's ultimately what matters most.
+- We can experience an erosion of self-esteem when we're lonely, as we come to believe that it's because we're not likable or because something is broken inside of us. And that can just compound that loneliness further and further.
+- With any sort of major change we need to make in our lives, it's much easier to do it with other people. We succeed and thrive best when we work together and support each other. When we struggle alone, that's when the struggle can seem impossible.
+- I firmly believe that everybody in America needs a safe place to walk or to wheelchair roll.
+- We live in a society where individual effort and progress is valued, and that's absolutely correct and is as it should be. But we also are interdependent creatures. We can't succeed solely on our own.
+- If you use that time where you're alone in ways that bring you joy and peace, then that solitude can have a really positive effect on your life.
+- Sometimes people get upset when you tell the truth, when you share the facts as science dictates.
+- When it comes to creating emotional wellbeing, we are only going to achieve this, I believe, if we help each other in that effort. Part of that is reaching out and building social connections in people who may not always have the social connections or the support that they need.
+- So my weakness is sweets. I like bread pudding and cheesecake in particular.
+- Loneliness can become a downward spiral.
+- I have come to believe that America is a promise we have made to one another.
+- If you've ever had the experience of being in conversation with someone when they were fully present, listening deeply to you when you're sharing with them, you know that five minutes of a fully present conversation like that can be more powerful than 30 minutes of distracted conversation.
+- I grew up in Miami, Florida and the Miami Heat were my favourite team growing up. In fact, the franchise started when I was here in high school, I believe. My favourite player, growing up at that time on the Miami Heat, was Rony Seikaly but in the years since, Dwyane Wade, also an icon for the Miami Heat, has become my favourite player.
+- I think of emotional well-being as a resource within each of us that allows us to do more and to perform better. That doesn't mean just the absence of mental illness. It's the presence of positive emotions that allows us to be resilient in the face of adversity.
+- Empathy has the power to bring together people who would otherwise never meet. It has the power to teach us and to reach us in moments of isolation when we think nobody understands.
+- The amount of time it takes to recover from the coronavirus differs widely. Some people will get the virus and have no symptoms at all, other people will have mild symptoms like a low-grade fever or a mild cough and others will get really ill and will need to be hospitalized.
+- As prevalent as loneliness is, many people don't recognize that people that they know may very well be suffering from loneliness. It's important for many reasons, one of which is that it has a profound impact on health.
+- Addiction is a chronic disease of the brain and it's one that we have to treat the way we would any other chronic illness: with skill, with compassion and with urgency.
+- Arranged marriages are ones where you got to learn who the person is after you actually get married, which can be challenging.

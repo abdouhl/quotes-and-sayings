@@ -1,0 +1,86 @@
++++
+author = "Sean Hayes"
+title = "Sean Hayes Quotes"
+quotes_len = "80"
+description = "the best 80 Sean Hayes Quotes"
++++
+- I did, like, 30 or 40 commercials before 'Will & Grace' where I was the straight husband. I had two spots on the Super Bowl in 1998 where I was the straight dude.
+- I was a piano major with Craig Robinson from 'The Office.' Me and Craig were very close in college at Illinois State University... It's so bizarre to see us out here now doing things.
+- I never felt like I could be myself at home.
+- I'm consumed with what I didn't do. I know I should've come out sooner, and I'm sorry for that.
+- I think because my life is so insane and it's constantly going at 120 miles per hour, my favorite thing to do is sit at home in front of the TV and check out.
+- I love showing people that I wasn't that guy, the guy in 'Will & Grace.'
+- The thing about producing is that the pressure is off of being in front of the camera, and being critiqued and judged in that way, but there are other pressures producing.
+- I felt like I couldn't fully be myself and accepted in my family, so I would lock myself in my room on a Saturday night and watch 'Saturday Night Live,' and that was, like, the best thing that ever happened to me.
+- I'm a hamster person.
+- I felt so much pressure to come out on other people's terms, you know? I should have come out.
+- I was anxious to get back to my life before 'Will & Grace.' You do need that time to find who you are again. Who am I without this? With fame, you can't help but lose yourself. You want to be the one who says, 'I'll always remain the same,' but it is humanly impossible to disallow fame to change you.
+- When you see me play Jack, I want you to believe that that's a gay character.
+- I like to be busy and I like to have places to go in the morning, when I get up.
+- The only thing that's required of an actor for an audition is to memorize your sides with confident choices, and then the rest is not up to you. You're either right for a part or you're not.
+- Each individual human being has a lot of stuff that nobody knows about. Nobody knows what anybody else is going through at any point in their lives.
+- There weren't any funny people in sports or the Spanish club. All the really creative, witty, funny people that made your belly hurt were in the theater program.
+- We've always been interested in the commentary on politics and society and how comedy always sort of cuts that with a nice laugh, and the perspective it brings.
+- I had all the Bill Cosby albums. 'To Russell, My Brother, Whom I Slept With' - I knew every word.
+- NBC programs great shows; it just doesn't have the eyeballs CBS does.
+- I come from a completely dysfunctional alcoholic family, so we kind of parented ourselves a little bit.
+- I have talent crushes on Fred Armisen and Kyle Mooney.
+- I'm so boring and grounded, and I like quiet, and I like structure, and I like goals. I couldn't be more opposite from Jack McFarland.
+- You don't have a face to work with, so your voice has to do all the work until you see the animation. So, a lot of it I had to pull back because it was too big.
+- I'm definitely an actor first, but it's fun to kind of, you know, push your boundaries and see if you can do things that have scared you a little bit your whole life.
+- But when I did think about it and looked at the whole package - the producers behind the show, the writers, the cast I would be working with - I would have been a fool to turn it down just because the role for me was another gay role.
+- And I'd like to believe that's true, you know, kind of showing gay people in this kind of light and - where it's not about that, it's just about the characters for the first time, like those shows were.
+- Religion is constantly being talked about, debated, pondered, worried about.
+- You power through it word by word, line by line.
+- I have the most nervous stomach in the world.
+- Knowing you're gay, as a kid in the '80s, is a very scary thing.
+- This isn't a dig on journalists, but people like to write about the 'death of blank.' The death of something.
+- My job was to play my character in the best way that I could, and hopefully people will enjoy that.
+- I got one letter at the very beginning, like, in the first season, saying - from a woman who was very religious, very Christian, saying how wrong she thought the show was, but she thinks it's the funniest show on television.
+- But I'm guessing every actor is insecure.
+- The smartest thing that an actor can do is embrace the thing that made them famous as opposed to run away from it or deny that it happened. That does a disservice to most actors. To me, it looks like you're ungrateful.
+- Some people in the gay community were very upset with me for not coming out on their terms.
+- I grew up; I had a couple of dogs.
+- I had so many friends over the years - so many, out of the woodwork, telling me, 'When are you coming back to TV?'
+- I got 'Will & Grace,' and I thought, 'Oh, this is different. I don't know how to handle this. I'm not bright enough; I'm not quick enough, I don't have the DNA to be a spokesperson for any kind of group of people.'
+- I knew 'Promises,' and I knew 'Never Fall In Love Again,' only from the radio, from being a kid; and of course, that 'House is Not a Home' and 'Say A Little Prayer.'
+- I'm a huge sci-fi/fantasy/horror guy. I love anything in the sci-fi or fantasy genre.
+- No, my entire life is planned. It's called time management.
+- So get accomplished what you want to get accomplished in your life. And in the intervals, do what you can to help other people.
+- And so, I think when I got to college, you discover who you are and find yourself more than you did before.
+- I think the worst thing you could ever do is label comedy. I'm a fan of the broadness of Lucille Ball, the subtlety of Peter Sellers and the oddballness of Fred Armisen and the wittiness of Marty Short. I'm a fan of all of it, and I want to do all of it.
+- I like common sense, to try and be the voice of reason at work.
+- When I play a gay character, I want to be as believable as possible. And when I'm playing a straight character, I also want to be as believable as possible. So the less that people know about my personal life, the more believable I can be as a character.
+- Nobody makes me laugh.
+- I was the music director at a dinner theater called the 'Pheasant Run Theater' in the suburbs of Chicago, and that was my side gig while I acted.
+- I tried do stand-up, and I was horrible. And I'll never do it again.
+- I listened to George Carlin when I was a kid and knew every word of his routines.
+- I'm just quiet. It's fantastic.
+- You build a fan base over time, and they will accept you as long as it's good. Nothing matters as long as something's good. If it's bad, nobody will see it.
+- I enjoy construction and the process of building things, so maybe I'd be a developer of some kind - residential and commercial. Because I produce a lot of television now, I enjoy building things from the ground up, whether it's a physical structure or a show, and seeing them and realizing them.
+- I didn't want the responsibility, I didn't know how to handle the responsibility of speaking for the gay community. I always felt like I owed them a huge apology for coming out too late.
+- It's always comedy first on 'Will and Grace.' There was never any other agenda.
+- When I came out of my mom's womb, I had 'sitcom' stamped on my forehead.
+- I don't think comedy necessarily comes from a dark place. But I do think what a lot of us have in common is that, growing up, being funny was a coping mechanism.
+- I consider myself an actor who is funny.
+- Through that, I got to know Jerry's work, and I am definitely his number-one fan right now, which is interesting because it usually works the other way around: you usually create a project based on your hero.
+- I actually like working with the other three actors on the show.
+- Being an actor, the less people know about my personal life, the more open-minded they can be about each role I play.
+- I feel like I've contributed monumentally to the success of the gay movement in America, and if anyone wants to argue that, I'm open to it. You're welcome, 'Advocate.'
+- Isn't it about getting out of your comfort zone and getting off the couch and challenging yourself and forcing yourself to do things you wouldn't other do? Otherwise, what are you living for?
+- Everybody kind of looks to comedians and comedy for relief and a fresh breath about what is going on in the world.
+- No one could have ever dreamed about how well the show would do.
+- I want to make people laugh first, and that's it.
+- The writers have slowly taken the show, with subjects other gay shows have dived right into, slowly. It was over a year before Will even started to date.
+- We learn our lessons only when we are ready.
+- I was buttoned up as a kid. I did what I was told and never broke the rules.
+- I live my life like an 85-year-old man.
+- At the beginning of 'Will and Grace', I played Jack as the funny next-door-neighbor type, as we've seen in the past. And I thought that was my role.
+- Nobody owes anything to anybody. You are your authentic self to whom and when you choose to be, and if you don't know somebody, then why would you explain to them how you live your life?
+- They might have a long way to go before truly accepting gay people into their lives, but they have accepted the show into their living rooms each and every week.
+- And I'm OK being judged as an actor.
+- When you don't have an interruption, there's a flow, so it's easier to memorize. Monologues are easier to memorize than dialogue.
+- Everybody has a different definition of God. When people say, 'Do you believe?' I think they mean the Christian God. There are a lot of gods, so I think they cancel each other out.
+- I am who I am. I was never 'in,' as they say. Never.
+- We had a cat in college named Chloe, and it was the most evil, awful cat in the world... When we left, we used to close the door, and its paw would come underneath and try to paw us.
+- I spend time with a special someone in my life. That's all I need; I don't need events. I don't do a lot.

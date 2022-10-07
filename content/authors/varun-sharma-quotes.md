@@ -1,0 +1,106 @@
++++
+author = "Varun Sharma"
+title = "Varun Sharma Quotes"
+quotes_len = "100"
+description = "the best 100 Varun Sharma Quotes"
++++
+- I'm happy to play characters but comedy, as a space, has given me a lot.
+- Every character, if fleshed out properly, is being taken seriously.
+- I was always sorted; I wanted to become an actor.
+- Chhichhore' is really close to all of our hearts. We had a great time while making the film.
+- It is always good to be cast in films with good stories and content, made by such amazing banners and directors. For an actor it's a task to work in films like these.
+- I love crime, I love sci-fi and many other things.
+- For me, acting is sacred.
+- I think it is a blessing to be known by the name of your character. How many characters can we count on our fingertips? Not many. To be one of them is a big achievement.
+- I am open to doing TV but it will be very selective.
+- The films I'm planning and doing are a mix of different things, but it doesn't mean that I'm going to stop doing comedy. That's something I love doing and I can't take that for granted.
+- When I was studying at The Lawrence School, Sanawar, Sanjay Dutt came to our school as the chief guest on the Founder's Day. He is an alumnus of the school.
+- When I got to know that I will be doing 'Dilwale,' I was numb. I called my mother and told her, and there was a two-minute silence.
+- The majority of scripts I get are in the comedy genre.
+- I love making people smile and laugh.
+- As long as you are getting to do what you love and getting paid to do it, it's the best feeling.
+- While acting is a passion, hosting is fun.
+- It is the vibe of a city that makes it unique.
+- I have always been wanting to do TV as it is a huge medium and in India we are making such amazing shows.
+- After 'Fukrey,' when a filmmaker came to narrate a film to me, I started crying. It was a dream come true moment for me.
+- When I got the confirmation that I had been chosen for 'Fukrey,' it was the happiest moment of my life.
+- I am not the fittest guy, I don't have biceps and six-pack abs.
+- Firstly, I will never leave comedy because I love doing it. Secondly, it's the genre that has given me acceptance and immense love from the audience.
+- I am not scared of getting typecast.
+- I was confident while facing the camera because I was comfortable in front of a live audience.
+- There is so much competition and content floating around right now, so comedy has to have a lot quirk and heart.
+- Both Shah Rukh and Kajol are serious actors, who keep rehearsing their dialogues, going through their lines and are extremely hardworking. They have been working together since a long time and the dedication and passion is still there. They don't take things for granted and that has inspired me and Varun Dhawan a lot.
+- The word jugaad means a lot to us Indians.
+- People make a city, it's not the other way round.
+- When somebody abuses in public, we don't pay attention.
+- If you look at my track record, I have only done saaf-suthri family movies.
+- I feel blessed to get the opportunity to have so much work.
+- You can wine and dine all around the globe but the joy of coming back home to a meal cooked by your mom is pure bliss.
+- I have always stayed true to my craft.
+- That's the magic of filmmaking. When you are on sets 18-20 hours of the day for two-three months at a stretch, the unit becomes like family.
+- I was a big jugaadoo.
+- The character of Chandigarh appears to be slow, but people here are quite competitive.
+- I had always been a very pampered child.
+- I had no idea about how my life would change after 'Fukrey.'
+- I have done four years of rigorous theatre before I finally started doing films.
+- The biggest reward for any actor is to be recognised by the characters they play.
+- I was offered daily soaps in the past but that was something I did not want to take up.
+- I have done many comedies, but none of my roles are repetitive.
+- I come from theatre and there have been roles where my job was to stand in the corner, with a sword in my hands, for two hours. And I was happy doing that.
+- Theatre polished me as an artist.
+- Mumbai and its people are full of warmth and love - it has the best qualities of all the cities in India.
+- In school, I used to love eating pav bhaji and kulchey choley from our canteen.
+- I genuinely like to make people laugh. It is one of the toughest things to do.
+- It's every actor's dream to be called the character's name.
+- The toughest challenge for any actor is to get accepted and loved by the audience.
+- To do a film with Govinda, who is a legend in that genre, whose timing is impeccable was challenging.
+- Hosting a game show is quite interactive and non-fictional shows are a part of entertainment.
+- I am not a comedian, I am an actor.
+- I didn't reject 'Good News.' The situation was such that it couldn't happen.
+- It's important to be a part of good films.
+- As much as I'd love to explore other genres, I won't leave comedy. This genre has given me an identity.
+- If your character is written well and is meaty enough, even two scenes has the potential to stand out.
+- I don't want to change anything about myself.
+- If 'Sajjan Singh Rangroot' showed seriousness through the First World War, 'Carry On Jatta 2' had a great dose of comedy.
+- As an audience, I must share that I was never a fan of a horror films.
+- If I have done well in 'Dilwale' and if people like my work, then that would make me very happy.
+- I am very passionate about my first cup of morning tea. I like it in a certain way, so rather than having someone follow my instructions and go through the drill I prefer to just make my own cup of tea.
+- I want to do a film like 'Jolly LLB' or something in that space.
+- I would not be very comfortable doing the regular thing which we see on TV.
+- Making people smile makes me feel good from the inside.
+- It's good to have people in your life around whom you can be yourself.
+- If you leave a mark, if you're liked by people, then the constant work will keep happening.
+- I'm a fan of horror-comedy after 'Stree.'
+- I will always cherish the year 2019 in my life because I've literally lived out of a suitcase, travelled from one set to another and played such a variety of characters, which is a dream for any actor.
+- I've grown up watching 'BQC' and 'KBC' and that's really serious stuff.
+- It is a blessing for any actor to be in a Nitesh Tiwari film. It is every actor's dream to work with him.
+- Of course I am an actor but I consider myself as an entertainer as well.
+- After completing my graduation, I went to Mumbai and started working as an assistant casting director. I worked on films like 'Talaash,' 'Ek Mai Aur Ekk Tu,' 'Yeh Jawani Hai Deewani' and 'Student Of The Year,' among others.
+- As co-actors, Rajkummar and Janhvi are so wonderful. It's amazing to work with them.
+- I was looking forward to knowing Shah Rukh and get to know how he works, what is his process like and how he is as a person. There are millions like me who dream about working with him some day. His film 'Baazigar' really inspired me.
+- I lost my father. He had diabetes and high BP and so he died of kidney failure.
+- Traffic snarls or jet life doesn't make a city fast.
+- I performed in plays like 'Ashwatthama' and 'Andha Yug.' It was hardcore theatre.
+- It's important to be seen in different films and banners.
+- Nowadays if you talk of comedy as a film genre, you cannot create a simple comedy film, because there are so many other platforms where you can watch comedy free of cost.
+- My mom used to make delicious aloo ke parathe, and would give me two for school lunch.
+- Everyone is so occupied that they hardly get time to laugh their fullest. So, I feel blessed that through the medium of cinema, I can bring a smile on someone's face.
+- I want to be associated with content and characters that will be embedded in the hearts and minds of people for a long time.
+- Cooking is one thing I would love to learn but I keep procrastinating.
+- Some of my favourite shows are 'Black Mirror,' a dystopian thriller show called '3%,' 'Ozark,' 'Tyrant,' etc.
+- Sexa as a character was fun to play. My mother couldn't even recognise me in the get-up of an older guy. In fact, it surprised me also. It's easily one of the most special characters I have ever played.
+- Basically, life isn't just about eating and partying - we need to figure out unique ways in which we can add to our curiosity levels, besides satisfying the wanderer in us.
+- I won't ever stop working in comedy films because all the comedies that I've worked in are different from each other.
+- I do not get caught up in mundane, routine things.
+- It's good to have genuine people around you, who are there for you when you need them.
+- Heavy food tends to make you lethargic and can interfere with your whole acting process!
+- I think 'Chhichhore' is the film that's closest to my heart - it's a very entertaining film with a lot of soul in it.
+- It was a completely different experience working on 'Chhichhore' with Nitesh sir. The way he narrates and the way he directs actors is completely unique. He has that rare quality of blending a great story with finely-etched characters and an underlying message.
+- During college days, I started working with a line production company.
+- What better way to enjoy rains than lazing around in your house and admiring nature.
+- I am a Punjabi from Jalandhar.
+- Actually, everyone in India does some jugaad in their lives, whether in school, college, marriages, work etc. And most of us have different jugaads for different situations.
+- I have always been a great fan and admirer of Nitesh's work - whether it was 'Bhoothnath Returns,' 'Chillar Party' or 'Dangal.'
+- Fukrey' was my first attempt at comedy.
+- I am not a conventional hero. I am a regular guy trying to entertain people.
+- Comedy can be a lot more fun if you try something unique.

@@ -1,0 +1,106 @@
++++
+author = "Sarah Cooper"
+title = "Sarah Cooper Quotes"
+quotes_len = "100"
+description = "the best 100 Sarah Cooper Quotes"
++++
+- Laughing is important. It's healing.
+- I don't want to spend my energy on people who don't like me.
+- Who's more annoying to work with, boomers or millennials? Depends on how you feel about emojis.
+- I know I feel crazy when I'm stressed out. You know when I don't feel crazy? When I'm in my nap pod.
+- I was a user experience designer for Google Docs.
+- When sharing your ideas, overconfidence is a killer. You don't want your male coworkers to think you're getting all uppity. Instead, downplay your ideas as just 'thinking out loud,' 'throwing something out there,' or sharing something 'dumb,' 'random,' or 'crazy.'
+- I love getting things done. That's why I spend several hours a day reading productivity articles. And when the day is done, I bookmark the ones I didn't get to for later. I learned that trick in a productivity article.
+- I had been writing and performing stand-up comedy pretty much the entire time I worked at Google.
+- One of the reasons I moved to San Francisco was the weather. And then I realized that I really don't like being outside.
+- Wearing a giant, over-sized scarf will make you look deeply intelligent in almost any situation, but especially a book club.
+- Satire makes people learn something more than being lectured.
+- My advice for finding a literary agent would be first, put your work out there as much as possible and hopefully someone will find you, because I still have literary agents writing to me after they find my site. You want someone who understands your work and is going to be your cheerleader from day one.
+- Selling an idea to a publisher is not as valuable as selling your audience to a publisher.
+- I've always felt unsure of exactly what I wanted to do with my life, but I have these rare moments of total clarity where everything is perfectly clear.
+- Open mics are a great way to rework your material to see what punchlines land best.
+- Live comedy in a club, with an audience - it's hard to recreate that experience in a digital world. With Zoom, your face is there the whole time, and you feel like you have to always be on. You feel like you always have to be paying attention, and it can be exhausting.
+- Black women usually don't get the luxury of faking their way through life and still succeeding, but when a white guy does it, he may even get to be the president of the United States.
+- Leaving Google was really hard. It's such an incredible place to work and the people there are fantastic.
+- You can tell a lot about a woman by her email signature. Actually you can't but for some reason people do anyway.
+- The laugh track was invented to cue the audience to the jokes and encourage laughter in response. But it has another effect: if you hear people laughing and you're not, you start to question if maybe there's something wrong with you for not getting it.
+- Sarah Cooper sounds like a character on 'The O.C.,' who was written out in season two, and it's like she moved into my body and gentrified my whole personality.
+- I'm kind of an introvert, so I really do have to get over some anxiety to get on stage and connect with an audience. Once I do, it's amazing, but it is a bit of a struggle.
+- I just want everyone who voted for Donald Trump to get what they deserve. But then I remember most people didn't vote for him, and they shouldn't suffer.
+- If you think having a tech job is the answer to all your problems, think again.
+- I didn't take myself seriously for a long time.
+- You know, as a comedian, that's what you do. You speak truth to power by making people laugh.
+- Women say things that are direct - they are told they are too abrasive. I got that feedback in the corporate world.
+- When I finally accepted a full time job, I saw that as giving up on my artistic dreams. But three years later, I wrote a blog post based on life in the corporate world, which went viral and became the basis for my first book, which allowed me to quit my job to be creatively independent once again.
+- People are like, 'How did you get so funny?' And I'm like, 'Wait, am I funny?'
+- The biggest lesson I've learned about drawing is that it takes time. Which is really annoying.
+- Engineers aren't professional grammarticians, but they love correcting people. Even more, they love making you feel stupid.
+- When you're Jamaican, you don't consider yourself African American even though everyone else considers you that.
+- When women say no, they are immediately seen as selfish and not team players.
+- I was born in Jamaica, my whole family's Jamaican, and they always give me a hard time for being the least Jamaican member of the family. But I think it's their fault for naming me Sarah.
+- There are many ways to deal with annoying coworkers, but obviously the most effective way is to picture them as rappers. Picturing your coworkers as rappers makes you laugh and provides a helpful nickname that can be used when talking about them behind their backs.
+- Innovation at large companies is hard, but it doesn't have to be.
+- Twitter is a cesspool but I find I can ignore most of the cess most of the time.
+- Facebook has created a rash of mental zombies in a meme-feeding frenzy.
+- 20 or 30 exclamation points can go a long way to making the tone of your email excited and cheerful.
+- If you're trying to get ahead in the corporate world, appearing smart in meetings should be your top priority. This can be hard if you find yourself daydreaming about Mexico, margaritas or queso cheese dip.
+- I can't tell you how excited I was when I joined my first book club, but I can tell you how much I immediately regretted it.
+- Getting up and drawing a Venn diagram is a great way to appear smart. It doesn't matter if your Venn diagram is wildly inaccurate, in fact, the more inaccurate the better.
+- Believe it or not, joining a video conference call from home doesn't always have to make you feel like an idiot.
+- When anti-choice men talk about abortion, you get the feeling they really have no idea what they're talking about - they haven't done even the slightest bit of research about how hard the choice really is and how painful the experience really is.
+- I love book clubs. I just hate reading and talking to people.
+- The truth is, I don't know how to draw.
+- In the corporate world, there is no ground more fertile for appearing smart than the rich earth that is electronic communication. Your email writing, sending and ignoring skills are just as important as your nodding skills, and even more important than your copying and pasting skills.
+- I think Donald Trump might be racist.
+- Stealing something from Apple is the most innovative way to be seen as an innovative, digital-first company.
+- I guess a younger me would like that I tried acting? Although I swore that I'd actually go to L.A. and try to make it in movies and I didn't do that. I did try, though. And I found that I didn't like it.
+- The best thing about going to a tech conference is that you can tell everyone you're going to a tech conference. But while you're there, it's important you make a smart impression so people will remember you, or at least wait a few days before throwing away your business card.
+- One of the best things you can do to get on an engineer's good side is make him feel as much like a regular person as possible, without insulting his intelligence. Say things like, 'You're too cool to be an engineer,' or 'Nice kicks!' or 'You don't seem lonely at all.' Note: This only works on male engineers.
+- As a woman of color, I've come to rely on straight white men telling me my experience of the world has nothing to do with my gender, race or class. (Unless something good happens to me, in which case they tell me my gender, race and/or class is exactly why that thing happened).
+- If we want little girls and young women and people of color to see they have a place in the tech world, it's up to us to make that place for them.
+- I used to think Medium was a pretty pure place and then the MAGA hats started showing up here too.
+- The path to achieving your goals, as an entrepreneur or as part of a company, is just as important as reaching them. That's something I hope men can see as well. If you're going to be stepping on people to get there, that's not good. It doesn't matter if you get there if you leave a path of destroyed people behind you.
+- I didn't set out to be a Trump impressionist at all. It wasn't that I wanted to be Trump. It's that I was asking, 'What if Trump was me?'
+- The desire to get from point A to point B in the shortest, most efficient amount of time without ever wandering off path, can mean you miss out on those happy accidents that push you further and faster in a direction you never even considered.
+- When I was little, I always got so excited about learning - until I got to the actual learning part of learning.
+- Don't treat your ideas like they're nothing, don't treat yourself like you're nothing, because you and your ideas are important and meaningful and have the potential to become so much more than you realize.
+- I was still working at Google when I wrote the blog post '10 Tricks to Appear Smart in Meetings.' I was scared to share it at first because I didn't want my coworkers to think that I was making fun of them - which I totally was. But then afterward I had people coming up to me like, 'I have a meeting trick! Put my meeting trick in your next post!'
+- If you're ever struggling for something to say, just take a noun and verbalize it. Using simple words in new and interesting ways will creativize your presence.
+- The only time my Dad ever said I might have not gotten something because of how I look was when I auditioned for Tyler Perry's 'Meet the Browns.' My dad didn't think I was 'black enough' for the show. My dad isn't the most politically correct person.
+- When you know in your heart that you and your ideas are important, you will give every idea you have a fighting chance.
+- I've heard Donald Trump say some pretty unhinged things. I've heard them over and over and over again. But nothing is more dangerous to our democracy than his attacks on mail-in voting in the middle of a pandemic.
+- I've been blogging since the 80s. Okay maybe not that long. But starting around 2004, I launched and abandoned many blogs, and would continue to do so over the next decade.
+- As soon as you explain a joke, it immediately becomes unfunny.
+- When something really affects you, it's hard to find the humor in it sometimes. There's are a lot of reasons why there are so many white male comedians, but I think part of it is that they are able to joke about a lot of things because a lot of things don't affect them personally.
+- That's why Trump is so funny, because he thinks he sounds brilliant.
+- Like everyone, appearing smart during meetings is my top priority. Sometimes this can be difficult if you start daydreaming about your next vacation, your next nap, or bacon.
+- Laughter is so important.
+- Well, I started trying stand-up before I joined Google, actually. And then I went broke because that's what happens when you try stand-up comedy. You're actually paying to perform.
+- Engineers love pretending to be beer snobs.
+- I love how much people are drawn to my 'impersonations' of Trump because they aren't really impersonations at all. I'm not trying to be Trump so much as I'm trying to make Trump me. In doing them, I simply ask myself, 'How would I, Sarah Cooper, say these words?'
+- Slide decks are only as great as their giant, useless appendixes, so make sure yours has a ton of useless, not even remotely relevant slides in it. You'll look like you really did your research.
+- I voted for Hillary Clinton.
+- My inability to stick with any journal or calendar has been a pattern for God-since-forever.
+- Never, ever, ever show up to your office holiday party on time.
+- If you're a sociopath, you don't get emotional cues.
+- You absolutely cannot be big time tech guy without attending Burning Man.
+- Nothing is more embarrassing than calling someone the wrong name, but nothing is harder than trying to pretend you know someone's name when you don't.
+- Nothing makes everyone feel more like the meeting was worth it, than ending by saying it would be good to follow up when everyone's in the same place.
+- At my last job in the tech world, we'd throttle our wi-fi to experience what download speeds might be like for someone in the developing world. It was our attempt to experience it first hand. I thought it was a bit ridiculous because, no matter what we did, we wouldn't be able to fully experience their world unless we were living it every day.
+- Stand up comedy can be a tough world to break into. It can take years of painful soul searching, disappointing performances, and pounding the pavement day in and day out with very little reward.
+- Finding your voice as a stand up comedian means deeply knowing who you are as an artist and a human being.
+- Men love explaining things. But when he's explaining something and you already know that, it might be tempting to say 'I already know that.' Instead, have him explain it to you over and over again. It will make him feel useful and will give you some time to think about out how to avoid him in the future.
+- People love self-deprecating humor.
+- People really hate Trump - a lot. They hate his voice. They hate looking at him. They hate everything about him.
+- If you want to add visuals to your blog posts, presentations or whatever it is, and you're as bad at drawing as I am, I think tracing photos is a good place to start.
+- Trump is an amazing comedy writer without realizing it.
+- In this fast-paced business world, female leaders need to make sure they're not perceived as pushy, aggressive or competent. One way to do that is to alter your leadership style to account for the (sometimes) fragile male ego.
+- Creating a distraction is a skill we should all have. Never take for granted your ability to spot something interesting out of the corner of you eye and take attention away from your thoughtlessness.
+- I had wanted to be an actress when I was little, but I wasn't very good at it, so I tried a lot of different things.
+- For most of my 20s I felt the need to focus solely on my goals and let nothing distract me.
+- There's at least one person on every team that everyone likes to make fun of.
+- There's no faster way to get on the good side of most engineers than making fun of product managers.
+- My Dad doesn't see limitations; he either sees hard workers or people who are lazy. As a result, despite any disability or obstacle, my siblings and I all lead relatively happy and successful lives. I believe a good deal of this is due to the fact that excuses were rarely tolerated.
+- Most people see a job offer from Google as a victory, and I should have seen it that way. I should have at least seen the salary that way.
+- Coming from a large immigrant family, my parents didn't encourage a lot of 'play' when I was growing up. It was hard to get my Dad to even sit down to watch television with us (he'd watch it standing up, always ready to go do something more productive). Downtime was discouraged, as was any college degree that wasn't law, medicine or business.
+- When you take yourself seriously you will make others take you seriously. You will put your ideas out there. You won't hide them. You won't delete them. You will keep trying.

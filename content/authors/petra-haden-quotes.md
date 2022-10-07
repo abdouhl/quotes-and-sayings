@@ -1,0 +1,15 @@
++++
+author = "Petra Haden"
+title = "Petra Haden Quotes"
+quotes_len = "9"
+description = "the best 9 Petra Haden Quotes"
++++
+- I like things that start depressing and dark and end up romantic, and that's what I really loved about 'King Kong.'
+- 'The Conversation' was a movie I saw probably for the first time in the early 2000s. I immediately loved the piano and just how simple it is.
+- I wish I finished music school, because then I feel like I could talk more about the dissonant notes.
+- I always related my favorite music to the movies.
+- When I was recording my first solo album 'Imaginaryland,' I was listening to a lot of movie scores.
+- I remember watching Looney Tunes cartoons and having the music stuck in my head.
+- Old film-noir movies. There's something comforting about watching black-and-white movies, and hearing this kind of music just puts me in a fantasy world. It's a really great escape for me.
+- That's what I love about those old movies - the music is like a constant companion. Even in scenes that aren't particularly dramatic, like a woman checking her watch, you hear the music as a comment on that action.
+- The bass line is the anchor for me. I started with the bass, and either doubled that and then added the harmonies, or sometimes added my own harmonies that I've always wanted to sing on the song. And then it just went on from there - singing violin parts and trumpet parts and just trying to emulate the sounds of the instruments.

@@ -1,0 +1,53 @@
++++
+author = "Viv Richards"
+title = "Viv Richards Quotes"
+quotes_len = "47"
+description = "the best 47 Viv Richards Quotes"
++++
+- I am a fanatic when it comes to the game, so I need to know there is a golf course not far away when I'm on holiday, such as when I stayed at the Four Seasons Resort Nevis. It is a beautiful hotel with a great golf course, which made it even better.
+- Wherever the fight is, I'm going to be fighting.
+- Life is not all about parties and frolicking. You have to show you care for people, too.
+- When I was growing up, I played a lot of soccer. I always wanted to be a good soccer player.
+- I had a wonderful childhood in Antigua growing up in a family with three other brothers and no sisters, so you can imagine the little fights and scraps we had.
+- I have four kids with three mums, but I'm very close to them all.
+- I am thankful that I played the game at a time when the West Indies climbed to heights that have never been repeated.
+- I've played in some spectacularly scenic grounds in Cape Town and Johannesburg, but Papua New Guinea in the Seventies was the most remote place I'd been for my cricketing career.
+- We learnt a lot from county cricket - even if we did not earn stacks of money from it.
+- I'm Uncle Viv to Ian Botham's son, Liam, and I've been a sort of mentor to him over the years. I've always been there for him and whenever there was an opportunity to see him play sport, I was there.
+- The next generation did not seem to be smart enough to realise that you have to work to be at the top and to stay at the top. You can have talent, but if you do not work hard it's not going to happen.
+- I would love to take a role like Greg Chappell did for Australia. I think I have a good eye for talent and this is something that we have never taken on board in the Caribbean.
+- A lot of folks would say that if I had been a little more selfish with my bat, I would have had a much bigger average. But that doesn't worry me.
+- There are individuals out there who use the body protection as a form of staying power to go on as long as possible. That's the worst way anybody can be thinking, that you should cover yourself in a suit of armour, to make yourself brave, or to enable you to hook - when you never hooked in your life - just because you've got a helmet on.
+- I have been to Pakistan many times and enjoyed every visit and it breaks my heart to see teams not playing in that country.
+- I've always been a competitive guy. I want to win. I want to make an impact.
+- I hope that there can be a solution where T20 is still a huge part of the game, especially if young guys today understand what a Test match is all about. To me, you have to learn the game from the grass-roots and then reach the next stage where you can be explosive.
+- The most important value I've taught my children is respect for every creed, colour or race. When we bleed, we bleed the same blood. I've always taught my kids never to look down on anyone or to not have anyone look down on them.
+- I believe in my race, colour. I never felt inferior to anyone. Maybe that's why the folks who made me feel that way, may think Vivian Richards is the most arrogant guy on earth, but no. I bat for human beings, equal rights.
+- I always felt I was good enough to be competing and I wanted to express myself in the best way that I can.
+- Antigua has 365 beaches, one for each day of the year, which I think is rather unique for such a small island.
+- I was always pretty interested in my history. Not just the history of the Caribbean, the history of my people, but all walks of life.
+- If you don't know your history, you don't have an idea how you channel things in your life. Knowing that history, I was able to fulfil my goals.
+- Test matches to me are the caviar compared to the fast food stuff. Having the ability and the constitution to triumph over five days is what it's all about.
+- Over the years I have been watching Pakistan when playing against them or with them in county cricket. And they have been brilliant bowlers and batsmen and great individuals.
+- I say you're only as good as the people you work for.
+- Sugar Breeze, my favourite restaurant in Antigua, serves the best local food, while my local golf club, Cedar Valley, is where I always go for a drink.
+- When I first came to this country I was this new kid from the Caribbean. England was a rude awakening for me.
+- Each bowler has his own pride when bowling in the nets but it's vital that you get ball on bat and then you are ready to use the opportunity when you are out in the middle.
+- But London is my favourite city as I've walked the streets of the capital so often, I know it really well.
+- But the guy who got hit and still tried to get in line, then gets hit again, that's the guy I will take with me on the field every day.
+- My batting practice would be a guy throwing balls in the way in which I liked it. It was all about getting ball on bat, rather than something whizzing past your ear.
+- Playing a Test in front of my home crowd at the Rec was the greatest feeling of my career. It was the first time I felt pressure on me to perform, because I wanted to do so well.
+- The problem with West Indies cricket is that the talent is there but there is no cohesion. Everybody's pulling in different directions; the players, the selectors, the management.
+- Sport in itself has this power. If you are a poet or a singer, people gravitate. I may not be in the same category, but I will make a comparison with Bob Marley. So it isn't just cricket where social commentary plays a huge part.
+- You have T20 and that also plays a part in some of the shots batsmen play. You see guys playing the same shots in T20s and Tests and are sometimes lucky to get away with it.
+- I think I was pretty tough as a youngster.
+- I won the glare with the bowler every time, because I knew that at some time he was going to have to turn around and go back to his mark.
+- Guys are playing a lot of limited overs cricket and not making that adjustment when it comes to the longer version and pay a price for that.
+- I didn't wear a helmet because I wanted to show that the bowler wasn't intimidating me, and also that's just the way I liked to bat.
+- When I moved to England, at 19, I had a rude awakening. I knew it would be chilly but when I saw leaves falling off the trees I thought someone had dropped a nuclear something!
+- The West Indies team I played for in the 1970s and 80s was truly blessed to have so many brilliant individuals in one group. We had many great fast bowlers but the deadliest was my fellow Antiguan Andy Roberts.
+- Constructive criticism is not much accepted in the Caribbean.
+- When I grew up, my father used to say that cricket is not a profession, cricket cannot bring you food. But I think he lived to see the day when I was actually paid.
+- When you are playing the longer version, there are times when you don't have to get bat on ball on a regular basis but maybe a good leave outside the off stump can play its part in you surviving and the time that you would like to spend on the crease.
+- The true Caribbean people... we are carnival people, we are vibrant people, not dead people. We like to be heard and we like to have fun.
+- My dad was assistant governor of the prison, so there were times when he would bring some of that discipline home. He was the enforcer, whereas my mother, who was a stay-at-home mum, was always the pacifier.

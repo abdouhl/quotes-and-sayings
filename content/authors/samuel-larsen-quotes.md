@@ -1,0 +1,34 @@
++++
+author = "Samuel Larsen"
+title = "Samuel Larsen Quotes"
+quotes_len = "28"
+description = "the best 28 Samuel Larsen Quotes"
++++
+- I think it's funny because on 'Glee Project,' there's that added pressure, but with 'Glee,' there's no element of competition. No one's trying to dance better than anyone. But there's that added pressure of, 'So many people are going to watch 'Glee' this week. If I don't nail this dance, I look like an idiot.'
+- I've got a couple of bands that I'm working on. The one I'm really excited about, we're called London The Child. It's folky music and it's really cool.
+- I think something that's very relevant in real life and that they don't portray enough on TV is that when you think 'Christian,' you think 'goody two shoes' - they have to look a certain way and do certain things - and it's just not true.
+- I'd done some acting stuff when I was younger, around age nine.
+- One of the biggest things I learned was that it's OK to be nervous and admit that you're having a hard time.
+- I'm not the type of person who thinks up a joke and has to tell everyone.
+- Three of my tattoos can be considered spiritual or faithful.
+- I used to watch a lot of musicals as a kid. Musical movies, not so much musical theater.
+- I'm a Christian, and I'm not judgmental towards anyone. I think that's really important.
+- I'm not a very typical singer.
+- Some of the craziest people I know, some of the coolest guys I know who party and go crazy and play rock shows and have tons of tattoos, they will still go to church on Sunday and do their best to live that kind of a life.
+- On 'Glee,' the director can be like, 'Hey, your face is looking a little too intense here.' And they can show me the screen, and I can be like, 'I know exactly what to do here.'
+- There aren't a whole lot of things I want out of life. My bucket list is extremely short: Achieve the success in the industry I want, and get married. If I achieve both of those, I can die completely stoked. I don't need anything else.
+- You wouldn't expect a Christian character to be an Indie rocker guy.
+- The thing that 'Glee' has successfully done that no other TV show has is that they're just honest - but they don't tell you what's right or wrong. They don't tell you what to agree with or what to believe in.
+- I love the color pink. It makes a bold statement.
+- 'Glee Project' and 'Glee' have the same spirit, but they're both harder in their own ways. With 'Glee Project,' there's more pressure because you're being judged in everything you do. When you film 'Glee,' you go to the studio and have an off day, and it's OK - you're still going to be there; you take as many chances as you need.
+- Being a big fan of 'Glee,' I want to do the show justice.
+- The first time I heard 'Jolene,' I was 12 years old, and it was performed by Jack White. I remember watching that video and forgetting it was from a woman's point of view, and forgetting it was a country song, and forgetting it was originally by Dolly Parton.
+- I'm very much over my hair. If it was up to me I'd have cut it a long time ago.
+- The good thing is I didn't feel like anyone was going to judge me on 'Glee.'
+- I'm a very open person. I like to talk a lot about what I'm going through. It's how I cope with things.
+- I'm a very mellow person. There are things about me that are intense, obviously.
+- I am a Christian guy. And I am kind of quiet about it because I want people to take me seriously before I throw something that serious in their face.
+- I think anyone taken out of their comfort zone and put somewhere else will change.
+- There's going to be positive and negative in anything in life.
+- I think what turned me off of Christianity as a kid, and what I think turns other people off, is the thought that you have to sacrifice being cool to believe in God.
+- I have nothing holding me back in my head at all.

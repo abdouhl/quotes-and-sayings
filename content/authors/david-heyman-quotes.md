@@ -1,0 +1,18 @@
++++
+author = "David Heyman"
+title = "David Heyman Quotes"
+quotes_len = "12"
+description = "the best 12 David Heyman Quotes"
++++
+- But I can't imagine Harry being a stockbroker at 35. That doesn't really seem the stuff of 'Harry Potter'.
+- I'm interested in making films of all sizes. During this time I've made a film called 'The Boy in the Striped Pajamas', which is a modest-sized film. I was involved in 'I Am Legend' and 'Yes, Man', but 'Potter' is unique. There'll never be anything like 'Potter' again.
+- All we try and do is make the best films we can. If you do that then hopefully the audiences will come, and they have. Everything else is gravy.
+- I love books. I read voraciously, and I happened to have been fortunate to have been in the right place at the right time.
+- I thought if I was lucky it would be a nice, modest-sized, modest-budgeted film that would be a modest success. And then something happened.
+- It might sound odd, but I want to thank Michael Bay because he's been saying how important it is to show 3D with the right luminescence. And that's very important for this film, a lot of which was shot at night or with very low illumination.
+- We've been working with the very best in the business. The studio really just let us alone to make the films.
+- It's really wonderful that it's the whole franchise being recognized and it's a collective award. Each film has anywhere between 2,000 and 6,000 people working on it and so really the award is for each and every one of us. We are like a family.
+- I think it's great to see how they've grown up, not just as actors but as people. They're still very much the same kids that I met many years ago. They've grown up and they are funny and wicked and naughty and bright, and I think as actors their work is just getting better and better. They've blossomed.
+- I look forward to having the time and the opportunity to take on new challenges, but I'm also aware that I've loved every minute of the 'Potter 'experience: to make films for an enthusiastic audience and work with great material.
+- Because actually it's really hard to get things made. It takes years. To fight the fights you inevitably have to fight, even when you've produced Harry Potter, you'd better have the commitment and the passion to knock down walls, not take no for an answer.
+- The last day of shooting, there were tears. It was this family that's grown together over the years. Many of us have worked on it since the beginning, so there's a sadness when we all go our separate ways.

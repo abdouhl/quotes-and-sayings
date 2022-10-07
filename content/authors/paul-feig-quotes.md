@@ -1,0 +1,84 @@
++++
+author = "Paul Feig"
+title = "Paul Feig Quotes"
+quotes_len = "78"
+description = "the best 78 Paul Feig Quotes"
++++
+- I've never been to a class reunion or anything because I'm always afraid of that one - there's going to be some 'Carrie'-like incident.
+- For years, it's driven me crazy that women don't have better roles, especially in comedies. I know so many funny women but I always felt... misogynist streak is too strong a term - but a dismissiveness.
+- My wife and I don't have kids and people are down on us about it. But we're just not wired that way, so don't tell me I have to.
+- I always feel in improv that nothing is ever as good once it's repeated.
+- Getting away from a white or light colored tuxedo shirt is always a little dangerous. Certain staples shouldn't be mixed with. Light pink or blue is not bad, but again, you're just breaking from a classic.
+- I have an inability to enjoy things, but that's why we're in comedy. If we were happy, we wouldn't be funny, I guess.
+- I've always enjoyed people studying themselves in the mirror, and I also enjoy those 'walk and feel bad' shots. I like anything that isolates people and focuses them on themselves, or makes us focus on their faces as they're going through something.
+- I'm a pretty feminized geek, you know? I have that point of view, I grew up around a lot of girls, so I'm pretty sensitive to that. But I don't dare say 'I know how women think.'
+- Everyone takes pause at 40. It's the age you have to assess everything in your life. It's the fictitious marker that's always coming up when you're young. The world really does look at you to kind of have it together by 40, and be successful by 40. Whatever success means.
+- 'Constitutional' is just a real pip of a word. Positively rolls off the tongue. In fact, it's downright fun to say. 'Con-stit-too-shun-al.' It's the verbal equivalent of skipping down the street with an ice cream cone in your hand. It's like a semantic bag of Lays potato chips. You simply can't just say it once.
+- I've never been comfortable around groups of guys when it gets into the putting-down. My past being a kind of geek - it kind of turns into an attack on the weakest of the group.
+- I'm from Mt. Clemens, Michigan. It's right outside Detroit. The suburbs. I was always very heavily involved in theater back then. I was always in drama club or forensics. Anything that you could do that had some performing, I was doing it.
+- As far I'm concerned, being an adult is way more fun than being a kid. But then I was a kid who wanted to be an adult. I'd watch shows like 'Bewitched' and see Darren come home and mix a martini and I'd go, 'That looks awesome! I want to do that!'
+- Forty is the line of demarcation that says you're an adult now. You're an adult, so don't pretend you're a kid anymore.
+- You just have to be classy at the end of the day. That doesn't mean you can't go with a midnight blue tux. And if you can find a deep red tux that looks classy and classic, I think you can pull it off.
+- The more suits I owned, the more I realized the best besuited look a man can achieve comes from a harmony of three details: fabric, construction, and fit. If the suit fits you like a glove and it's well made, you simply feel better about everything in life when you're wearing it.
+- It's healthy to have older friends. You go, 'Look, I'm younger than them!' That's always the nice thing, if you can be the youngest one in the room at times. Like if you're always the oldest one in the room, you'll start to feel like the oldest person in the world. So get older friends, because they're cool. Get cool older friends.
+- Wearing a tuxedo isn't as simple as it sounds. I've been to a lot of award shows in Hollywood over the years and have seen some pretty sad tuxes. It's surprisingly easy to go off the rails.
+- I love funny people, and when I'm with funny people, or people who are amusing in their weirdness, I love it. Because that to me is funny, as opposed to someone who stops and says, 'Hey let me tell you a joke.'
+- The director is the only person on the set who has seen the film. Your job as a director is to show up every day and know where everything will fit into the film.
+- In my years of acting, the one thing I was never able to do convincingly was to laugh on camera. Fake-laugh.
+- With a suit, even if you're having a nervous breakdown, you still look like you're in charge.
+- What you never want to do is have a story that doesn't track emotionally, because then you're going joke to joke and you're going to fatigue the audience. The only thing that's going to string them to the next joke is how successful the previous joke is.
+- Yeah, you know, I like to throw myself on the sword so that others may feel better about themselves. I tell the stories that you all want to forget, but when you remember it, it hopefully makes you laugh.
+- I can't impress enough upon people that if you tell an honest story that people relate to and people believe and invest in, you can do anything.
+- I'm not looking for people to bow down to me or do things in my name or even pass around a collection plate for me. I say that I'd like to be God for a while because He really can get away with anything. I mean, ANYTHING.
+- Ever since I was a little kid, I've felt comfortable in a suit. It all started when my mom bought me a three-piece Pierre Cardin suit. I wore that thing everywhere. Eventually I realized I was going to be the kid who got beat up in school, but I kept wearing it.
+- There's nothing worse than the sequel that's a letdown from the first movie.
+- At the end of the day, I just want a movie that's great, that people are going to love and laugh at and be affected by, and also have an emotional journey.
+- What I don't like is when I see stuff that I know has had a lot of improv done or is playing around where there's no purpose to the scene other than to just be funny. What you don't want is funny scene, funny scene, funny scene, and now here's the epiphany scene and then the movie's over.
+- When I went to high school, in the late 1970s, disco was in full swing and anyone who was into it dressed the part. I know I did.
+- Whatever you wear, you have to own it. Make it yours.
+- I've never had to get a job as a waiter or anything. I've always been able to support myself in 'the biz.' Which is great. It's really fantastic to be able to say that, because I know it's hard to do.
+- Whatever makes you laugh is fine, and all we can do as comedy professionals is try to steer you towards something that we think is a little better - but not put you down or just perplex you in the process.
+- God does things that fly completely in the face of what we've all been taught that He is supposed to do and every time He does this, we all just say, 'Oh, well, I guess there must be some good reason why He did that.'
+- I couldn't be happier to not be acting. I miss it, but I don't miss the auditioning or trying to get work.
+- I love the pictures of Old Hollywood, seeing the directors dressed in suits and ties. Even the grips would be wearing ties. But the biggest thing is when I was a kid, I couldn't wait to be an adult, and I think what happens with most guys is that no one wants to be an adult anymore. So they're dressing like kids.
+- So many stars who have shows are intimidated by having people around them be funnier than them. It's always the unsuccessful ones. Look at Seinfeld - he's great because he let everyone be hilarious.
+- Throughout my teens, I just wanted to go somewhere I could wear a Donald Duck pin and no one would care.
+- As a director, I really wanted to learn and I needed to get away from my own stuff to figure out how to just do things and work with good people.
+- 'Nuclear' is nothing but trouble. Do you say 'new-clear' or do you say 'nuke-you-ler'? Whoever invented that word had obviously never studied the human mouth. We don't have enough muscles in our face to make that group of letters come out smoothly. The word is missing a middle syllable, for cryin' out loud.
+- What I do as a director is really create a safe environment that everyone can feel very comfortable in and experiment within so that they don't hold back anything. You never ever want someone to go, 'Oh I shouldn't have done that.' There isn't anything you shouldn't try. If it's terrible, who cares?
+- Women's humor seems to be a little more supportive. It's just kind of trying to make the other one laugh through funny voices and kind of talking about other people. I respond to that. I feel less like I'm going to get beat up in a room full of women than I do in a room full of guys.
+- What's great about the geek spirit is that life never seems to stop us, and they never seem to kill our enthusiasm, our optimism and our hunger to experience the world. We keep our sense of humor, we protect our dignity, we talk to our friends about the experience and then we start again fresh the very next day.
+- The dueling maturity levels in high school is such a source of comedy to me. I was always such a late developer. I was last to walk. I was last to ride a bike. I was last to have sex. That's why it's fun to portray one side of your childhood onscreen.
+- Women comedy is different than men comedy. Guy comedy is very aggressive, it's about insulting each other, name-calling, and kind of busting each other's chops, and that's not what women's comedy is.
+- I was a standup comedian, which is kind of like writing and directing yourself.
+- The greatest way for people to experience a comedy is to go in not knowing anything about it. But because of marketing, it's impossible. Marketing meaning that in order to get people to come you can't just go, 'Hey, there's a great movie - we're not going to show you anything from it but trust us!'
+- What's so great about working with really funny women is that vanity comes second. Whatever makes it real and funny, they're going to go for, and it's just great.
+- The hard thing is getting people to come to the theater to see something, no matter if it's good or not.
+- I'm just always a bit thrown when, in the immediate aftermath of some event which makes us feel like either God's out to get us or He's not doing His job as well as He can, we all still get together and continue to ask Him for help.
+- If you're not connected emotionally to a story, then you're dead. You're really just opening the door for people to lose interest and their minds to wander, for them to start picking it apart.
+- At the end of the day, successful box office just means that more people saw what you did and liked it, and that to me is the most important thing. That a lot of people saw it and liked it.
+- As tempting as it seems to wear tennis shoes with your tux, don't do it. I think it looks ridiculous. If you're 14 years old, maybe give it a shot. In general, don't portray anything that says 'I'm too cool and I don't care.'
+- One of the biggest things you have is your reputation and your reputation with knowing what's good and what's not good.
+- You need to have one element about your outfit that is imperfect, that says you live in it and you're not letting it control you. I think men and women both need a softness about them with formal wear.
+- I'm glad I took the leap away from acting into going behind the camera because it's much more satisfying - I love acting and I still do, but it's much more satisfying to be able to make the stuff.
+- Where there seems to be a difference between guys being nuts and women being nuts is that guys are much more open in calling each other on stuff; lots of insults and dirty names. Whereas women will talk frankly and honesty, but there also seems to be more passive aggressiveness.
+- The awards world can be ridiculous, but I'm not one to bash it. I love awards! When I've been nominated for Emmys and when I won my DGA Award, I couldn't have been happier. I always liked getting a gold star in class.
+- What you want is the thing that critics love and audiences love, but that's the hardest thing to do.
+- The reason most comedies don't win awards is that the filmmakers put the comedy first. This means you have to create a story around the jokes.
+- Bad women's comedies are made by men who didn't consult enough women.
+- Every director should take an acting class.
+- I'm extremely, extremely lucky to be who I am and do what I do and work with the people I work with. Even though I can always find something to complain about, I find it very hard to complain.
+- You can never have a thousand percent batting average on jokes - it's just never going to happen.
+- My style of comedy is very real and bittersweet, and sort of always on the verge of kind of being tragic.
+- Many Republicans have always reminded me of professional W.W.F. wrestlers. They come into the ring all pumped up and acting like they're invincible and that they're going to destroy their opponent. Then they get hit once and fall down and roll around in agony and suddenly seem immobilized by pain, calling for the ref to intervene.
+- At the end of the day if you want to entertain people, you've got to take your ego out of the equation.
+- I'm kind of a failure. I mean, I'll be honest. I'm successful in that I'm getting to work on great stuff, but I think I'm a failure in all the personal stuff that is most important to me.
+- A lot of comedies fall apart because they just go from joke to joke, and the characters are all sort of being crazy off on their own.
+- Hey, I'm like the Wayne Gretsky of the entertainment biz - I have other people do my dirty work while I skate around and get to be a nice guy. What can I say? I'm a coward.
+- At the end of the day the question comes, what are you doing for the world? You have to try to do something that's going to add something positive.
+- Period costume films are fun to discover, but they're not relatable. It's more, 'Wow, that's cool - did it really look like that back then?' Whereas with a comedy, you're like, 'Yeah, that's me, that's my friends.' No matter what, I want people to relate.
+- You want a happy ending, but not such a ridiculous happy ending that it doesn't mean anything to anybody.
+- I always hated high-school shows and high-school movies, because they were always about the cool kids. It was always about dating and sex, and all the popular kids, and the good-looking kids. And the nerds were super-nerdy cartoons, with tape on their glasses. I never saw 'my people' portrayed accurately.
+- I was brought up in a very religious household and did a lot of praying throughout a big part of my life and always thought of God as being not only a powerful father figure and the ruler of all time and dimension but also as a friend with whom I could chat and ask questions to and get advice from.
+- Man up and add a tux to your wardrobe. Just find one you like and get it well-tailored to your own measurements.
+- We didn't used to be so precious about women in comedy back in the old days.

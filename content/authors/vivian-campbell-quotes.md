@@ -1,0 +1,20 @@
++++
+author = "Vivian Campbell"
+title = "Vivian Campbell Quotes"
+quotes_len = "14"
+description = "the best 14 Vivian Campbell Quotes"
++++
+- I'm a big, big blues fan and the last several years I've really invested in the blues a lot, and I think my playing is getting better because of it - not necessarily better on a technical level, but certainly on a level of appropriateness.
+- I still have people saying to me, 'Oh, you're still together?' They don't realize Leppard's been around this whole time, because people just don't get to hear us.
+- And remember: without you, all we are is loud. No pressure.
+- I like my guitars to be kinda worn. I don't like it when they're all shiny.
+- It's a lot more comfortable, I must say. Ummm, I didn't think I'd be playing with another band, I kinda thought I was through with that, but I make an exception because they're nice people.
+- If there is any justice in the world, then eighties rock will never again serve to blight humanity as it did in that dark decade!
+- I actually knew I was going to be perfect for Def Leppard, sorry I hate to say that but I knew it.
+- Technology has made it much easier to make and manipulate music. Studio-driven, machine-driven music does not always transcend into being a good live act. Many current acts are great live, but many cannot cut it live. The music is not organic.
+- Def Leppard is a rock band that can sing.
+- I don't know how anyone could vote Republican. It's so obvious that their only interest is keeping the rich rich.
+- Being a songwriter, singer, and a great part of a unit is more important than being Joe Guitar Hero.
+- The Internet has definitely opened doors and leveled the playing field for musicians.
+- The nature of touring is packaging acts together that have strong catalogues of music. It's about making sure that it's a winning combination. It's really about giving people value for their money.
+- I never had a real job either. I sort of fell out of school and ended up playing guitar.

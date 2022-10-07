@@ -1,0 +1,17 @@
++++
+author = "Pat Sajak"
+title = "Pat Sajak Quotes"
+quotes_len = "11"
+description = "the best 11 Pat Sajak Quotes"
++++
+- I'm more concerned about members of Congress being drug-free than I am about members of the Yankees or Giants.
+- That's the trouble with trying to influence an undecided voter. First you have to find one.
+- If I went in to pitch this show to a network, I would be laughed out of the room.
+- Anyone who has seen me spin that heavy, giant wheel on television knows that I'm not a steroid user.
+- It seems to me we have been in a rhetorical arms race in this country, with each side unwilling to lay down its weapons for fear - usually justified - the other side would beat them to a pulp.
+- I said yes, which turned out to be the right answer.
+- There is a certain comfort in waking up and finding that Michael Jackson is still the Big Story. At least it tells you that nothing horrible has happened in the world that would force them to move on to real news.
+- Sometimes you just stumble into something that works, and here I am a quarter of a century later.
+- I wouldn't be surprised to learn that Clinton cost John Kerry more votes than he gained for him whenever they appeared together. Imagine being part of a crowd enraptured by the presence of Bill Clinton, and then having to listen to a speech by John Kerry!
+- Being a conservative in Hollywood is like walking into a shooting range with a bull's-eye attached to your body. There are more of us than you would believe, but if you want to keep working, you feel like you have to keep quiet.
+- The most important political task facing the out-of-power party - the Democrats for now - is creating a villain to run against. It's certainly easier than developing some grand new ideas or policies on which to campaign.

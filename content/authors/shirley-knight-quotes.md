@@ -1,0 +1,26 @@
++++
+author = "Shirley Knight"
+title = "Shirley Knight Quotes"
+quotes_len = "20"
+description = "the best 20 Shirley Knight Quotes"
++++
+- There are things that you cannot talk to your mother and father about, there are things that you cannot talk to your children about.
+- I moved to LA and decided to do films and television, mainly because the theater in New York is totally dead.
+- So many directors are solely focused on their own success in Hollywood and multimillion dollar budgets and deals.
+- I took individual photographs of Annie Liebovitz, I kept taking her picture.
+- My goal was not to be famous or rich but to be good at what I did. And that required going to New York and studying and working in the theater.
+- Film actors reach a certain level, but they don't get beyond it unless they work in the theater.
+- There's no place to act in Kansas. You're supressed.
+- I'm writing a book and working on my one-woman show, Learning To Be Human.
+- This house was our dream-the gardens, the study, even the swimming pool. Even though I can't see John when I wake up in the morning, I can always feel him here with me.
+- The thing that separates a so-so director and a great director is a love and caring for film.
+- I did the occasional odd film, like Endless Love.
+- I just let the character speak to me and things appear.
+- The only people you can really share certain things with in secret are your girlfriends.
+- When you're a woman in your 40s, it's not the best time to do films, because there really aren't that many roles. Then you reach 50 and there are more roles again. Mother parts.
+- There's a great difference between being popular and being an artist.
+- I got an agent and went up for the part of my first film, Five Gates to Hell.
+- They said this is Vanity Fair, and I said, Oh, I already take the magazine. They said Annie Leibovitz wants to take your picture and I thought, How nice!
+- It's no accident that Tony Hopkins is a wonderful film actor.
+- My acting career helped pull me through the rough times.
+- Men are allowed to get older and women are not.

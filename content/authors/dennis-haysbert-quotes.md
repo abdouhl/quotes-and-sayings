@@ -1,0 +1,41 @@
++++
+author = "Dennis Haysbert"
+title = "Dennis Haysbert Quotes"
+quotes_len = "35"
+description = "the best 35 Dennis Haysbert Quotes"
++++
+- I've done a lot of different things in my life. I've parachuted, done some deep-sea diving. Inasmuch as it's safe to do, I can do it.
+- If I weren't an actor, I'd either be a teacher or a critic.
+- I love emotion. I love being in love. And showing that on screen. I think it's wonderful.
+- I took one thing to heart that I heard from Sidney Poitier in 'Guess Who's Coming to Dinner.' And it resonated so much with me. He says: 'Dad, you always looked at yourself as a black man. I look at myself as a man.'
+- On my wall, along with my favorite football players and baseball players, I had Marlon Brando and Sir Laurence Olivier. These were childhood idols.
+- I really do believe that was what I was put on this planet to do: to give to people and, through my performances, show them another world - in the case of '24,' to show them what a politician, black or white, should be. Basically, I wanted to be a service to others.
+- I like to think I'm multi-faceted. Actually, my favorite roles are roles like in 'Far from Heaven.' Y'know. Soft people. Loving people.
+- The intolerance of people against other people is growing and growing. And the thing is, this is not anything that's changed. This has been going on for years.
+- I've studied theater since high school. Of course, it's a different story altogether being on Broadway, but it's still theater, and you have to be in front of a live audience, and that's very exciting. It's something I've definitely wanted to do, but I got involved in movies and television, and then it became a luxury to get back on the stage.
+- I pride myself on being limber.
+- I have children, so I'm constantly worrying about the world they are going to inherit.
+- I think I'd make a great superhero. I'm serious. I want to play a superhero, and I've already got one in mind. I think I've still got the body for the costume, and it's something I really want to do.
+- My father was Catholic, my mom Baptist, so we were raised Baptist but had a lot of Catholic upbringing: fish on Fridays, no birth control.
+- I've always been a big Western fan.
+- I would love a combination of action/adventure and... love. And stories told with heart. I would like people to be invigorated as well as moved. People to see the movie and see that. I love to play, y'know, well-rounded characters.
+- I love romance films, especially between people of color, because we don't really explore that enough. I would love to do that.
+- Dad worked as a security guard for United Airlines, and Mom was a housewife who cleaned houses to make ends meet.
+- All of the directors I work with have their own unique gifts.
+- I played a little basketball, but basketball interfered with theater season. That's when we did our term plays and did nutshell versions of Shakespeare for English classes. And, believe me, I got a fair amount of looks from the guys on the team. 'You're in theater but you can play football?'
+- I don't think it should matter to the American people what color skin is on their president. What should matter is the content of their character.
+- I'd like to get into the superhero genre. I'd love to do either a DC or a Marvel character.
+- All my brothers have my father's voice.
+- I went through a phase where all I was doing was commercials, and not that it was a bad thing, but I was referred to as 'the Allstate guy' as I was walking the streets. Someone comes up to you on the street, you would like them to know your name.
+- When you're playing a good character, you have an idea that you're playing the hero and the good guy. Actually, I think you're more stymied playing the good guy than you are the bad guy. As the bad guy, you have no inhibitions. Nothing stops you from doing what it is you feel you have to do. You do it because it's what's required.
+- I grew up in Northern California, and theater is all there was. I didn't know how to go about starting a career when I was 10.
+- The bottom line is people are people, and the sooner we realise that, the better off things are going to be.
+- I knew I wanted to act since I was 10, but I didn't actually start acting until I was in high school. My favorite play was 'Lilies of the Field.'
+- When you work on big commercial movies, of course there's more money involved and you can still do some good work. But with an independent, you get films that are really close to the writers' and directors' heart. Somehow it becomes a little deeper. A little more meat and not as much flash.
+- I look at Facebook a fair bit. I see what's posted. I see the travesties and illegalities of what police forces do. And I also see and understand that it is sanctioned by the general public - or we would do something.
+- I think the first time 'white' was used was in the 1600s. Generally, we were described by where we came from... All of a sudden, this word 'white' came through, and now everyone is going for their own sense of power... to figure out who's on top.
+- I have always thought of myself as an athlete - even at the ripe old age of 52.
+- There are always different roles and questions to be asked about certain characters.
+- I used to get really jealous of Ron Howard as Opie on 'The Andy Griffith Show' - we were the same age. I would just think, 'God, that little kid can work, and I can't!'
+- Sometimes you have to laugh to keep from crying or getting overly angry or to maintain control.
+- People want good stories.

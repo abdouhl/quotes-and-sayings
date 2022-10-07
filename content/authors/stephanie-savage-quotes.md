@@ -1,0 +1,43 @@
++++
+author = "Stephanie Savage"
+title = "Stephanie Savage Quotes"
+quotes_len = "37"
+description = "the best 37 Stephanie Savage Quotes"
++++
+- Nothing would make me happier if people got curious enough to actually go online to and start looking and researching the Apollo 1 fire... That would be amazing to me if people would actually go through the trouble to figure that stuff out.
+- I love writing about young people.
+- As anyone who reads Marvel comics will tell you, it's actually more important that you understand the people that are inside the mask, as opposed to the mask and the cowl or anything else like that.
+- All the NASA footage is in the public domain, and it's so beautiful; it's really stunning.
+- One of the best experiences of my life was shooting 'Gossip Girl' in Paris. To be there with your actors and crew was completely surreal.
+- We got really close, but it was just too complicated and secretive to shoot at the Met Ball. That would have been the brass ring of 'Gossip Girl' episodes.
+- When someone's a writer, it's very creative and moody, and you think of someone walking around the office in pajamas thinking of ideas.
+- One of the things I love about doing television is that I don't feel like I'm just purely a writer. I like all of the opportunities television affords to kind of build a brand that can work across platforms, so I'm not just solely at my computer in my pajamas all day.
+- The '60s is such an explosive period. It was very interesting for me because I grew up in Canada, and obviously, I know some American history because I've lived here for many years, and even in Canada, that does permeate.
+- I think, anytime there is a strong intellectual connection and people have shared interest, where they enjoy bantering with each other, there is always potential for a romantic spark. That is inherent.
+- 'Lockup,' inside America's supersize prisons on MSNBC, is one of my favorite shows. I get a lot of my inspiration for Blair Waldorf from that show.
+- I was a huge 'Mad Men' fan.
+- That's the really fun thing about writing for series versus just doing a pilot or even doing a feature: you get to live with your actors, and as you learn their voices and they learn your dialog, you're kind of building the characters together.
+- Coming-of-age stories in high school are exciting because everything that happens during that time is very heightened.
+- Sonic Youth is one of my favorite bands.
+- One of the great things about the space program is it's super well-documented.
+- The thing that has led me to the place that I am is that every moment in my life, I've been following my dream: following my dream to go to the University of Toronto, following my dream to get my Ph.D., following my dream to work in Hollywood.
+- It was a huge confidence builder to stand in front of 34 21-year-olds and explain something to them every day.
+- For a writer, working in television is an incredibly rewarding medium. You're in charge of all aspects of production and get to see your vision come to life every week.
+- I'll write teen stories as long as people will let me. I'll also be excited for the day when I'm told I can no longer write teen stories.
+- I love telling teen stories where the characters are experiencing things for the first time - the stakes feel really high.
+- 'Gossip Girl' was an adaptation that, although very different from a Marvel property, had a vocal fan base. On that show, we started off very nervous about making any changes from the book. As we got our sea legs underneath us, we became more bold.
+- Everybody feels like an outsider at some point in their lives.
+- When I first found out what a show runner was, I thought it was the strangest job I had heard of in my life.
+- I like watching a lot of reality television.
+- Every time I've made a big decision in my life, it's been about letting in the possibility that maybe I could do something that I actually wanted to do and not letting people tell me that I should compromise or that it's too big of a dream.
+- We love stories about identity and acceptance because they're so universal.
+- In my mind, I don't necessarily associate a summer show with lightness.
+- To be in a room and have to explain your point of view is a huge skill in Hollywood.
+- Show up, shut up, and shine.
+- You can only tell so many bad-guy stories.
+- I was a huge 'Charlie's Angels' fan when I was a little girl, and I can go back to sitting on my couch in Ottawa, Ontario, watching TV and thinking, 'How do I get to there from here, because that looks way better.'
+- A studio that's designed to make television shows is not a studio designed to make a fashion line, so a lot of times, we have ideas for things we might want to do but don't necessarily have the infrastructure to do them in a timely manner.
+- I can honestly say that, growing up, it never crossed my mind that I could ever make anything. I could write articles about things, which is why I wanted to be a professor. I loved watching movies and writing about them and teaching them, but it never crossed my mind that I could make something.
+- I grew up in a family where the thing that was valued most was being a hard worker, and if you commit to something, you follow through.
+- 'The O.C.' was very challenging.
+- Teens have a sensational narcissism and genuinely believe that their experiences are unique and can't be explained to adults. But we forgive them for their mistakes and naivete.

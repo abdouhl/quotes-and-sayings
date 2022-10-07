@@ -1,0 +1,43 @@
++++
+author = "Perianne Boring"
+title = "Perianne Boring Quotes"
+quotes_len = "37"
+description = "the best 37 Perianne Boring Quotes"
++++
+- The Cyprus Financial Crisis was a devastating blow to Cypriots and halted their banking system. Banks closed for two weeks to prevent a banking panic. When they reopened, capital controls were placed on the people's money, and customers were met by armed guards at the branches.
+- The credit/debit card transaction system is antiquated, expensive, and inefficient. There are over nine steps to complete a transaction from the time a customer swipes their card to payment processing, settlement, and when the merchant finally gets paid. Every step along the way costs both the consumer and the vendor in additional fees.
+- With Bitcoin, every transaction is publicly verified, so many risks are eliminated, including chargeback fraud or 'friendly fraud.' This is when a customer purchases something online with a credit card; waits to receive the goods or service, then requests a chargeback refund. The bank then forcibly takes the funds out of the merchant's account.
+- Applying criminal law to the exchange of bitcoin on behalf of ransomware victims would create a morally shocking result of re-victimizing a victim. All lawfully operating digital currency exchanges would thereafter refuse to exchange bitcoin for ransomware victims for fear of criminal culpability.
+- Bitcoin was created with security in mind. The Blockchain is Bitcoin's public ledger that records every transaction in the Bitcoin economy.
+- Exchanging bitcoin on behalf of ransomware victims should not be construed as criminal activity by the exchanger, not as a matter of law nor as sound policy. Such an interpretation would set a precedent that would surely cause real harm to the public, to the blockchain ecosystem, and to the financial services industry as a whole.
+- Digital assets, including bitcoin, could save small businesses substantial transaction fees and provide an added layer of security to their payment processing.
+- Sometimes our greatest strengths are also our greatest weaknesses.
+- In the US, banking and finance are regulated on the federal and state level, there are multiple federal bank regulators, and there are separate securities and commodities regulators.
+- The law provides a remedy, charging those who threaten a victim's data for the purpose of extortion. Extending criminal liability to innocent third-party digital currency exchangers, or any other third-party financial institution, would be an utterly unwarranted and unjust misinterpretation both of law and policy.
+- The blockchain industry generally agrees that some kind of a national license or charter is the best way to go, similar to the United Kingdom, where there is only one central regulator.
+- Death is a dying industry with an economic phenomenon.
+- Bitcoin has been described as a decentralized, peer-to-peer virtual currency that is used like money - it can be exchanged for traditional currencies such as the U.S. dollar or used to purchase goods or services, usually online. Unlike traditional currencies, Bitcoin operates without central authority or banks and is not backed by any government.
+- BitPay is the leading payment processor for bitcoin. The company specialize in setting up merchant accounts to accept bitcoin payments.
+- There is no such thing as guaranteed high investment returns. Be wary of anyone who promises that you will receive a high rate of return on your investment with little or no risk.
+- Sir Richard Branson started out as a small business owner and now owns a conglomerate that will give you a ride to the moon. If you pay for your ride with bitcoin, you'll be using the first truly universal currency!
+- Through decentralized cryptography, Bitcoin eliminates the need for banking intermediaries, significantly lowering transaction costs, and could liberate poverty-stricken economies around the globe by providing access to capital to the one-third of humanity that is excluded from the financial world.
+- The key benefits of a Special Purpose National Bank Charter are uniform regulations, standards, supervision, and authority for emerging financial technology companies to operate nationwide.
+- Blockchain startups are suffering from a crippling, archaic, and antiquated state regulatory system - and it's driving innovation abroad. Many blockchain start-ups trigger or may trigger money transmitter laws and regulations.
+- When you take a look at how the IRS treats foreign currency, bitcoin doesn't have the same taxation regime. Foreign currency gains and losses generally are taxed as ordinary income.
+- Investors need to understand the risk of individual exchanges before trusting their funds with them.
+- I hold no economic interest in any company in this industry; however, I do hold and use digital currency for my personal use. I strive to keep myself non-biased and work with the highest integrity.
+- FinCEN directs financial institutions to file suspicious activity reports (SARs) to inform law enforcement of certain types of cyber-enabled crime. As the agency charged with protecting the United States from financial crime, FinCEN's guidance does not deem financial institutions who process such transactions to be involved in a criminal activity.
+- Bitcore was introduced to give a trusted platform to spur further bitcoin innovation, allowing BitPay to focus on what they do best: acquire merchants.
+- Grief has similar side effects of alcohol consumption, such as numbness, guilt, and depression, resulting in less alert and price-sensitive customers. In addition, the funeral industry is somewhat taboo in the sense that communities in general don't communicate with one another about what are acceptable practices in this industry.
+- Businesses which were slow to recognize the power of the Internet in the mid '90s were quickly left behind. For example, Blockbuster failed to innovate with streaming technology and filed for Chapter 11 bankruptcy in 2010.
+- An unsolicited sales pitch may be part of a fraudulent investment scheme. Exercise extreme caution if you receive an unsolicited communication - meaning you didn't ask for it and don't know the sender - about an investment opportunity.
+- In March 2013, FinCEN issued guidance for virtual currency businesses - giving the industry some degree of clarity about how to be compliant on the federal level.
+- The majority of companies using BitPay to accept bitcoin are small businesses that are benefitting from lower transaction fees, faster service, and increased security for fraudulent transactions.
+- After Jessica Mitford published 'The American Way of Death' in 1963, to expose the abuses in the funeral industry, a groundswell of support for government intervention followed. Under President Ronald Reagan The Funeral Rule was first enacted to protect consumers from deceptive practices, but the rule has yet to put the nail in the coffin.
+- Blockchain technology has such a wide range of transformational use cases, from recreating the plumbing of Wall Street to creating financial sovereignty in the farthest regions of the world.
+- A new product, technology, or innovation - such as Bitcoin - has the potential to give rise both to frauds and high-risk investment opportunities. Potential investors can be easily enticed with the promise of high returns in a new investment space and also may be less skeptical when assessing something novel, new, and cutting-edge.
+- If you are not an accredited investor, you only have one option: to buy and hold bitcoin on your own. The process of acquiring bitcoin is risky and requires a lot of due diligence to navigate the landscape properly.
+- Many communities have turned a blind eye to what goes on inside funeral homes, as many people prefer not to know the ins and outs of the business. In addition, grieving customers in need of funeral goods and services may not be in a healthy state of mind to make financial decisions.
+- I have the great privilege and honor of serving as the Founder and President of the Chamber of Digital Commerce, the world's largest trade association representing the blockchain industry.
+- The IRS issued guidance for virtual currencies on March 25, 2014 that stated virtual currencies, including Bitcoin, are to be treated as property for federal tax purposes. This requires capital gains on virtual currencies to be recorded and reported. The Bitcoin Foundation says this could lead to unrealistic reporting.
+- Daniel Masters is a master of the commodities markets with over 30 years experience. His bitcoin strategy is based on the parallels he sees from the oil industry in 1999 to the current state of bitcoin.

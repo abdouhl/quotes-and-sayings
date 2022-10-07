@@ -1,0 +1,105 @@
++++
+author = "Sharan Burrow"
+title = "Sharan Burrow Quotes"
+quotes_len = "99"
+description = "the best 99 Sharan Burrow Quotes"
++++
+- The environment, stabilizing the climate, needs urgent attention from all of us.
+- There's not much more of an honour - to work for, and with, working people.
+- There is a great deal of sympathy amongst workers for the Occupy Wall Street movement. We understand their frustration.
+- With global rules for global supply chains, we can end corporate greed.
+- Workers in Myanmar must have an effective remedy when their rights are violated.
+- Care work contributes enormously to the well-being of our societies and to the sustainability of our economies.
+- Wealth is being generated off the back of oppression and abuse.
+- Until you separate the speculative behaviour of the financial sector from the real economy and the financing of the real economy, then we are not going to see the kind of stability or the capacity to drive genuine, income-led growth as opposed to debt-fuelled, speculative behaviour.
+- Where laws recognize rights to collective bargaining, the truth is that employee rights to negotiate with employers are denied in many countries.
+- A new model of business and economic development must ensure everybody's sons and daughters are treated as we would expect for our own.
+- Anyone who has lived in an area with high unemployment knows how it erodes social bonds, lowers the resilience of the unemployed and their families, and damages the prospects of the next generation.
+- If you think the dominant orthodoxy - shrink your economy, render workers jobless, impoverish families, and still grow - is an oxymoron... then you would be right.
+- If political leaders want respect, they will begin by enforcing the global rule of law.
+- Technological developments are changing the way we live, and there is much talk of digitalisation and the disruptive business models enabled by smart phones, tablets, computers, and the 'Internet of things.'
+- Limiting the destructive risk-taking by large financial firms and banks which are 'too big to fail' is needed.
+- If the impoverishment and community fragmentation continue, it is not a stretch to predict urban wars sparked by inequality, unemployment, and the breakdown of dialogue between leaders and citizens.
+- Programs that reduce energy and water use and increase green agriculture and transport have huge job-creating potential.
+- Governments that fail to provide jobs to those who are willing and able to work begin to lose their legitimacy and will face the anger of the electorate.
+- We may be living in a world of disposable electronics, but working people are not disposable commodities.
+- If people do not have jobs, they do not have a secure income, and they do not have a sense of security.
+- When corporations refuse to practice due diligence by not establishing grievance mechanisms for remedy of abuses against the hidden 94% of their workforce in their global supply chains, they perpetuate a depraved model of profit-making that has driven inequality to a level now seen as a global risk in itself.
+- The corporate community understands the need for rules. Indeed, it argues for regulation to protect intellectual property, physical property rights, and contract law. So why does it oppose global regulation to protect people and the environment?
+- The cycle of jobless youth, uncertainty about the future, depressing consumption, and weak investment and stresses on both the supply and demand side of economies are all thorns in the wheel of capitalism.
+- We cannot grow jobs without investment; we cannot grow economies if we don't earn.
+- There is no doubt that the participation of women in the workforce is a serious productivity boost, but to enable this ambition, there must be investment in care - child care, aged care, disability care, health, and education - which are essential social support structures to enable women to work.
+- Football, or soccer as it is known, is a game of two halves. It's a game with rules and a referee. FIFA, the governing body for football, follows neither the rule of law or has the oversight of a referee.
+- If you put stimulus into an economy, you know there is a time lag in terms of depending where you invest it. If it's family transfers, it might be quick. If it's infrastructure, it might be two, three, five years.
+- As economists bandy about terms like 'recapitalization,' 'credit lines,' and 'liquidity,' families are facing brutal cuts to their social services and welfare payments, losing their homes, wondering how their kids will make their way in the world.
+- Disproportionate corporate power over governments is giving license to the greed that denies workers even minimum living wages. It is also seemingly a license to allow the sheer brutality of treatment of working people at the base of the supply chains.
+- A binding treaty and mandatory human rights due diligence would clean up slavery in global supply chains. Workers demand it, and consumers demand it.
+- We know how to build economies. It requires investment in jobs. The biggest medium-term multiplier is infrastructure.
+- Many communities are already devastated by poverty. Increasingly, that poverty is born of the greed of a global trading system.
+- Labour is not a commodity.
+- We all need to work together, because there are no jobs on a dead planet; there is no equity without rights to decent work and social protection, no social justice without a shift in governance and ambition, and, ultimately, no peace for the peoples of the world without the guarantees of sustainability.
+- The concept of 'green jobs' or a 'green economy' is often attacked as the work of the Grimm Brothers by those wedded to the grim science of free-market economics.
+- Democracy is rarely easy, nor swift.
+- We need economic growth, yes, but growth can be jobless, so a sustainable development framework for employment must include a job creation strategy.
+- Creating a Financial Transactions Tax would go a long way to curbing short-term speculative trading, including high-frequency trading.
+- You'd never plan a career like I've had.
+- We need investment in green economy infrastructure; public services, training and education; and a multilateral plan to create youth job opportunities.
+- We know an organised workforce cannot be enslaved, but when governments fail their citizens and allow corporations to escape the rule of law, slavery can flourish.
+- No country can afford to lose a generation to unemployment.
+- When we see the banks get bailed out with seemingly no consequences while ordinary people pay the price with job and wage cuts through austerity measures, who could blame a person for wondering where the loyalties of their elected leaders really lie?
+- I've had an enormously privileged working life.
+- Illicit trade corrupts corporations and governments alike, allows dictators to survive, and obscures oppression, including modern day slavery.
+- Global supply chains are founded on a Darwinian model that rewards employers who treat working people as less than human.
+- Democracy is becoming collateral damage in a world where global risks have been ignored or exacerbated by those with the power to act.
+- Investment in jobs at a time when millions are unemployed can only be a good thing: all the better if the jobs help us shift from a high-carbon to a low-carbon economy.
+- When governments are cowed or simply don't care to enforce fundamental human and labour rights or to ensure corporate tax is paid so that they can invest in social protection and in the health and education of their people, they cede control to corporate greed.
+- A new business model based on old principles of social justice where people matter - now that's a revolutionary way to reduce inequality.
+- Politically, we have seen the impact of social media organizing people through the Arab Spring.
+- We need to decarbonise our societies and economies.
+- Large swathes of people losing faith in democracy is a dangerous thing. Conflict, desperation, totalitarianism are the products of that loss of faith.
+- When work is not underpinned by social protection, people risk falling into poverty traps.
+- We must make both our distributional and democratic systems work for our communities.
+- Many governments and corporations take no moral responsibility for the enslavement of migrant workers and freely do business with states built on the back of slave labour. Illicit financial flows and tax evasion are ignored in the interests of some nations and their corporations, stripping the tax base that is so vital for essential services.
+- Stark inequality, poverty, and unemployment are driving increased social unrest and, consequently, social and economic risk. Environmental deterioration may well intensify social inequality.
+- All business must have a social license to operate.
+- It's never been clearer that unrestrained market forces do not produce the kind of societies we aspire to - economically stable and socially inclusive, where citizens have access to secure jobs with the dignity of a fair wage and a welfare safety net.
+- Securing a sustainable future will take all of us working together.
+- We all eat breakfast in the morning, we all go to sleep at night, and we all want our kids to have opportunities that we didn't.
+- Workers know first-hand how corporate capture of government is undermining their rights and freedoms as citizens.
+- Public opinion must be heard.
+- You cannot fuel demand, or consumption-led demand, on credit forever.
+- Out of the fires of desperation burn hope and solidarity.
+- Inequality is a poison that is destroying livelihoods, stripping families of dignity, and splitting communities.
+- Trade unions have stood at the front lines of struggles for democratic change and social justice throughout history. In many countries, we are the organized voice of oppositions to governments operating at the behest of corporate power and vested interests.
+- Poor people around the world spend more on energy because they lack the capital to buy a more expensive energy-efficient product.
+- Globalization can be shaped to ensure that people matter.
+- Work has always been influenced by technology and will continue to be.
+- As universal a truth as the rising and setting of the sun each day, the global economy needs people.
+- Growing inequality is exacerbated by the companies who simply treat workers as commodities, and our governments are cowered by their demands to perpetuate this model of greed.
+- When minimum living wages, bargaining for fair wages, pensions, and job security are denied in too many countries, it is not rocket science to understand the drivers of inequality.
+- Globalization has much potential. It could be the answer to many of the world's seemingly intractable problems. But this requires strong democratic foundations based on a political will to ensure equity and justice.
+- If there are not jobs or adequate forms of social protection, there is not enough income to create the consumption base that drives demand and sustainable economic growth.
+- You can't deny that if you have, you know, people who think it's okay to talk about women, to disregard the rights of workers, we're in trouble as an inclusive world.
+- It seems evident that the IMF has learned nothing from its inequality-inducing policies during the 1980s debt crises in Latin America nor from its recession-deepening response to the East Asian crisis of the late 1990s. In both regions, the IMF has become synonymous with making bad situations worse.
+- Technology can be used to make people's lives easier, to reduce inequality, to facilitate inclusion, or to solve intractable global problems, but without dialogue and governance, it can be used against humanity - the choice on how we use technology is ours.
+- Market-led globalization is leading to a race to the bottom, where efficiency and profit matter more than a fair share for working people.
+- In terms of emerging economies, we absolutely believe that the prescription is social protection and a minimum wage on which people can live.
+- Corporate greed, corporate bullying cannot be tolerated - it's time for a global rule of law to guarantee fair trade, rights, minimum wages on which people can live with dignity, and safe and secure work.
+- T-Mobile U.S.A. is one company that uses fear and intimidation to scare workers away from union representation.
+- When women are expected to bear the burden of unpaid work, everyone loses.
+- The competitive pressure to produce, buy, and sell to our global multi-national companies is so intense that contractors in supply chains are motivated to pay low wages, intensify exploitative conditions, keep workers fearful with insecure work contracts, or simply sack workers who have formed a union to fight back.
+- Many women drop out of the work force altogether, which holds back our economy with a loss of skills and personnel.
+- My job is to represent working people.
+- Collective bargaining, and the fundamental human right, freedom of association, is seen as an anathema to American business, and people just - it doesn't seem to register that there's no universal social safety net that people can touch.
+- Banks don't come with an internal switch that says, 'Enough! Let's slow down a little.' Or, 'Let's just share this wealth around for the benefit of the community now.' That's the job of government.
+- Where workers are not free to change employers or leave the country without the permission of their employer, workers are, de facto, in forced labour.
+- #MeToo shows this bias is systemic, that people get away with violence against women, get away with discrimination - whether in work or society in general - because, for too long, silence has been the answer.
+- For the unions, it is simple. There are no jobs on a dead planet.
+- When working men and women have secure jobs with living wages and social protection, they can invest in the economy at levels which will increase demand and help overcome the twin challenges of ageing populations and economic stagnation.
+- South Carolina is a 'right to work' state - a misnomer of a phrase, as the laws limits union representation of workers. It does does not guarantee workers a job or fair wages and conditions.
+- The rules of the global economy are rigged against those who have to work to earn a living and in favour of multinational corporations and the ultra-rich.
+- Climate impacts hit working people first, and with extreme weather events, changing seasons, and rising sea levels, whole communities stand on the front lines.
+- As we contemplate a world which is still choosing to deploy technological innovation in a way that deepens inequality and divisions within and between nations, we need to set global foundations back on track.
+- What Qatar chose is a system where a worker is owned by his employer. When your employer forces you to live in squalor, makes you work longest hours in extreme heat, doesn't allow you to change jobs, doesn't pay your wages on time, abuses you physically and psychologically, you have no way out, you can't leave. You are trapped.
+- We need a multi-stakeholder approach to Internet governance, not vested interests in making citizens pay for formerly free services or restrictions to their capacity to share information.
+- If multilateral institutions cannot bring about peace and the rule of law because of the vested interests of their members, then both national democracy and global governance will continue to be rocked by crises.

@@ -1,0 +1,57 @@
++++
+author = "Ezra Pound"
+title = "Ezra Pound Quotes"
+quotes_len = "51"
+description = "the best 51 Ezra Pound Quotes"
++++
+- The jargon of sculptors is beyond me. I do not know precisely why I admire a green granite female, apparently pregnant monster with one eye going around a square corner.
+- In our time, the curse is monetary illiteracy, just as inability to read plain print was the curse of earlier centuries.
+- The art of letters will come to an end before A.D. 2000. I shall survive as a curiosity.
+- Humanity is the rich effluvium, it is the waste and the manure and the soil, and from it grows the tree of the arts.
+- I have always thought the suicide should bump off at least one swine before taking off for parts unknown.
+- Any general statement is like a check drawn on a bank. Its value depends on what is there to meet it.
+- If a nation's literature declines, the nation atrophies and decays.
+- Music begins to atrophy when it departs too far from the dance... poetry begins to atrophy when it gets too far from music.
+- If I could believe the Quakers banned music because church music is so damn bad, I should view them with approval.
+- No man understands a deep book until he has seen and lived at least part of its contents.
+- I could I trust starve like a gentleman. It's listed as part of the poetic training, you know.
+- I consider criticism merely a preliminary excitement, a statement of things a writer has to clear up in his own head sometime or other, probably antecedent to writing; of no value unless it come to fruit in the created work later.
+- No verse is libre for the man who wants to do a good job.
+- The modern artist must live by craft and violence. His gods are violent gods. Those artists, so called, whose work does not show this strife, are uninteresting.
+- Genius... is the capacity to see ten things where the ordinary man sees one.
+- Literature is news that stays news.
+- But the one thing you should. not do is to suppose that when something is wrong with the arts, it is wrong with the arts ONLY.
+- The real trouble with war (modern war) is that it gives no one a chance to kill the right people.
+- Good writers are those who keep the language efficient. That is to say, keep it accurate, keep it clear.
+- A slave is one who waits for someone to come and free him.
+- The image is more than an idea. It is a vortex or cluster of fused ideas and is endowed with energy.
+- Great literature is simply language charged with meaning to the utmost possible degree.
+- Men do not understand books until they have a certain amount of life, or at any rate no man understands a deep book, until he has seen and lived at least part of its contents.
+- It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.
+- Either move or be moved.
+- A general loathing of a gang or sect usually has some sound basis in instinct.
+- I have never known anyone worth a damn who wasn't irascible.
+- Technique is the test of sincerity. If a thing isn't worth getting the technique to say, it is of inferior value.
+- I guess the definition of a lunatic is a man surrounded by them.
+- If a patron buys from an artist who needs money, the patron then makes himself equal to the artist; he is building art into the world; he creates.
+- A great age of literature is perhaps always a great age of translations.
+- Nothing written for pay is worth printing. Only what has been written against the market.
+- And New York is the most beautiful city in the world? It is not far from it. No urban night is like the night there... Squares after squares of flame, set up and cut into the aether. Here is our poetry, for we have pulled down the stars to our will.
+- When two men in business always agree, one of them is unnecessary.
+- All great art is born of the metropolis.
+- Religion, oh, just another of those numerous failures resulting from an attempt to popularize art.
+- Somebody said that I am the last American living the tragedy of Europe.
+- Real education must ultimately be limited to men who insist on knowing, the rest is mere sheep-herding.
+- If the individual, or heretic, gets hold of some essential truth, or sees some error in the system being practiced, he commits so many marginal errors himself that he is worn out before he can establish his point.
+- Allow me to say that I would long since have committed suicide had desisting made me a professor of Latin.
+- People find ideas a bore because they do not distinguish between live ones and stuffed ones on a shelf.
+- The act of bell ringing is symbolic of all proselytizing religions. It implies the pointless interference with the quiet of other people.
+- Properly, we should read for power. Man reading should be man intensely alive. The book should be a ball of light in one's hand.
+- Colloquial poetry is to the real art as the barber's wax dummy is to sculpture.
+- Good art however 'immoral' is wholly a thing of virtue. Good art can NOT be immoral. By good art I mean art that bears true witness, I mean the art that is most precise.
+- Literature does not exist in a vacuum. Writers as such have a definite social function exactly proportional to their ability as writers. This is their main use.
+- The worst mistake I made was that stupid, suburban prejudice of anti-Semitism.
+- Gloom and solemnity are entirely out of place in even the most rigorous study of an art originally intended to make glad the heart of man.
+- Wars are made to make debt.
+- A civilized man is one who will give a serious answer to a serious question. Civilization itself is a certain sane balance of values.
+- A man of genius has a right to any mode of expression.

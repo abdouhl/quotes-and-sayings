@@ -1,0 +1,103 @@
++++
+author = "Gary Cahill"
+title = "Gary Cahill Quotes"
+quotes_len = "97"
+description = "the best 97 Gary Cahill Quotes"
++++
+- I realise that sometimes you have to make tough decisions and football doesn't wait for people.
+- I always think the same: English players don't generally leave England, which is strange. But of course, the Premier League's got the reputation as one of best leagues going, and one of the most competitive leagues.
+- For sure I want to achieve records.
+- When I was growing up I would always watch the more experienced players to see what they were doing and why they were doing it.
+- The way that I prepare, the way that I play, the way that I like to speak to the lads or manage situations is the way that I do things.
+- The scary thing about blood clots is where they can lead.
+- It's always difficult not playing games and that match fitness and sharpness is something you always lack when you don't get that opportunity.
+- Everything gradually comes to an end or there's a new challenge around the corner.
+- Having people doubt you is what gives you that fire in your belly.
+- You expect to have to soak up some pressure when you are playing Manchester City away from home.
+- When you are in a squad, you are looking around to make sure that everyone is focused and feels the same way.
+- I don't think you sit there as a young boy thinking you want a full set of medals, you just want to achieve something.
+- My teammates don't see it, but deep down I find it tough to sit there and not influence big games.
+- I've enjoyed success and I feel like I've been a big part of success - not just involved in winning trophies but involved heavily.
+- This is what playing football is all about - trying to reach finals and trying to lift trophies.
+- Are Chelsea a hard club to turn down? Yes, of course.
+- It has been a huge honour and I am hugely grateful to the managers for the caps that I have had.
+- Where you have a little setback or you are out of the team you're considered a different player but you know you will come out of the other side of it.
+- You always try to prove yourself.
+- Every time you come out of the team I know you don't just disappear, you don't just become a bad player overnight.
+- I played for England off the back of playing for Bolton so I would like to thank the fans there for making me feel at home for the four years that I played there.
+- It is easy to play well when things are going rosy.
+- When things are going well, everyone's coming into training, having a lot of banter and joking about and enjoying things, and when you are not, it's not that feeling, because the expectation level is to win.
+- For myself it's about winning competitions.
+- It's difficult to play in a new formation and have everyone grasp it straight away.
+- When I first came to Chelsea, I realised there is an expectation on everybody here and history proved that this club wins trophies. I wanted to be a part of that. Thankfully, I've worked hard, got in the team and I've played my part.
+- Rafa Benitez was keen on defending - all dropping back together if you lose the ball.
+- It's tough to be left out. At Chelsea I've probably played 90 per cent of the time. It's not something I handle very well.
+- Diego Costa is Diego Costa. He scores goals. He is an animated character and he is a big personality.
+- I'm my worst critic when I'm playing.
+- Hopefully, I've got rid of the question marks over whether I can play at the top level.
+- Frank Lampard was fantastic.
+- The most important thing is that the team is doing well.
+- It has always been in my make up to play a high percentage of games.
+- I realise that sometimes things go well and sometimes they don't. But it is very important for me I feel personally, even selfishly, the need to be playing football matches.
+- I've got the utmost respect for Azpilicueta as a player and a person.
+- Playing at the World Cup is something that I am really hungry for.
+- It's all about playing. Your career's short enough as it is.
+- I came to Chelsea and it was 'oh you can't play Champions League, you can't do this, you can't do that' and I proved them wrong.
+- You get people criticising people who are happy to sit on the bench, picking up money.
+- It's easy to play football when everything is going well and you are winning games back to back, winning, winning, it's the best feeling ever, you can go out there and express yourself you feel like you are not going to make mistakes.
+- When a top club comes calling, who you know will be firing on all fronts with competitions and medals, that's ultimately what you want to be playing for.
+- When you get a little knockback in your career, it gives you something to strive for.
+- I know when I'm good and when there are a few things I need to iron out.
+- The majority of Chelsea fans have been unbelievable, but there is maybe five per cent always thinking, 'Get the next best thing in.' I feel that.
+- I'm ambitious in everything I do. That is never going to change.
+- Any moment that you have the opportunity to wear the armband for your country is amazing.
+- Playing at a club like Chelsea and being given the opportunity to play with the world-class players that we have means you can learn from them and improve your game.
+- The hardest thing is when things are not going so well and you have got to dig in and get results.
+- I have been hugely honoured to have played for my country and I would never shut the door.
+- I have been my own man. I feel like I can be me but I have obviously learned from the best.
+- I was always confident that if someone took the chance to play me week in and week out that I would fulfil my potential.
+- To be captain of such a huge club like Chelsea is a great personal achievement.
+- I would never try to fill John Terry's boots. You can never fill that position.
+- Work hard at your game and then you will progress.
+- If you can play effective counter-attacking football, as you see in the Premier League, it's very effective.
+- In football you go from hurdle to hurdle, there's always something to motivate you, always something you want to get.
+- I know what I'm capable of over many years.
+- There's opportunities you get that you want to grasp with both hands and you have to cherish them.
+- I'm not a guy who is willing to accept not playing.
+- I'd rather do my talking on the pitch.
+- As a defence, we have to strive for that clean sheet while also giving the attacking players the licence to go and create.
+- I have been hugely proud in terms of what I have achieved, in terms of over 60 caps, and I have captained my country on a few occasions which has been a huge honour and something I have been really proud of in my career.
+- When you think of Bolton you think of the likes of Kevin Davies. He is a captain who leads by example and his qualities got him an England cap.
+- I've played in the big games and I've done well.
+- I've always been hungry to play football.
+- Every experience, good or bad, is a learning process.
+- I went to the World Cup and didn't play, but I came back with an even higher opinion of Gareth Southgate. It's all about how you treat somebody.
+- When Chelsea came calling for me, it was an opportunity, it was a chance and looking from the outset you may not be sure how it's going to go. But it's one you can't turn down, you have to grab it with both hands. Then you have to work as hard as you can to make it work.
+- You're not a robot, you're not going to be nine out of 10 every game. But when things aren't going well, you work even harder and look for a reaction.
+- Paul Gascoigne was one who I watched as a young boy. He was a hero to all of us really. Chris Waddle was one for me too, just because of where I grew up. Where I'm from, he was somebody who was representing England and playing in the Premier League, and as a young boy I always wanted to do both.
+- I want to play football out on the pitch. I am not different to anyone else and the ambition never changes.
+- My best World Cup memory as a fan? The Michael Owen goal against Argentina at the 1998 World Cup in France.
+- Whatever is going on off the pitch, players relish playing football.
+- There are challenges in front of you that you face all the time in football. You ride through and come out the other end.
+- We won the Europa League in 2013 and it was an amazing night, an amazing feeling. I take those memories and think to myself, 'I want to do that again.'
+- That's what I want to do, to go out and perform back to the levels I know I'm capable of, the levels you can produce with consistent games and to win football matches.
+- If you are not playing a player, any player, for two, three, four games, then you don't have to give a reason for that. But if it gets to eight or nine games, then you have to explain the situation. What's going on?
+- Leaving Chelsea was sad, but naturally everything has to come to an end.
+- Not every single minute of your career will go well, individually and collectively, and not every season will go how you want it to, but it's how you react to that.
+- That's the buzz you want as a footballer - to perform well in the big high-profile games.
+- It is difficult to click your fingers and say, 'Right, go and play that formation now.'
+- I was told 'you can't play for England, you're at Bolton.' I proved them wrong.
+- Martin O'Neill let me go and he obviously felt that was the right thing at the time. But you go on and want to prove people wrong.
+- It's always strange going back to Villa Park for me.
+- I'm human. I want to play, I want to perform well.
+- As players we are in control of what we do and the way we prepare for the games.
+- I am sure for every striker, scoring goals gives them confidence.
+- I am constantly analysing my performances and I tend to focus more on things I haven't done as well as I'd have liked.
+- Every season I think it's right every great team tries to improve the quality of the team.
+- We all know it's hard to have time to come in as a young player - maybe the club and the supporters give you seven, eight, nine games where you're rusty and not performing. It's difficult to do that.
+- I don't want to be stale.
+- Sometimes when you're at a club like Chelsea you feel sorry when you see a player move on, because naturally some progress and some don't. You don't hear about the ones that don't.
+- Players at the highest level have got high football intelligence, so they can adapt, but at the same time you need a structure and an idea of how you've got to play that system.
+- You want to achieve the most you can in the short period you have in your career as a professional footballer.
+- You can go anywhere in the Premier League and it's going to be tough. Every single game is so tough. So I think if you make it, and you're lucky enough to play in the Premier League, I don't think there's a need to go anywhere.
+- For me, it's about consistently churning out performances and looking to improve at the same time.

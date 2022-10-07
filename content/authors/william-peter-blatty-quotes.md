@@ -1,0 +1,18 @@
++++
+author = "William Peter Blatty"
+title = "William Peter Blatty Quotes"
+quotes_len = "12"
+description = "the best 12 William Peter Blatty Quotes"
++++
+- I lived in Georgetown in the late '70s about four houses down from the steps.
+- I have never read horror, nor do I consider The Exorcist to be such, but rather as a suspenseful supernatural detective story, or paranormal police procedural.
+- I tried to make every bit of it as creepy as I could. And I had the same response you do. I feel the same way. The hospital scenes, that procedure was so real.
+- I'd sold the book first. Actually to a paperback publisher. I had nothing. I just had the idea.
+- I've been campaigning like anything for restoring these changes. For 27 years. I wrote a book about it, well, a portion of the book was devoted to these scenes and why they should have been in the movie.
+- And the sad truth is that nobody wants me to write comedy. The Exorcist not only ended that career, it expunged all memory of its existence.
+- Bantam Press. And they commissioned me to write it. And when that was completed, they sold it to Harper and Row. And then I put it out to every movie studio in town. And they all turned it down.
+- I'm not aware that I was consciously influenced by any director, though these things often happen unnoticed, submerged in the unconscious.
+- Horror does not interest me, and so I know little of its practicioners, old or current.
+- I get cassettes near Academy Award time of every movie that's made that thinks it has some kind of chance for a nomination - that's when I watch my movies.
+- Well, the research into it affected me. And the novel, it very much strengthened my faith.
+- I didn't read The Haunting of Hill House until sometime early in the 1990's.

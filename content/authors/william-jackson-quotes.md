@@ -1,0 +1,15 @@
++++
+author = "William Jackson"
+title = "William Jackson Quotes"
+quotes_len = "9"
+description = "the best 9 William Jackson Quotes"
++++
+- It is no accident that I made Cartoon Town a simple little village - in many ways it mirrored my home town. And, yes, many of my puppet characters took on some of the more eccentric characteristics of people I knew there.
+- A lot of industry groups have said they support a federal law. They don't want to have to deal with 50 different state laws.
+- The puppet characters were combinations of people I had known and to some degree aspects of my own personality. Weird was based on someone I knew in Chicago. Dirty Dragon was based on a good friend I had in Indianapolis.
+- The journalism school helped me develop writing skills, and I had been enjoying cartooning from a very young age. My interest in puppetry, however, came much later.
+- I have no idea how to become successful in children's tv programming today other than to say that whereever you find that rare animal being pursued, insert yourself into its environment; get in the door in any position and work from within.
+- I would not have done much differently, but I would have loved to have done everything better. The truth is, I think I was just getting warmed up when the era ended.
+- I'm not up on today's television for children, because it's mostly cartoons that don't seem to interest me.
+- I pitched my last children's show presentation in the mid 1980's. The era of locally produced children's shows was over and the networks were not and are not interested in children's television.
+- When I was nine years old I use to copy - not trace - the covers of the Donald Duck comics. Many years later I became a close friend of Jack Hannah, the director of the Donald Duck film shorts.

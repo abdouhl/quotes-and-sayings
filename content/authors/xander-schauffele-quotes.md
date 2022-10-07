@@ -1,0 +1,106 @@
++++
+author = "Xander Schauffele"
+title = "Xander Schauffele Quotes"
+quotes_len = "100"
+description = "the best 100 Xander Schauffele Quotes"
++++
+- There's a big A my team likes to talk about, which is Accepts. If you can't 'accept,' then you're never going to play well in the U.S. Open.
+- When I am playing my best, I am not worrying about a whole lot.
+- One of my big goals for 2019 is to make the cut at the Farmers.
+- Somewhere down the line I'd like to create a foundation that brings awareness to environmental protection, sustainability, the effects of pollution, and all of those things related to protecting nature.
+- I like to consider that I have a good insight into other cultures because I grew up with my parents having different views on things. It makes traveling a lot easier, I do enjoy other cultures.
+- I don't want one tournament to offset another. I want to be fresh and take full advantage of the opportunity I've been given.
+- My dad, his temperament is a little worse than mine, at times.
+- If you play well, you can open doors.
+- For me personally, short game, bunker shots aren't too bad.
+- I store my power right up until it's time to hit the ball.
+- You don't have to be a superhero and pull off shots you've never hit before. Your goal should be to put yourself in position to play as close to your regular game as possible. That's what I did in the final round of the 2018 Open Championship at Carnoustie, when I was in the final pairing with Jordan Spieth.
+- One of the best forcers was probably Tiger in his prime. He could force an outcome if he needed it.
+- I always felt like I was mentally tougher than the other kids.
+- I've always been the underdog and underdogs don't really care for attention.
+- I feel very American, but my upbringing was quite the opposite.
+- It's not too often in your life you have 4 or 5-footers for $10 million.
+- In golf I have my support team, and though I hit the shots, I say 'we' a lot, because 'we' made it happen.
+- Nobody had Trackman when we were 15 years old. In terms of hitting it far, I've always hit it further than anyone else in my age group.
+- I played soccer until I was like 10 or 11, maybe 12. I had fun with it, but it was a team sport, and I hated losing, and we kept losing, so I quit.
+- You know, majors are tricky. There's a lot of pressure, and there's a heavy load on individuals.
+- I enjoy tough golf, I guess. There's something fun about it that other people may not think is fun.
+- I was struggling to keep my card and get in tournaments and found a way to breeze through the U.S. Open somehow with a cool head. I looked at that and thought, 'Wow, I could actually do this.'
+- I just still feel like an underdog. I feel like until you're No. 1, you're chasing.
+- Having experience gives me an advantage against the younger players as well as the other competitors out there.
+- Right now, my caddie has a nicer car than I do. That tells me a little something.
+- It is never easy to have your dad as your swing coach.
+- At no point in any sport do you want to be known as a cheater.
+- Unfortunately a good attitude doesn't make you hit it 350.
+- To say I feel close or whatnot, I don't really know what that means, but I feel like my game and, you know, myself is slowly maturing.
+- I've never made the cut. I think that feeds into the underdog thing more than anything else.
+- I haven't really learned how to play great forceful golf. I sort of go with the flow, and if I handle my game properly, not too many mistakes should be made.
+- Just the ritual of feeling the grip in my fingers and making loose swings is relaxing.
+- Taking care of the environment is important to me.
+- My dad taught me how to get into clubs and what to look for in clubs, and he always stressed to me that a 3-wood, 4-wood or 5-wood was the toughest club to dial in and if you find a good one to keep it.
+- I went to San Diego State and one of our home courses was Barona Creek. It's this open, no-tree look.
+- I always try to find companies I see eye to eye with. It was an easy collaboration with Hyland. They're a well-rounded player and always try to find certain strategies to give their clients a competitive edge.
+- I love French and English bulldogs. They're hilarious and adorable.
+- Remember a few years ago when Tiger said his glutes shut off? I know he wasn't kidding because when I reach the top of my swing, like Tiger, I want to feel my right glute muscles firing.
+- I always felt there was a chip on my shoulder at the junior stage, the amateur stage.
+- If I ever felt sorry for myself, my dad and I would have this two-hour talk. He bred an underdog mentality into me from a younger age.
+- It's just whenever us players have good feelings at a certain course, we sort of thrive off of that.
+- I've played TaylorMade drivers since I was in high school, so it's a comfortable look for me.
+- The U.S. Open was a huge moment in my career. It was one of the biggest stages, and for me to be calm and collected throughout the week and just kind of hang on and tie for fifth was huge for me mentally.
+- I'm an old soul.
+- I kind of enjoy just hanging back and relaxing, sort of the San Diego, Southern California vibe, whatever you want to call it.
+- I never really idolized any one golfer.
+- I've been trying to make my bed every day. Every time I wake up, I try and - someone told me there's been books about it, about how important it is to start the day with a win.
+- I don't really care, honestly, what the USGA does with the setup. I'm just here to play.
+- I remember watching Tiger make the putt in '08. I was standing by a tree that's no longer there, it got taken down by the storm. I watched that putt live.
+- Our job as players is to show up to tournaments, put on a show for The R&A and for the Tour and to handle our business.
+- I don't have, like, a huge effect on the crowd, I'd say. So not having fans isn't the craziest thing to me.
+- A conventional blade has more toe hang so that's for people who want to rotate the face more. I'm not that person. I don't have a strong arc to my stroke so the mallet works better for me.
+- Being from California, my parents are very eco-friendly and I feel like I've been nurtured by a tree-hugger family in a way.
+- I've had doubts at every stage of my career.
+- Everybody knows I'm a late bloomer.
+- I was out here at East Lake, on a property I had never seen, and I was just like a kid at Disneyland walking around. There was only 30 guys. Thinking about how this is the big goal everyone is looking forward to at the end of the year and I'm fortunate enough to make it.
+- I'm not really much of a celebrating type.
+- It's all strange to me, but it's pretty cool when people know who you are.
+- You know, I think the stats are out whoever won the Tour Championship never made it back the next year. There's a reason for that. It's hard. It's just tricky.
+- As everybody manages to say on TV, 'Yeah, he hits it pretty far for a little guy.' Well thanks.
+- Some say I don't show much emotion. That's just not my cup of tea.
+- My body just won't let me hit it, like, 330 in the air.
+- As a rookie you sort of don't really know if you're good enough, and then you start listening to a bunch of random things or just out looking for a bunch of random things that don't help.
+- I think getting your head in the right mental space is important, and maybe I do need to go back to my rookie vibes to where I'm very happy-go-lucky, nothing really matters.
+- The only time I am an unhappy camper is when I feel like I'm treated unfairly.
+- I want to get to world No. 1. I want to win multiple majors. Plus, I hate losing - like, I really hate losing.
+- It's only my second Masters, and I definitely jumped into that scene a little faster than I thought I would, to be completely honest.
+- My father, Stefan, is the only swing coach I've had. I wouldn't be where I am today without him.
+- The first thing you do before you take a swing with a driver is put it down and see how it looks to your eye. If you don't like how it looks, it's going to be difficult to hit a good shot.
+- I put little goals in place every day, and I think if you can kind of keep to the small things it's easier to capture the big picture at the end.
+- I'm kind of a quiet guy.
+- I pick up the tab for my mom now, I don't let her pay for any dinners.
+- Ever since my early teens, I've tried to swing the driver very fast. Back then, it was as fast as I could. But now that I'm 24, I'm working to dial back some of that speed, knowing I have an extra gear if needed. The goal is to protect myself from injuries down the road - especially to my back.
+- I hate to say it... but, yeah, I mean, our class has always been really strong, and I always joke with my buddies saying it's not cool to be 23 and on the PGA Tour anymore since everyone that's been 22, 23, 24, they're all winning.
+- Coming out of college, you never really know how good you are, you've never played for money, you've put all your eggs in one basket and your whole life revolves around it. For a while, I didn't think I was going to be good enough.
+- I pretty much figured out in grade school that we weren't the stereotypical American family.
+- All the techniques to help stay calm and focused, to control your mind, have all really helped me.
+- I've been called a cheater by my fellow opponents. It's all joking, but when someone yells 'cheater' in front of 200 people, to me it's not going to go down very well.
+- I don't sit at home and test my driver, you know.
+- My dad was always very hard on me when it came to sports. He always used golf to teach me life lessons.
+- Some guys talk about swinging through the ball, but I think about impact like hammering a nail. My dad actually had me hammer nails to understand the concept.
+- My hips will always lead in the downswing, and I'll always fire off my right foot. I know Tiger and other big hitters keep their right foot down and mainly use their bodies to power through the ball, but I'm not Tiger's size.
+- My dad always taught me to let the clubs talk. So if people don't know who I am, I guess I'm just not playing well enough.
+- My dad's European, so when I was a little kid, I couldn't wear things like Nike, so I grew up wearing Adidas.
+- I learned from a young age that my tendency was to really choke the grip during a big moment. I'd tense up in my hands, which would then tighten my forearms, and I'd try to rip one as hard as I could.
+- When I was signing my card, I was like, 'Oh, wow, I actually went birdie-birdie to get in the playoff.' I was just in my own world out there.
+- When I practice there's a bunch of noise going on, people will talk, so I don't really have mouse ears for the most part.
+- My agent and I usually have a steak-and-wine dinner on Wednesdays before tournaments. It's a good source of protein for the night before, and it helps me sleep before the opening round.
+- I would gladly give up my driver if it's not conforming. But there's still 130 other players in the field that potentially have a nonconforming driver, as well.
+- Players are getting better at a younger age. It shows how fearless everyone is becoming.
+- I'm a pretty mellow guy, but I've got a fire burning inside, but you guys will probably never see that.
+- I expect a lot from myself but, over time, I've learned to tame that.
+- If I worked in a cubicle, I wouldn't want to leave work and see all 20 people from my office when I got home.
+- For me the trickiest thing is figuring out the spin and loft.
+- Usually when I'm comfortable I play good golf.
+- Every pro has to decide what they want from their ball.
+- I need to find a way to manage my time and be an adult.
+- Feel shots. Flops. Bump-and-runs. Those types of things are usually what go first for me when I haven't practiced much.
+- If practice and preparation were all it took to prevent nerves on the course, tour players would never get rattled.
+- We've got the blue-collar pros here in San Diego.

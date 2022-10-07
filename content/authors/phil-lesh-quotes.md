@@ -1,0 +1,27 @@
++++
+author = "Phil Lesh"
+title = "Phil Lesh Quotes"
+quotes_len = "21"
+description = "the best 21 Phil Lesh Quotes"
++++
+- Not that there weren't great shows, and not that there wasn't plenty of fine music played. It's just that the consistency and the height of where we could take it, with the help of the audience, was less, I felt, in the '90s.
+- And that format was - we'd been using that format, I guess, since the late '70s, and it was starting to get very predictable. In other words, certain songs would surface in the same points in the set every so often; it was like rotation.
+- So, in the course of events, I had an opportunity to come in contact with Colin Matthews, through the Rex Foundation sponsoring recordings of various music that was being recorded over there.
+- Of course, we didn't survive to play all the way through the '90s, so I can say that - as I said, everybody in the band was aware of this, and we trying to figure out ways to make it different.
+- I mean, sports are big, big, big business.
+- In St. Louis, some people were hurt seriously when some fans got on top of a roof that was where other fans were underneath it, at a park somewhere, and it collapsed.
+- When the band would leave the stage, and then the audience would just take over, and keep the groove goin'.
+- Actually, the year anniversary of what you just heard, my son Grahame and I are going to be in a play together, and I'm acting for the first time in front of an audience that doesn't consist of a high school drama class.
+- Bruce's band is so different from the Grateful Dead; there's no lead guitar player, for one thing.
+- To sing a simple round is truly an enlightening experience.
+- And there was a movement afoot to take another year off, and if we had been able to do that, and rethink everything, I think when we came back it would have been very different.
+- But we were really locked in to that kind of format, and as the '90s wore on, it became for me more solidified, in that sense that there weren't as many of those magical shows that were just magic all the way through as there had been in earlier years.
+- There was always so much encouragement, to just really take it and run with it, from Deadheads.
+- In a way, it's my way of dealing with, finding closure with Grateful Dead music, and giving thanks in a way to Jerry and Bob and all the guys in the band for making up this wonderful music.
+- We sing a little song before we eat, a little blessing before we eat, and it's really - we're thanking the Lord and the Earth for the food that we eat, and it really brings you together in a profound kind of way.
+- Michael is the kind of guy who has rhythm; he has rock'n'roll in his soul, whether he really plays it or not.
+- Especially in the realm of bringing an opportunity to do something creative to people, as I said, who wouldn't ordinarily have that opportunity. I think that's very important.
+- And the input that we always got from Deadheads, at the moment of making the music, was always a factor.
+- Because, first of all, we were becoming aware during that tour that there was a group of people that was following the band around, and they weren't interested in coming in to the shows, they were just interested in hangin' out outside and tryin' to break in.
+- So what it boils down to, in my humble opinion, is that we need to support the arts in schools, and at every other level in the education of children.
+- Yes, Pluton, actually, in the play. And I play him in my most stentorian voice.

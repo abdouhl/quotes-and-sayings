@@ -1,0 +1,70 @@
++++
+author = "Giorgio Armani"
+title = "Giorgio Armani Quotes"
+quotes_len = "64"
+description = "the best 64 Giorgio Armani Quotes"
++++
+- During a fashion show, I want the clothes to speak. The effort I put into my work must be respected.
+- Why do I put myself in a position to be cast aside or not considered as I would like to? Because I am a creative mind, because I still aspire to be one.
+- I must always try to do better because perfectionism, and the need to always have new goals and achieve them, is a state of mind that brings profound meaning to life.
+- I was an observer. I liked to listen rather than openly express myself. This trait is something that I've retained over the years.
+- I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best.
+- I don't like women who follow fashion in the sense of becoming victims of it. I like women who have elegance, who have allure, who use fashion, rather than the other way around.
+- The more successful I become, the more I want to remain like me, with my defects and insecurities.
+- These designers have no reserve. They've chosen a path and thrown themselves onto it head first, regardless of everything. Whether or not their designs are sellable or vulgar. As long as it's new and people talk about it. That is the truth.
+- You can think you've made it and yet the next day's press will always be waiting for you, the public will always ask more of you. In short, you can always do better!
+- I learned little by little. I learned how to draw. I learned how to tell the difference in the quality of fabrics - the subtle differences. I started with collections for men. So my first collection for women was deeply inspired by male roles.
+- I started to take care of my body after I turned 50. I never liked how I looked physically because I was too cute, short, with coloring only on my cheeks, the perfect little nose, and then the blue eyes. I was a hit with girls, who told me it was like I was in Technicolor.
+- These days, as I am older and wiser, I realize that there is a danger in becoming an icon, as people can see you as remote and untouchable, and they are less willing to tolerate you doing things that don't fit with their preconceived idea of you.
+- Creative work gives you an almost indissoluble connection with people.
+- Marketing is not a nice word, but the world is about marketing now.
+- Anyone who is passionate about what they do will have a better chance of connecting with future generations than those who simply follow transient trends. At least their work will have a distinctive character, and this is what people respond to, I believe.
+- A well-maintained physique is a great business card. Ideas and intelligence are what matters, but if you have a well-maintained physique, it's better.
+- Jeans represent democracy in fashion.
+- My relationship with Paris began when I was working for Cerruti in the mid-1960s. When there was an important event in his store, Nino Cerruti very kindly took me with him. I was fascinated, and the city made a big impression on me.
+- The difference between style and fashion is quality.
+- It's not a good idea to match your shoes with a bag too stringently. Go for subtle similarity.
+- In the fashion world, you have to make clothes to sell. You have to make clothes for the press. You have to make clothes for yourself. What I mean is, everything is an obligation. But a writer? A pure artist? Maybe he doesn't make one lira - but he does what he wants.
+- I have never had anything to do with the kind of fashion that is influenced by the press or identified with the spirit of the season. My clients come for me; they come back each season for my spirit. That's the reality.
+- When I started, I had nothing. Because my family was really, really, really poor.
+- I believe that my clothes can give people a better image of themselves - that it can increase their feelings of confidence and happiness.
+- It is difficult to talk about fashion in the abstract, without a human body before my eyes, without drawings, without a choice of fabric - without a practical or visual reality.
+- I must make decisions every five minutes and give the impression of being sure of myself! Sincerely, this is the cause of my verbal violence.
+- War taught me that not everything is glamorous.
+- I wanted to dress the woman who lives and works, not the woman in a painting.
+- My work today is perceived as being classic, but when I first started out, it was a break from the norm. Since then, I have continued to reinvent myself. I don't change my style, but I allow it to evolve.
+- I am happiest in public, working in my world. Then I can be the star. That I can do. When I am not working, I am more guarded, set apart. It's not my life, that. I like interactions, but interaction that is not forced.
+- To create something exceptional, your mindset must be relentlessly focused on the smallest detail.
+- My well-known aesthetic sense, which is so obvious and personal, spontaneously spurs me to challenge myself with different disciplines.
+- I prefer to look at a natural woman. A woman should be courageous to become older, not desperate to look younger than her age.
+- There are so many things to take into account - your ambition, your ego, the press, the consumers. You can never be sure that you'll be on top of the pile again.
+- I dress in my 'uniform,' or my own dress code, which reflects my personal method and work ethic. My belief is that my plain T-shirt - I have about 40 of them - or blue sweater helps focus others' attention on me and on what I say.
+- I prefer being around young people. I don't like situations from the past, definitely no nostalgia. I prefer to think of doing everything new with a different generation that has a different mentality.
+- Never in my wildest dreams did I entertain the idea that I would become a fashion designer.
+- I've always thought of the T-shirt as the Alpha and Omega of the fashion alphabet.
+- Actually I am very glad that people can buy Armani - even if it's a fake. I like the fact that I'm so popular around the world.
+- I don't have a formula to pass on. I always did it my own way. Even today, I hold my independence close. It's what's most precious to me. Passion. Risk. Tenacity. Consistency. This is my professional history.
+- There can be nothing without love. No money, no power. Love is very important. When you wake up in the morning, you need to know that somebody else is waking up, thinking of you.
+- When I started Giorgio Armani in the mid-'70s, I realized that women needed a way to dress that was equivalent to that of men - something that would give them dignity, an attitude that would help them handle their work life.
+- This is the problem with the world today: Nobody wants to take risks, to risk being themselves.
+- Without insecurities, I think one becomes a little bit of an idiot.
+- I'm a very private person, and perhaps this can be mistaken for aloofness.
+- The excitement does not change. After 40 years in the business, I still find the show to be a magical moment - the performance anxiety, the litmus test.
+- I design for real people. I think of our customers all the time. There is no virtue whatsoever in creating clothing or accessories that are not practical.
+- I have always considered that my collection must have an international flair so it can be at the service of the European public. Or to people in Asia. Yes, there are tiny little alterations I notice in the proportions of the outfits, but fundamentally, the collection is that way.
+- I didn't have a happy childhood.
+- That is always what I've had to do in life: to show I am capable of surviving.
+- I get really frustrated when people say that a collection is not very 'Armani.' Iconic status can be like a pair of handcuffs, especially if, like me, you wish to continually stretch yourself creatively, as Warhol did.
+- If I eat at the Emporio Armani Caffe, my favorite thing to order is risotto or pasta with tomato sauce in winter; in summer, I prefer a Caprese salad, Parmigiano cheese flakes, or some truly fresh ricotta cheese.
+- The idea of the museum is to show my work since the start, and I wanted to show all of it, not just to choose between different pieces. They are grouped together in themes - minimalism, androgyny, black and white, graphic, flowers, and so on - from the earliest designs to the most recent ones.
+- I am not in the stock market. I am beholden to no one in what I do. If I spend billions on a fashion show, I spend billions. It's not public. And if I am in the stock market, I am obligated to account for things, and to show what the business is doing.
+- This is very much my philosophy as a fashion designer. I have never believed in design for design's sake. For me, the most important thing is that people actually wear my clothes. I do not design for the catwalk or for magazine shoots - I design for customers.
+- You have to have doubts. I have collaborators I work with. I listen, and then I decide. That's how it works.
+- In practice, I've had a presence in China since 1998 with my commercial spaces and shops.
+- My work has taught me to pay great respects towards human beings.
+- China approaches fashion with strong enthusiasm. And I believe that this enthusiasm can be translated into something interesting, economically speaking. Not only for my brand, but also for other brands.
+- The essence of style is a simple way of saying something complex.
+- I would say that my idea of style and my taste are the same as when I began: They express my deep appreciation of all that is simple and linear... I always want to keep up with the times but without altering the essential characteristics of my philosophy.
+- There are always protests, whether you do something good or bad. Even if you do something beneficial, people say you do it because it's advertising.
+- Milan is a true metropolis: strong and fearless but welcoming, too. Little by little, I came to realize that I could become someone here.
+- A homosexual man is a man 100 per cent. He does not need to dress homosexual.

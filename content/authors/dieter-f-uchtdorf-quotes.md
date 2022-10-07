@@ -1,0 +1,71 @@
++++
+author = "Dieter F. Uchtdorf"
+title = "Dieter F. Uchtdorf Quotes"
+quotes_len = "65"
+description = "the best 65 Dieter F. Uchtdorf Quotes"
++++
+- Developing Christlike attributes in our lives is not an easy task, especially when we move away from generalities and abstractions and begin to deal with real life. The test comes in practicing what we proclaim.
+- Protection against the influence of the devil comes through the gospel of Jesus Christ. It is the good news that Jesus Christ has made a perfect Atonement for mankind.
+- We are created in the image of our heavenly parents; we are God's spirit children. Therefore, we have a vast capacity for love - it is part of our spiritual heritage.
+- The truth is, those who diligently seek to learn of Christ eventually will come to know Him. They will personally receive a divine portrait of the Master, although it most often comes in the form of a puzzle - one piece at a time.
+- None of us is quite as Christlike as we know we should be.
+- When it comes to spiritual truth, how can we know that we are on the right path? One way is by asking the right questions - the kind that help us ponder our progress and evaluate how things are working for us.
+- Our Heavenly Father created the universe that we might reach our potential as His sons and daughters.
+- Satan tries to counterfeit the work of God, and by doing this, he may deceive many. To make us lose hope, feel miserable like himself, and believe that we are beyond forgiveness, Satan might even misuse words from the scriptures that emphasize the justice of God in order to imply that there is no mercy.
+- I suppose the Church would be perfect only if it were run by perfect beings. God is perfect, and His doctrine is pure. But He works through us - His imperfect children - and imperfect people make mistakes.
+- The love of Christ is not a pretend love. It is not a greeting-card love. It is not the kind of love that is praised in popular music and movies.
+- Let's be honest; it's rather easy to be busy. We all can think up a list of tasks that will overwhelm our schedules. Some might even think that their self-worth depends on the length of their to-do list. They flood the open spaces in their time with lists of meetings and minutia - even during times of stress and fatigue.
+- It is not repentance per se that saves man. It is the blood of Jesus Christ that saves us.
+- I count Joseph Smith among those whose testimony of Christ helped me to develop my own testimony of the Savior. Before I recognized the tutoring of the Spirit testifying to me that Joseph Smith was a prophet of God, my youthful heart felt that he was a friend of God and would therefore, quite naturally, also be a friend of mine.
+- When I turned 11, we had to leave East Germany overnight because of the political orientation of my father. Now I was going to school in West Germany, which was American-occupied at that time. There in school, all children were required to learn English and not Russian. To learn Russian had been difficult, but English was impossible for me.
+- Learn to see yourself as Heavenly Father sees you - as His precious daughter or son with divine potential.
+- The gospel of Jesus Christ is good news, glad tidings, and much more. It is the message of salvation as repeatedly announced by Jesus Christ and His apostles and prophets. It is my firm belief that all truth and light originating with God is embraced in the gospel of Jesus Christ.
+- I marvel to think that the Son of God would condescend to save us, as imperfect, impure, mistake-prone, and ungrateful as we often are. I have tried to understand the Savior's Atonement with my finite mind, and the only explanation I can come up with is this: God loves us deeply, perfectly, and everlastingly.
+- After the turmoil of the Second World War, my family ended up in Russian-occupied East Germany. When I attended fourth grade, I had to learn Russian as my first foreign language in school. I found this quite difficult because of the Cyrillic alphabet, but as time went on, I seemed to do all right.
+- The Creator of the seas, sands, and endless stars is reaching out to you this very day! He is offering the grand recipe for happiness, peace, and eternal life!
+- Some would rather pull a handcart across the prairie than bring up the subject of faith and religion to their friends and co-workers. They worry about how they might be perceived or how it might harm their relationship. It doesn't need to be that way because we have a glad message to share, and we have a message of joy.
+- The Lord doesn't care at all if we spend our days working in marble halls or stable stalls. He knows where we are, no matter how humble our circumstances. He will use - in His own way and for His holy purposes - those who incline their hearts to Him.
+- We need to accept that the commandments of God aren't just a long list of good ideas. They aren't 'life hacks' from an Internet blog or motivational quotes from a Pinterest board.
+- God's love is so great that He loves even the proud, the selfish, the arrogant, and the wicked.
+- Satan, our adversary, wants us to fail. He spreads lies as part of his effort to destroy our belief. He slyly suggests that the doubter, the skeptic, the cynic is sophisticated and intelligent, while those who have faith in God and His miracles are naive, blind, or brainwashed.
+- We come to church not to hide our problems but to heal them.
+- For members of The Church of Jesus Christ of Latter-day Saints, the term 'testimony' is a warm and familiar word in our religious expressions. It is tender and sweet. It has always a certain sacredness about it. When we talk about testimony, we refer to feelings of our heart and mind rather than an accumulation of logical, sterile facts.
+- When I was a young boy, during the aftermath of World War II, Germany was broken and in ruins. Many people were hungry, sick, and dying. I remember well the humanitarian shipments of food and clothing that came from the Church in Salt Lake City.
+- The Church is not an automobile showroom - a place to put ourselves on display so that others can admire our spirituality, capacity, or prosperity. It is more like a service center, where vehicles in need of repair come for maintenance and rehabilitation.
+- The principles and doctrines of the priesthood are sublime and supernal. The more we study the doctrine and potential and apply the practical purpose of the priesthood, the more our souls will be expanded and our understanding enlarged, and we will see what the Lord has in store for us.
+- The blessings of the priesthood transcend our ability to comprehend.
+- It is my conviction that those who disregard the reality of Heaven will ultimately find themselves on the wrong side of history.
+- With patience and persistence, even the smallest act of discipleship or the tiniest ember of belief can become a blazing bonfire of a consecrated life. In fact, that's how most bonfires begin - as a simple spark.
+- I played in bombed-out houses and grew up with the ever-present consequences of a lost war and the awareness that my own country had inflicted terrible pain on many nations during the horrific World War II.
+- In family relationships, 'love' is really spelled 't-i-m-e,' time. Taking time for each other is the key for harmony at home.
+- No, God does not need us to love Him. But oh, how we need to love God! For what we love determines what we seek. What we seek determines what we think and do. What we think and do determines who we are - and who we will become.
+- Why would anyone walk through life satisfied with the light from the candle of their own understanding when, by reaching out to our Heavenly Father, they could experience the bright sun of spiritual knowledge that would expand their minds with wisdom and fill their souls with joy?
+- Wherever you live on this earth, and whatever your life's situation may be, I testify to you that the gospel of Jesus Christ has the divine power to lift you to great heights from what appears at times to be an unbearable burden or weakness.
+- There are few things that have filled me with such breathless awe as flying in the black of night across oceans and continents and looking out my cockpit window upon the infinite glory of millions of stars.
+- Salvation cannot be bought with the currency of obedience; it is purchased by the blood of the Son of God. Thinking that we can trade our good works for salvation is like buying a plane ticket and then supposing we own the airline. Or thinking that after paying rent for our home, we now hold title to the entire planet earth.
+- When I was younger, I was impressed by those who were educated, accomplished, successful, and applauded by the world. But over the years, I have come to the realization that I am far more impressed by those wonderful and blessed souls who are truly good and without guile.
+- Throughout our lives, God's grace bestows temporal blessings and spiritual gifts that magnify our abilities and enrich our lives. His grace refines us. His grace helps us become our best selves.
+- Looking back, I am grateful for so many friends who helped me in my youth to gain a testimony of the restored Church of Jesus Christ. First, I exercised simple faith in their testimonies, and then I received the divine witness of the Spirit to my mind and to my heart.
+- This is a paradox of man: compared to God, man is nothing; yet we are everything to God.
+- God our Heavenly Father knows us by name. Jesus Christ lives; He is the Messiah. He loves us. The Atonement of Jesus Christ is real; it brings immortality to all and opens the door to eternal life.
+- I read, studied, and learned everything I could find about aviation. It was my greatest desire to become a pilot. I could already picture myself in the cockpit of an airliner or in a military fighter plane. I felt deep in my heart this was my thing!
+- Profound questions regarding the purpose of life have led many individuals and families throughout the world to search for truth. Often that search has led them to The Church of Jesus Christ of Latter-day Saints and to the restored gospel.
+- I rejoice in the fact that Christ is not dead but risen from the grave! He lives and has returned to the earth to restore His authority and gospel to man. He has given us the perfect example of the kind of men and women we should be.
+- As I read the scriptures, it appears that those who receive the Savior's strongest reproach are often those who hold themselves in high esteem because of their wealth, influence, or perceived righteousness.
+- Satan will advocate that it is cool to doubt spiritual gifts and the teachings of true prophets.
+- When I was 11 years old, my family had to leave East Germany and begin a new life in West Germany overnight. Until my father could get back into his original profession as a government employee, my parents operated a small laundry business in our little town. I became the laundry delivery boy.
+- I believe that every life is a collection of individual 'journey stories.'
+- Love is the fire that warms our lives with unparalleled joy and divine hope. Love should be our walk and our talk.
+- During my training to become an airline captain, I had to learn how to navigate an airplane over long distances. Flights over huge oceans, crossing extensive deserts, and connecting continents need careful planning to ensure a safe arrival at the planned destination.
+- I am grateful that early in my life I was blessed with a simple faith that Joseph Smith was a prophet of God, that he saw God the Father and His Son, Jesus Christ, in a vision. He translated the Book of Mormon by the gift and power of God. That testimony has been confirmed to me over and over again.
+- There is a beauty and clarity that comes from simplicity that we sometimes do not appreciate in our thirst for intricate solutions.
+- I know for myself how the fruits of the gospel of Jesus Christ can transform lives from the ordinary and dreary to the extraordinary and sublime.
+- I wish I could help everyone to understand this one simple fact: we believe in God because of things we know with our heart and mind, not because of things we do not know. Our spiritual experiences are sometimes too sacred to explain in worldly terms, but that doesn't mean they are not real.
+- At a time when many churches throughout the world are experiencing significant decreases in numbers, The Church of Jesus Christ of Latter-day Saints - though small in comparison with many others - is one of the fastest growing churches in the world. As of September 2013, the Church has more than 15 million members around the world.
+- The Book of Mormon is a second witness of Jesus Christ and a manifestation of the truthfulness of the Prophet Joseph Smith. I love the Prophet Joseph. I love President Gordon B. Hinckley, who is the prophet of God and holds all the keys of the kingdom at this time, keys which prophets have held in uninterrupted succession since Joseph Smith.
+- When I study and ponder moral agency and its eternal consequences, I realize that we are truly spirit children of God and therefore should act accordingly.
+- In my growing-up years in Germany, I attended church in many different locations and circumstances - in humble back rooms, in impressive villas, and in very functional modern chapels.
+- Living according to the basic gospel principles will bring power, strength, and spiritual self-reliance into the lives of all Latter-day Saints.
+- During my career as an airline pilot, I had the opportunity to be a check and training captain. Part of this job was to train and test experienced pilots to ensure that they had the necessary knowledge and skills to safely and efficiently operate those magnificent big jets.
+- To follow Christ is to become more like Him. It is to learn from His character.
+- The most effective way to preach the gospel is through example. If we live according to our beliefs, people will notice.

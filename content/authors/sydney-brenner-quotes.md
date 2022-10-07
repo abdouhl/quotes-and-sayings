@@ -1,0 +1,31 @@
++++
+author = "Sydney Brenner"
+title = "Sydney Brenner Quotes"
+quotes_len = "25"
+description = "the best 25 Sydney Brenner Quotes"
++++
+- Many have gone on to do important scientific work but all remember those wonderful times when we and our science were young and our excitement in meeting new challenges knew no bounds.
+- The art of doing science is doing the important things first.
+- In 1995, I founded The Molecular Sciences Institute with a gift from the Philip Morris Company where I hoped that we could create an environment where young people could pursue science in an atmosphere of harmonious purpose and high intellectual challenge.
+- The moment I saw the model and heard about the complementing base pairs I realized that it was the key to understanding all the problems in biology we had found intractable - it was the birth of molecular biology.
+- People have always asked whether evolution is constantly driving onwards and upwards. Is there always going to be improvement? The answer is no: evolution is a progression of form and function, but it is not purposeful.
+- The modern computer hovers between the obsolescent and the nonexistent.
+- So that's when I saw the DNA model for the first time, in the Cavendish, and that's when I saw that this was it. And in a flash you just knew that this was very fundamental.
+- I think peer review is hindering science. In fact, I think it has become a completely corrupt system. It's corrupt in many ways, in that scientists and academics have handed over to the editors of these journals the ability to make judgment on science and scientists.
+- I cannot stand all the people who take themselves very seriously, who cannot just laugh at themselves.
+- In my second year, after moving to the Medical School, I began the courses of Anatomy and Physiology. I had begun to see that I was interested in cells and their functions.
+- There was still food rationing in England and life was difficult all through my 2 year stay in Oxford.
+- I also became interested in chemistry and gradually accumulated enough test tubes and other glassware to do chemical experiments, using small quantities of chemicals purchased from a pharmacy supply house.
+- I completed the first three years of primary school in one year and was admitted to the local school the age of six directly into the fourth year, some two years younger than all my contemporaries.
+- During this period, I became interested in how the new techniques of cloning and sequencing DNA could influence the study of genetics and I was an early and active proponent of the Human Genome Sequencing Project.
+- I lived at home and I cycled every morning to the railway station to travel by train to Johannesburg followed by a walk to the University, carrying sandwiches for my lunch and returning in the evening the same way.
+- I sometimes say I am the extinguished professor, because what I'd really like to be is the postdoc, to have that kind of thinking. I think one can get very set in his ways with titles like 'distinguished professor.'
+- Living most of the time in a world created mostly in one's head, does not make for an easy passage in the real world.
+- I went in with Jack and Leslie, into this room that was lined with brick, and there on the side I can remember very clearly was this small model with plates for the bases - the original model with everything screwed together.
+- Today, the Americans have developed a new culture in science based on the slavery of graduate students. Now, graduate students of American institutions are afraid... He's got to perform. The post-doc is an indentured labourer.
+- There's no exploration anymore, except in a very few places.
+- The supporters now, the bureaucrats of science, do not wish to take any risks. So in order to get it supported, they want to know from the start that it will work.
+- He told me that Francis Crick and Jim Watson had solved the structure of DNA, so we decided to go across to Cambridge to see it. This was in April of 1953.
+- The most important thing today is for young people to take responsibility, to actually know how to formulate an idea and how to work on it. Not to buy into the so-called apprenticeship.
+- I set up a laboratory in the Department of Physiology in the Medical School in South Africa and begin to try to find a bacteriophage system which we might use to solve the genetic code.
+- The thing I'm most interested in is the nervous system. How do brains grow? How do genes build complicated nervous systems?

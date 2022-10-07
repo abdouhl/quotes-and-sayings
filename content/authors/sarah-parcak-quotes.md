@@ -1,0 +1,99 @@
++++
+author = "Sarah Parcak"
+title = "Sarah Parcak Quotes"
+quotes_len = "93"
+description = "the best 93 Sarah Parcak Quotes"
++++
+- In Egypt, I do survey work on the ground. That's really the most important part of using satellite images. You know, it helps us to find potential locations for sites, and then we get to go there on the ground and confirm what we've seen.
+- I am one of many people documenting damage and looting at ancient sites from space - it is such a crucial tool.
+- We've got to map all of our ancient history before it's gone because, let's face it, if we don't have a common heritage to share, something to get excited about, then what are we living for?
+- When you think about archaeology, archaeology is the only field that allows us to tell the story of 99 percent of our history prior to 3,000 B.C. and writing.
+- WorldView-3 goes into the mid-infrared wavelength, allowing you to see very subtle geological differences on the sites at a 0.4-metre resolution.
+- The looters are using Google Earth, too. They're coming in with metal detectors and geophysical equipment. Some ask me to confirm sites.
+- When people initially think of the term 'space archaeologist,' they think, 'Oh, it's someone who uses satellites to look for alien settlements on Mars or in outer space,' but the opposite is true - we're actually looking for evidence of past human life on planet earth.
+- There are so many previously unknown sites and structures all over the world. And I think most importantly what satellites help to show us is we've actually only found a fraction of a percent of ancient settlements and sites all over the world.
+- What is amazing to me as an archaeologist is that the more and more I study, I realize we are resilient, we are creative, we are brilliant, and this is what makes us human, and that hasn't changed since we've been human.
+- It's an important tool to focus where we're excavating. It gives us a much bigger perspective on archaeological sites. We have to think bigger, and that's what the satellites allow us to do.
+- Seeing sites and features in places where we never looked or never thought things might exist is causing archaeologists across the world to think deeper about their sites or entire cultures.
+- Looting speaks to a lack of economic opportunities - frankly, we all would loot, too, if our families' continued survival depended on it.
+- When I was a child growing up in Maine, one of my favorite things to do was to look for sand dollars on the seashores of Maine, because my parents told me it would bring me luck. But you know, these shells, they're hard to find. They're covered in sand. They're difficult to see.
+- Google Earth is an incredible resource because from hundreds of miles in space, we can zoom in, and we can find things. Everyone always looks for their house first. That is the tip of the iceberg with remote sensing.
+- If you find a series of linear shapes in the same alignment as known archaeological features, and they match excavated examples, you still need to excavate to confirm, but you can be fairly sure that the imagery is accurate.
+- Archaeologists gave the military the idea to use aerial photographs for spying and field survey. We are fortunate that the spatial and spectral resolutions of the imagery available to us are so broadly useful for archaeology.
+- I am honored to receive the TED Prize, but it's not about me; it's about our field - and the thousands of men and women around the world, particularly in the Middle East, who are defending and protecting sites.
+- I dig in the sand, and I play with pretty pictures, so I never really left kindergarten.
+- Looting has an immense impact on our ability to understand our global cultural heritage; once these objects are gone, so too is our chance of piecing together humanity's shared story.
+- We have so many thousands of sites to find across the globe and new techniques to test. The field keeps evolving with the technology, which makes things exciting.
+- Discoveries aren't made by one person exploring by themselves. And discoveries aren't made overnight. People don't see the thousands of hours that go into it.
+- You think looting is bad in Egypt, look at Peru, India, China. I've been told in China there are over a quarter-million archaeological sites, and most have been looted. This is a global problem of massive proportions, and we don't know the scale.
+- Getting permission to use a drone in Egypt was problematical.
+- Archaeologists use datasets from NASA and commercial satellites, processing the information using various off-the-shelf computer programs. These datasets allow us to see beyond the visible part of the light spectrum into the near, middle, and far infrared.
+- What these satellites do is they record light radiation that's reflected off the surface of the Earth in different parts of the light spectrum. We use false color imaging to try to tease out these very subtle differences on the ground.
+- What satellites help to show us is we've actually only found a fraction of a percent of ancient settlements and sites all over the world... It's the most exciting time in history to be an archaeologist.
+- The most exciting moment as an archaeologist happened when I was looking at the great archaeology site of Tannis, which of course we all know from 'Indiana Jones.' We got satellite imagery of the city of Tannis, we processed it, and literally from thousands of miles away from my lab in Alabama, we were able to map the entire city.
+- There's always a little jump to your heart when you realize you've got looting.
+- In archaeology, context is everything. Objects allow us to reconstruct the past. Taking artifacts from a temple or an ancient private house is like emptying out a time capsule.
+- We can tell from the imagery a tomb was looted from a particular period of time, and we can alert INTERPOL to watch out for antiquities from that time that may be offered for sale.
+- I hope my work contributes to understanding long-term patterns of human behavior and how we survive, thrive, or fail during times of environmental, social, and economic crisis.
+- I try to tell a lot of stories to make my students aware that the world is a very cool place with many problems that need solving, and that they all can help solve them.
+- I've found numerous things - settlements, temples, possible pyramids, forts, roads - the list goes on and on. I'm not as interested in the discoveries as the types of questions they help us formulate.
+- What if Hiram Bingham had the technology to find hundreds of other archaeological sites at the same time and create entire 3-D maps of the ancient landscape accurate to within a few inches?
+- I played varsity soccer at Yale and continued playing at Cambridge.
+- I keep being surprised by the amount of archaeological sites and features that are left to find all over the world.
+- A lot of people are surprised when I talk so much about the present, but politics is just a crucial part of archaeology.
+- That's what I want to do, ultimately: figure out a way to get the world engaged with discovery and protecting these ancient sites.
+- I predict that there are hundreds of thousands, if not millions, of undiscovered ancient sites across the globe. The only way to map them and locate them quickly is from satellites.
+- Less than 1 percent of ancient Egypt has been discovered and excavated. With population pressures, urbanization, and modernization encroaching, we're in a race against time. Why not use the most advanced tools we have to map, quantify, and protect our past?
+- The map we made of the 3,000-year-old city of Tanis requires no imagination. It has buildings, streets, admin complexes, houses - clear as day.
+- It's both Indiana Jones and 'National Geographic' that inspired me to be an Egyptologist.
+- Satellite imagery is the only way we can map the looting patterns effectively.
+- Think about what would happen if Indiana Jones and Google Earth had a love child. I use high-resolution and NASA satellites and look for subtle differences on the surface of the earth that locate buried ancient pyramids and towns and ancient tombs, which we then go and excavate.
+- What we did is we used NASA topography data to map out the landscape, very subtle changes. We started to be able to see where the Nile used to flow.
+- I can't tell you the number of times I've been walking over an archaeological site. And you can't see anything on the ground, and pull back hundreds of miles in space, and all of a sudden you can see streets and roads and houses and even pyramids.
+- There's even an aircraft sensor system that sends down hundreds of thousands of pulses of light measured at different return rates. It allows you to literally strip away vegetation and see entire cities beneath the rain forest canopy. This is the unbelievable future of archaeology.
+- It's absolutely critical, you know, to train young men and women not just to find sites, but also to protect sites, especially in the wake of the Arab Spring. There's been significant site-looting in Egypt and elsewhere across the Middle East.
+- If you look at the Nile on a map of Egypt, you don't think it has moved very much, but the river is very violent and has moved over time.
+- When a wall is slowly covered over by earth, the materials it's made from decay and become part of the soils around and above it, sometimes causing vegetation above and next to the wall to grow faster or slower. Satellite imagery helps archaeologists to pick up these subtle changes.
+- I'm looking at looting photos from space, and there are people putting their lives on the line every day protecting their heritage. I call these people the real culture heroes.
+- I think archaeologists are stuck, and we are losing our past at a very rapid rate. Tens of thousands of sites will be lost, and we've only unveiled a tiny percent of the past.
+- The most exciting part of what I do is understanding the scale of what we don't know. There are just countless archaeological sites all over the world, and one of the most important and best ways of finding them is using digital technology.
+- To excavate a pyramid is the dream of every archaeologist.
+- I've always loved teaching and reading and talking to people, and my grandfather was a professor.
+- I give my grandfather, Dr Harold Young, a forestry Professor at the University of Maine, full credit for my career path. He pioneered the use of aerial photography in forestry in the 1950s, and we think he worked as a spy for the CIA during the Cold War, mapping Russian installations.
+- Eventually, when I started studying Egyptology, I realized that seeing with my naked eyes alone wasn't enough. Because all of the sudden, in Egypt, my beach had grown from a tiny beach in Maine to one eight hundred miles long, next to the Nile.
+- A picture is worth a thousand words. A satellite image is worth a million dollars.
+- Itjtawy was ancient Egypt's capital for over four hundred years, at a period of time called the Middle Kingdom about four thousand years ago. The site is located in the Faiyum of Egypt, and the site is really important because in the Middle Kingdom there was this great renaissance for ancient Egyptian art, architecture and religion.
+- Before doing fieldwork in Middle Egypt, I analyzed satellite imagery to determine exactly where I wanted to go. Within three weeks, I found about 70 sites. If I had approached this as a traditional foot survey, it would have taken me three and a half years.
+- 'Satellite archaeology' refers to the use of NASA and commercial high resolution satellite datasets to map and discover past structures, cities, and geological features.
+- Satellite datasets like WorldView can see objects as small as 1.5 feet in diameter. In 2014, WorldView-3 will be able to see objects a small as a foot.
+- People were looting tombs 5,000 years ago in Egypt as soon as people were buried, but the problem is only getting worse and worse.
+- When you think about the scale of human populations all over the world and the fact that there's so much here, really, the only way to be able to visualize that is to pull back in space... It allows us to see hidden temples and tombs and pyramids and even entire settlements.
+- Indiana Jones is old school; we've moved on from Indy. Sorry, Harrison Ford.
+- All over the world, we're finding out that, you know, whether it's Egypt or Syria or Central America, what satellites are showing is that there are hundreds, if not thousands, of previously unknown settlements all over the world, and what archaeology does, it helps us to understand this common humanity that we have.
+- We want to excite the world about what's out there. But we don't want them to say, 'Oh, there are lots of sites in Egypt - let's loot.'
+- Satellites record data in different parts of the light spectrum that we can't see. And it's that information that allows satellites to be so powerful in terms of looking at things like vegetation health, finding different kinds of geology that may indicate an oil deposit or some kind of mineralogical deposit that can be mined.
+- I'm an Egyptologist. I'm a remote sensing specialist, and I'm a space archaeologist.
+- My dream is to map every archaeological site in the world because, if we can do that, then we have this massive global data base that all sorts of global heritage organizations and heritage organizations within countries can use, and they can use that information to protect what's there.
+- We emphasise the features on satellite maps by adding colours to farmland, urban structures, archaeological sites, vegetation and water.
+- We're using satellites to help map and model cultural features that could never be seen on the ground because they're obscured by modernization, forests, or soil.
+- Scientists use satellites to track weather, map ice sheet melting, detect diseases, show ecosystem change... the list goes on and on. I think nearly every scientific field benefits or could benefit from satellite imagery analysis.
+- Once archaeologists have shown possible 'new' ancient features, they can import the data into their iPads and take it to the field to do survey or excavation work. Technology doesn't mean we aren't digging in the dirt anymore - it's just that we know better where to dig.
+- Choosing an unconventional career path - I am not a traditional Egyptologist by any means. I found what I love, and I have stuck with it.
+- I am part of a network of people monitoring what's happening at ancient sites in Iraq and Syria - from space. We can see clearly the destruction.
+- The only technology that can 'see' beneath the ground is radar imagery. But satellite imagery also allows scientists to map short- and long-term changes to the Earth's surface. Buried archaeological remains affect the overlying vegetation, soils and even water in different ways, depending on the landscapes you're examining.
+- Archaeologists have used aerial photographs to map archaeological sites since the 1920s, while the use of infrared photography started in the 1960s, and satellite imagery was first used in the 1970s.
+- Scorpions like holes. We had to put our arms in the holes to dig out the smelting residues. We always performed critter checks before an excavation, but one morning, I put an arm in and felt a sharp pierce. When I brought my hand out, it was red and already swelling.
+- How do you find a buried city in a vast landscape? Finding it randomly would be the equivalent of locating a needle in a haystack, blindfolded, wearing baseball mitts.
+- With population pressures, urbanization, and modernization encroaching, we're in a race against time. Why not use the most advanced tools we have to map, quantify, and protect our past?
+- We have so many issues with overpopulation and urbanization and site looting. And this isn't just Egypt. This is everywhere in the world, even in America. So we only have a limited amount of time left before many archaeological sites all over the world are destroyed.
+- Looting and site destruction are global problems. We have a tough road ahead, and one key will be developing more collaborations and using new technologies like satellite imagery.
+- We've found that patterns of site looting have increased between 500 and 1000 percent since the start of the Arab Spring. Now this is a problem as old as human beings. People were looting tombs 5,000 years ago in Egypt as soon as people were buried, but the problem is only getting worse and worse.
+- We only have a limited amount of time left before many archaeological sites all over the world are destroyed. So we have to be really selective about where we dig.
+- We're literally just beginning to learn how to use satellites to find sites. More and more people are realizing there's this incredible tool.
+- I already find pyramids from space. Is there anything cooler than that?
+- Archaeology holds all the keys to understanding who we are and where we come from.
+- You can theorize as much as you want about what you think you're seeing, but until you get out there and dig, you can't tell exactly what it is.
+- The majority of the research I do is archaeological research, but to me, as a professor, the most important thing is to encourage and mentor students.
+- Imagery is powerful. Imagery is provocative - satellite imagery much more so because it is from space, and it allows us to get this perspective that we don't have to have otherwise.
+- If you really want to be a good archaeologist, you have to understand ancient DNA; you have to understand chemical analysis to figure out the composition of ancient pots. You have to be able to study human remains. You need to be able to do computer processing and, in some cases, computer programming.
+- You just pull back for hundreds of miles using the satellite imagery, and all of a sudden this invisible world become visible. You're actually able to see settlements and tombs - and even things like buried pyramids - that you might not otherwise be able to see.

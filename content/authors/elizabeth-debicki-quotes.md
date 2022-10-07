@@ -1,0 +1,56 @@
++++
+author = "Elizabeth Debicki"
+title = "Elizabeth Debicki Quotes"
+quotes_len = "50"
+description = "the best 50 Elizabeth Debicki Quotes"
++++
+- I feed off variety. I don't want to repeat myself if I can help it, but once they've seen you doing one thing, directors often just want you to do it again.
+- I loved Catherine Deneuve, Sophia Loren, and Ursula Andress. They had an incredible strength but fragility at the same time, especially Catherine Deneuve, who had an aloofness that impressed me.
+- My parents were ballet dancers, and I did a lot of ballet, too, so I think I learned quite early on how to hold my body. Although I do recall desperately wishing I was shorter at school.
+- When I went to the Victorian College of the Arts in Melbourne to study drama, I felt I'd finally found my place in life.
+- I think that if you're lucky enough to work with a stylist who pulls a rack from the beginning that you love everything on it, that's a blessing.
+- Often, you're not quite sure what people have seen you in, but the script lands in your inbox. That was the case with 'The Night Manager.'
+- There is something about a theatre room that is really like a laboratory for trying things and failing, because you have time to do that, and you can explore something deeply and discard it if it's not working.
+- I was a dancer from a young age. My parents were dancers; we were taken to a lot of ballet as children. It occurred to me that what I liked more than dancing the steps was acting the story of whatever particular performance I was taking part in.
+- Often, female characters are quite one dimensional, especially in a two hour film; television gives characters room to breathe and develop.
+- I think there's something beautifully old fashioned about waiting all week then sitting down and watching something on television together. I'm generation box set, accustomed to binging on multiple episodes at a time, which is fun but quite a solitary pursuit because you do it alone.
+- Kissing in films, it's just another thing you have to do. It kind of becomes as technical as how to open a door, really.
+- People ask me what it's like to be tall, and I don't know what to say because I don't know any different. I grew up in a very tall house, so I wasn't an anomaly there.
+- It often happens that you leave your house in the dark, shoot on a sound stage without natural lighting, and then go home in the dark. A whole week can go past, and it can feel like 12 hours.
+- Dancing gives an innate physical awareness - it's physical training. Acting feels like the same medium but just with words.
+- I have a sense of Europe also being like home. I mean, Australia is my home, and my heart is there, but I suppose I've always felt close to Europe, given we had family there, and we would visit.
+- I did flirt with the idea of going to law school, but not for long. Maybe I'll play a lawyer one day - the beauty of acting is that you can try on so many different roles without having to commit to them in real life.
+- Television is the medium that's allowing women's stories to flourish.
+- I'm not a great sleeper. I try and do too many things every day. I think that I get very obsessive about parts and projects. I do let them kind of consume me, and when there's something on the horizon that I want to be involved in, I just kind of hurtle myself towards it.
+- I grew up learning ballet, and then I took up contemporary as I got older. I probably thought I was going to be a ballet dancer when I was younger, but at a certain age, I really was more interested in acting.
+- A dancer's life is as peripatetic and unstable as that of an actor's. You're freelancing yourself all the time, and a dancer's lifespan is even shorter than an actor's: once they turn 30 or 35, they have to stop.
+- Majorca is this destination where, you know, you have a lot of money, but you want to go somewhere quite exclusive. And the culture of the island is still traditionally Spanish. It hasn't been infested by tourists. I think, in the '20s or something, an extremely wealthy person built this little kingdom of villas.
+- I was very new to working in front of the camera when I started shooting 'Gatsby', so I set myself the mission of gleaning as much information as possible out of the much more experienced actors. The cast was astoundingly talented.
+- It was quite a thespian - 'thespy' - sort of household. My mum had a dance school, and my dad now works in a theatre, so I spent a lot of time going to see dance as a young child - it was just a part of who we were.
+- I don't think it's healthy to buy into hype in any form, whether it's positive or negative. You have to exist in yourself and just move on with life.
+- Baz Luhrmann is a very visual director. He needs to see things as they would unfold in his world.
+- I guess the bigger you dream, the further you have to fall if you don't get it, so it can be a bit of a scary thing to be that ambitious.
+- One of my favourite things to think about is, if you could be invisible and go back in time, where would you go? I've always said ancient Egypt. I would love to see them building the pyramids, and I've always had a real fascination with medieval time and monarchy in medieval times.
+- I'm a gypsy at heart. I have a little triangle where I tend to go, which is between Sydney, Los Angeles, and London, and I'm happy with that at the moment.
+- Sometimes I have a nervous breakdown over my suitcase - over socks - because your brain just goes, 'I just can't pack again. I can't.' You're looking at your suitcase going, 'I'm in five countries in two weeks, and it's four different seasons.' That's when my brain melts.
+- On a film set, everything's done for you. You get to a stage where you can't even remember the last time you made yourself a sandwich. The crazy thing is that, as actors, we're trying to portray the human condition, but we're often not living in reality.
+- Acting is a craft to me: I just think you get better the more you do it. And then the irony to that is your doing it is not in your control. If it was up to most actors, we'd work all the time, and we'd always get better. But it's not in our control, so we have to wait to be given parts to do.
+- I definitely try my best not to stay in character when I'm not on set, which can be more difficult in some roles than others.
+- I don't have a story about an epiphany in which I suddenly realised I wanted to be an actor. It was much more a case of the idea dawning on me gradually.
+- A good night in is a series of documentaries.
+- That world of spies and espionage, there's a coldness to it. That's what makes those worlds fascinating - and what makes le Carre's work so interesting.
+- You think there's a rule book, in a way, until you realize there's absolutely no rule book, and you can use a red carpet to express something about yourself. There are so many wonderful designers in the world, and they create such wonderful things. Why go with something uninteresting?
+- As a child, I got bored with my surroundings, so I would be another person for a little while.
+- I didn't really know what to expect. I had been told about the scale of Cannes, but nothing could have prepared me for just how many people would turn out for our photo calls or for the opening ceremony.
+- I've always been a big Cate Blanchett fan. Such a wonderful role model, the way she carries herself through her profession. She has so much grace to her, and so much intelligence. I've also always been a big Katharine Hepburn fan.
+- I think I've developed a sort of ADD for geography now. When I've been in a country for too long, I'm like, 'I think it's time to leave.' I don't know what that's going to do to me in later life.
+- On a red carpet, you really want to feel your best, so to work with a designer who will shape a dress to your figure and take into consideration your opinions is really a blessing.
+- Granted, it's not easy to be a super-tall woman in Hollywood. But there are times when it works in my favour. In 'The Night Manager,' for example, both of my co-stars, Hugh Laurie and Tom Hiddleston, are also well over 6 ft. and it was lovely to look a co-star in the eye and not have them standing on an apple box!
+- Red carpets are awful. They're like a kind of purgatory - you stand there, and there are cameras flashing everywhere. One of my first red carpets was in Cannes for 'The Great Gatsby,' and I'd never seen anything like it.
+- Every time I see a good play or watch a good movie, I have the same feeling I had as a child of wanting to be that person on stage or wanting to run through the forest with a big dress on.
+- I have to say that filming 'The Night Manager' was not just amazing but also very daunting at first. I used to describe myself as the token plebeian surrounded by all your national treasures. All that glittering talent in one place; I knew Hugh from Fry and Laurie videos that my grandpa used to watch, and Tom Hollander's 'Rev' is hilarious.
+- It's tricky territory, height and co-stars. The only thing I can say is that it's never been an issue in my life.
+- I am very tall, and when you're a teenager, you want to be like everyone else. I used to slump a lot; it's very human at that stage to want to be part of the crowd and not want any part of you that is sticking out.
+- It even sounds stupid to hear myself say the first costume designer I worked with was Catherine Martin, and she won an Oscar for it, but that was just my very lucky draw of roll of the dice.
+- Charlestoning is hard. People were fit in the '20s to be able to do that. I guess they didn't sit in front of their computers all day.
+- I have always been a fan of Alex Perry's work. His gowns are so beautiful, elegant, and always uniquely crafted to the woman wearing them on the red carpet. They are a true piece of art-meets-couture.

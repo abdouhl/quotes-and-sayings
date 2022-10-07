@@ -1,0 +1,15 @@
++++
+author = "Sulaiman Abdul Aziz Al Rajhi"
+title = "Sulaiman Abdul Aziz Al Rajhi Quotes"
+quotes_len = "9"
+description = "the best 9 Sulaiman Abdul Aziz Al Rajhi Quotes"
++++
+- If we pursue organic farming as our healthy food style, we can bring down cost of treatment to a great extent.
+- My experiment in money exchange was the temptation to set up a bank. The absence of any Islamic banking was also another factor in establishing Al-Rajhi Bank, which is now the world's biggest Islamic lender by market value.
+- In the past, I never gave money to my children when they were young in return for nothing. When one of them approached me to give them cash, I asked them to do some work in exchange for it.
+- How can you satisfy your hunger while your neighbor is spending the night hungry?
+- We are glad to tie up with a humanitarian organization, which is being promoted by Prince Abdul Aziz. This partnership will greatly help in assisting needy renal-failure patients by supplying them equipment, medicines and other medical supplies, while encouraging and supporting scientific research.
+- Why borrow if you are not in need of it? You must lend feet to the maximum of your bed only, and not to borrow except in the case of necessity.
+- I am in constant search of charitable work and thank Allah that I am happy, that my children are happy, and I like that all of my family is happy.
+- Usually, people in the Islamic world set aside one-third or one-fourth of their wealth for endowment, and that will be effective only after their death. But in my case, I decided to implement this decision in my lifetime itself.
+- I distributed my wealth among my children and set aside a portion for endowment to run charity projects.

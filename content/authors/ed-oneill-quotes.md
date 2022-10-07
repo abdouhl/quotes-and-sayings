@@ -1,0 +1,51 @@
++++
+author = "Ed O'Neill"
+title = "Ed O'Neill Quotes"
+quotes_len = "45"
+description = "the best 45 Ed O'Neill Quotes"
++++
+- Ohio's future is important to me.
+- In high school, I got into a speech class run by a nun who used to put on plays. She put me in a oratorical competitive program. You would tell a story, and they were very corny, something like 'My Childhood Hero.' It was something out of 'Readers Digest.' I always thought it was too much and too dramatic.
+- Youngstown and Toledo have a lot in common.
+- I took a plane from New York City to Los Angeles for an audition. I met all the people. After that, I was told to have another audition, but I didn't want to go there again.
+- I always found that drama, really good drama, has a lot of comedy in it.
+- My paternal grandfather worked in the mill all his life. My father worked in the mill almost his whole life. I worked in the mill while I was going to college in the summers. And then, for one stretch, I quit school and worked one year.
+- I'd loved to wear jeans and t-shirts, but everybody was in the peace movement back then. And that was my ploy. I had to be careful not to say things like 'I like meat.' Actually I just wanted to drink beer and to screw.
+- All this flying around got on my nerves. But then I gave the script to Cathy to get her opinion. When she started to laugh, it was like 'That's it!'. I went to LA and I got the part.
+- I was adrift for a while. I worked as a substitute teacher; I sold cars.
+- I knew I was a good stage actor but I had no idea about movies. And I wasn't a Paul Newman type of guy. That's why I thought the stage is just right for me.
+- I had a lot of trouble with my coaches. Your coaches are father figures - you look to what they say. Well, the reality of it is, they are just shmucks.
+- When you come from where I come from, you're trying to get approval for something - you don't know what.
+- Comedy is not easy to do - where you make someone laugh out loud in their living room.
+- I channel surf like probably most people.
+- We need elected officials who overcome partisan politics to really help people.
+- I was in Africa once. I was in Kenya. I got off the plane, and I thought, 'Africa...' Some guy in a dashiki said, 'Mr. Bundy. Oh my God, it's you.'
+- I went to Ohio University studying arts and history, and playing football. But I was only interested in girls, my pals and sports. I only did the minimum for school.
+- We need to elect leaders who have a strong moral compass. Leaders who are honest, straightforward, and tough - with a love of justice and fair play.
+- I think I 'turn off' women. I've a kind of a weird personality. Women may think that I'm a mess.
+- Security was another reason. You never know what can happen to you when you earn a lot of money.
+- I've always considered myself one of the luckiest guys.
+- I had done some acting in high school. I was terrible.
+- I was with the Steelers, and I got cut, and I remember, when I left, I was relieved.
+- Never in my life have I thought, 'What's next?' It's just like 'Finding Dory.' Things just happen.
+- I was very slender and small. All my friends were on the team, so I had to make it too. I was a very aggressive player. I wanted to be one of the best, but I just ended up as one of the good ones.
+- I used to be a wonderful auditioner. When I was living in New York, I'd audition every day. And I like to audition. But then it got to a point where I didn't like it anymore.
+- In the summer we graduated we flipped out completely, drinking beer, cruising in our cars and beating up each other. It was a crazy summer. That's when I started to be interested in girls.
+- Larry David just makes me laugh.
+- In terms of comedians, I loved, growing up, Jonathan Winters, Sid Caesar, Jackie Gleason, Phil Silvers, Carol Burnett, all those people.
+- That's a big deal for kids, when they come into the kitchen and the teacher is drinking coffee with mom. They react differently on the next day when you say: 'Sit down and shut-up!'
+- I say I'm the best actor in America who's never done a movie.
+- I'm glad I did 'Married... with Children,' and I liked making all that money, and we all had a lot of laughs.
+- When I read the pilot 'for Married with Children', it just reminded me of my Uncle Joe... just a self-deprecating kind of guy. He'd come home from work, and the wife would maybe say 'I ran over the dog this morning in the driveway'. And he would say 'Fine, what's for dinner?
+- I got into television, and I'm a television guy, so I've never really had a movie career.
+- 'Married with Children,' we were good until the fifth or sixth season, and then we limped into the 11th season.
+- If you can sustain a career over 40 years in this business, you've gotta consider yourself lucky.
+- I could always say I wished I had a better film career... but overall, I've been one of the lucky ones.
+- I was never a joke teller. I don't even like jokes, for the most part. I don't like to hear them, and rarely can I even remember one.
+- I auditioned for 'The Rainmaker.' Nothing. I auditioned for 'One Flew Over the Cuckoo's Nest.' Nothing. 'Antigone' was my big break. I got a part as a Roman guard. I carried a spear.
+- My father, he was a strong guy, a handsome guy, and a hard worker. I don't believe he ever missed a day of work in his life.
+- I loved the movie theater, so I always saw a lot of movies.
+- I prefer to underplay scenes rather than, you know, be big and drive them. And sometimes you have to do that, but I like the more natural styles.
+- I always wanted to work with David Milch.
+- My goal was never to win awards. Mine was let me get to a place where I don't have to work. I don't have to do anything I don't want to.
+- Back then I said to myself 'screw football.' Actually I just took part in this camp as there was nothing better for me to do. They also didn't draft me because they thought I was too wild and undisciplined.

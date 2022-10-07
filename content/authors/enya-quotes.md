@@ -1,0 +1,54 @@
++++
+author = "Enya"
+title = "Enya Quotes"
+quotes_len = "48"
+description = "the best 48 Enya Quotes"
++++
+- I find that music makes people just sit and listen, firstly. Then, they seem to interpret their own emotions with the music and it makes them ponder their own life a lot. And then they start to question: Am I happy in my work? Am I happy in my relationships? What am I striving for?
+- When you spend two to three years working on an album that I feel very happy with the end result, there is nothing I would change. Musically, I have achieved what I set out to do.
+- Fame and success are very different things.
+- I tend to listen to the classical composers: Rachmaninov, Satie.
+- It's very easy for me to keep a low profile because the focus I feel is always on the music. Success and fame are two different things. And so I feel the success is always towards the music, which means that I can have a very normal and private lifestyle.
+- The music sold itself before anybody knew who I was.
+- I don't have pets, I have two guard dogs; and I don't do my own shopping; it's a security thing.
+- I can only be who I am.
+- I know every note in every song, the whole history of it, even parts that were there and are gone.
+- The personal appearances and red carpet events are very glitzy, but it's a bit false.
+- The spring, summer, is quite a hectic time for people in their lives, but then it comes to autumn, and to winter, and you can't but help think back to the year that was, and then hopefully looking forward to the year that is approaching.
+- When making music I sink myself into the process as deeply as I can and forget all of the success.
+- I do understand that not everyone is going to sit and listen to an Enya album. When someone says it's not their cup of tea, it's not their kind of album, that's fine by me.
+- I have had death threats from people with fixations.
+- My core beliefs revolve around the idea that we should live to the best of our abilities-we should live and let live.
+- As with anything creative, change is inevitable.
+- The ocean is a central image. It is the symbolism of a great journey.
+- I am privileged to do a job I love to do. I would never change any moment from my life.
+- I do promotion when it is necessary, but I always want to get back to the music.
+- I am not reclusive. I just have a private life.
+- Singing in Gaelic is very, very natural to do. I think lends itself very much so to being sung.
+- I didn't expect such a huge reaction, but I knew I was doing something different to everything else that was happening at the time.
+- I use my voice as an instrument.
+- I don't need a man in my life.
+- Over in the UK, the music press can be brutal. They can say wonderful things about you one week, and the next week, you're in the can.
+- Writing music on your own makes you think a lot about your life. Who are you? Would you change anything about yourself? This is where it comes from.
+- My first language is Gaelic.
+- It's a noisy environment we all live in, whether it's traffic or the workplace, so it's very difficult to think about your life in general. A lot of people are afraid to do that. They like to hide behind their work and not face up to a big problem in their life.
+- The Druids held the trees as very sacred.
+- People tend to think that because I need all this time on my own in the studio, that I need time on my own, period. And that's not really true.
+- It wasn't so long ago that it was not popular to speak Gaelic in Ireland because the areas that Gaelic is spoken in were much poorer areas.
+- The fans are very, very loyal. They're always saying, 'When is the next album?' They know when I finish in the studio it's got to be a few years before the next album.
+- I do a so-called trip into myself: I sit down at the piano and the melody might start to evolve from my playing or then I might start to sing it.
+- With my music, I can express myself so much. A lot of the fans can sense that I'm relating to them something that's quite personal.
+- The success of Watermark surprised me. I never thought of music as something commercial; it was something very personal to me.
+- When I was growing up, I'd be in the choir. My mum was the organist in the church, so I'd sing in the church.
+- I enjoyed the two years I was with Clannad. I enjoyed touring. We toured a lot in Europe.
+- I told the record company I didn't feel the need to be at red-carpet events. I wanted a career. But I wanted to keep myself intact as a person.
+- I always felt that the music sells by itself. The music has always been the successful aspect on my career, and that means that, to me, I can always still stay very focused on music.
+- I find I'm not one of these composers that are, you know, walking along a beach or walking on the mountainside in County Donegal that's, you know, 'Oh, a melody.' It's more a matter of eventually taking that moment with me to the studio, and it begins to evolve.
+- I could have been more famous if I did all the glitzy things, but celebrity always seemed so unnecessary.
+- I am really a very shy person. If I appear, it is because of the music, not because I want to be seen.
+- I'm not one for walking the beaches humming a melody. I love the discipline of sitting in the studio, writing and listening. That is my domain.
+- The minuses of celebrity include having to live with security and the knowledge that you may be stalked.
+- It's very homely, this castle. It doesn't have huge ballrooms. I didn't want a cold, cavernous place.
+- Wintertime for me is a time when I do a lot of my writing in the studio. It's a time I enjoy. And it's very reflective and a very calming time of the year. Throughout the year I gather a lot of musical inspirations, and this is where I bring them to the studio and see what will evolve musically.
+- The writing of a melody is an emotional moment; success doesn't make it easy.
+- There is no formula to it. Writing every song is a little journey. The first note has to lift you.

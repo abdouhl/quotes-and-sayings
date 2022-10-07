@@ -1,0 +1,80 @@
++++
+author = "Oleksandr Usyk"
+title = "Oleksandr Usyk Quotes"
+quotes_len = "74"
+description = "the best 74 Oleksandr Usyk Quotes"
++++
+- I will move up to heavyweight and show them all how good I am.
+- I'm very happy to fight on the same card with Vasyl Lomachenko and Oleksandr Gvozdyk. This is something we've been talking about since we were amateurs - to have three members of the 2012 Ukrainian Olympic team in the same event.
+- I absolutely do not divide people into any religions, creeds, political views.
+- I am Ukrainian and fighting like a Ukrainian.
+- No-one but me gets into my head.
+- I heard Tony Bellew is looking for a fight with the winner of the Muhammad Ali Trophy. I hope he will see me.
+- I have a very good impression of the United States, and I am very excited to fight here.
+- If people become kinder to each other and begin to forgive some bitterness, if they begin to love their neighbor as the Most High loves us, then I am for it.
+- A fight with Tony Bellew would be a momentous occasion. He is a good boxer and a good person, and I also have the option to move into the heavyweight division.
+- I picked Tony Bellew because he is the man that takes the biggest challenges. He is not the usual type of fighter that will come, see how hard it is, and quit. He will come to fight until the end. These are the kind of fights that the world wants to see.
+- I want to become a star in the United States because I want to show everyone quality boxing.
+- I like Britain because that is where boxing was born.
+- I don't want to work with a person just to have someone there.
+- I'm getting better with each bout and looking to close out 2014 in style.
+- I do think Briedis will be the toughest opponent I have faced in my professional career. He is 23-0, he's a cruiserweight, and he can punch, and that makes anyone dangerous.
+- I have nothing bad to say about Briedis. His style is a bit boring, but I respect him. Briedis is a world champion, so he has to be good.
+- Physical pain is temporary.
+- I love California. The weather is fantastic.
+- I will box with passion and devotion.
+- England is a lucky country for me, and fortune comes only with hard work.
+- I miss the ring and look forward to hearing the opening bell ring again.
+- I'd love to fight any of the titleholders, any time, any place.
+- I like and respect Holyfield.
+- Briedis is a good fighter, but the only thing he has that I want is his belt.
+- There are two different kinds of spectacular fighters. One is a subtle counter puncher who shows the work like chess. It's kind of an art, sports art. The other kind is when a guy has blood on all his body. That's a second kind of spectacular fighter, and people enjoy both. Both kind of fighters need to be respected.
+- Fans can look forward to watching me take on the biggest and best names in the sport.
+- I don't want my fans to shout any insults at my opponent.
+- The fight for the Muhammad Ali trophy is about the best fighting the best.
+- From the beginning of my career, I wanted to fight in the United States, and now my dreams come true.
+- I had a goal to become the undisputed champion in cruiserweight, and I achieved this goal.
+- This is what respect means: when you support your favourite without badmouthing his opponent. This is respect, and it's a common thing. It doesn't matter what country or city you represent.
+- If you are an educated man, you respect your opponent, his team, and all those people around; then you are truly a human being.
+- I hate when people call me a star, because I don't consider myself to be a star.
+- I will never forget the 2012 Olympic Games in London.
+- The biggest motivation for me is my desire to be the best.
+- I like the color green, and the WBC belt is green, so I can't wait to get that belt.
+- Becoming the heavyweight champion is not what I'm dreaming of - it's my goal. It's what I'm planning to do.
+- A lot of people don't believe in me. They think I'm too small for heavyweight. Just like a lot of people told me long ago that I shouldn't box. That I wasn't going to make it. I just knock my head and say I'm capable. I can do it.
+- I live in Ukraine with my family. I love my country, family, friends, people. I fight for them. I fight for Ukraine.
+- I may sound a bit crazy, but I get really excited with all the enormous hard work that I put myself through every day.
+- I do not care where I fight.
+- During my career, all my most fruitful victories have been on the opponents' territories, so the support of the British fans to Tony Bellew doesn't bother me a lot.
+- To me, it's a common thing to go somewhere and box there.
+- The most that hurts is I couldn't see my kids growing up. They grow and go. Most of the time, I'm in training camps. I couldn't see that happening. This hurts me.
+- The team I support is Manchester City. And that's because a friend of mine, who I visited when I was in England, Alexander Zinchenko, plays for them.
+- We need to put goals in front of us and move towards them.
+- I need to become the undisputed heavyweight champion. As soon as I become, I will turn back and say, 'Guys, thank you very much for your participation. Thanks everyone.' I will thank the Lord, I will go to the ground and say farewell, and I will go home.
+- When I have to get prepared for a fight, I leave my family. Then I live with my team. Otherwise, it will embarrass me: the children want to play.
+- My mom said to me: 'Sonny, you need to study English.' And I replied to her: 'Mom, I do not need it. I'm going to be horse-boy, would I speak English with horses?' Mom said: 'Darling, you need to.' But I did not listen to my mother.
+- I'm not exactly a huge Beatles fan, but when I have a chance to visit a legendary place like the Beatles museum, I definitely use it. It's historic.
+- Boxing, for me, is all about drama and victory, and there is plenty more to come.
+- Those kinds of fights when a warrior meets a warrior is something that should definitely take place in boxing.
+- If you want to be great in what you're doing, you really need to limit yourself, so I consider my life as the life of a monk.
+- I really liked the atmosphere at Wembley, and I would like to box there, too.
+- I'm very excited to fight for the first time in the United States and on HBO.
+- I am interested in the heavyweight division, and I'll tell you why: Many experts say that I shouldn't go up in weight, that I'm too small for it. My size does not allow me to be victorious in this division.
+- What I do and what I love, I don't betray that. Sometimes people say you have to tolerate it. No, you have to do what you think necessary, what your heart tells you, and go where the Almighty leads you.
+- I became the European amateur champion in Liverpool back in 2008. I visited the Beatles museum, and after the final, I went to a drum and bass disco.
+- I do not care where I fight; I just want to fight.
+- I actually don't like boxers who talk too much.
+- I am not looking for fame. I prefer to have a normal life.
+- I want to relax and spend time with my family.
+- It doesn't matter which city, which country my opponent is from - and I am not worried about fighting in Moscow.
+- I am an athlete, a warrior.
+- Some people think a boxer is a gloomy guy with this heavy brow who always has to be serious. But why can't you laugh a bit, make a joke?
+- I love England.
+- I give 100 percent every day in the gym.
+- In the beginning, somebody told me there was a record in the cruiserweight division where Evander Holyfield became the champion. I thought about that, and I told my team, 'Let's make our own history, our own record, to beat Holyfield's record.'
+- The toughest opponent is me. A lot of times, you don't want to train. You don't want to box. Sometimes, life hits you to the point where you don't even want to live. You have to fight with that person. You have to make yourself wake up in the morning. You have to make yourself watch your weight. That's how I fight with that person.
+- Wembley was crazy stuff. The songs, the noise... best fans ever. My hair was up all the way.
+- I want to have all four cruiserweight titles in the future.
+- I'm not a monster; I'm a white rabbit.
+- The Olympics is still my greatest achievement... I have many belts, but there is only one Olympic gold.
+- If you put a person in a training gym made out of entire gold, it doesn't guarantee that this person will become a champion. But if you put a person in the basement, then there is a high chance that he will get out of this basement as a champion.

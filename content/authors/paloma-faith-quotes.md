@@ -1,0 +1,117 @@
++++
+author = "Paloma Faith"
+title = "Paloma Faith Quotes"
+quotes_len = "111"
+description = "the best 111 Paloma Faith Quotes"
++++
+- Compared to a lot of artists, I'm usually quite covered up in videos and photo shoots.
+- It's amazing living alone. I'm very lucky. It's like a refuge.
+- I'm surrounded by friends and family who are not that impressed by celebrity. They don't have any problem telling me I'm acting like an idiot or I'm not that funny.
+- I'd rather be on my own than be with a violent man.
+- When I do my shows, it's really cross-generational. Sometimes there's three generations there.
+- There's nothing wrong with a thick eyebrow; Frida Kahlo had them.
+- I'm not a downtrodden woman. I just won't be.
+- I don't feel I fit in with morning television because I'm like a vampire and I like to stay up late.
+- I think initially, the record industry struggled a lot with digital media because there are a lot of aspects to it that can potentially destroy our industry.
+- I'm proud of being British, but I think our aristocracy is overrated.
+- It's celebrated in British culture to be eccentric.
+- I like sparkles; I think I'm a magpie.
+- I try not to brand myself 'weird' any more because it sticks.
+- I wish I was more stupid because I'm either completely ecstatic and joyous and absolutely high as a kite or I'm a bit morbid. There's never anything in between.
+- If I go out with no make-up and a tracksuit on, nobody comes up to me. And if they do, I won't do a photo because I wouldn't want any photographic evidence.
+- Some men think that if you're empowered and sure of yourself then you're a man-hater, but it's like, 'No, I'm just the same as you are, but maybe just a tiny bit more confident.'
+- I like not to feel that all my eggs are in one basket, or I get nervous.
+- I dread the idea of a paparazzi snapping me while I'm out running.
+- You cannot schedule death.
+- I've spent a lot of time being bohemian and sleeping on floors, but eventually I want to have kids and I want to bring them up in a secure environment.
+- I don't connect much with the present. I have more of an affinity for what came in the past.
+- I'd love to say that I could write political songs, but I don't feel clued-up enough.
+- I'm not interested in what other people are doing. That's their business.
+- I'm really into food; it's one of my favourite things - everything from potato waffles to lobster.
+- I think everybody should focus on inner beauty.
+- You know, my mum's always encouraged me and never made my gender an issue, I guess. She brought me up to believe in equality, as opposed to feminism or sexism - so it just meant that my gender was not relevant to what I was capable of achieving.
+- I want my shows to be eerie and mysterious.
+- My mum's always on at me to have children and blames 'that stupid stage thing you do' for me not already having a family.
+- My favourite authors are Milan Kundera and Jeanette Winterson.
+- You feel a sense of elation seeing yourself on a billboard.
+- I was mainly raised by a working mum who didn't have much time or inclination for making food. So I had three or four basic meals: fish fingers and a tomato; a packet scotch egg and a tomato; pasta with a tin of tomatoes; and extra mild plastic-y cheddar chopped into cubes with bits of cucumber.
+- I like someone with a really good and dark sense of humour.
+- All creative people have to have vulnerability because those nuances are what move people. So I'm deeply insecure - but I'm good at hiding it.
+- I don't know anyone, from any class, who's had a perfectly easy life. I've met people born into wealthy families who feel like they didn't have much emotional support, and people who come from working-class families who had loads of love but no money.
+- I don't have a competitive bone in my body, so the last thing I want to do is be competing with people.
+- Sometimes when you've got too much money you lose your imagination.
+- I was once in a long relationship with a man who ran a vintage clothes store but had been a chef, so I'd come home each night to a different three-course meal. I was quite fat, but so happy.
+- I feel curious about every situation I'm in.
+- I wasn't really comfortable reading until I was 12.
+- I try to stick to a certain diet all the time, and then when I feel like a reward, I have it. I try to stick to no dairy, no sugar, no wheat.
+- I think soul is soul. I don't see new soul as any different to old soul.
+- Whatever you are, you have the right to get married.
+- I'd say that, first and foremost, I'm a performer; I started performing when I was four years old, and being on stage from a young age set me up.
+- I've got so many clothes; I can dress in any style.
+- I enjoy being a girl.
+- I'm so used to changing time zones that I can sleep at any time. I'm rarely ever tossing and turning - if I am, it's really a big deal.
+- Working with Terry Gilliam was magic - I've been watching his films since I was little.
+- I travel regularly and have learnt to be very methodical as far as packing is concerned. For example, I always check the weather in advance of where I'm going to ensure that I've packed the right clothes.
+- Cinema affects everything, from the way I get dressed to how I build my stages.
+- I love going to the cinema. Whenever I get time off, that's where I go.
+- I think what makes me different from the average Joe is that I feel free to be myself and express myself in the way that I want. If that makes you mad, we're living in a world of dire straits. If anything, it makes you more sane.
+- I design all my sets. With my tour and my album artwork, I co-design that with people who are better at drawing than me. But I've got a good imagination. I went to art school so I understand how to communicate my ideas.
+- I'm not that materialistic. I like nice clothes and that, but I don't spend lots of money on stuff. I'm not really into TV, I don't have an iPod, I've got a gramophone.
+- Celebrity culture is an aspirational culture regardless of how much you don't want it to be.
+- I don't normally have time to read, so when I go away I like to take a few books.
+- I'm under no illusion that there are things about me that I'd like to change. I just accept who I am, and I'm proud of it.
+- Curvy is something to be proud of.
+- I really hate bureaucracy and the idea that I'm not a free person.
+- I lend people money, but I'd never lend something that would jeopardise a friendship if I didn't get it back.
+- My desire to experiment comes from my attention-deficit approach to cosmetics. I just get really bored, really easily.
+- When you research prolific songwriters, it is usually later in their career they write songs that they distance themselves from, or it's about other people.
+- I don't overthink when I'm styling. I kind of forgive myself and accept that I will make mistakes. Getting dressed should be a fun experience!
+- I think that there should be options available, quite early on, that if someone is recognised as a disruptive child, for them to be trained vocationally. Maybe if those kids were given the option to learn how to contribute to society on a practical level they wouldn't get into trouble.
+- If I get in a relationship, it's always for the long-term; if not, I don't see the point.
+- All the things that I find beautiful have a darkness about them.
+- I am inspired by show girls and Vegas. I was a cabaret performer, so that's where all that influence comes from.
+- No one ever chats me up; I think they all think I'm taken. Either that or no one fancies me.
+- Mum doesn't like it when I mention that Dad's a better cook than her. He was born in Spain and spent eight years in Portugal and is exceptional at lots of cuisines.
+- I get plenty of, 'Is that song about me?' from men but I just tell them to get over themselves.
+- I just really want to make albums - and however I can, I will.
+- I'm very affected by what I watch and read.
+- I get to know my regular fans, and they inspire me.
+- When you're on the pop treadmill, you don't always feel that cool because you have to do things to promote the record that aren't necessarily your environment.
+- The freedom that money gives you makes you... well, I wouldn't say happy, but I'd say it gives you diversity.
+- I don't have a daily routine, beyond brushing my teeth. It changes every day.
+- I'd never go on a reality show - it's too invasive.
+- Sometimes people fear the truth. They'd rather not speak to you than know what you really think.
+- We live in a society where everything's packaged.
+- Dressing up is like therapy; I feel better in myself when I've made an effort.
+- I agree with cosmetic surgery for medical reasons - my mother had breast cancer and I think it's very sad when somebody has no choice in what happens to their body.
+- I have a lot of admiration for people who've been in relationships a long time, married for years.
+- Anybody who says they don't want to be seen on a show which has millions of people watching it at one time when they're in the business of selling records is a bit silly.
+- I just have an inability to lie.
+- If I see something that inspires me, I'll dress like it.
+- I feel quite fearless protecting the people I love.
+- There's nothing better than achieving your goals, whatever they might be.
+- I don't understand why the accent you speak in has to indicate what level of intellect you have.
+- I go running three times a week - outside in the park, come rain or shine, and I hate every moment of it. I hate everything about it. But I know it's important for health reasons and the reason why I run, in particular, is because my stage work is like cardiovascular work so I don't want to lose my breath on stage.
+- Adele's like a beacon of honesty. Doesn't compromise, goes to America and she's still the same sweary cockney.
+- I really like to please people, and I think it's a symptom of being an only child.
+- I'd rather die than let somebody get the better of me.
+- I love Andre 3000 from OutKast. I think we'd complement each other, but I'm hoping he's got a good sense of humour.
+- I'm a serial monogamist.
+- I mean, my music career and my acting career - if I want to do them to the extent that I eventually do want to get to, it's going to be a bit of a balancing act. But I'm hoping they'll just go hand in hand.
+- I think I'd be a million times more successful and more iconic if I was a singer in the '40s. I'd be allowed a level of mystery, and I think I'd suit that decade.
+- My mum came from nothing and didn't have many opportunities in her youth, and she blames a lot of her social inadequacies on that.
+- I'm not a pop act, churning stuff out really quickly. I find the music that arises from that style of working is distracted, not particularly profound.
+- I stay true to my lyrics. If I go back and look at them in hindsight, the emotions I had when I wrote them have passed. It feels unjustified to change them.
+- I'm not one for sightseeing or going around the shops when I'm on holiday. I do enough shopping when I'm at home, and like to have a complete break when I'm away.
+- I'm the type of person who, if somebody offers me a free meal, I get excited because you never know where your next free meal is going to come from.
+- A lot of men do have a fear of my ultra-femininity. Sometimes people say I look like a drag queen, that I look scary, but I think that's a fear of my confidence. Most women in contemporary culture pare down their femininity, so there's a slight androgyny about them, and I think men have got used to seeing that.
+- Ever since I was little, my mum used to choose an outfit for me and lay it on the bed so I'd know what I was wearing the next day. I never went to a uniformed school, so I always had an outfit - and I never really grew out of that, I don't think.
+- Real talent shines through regardless of how many others there are around you.
+- I vote Labour and can't begin to acknowledge anything good that comes from a Tory.
+- We all get old, but I always say the skinny, pretty girls will be screwed.
+- I use debit cards for everyday purchases, as I don't believe in credit cards. But this has caused problems, especially with American touring, because I refuse to have a credit card - and in America you can't pay for anything on a debit card.
+- It's tragic that you can define a whole movement in music by gender alone. People are like, 'Oh, look, another quirky girl.'
+- I feel quite excited about the possibility of working on multiple albums. There's something really iconic about having a catalog featuring a lot of albums, and I'd love to have that legacy.
+- Anything that's on television as often as someone on 'The X Factor' is what's successful. That doesn't mean that I condone that or think that it's right. To be honest, I'd be the first to say I think it's a shame. But if that's the way it is then that's the way it is.
+- I love interesting people with eccentric stories and outsiders of the world.
+- Once you accept that we're all imperfect, it's the most liberating thing in the world. Then you can go around making mistakes and saying the wrong thing and tripping over on the street and all that and not feel worried.

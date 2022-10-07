@@ -1,0 +1,16 @@
++++
+author = "Eddie Kaye Thomas"
+title = "Eddie Kaye Thomas Quotes"
+quotes_len = "10"
+description = "the best 10 Eddie Kaye Thomas Quotes"
++++
+- If I have the TV on, it's either a Mets game or 'SportsCenter.'
+- I am a Facebook voyeur. I feel bad about it because I never put anything on there, but I find it fun to sit there and watch peoples' lives go by. Or whatever lives they're presenting.
+- What's great about HBO is they just care about quality. They care about the brand. They're not worried about ratings; obviously they want people to buy subscriptions, but they just want people to be into what's on HBO.
+- I've been lucky enough to be too busy for TV because if I'm not, I'll get stuck in front of it.
+- The fact of the matter is, it's hard to find good movies, period.
+- When you have an iPad and 75 books on it, it's so easy to go, 'I'm bored, I'm just going to read something else.'
+- Everyone seems to relate to the awkwardness of being a teenager, or even a 30-year-old.
+- I've been working on 'The New York Times' crossword puzzle on the subway. I can make it until about Wednesday.
+- I read a lot of news online, but I like buying a paper because I'll read an article I wouldn't normally read. And more often than not, the articles that you don't expect to care about are the ones that grab you.
+- Editing and post-production is so important with comedy.

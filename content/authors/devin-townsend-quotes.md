@@ -1,0 +1,105 @@
++++
+author = "Devin Townsend"
+title = "Devin Townsend Quotes"
+quotes_len = "99"
+description = "the best 99 Devin Townsend Quotes"
++++
+- I'm very creative - making music, making puppets, that's my thing - but mainstream success and the demands that brings? No, not really for me.
+- I'm not a big fan of options, to be honest. The more options that I have, the less time that I spend actually completing things... ultimately, I think, if you have endless choices, I mean, the tendency to just choose endlessly is there, and that doesn't do anything for anybody, really.
+- As a drummer, I'm rhythmically so disabled that it's hilarious.
+- I've always loved the sound of female vocals.
+- The album 'Physicist,' I erased all the work that I had done halfway through. I think that's probably why that contributed to that album being sort of sub-par for me, just because by the time I had to go back and do it, I was just over it.
+- The risk a lot of times, in my mind - and I may be incorrect - the risk of challenging people directly with their beliefs is that society is such that there's too many of us, so a direct challenge automatically engages people's defenses.
+- I don't have a lot of time for people who don't take care of their own problems. Everything that needs to be done takes effort.
+- I have no interest in being told what to do.
+- I spent a great deal of my career willingly ignoring the fact that people are participating in it, because it allows me to function without second-guessing it, without thinking, 'Oh, I wonder what people are gonna think of this,' or, 'I wonder what people aren't gonna think of this.'
+- Luckily, my creative juices are pretty much on tap. If I'm compelled to do something, I can go for it and get it done.
+- I love people; don't get me wrong. Individually, I love that interaction between people, and I'm not an ogre or something; but huge crowds of people, huge groups of people who seemingly have endless access to you - as I get older, I'm not really into that.
+- I play keyboards and Pro Tools, if you want to look at it as an instrument.
+- 'Epicloud' is the first record that I felt confident enough to include all those things on one record, so it goes between melodic hard rock to schizophrenic heavy metal to country to really ambient stuff, and it's all in one place.
+- I love Strapping Young Lad. I'm incredibly proud of that band; I'm incredibly proud of everything we did.
+- If you think meet-and-greets are fundamentally stupid, then you're never not gonna think that.
+- I think that, as well as Strapping Young Lad kind of having the name for themselves based on brutality and aggression, I think there's also something to be said to the fact that every Strapping record is different. They're all different.
+- To have the opportunity to be creative and clarify the nature of that creativity, there are definitely some long days, some 18-20 hour days with interviews or computer work, but I have a friend who is every bit as intelligent and creative as me who works at the mill.
+- I just go where it feels the most honest to go; then I deal with people thinking it's weird afterwards.
+- I really like female singers; I've got zero interest in working with male singers. Any male voice I need to do, I can do.
+- 'Deconstruction' is a really heavy record, a real symphony in a lot of ways, but with heavy musicians from the metal world - friends of mine.
+- I come from a blue collar background.
+- I really like the art of music, the way that you can express yourself through music.
+- Producing is getting the performances, tracking it, making sure all the parts are there. Mixing is when you take the finished work, and you make sure all the levels are right. It's putting all the parts together.
+- Because I have been so pigheaded and so selfish about so many things for so many years, I've spent a lot of time being, like, 'That person needs to change. This person needs to change.'
+- When I was going to high school, in the high school band we would play these kind of hour-long concerts for our parents. All the parents would come to the gymnasium, and the band would play an hour-long kind of orchestra piece. 'Synchestra' is supposed to be similar, like a high school band orchestra piece.
+- I think that religion is incredibly cruel, and I think that my biggest problem with being vegetarian, usually, is other vegetarians.
+- The thing is, I'm equally disgusted by both men and women.
+- The identity of each band is what's important for me production-wise.
+- People talk about the Ozzfest and what it can do for your career, and I guess I'm just oblivious to it.
+- I know that I'm often perceived as this odd guy who's a bit out there, and I've probably, once in a while, reinforced that image, but I'm really not that person, and, in a way, I want even less so to be seen like that.
+- I'll be the first to admit when I'm influenced by something.
+- Human beings are gross.
+- In Strapping, I had experimented with a creative catharsis under the assumption that art doesn't need to be accountable for itself, but I found out in very practical ways that you are accountable for everything you say. Everything you write, everything you do becomes not only your identity but your world resonates with it.
+- The bottom line is music, for me, is an exhaust port for life, and if I have a chaotic year, then I'm gonna write a chaotic record, and that's what happened with 'Ziltoid,' with 'Z2.'
+- Strapping Young Lad is a vehicle for me to be wild and extroverted and ridiculous. It gives me the chance to say, 'Look at me. I'm a heavy metal guy. I'm Rob Halford or Bruce Dickinson or whoever.'
+- I think that when I got to a certain age, it was important to me to sort of analyze my relationship with myself and my past.
+- My dad's side of the family were calm folk from England, but the other side just loved to party. Somewhere between those two factions is me.
+- The music industry is really difficult.
+- The reason Strapping Young Lad was such a good band was we were honest about what we were doing.
+- For me, the opportunity to express myself in this way is something I don't take for granted.
+- Enya was a huge deal for me. That kind of woman vocals and how wide those productions were.
+- I've been a workaholic for many years, but at the same time, I do it because I love it.
+- One thing that's really important for me to be creatively motivated is to find an angle. Some people refer to that as a concept, which it is, in a sense, but not overtly. It's just something I need to focus and hone in on, and the trajectory of what might be seen as a 'concept' gives me creative momentum.
+- People say, 'Well, why don't you talk about being vegetarian?' And I'm like, 'People will find out.' The people who are interested in what I do and why I do it, being a vegetarian is a big part of that.
+- Because I think I am pretty left-brained - more than I gave myself credit for - I think I've managed to really dissect emotions. At least my own. And I've been able to understand what they do, how they do it, and when.
+- Not only was it Def Leppard I was into when I was 15, but 'Watermark' by Enya. I loved it.
+- For me, music is about expressing the inexpressible, and as I get older, man, what I feel the need to express becomes less and less poignant to others.
+- The way that I write is I just write a ton of music in the background of my life, and then I just bring it into rehearsal. It's, like, 'Okay, guys. It goes like this. Let's smooth it out.'
+- As Devin, the person, I'm very different from my artistic self.
+- I'm good at what I do but, to be honest, not a whole hell of a lot else!
+- There is no way I'll ever write an album for Avril Lavigne or Christina Aguilera. I just couldn't do it. There is no way I could ever do it because my musical process is about being directly involved with whatever I'm going through in life.
+- I think live stuff is certainly stuff I enjoy doing. I do like performing for people and bringing it to people.
+- The reason Strapping came to an end is because I'm no longer in my mid-20s.
+- While I was recording 'Ziltoid,' the movie 'Mars Attacks' came on TV, I think, six times in one week. So I don't know if there's any direct references or anything, but the aesthetics of that movie was definitely around while I was creating the music, so I'd be lying if I said it wasn't part of it.
+- I think a lot of the fun of making records, for me, is making each one of them a situation. For example, with 'Ghost,' I found a group of people that had an energy together, and we kind of did it in a cabin somewhere.
+- I'm just a perpetually confused and terrified person that is trying to be less so all the time, and music is the byproduct of that.
+- It's really hard to foster self-love; it really is. I think a lot of people who claim that they do have a definite lack of self-loathing are either lying or just in a place that I don't relate to.
+- Essentially, 'Z2' ended up feeling the way that it should, but it was through a considerable amount of trial and error that it took to get there.
+- Sometimes I'll be writing something, and I say to myself, 'Okay, that's definitely DTB,' or, 'It's definitely Strapping.'
+- I think that the world is full of really, really good musicians, but that's not necessarily my motivation for having people involved. It's more how they contribute to the scene as a person.
+- I like Canada for a number of reasons, politics and people and all that stuff aside. I was raised there, and I write music best when I'm in situations that I'm surrounded by nature, and when there's seasons.
+- I'm really into music, I'm really into art, and I want to keep that fire alive.
+- If you're making music strictly to make money, you might as well find another job.
+- When I make music, I tend to make music that are really over the top.
+- The records I make, I'm there from the writing of the first note through the click tracks to the miking of the drums to the editing of everything to the production to the vocals to the artwork.
+- I don't think anything that I have done has been forced by commerce exclusively.
+- Music is so important to me that that's got to be the only way I can do it. In the purest possible way.
+- As someone whose music is connected to his personal growth, I feel an obligation to follow this muse wherever it leads.
+- The best way of me not doing things is to demand it from me.
+- The reason why everything I do is so different is not because I'm trying to be provocative; it's simply a reflection of whatever was happening to me at the time I wrote that particular record.
+- I guess I'm not really into female vocals that sound masculine, I guess. A lot of times, the heavy female vocalists always end up sounding like they're screaming or whatever.
+- A lot of people are upset when you work out your anger issues, but there's a big industry for music which is furious and angry because, in my opinion, the world is looking for a justification to feel the same way.
+- People are like, 'Nothing you've done is as good as you did when you were younger.' And I'm like, 'You may be right.'
+- For me, music is a byproduct of this process - the human process - and the fact that I've managed to eke out a career with it is a happy accident more than any strategy.
+- I think when music, specifically heavy music, the motivation for it is other than truly feeling it, that's when it becomes really difficult for me.
+- I think, at the end of the day, that was really what the reward for production is for me, is being allowed to be a part of somebody else's musical vision for a while. Like Gwar. I got to do a Gwar record, right? That was great.
+- I think I've been playing bass for as long as I've played guitar, and I love them both.
+- I have, like, three or four friends and am a very private person.
+- With 'Epicloud,' I wanted something catchy as the flu but with a sentiment that is romantic, positive, and beautiful. Spiritual without religion and set to heavy music.
+- I've always been into easy music. When I was 15, the record for me was 'Hysteria' by Def Leppard.
+- I tend to find in my musical world people end up appearing, and I'm pretty good at being able to discern right away whether or not they are going to be appropriate based on their personality.
+- I have a job - it's a great job, and I love doing it - but I can't not work. That's not psychological; that's practical.
+- After Strapping, the amount of things in my life had changed were more than I'd ever had to process in any one time, and as a result of that, I found that my writing was veering off in four - sometimes even more - directions.
+- I have a real hard time with inter-personal relationships. I find it really taxing. Especially, like, friendships and being in bands.
+- If there's anybody who's new to what I do, who maybe heard 'Liberation' or some of the songs off 'Epicloud' and thought, 'This is really cool, I could get into this,' you're going to hate 'Casualties.'
+- I like it when it rains; I like it when it snows. I like seasons. I like trees. I like mountains. I like rivers. And with that around me, I write.
+- I made 'Epicloud' for the people that have listened to what I've done because I really think that this style of music fits well into my personal daily life and hopefully others.
+- As a vocalist, I can scream, and I've got a really good singing voice, but I can't do the really heavy vocals.
+- I make music for people to hear it, so get it however you want!
+- It's like... to make a good record - I don't care who you are - it takes a long time and a lot of passion and a lot of attention to detail, right?
+- I've been making music for so long, and the main hurdles I've run when dealing with any public exposure is that many of my projects are so different from each other.
+- For me, the one thing I've got going for me in terms of my attributes as a musician is vision.
+- Basically, when I did 'Infinity' in 1997, I had thoughts in my head that left me with a lot of questions. I've gone to certain personal limits with 'Infinity' that, at the end of it, I think, scared me. And I've made a lot of really kinda bad mistakes as a result of that.
+- I think that the pivotal point of me in terms of the choral stuff is that I was involved in this provincial choir at 16 or 17. We went and played in churches and convention centres. The music we got to do was so inspiring for me.
+- My lineage is partially Irish.
+- What made Strapping Young Lad important, at least to me, was I was being honest about whatever was important to me at that time. In many ways, that musical process is there to resolve those issues, if you will.
+- I'm doing this record called 'Epicloud.' Over the course of the full record, there's sort of new agey stuff, jazzy stuff, really heavy stuff. We basically cover the gamut.
+- I don't deal with conflict well, so sometimes things will happen that will make me feel sort of powerless. But instead of being able to actually deal with the problem, I just suck it up - that's the way I was raised. Music, then, becomes my one avenue for letting things go, and when I get the chance, I let it rip. It's like therapy in that way.
+- Strapping Young Lad is a representation of me, just as much as 'Ki,' 'Ghost,' 'Ziltoid' or 'Infinity.' There's no difference; it was just a different period of time.

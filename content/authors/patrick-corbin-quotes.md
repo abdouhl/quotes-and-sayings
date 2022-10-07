@@ -1,0 +1,50 @@
++++
+author = "Patrick Corbin"
+title = "Patrick Corbin Quotes"
+quotes_len = "44"
+description = "the best 44 Patrick Corbin Quotes"
++++
+- If there's pressure to prove I am worth the investment, or that I am the real deal, or the pitcher from last season or whatever - I don't know, I just don't feel that.
+- If I knew I was getting five dollars, or whatever, I don't think I would really change. I would still want to go out and win every game.
+- Everyone wants to talk about my slider, and how effective it is, but it really can't be without fastball command. It starts with my fastball, even if the slider is the pitch I want to get to.
+- I never thought I'd get drafted, let alone make the big leagues.
+- Sign stealing has been a part of the game forever.
+- When you have a loss, you want to keep things as normal as you can and just try to go out there and do what you have to do.
+- When you don't go deep in the ballgame, it's tough to just leave all the guys out there that are fighting still.
+- My dad is kind of a quiet guy and he keeps to himself a little bit. But he was a competitor at whatever he did, and it kind of carried on with me.
+- I know I can do my job well. It's really strange. You have a bad year, a bad 15, 20 starts, and people think you can't do it again. I don't think that.
+- That's definitely a goal and probably one of the most important ones, just to go out there and be reliable and make every start.
+- It just felt like the Nationals wanted me the most. And I think they showed it by adding that sixth year and coming after me aggressively.
+- The first start of the season is always a fun one, just to get back out there and get things going again.
+- Yeah, people always tell me I don't get that excited over a lot of things.
+- You want to go out there and compete and go deep in ball games to help the team win.
+- You have to have good starting pitching to win.
+- When you get strike one, strike two, you're putting pressure on them to swing at your pitches.
+- The biggest thing was just working on fastball location and getting ahead of guys.
+- When I went to my first practice, I really didn't know what to wear. The coach came up and introduced himself and said, 'What position do you want to play?' I said, 'I can pitch. I'll try pitching.' It kind of went from there.
+- It's tough to go out there when you give up a hit - you just want some trust in you.
+- That's a thing you always hear - the hitters make adjustments. I think the pitcher has to make some adjustments, too.
+- You just learn every year, being around the game long enough, facing hitters more and more.
+- Living up in Syracuse, everybody's a Yankee fan. Not too many Mets fans up there.
+- I listen to Zedd or Tiesto. I like listening to that type of music before I'm pitching.
+- My favorite growing up was Tino Martinez, so I think that would be cool to strike out your favorite player as a kid.
+- The foundation is spotting my fastball, early in counts and especially if I fall behind.
+- I grew up a Yankee fan. My whole family are Yankee fans. My mom, my dad, my grandpa, everybody. Really, every generation of my family has been Yankee fans.
+- I'm not always trying to strike out guys. It just kind of happens sometimes.
+- I've always just tried to have a routine and go out there and compete every fifth day, and that's really what I'm focusing on.
+- There's glimpses where you feel good out there, and some where you don't.
+- You realize you're up here for a reason, and no matter who's in the batter's box, I feel like if I can execute my pitches, I can get anybody out. That's what I believe.
+- I've never pitched in the playoffs.
+- When you're gone from the game so much you miss those things, like just being able to throw a bullpen and work on stuff and having all this time to prepare for the season.
+- But I have a home in Arizona now. I've loved coming up with this organization and being with these guys.
+- I loved basketball.
+- You just want to go where you're wanted, and every team will have an opportunity.
+- Sometimes when you're in the game, things speed up a little bit, which can make you miss your spot by a couple of inches.
+- I know I'm better than what I've shown out there. I just need to continue to try to get better and go down there and do my job when my name is called.
+- 'The Santa Claus' with Tim Allen, I watch it in July. I think he's so funny.
+- Baseball still goes on and I realized that when I got hurt.
+- Sometimes you don't have your best stuff every day. You've just got to go out there and try to make pitches.
+- I've been able to throw it for a strike, which has helped. If I'm not able to do that, I'm not going to have success with it.
+- I feel like I have the experience to go out there and compete and keep everything until control. I think that's something I'm going to be able to do.
+- I was fortunate to have a lot of teams that were competitive and wanted to win now - which was exciting, to have that many teams come after me.
+- I want to throw my best pitch and I want to throw it a certain way, regardless of where the runners are. But it does take the catcher being able to handle that.

@@ -1,0 +1,36 @@
++++
+author = "Dylan Penn"
+title = "Dylan Penn Quotes"
+quotes_len = "30"
+description = "the best 30 Dylan Penn Quotes"
++++
+- I don't deny that I had a very privileged upbringing, but my parents and that town maintained a sense of normalcy that I think many people find hard to achieve, and I am so grateful for that.
+- Writing, directing... anything behind the camera is what I want to do.
+- I like to write, and I would love to be a screenwriter one day and a director.
+- I have a private Instagram and an official one, so I'm not opposed to social media.
+- Getting to wear Chanel is my version of a fairy tale. Not that I would wear it every day - my style is more jeans and T-shirts - but it's kind of fun.
+- When you're shy, the worst thing you can do is go into all these casting rooms and be scrutinized. But with shyness, I think you just have to bite the bullet.
+- The whole selfie generation - it's just not my vibe.
+- I wear sunscreen every single day - I just don't go out of the house without it. I also try to get enough sleep, eat as healthy as I can and keep hydrated. I have very sensitive skin, and depending on what products are used on a shoot, my skin can break out in an instant.
+- It's funny because I've resisted acting as a career for most of my life. But both my parents told me if I ever want to direct, I should act first because no director should direct until they know what it's like to be in the actor's shoes.
+- I will always eat pizza! Always.
+- My truest passion is writing, so I continue to do that on my own while seeing what all the buzz is about being in front of the camera.
+- No matter where I'm going, I always have sunglasses, a book, and some gum in my carry-on.
+- I had already been approached to do modeling, but in the beginning, I didn't want to hear of it. Then, after two months of delivering pizza, I changed my mind, and I presented myself at the agency.
+- I'm dying to go to India.
+- My name is Dylan simply because my parents did not know before I was born if I would be a boy or a girl, and Dylan was a name that worked in both cases.
+- I live three blocks away from the beach, so every day I walk down to the beach to run or go swimming. Hiking is a big one for me - so long as it's something where I'm not thinking about working out, like in a contrived class or the gym.
+- I love telling stories; I always have, and I think women need to be more proactive about telling their own stories and sharing their points of view.
+- Modeling is not a passion of mine. I have been having fun with it, but it's just to pay the bills.
+- I like doing the editorial stuff because it's nice to do something that's more me. But modeling for brands and the things to make money... I guess I don't really like being the mannequin. It's a very strange concept.
+- I didn't want to go to college, and my parents said, 'Well, then you'd better get a job, because we're not paying for you to drop out of school.' So I delivered pizza near USC for a while. We had to wear khakis and a baseball hat with the logo on it, and I worked almost every day.
+- Kids my age never left California. And here I was, going to school with Aboriginal kids in a dream-like location.
+- It's sad that because I have one friend who is in the public eye, just being seen out together once means we're romantically involved. But I don't take it seriously, and it doesn't really affect me much.
+- I think my parents love that I want to do something a little different than what they do.
+- I'm not a big fan of working out. Living in Los Angeles makes it much easier for me; I don't ever have an excuse not to be outside.
+- I can't imagine dating someone famous. I try to stay away from that as much as I can.
+- When I was 14, in Cuba, I met Fidel Castro with my dad, and it was really impressive. And on a totally different level, I met Justin Timberlake!
+- Sushi is one of my favorite foods.
+- My dream dinner party guests would be Ethel Kennedy, Truman Capote and Hunter S. Thompson.
+- You're at a party or an event, and you're interacting with other people, but there's no shame in getting your camera out and getting your perfect angle. It's bizarre to me.
+- I don't make a habit of watching my parents' films, because it is a little strange. But I will say that I binge watch 'House of Cards' compulsively, and I think it's the first time I've ever seen one of my mom's projects and totally forgot she was my mom!

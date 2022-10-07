@@ -1,0 +1,51 @@
++++
+author = "Emma Goldman"
+title = "Emma Goldman Quotes"
+quotes_len = "45"
+description = "the best 45 Emma Goldman Quotes"
++++
+- The higher mental development of woman, the less possible it is for her to meet a congenial male who will see in her, not only sex, but also the human being, the friend, the comrade and strong individuality, who cannot and ought not lose a single trait of her character.
+- To the indefinite, uncertain mind of the American radical the most contradictory ideas and methods are possible. The result is a sad chaos in the radical movement, a sort of intellectual hash, which has neither taste nor character.
+- In the true sense one's native land, with its background of tradition, early impressions, reminiscences and other things dear to one, is not enough to make sensitive human beings feel at home.
+- All claims of education notwithstanding, the pupil will accept only that which his mind craves.
+- If voting changed anything, they'd make it illegal.
+- The political arena leaves one no alternative, one must either be a dunce or a rogue.
+- The most unpardonable sin in society is independence of thought.
+- Prostitution, although hounded, imprisoned, and chained, is nevertheless the greatest triumph of Puritanism.
+- Merely external emancipation has made of the modern woman an artificial being. Now, woman is confronted with the necessity of emancipating herself from emancipation, if she really desires to be free.
+- Since every effort in our educational life seems to be directed toward making of the child a being foreign to itself, it must of necessity produce individuals foreign to one another, and in everlasting antagonism with each other.
+- No one has yet realized the wealth of sympathy, the kindness and generosity hidden in the soul of a child. The effort of every true education should be to unlock that treasure.
+- Someone has said that it requires less mental effort to condemn than to think.
+- One cannot be too extreme in dealing with social ills; the extreme thing is generally the true thing.
+- Morality and its victim, the mother - what a terrible picture! Is there indeed anything more terrible, more criminal, than our glorified sacred function of motherhood?
+- The ultimate end of all revolutionary social change is to establish the sanctity of human life, the dignity of man, the right of every human being to liberty and well-being.
+- The State is the altar of political freedom and, like the religious altar, it is maintained for the purpose of human sacrifice.
+- If I can't dance, I don't want to be part of your revolution.
+- Before we can forgive one another, we have to understand one another.
+- Woman, essentially a purist, is naturally bigoted and relentless in her effort to make others as good as she thinks they ought to be.
+- No great idea in its beginning can ever be within the law. How can it be within the law? The law is stationary. The law is fixed. The law is a chariot wheel which binds us all regardless of conditions or place or time.
+- The individual whose vision encompasses the whole world often feels nowhere so hedged in and out of touch with his surroundings as in his native land.
+- The motto should not be: Forgive one another; rather understand one another.
+- Every daring attempt to make a great change in existing conditions, every lofty vision of new possibilities for the human race, has been labeled Utopian.
+- Anarchism is the great liberator of man from the phantoms that have held him captive; it is the arbiter and pacifier of the two forces for individual and social harmony.
+- On rare occasions one does hear of a miraculous case of a married couple falling in love after marriage, but on close examination it will be found that it is a mere adjustment to the inevitable.
+- Only when human sorrows are turned into a toy with glaring colors will baby people become interested - for a while at least. The people are a very fickle baby that must have new toys every day.
+- There is no hope even that woman, with her right to vote, will ever purify politics.
+- To the moralist prostitution does not consist so much in the fact that the woman sells her body, but rather that she sells it out of wedlock.
+- Women need not always keep their mouths shut and their wombs open.
+- Direct action is the logical, consistent method of Anarchism.
+- Idealists are foolish enough to throw caution to the winds. They have advanced mankind and have enriched the world.
+- When we can't dream any longer we die.
+- Puritanism, in whatever expression, is a poisonous germ. On the surface everything may look strong and vigorous; yet the poison works its way persistently, until the entire fabric is doomed.
+- Idealists foolish enough to throw caution to the winds have advanced mankind and have enriched the world.
+- Politics is the reflex of the business and industrial world.
+- Crime is naught but misdirected energy.
+- It is essential that we realize once and for all that man is much more of a sex creature than a moral creature. The former is inherent, the other is grafted on.
+- The history of progress is written in the blood of men and women who have dared to espouse an unpopular cause, as, for instance, the black man's right to his body, or woman's right to her soul.
+- The demand for equal rights in every vocation of life is just and fair; but, after all, the most vital right is the right to love and be loved.
+- The most violent element in society is ignorance.
+- No real social change has ever been brought about without a revolution... revolution is but thought carried into action.
+- I'd rather have roses on my table than diamonds on my neck.
+- If love does not know how to give and take without restrictions, it is not love, but a transaction that never fails to lay stress on a plus and a minus.
+- Heaven must be an awfully dull place if the poor in spirit live there.
+- Free love? as if love is anything but free. Man has bought brains, but all the millions in the world have failed to buy love.

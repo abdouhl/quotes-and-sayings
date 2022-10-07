@@ -1,0 +1,21 @@
++++
+author = "Oliver Joseph Lodge"
+title = "Oliver Joseph Lodge Quotes"
+quotes_len = "15"
+description = "the best 15 Oliver Joseph Lodge Quotes"
++++
+- The properties which differentiate living matter from any kind of inorganic imitation may be instinctively felt, but can hardly be formulated without expert knowledge.
+- We know that communication must be hampered, and its form largely determined, by the unconscious but inevitable influence of a transmitting mechanism, whether that be of a merely mechanical or of a physiological character.
+- Any person without invincible prejudice who had the same experience would come to the same broad conclusion, viz., that things hitherto held impossible do actually occur.
+- Of mediumship there are many grades, one of the simplest forms being the capacity to receive an impression or automatic writing, under peaceful conditions, in an ordinary state; but the whole subject is too large to be treated here.
+- They definitely mean to maintain that the process called death is a mere severence of soul and body, and that the soul is freed rather than injured thereby.
+- Whatever life may really be, it is to us an abstraction: for the word is a generalised term to signify that which is common to all animals and plants, and which is not directly operative in the inorganic world.
+- Death is not extinction. Neither the soul nor the body is extinguished or put out of existence.
+- But although life is not energy, any more than it is matter, yet it directs energy and thereby controls arrangements of matter.
+- The old series of sittings with Mrs. Piper convinced me of survival for reasons which I should find it hard to formulate in any strict fashion, but that was their distinct effect.
+- Basing my conclusions on experience I am absolutely convinced not only of survival but of demonstrated survival, demonstrated by occasional interaction with matter in such a way as to produce physical results.
+- In other cases, when the medium becomes entranced, the demonstration of a communicator's separate intelligence may become stronger and the sophistication less.
+- Death is not a word to fear, any more than birth is.
+- The hypothesis of surviving intelligence and personality - not only surviving but anxious and able with difficulty to communicate - is the simplest and most straightforward and the only one that fits all the facts.
+- The amount of sophistication varies according to the quality of the medium, and to the state of the same medium at different times; it must be attributed in the best cases physiologically to the medium, intellectually to the control.
+- Life must be considered sui generis; it is not a form of energy, nor can it be expressed in terms of something else.

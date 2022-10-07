@@ -1,0 +1,61 @@
++++
+author = "Dillian Whyte"
+title = "Dillian Whyte Quotes"
+quotes_len = "55"
+description = "the best 55 Dillian Whyte Quotes"
++++
+- I'm in this game to give the fans proper fights, fights they will remember.
+- Apart from me, Tyson Fury, and Deontay Wilder, you can't sell out Wembley.
+- My dad was trying to prepare me for what he went through as a kid.
+- My mum hates the fact that I fight. My sisters hate it, too, but they understand that boxing gave me a way out. It saved me. It made me someone. It made me the person I am today, mentally and physically.
+- The government should have something in place where, in school, they see what sport you are most suited for, and it should be mandatory that you do more of it in your curriculum.
+- That works for me, that's fine, but I don't need a belt to fight Dominic Breazeale. If he wants it, he can get it.
+- Throw me in deep enough, and I sink or swim. I don't care who I fight.
+- I've been written off. But I don't go about crying. Nothing is going to stop me. Not Chisora. We're marching on.
+- If you look at Joshua's six opponents before he fought for the world title, Wilder's six opponents before the world title, Tyson's six opponents. The guys I fought and the guys they fought, it's the difference between night and day.
+- I just want to be seen as what I am - just look beyond TV/social media, and you will see what kind of person I am.
+- After that defeat by Joshua in 2015, I changed my trainer and teamed up with Mark Tibbs. I began working at Loughborough University.
+- There's fighters that sit down and wait two years, waiting for the call. I can't do that. Time's ticking.
+- I definitely want to fight Breazeale. It doesn't need to be PBC; it can be Matchroom and Sky Sports. If he wants to fight, we can fight. It's an easy fight to make. Let's make it.
+- I'm 30. I'm about to hit my prime now. I need to act and keep building.
+- I need to know what I'm doing. I've got my own career. I'm not waiting.
+- I want one of the top three, but if they aren't available, we'll pick someone else. There are some good young fighters, undefeated guys, and guys with wins and losses on their record.
+- People will get to see I'm real and a straight guy. And they'll realise I can fight as well.
+- I'm chasing belts. I'm highly ranked, and after I beat Chisora, I should be No. 1 with at least four of the governing bodies.
+- My energy is good; it is directed at training hard.
+- Listen: I'm a fighter. I'm a brawler. I'm a boxer. But I'm a technician as well.
+- I came here from Jamaica as a kid and didn't go to school, really, never had a great education. I was a little bit bad on the street, running around, doing this, doing that, and always getting into trouble. I was completely written off, so boxing has definitely saved my life.
+- I'm still hungry. I'm still striving... You have to understand: my mum has worked hard to look after her children, but we have always been poor; we have always been at rock bottom. I want to change my family history forever.
+- I have gone from training by myself to having a team of professional people that have been building athletes for years.
+- I've always had faith in my ability. It was about getting other people to believe in it. Over time, that is what has happened.
+- Sport instils discipline, and it's a distraction.
+- I'll fight Wladimir Klitschko and knock him out if he comes back; I'll definitely knock him out.
+- What I was doing wasn't good enough. It was good enough up until I met someone who was doing it properly - someone who was stronger than me and in better mental and physical condition than I was.
+- My career needs to progress. Time's ticking.
+- I want a kid to look at me and say, 'You know what, this man had no chance in life, but he stayed in there, and he worked hard. He dedicated himself, and he did it'.
+- I want to fight Joshua. We've got history: this would be the third time. He's won one, I've won one. This would be the decider.
+- I have always been a puncher, but I tried to use my other tools and take my time, because in boxing, you need longevity. I can have a dust-up and knock anyone out in the first round, but you need more than that.
+- It's hard if people don't want to fight me.
+- I'd turn up to the gym early and just be there, waiting outside, knocking on the door. It was something I thought I was decent at. I enjoyed fighting; it's how I've always been.
+- Boxing is one fight at a time for me. That's how I've always been, and that's how I was brought up.
+- I'll fight anyone; I don't hide from anyone. I don't try to get easy fights. I don't sit down and wait. I want to be busy, and I will fight anyone put in front of me.
+- You have to fight hard to get where you want to be. I never had any backing. I just had to kick the door down and barge through.
+- My dad was raised hard. His own dad's mentality was, 'If you're not dead, you can work. If you're not dead, you're all right.'
+- Under the lights, there's a lot of pressure, my first big show. The mental pressure drained me out a bit. I was fit and healthy, but I was thinking, 'Why am I tired?' There are so many things that go on in there.
+- If you're mentally weak, it can destroy you. Some guys who look talented lose and never come back.
+- I won't say I'm the best fighter on the planet, but I can knock anyone out.
+- I would like to say I can change millions of lives, but realistically, if my journey inspires 10 people to go to university or to achieve something, then I think I've done my job.
+- There's no happy time to die, but if I had a choice, I'd die doing the thing I loved.
+- I got into a lot of fights. Then I started knocking people out, and they stopped.
+- I left Jamaica to come to England, but one place became another place. I lived in Tulse Hill, in Brixton and Coldharbour Lane.
+- I need to keep working hard, winning fights, and it will happen. I just hope that I don't get sidestepped for too long.
+- I won't wait for this Joshua-Wilder-Tyson Fury nonsense and become a pawn in their negotiations.
+- I have progressed well since switching my training to Loughborough, and I feel I still have another 30% of progress left in me before my peak.
+- I don't look too far ahead. I focus on the next fight.
+- It was at a gym near Liverpool Street. I came off the street - I was just a kid - and I was just excited about getting to punch someone in the face.
+- People say they start from the bottom. If you want to see someone who's started from the bottom, go and look at my career. My first 10 fights, I think I paid for them myself. I've fought three times in one month.
+- Every sport has dangers, and it's a risk we all take, but that's why people need to give us the credit we deserve.
+- There's always something getting in the way - other fights being made or money and politics ruining things - but after I finish Chisora, nobody can deny me my shot.
+- My career does not depend on AJ. He's got four of the belts, but if I'm mandatory for one or two of them and he doesn't fight me, they will strip him at some point.
+- I love to fight, and I'm looking forward to being back in the ring, getting the victory, and moving on to challenge for the World Heavyweight title.
+- I was nobody; I showed up to sparring in a white wife beater and Hawaiian shorts. I had plimsolls; I didn't have boxing shoes. It just shows you don't need to have fancy equipment or experience: you're either a good fighter, or you're not.

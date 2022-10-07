@@ -1,0 +1,144 @@
++++
+author = "Doug Liman"
+title = "Doug Liman Quotes"
+quotes_len = "138"
+description = "the best 138 Doug Liman Quotes"
++++
+- I probably shouldn't treat interviews as therapy sessions, but I don't keep a diary, so these end up being my way of keeping track of where I'm at and letting it all out.
+- I love that Barry Seal is working for the CIA, and he's an awful liar. It just goes to how honest this character is at the end of the day, even as he rips off the country and the world to the tune of becoming one of the wealthiest men in America. There's an innate honesty, a purity to him.
+- I had one scene in 'Invisible' with 12 actors delivering dialog at the same time.
+- In 'The Bourne Identity,' I wanted to give the audience the feeling of being in the car with Jason Bourne, not just watching him drive but be in the car with him, and 'The Wall' is the continuation of that immersive filmmaking style. Where you're trapped behind the wall with Aaron Taylor-Johnson - for better or worse, you're trapped there with him.
+- I've got a short attention span, so it makes sense that I like movies because, for the most part, they immerse you in lots of action.
+- I have to have a passionate connection to my films, which I do with 'Justice League Dark.' I have a way into the story that's personal, the way I have a connection to 'The Wall.'
+- I was a troublemaker. For a long time, I didn't fit in.
+- More of 'The Bourne Identity's script was taken from the events of the Iran Contra, which my father investigated for the Senate, than what was taken from Robert Ludlum's novel.
+- What happened on 'Mr. & Mrs. Smith,' I was given a big budget and given too many choices, and I made a lot of mistakes and missteps early on until I squandered all that extra money. But then, once my back was up against the wall, I made what I consider a really good movie.
+- I had just come off doing a lot of commercials when I did 'Go,' so a part of the fast pace and efficiency comes from the discipline I had to learn from telling stories in 25-second increments, and that type of discipline is insane.
+- I have a rebellious nature, and being told no is almost the surest way to get me to do something.
+- I populated 'The Bourne Identity' with real characters from American history, specifically characters from the Iran-Contra affair, which my father ran the investigation of. But at the heart of it was a fictional character.
+- I always wanted to make big action movies as a kid, and that was my dream. In a way, 'Swingers' was the thing I suffered through the most doing because of all that dialog, so I could eventually be allowed to do a big dumb action movie, honestly.
+- For me, the scale of the budget is part of the creative process. 'Swingers' is the movie it is because we made it for exactly the right budget. Had it been made for a higher number, it would not have been as imaginative as we had to make it, given the budget constraints we had.
+- You gotta understand, 'Swingers' was a resume film for me. I never thought anybody would see the movie who I wasn't in the room with showing it to them.
+- Flying small airplanes is not like being on airlines.
+- Artistic mediums go through phases where progress happens really rapidly, and then other moments where it slows down.
+- 'Mr. and Mrs. Smith' - every scene is from those characters' point of view. They're in literally every scene, very unusual in a big studio film.
+- It's no secret that my process is a little bit loose and can be a little bit infuriating to a studio if they don't know what they're signing up for.
+- When you make a war movie, the other side has to be the enemy. You're making a war movie from the point of view of a soldier fighting it.
+- The audience has a level of control, when you watch 'Invisible,' that nothing in 2D can give you. The overall climax of the series will work no matter how you get there, and the climax of each episode will work no matter how you get there, but no two viewings of an episode will ever be the same.
+- I'm really anxious not to repeat what I've done before, to keep pushing and learning.
+- At the end of the day, the less money you have, the easier it is to make a movie.
+- I'm very interested in politics, and I feel TV is a more political medium than film.
+- Trust me: you make a movie about time travel, and you know for a fact humans will never travel through time. The paradoxes that come up just from trying to tell a story with time travel really illuminates the fact that it's impossible. It will never happen. We can barely get through a movie that involves time travel.
+- On 'Edge of Tomorrow,' we discovered that movie while we were making it.
+- If you look at my movies, they're pretty densely packed, such that they not only hold up to a second viewing, they're oftentimes better the second time you watch them. So I've always thought about crafting stories that could hold up to multiple viewings, and so VR obviously fits right into that.
+- When I was shooting 'The Bourne Identity,' I had a mantra: 'How come you never see James Bond pay a phone bill?' It sounds trite, but it became the foundation of that franchise.
+- I really love the movies of Katherine Hepburn, movies like 'The African Queen.' I love 'Midnight Run' and I suppose, to pick something out of a different genre, I love 'Aliens.'
+- I think making a great action movie is one of the hardest cinematic endeavors. By definition, smart characters avoid action. Smart people don't go down dark alleys, but if you're making an action movie and you want to have an action sequence, somehow you have to get that character into that dangerous situation.
+- Even more than 'Swingers,' 'Go', for me, defines my career.
+- I've always been interested in giving the audience a first-person experience in my movies.
+- With 'Invisible,' I didn't want to create something that requires you to watch it more than once; I don't even expect people to watch it more than once per se. I just wanted you to have the experience and knowing that if you watch it a second time, it would be different because you would see different things.
+- I've often found, as I did with 'Bourne,' where I was inspired by the events of Iran-Contra when I designed the CIA for the 'Bourne' franchise, that the reality of how things work is usually more compelling than the superficial, made-up version that Hollywood sometimes does.
+- When I read the script of 'The Wall,' I saw how much different the war looks from the point of view of a soldier fighting it.
+- I don't really analyze my process. I do know that if it's not right, I won't move on. I'm tenacious to a fault about that.
+- People don't talk about how hard it is to make a movie. Nobody does. Ever.
+- I don't really make movies with an intention other than asking myself, 'Do I love the character, and do I love the story?'
+- From a production point of view, I still have one foot firmly planted in the independent film world, and much of the shooting on 'Jumper' was done 'Swingers'-style because that was the only way we could afford to do it.
+- Somehow super power and hero are so synonymous that they get combined into one word, 'superhero,' whereas I'm kind of more interested in separating those two ideas out. You have characters with super powers who may or may not be heroic, because human beings aren't all heroic. I tend to be drawn to antiheros.
+- Normally, the action is just a gratuitous thing. In the case of Bourne, he was going to learn about himself in the action scenes.
+- The system did not want me to make 'Go.' And I sort of stood up to the system and made the movie I wanted to make, and the fact that I did that and I'm proud of the movie means I'm really proud of myself when I look back on that.
+- The 'Bourne' franchise means the world to me. I love that Universal wants to put one out every two years. Because it is a safe investment, I benefit from that on many levels.
+- It's kind of hard to work with Tom Cruise and not be aware that you're working with one of the biggest movie stars in the world.
+- In hindsight, everything in my life looks a little rosy. But the reality is that with, say, 'Swingers,' when we finished, it was considered a total failure.
+- We love movies like 'Edge of Tomorrow.' It's why we go to the movies, and it's why we make movies.
+- 'North by Northwest' was a big influence for 'The Bourne Identity.'
+- Sometimes there are films like 'Mr. and Mrs. Smith' which turned out better than it deserved to be, but in the case of 'Edge of Tomorrow,' there was just such enthusiasm from fans.
+- I realize I am contradictory: I have an independent filmmaker's sensibility and a Hollywood director's short-attention span.
+- I do take things away from reading reviews. I think they keep you honest.
+- The more real I got on 'The Bourne Identity,' the more interesting it got. So 'Fair Game' was the chance to go a few more steps in that direction. In fact, I discovered this whole other world that I had ignored in the 'Bourne' franchise, which is the domestic life of a spy, and how you make the two halves of your life coexist.
+- I'm not really in a rush to grow up.
+- When I set out to make 'Bourne Identity,' my main goal for the franchise was to create something where it feels like you're in the action. You're not just passively watching it from far away. That's something that I have constantly aspired to do - even in 'Swingers,' to feel like you're Jon Favreau; you're not just watching him.
+- I always wanted to make a 'James Bond' film, and they only seemed to hire British directors, and I'd made 'Swingers' - they were never going to hire me for a 'James Bond' film off 'Swingers.'
+- I like to keep my options open. I'm known for changing my mind.
+- VR is so immersive, and when it works, it draws you into the story in a way that is truly unique and powerful.
+- I started making Super 8-mm films when I was about six years old and just never stopped. It was always just a hobby, but it's one of the few hobbies that can actually become a career. You know what? I think it was my plan from when I was six that this is what I was going to do.
+- I'm really interested in real people in extraordinary situations. The detail and reality to that.
+- Normally in spy movies, the person that the hero deals with is at the centre of power, surrounded by video screens, and they're old and grizzled. I'm no stranger to that dynamic.
+- I really have thought about immersive storytelling my whole career, so when I first heard about VR, I was like, 'Oh, this sounds like it's for me.'
+- Casting is everything. I put a huge amount of work into casting, and consistently across my career, I am most proud of my bold choices I made in casting.
+- I feel like, Barry Seal, he's pure of heart.
+- With VR, you are directing in a 360-degree environment. The biggest challenge is that the viewer can look anywhere. They might look at the the weakest moments, the very things you edit for TV. You don't control where they look.
+- A movie like 'Edge of Tomorrow' is so huge and complex - the spectacle and action is all-consuming - and that on its own is enough of a reason for a lot of people to see it.
+- 'Swingers' was always set in another world.
+- I make movies for me and posterity. I'm more scared of history than I am of the studio.
+- Finding original source material is not easy, but when something special like 'Edge of Tomorrow' comes along, everybody recognized it. I wasn't swimming against the stream. Warner Brothers immediately supported it, Tom Cruise signed on instantly; Emily Blunt, who was our first choice, signed on immediately.
+- I've been really lucky in terms of the people I've gotten to work with.
+- I'm interested in the kind of anti-establishment ethos that goes with making an independent movie. I like to bring that to studio films - usually to the consternation of the studios.
+- I went to USC film school, briefly, which is a very traditional film school.
+- That's why 'The Bourne Identity' has that sort of shaky style, because for the most part, Matt Damon and I were sneaking around Paris and shooting where we didn't have permits.
+- My films are very rooted in specific people's point of view. Some film-makers give a more global point of view, like God looking down at the characters.
+- I've always had antiheroes in my film.
+- To be a lone filmmaker thousands of miles from home with nobody believing in me, that seems romantic.
+- My older brother took me to Woody Allen double features when I was still teething.
+- I'm really attracted to anti-heroes, and I'm a little bit of a troublemaker myself, and a little bit of a rule-breaker, and I like spies.
+- I always liked photography in film - I studied photography growing up. I like the medium of film; I like physically holding 35-mm film. I like the way it looks, the quality when it's projected. I like the way it frames real life.
+- What I really found was that the one similarity between 'Covert Affairs' and 'Fair Game' is a deep love and admiration and fascination with the home life of a spy.
+- I never want to repeat myself. I can't imagine anything else as upsetting as realizing I'm redoing something I did before. For some reason, when it comes to film, I'm very good at not repeating myself. Even though in the rest of my life, I'm constantly repeating my mistakes.
+- The beating heart of your story... that's not what shows up in a trailer. The other stuff is what shows up in a trailer, because that's what gets people in to the seats, and that's how studios make their money.
+- The reality is, the movies that were most impactful to me growing up, when I decided I wanted to make movies, I was going to see Woody Allen double features with my brother, back when they had double features.
+- The way I see it, the expensive people who get hired when you have money are the fancy people who tell you what you can't do.
+- The movie I end up with is the movie I aspired to make.
+- The thing about TV is it's a meritocracy. I love that aspect of it - and I've had shows that have gone on the air and been canceled. I've seen the good and the bad of it.
+- A part of me is a liberal New Yorker involved in politics and certain attitudes about movies. I kind of lost my indie credibility over 'Mr. and Mrs. Smith.' I know I haven't lost it. I just have to go make an independent movie. I just have to do it. Just for me.
+- I think that I learned a studio system prefers a sort of professionalism from the director.
+- If you go to a restaurant with Tom Cruise, it's like walking in with Santa Claus. Everybody is in a better mood because he's there.
+- The one thing about reality is sometimes it gives you material that is wilder than some of your wildest imagination could come up with.
+- I started my career wanting to make a 'James Bond' movie, and I couldn't get hired! I made 'The Bourne Identity,' and ultimately the impact of that film was that it changed the 'James Bond' franchise.
+- I thought I was done making CIA movies after 'The Bourne Identity.' I really had used my father's work in Iran-Contra on 'The Bourne Identity.' You get one experience like that in your life where you have personal exposure to something, and you put it in a movie. That's it.
+- I don't necessarily think that having more money helps make you make a better film. Sometimes having less money is better. You're forced into being more original; you're forced into hearing something versus seeing it.
+- I'll just say that there are certain people who continue to be hired in Hollywood, and that leaves me truly shocked.
+- VR should be more emotionally involving, but that doesn't happen automatically by just taking a VR camera and sticking it onto what would be a traditionally blocked scene for 2D.
+- All of my fellow directors, I think, would agree that in whatever medium you are working, the challenges and obstacles push them to be more creative. That's the case with VR.
+- I think when the United States of America put a man on the moon in 1969, that was one of the greatest accomplishments mankind has ever done.
+- It causes havoc on set anytime a director wants to go backward rather than forward.
+- When I'm working on a film, I think about how it will play with a tiny audience of friends whose opinions I respect - basically, a 40-bloc radius from my apartment in Manhattan.
+- My dad couldn't connect to my wanting to be a filmmaker. He was very connected in entertainment, and through him I met Steven Spielberg and got rides on his private plane to California. I'd see Spielberg's people reading scripts. I was like, 'That's what I want to be when I grow up.'
+- I can't impress people with the pedigree of obscure French filmmakers that got me into film. It was Robert Zemeckis and Steven Spielberg. I really thought I wanted to make dumb action movies.
+- Making 'American Made' really was an adventure.
+- My characters in my movies are all flawed. You'll probably never see Tom Hanks in a Doug Liman film. He plays, you know, very earnest and unflawed.
+- I've really pushed the limits of what you can get away with at big studios, and I've been extremely well-supported.
+- I didn't grow up like Quentin Tarantino, watching esoteric art films at the video store. I'd go to the multiplex and see big, mainstream movies, and I'd go, 'I want to make one of those one day.'
+- I like making movies that have some of the qualities of first-person shooter games. That was very important to me for the 'Bourne' franchise.
+- Ultimately, if you look at the characters in my films, you'll see a lot of similarities going all the way back to 'Swingers' with Vince Vaughn's character.
+- One thing about pushing yourself outside your comfort zone is that you're going to make mistakes, and you're going to fall flat on your face sometimes.
+- Amazon may be the only studio that's run by people who come out of making independent movies, real hands-on moviemaking.
+- Antiheroes who are sort of honest to themselves are the ones you root for. Like, Barry Seal isn't trying to be anything other than he is. He isn't fooling anybody per se.
+- I've made a career of being a contrarian. If I'm going to work with Tom Cruise, it's my instinct to be like, 'Well, I'm going to do the anti-Tom Cruise movie.'
+- So many of Spielberg's films inspired my imagination growing up. And then there are British films like 'The Full Monty' and 'Waking Ned Devine' that took me to places I really loved, with characters I just thought were amazing. But the films of Luc Besson showed me France - a really cool side of France.
+- 'The Wall' doesn't recount a specific soldier's experience in Iraq, but it captures the spirit of many experiences that were shared with me and with Aaron Taylor-Johnson and with John Cena.
+- I don't think I'm all that twisted in my life. I'm not like some tattooed filmmaker who, you know, hangs out on the Lower East Side and is part of some satanic cult or something.
+- Being on a commercial airplane is actually one of the safest places you can be on the planet.
+- I got in trouble in film school at USC because one of my Super-8 movies there, in the first semester, involved a snowmobile chase scene. I made an action scene, and they were like, 'That wasn't what you were supposed to be doing.'
+- In particular, I'm drawn to the stories that have big, high concepts and real characters at their heart. And I love where those two worlds meet, and 'Edge of Tomorrow' is the perfect canvas to explore that.
+- I live in New York City, and I'm making huge action movies. The people that make huge action movies live in L.A., and they're surrounded by other people who make huge action movies. I'm surrounded by people making documentaries!
+- When you have films like 'Bourne' that succeed, not only does it beget sequels, but it begets people taking chances.
+- I subscribe to the school that there are no dumb questions.
+- My films have been successful, and therefore, the process has accommodated me. When the studio said 'no,' I did it anyhow. Now they don't say no to me.
+- There's no reason my films can't work as hard as VR does to hook an audience and never let them go, so I think that that it turns the volume up a little bit on storytelling. The same way when I was doing commercials and then I went and shot 'Go,' and 'Go' has a level of pace that is unlike any of my other movies.
+- I go into a movie sort of saying what it's not going to be.
+- Aaron Taylor-Johnson and John Cena, in 'The Wall,' are superheroes. They're very grounded, but the amount of training and stuff that soldiers bring to the field, they're like Iron Man.
+- I understand that it's a huge luxury for people to dwell on the problems in Washington. Things have to be pretty tidy in your own life that you have the time to worry about what's going on in Washington. Most of us spend our time worrying about the things that are directly around us: our love lives, our careers, and our banking accounts.
+- I think of myself as making independent films within the studio system. Yes, I've made movies with significantly larger budgets, and I've also made movies with smaller budgets.
+- There's a weird intellectual approach to filmmaking, where I pose a question to myself and use the film to try and answer it.
+- I'm really drawn to adventure, and characters being plucked from normal life and sent on extraordinary adventures.
+- To be honest, when I started watching VR content, I was mostly disappointed and thought people could do better - not that different from when I set out to make 'Swingers' and thought, 'There's a better way to make an independent film.' Which is why 'Swingers' ended up being so much less expensive than anything like it.
+- When I was making 'Bourne Identity,' I wasn't making a dumb action movie like they were expecting it to be.
+- When my father would come home from his work at the Senate and talk about the things he could talk about - because a lot of his work was top secret - he would always tell me these stories and laugh. As deadly serious as his work was, he would laugh at the absurdity of it all.
+- Almost anything can be justified as a style of filmmaking if it works.
+- 'The Wall' is a reaction to 'Edge of Tomorrow,' where I was like, 'I don't need time travel and aliens to take a hero and pin them down in an impossible situation. I can do it in a much simpler way.' And that was 'The Wall.'
+- I love 'Bringing Up Baby.' Anything that Katharine Hepburn's in. I'm committed to the Humphrey Bogart, Cary Grant, Katharine Hepburn era of filmmaking.
+- My family went to the Hamptons, so I understand what happens when a slice of perfect utopia gets overdeveloped, when one way of living is replaced by another.
+- I chose 'Mr. & Mrs. Smith' specifically 'cause I had just made 'The Bourne Identity' and made a film that glamorized being an action hero, and I wanted to make the exact opposite. I wanted to make a movie that glamorized maintaining a marriage, and that made the action hero part seem easy and made the marriage part seem hard.
+- Given the kind of filmmaker I am, the kind of experiences I've been trying to give audiences, I was drawn to the potential of VR before I even tried watching anything in VR.
+- VR should offer an experience that's more exciting than watching in 2D, and we're pretty good at 2D storytelling, so the bar's already pretty high.
+- It turns out that it's easier to do politics in a movie. People really don't want it in their TV.
+- There would be no Marvel without 'Swingers'; there would be no Jon Favreau directing 'Iron Man,' no Robert Downey Jr. playing Iron Man; no 'Avengers.'

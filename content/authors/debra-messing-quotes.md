@@ -1,0 +1,39 @@
++++
+author = "Debra Messing"
+title = "Debra Messing Quotes"
+quotes_len = "33"
+description = "the best 33 Debra Messing Quotes"
++++
+- I don't exercise - that's something I struggle with.
+- You just hope that you will get the opportunity to do what you love and pay your bills, and that is being a success as an actor.
+- I'm a little commitment phobic, in that I've always been someone who likes to take things one year at a time because as we all know, a year can change everything in your life.
+- Becoming a mother was the single defining event of my life. It felt like the whole world shifted.
+- Court TV. I can't stop watching it. I am absolutely obsessed! If I'm not reading a book or spending time with my husband, my friends or my dog, I am watching Court TV.
+- So my son is very curious, which is fantastic. He loves school. So I don't have to encourage him too much, but I love to do it because I know it's meaningful and words are powerful.
+- To me, nothing is more fascinating or theatrical than real life. These people are in dire situations, where something extreme has happened in their lives.
+- Creatively I just enjoy challenging myself in different genres.
+- That whole world of musical theater was my first love. It's where I wanted to be when I was three years old.
+- I would never have called myself tech-savvy.
+- I'm naturally lean and I'm constantly walking.
+- I love to do glamorous things, like wear Valentino.
+- My biggest fantasy love affair was with Dustin Hoffman. It's so bizarre. Also Anthony Hopkins.
+- I pay parking tickets. You know, you can try to give 50%, but then they charge you all those penalties! Seriously, I have gotten many, many, many tickets in my life.
+- Ask everyone whether they're an actor or a doctor or a teacher or whatever is entitled to his or her opinion. But unfortunately, because actors are in the public eye, whether we want it or not, sometimes our opinions carry more weight or influence than they deserve.
+- Yes, women, and men, have to be open to love, because if we're not open then there's no way for us to find happiness. But you can be open to it and still have no control over when it's going to happen.
+- I'm very devoted to my husband and we've been together for a very long time.
+- I was such a late bloomer when it comes to fashion.
+- It's always been really important for me to try to maintain a balanced life, professional and personal, and this was absolutely something that my husband and I had hoped for.
+- When you're passionate about something, you want it to be all it can be. But in the endgame of life, I fundamentally believe the key to happiness is letting go of that idea of perfection.
+- If I have a pocket, then I'll have lip balm, my keys, and $10 cash.
+- I'm fascinated by diamonds. When I put diamonds on, my hands start to shake.
+- My parents always made education and school the number one priority. They believed that an education is the best gift you can give to your child.
+- 'Project Runway' was my guilty pleasure while my son was napping or nursing.
+- I love London. I love England. We were out in the countryside and I had the time of my life.
+- It's a miracle to be an actor and to know that you have a job to go to a year from now is a rare thing, so I think peace of mind and financial stability come with that. Hopefully I'm a little wiser and have a little more perspective in my life than I did then.
+- I don't think it's possible to have a wedding without it being stressful!
+- But I've become completely obsessed with taking photos on my iPhone. I have like 400 apps.
+- I was always singing and dancing for my mother when I wasn't glued to the television watching I Love Lucy or the Carol Burnett Show.
+- I think the institute of marriage is a noble thing. The idea of a partner for life is incredibly romantic. But now we're living to 100. A hundred years ago people were dying at age 37. Til death do us part was a much different deal.
+- I'll exercise in spurts, usually inspired by a dress that I have to fit into. But once that gown is squeezed into, if I continue to exercise, I get sick or I pull my back. For some reason my body literally rejects exercise.
+- I come from the New York theatre world, and I have a lot of gay male friends, so this friendship of Will and Grace's isn't such a stretch.
+- I mean I love my family very much, but there is a difference when you're reuniting with your family outside of your hometown and reuniting in the family home.

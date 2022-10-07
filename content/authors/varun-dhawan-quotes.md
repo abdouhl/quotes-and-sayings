@@ -1,0 +1,106 @@
++++
+author = "Varun Dhawan"
+title = "Varun Dhawan Quotes"
+quotes_len = "100"
+description = "the best 100 Varun Dhawan Quotes"
++++
+- I am passionate about cinema in general. Eventually, I am making films for people to watch and enjoy, but somewhere, I have to be satisfied, too. I want to be happy after doing a film.
+- I don't want to be known as a 'player.' I don't want to give plastic smiles on television and say 'No comments.'
+- I realise that women don't want to get treated differently but just equally. I don't know what feminism is all about, but I understand that women should be treated equally, and I endorse that thought.
+- Every film is like a baby for me; it's like my own child. I feel protective and aggressive each time my film hit theatres.
+- Salman bhai is amazing, and he is one of the greats of our cinema, and I don't think I should be compared to Salman Khan.
+- To do your first film is a dream.
+- I am choosing films only to entertain people, but at the same time, if someone is putting their money into my films, I want that person to make money.
+- I do get motivated seeing Parineeti Chopra.
+- After finishing my business administration course, I had gone to look for a job in a multinational bank, but the interviewee said that I should become an actor.
+- I have this dream of directing. But as a child, I wanted to become a wrestler. Like, in childhood, we used to watch WWF; I was inspired by all of that. One of my favourite wrestlers was Rock, who has become an actor.
+- Shah Rukh Khan is such a gentleman that he doesn't intimidate anyone. He is nothing but sweet to everyone, and he has been absolutely amazing to me.
+- When something is not liked by people, you cannot make it run, however big actor or producer you may be. The audience has to make it a hit. The power is in the hands of the public.
+- I love cinema and creating new things, but essentially, I am creating all this because I want people to see it.
+- Superstars in every era have come from outside the industry, and that will continue to happen because cinema is nobody's birthright.
+- Although there is a beast in all of us, we don't show it often. But it is very liberating to be that angry at times. Given a chance, I'm sure people would like to go on a rampage and break everything.
+- I follow my heart and my instinct about films and people.
+- People think the effort is less in popular commercial cinema, but that's not true.
+- I wanted to be performer; like, I used to dance at weddings. I felt acting was my calling, and that is something I wanted to do.
+- I'm not invincible. I am not picture-perfect. The reason I am here is not because of the money; if I get to entertain people and put a smile on their face, I feel content.
+- If I had to imagine life without my family, it would be very difficult.
+- When I was growing up, I heard horror stories about producers losing their houses overnight. No matter who the family is, hearing of them getting evicted is very sad.
+- I want the films of every person I am compared to and am reportedly in competition with to do better than me.
+- I see a lot of actor-bashing because they are the face of the film. Actors are just following someone else's direction.
+- For me, fitness is a part of my everyday life. But fitness does not mean having big muscles; it means being active, quick, and flexible. It can be defined in many terms.
+- My trainer is very helpful in keeping me fit.
+- To be very honest, I worked harder on 'Humpty...' I did many workshops. I never did workshops in 'Main Tera Hero.'
+- I do a mix and match of many exercises. But before anything I do, I go for a warm up, as it of prime importance.
+- I think it's unfair for people to decide what my strength is after just three films.
+- A lot of people have agencies to handle their social media, but I handle everything myself. That's why there are a lot of grammatical errors. When I write, it's all me!
+- Directors have good and bad movies. My father also made some flop movies, and he had bigger hits, too. That should not determine anything.
+- It's not easy to put a smile on people's faces.
+- I am protecting my personal life because for me, that's my sanctity. When I am done with shooting and home, that's my reality check.
+- I have trained, but not really that much professionally. But 'ABCD2' has been the biggest training ground. I've been exposed to and learnt so many dance forms through this film.
+- I don't want to be in the news for anything negative.
+- I'm most active on Instagram, then Twitter, and then Facebook. I haven't opened up Snapchat for the public; it's only for my friends.
+- Things have to touch me as a human being. I do films that touch my heart.
+- What matters is whether the audience likes the film or not. Everything else is secondary.
+- I believe in live-in relationships, but most of the time, I am living out of hotel rooms. So, I don't know where I would have a live-in relationship.
+- I've been blessed to get the kind of films I have done.
+- If you are a great guy off screen but you are a bad actor and are dishonest to your work, then I would not spend my money on you.
+- Filmmaking is a very serious job, and I want to concentrate on that.
+- I definitely think if you're born into the industry, you get easier access, but that's about it. I have never denied that, but after that, only talent and hard work sustains you.
+- Stardom can be obtained only after surviving and giving good films for almost 20 years.
+- I do films that I'd also like to watch as an audience member.
+- In daily life, I'm not a heavy user anyway, but I'm extra careful online because of the kids who look up to me. That's the fun part of being an actor - that kids like you - because they are very pure and transparent in their likes and dislikes. There's no filter like the ones on Instagram.
+- I have no issues in talking about my personal life, but I feel it takes away from my career and my characters, especially when a film is about to release.
+- My father never raised his voice or his hand on me when I was a kid.
+- My take on fashion involves comfort.
+- For me, more than general box-office collections, what really matters is that I am doing something that I enjoy and love.
+- I am growing with my audience. When I made my debut, I was 24, and they have grown up with me. They are with me with each choice of mine.
+- My whole outlook towards women changed after 'Badrinath Ki Dulhania.' I am a boy who is brought up in Mumbai, and I believe I am open-minded. But I realised that there were so many things my mind was not expanded to.
+- We are an industry, and we are all in this together and can't survive without each other. I feel it is high time we realise that. If we go against each other, or if we get happiness from other people's fall, then there is no way we will move ahead.
+- Compared to other people, I am not that narcissistic. Sometimes, I don't even plan all that I wear.
+- I have been passionate about fitness from a very young age.
+- I think listening to the director is the number one strength an actor should have.
+- I like normal girls. When I come home, I don't want to discuss films; I want to discuss what her world is like and other things.
+- I want everyone to go back home feeling happy after watching all my films.
+- When a film fails, the lead actor is always blamed for it.
+- I am a huge fan of shows like 'Breaking Bad,' 'Dexter,' 'The Mentalist.'
+- Let film-makers take a call about what films they want to do.
+- Captain America is a matured and a balanced leader. This is something that I am not. So, that made it all the more challenging for me. 'Captain America: Civil War' is bigger, better, and the action is huge. It's a film for kids and adults, and the actual moral of the film is something I loved and believed in. So, I was very happy to voice it.
+- The translation of social media buzz does not really happen. Films do well through word of mouth.
+- I always put myself in the audience's seat, whether it is a film like 'Judwaa 2' or 'Badlapur.' There has to be a message; the core story needs to have a hook, which should be out of the ordinary.
+- Whether you work with your family or someone from outside, you can't take the audience for granted.
+- Language is no barrier. I watch Telugu movies, and I really enjoy them.
+- The real stars who have dedicated their services to the film industry are Salman Khan, Shahrukh Khan, Aamir Khan, and Akshay Kumar. I do not come in this league at all.
+- My first proper relationship was at 16 in college.
+- Every creativity has a motive. Either one does it for money, for fame, or for passion. My energies go out for passion.
+- I have a large heart, and there are many special people in my heart like my mom, my dad and brother and his wife.
+- Nobody is ready to burn money just because you have a filmi lineage.
+- When I was in college, I was madly in love with a girl. But unfortunately, her father didn't approve of the match. He didn't like me because I was on the verge of joining the film industry.
+- I'm alright with people making up stuff about me, but not when there's a woman involved.
+- For me, the driving force is the audience, and the day that stops, I will stop doing films. The day a part of me stops feeling like putting a smile on someone else's face or if I feel like I don't want to entertain anymore, then I will pack up and leave.
+- I used to have lot of arguments with my mother due to a lot of bruises on my body for trying my hand at wrestling. I used to say, 'I am Rock,' and I would get slapped.
+- I want to make sure that people feel it's okay to make a mistake, to have a bad hair day, to look bad sometimes. It takes the pressure off them.
+- I feel if an opportunity comes your way, you should not let it go.
+- It's true that I am surrounded by beautiful women in the movies. But the romance is only on screen.
+- I am restless like my father and do two-three things at a time.
+- One has to always do better work than their previous film. It is essential to do something new every time.
+- Anything I do in life, the first person I share it with is my elder brother. He always tells me the way to take it forward.
+- I went through a big Jim Morrison phase where I grew my hair and wore those black leather pants. I even tried to get the boots, the chains, and I was full into getting that Jim Morrison vibe... but I didn't go overboard or try the mascara.
+- I am very happy for anyone who is in love.
+- I find it very difficult to work with people I don't like; I can't do that.
+- I am always excited to be an actor. If I wasn't, I would be acting, and the audience wouldn't watch me.
+- I don't really care what anyone else is doing. I'm only focussed on my work.
+- If given a chance, I would like to work with Surender Reddy.
+- You have one heart, and once you give it away, it's gone. If you wear it on your sleeve, a lot of people are there to take advantage of it.
+- Goodness is something people take advantage of, and if you want to remain a good person for long, you should make sure that too many people don't take advantage of you because then you turn bitter.
+- My parents are my world.
+- My dad has always been vocal about critically appreciating me. If I have done a bad job, he will definitely try to correct me with his inputs.
+- When you are signing a film, you should not miss the beginning process which involves workshops and discussions; otherwise, it is difficult to understand the character.
+- I am not looking or thinking that every move of mine will generate mass hysteria.
+- I've always been a bit of a rebel.
+- My brother starting earning early in life. I stopped taking money from my parents, and my brother would give me the pocket money.
+- Social media makes you think.
+- I don't think you need a particular day to dedicate to your dad or to make your father or parents feel special. A child should make his or her parents feel special every day and vice versa.
+- As an actor, overexposure can affect you negatively if you keep repeating yourself. But thankfully, my films are really different from each other.
+- My dream role would be a role that is entertaining and 'massy,' and it should be able to make people laugh and cry and make the audience scared of me and then make them fall in love with me again.
+- The word 'star' is misused. A good film will never fail. And if you have become an actor to become a star, then your reason of being in this profession is wrong. It amounts to abusing the art.
+- My parents brought me up to be comfortable in one's own body. And I have always been comfortable in my own skin.

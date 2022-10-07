@@ -1,0 +1,29 @@
++++
+author = "Sebastian Koch"
+title = "Sebastian Koch Quotes"
+quotes_len = "23"
+description = "the best 23 Sebastian Koch Quotes"
++++
+- I'm a teamworker.
+- The Germans call him 'Our Shakespeare' because we love him.
+- Actually it's a gift as an actor to cover such different parts of history. It's like time travelling, being inside a history book, in the actual locations.
+- The script is so important... Even if you have a huge entourage or big lighting trucks, the most important thing is the space between the actor and the camera.
+- I always want to do things that really have to be done, something that's a challenge - and I'm trying not to repeat myself.
+- Success doesn't drive me away from home.
+- I definitely won't play the bad German, the Nazi German, here in Hollywood or wherever.
+- I was always an admirer of French movies when I was young.
+- I kept having the producers of 'Fog in August' take out some of the Nazi terms and phrases. I don't want audiences to look at this doctor and say, 'He is a Nazi monster' and think that it has nothing to do with our lives today.
+- I have always had a longing to talk about this Nazi period because my parents' generation wouldn't talk about it after the war at all. From an actor's point of view, it's amazing to play in one year the Nazi Albert Speer and Claus von Stauffenberg.
+- I lost connection with music for a while, but I've always loved it.
+- Shakespeare is global - of course he can be shared.
+- For me, it depends only on the script, the part I'm doing, and the people around me. It could be in Greenland or the Sahara. I don't care.
+- I have no 'dream role.' It just comes to me; it's very intuitive, and I say, 'OK, I have to do this now.' It's not logical; just, 'I have to jump into this very strange character,' or something like that. I can't even explain it.
+- Once, I played a doctor who had a near-death experience, so I researched it, and it's impressive what people are saying about what happened to those who've been through it: it changed their lives completely, made them different people after that. I find that immensely comforting.
+- I'm very picky when saying yes to a script. I take a very long time to decide myself because I spend a lot of time with this and so to take parts where I think I can take something from my life as well. It must be interesting for me.
+- I'm German! Actually, I love my countr, ;I love the language. The German language is very special because it is so precise. There is a word for everything. There are so many wonderful words that other languages don't have. It is impressive to have such a rich language, and I love to work in that language.
+- I think the most interesting characters are those in which you can see both sides.
+- Every actor will say there are no small roles. And that is true.
+- I like success, but I don't believe in it at the expense of other stuff. It's more important to stay in my skin.
+- You throw a rock in the water, and ripples spread out slowly. But they do go far.
+- We have an inner window through which we can see the world, and though it gets cloudy in life, it's our job to wipe it clean and see things as they really are.
+- I have so many good offers in my country or, let's say, in Europe. I just wait for the best offers, like I always did. And if this can be in Hollywood, why not?

@@ -1,0 +1,43 @@
++++
+author = "Susie Orbach"
+title = "Susie Orbach Quotes"
+quotes_len = "37"
+description = "the best 37 Susie Orbach Quotes"
++++
+- In my mum's day, you needed to be beautiful for a very short time to catch your man. It didn't start at six and go on until you're 75, right?
+- I'm a therapist and that fascinates people because they think I carry secrets.
+- A wanted pregnancy as much as a dreaded pregnancy can play differently than all one's previous imaginings.
+- Public intellectuals come from a range of areas and use their expertise to comment more widely than just their field. They want to make a contribution to public space, and they stick their necks out to do it.
+- The analyst's psyche operates as a kind of... something to hold on to while somebody's going through therapy, if they're deconstructing their own psyche, if that's cracking up in some way, or dissolving.
+- Beauty has been democratised. No longer the preserve of movie stars and models but available to all. But while the invitation to beauty is welcomed, it has become not so much an option as an imperative.
+- No one likes to feel helpless. We find it psychologically unbearable and inside ourselves we may try to make ourselves part author of our misfortune rather than simply the recipient of it.
+- If you continually diet, you are putting your body in a quasi-famine situation. It slows your metabolism down and breaks the thermostat. Diets don't work. They don't help you understand why you're eating more than your body wanted in the first place.
+- Boys, young men, men of all ages are being captivated by the new visual grammar which pushes men to pout and posture.
+- Fat is a way of saying no to powerlessness and self-denial.
+- I think what's most interesting about me is the work that I do.
+- Being able to provoke a different point of view to the standard current ideological or political perspective as played out in conventional newspaper or radio reportage is what a public intellectual does. But it's not merely about being oppositional, because that's too negative.
+- Celebrity culture is something that pains me.
+- Consumer society tantalises us. We then try within ourselves to control the needs that are being constantly stimulated.
+- There are so many young women who tip over into being a facsimile: they don't really inhabit their lives or their bodies.
+- In general, the Western body has become a global brand.
+- I've always felt very sympathetic from the first days of writing about women that, whatever the woman, whether she is trying to be a woman in the conventional sense or breaking the boundaries, those struggles are quite difficult.
+- I think it is one of the capacities of human beings, to create style.
+- Dare to be as physically robust and varied as you always were.
+- Today, 'fat' has become not a description of size but a moral category tainted with criticism and contempt.
+- 'Skinny' is only one body type.
+- If I were afraid of wrinkles, I'd probably be hiding in a cupboard, because I have a lot of them.
+- Our idea of a healthy body is so destabilised that insecure people have come to bolster their own bodies by deeming others - those with fat bodies - less worthy, less capable and less employable.
+- I'd like to see much more understanding of emotional issues around hurt, abandonment, disappointment, longing, failure and shame, where they stem from and how they drive people and policies brought into public discourse.
+- No one leaves a long-term relationship scot-free or without conflict.
+- The insistence that the commercialisation of the body is a fit subject for political discussion and intervention is well overdue.
+- Fat people are so rarely included in visual culture that fat is perceived as a blot on the landscape of sleek and slim.
+- The parents' job is to be there for their kids, not the other way round. Troubles between parents need to be talked through with friends and not visited on the children.
+- Not that it was Twiggy's fault, but the ubiquity of her image created a sense in young women that to be stylish meant to be skinny, flat-chested with an ingenue face and straight hair.
+- I'm the sort of person who likes to undo everything.
+- Bodies are becoming our personal mission to tame, extend and perfect.
+- When I was growing up, one or two girls were beautiful, but it was not an aspiration, right?
+- Mothers unconsciously allow more latitude to sons, and open encouragement, and with daughters they treat them as they would treat themselves.
+- We accept there's an emotional aspect to life. But we're not very developed in our ways of understanding it.
+- From a child's point of view, there is rarely a great time for parents to separate, even if there has been a lot of commotion and fighting.
+- I wish we could treat our bodies as the place we live from, rather than regard it as a place to be worked on, as though it were a disagreeable old kitchen in need of renovation and update.
+- There is no such thing as a neutral therapist.

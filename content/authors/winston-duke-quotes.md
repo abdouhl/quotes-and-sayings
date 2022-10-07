@@ -1,0 +1,32 @@
++++
+author = "Winston Duke"
+title = "Winston Duke Quotes"
+quotes_len = "26"
+description = "the best 26 Winston Duke Quotes"
++++
+- My agents love pranking me.
+- I grew up under the politics of my size and my skin. I grew up under the politics of the sound of my voice and a lack of agency, or a feeling of a lack of agency, and not always being able to find myself in images that were in the media.
+- I am from Trinidad and Tobago, so I actually grew up in Tobago on the beach, just running around, playing, watching really creative people, and being exposed to really deep, rich stories from a young age.
+- I like to go into things, and I like to make the most bold choice to tell the particular story being told.
+- A tall, broad-shouldered man with dark skin and a gap tooth - I wasn't the image of 'old Hollywood beauty.'
+- I was a big comic, cartoon, animation nerd.
+- People are deeply interested in rewriting the established narratives and challenging what we see as the norm in every way. We want to see a new definition of beauty and sexy. We want to see different people look vulnerable and show strength and redefine what it means to be strong.
+- It's only until we confront the darkness of our past that we can responsibly move forward.
+- My favorite play that I did was at Yale. It's called 'The Island.'
+- As a child, I would watch 'Frasier' a lot, and there was one episode with Derek Jacobi where he was playing this Shakespearean actor that was a terrible Hamlet. And he reenacted the performance, and for days I went on. I'd perform and do that, and I knew I wanted to do something kind of like that as a kid for awhile.
+- There would always be scripts that came along that I turned down, like Gang Member #5 - roles that were just stereotypes.
+- I've always had this dream that if people could pay me to watch and review old episodes of 'The Golden Girls,' that would be something really special.
+- What is your duty to a country? Do you follow it blindly? Or do you challenge your country to be better and stand up to the ideals that all men are created equal and everyone deserves equity, not just equality?
+- Knowing that your sense of fashion and the culture it's connected to is valid really makes it a stronger thing for you.
+- I grew up with comic books, and I'm from the Caribbean, so comic books were really a great interrogator of American culture for me.
+- I need to not be typecast as big, black, and dumb but be seen as an intelligent, witty, bold, and charismatic person.
+- I feel I'm following my path. I'm living my truth, and my path is storytelling.
+- I let my people know that I'd love to work with Ryan Coogler one day because I thought he's just one of those truly auteur directors of our time. And I was just like, 'I want to work with a guy like that.' I think he has such a great understanding and distinct voice of his own.
+- I was seeing people of color growing up in my media. I was seeing them in positions of power.
+- I want all of the work that I do to have a social justice footprint attached. I want it to move the needle forward when it comes to the perception of all people, but especially people of color.
+- All I can tell you is 'Black Panther' sets up the MCU to go in a really wonderful new direction, sets up a new language, a new world for the MCU to play in, and that construction is then rocked to its core when Thanos enters in 'Infinity War' - get ready.
+- I would love more stories with strong characters of color who don't always fit the mold that Hollywood has created in the past.
+- The panther is sleek. The panther is sneaky. The panther is covert. Meanwhile, the gorilla will show up and bang on his chest and make noises to warn you about what is about to happen if you continue to cross the line.
+- Even being part of a world like 'Black Panther,' that is gonna be something that's deeply commercial, it still is about a narrative of people who are unseen, unheard, and unrepresented, you know?
+- We moved to Brooklyn when I was about 9 or 10, and from Brooklyn we moved to Rochester in New York. I went to high school in Rochester in New York.
+- Growing up, I was raised by a single mother.

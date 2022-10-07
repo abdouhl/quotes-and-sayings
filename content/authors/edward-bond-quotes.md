@@ -1,0 +1,46 @@
++++
+author = "Edward Bond"
+title = "Edward Bond Quotes"
+quotes_len = "40"
+description = "the best 40 Edward Bond Quotes"
++++
+- In the past goodness was always a collective experience. Then goodness became privatised.
+- All you now do is pursue your private objectives within society. Instead of us being a community, everybody is asked to seek their own personal ends. It's called competition. And competition is antagonism.
+- Our unconscious is not more animal than our conscious, it is often even more human.
+- If you engage people on a vital, important level, they will respond.
+- I'm interested in the real world.
+- Humanity's become a product and when humanity is a product, you get Auschwitz and you get Chair.
+- The truth has got to appear plausible on the stage.
+- It's politely assumed that democracy is a means of containing and restraining violence. But violence comes not from genes but from ideas.
+- You have to go to the ultimate situation in drama.
+- It's insulting to ask a dramatist what his view of his play is. I have no opinion.
+- I don't think it's the job of theatre at the moment to provide political propaganda; that would be simplistic. We have to explore our situation further before we will understand it.
+- Religion enabled society to organise itself to debate goodness, just as Greek drama had once done.
+- Violence is hidden within democratic structures because they are not radically democratic - Western democracy is merely a domestic convenience of consumerism.
+- We may seem competent, but by the end of next century there will be new deserts, new ruins.
+- I write plays not to make money, but to stop myself from going mad. Because it's my way of making the world rational to me.
+- The human mind is a dramatic structure in itself and our society is absolutely saturated with drama.
+- First there was the theatre of people and animals, then of people and the devil. Now we need the theatre of people and people.
+- When humanness is lost the radical difference between the bodies in the pit and people walking on the street is lost.
+- The English sent all their bores abroad, and acquired the Empire as a punishment.
+- It seems to me that we are profoundly ignorant of ourselves.
+- What Shakespeare and the Greeks were able to do was radically question what it meant to be a human being.
+- Fifteen years ago I walked out of a production of one of my plays at the RSC because I decided it was a waste of time.
+- Art is the close scrutiny of reality and therefore I put on the stage only those things that I know happen in our society.
+- In the end I think theatre has only one subject: justice.
+- Whatever the economy needs to maintain itself, the government will do it.
+- At the turn of the century theatre does not have to be prescriptive.
+- I'm not interested in an imaginary world.
+- The theatre, our theatre, comes from the Greeks.
+- You have to learn the language of Hamlet.
+- The Greeks said very, very extreme things in their tragedies.
+- Violence is never a solution in my plays, just as ultimately violence is never a solution in human affairs.
+- I think there is no world without theatre.
+- The one overall structure in my plays is language.
+- It's wonderful to be able to sit down and write a play.
+- But we are not in the world to be good but to change it.
+- Shakespeare has no answers for us at all.
+- Now, drama is quite useful at helping us to understand what our position is and, conversely, we might then understand why our theatre is being destroyed.
+- What I try to do in a play is put a problem on stage, head-on, without evasion.
+- We are still living in the aftershock of Hiroshima, people are still the scars of history.
+- Auschwitz is a place in which tragedy cannot occur.

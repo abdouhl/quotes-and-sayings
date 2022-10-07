@@ -1,0 +1,49 @@
++++
+author = "Erin Morgenstern"
+title = "Erin Morgenstern Quotes"
+quotes_len = "43"
+description = "the best 43 Erin Morgenstern Quotes"
++++
+- I think that's a hallmark of a really good story that it has readers that it speaks to more than others.
+- I paint very messy. I throw paint around. So when I let myself do the same sort of thing with my writing, and I would just write and write and write and revise, that's when I found my rhythm in writing.
+- When you meet someone new who instantly gets you, your sense of humor and your attitudes and your worldview, even if theirs are different - and you get them in return. You both talk and talk and agree and laugh and nod and yes, yes, of course you should get another round of drinks.
+- Tarot is just stories on cards.
+- I don't have any particular rituals, I sometimes like to write in longhand when I'm searching for ideas but I do the vast majority by typing, I can't always keep up with my thoughts longhand. I'm not a coffee shop writer because I feel obliged to order more coffee and then I end up over-caffeinated.
+- The fact that people are already reading and loving something I wrote is still hard to believe.
+- I love that very traditional fairy tale where it's not all 'happily ever after.' I like all that old school, bloody, 'Brothers Grimm' sort of stuff. So you have all those shades of gray in there.
+- I'm kind of big on performance in general. I like the sort of entertainment where you can go in and be fully immersed in it.
+- I'm actually not a huge circus fan in the traditional sense, but I like a lot of the circus trappings of striped tents and caramel. I lean more towards Cirque du Soleil than Barnum and Bailey.
+- Writing in a near frenzy is wonderful and freeing, but for me, it did not result in a nice, shiny novel. Instead, what I have is a mess.
+- It's a wonderful sort of feeling when people want to spend more time in a world you created.
+- It's helpful for me to get ideas - the physical action of painting. Sometimes it frees up your writer brain. It's nice for me now that the writing has become a serious career that painting can become more like a hobby.
+- Sometimes I write what I can't paint, and I paint what I can't write. I use a different part of the brain.
+- I feel 'The Night Circus' has a complete story arc in one book. I like it as a single volume. It feels complete to me, and I wouldn't want to stretch it out into something it's not.
+- You don't have to be a chef or even a particularly good cook to experience proper kitchen alchemy: the moment when ingredients combine to form something more delectable than the sum of their parts.
+- It is perhaps both a blessing and a curse that fictional worlds spring into my mind nearly fully formed and it takes quite a while to sift through everything to find the story.
+- I go back and forth between input phases where I'm reading a lot or trying to get out and explore the world a bit and soak up inspirations and then I'll get back into output mode and write and write and write.
+- I thought a circus environment would be an interesting venue to explore, where you didn't just have one tent with three rings and a show going on but where you could explore different things in different tents.
+- I'm a firm believer that lighting affects mood, and twinkly lights on strings bring something magical to occasions ranging from concerts to weddings, though I'm fond of using them as year-round home decor. There's a reason why they're sometimes called fairy lights. When the night is right, there aren't any strings at all.
+- It's said that All Hallows' Eve is one of the nights when the veil between the worlds is thin - and whether you believe in such things or not, those roaming spirits probably believe in you, or at least acknowledge your existence, considering that it used to be their own. Even the air feels different on Halloween, autumn-crisp and bright.
+- Writing in a near-frenzy is wonderful and freeing but, for me, it does not result in a nice shiny novel. Instead what I have is a mess.
+- If I had a story idea that I felt would work best in three volumes I might write a trilogy eventually. I'd very likely write it all at once, though, so I could work on it as a whole and not broken into individual volumes. I don't always write in order, so composing multi-book stories could get complicated.
+- I don't always write in order, so composing multi-book stories could get complicated.
+- I'm a firm believer that lighting affects mood, and twinkly lights on strings bring something magical to occasions ranging from concerts to weddings, though I'm fond of using them as year-round home decor.
+- I liked the idea of having actual magic performed as stage magic, so you could assume that it was just a trick, that something is all smoke and mirrors, but there's that, like, feeling at the back of your mind: What if it's not?
+- I draft quickly and then revise, a lot.
+- Plot is not my forte. It's like I have to live in my head in the book for a while before I figure out what the story is... My process is a bit messier.
+- Comic-Con was crazy, good crazy... Five minutes after I'm done, the cast of 'Twilight' is where I was sitting.
+- And now, I'm a best selling author, a different sort of fairy tale that I still sometimes wonder when I'll wake up from.
+- I'm working on something that's not yet novel-shaped but is something of a film-noir-flavored 'Alice in Wonderland.' It will also very likely be a single volume story and not the start of a series.
+- I'm an emotional sort of person in general and I have a vivid imagination, so I feel the whole spectrum of emotion strongly when I write.
+- The circus itself is my personal ideal entertainment venue.
+- I binge write. I think it's because I started seriously writing by participating in National Novel Writing Month, an online-based challenge to write 50,000 words in 30 days.
+- I like that 'once upon a time' quality, where the telling of a tale has an elevated sense of story. There's a whimsical quality to it. Sometimes in fairy tales more things seem possible, even though often they're real world based.
+- I don't have as tight a time limit anymore but I still write in long marathon sessions and then I won't write for a while, I'm not a write-every-day writer.
+- When I was growing up, if there was a Young Adult section of my town's library, I missed it. I wandered right from 'The Babysitter's Club' over to Stephen King. His books were big and fat and they seemed important. I eventually worked my way through most of the shelf, but 'It' is the one that stuck with me.
+- I like to call it nighttime brain: the way your mind seems to function on a different frequency than it does during daylight hours - which can be good or bad but also can lead to unexpected epiphanies or experiences that wouldn't be the same at any other time of day.
+- I keep waiting for things to get back down to whelming, but they stay at overwhelming.
+- I think I get some of my love of adult books that can be fun from Douglas Adams.
+- You don't have to be a chef or even a particularly good cook to experience proper kitchen alchemy: the moment when ingredients combine to form something more delectable than the sum of their parts. Fancy ingredients or recipes not required; simple, made-up things are usually even better.
+- I am a fan of magic and fantasy, particularly when it's grounded in reality.
+- I have absurdly vivid dreams.
+- If I had a story idea that I felt would work best in three volumes I might write a trilogy eventually. I'd very likely write it all at once, though, so I could work on it as a whole and not broken into individual volumes.

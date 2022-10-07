@@ -1,0 +1,105 @@
++++
+author = "Sridevi"
+title = "Sridevi Quotes"
+quotes_len = "99"
+description = "the best 99 Sridevi Quotes"
++++
+- Audiences want to watch heroine-oriented films, and even writers are writing scripts for women. I am very happy to see this change.
+- I don't remember doing more than one take for a film.
+- I have never felt the need to get agitated or hyper about anything in life.
+- I am a simple, ordinary mother.
+- For me, stardom is feeling happiness and being positive.
+- Competition can never be eliminated from this industry. There is nothing wrong with it. It keeps you on your toes, making you work harder.
+- I am always grateful for what I've got.
+- I still approach every film and role like it's my first.
+- Til marriage and motherhood happened, I was devoted to my work. I didn't see anything beyond it.
+- What you feel inside reflects on your face. So be happy and positive all the time.
+- It is a heartening experience to know that you are loved and being missed.
+- My approach to selecting a film is very simple - it should touch my heart.
+- Oil your hair and take a head massage as often as possible for better blood circulation.
+- I've been working since I was four. My life has only been about shootings, studios, and home.
+- My father was a lawyer. I was fascinated to become a lawyer, too.
+- If I sit quietly in a corner waiting for the camera to roll, it doesn't mean that I am aloof and cut off from people. It could be that I am thinking about the shot or going over my lines.
+- I had great memories as a child artist.
+- My husband himself is a producer, so we know the practical difficulties of producers.
+- I am thankful to my fans and producers that I am on my toes all the time to do better. The day you feel you have achieved it all or you are something, then you are gone, and that thought never came to me.
+- You can never get used to success. Every time, it is a new thing. Every time, you feel different.
+- I don't want to be a glamour doll. I want roles which provide me the scope to perform.
+- It's directors' choice if they want to work with me. Not mine.
+- I am in awe of Hrithik Roshan. He is so fabulous. He is like an all-rounder. I think he deserves to be in a Hollywood film.
+- I loved Vidya Balan's performance in 'The Dirty Picture' and 'Kahaani.'
+- I have been wearing clothes designed by Maheshwari for many years now.
+- I never decide or plan things.
+- I believe in good films and bad films. Box-office business and all is my husband's section. Sometimes I really get surprised when good films don't do well... Sometimes you are really shocked when an average film does very well.
+- I think children learn through their parents.
+- Jewelery is my weakness. Whenever I see any jewellery, I am unable to control myself. My daughters or somebody has to cool me down.
+- I am glad that I am in a position to select scripts I would be comfortable working in.
+- I have always told my daughters not to be dependent on anyone in any capacity.
+- Lunch, for me, usually consists of lots of salad and sometimes smoked or grilled salmon, tofu, or feta cheese. I make sure to add a lot of greens to my salad. I accompany this with some dal.
+- 'Mom' is an emotional family drama that's also thrilling. It's the story about a mother and a daughter, their emotions, and how their lives change. Being a mother myself helped me understand those emotions better.
+- My mom and I never thought that I would make my way into Bollywood. I was happy doing films down south.
+- 'Mr. India' was a turning point. Before that, Hindi moviegoers saw me just as a glamour girl. After 'Mr. India,' they felt I could act.
+- I have been passionate about cinema from my childhood.
+- When the audience expects you to do a good job, you become more choosy. It becomes a responsibility.
+- 'English Vinglish' is simple; that's why people like it. The film has simplicity and sensitivity. There is no melodrama. Some things have been conveyed just through expressions and no lines.
+- I started working since I was four years old. All I remember is I wanted to become a star.
+- All these labels and praises scare me. I am very simple, and I feel like a newcomer because I never stopped learning.
+- I liked Rajamouli's 'Eega.' He is a great technician, and I would be happy to get a chance to work with him.
+- In my career, many a times I was not able to be part of many films, and there were many reasons for them. But I don't know why people still talk only about why I didn't do 'Bahubali 1' and '2.'
+- Irrespective of which part of the world you live, family is special, and we'd do anything to protect our loved ones.
+- Acknowledgement and recognition from authoritative quarters are important to every artiste.
+- I snack on sauteed peanuts, a whole fruit, lots of cheese - especially goat cheese - with multi-grain crackers and dark chocolate. These are my weaknesses. I make it a point to eat every two hours.
+- My best friends are my children. We can have fun wherever we are together. They are my fashion icon.
+- Being a mother is the most beautiful thing happened to me. I am enjoying every bit of it.
+- Media wants to know everything. We are in this industry: we have to get used to it; we are still getting used to it. So I have no complaints. They are doing their job.
+- All the films that I did, I didn't plan them. They just came to me.
+- Acting is my passion since childhood, and I am happy to be in Tinsel Town at a very young age.
+- I'm concerned about my children being so much in the media.
+- I feel every film has its own charm and gets made for a purpose.
+- God has been kind to me.
+- I never thought I will ever get back into films when I took that break. 'English Vinglish' just happened.
+- As an actor, you keep learning. There's no end to it.
+- I fall to pieces when I am hurt, but when it comes to my children, I am a pillar of strength, applying balm and bandages and dressing up their wounds.
+- I wouldn't want to change anything about my career.
+- I am a big fan of Meryl Streep.
+- Direction and all is not my cup of tea. It's not an easy job.
+- I am totally a director's actor.
+- I love to paint.
+- When you are a public personality, you can't afford to be a recluse.
+- I play roles now that suit my age.
+- I felt that 'English Vinglish' was tailor-made for me since I found my character Shashi so relatable. Her simplicity and sensitivity attracted me towards the role.
+- I lived my 'Mom' character. I became Devaki.
+- I was a good student. For a while, my parents did make me cope with school and films simultaneously. But after a point, this wasn't practical. I had to choose between studies and films. I chose films.
+- Once we decided to be in this industry, we have to be ready for everything. You have to be strong but hard working. No pain, no gain.
+- Acting has always been my passion.
+- Include ample fruits and vegetables in your diet and no fried or oily food.
+- I have always believed that your face is a mirror to your nature.
+- The Padma Shri came as a very pleasant surprise. I am deeply honoured. I don't know what I did to deserve it, but I must have done something right to be honoured by our government.
+- I always enjoyed being in front of the camera.
+- I always believe in destiny.
+- Children have their own mind.
+- When I look back, I think I could have done this scene or that better. I am not satisfied with my work at all. I think I could have done better. I am never satisfied.
+- Give your children all the time and energy. They need to be your number one priority.
+- For me, the first thing is script. When I heard 'Mom''s script, it really touched me and moved me. I felt really nice about the story. That's the reason I did the movie.
+- Listen to your parents; respect them. They are well wishers.
+- It's more responsibility for star kids. Instead of having things easy, expectation is higher. They are compared to their parents, and that's unfair.
+- I think the first take is best, as you are spontaneous, and after that, it becomes a mechanical thing. I don't believe in second take at all.
+- When you have responsible children, half the battle is over. So, you don't have to worry. But you are concerned. The concern will never go, and you'll always be conscious about them.
+- After marriage, every woman wants to settle down and have children. I have no regrets. I was occupied in my little world, enjoying each and every experience that came my way.
+- I have never planned my career. I chose those films with which I could relate myself. But if given a chance, I would love to do the kind of roles Meryl Streep has done.
+- Though I was the last child in the family, I was the first to enter the film industry.
+- I just don't want to do films for the sake of it.
+- All films that I have done, this legacy, is a like a dream come true for me.
+- In the '80s, the brand-endorsement market was quite nascent.
+- Though born in Los Angeles, U.S.A., I am a typical Tamil girl.
+- I feel lucky, and I have to thank my writers, directors, and producers for giving me great parts to play on screen.
+- It is very important for an artiste to be excited about her work in every phase of her career. If a tiredness seeps into one's attitude, it will show in the quality of one's work.
+- I have never felt that I am a star. It never came to my mind.
+- The work should talk.
+- I am lucky I have him. After my parents passed away, Boneyji has been my father, mother, and husband.
+- Exercise, yoga, and systematic life definitely helps you, but basically, you have to be happy.
+- Love gives me the energy.
+- 'English Vinglish' has given me so much respect. I am really thankful to director Gauri Shinde and her husband R. Balki. They blindly believed in me.
+- It's all about the script. I don't want to do something which makes me feel uncomfortable. It should suit my image and age.
+- I eat, sleep, and breathe movies. Though I didn't understand the seriousness of films when I made my debut, I felt on top of the world.
+- I have not done much as an actor. There is no end for an artist, and my best is yet to come.

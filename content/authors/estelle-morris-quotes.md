@@ -1,0 +1,34 @@
++++
+author = "Estelle Morris"
+title = "Estelle Morris Quotes"
+quotes_len = "28"
+description = "the best 28 Estelle Morris Quotes"
++++
+- We do recognise the need to move towards the publication of information showing the progress made by pupils from one stage of their education to another.
+- I know there are things I did in education that will never be reversed. I have not done that in film yet because I have only been here for about nine months.
+- My Department has already recognised this and has been working specifically on the technical support issue since January and will offer advice to schools during the Autumn term.
+- By creating useful job descriptions and making clear what qualifications should be expected, the Department aims to help improve schools' ability to recruit the right people.
+- Before this government came to power, many failing schools were simply allowed to drift on in a pattern of continuing failure. The government is determined to break that pattern and is successfully doing so.
+- There is a shortage of teachers but the January 2001 schools census showed that teacher numbers were at their highest level than at any time since 1984 - and 11,000 higher than 1997.
+- It is a very unusual sector and the one thing I would ask of them is to understand that for most of them one-third of their films are being financed by the taxpayer and that carries huge accountability and responsibility.
+- My focus and that of all members of the Government responsible for delivering services to the public is to make sure that the public sector can use all the skills it needs to do the job the public wants it to do.
+- If you invent the Mini Cooper, pour all your energy and passion into it and it gets made, you should be on a roll. In the film industry you have to start again the next day.
+- Headteachers and governing bodies run schools and that won't change.
+- I taught for 17 years in an inner city comprehensive schools.
+- At different times I taught humanities, social sciences and pre-vocational education.
+- OFSTED has made large cuts in the paperwork which schools are asked to provide and further steps to reduce the bureaucratic burden will be introduced in September.
+- This government has always said increasing pay is something for something.
+- I am confident that the vast majority of teachers will work with us towards achieving that goal.
+- If we can modernise the workforce, make them better qualified, have this framework of qualifications, then I think they have a very good case for more money.
+- The need for improved technical support in schools has expanded as the Government and schools have increased their investment in information and communications technologies.
+- You have got to attract the brightest and the best, but the brightest and best won't stay unless they see real career options.
+- I do recognise that, where recruitment difficulties persist, teachers can be put under great pressure.
+- If bringing up the next generation is important, why aren't they the best qualified, the best paid? Why aren't we as concerned about their career progression as we are about those who work in the education or health services?
+- I want to give producers more financial security.
+- In the 21st century when few of us stay in the same job all our lives, I would like to think there was flexibility so teachers could become social workers, or foster carers become teachers.
+- There is nothing wrong with becoming more ambitious along the way, but I think what the government has asked the council to do is a perfectly good starting point.
+- I think film is a very powerful advocate and message carrier.
+- I was head of the Sixth Form Centre when I left the school.
+- What politicians want to create is irreversible change because when you leave office someone changes it back again.
+- However, the Government has made it clear that we do not encourage the recruitment of teachers from developing nations where there may be an adverse effect on the economy.
+- Where the private sector, or anyone else, has skills, knowledge and resources that can help to deliver a high quality of education and to raise standards, we should use them.

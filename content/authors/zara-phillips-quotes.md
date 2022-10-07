@@ -1,0 +1,32 @@
++++
+author = "Zara Phillips"
+title = "Zara Phillips Quotes"
+quotes_len = "26"
+description = "the best 26 Zara Phillips Quotes"
++++
+- Taking part in an Olympics on home ground is something you dream about.
+- I'm an affectionate person.
+- People still text me to say that there is something about me in the paper, and what really annoys me is that if it's nasty, I then have to go and have a look, even though actually I don't want to know.
+- In our sport you're very lucky to find a horse of a lifetime and I found mine relatively early. He's done everything for me and I owe him the world.
+- My brother and I have been able to get on and have been very lucky to do things with our family that other people wouldn't have been able to do. But then again, we've also been able to live a normal life as well.
+- I don't mind a big fascinator. I think there is more scope for artwork in a fascinator rather than a hat.
+- I don't have a stylist, and I do most of my shopping online, just because it's easier. I don't have any nails to manicure, and it takes me 30 minutes to get ready for a night out, as long as I've decided what to wear first.
+- It's stupid to say that I don't like being in the public eye, but I don't like doing stuff that's not needed.
+- I don't think I'll still be riding at 40. There are a couple of people who are still riding after having kids, like Mary King, but people say that you lose your nerve after you have kids. It's the risk.
+- The senior members of the royal family work very hard and I don't think people quite realise that.
+- I'd love to have kids, but not at the moment.
+- The horses are all characters, all personalities. Some you get along with, some you don't, some might take a bit longer.
+- I hate having my picture taken.
+- Unfortunately in sport it's either good or bad. You've got to take the highs and the lows.
+- My dad can be pretty critical sometimes.
+- I think Facebook's dangerous. So many people I know get into trouble with Facebook... I'd rather just pick up the phone. Or Skype.
+- My mother is massively into sailing, so we always had Musto clothes, and it went on from there, really. I wouldn't say it's a career in fashion. The range is all day-to-day stuff that I'd put on and use myself.
+- Virtually everything that gets printed about me is wrong anyway, so it doesn't really matter what you say.
+- You cannot make horses 'safe.'
+- My dad's not a big talker.
+- Sometimes people will come up in the street and say: 'My daughter loves you, will you sign an autograph for her?' And some people send me stuff. I don't mind it at all: as a sportswoman, you owe them because they support you.
+- I'm not a princess anyway so I find that quite weird to be labelled as one.
+- I was always told from the hat-makers that you should have your hair up because it shows the hat more. It feels more 'done' when your hair is up.
+- I love hats; I love putting hats on. They are artwork. You can always go out and find a dress to wear for some occasion, but there are not that many occasions you can wear a hat.
+- I love the sport and being competitive.
+- I don't think about the media.

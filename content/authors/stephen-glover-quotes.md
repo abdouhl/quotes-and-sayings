@@ -1,0 +1,25 @@
++++
+author = "Stephen Glover"
+title = "Stephen Glover Quotes"
+quotes_len = "19"
+description = "the best 19 Stephen Glover Quotes"
++++
+- People's attention spans, first of all, aren't always long enough. You also want to not be preachy. You want to be able to try and get the good stuff, like me and Donald say, the vegetables with the chocolate.
+- There's something funny about the idea that when you're poor it doesn't matter who's president.
+- People who know my music are like 'Yo, that's Steve G-Lover rapping this 'Paper Boi' song. It's hot. I need this song.' It's funny because the song came about so fast, but the idea had been simmering for a while.
+- You tell people that all the time, 'Jail's the worst place ever and you don't want to go there,' which is true but at the same time you see it's filled with a bunch of people like guy is drinking on a porch somewhere and he gets arrested for public intoxication. He's going to miss work. He's not a bad guy per se.
+- Atlanta is very weird, because it's a super-black town, but at the same time, there's other cultures there, there's history there. There's all these things that make it unique.
+- I think 'Robbin' Season' helps put the city of Atlanta in perspective.
+- Atlanta has a lot going on and part of that is upward mobility of the people who live there.
+- I rap, and I work with this dude named Chemist, who lives in Virginia. He's my go-to producer and does a lot of my own music - he's on my 'Rich Black American' mixtape.
+- You know, no one's ever gonna be like, 'We need to do a movie about Howard Hughes. Time to cast Idris Elba!'
+- The idea of capitalism and the relation that black people especially have to capitalism is something that's interesting to us.
+- I think the city of Atlanta has a lot of stories from the woman's perspective.
+- Rap started as this very black, socio-political type of thing. And now it's turned into pop music - we laugh about how everybody is doing the same thing in all of their songs.
+- In my mind, Atlanta is a city where people are constantly trying to come up. They want to be richer than they were.
+- That's what's important to all of us that work on 'Atlanta,' that people don't see us as a fad.
+- There were a lot of things I wanted to say in 'Atlanta,' and I learned from the first season like, OK, you got to try and consolidate those and make it interesting and fun for people at the same time while you're doing that. You can't just shove that down to people.
+- Well, I've been rapping for a long time.
+- But Donald heard on Radio Disney that they were giving a Nintendo 64 away to the ninetieth caller every day for a week. He listened all week and kept calling in until he gauged the perfect time, and one day he ran upstairs and said, 'I won it!' He's always been able to will what he wants.
+- We were wised up early to not celebrating our birthdays and that there was no Santa Claus and no magic.
+- The writer's room is super-chill - Donald, of course being my brother, helps. My boss is my brother, in a way; we can talk on a regular level.

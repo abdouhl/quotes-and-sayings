@@ -1,0 +1,27 @@
++++
+author = "Patty Murray"
+title = "Patty Murray Quotes"
+quotes_len = "21"
+description = "the best 21 Patty Murray Quotes"
++++
+- If the Republicans get control back of the United States Senate, we will no longer have a check and balance on the White House, on the Republican Congress.
+- We have sent our troops to war without paying for it. Now, we are bringing them home without saying how we are paying for it.
+- Security is still the most important issue facing Washington state residents and millions of Americans - the security of having a job, of access to affordable health care, of a quality education, and of protecting our homeland and defending our nation.
+- Violence is a problem we all want to solve. I want to make sure that kids learn to deal with anger by learning how to talk with people to solve problems. Here in the United States Senate I want to make sure we have safe schools, safe neighborhoods and good things for kids to do after school!
+- I see success as bringing some confidence back to the American people that despite our differences, we can find some ways to move forward.
+- I want to make sure that all kids get a good education and enjoy what they learn.
+- People are really worried about their jobs. That's what everybody talks to me about today.
+- I'll be at the table, as I've been, willing to talk to any Republican who says, 'Look, my country is more important, this pile of bills is not going to go away, the challenges that we have is not going to disappear, we need to cross that divide.' I'm ready. I'm waiting.
+- I am a mom as well as a senator!
+- We haven't been out in many of these countries helping them build infrastructure. How would they look at us today if we had been there helping them with some of that, rather than just being the people who are going to bomb in Iraq and go to Afghanistan?
+- The Republicans can send the nation into turmoil, but we will not come to any agreement that does not include new revenue - and not just token new revenue. It is their choice.
+- I think what's been lacking from our discussion for a long time is really that other part of what a Budget chair does, which is set the priorities for this country in terms of making sure we invest in the right places, in education, in job training, and to make sure we do a balanced approach moving forward.
+- Funding privatized accounts with Social Security dollars would not only make the program's long term problems worse, but many believe it represents a first step toward undermining the program's fundamental goals.
+- I get the, you know, 'In my generation, we all had victory gardens, we all participated in this country's success.' It's that kind of sentiment that I hear from everybody, that we're all in this together.
+- Caring for our veterans is the duty of a grateful nation. Unfortunately, the Bush administration and congressional Republicans have not lived up to this duty.
+- Guess what - I am one of the ONLY senators in the whole United States Senate that is computer literate!
+- There is nothing new about these Republican attacks on our family planning decisions. In fact, from the moment they came into power, Republicans in the House of Representatives have been waging a war on women's health.
+- For the state of our union to be strong, we need to place value in Americans.
+- The FDA is redefining birth control as abortion. The FDA is setting the bar higher for this kind of drug.
+- Good education means learning to read, write and most importantly learn how to learn so that you can be whatever you want to be when you grow up.
+- I am fighting for those middle-class families who want us to deal with our debt and deficit, but they also want the investments that are critical to our country moving forward.

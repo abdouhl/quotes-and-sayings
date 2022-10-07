@@ -1,0 +1,20 @@
++++
+author = "Shunryu Suzuki"
+title = "Shunryu Suzuki Quotes"
+quotes_len = "14"
+description = "the best 14 Shunryu Suzuki Quotes"
++++
+- Without accepting the fact that everything changes, we cannot find perfect composure. Unfortunately, although it is true, it is difficult for us to accept it. Because we cannot accept the truth of transience, we suffer.
+- Preparing food is not just about yourself and others. It is about everything!
+- Without accepting the fact that everything changes, we cannot find perfect composure. But unfortunately, although it is true, it is difficult for us to accept it. Because we cannot accept the truth of transience, we suffer.
+- Everything is perfect and there is always room for improvement.
+- In the beginner's mind there are many possibilities, in the expert's mind there are few.
+- The world is its own magic.
+- If you think your body and mind are two, that is wrong; if you think that they are one, that is also wrong. Our body and mind are both two and one.
+- If your mind is empty, it is ready for anything. In the beginner's mind there are many possibilities; in the expert's mind there are few.
+- There is no need to have a deep understanding of Zen.
+- When you do something, you should burn yourself up completely, like a good bonfire, leaving no trace of yourself.
+- If you cannot bow to Buddha, you cannot be a Buddha. It is arrogance.
+- Discipline is creating the situation.
+- When you understand one thing through and through, you understand everything.
+- We must exist right here, right now!

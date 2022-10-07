@@ -1,0 +1,26 @@
++++
+author = "Sarah Bernhardt"
+title = "Sarah Bernhardt Quotes"
+quotes_len = "20"
+description = "the best 20 Sarah Bernhardt Quotes"
++++
+- The theatre is the involuntary reflex of the ideas of the crowd.
+- Permanent success cannot be achieved except by incessant intellectual labour, always inspired by the ideal.
+- What matters poverty? What matters anything to him who is enamoured of our art? Does he not carry in himself every joy and every beauty?
+- To be a good actor... it is necessary to have a firmly tempered soul, to be surprised at nothing, to resume each minute the laborious task that has barely just been finished.
+- It is in spending oneself that one becomes rich.
+- Legend remains victorious in spite of history.
+- Life begets life. Energy creates energy. It is by spending oneself that one becomes rich.
+- Oscar Wilde: 'Do you mind if I smoke?' Sarah Bernhardt: 'I don't care if you burn.'
+- I have often been asked why I am so fond of playing male parts. As a matter of fact, it is not male parts, but male brains that I prefer.
+- Your words are my food, your breath my wine. You are everything to me.
+- I adore Chicago. It is the pulse of America.
+- Each action of the actor on the stage should be the visible concomitant of his thoughts.
+- Once the curtain is raised, the actor is ceases to belong to himself. He belongs to his character, to his author, to his public. He must do the impossible to identify himself with the first, not to betray the second, and not to disappoint the third.
+- The actor is too prone to exaggerate his powers; he wants to play Hamlet when his appearance is more suitable to King Lear.
+- The truth, the absolute truth, is that the chief beauty for the theatre consists in fine bodily proportions.
+- I do love cricket - it's so very English.
+- He who is incapable of feeling strong passions, of being shaken by anger, of living in every sense of the word, will never be a good actor.
+- I have, thanks to my travels, added to my stock all the superstitions of other countries. I know them all now, and in any critical moment of my life, they all rise up in armed legions for or against me.
+- For the theatre one needs long arms... an artiste with short arms can never make a fine gesture.
+- Although all new ideas are born in France, they are not readily adopted there. It seems that they must first commence to prosper in a foreign country.

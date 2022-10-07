@@ -1,0 +1,128 @@
++++
+author = "Sheldon Whitehouse"
+title = "Sheldon Whitehouse Quotes"
+quotes_len = "122"
+description = "the best 122 Sheldon Whitehouse Quotes"
++++
+- My father's politics did not influence mine. In fact, we disagreed on a fair amount of stuff.
+- A lot of the Citizens United problem could be solved if we knew where the money came from for all these ads. The companies create these entities with fake names - like 'Citizens for Nice Puppies' - which means that the sources of the money are unaccountable.
+- I, for one - despite being a pretty solid climate hawk, I am extremely sympathetic to West Virginia and its coal-country needs. I lived there for a year. I've seen it. And the same for Wyoming, Ohio, Pennsylvania, Kentucky. They all have parts of their state where that really matters.
+- The American Republican Party is the last political bastion of the fossil fuel industry - now so in tow to the fossil fuel industry that it cannot face up to the realities of carbon pollution and climate change.
+- You can measure the warming oceans with a thermometer. You measure sea level rise with a yardstick. You can measure the dramatic increase in acidification with a simple pH test, and you can replicate what excess CO2 does to seawater in a basic high school science lab.
+- It would be a sorry world in which corporations engaged in fraud could pull the screen of the First Amendment over any investigation of their scheme.
+- Trapped in the bureaucracy nightmare, real families suffer when the big banks and their servicers force foreclosures. The emotional toll on children packing up their rooms and on parents struggling to find a temporary roof is a deep one.
+- Most every young man either takes inspiration from his father or wishes he could. I was fortunate in that I could.
+- The 'Wall Street Journal' is quite irate that I rank them with industry front groups and cranks denying climate change. But they have a record whenever industrial pollutants are involved. Look at the 'Journal''s commentary on acid rain, on the ozone layer, and on climate change.
+- Juries are the constitutional institution designed to protect ordinary citizens against the wealthy and powerful.
+- We'll never move beyond oil until we stop rewarding oil companies with ridiculous taxpayer subsidies and start making them pay for the harm they cause our families and our planet.
+- Muzzling our leading scientists benefits no one.
+- The Founding Fathers set up the American judiciary as a check on the excesses of the elected branches and as a refuge when those branches are corrupted or consumed by passing passions.
+- To be clear, I don't know whether the fossil fuel industry and its allies engaged in the same kind of racketeering activity as the tobacco industry. We don't have enough information to make that conclusion. Perhaps it's all smoke and no fire. But there's an awful lot of smoke.
+- As a Senator from Rhode Island, I wish that once - just once - the fossil fuel industry and their paid-for PR machine would concede that burning their product causes real harm to other people.
+- In the long term, a robust health IT network will support personalized treatment that adheres to proven best practices, and adapts to your personal health circumstances. The time will come when, whatever illness you may have, for your body type and health history, there will 'be an app for that' to keep you on your best path to wellness.
+- Across our small globe, dawn sweeps each morning, lighting cities and cottages, barrios and villages. Whoever and wherever you may be, you can step out into that morning sunrise and know, from our American example, that life does not have to be the way it is for you.
+- These core principles - helping patients, preventing medical errors, promoting best practices and improving quality - are the reasons that health IT is featured in both the 2012 Republican platform and 2012 Democratic platform.
+- I believe that the role of president of the United States is vastly different from the role of candidate and that the Donald Trump of the campaign will not succeed as president.
+- I've met students across Rhode Island who rely on Pell Grants. They work hard, play by rules, and are doing everything they can to get the education they need for the jobs of tomorrow.
+- Despite heated political debates on the future of our health care system, there is bipartisan agreement that health IT can be a powerful tool to transform and modernize the delivery of health care in our country. Health IT is about helping patients and their loved ones.
+- If you look at the casualties, the federal government isn't waging a War on Coal. If anything, coal is waging a war on us.
+- The dirty secret is that climate change is not really a partisan issue in Congress.
+- If the American people make their voices heard and put enough pressure on Congress, we can restore fairness in our economic system, do what's right for the middle class, and show that Congress can stand up to special interests.
+- At a time when the United States is handing out tax breaks to corporations that ship jobs overseas, corporate jet owners, and millionaires and billionaires, it is ludicrous that we would even be looking at Social Security and Medicare as a solution to our debt crisis.
+- If Republicans start losing their seats because they're climate deniers, that is a very salutary signal.
+- The bottom line is this: A private company and/or its industry allies should not knowingly lie to the American people about the harms that are caused by its product.
+- I suspect that a lot of the frustration people feel about government would feel a lot better if we had corporate influence out of our politics and were running a democracy like the founding fathers intended.
+- The bottom line is that our kids deserve a brighter future. They deserve an opportunity to attend college, regardless of their wealth or class. And our economy needs an educated work force that can compete in the global race for jobs.
+- Whatever the motivation of the 'Wall Street Journal' and other right-wing publications, it is clearly long past time for the climate denial scheme to come in from the talk shows and the blogosphere and have to face the kind of an audience that a civil RICO investigation could provide.
+- A courtroom is supposed to be a place where the status quo can be disrupted - even upended - when the Constitution or laws may require, where the comfortable can be afflicted and the afflicted find some comfort, all under the shelter of the law.
+- We are here to do God's work. He's not here to do ours.
+- Our American history reflects a long-standing tension between people and power. In fact, all government everywhere does. But our American form of government solved the problem, better than most, of moderating this tension between people and power.
+- From lying about climate change, to undermining programs that make up our social safety net, to opposing laws that reduce gun violence, to fighting marriage equality, the Kochs' tentacles infiltrate all parts of America's public debates.
+- We can reduce our deficit, and do it in a much more balanced way than sequestration, simply by fixing our tax code to get rid of needless giveaways.
+- When you don't have accountability, there's no limit to the things that people will say. One of the restraints on the vitriol and the filth that so often is part of the American political debate is that candidates have to stand by their ads.
+- The fossil fuel industry has taken control of, and powered up, architecture and methods originally built by the tobacco industry and others to attack and deny science.
+- Protected free speech has boundaries, and one boundary is fraud.
+- The birthers, the fanatics, the people running around in right-wing militia and Aryan support groups, it is unbearable to them that President Barack Obama should exist.
+- The Heartland Institute is about as biased as they come, and it's funded by the likes of Exxon and the Koch brothers. This is the same group that took out billboard space to compare people who understand climate change to the Unabomber.
+- Millions upon millions of secret spending by the fossil fuel industry that was unleashed by the disastrous 2010 Citizens United Supreme Court decision - this money not only fuels the campaigns of many candidates; it also represents a threat to those who don't toe the polluter line on climate change.
+- When we breathe it in, soot can interfere with our lungs and increase the risk of asthma attacks, lung cancer and even premature death. The smallest particles can pass into the blood stream and cause heart disease, stroke and reproductive complications.
+- I think a lot of the people who feel out of step with contemporary society or feel that they've been left back economically or feel disaffected and are drawn to the Republican Party, they are looking for a news source that will tell them something they would like to hear and then is reassuring, emotionally rewarding, and confirming.
+- I think a lot of the people who voted for Donald Trump were frustrated. And what they thought was, OK, government is broken. Therefore, we're going to send in this incendiary character. And he's just going to going to bust it all up, and we'll see what happens.
+- Fossil fuel companies and their allies are funding a massive and sophisticated campaign to mislead the American people about the environmental harm caused by carbon pollution.
+- I don't believe that there is anybody who denies climate change in the Democratic caucus. Everybody accepts that it is a real problem.
+- Putting a price on carbon pollution is one of the best things we can do to stem the tide of climate change.
+- The power the fossil fuel industry exerts over Congress is polluting American democracy, the propaganda it emits through its front groups is polluting our public discourse, and, of course, its carbon emissions are polluting our atmosphere and oceans - it's a triple whammy and a disgrace.
+- In many ways, the rotten effects of dark money are seen less in what we do than in what we don't do.
+- Any patient who has a serious illness requiring multiple doctors understands the frustration of lost medical charts, repeated procedures, or having to share the same information over and over with different doctors and nurses.
+- We've seen too often what happens when wealthy and powerful industries gain excessive influence over the agencies that regulate them. The capture of the Minerals Management Service at the Department of Interior contributed to the oil spill in the Gulf of Mexico in 2010.
+- Educating our children and giving them the skills they need to compete in a global economy is a smart investment in our country's future.
+- We would like the rest of the world to look up to American democracy. So when there is this kind of folly taking place, it makes it difficult for other rational nations to look up to American democracy.
+- The fossil fuel industry maintains a science denial operation and a political influence operation designed to do just that. What's good for their business is more important to them than what's good for America.
+- Frankly, we should have an ARPA-O, an Advanced Research Projects Agency for oceans research, to match DARPA for defense and ARPA-E for energy. And we should have an Oceans and Coasts Fund to match the upland- and freshwater-directed Land and Water Conservation Fund.
+- If everyone on the Court always voted for the prosecution against the defendant, for the corporation against the plaintiffs, and for the government against the condemned, a vital spark of American democracy would be extinguished.
+- The best way to shine a light on all of this 'dark money' flooding into our elections would be for Congress to pass legislation requiring all organizations to disclose their political spending in a timely manner.
+- Regulators owned and controlled by industry are not the American way.
+- Addiction is a tough illness, and recovery from it is a hard but noble path. Men and women who walk that path deserve our support, encouragement, and admiration.
+- The Constitution provided no protection against corporations; the Constitution has a blind spot for them.
+- If we believe in an all-powerful God, then we must then believe that God gave us this Earth, and we must in turn believe that God gave us its laws of gravity, of chemistry, of physics. We must also believe that God gave us our human powers of intellect and reason.
+- I think that it's very, very hard for the NRA to continue to defend the position that people who are on the terrorist watch list should be allowed to buy firearms in this country. That's their position. I don't know how they stand by it.
+- Democrats need to stand strong against any efforts to cut benefits to Social Security and Medicare.
+- When I was sworn in, we had Republican-sponsored climate-change bills all over the place. You had John McCain running for President in 2008 on a strong climate platform. You could see American democracy actually starting to work at solving a difficult problem.
+- Too many members of Congress seem willing to give corporate polluters, many of whom happen to be major political donors, a free pass to poison the air.
+- The science-denial machinery is a serious adversary, and it has a big advantage over real science: it does not need to win its dispute with real science; it just needs to create a public illusion that there is a dispute.
+- We pay for power plant pollution through higher health costs.
+- America has long stood before the world as an exceptional country.
+- In the Internet economy, information is everything: The more a company knows about a consumer, the more carefully it can tailor its advertising to that customer, and the more revenue it can generate in return.
+- My thesis is that government is not, in fact, broken. It's just listening to the wrong people, and it's listening to all of this quiet influence. So it's a very robust operation that operates kind of under the surface.
+- The Founding Fathers built our judicial system to withstand the special interest pressures that beset the political branches of government.
+- Pell Grants aren't 'welfare,' they are a gateway to opportunity for some of our nation's best and brightest students.
+- Not only will a carbon fee reduce carbon emissions, it will force big polluters to pay for the damage their pollution does to public health and the environment, generating billions in new revenue for the American people.
+- When I deliver the message to a cross section of Rhode Island that democracy is broken because special interests have relentless power - which prevents politicians from compromising despite popular support on an issue - I don't have any pushback.
+- The fossil fuel industry has been a particular disgrace, polluting our politics as well as our planet.
+- When counting on learning from innovation, there are great successes but also failures. The Wright Brothers invented the aircraft and started an amazing process of innovation, where we now have planes that carry 500 passengers. Along the way there were some silly looking vehicles that crashed early on.
+- The American people have a right to know the air they breathe is safe.
+- It's pretty clear that Americans have a strong interest in knowing who's trying to influence their vote in elections.
+- As a co-founder of the Defend Social Security Caucus in the Senate, you can count on me to continue to stand up for our seniors and fight any back door efforts to cut benefits.
+- America's exceptional nature confers upon us responsibilities. We are not exceptional because we say so; we are exceptional because, over and over, we do exceptional things - things like what Generals Marshall and MacArthur accomplished putting Europe and Japan back on their feet after World War II.
+- Consumers recognize, and don't like, corporate lying.
+- As a lawyer, as a former prosecutor, and as a son and grandson of foreign-service officers who tried to represent American democracy in foreign and dangerous places, the idea that this crowd of crooked fossil-fuel types is able to take over and run our democracy like we are a banana republic - I find that repellent.
+- In the international contest of ideologies, it is not assured that ours will win; we have to earn the winner's laurel generation by generation. One way we earn it is by living our values as the world watches.
+- Climate change may not be the most important issue to every American, but strong majorities do consider it a major problem, and they aren't likely to take seriously a candidate who denies the science and who is plainly in the pocket of the polluters.
+- Is keeping Big Oil happy with subsidies from the American people more important than addressing our deficit? Should a billionaire who makes a multi-million-dollar gift to a museum receive more tax bang for his charitable buck than a middle-class family who gives to their local church?
+- When Rhode Island Senator Claiborne Pell first proposed the grants that now bear his name, he envisioned a way to help students attend our country's wonderful colleges and universities, so they could share in the American Dream.
+- No one has a First Amendment right to lie to a federal agency in order to claim an improper tax status in order to avoid legal disclosure requirements on political spending and thereby receive undue tax benefits. That's a criminal false statement and possibly a fraud.
+- Senators who once supported common-sense legislation have gone silent as stones under the threat of the polluters' spending.
+- Five states - Ohio, Pennsylvania, West Virginia, Illinois and North Carolina - have been identified by the EPA as contributing significantly to Rhode Island pollution. As of 2010, 284 tall smokestacks - stacks over 500 feet - were operating in the United States: needles injecting poison into the atmosphere.
+- Getting past the influence of the fossil fuel industry will take courage, especially on the part of the Republican majority whom they so relentlessly bully and cajole. But we must do it.
+- When I was first elected to the Senate, I was fortunate to be appointed to the Intelligence Committee. There, I saw up close the dedication and commitment of the men and women of our intelligence agencies.
+- Legislation to level the playing field for working families is dead on arrival in the Citizens United Congress.
+- If Republicans want to defend the rights of corporations and billionaires to spend unlimited, secret money in campaigns, then they should say so.
+- Every one of us deserves a voice that our president will hear.
+- According to the IRS, the wealthiest 400 Americans, who earned an average of roughly $270 million in 2008, paid an average tax rate of just 18.2 percent that year. That's about the same rate paid by a single truck driver in Rhode Island. It's not right, and we need to restore fairness to our tax code.
+- The big polluters are confident in their grip on Congress. They have basically achieved control of the Republican Party, and as a result, they are basically able to block action in Congress that the public needs and the country deserves.
+- How arrogant - how very far from humility - would be the self-satisfied, smug assurance that God, a tidy-up-after-us God will come and clean up our mess? Hope for a nanny God, who will with a miracle grant us amnesty from our folly - that's not aligned with either history or the text of the Bible.
+- Republicans aren't cowards. Many will take the side of climate principle in a fair fight. But it is asking a lot of them to take a principled stand on climate when they don't see one corporate friend ready to help them.
+- Talking to my Senate Republican colleagues about climate change is like talking to prisoners about escaping. The conversations are often private, even furtive.
+- Each generation in this country gets the responsibility of being the ambassadors for this American democracy that our parents and grandparents fought, bled, and died for.
+- Every week in the Senate, I give a speech telling my colleagues it is time to wake up to the reality of a changing climate.
+- When cyclones tear up Oklahoma and hurricanes swamp Alabama and wildfires scorch Texas, you come to us, the rest of the country, for billions of dollars to recover. And the damage that your polluters and deniers are doing doesn't just hit Oklahoma and Alabama and Texas. It hits Rhode Island with floods and storms.
+- Health IT helps save lives now lost due to preventable medical errors, from incorrect diagnoses and needless infections to drug mix-ups and surgical mishaps.
+- I am gravely concerned about climate change.
+- I think people really understand that clean air and clean water and not having factories dumping their emissions into the atmosphere and into the rivers and into the sea has been a very good thing for America. EPA stands watch for very important principles that go all the way back to Teddy Roosevelt.
+- The worst blows to humanity from carbon pollution may come at us from the oceans.
+- We must unequivocally reject any cuts to Social Security or Medicare benefits.
+- Closing tax loopholes has to be part of the revenue equation.
+- Citizens United is a disgrace of a decision, holding that corporate money is corporate speech and entitled to the same First Amendment protection as human speech. As a result, corporations now can spend unlimited amounts of money to influence our elections - often in secret, without any public disclosure.
+- Society is indeed better off when we share knowledge with one another and have open debates about the issues in the public arena, with the hands and motives of the players identified.
+- Rhode Island works hard to reduce air pollution in our communities. We passed laws to prohibit cars and buses from idling their engines and to retrofit school buses with diesel pollution controls. But there is only so much a single state can do, particularly against out-of-state pollution.
+- The dreadful decision in Citizens United vs. Federal Election Commission was the culmination of the Republican appointees' careful work to open American politics to corporate influence.
+- Citizens United provided unprecedented political weaponry to big special interests. My personal view was it was calculated to do that.
+- Make your life your work, not your talk.
+- We have seen the big loan servicers drag their feet in the Obama administration's well-intentioned mortgage modification program.
+- We are Christian and Jewish and Muslim and Hindu and none of the above. We are gay and straight. We are black, brown, white, and innumerable combinations. We are young and old, female and male, with and without disabilities, urban and rural, and liberal and conservative. Every one of us is an equal American.
+- I'm not running for the U.S. Senate because I think Lincoln Chafee is a bad man.
+- To a certain extent, platforms are platitudes that you test when you get to govern. You have to run those priorities up against the opposition and decide what's most important.
+- Fraud investigations punish those who lie, knowing that they are lying, intending to fool others, and do it for money. No one should be too big to answer for that conduct.
+- Implementing the so-called 'Buffett Rule' would restore some badly needed fairness to our tax system.
+- It is plain old-fashioned wrong when people lie and trick other people.
+- We cannot solve the deficit crisis on the back of our seniors. We need all Americans to pay their fair share.

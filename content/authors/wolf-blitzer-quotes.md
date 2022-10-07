@@ -1,0 +1,23 @@
++++
+author = "Wolf Blitzer"
+title = "Wolf Blitzer Quotes"
+quotes_len = "17"
+description = "the best 17 Wolf Blitzer Quotes"
++++
+- I'm a season ticket holder to the Washington Wizards, and I love going to Washington Nationals and Redskins games.
+- When I finished grad school, I sort of fell into journalism. Someone mentioned that there was an entry-level job at the Reuters News Agency. I applied, and, to my amazement, I got the job.
+- We'll have to wait the old-fashioned way.
+- If you are a reliable, honest journalist, sources will open up and trust you and share good information.
+- My inclination, as an old-school, classically trained journalist, is not to go with a story unless I have it hard. It's not good enough to say something based on rumors that were flying around.
+- There are millions and millions of patriotic Muslim Americans.
+- I love covering stories that have huge historic impacts.
+- Looks like a pretty serious race unfolding.
+- My rule of thumb is that if I am interested or intrigued by something, others will be as well.
+- I tend to overwrite; I need a good editor.
+- I love politics.
+- I eat right. I exercise. I run 5 miles a day on the treadmill.
+- My best stories come from well-placed sources who point me in the right direction.
+- I have a few TVs.
+- My goal is to make the viewer a little bit smarter.
+- Almost every day I wrap up my two-hour live broadcast and I say to myself as I'm driving home, 'I wish I would've done this' or 'We really should have gone live longer with this segment.'
+- Two hours on television just doesn't automatically happen. I'm up early, I'm reading newspapers online, talking to my staff, coming up with ideas.

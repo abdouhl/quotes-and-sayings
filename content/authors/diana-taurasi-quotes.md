@@ -1,0 +1,105 @@
++++
+author = "Diana Taurasi"
+title = "Diana Taurasi Quotes"
+quotes_len = "99"
+description = "the best 99 Diana Taurasi Quotes"
++++
+- I've always loved passing the basketball, making other people better.
+- Once you make a mistake and put the control of your life in someone else's hands, it's scary.
+- It's one thing to have a lot of talent together. It's another to have everyone play at their highest level.
+- I just have this inner insecurity that I'm never good enough.
+- I probably spoke Spanish growing up about 95 percent of the time.
+- I always say there's a couple things that I look at when I'm playing basketball. Do I enjoy going to the gym? Do I enjoy being in the locker room? When I get on the court do I still have that competitive fire to hate the person I'm playing against?
+- I've played in four Olympics. I'm grateful for that.
+- When they say my name, I want them to say the Phoenix Mercury and vice versa. I wouldn't have it any other way.
+- I've just really always enjoyed coming into the gym. I don't know if it's the behavior of shooting, dribbling, the challenge of getting a whole team on the same page.
+- I'm lucky to have Penny around, she keeps the ship afloat.
+- On the nights the Lakers played, I wouldn't miss a second of the game. Every timeout, every commercial, I'd run to the front yard to imitate my favorite Laker, Kobe.
+- Being a mom makes me prioritize the game of basketball for what it is - a game. For so long I was so addicted to it and it would get me really high or really low. Now I know that once I walk off the court, I can't control that anymore and I have other things I have to focus on and give my attention and love to.
+- When I foul, I'm gonna make sure you know I'm fouling.
+- I have been really lucky to learn and play with the best in the game. It makes one go to a different level.
+- A lot of teams with expectations crumble.
+- Off the court, I like my Flyknits.
+- When I first arrived at UConn, I told myself I was going to dedicate my life to basketball. And when you do something like that, you alienate a lot of other things in your life that most people think are normal things to do.
+- Who's going to want to hire me in the business world? I have no work experience.
+- I didn't set out to win Olympic medals, to play at UConn, to play in the WNBA. I just loved to play basketball. It's really very simple. Then when you start thinking about those other things, that's when thinking gets complicated.
+- Some people have knees, ankles. It's always been my back. That's been one thing I've always had to be conscious about strengthening and being in rehab. Pretty much I've always rehabbed it.
+- Tomorrow's not promised so you've really got to take advantage of what you have in the present.
+- I fell in love with the LeBron 10s, I wore those for about five-and-a-half years and I didn't switch over until the 14s.
+- The thing about Russia? Everyone is Russian. They're just Russian. They're Russian.
+- Only thing that I'm guilty of is taking too many jump shots.
+- Every training I want to prove myself, every practice.
+- Why shouldn't I try to make the most money I can?
+- My favorite basketball shoe is the '92 Nike Uptempo - white/black/turquoise or you can go with the all black/white, which I loved.
+- The year-round nature of women's basketball takes its toll and the financial opportunity with my team in Russia would have been irresponsible to turn down. They offered to pay me to rest and I've decided to take them up on it.
+- It's funny, there's all these slogans like 'you're never too old to keep dreaming.' You know it's funny how in the basketball world, and in the business world where you're just supposed to stop. In the sports world, I feel like at 35 you're just supposed to stop. If you do, that's great.
+- You hit a certain age and it's, are you still motivated to play? It's the motivation, the drive that kind of leads you, and the body goes, too.
+- I heard I was the self-proclaimed White Mamba, which I can say I have never self-proclaimed myself anything.
+- A lot of stuff has happened to me and Phoenix has always been there for me.
+- Any league that talks about that - they care about their players - is lying.
+- For as many championships that I've won, I've been on a lot of teams that haven't won one.
+- You can have an all-star team but not everyone plays at an all-star level.
+- It means a lot to be in one place for my whole career. The minute I got drafted in Phoenix, I knew it was a place I was going to be for a long time. But we know in the sports world and life in general, you don't know where it takes you sometimes.
+- Winning on the road is always great. If you ask anyone, there's nothing like going into a building with your crew and trying to get a win.
+- The minute you get in a five-game series, you start thinking strategy, you start thinking about adjustments. Single elimination, you've got to go all out, all-in. I think that affects the coaching, it affects the playing, it affects the psyche going into the game.
+- Thankfully, there was not a lot of social media around when I was growing up.
+- I always had really good teachers, that were always about more than what was in the books. Those little advice and tips can set you down the right path in your life.
+- I can only speak from experience, but as a little kid I remember Lisa Leslie, Sheryl Swoopes, Dawn Staley and Cynthia Cooper. I remember the mainstream media being involved and how much exposure they received.
+- The way I was playing year-round was breaking me down physically and mentally.
+- When you play a long time and you get a little older, you can get a little skeptical and become a little bit of a pessimist, and that experience plays against you.
+- As long as I'm playing at a high level, and I deserve to be out there, then I'll always put that U.S.A. jersey on. There's nothing better than that, no matter how many times you've done it.
+- I just knew I wanted to play basketball for as long as I could.
+- I always wanted to be a dentist.
+- I never played for the money. I literally played for the love of the game.
+- Sometimes you invest in things that don't make money yet, but you want to make them better.
+- That's one thing I tell young kids is watch Chris Paul play basketball. He doesn't just play the game. He's trying to beat the game.
+- I now know I can live without basketball.
+- I go to sleep every single night thinking I'm not good enough. I really do. I don't know if that's healthy or not. But I really do have a fear of not being good, and I don't like that.
+- Sometimes you need to step away from the game. I've had to do that in different manners in my career.
+- I want to be able to take care of myself and my family when I am done playing.
+- You tell me I play like a man, and I'll tell you, 'Hey, thanks.'
+- I was just always kind of a free spirit with a wild side, but when you a meet a person that just makes you better and makes you better at life, your mindset changes.
+- If you like basketball, you enjoy watching good basketball. And if you don't like watching good basketball, go watch rowing.
+- For all the amazing things we've got to do, there's always the flip side of life kind of passed us by in other ways.
+- If there was a basketball rehab, I'd be the first one admitted.
+- I like the Ronaldo Flyknits even though I'm a Messi fan.
+- Whatever career you're in, whether it's business or sports, it's hard to keep friendships alive. It's hard to keep them thriving and remain interested in each other's lives when you have so much going on personally.
+- I am bilingual.
+- I always say that I know I'll be done playing basketball when I stop fighting on the floor. If you don't play with that edge or that competitive spirit, you're just another player out there. I can only speak for myself, but when I don't play with that fight then I'm just ordinary.
+- I've been really lucky, played with a lot of great players, lot of great coaches.
+- I try to envision what life is after basketball, but I just see myself working out and just being a basketball player still.
+- I knew Kobe pretty well and he was a guy that was always moving forward.
+- I even love getting older, and knowing maybe I can't do one thing as well, but then trying to figure out how to do something else. That inner drive, I have it every day.
+- You have to have people around you that motivate you that you want to play really hard for and always play at the highest level.
+- My favorite was Magic Johnson. Talk about a man who loved to play basketball and who enjoyed it the most. And growing up I was big Katie Smith fan.
+- I know a lot of people who've gone to jail.
+- The best players in the world are men, so why wouldn't you want to play like them?
+- Everyone calls me 'Dee.'
+- I'm going to do everything I can to play at a high level. I say this to a lot of my good friends: 'The minute you see that I suck, tell me and I'm out.' Instead of lying to me, someone let me know!
+- When you're young, you want to put up the numbers, you want to be 'the man.'
+- I never complain when I foul, ever.
+- Personal relationships become really hard when you're away from home and long-distance.
+- I can say I want to be known as the prettiest player ever but I don't control that, the people control that. So all I can do is show up to work every day and give my best.
+- I am very much the daughter of immigrants. It's both a point of pride and an essential part of characterizing my upbringing. We spoke Spanish in our house. We listened to Spanish music. All of the TV channels we watched were in Spanish. We ate mostly Italian and Argentinian food.
+- I played because I love to compete. I love being on the court.
+- The one thing I've learned from other great players is that you are what you do every single day.
+- I didn't do an individual workout until I was 25.
+- I'm not a Russian sympathizer, but after being in Russia for that long many years... like, look... they way they think isn't wrong, it's just different.
+- I never need to be motivated to be on the court. That's the one thing that comes very naturally to me.
+- People say, 'How would you do in the men's game?' I say, Give me a man's frame, and I think I'd do O.K.
+- I can play through pain.
+- No matter if my dad had to work, or my sister was gone until 7, or I had basketball practice until 8, we always ate together. I think that's a big part of the Hispanic family, the culture. That is key to our existence, really.
+- I'm a first-generation American. My mother is from Argentina. My father is from Italy. When my dad was around five or six, his family migrated to Argentina. That's where he met my mom. They got married, and moved to Los Angeles - North Hollywood, to be exact.
+- As you get older, you get less people to hold you accountable, especially in pro sports. The players have all the power. Unless you play for the Spurs. Then you're a college kid for life.
+- Records are always meant to be broken.
+- You work for the WNBA. Obviously, they want us to prioritize the WNBA as being No. 1 on our list, but the reality is other people are paying the bills. That's the way it is.
+- Being loyal through thick and thin, ups and downs, it makes the special moments that much more special.
+- I've gone left 90% of my career, guess what, I still go left.
+- Every time I see my life without basketball, I get a little scared, and I try to put a little more into it.
+- When I was 13, we went back to Argentina to live for a year. I got to see my extended family - really see them: where they grew up, how they lived. It was a different kind of struggle. There is no money. There are no jobs. And they still have to find a way to feed their families.
+- There's a certain reason why certain people win because they have a winning mentality and they bring it into the locker room, into the gym every single day. You can't have enough of those people.
+- My dad woke up at 5:30 every morning - every single day - and drove an hour-and-a-half to work. My mom was constantly working odd jobs, whether it was at Sizzler or babysitting. I didn't realize how hard they worked. Most kids rarely do. But they were building something for us.
+- We got to see the world, we're put on some of the best teams in Europe, we made a lot of money, and then the flip side is it was 12 years of our parents getting older.
+- If anything, when you play against family, you never want to lose, whether it's your sister or it's your best friend. When you know that person so well, at the end of the day, you want to beat them.
+- I used to be the kid that when we got to practice I didn't even stretch.
+- Basketball is really important to a lot of people in the U.S., and no one takes it more serious than women.

@@ -1,0 +1,37 @@
++++
+author = "Sylvia Hoeks"
+title = "Sylvia Hoeks Quotes"
+quotes_len = "31"
+description = "the best 31 Sylvia Hoeks Quotes"
++++
+- I'm kind of shy.
+- Where I grew up, there was one supermarket, one school, one hairdresser, and that was it. It was a very small community.
+- I'm not an actor that works in front of a mirror, who tries to repeat her actions or whatever.
+- When I go to a movie, I want to see stuff that I don't see in my normal life, and I want to see it all.
+- I love pretending more than reality.
+- Especially for young girls growing up, it would be lovely to see strong women who don't necessarily need to be sexy or find that interesting. Or have to be the girlfriend or the mother. They can play complex characters that you want to follow and make you believe that you can be strong as well.
+- At 14, I was modeling, which helped me come out of my shell, but I always dreamed of theater school.
+- I didn't 'leave' Dutch cinema.
+- It sometimes happens that you come out of a scene, and you don't even know what happened. It's like you're in the zone.
+- I'm from a little village in the south of Holland where there was nothing to do but watch American movies and television - I grew up with The 'A-Team,' 'Charlie's Angels,' and 'Edward Scissorhands.'
+- I love Tilda Swinton and the way she dresses. She always looks like a piece of art.
+- Denis Villeneuve is such a wonderful filmmaker. I just feel nothing but grateful to have worked with him and to have a chance to learn his language of filming.
+- I love playing villains or bad guys or bad girls.
+- I don't love to generalize, because I think every person has bad and good in them.
+- I'm very comfortable with men - they're freer and a lot of fun!
+- I worked out six hours a day, six days a week, to get 16 pounds of extra muscle.
+- I'm a hippie at heart - I always want everyone to be happy.
+- I was shooting a German movie, 'Whatever Happens,' at the time, and I got the call from my agent asking me to self-tape for 'Blade Runner.' That was a no-brainer. I loved the original, and Rutger Hauer was a national hero, and he did such a good job in it.
+- Think of Capt. Hook, and then put an 's' after it. Capt. Hooks. That's me.
+- You have to work your way up - that's how I was brought up and what I believe in: working hard.
+- I am a fan of dark movies and dark complex characters, and I love to take on a character like that.
+- If a man's able to laugh about himself, that's good. You can be in love with a man or share his bed, but if there's no humor, there's nothing.
+- I'm not really into trends.
+- I want to play so many different characters. I want to, like, understand so many different people, and psychoanalysis, everything. I love that about my job: getting into the character and understanding it and doing the psychoanalysis and creating that character.
+- As a female actress, I didn't feel the need to be sexy or beautiful.
+- Being in the camera's eye is like stepping into a dream world, one that is often more interesting than real life.
+- I love long dinners with friends.
+- I speak Dutch, German, French, and English and have acted in all of those languages, but I love the American experience.
+- It's interesting what happens when you take on a role, I think. What happens to me - without sounding too spiritual or too hippy, I guess - what happens, most of the time, you do a lot of research, and you get into the character, and at a certain moment, it's like the character takes over.
+- I do enter into character on set, but I can step out of it.
+- No pickup lines! They're the worst. But I love jokes.

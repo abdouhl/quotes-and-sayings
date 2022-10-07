@@ -1,0 +1,76 @@
++++
+author = "Steve Mnuchin"
+title = "Steve Mnuchin Quotes"
+quotes_len = "70"
+description = "the best 70 Steve Mnuchin Quotes"
++++
+- I ran a 'loan modification machine.'
+- The number one problem with Dodd-Frank is it's way too complicated, and it cuts back lending, so we want to strip back parts of Dodd-Frank that prevent banks from lending, and that will be the number one priority on the regulatory side.
+- There will be a big tax cut for the middle class. But any tax cuts we have for the upper class will be offset by less deductions that will pay for it.
+- A stronger dollar increases U.S. dollar purchasing power.
+- The U.S. currency has been the most attractive currency to be in for very, very long periods of time.
+- I don't support going back to Glass-Steagall as is.
+- Let me tell you, one of the most proud aspects of my career was buying Indymac during the financial crisis.
+- We shouldn't be encouraging people to set up Cayman Island funds.
+- We unfortunately did foreclose on certain people in the military.
+- Trump has a pro-economic-growth tax plan, and we are sensitive to the cost of that plan.
+- I have very good friends on Wall Street.
+- I have been maligned as taking advantage of others' hardship in order to make a buck. Nothing could be further from the truth.
+- There is no question: the Hollywood crowd predominantly supports Democrats.
+- I would deal with President Trump's business no different than I would deal with any other business that comes before the committee.
+- We want to make sure that tax reform doesn't increase the size of the deficit.
+- In the press, it has been said that I ran a foreclosure machine.
+- I understand what needs to be done to fix the economy.
+- We want to cut the corporate taxes, which will bring back growth.
+- Our first priority is to cut taxes.
+- Taxes are way too complicated, and people spend way too much time worrying about ways to get them lower.
+- I've had several different careers.
+- We're really going to be focused on economic growth and creating jobs, and that's really going to be a priority.
+- As treasury secretary, I don't see it as my role commenting on the dollar in short-term movements.
+- The way to reduce the debt is by economic growth.
+- I think the United States is the greatest country in the world to invest in.
+- We've been in the business of regional banking, and we understand what it is to make loans, and that's the engine of growth to small and medium sized business.
+- The IndyMac name had a lot of brand recognition - maybe for the wrong reasons, but there was recognition.
+- The unemployment rate is not real.
+- I felt great empathy for the thousands of Americans who lost their home because of a system that failed them.
+- The IMF and other multilateral institutions do not appear to have prevented nations from manipulating the value of their own currencies.
+- The number one priority is going to be make sure that banks lend.
+- I earnestly feel terrible for any mistakes at the bank.
+- I wish the company and its associates all the best as Sears Holdings continues on its transformation.
+- If you look at Apple... They are sitting on hundreds of billions of dollars in cash, and they go out and borrow money against their overseas bank accounts. This makes no sense.
+- I've been focused on the West Coast economy and being a banker and lending in these markets.
+- I firmly believe that the U.S. has to honor its debt.
+- One of the big problems we had during the financial crisis was the intermingling of banks and holding companies and complex securities.
+- I support the Volcker rule, but there needs to be proper definitions around the Volcker rule so that banks can understand exactly what they can do and what they can't do, and that they can provide the necessary function of liquidity in customer markets.
+- I have given to Democrats in the past. I've always believed in supporting the best candidate at the time.
+- I've always believed in supporting the best candidate at the time.
+- The most troubling loan we had was actually to the 'Octomom'. That was a terrible situation, and we worked very, very hard to move her to another home that they could afford.
+- The administration will look at Glass-Steagall and what I referred to as the 21st-century Glass-Steagall as part of regulatory reform.
+- Look, there is no question the Hollywood crowd predominantly supports Democrats. But within Los Angeles, there's a big community, and there's a large community of support for the Republican party and Republican candidates.
+- Since I was first nominated to serve as Treasury Secretary, I have been maligned as taking advantage of others' hardships in order to earn a buck. Nothing could be further from the truth.
+- The strength of the dollar has historically been tied to the strength of the U.S. economy and the faith that investors have in doing business in America.
+- I wouldn't in any way say I distanced myself from Wall Street.
+- To the extent the dollar gains strength relative to other currencies, assets priced in those other currencies would become cheaper on a dollar basis.
+- My No. 1 priority is growth in the economy. Tax reform will be our first and most important part of that.
+- From time to time, an excessively strong dollar may have negative short-term implications on the economy.
+- We should address the issues for nonprofits and pensions and why they need to invest in these offshore funds.
+- There's very widespread grassroots support for Donald Trump, one that Republicans have not seen before.
+- Proprietary trading does not belong in banks with FDIC insurance.
+- Any reductions we have in upper-income taxes will be offset by less deductions so that there will be no absolute tax cut for the upper class.
+- We are going to have an integrated plan and work closely between commerce and treasury to make sure that we drive growth in this country. Our number one priority is sustained 3-4% GDP.
+- I think that the United States is the greatest country in the world to invest in.
+- I used to have a pseudonym for Twitter, and I'm trying to get my check to verify me.
+- The biggest issue I have with the CFPB is that I don't believe that they should be funded out of profits from the Federal Reserve.
+- Separating out banks and investment banks right now under Glass-Steagall would have very big implications to the liquidity and the capital markets and banks being able to perform necessary lending.
+- I did not use a Cayman Island entity to avoid paying taxes for myself.
+- I will maintain the position that, long-term, a strong and dependable dollar is in the best interests of the United States while recognizing that, at times over the long-term, that may not be the case.
+- We were the first bank to start a loan modification at IndyMac and had a very good record of working with the regulators.
+- We're going to cut corporate taxes, which will bring huge amounts of jobs back to the United States.
+- I will use my expertise in technology to bring the IRS up to date.
+- We need a president that's going to be focused on growth.
+- We want to see huge growth in this economy in small- and medium-sized businesses.
+- Our most important priority is sustained economic growth, and I think we can absolutely get to sustained 3% to 4% GDP, and that is absolutely critical for the country.
+- We gotta get Fannie and Freddie out of government ownership. It makes no sense that these are owned by the government and have been controlled by the government for as long as they have.
+- Any time I hear 'border adjustment,' I don't love it. Because usually it means we're going to get adjusted into a bad deal.
+- I would say the No. 1 problem with the Volcker Rule is it's too complicated, and people don't know how to interpret it.
+- I fully believe that the U.S. has the obligation to honor its debt.

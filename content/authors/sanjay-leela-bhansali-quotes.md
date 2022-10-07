@@ -1,0 +1,106 @@
++++
+author = "Sanjay Leela Bhansali"
+title = "Sanjay Leela Bhansali Quotes"
+quotes_len = "100"
+description = "the best 100 Sanjay Leela Bhansali Quotes"
++++
+- I just wish one of the big American studios had bought 'Devdas.' They would have pitched the film for the Oscars in a big way, like Miramax did with the Chinese film 'Hero.'
+- Not every work of art connects with the audience.
+- It is very difficult for anyone to predict how a film will do. It depends on so many things: the mood of the audience, the state of their mind at the time, how they have reacted to the whole treatment.
+- The media should be ready to cover every event at the Oberois' residence. If Vivek's dog has dysentery tomorrow, we should be prepared to hear Vivek talk about it on camera for three hours.
+- Bad behaviour on TV is quite nauseating and putting off.
+- There was one mistake in 'Devdas,' but I won't ever tell anyone what it was.
+- Once a film is selected at Cannes, the crossover becomes very easy, thanks to the prestige and dignity it gains at Cannes.
+- Some of the most beautiful people, to me, are those with the wrong geometry. Mother Teresa is extremely beautiful and not because she is a saint. Her characteristics are very strange, and that is what generates the power she had.
+- My mother was my pillar of strength.
+- Show me one director who does not get angry on their assistant for something that has gone wrong. But it is done out of my love. It's just fun when I tell them to face a wall and stand or kneel down in a corner. It's not like I want to punish them harshly. It's not to humiliate; it is to teach.
+- The film industry functions on fraternal feelings. If there is a problem, we solve it in-house.
+- My soul needs music all the time.
+- I need music while taking a bath. I need it in the car.
+- I never liked being told what to do, so even in school plays, I never liked being an actor.
+- Bollywood works as hard as regional cinema makers.
+- I'm petrified of facing the camera. Even to shoot for a photograph is an ordeal. But it's important to break free of your inhibitions at some point in your life.
+- I'm the most fun-loving guy.
+- The first thing I do after I wake up is switch on the music player and the last thing I do before going to sleep is stop it.
+- I don't think the physical resemblance is as important as capturing the soul of the person that the actor is portraying. How much like Charlie Chaplin did Robert Downey Jr. look in 'Chaplin?' Did Meryl Steep actually resemble Nora Ephron in 'Heartburn?'
+- I am the hardest working director.
+- After 'Saawariya,' I retreated into a shell.
+- The Cannes Film Festival is the biggest, most prestigious film festival in the world. This is where filmmakers are discovered, where futures are made, and the most important films premiered.
+- If I am aware of my own limitations, then I can work towards overcoming them.
+- Think of Hridaynath Mangeshkar's 'Mira bhajans.' I have bought these records three to four times, as I listen to them so often.
+- I am distressed when I see news channels saying 'Devdas' has let down the country by not getting an Oscar nomination.
+- I've met quadriplegics who have lost the use of their limbs but not their spirit. They are not dark, defeated people.
+- I work like a dog.
+- I am not indulgent. I think constructing a scene elaborately - with art, costume, and visual drama - is not indulgence. Other people should do it, too.
+- All the pain, suffering, love, passion, and conflict have made me what I am.
+- People might think that I'm inaccessible, unapproachable, and dark. In many ways, my characters are uncomfortable to interact with, but that's not me.
+- I am trying to pursue excellence.
+- Western music is alien to my ears.
+- I believe in 'Black' as much as I believe in 'Bajirao Mastani.'
+- There was no fear of failure when I made 'Bajirao Mastani.'
+- I don't want to plan my career. That would be a business plan. Filmmaking is not a business plan.
+- I am extremely proud that our cinema is being recognised in the West. I want Indian cinema to get its dignity, not by giving them the kind of films they expect from us, but by making cinema in a way that carries the legacy of the mainstream masters forward.
+- The multiplexes audience has one way of thinking. When they are all sitting together temperamentally, there is room for a filmmaker to reach out to a far larger audience in a comfortable way.
+- I am a fearless filmmaker.
+- I am not popular socially. I am uncomfortable around people.
+- The first film that I saw of Shammi Kapoor was 'Bhramachari.' I instantly fell in love with the film and connected with Shammiji. His style was natural and unique.
+- 'Jhalak' was a wonderful experience, but it was important for me to get back to films, since I am a director too.
+- My 'Devdas' was a tribute to all the mainstream masters, from Mehboob Khan, K. Asif, and V. Shantaram to Raj Kapoor. I am not saying critics shouldn't have criticised my film. But they should have judged the film within the genre and format that I had chosen.
+- You can do a formula film and walk the conventional path, but it may not work at all.
+- With 'Guzaarish' I went through a catharsis.
+- Life is not only about dark nights; it's also about beautiful, sunshiny mornings.
+- I never believed in birthday parties.
+- I feel it is important to respect contestants on national TV, celebrity or not.
+- I love humour, and I can laugh at myself.
+- I write all my scripts with Salman in mind. He understands me perfectly on the sets.
+- I think caring too much about the economics starts affecting the creative aspect of the film. That is a dangerous process for a filmmaker. He should make his film without having to worry about how much it has cost or how much it will be sold for.
+- My mind was never into school, and education did not matter to me.
+- Take any movie from 'Khamoshi' to 'Black,' I was always clear about my subjects.
+- My life revolves around music.
+- I cannot be casual about my work.
+- It is absolutely important to balance stars with newcomers so the whole chemistry and ambience between people who have never worked before becomes far more explosive and exciting.
+- If you take away music from me, I'll die.
+- I think suffering has always been an incentive for my creativity.
+- It's pure joy to see some people who've never had the chance to live their dream, come on stage, and let loose.
+- I remember during 'Devdas,' people told me that they had seen 'Devdas' before, so what would be so different about this one. But I was convinced with the subject, and that is what drove me.
+- I was always a flaky child.
+- I faced failure with my first film, 'Khamoshi.' All of us have our highs and lows, except Lata Mangeshkar.
+- 'Devdas' is the first Hindi commercial film to be seen at Cannes. And 'Hum Dil De Chuke Sanam' is getting a whole lot of appreciation abroad. I'm pleased.
+- I have been fascinated by Rani Padmavati from my childhood.
+- If you compromise in the casting it is bound to expose eventually.
+- What upset me was that after 'Saawariya,' which came after the awards and rewards of 'Hum Dil De Chuke Sanam,' 'Devdas' and 'Black,' I was written off, almost hounded out of the industry.
+- One can't allow oneself to be bullied into abandoning one's dream.
+- I have grown up watching films in single screens where people would get up and dance in the aisles. With 'Rowdy Rathore,' I want to recreate the same magic.
+- My movies are personal notes of my whole life.
+- With 'Bajirao Mastani,' we have created history.
+- During our childhood, my sister and I had no birthday parties. We would take a packet of sweets to school and distribute it to our class-mates. That was it. We were not allowed to go to parties, either.
+- I don't think international cinema is ready to embrace mainstream Indian cinema unconditionally. Even Mira Nair's 'Monsoon Wedding' didn't get to the Oscars after being nominated for the Golden Globe Awards.
+- 'Ramleela' is my most violent film.
+- There is no such thing as human perfection, and yet when you hear Lataji sing, you wonder how she sang that song so beautifully, so perfectly. Or, how Kumar Gandharva touched your soul so powerfully.
+- Though all festivals are important, this Cannes Festival starts off the season.
+- What's life without risks? When I made 'Hum Dil De Chuke Sanam,' everybody said in India you can never have a husband say that I am uniting my wife with her lover. The male audience would reject it, and it is a male audience and hero-oriented industry.
+- I was criticised for making 'Devdas' so ostentatious. But stark and realistic cinema isn't the only real cinema in this country.
+- People don't want to always see a comedy or an action film. If the film in a particular genre is made well, then it will see its share of success.
+- The equality of men and women is not possible because both are different. A mountain is a mountain, and a river is a river.
+- It's been a journey of great stress and awakening. I have given my blood sweat and tears to 'Padmavati.'
+- When I make a film about a physically challenged person, I come away with so much. I learn to value what I have. My survival instinct sharpened after 'Black' and 'Guzaarish.'
+- Many people ask me why I chose to remake 'Devdas.' I wanted to make a film that celebrated grandeur and grace.
+- There is dignity in being a celebrity. Let us not lose that dignity.
+- Shah Rukh made 'Devdas' for me, and I made it for him. He's special to me, and I think I am special for him. We are and will always be good friends.
+- My mother is special to me. She understands me. She has no expectations from me.
+- Every director, actor, and even producer gets angry on the sets. Why am I the only one being singled out for losing my cool or being talked about vis-a-vis my anger?
+- Audiences want to see something interesting. It doesn't matter which genre or period it belongs to.
+- I can't begin to describe how humiliating it is for a law-abiding citizen to be cross-examined in a court of law for a crime he hasn't committed.
+- A man is not capable of giving the way a woman gives. She is stronger. When a woman sacrifices, it lends her grace and beauty.
+- Friendship and loyalty shouldn't come in the way of casting.
+- My art completes my life.
+- I reveal myself in my movies.
+- Every time I read it, I realised 'Bajirao Mastani' must be made. It's such a powerful screenplay.
+- When you don't have to say 'I love you,' when you don't have to prove your love by singing a song, or express it through the body, that's two souls connecting.
+- Of course, an Oscar nomination would have added considerably to the film's business abroad. But it has already made nearly Rs 150 crore. It has done stupendous business overseas. We did a business of Rs 80 crore when we took 'Devdas' to Cannes.
+- I have always chosen subjects which are little different, and not subjects that you see. That challenges me and the actors who work in the project.
+- As long as what you do reaches out to people, I don't think there's any reason to stop yourself from doing anything.
+- To me, love means being free of your own bondage and connecting to another soul.
+- 'Devdas' isn't a real film. It isn't in the same genre as Mira Nair's 'Monsoon Wedding,' where the camera's presence is so understated it almost disappears.
+- I gave everything I had to give to 'Devdas.' I knew I would never make a better love story because there is none.
+- Did Robert De Niro actually look like Al Capone in 'The Untouchables?' Or did Van Kilmer look like Jim Morrison in 'The Doors?' No. It's the core, the essence of the personality that matters.

@@ -1,0 +1,42 @@
++++
+author = "Sevyn Streeter"
+title = "Sevyn Streeter Quotes"
+quotes_len = "36"
+description = "the best 36 Sevyn Streeter Quotes"
++++
+- Honestly, I think dating is hard. Period.
+- I went on tour with Beyonce when I was in Rich Girl and that was... something I will tell my kids for years and years and years to come. That's like saying, 'I toured with Michael Jackson.' That will be something I will forever cherish.
+- You should find the dopest producer in your area, and that producer is always going to want songs written to his beat.
+- You always hear how female artists don't get along, how they hate each other - but that hasn't been my experience.
+- I did 'Showtime at the Apollo' when I was 10, and it was the first time that I'd ever performed on TV, and it felt great.
+- I've been singing forever; I grew up singing in church.
+- I feel like R&B is really based off of emotion and truth. R&B is a conversation.
+- If I'm writing for a particular artist, I definitely think about their past records, pay attention to the type of tempos that they like. If I have the privilege of actually being in the session with the artist, I just like to have a conversation with them.
+- Writing for yourself is like exposing your diary. It can be a little embarrassing at times, but if it helps somebody get through the day just by hearing a song, it's well worth it.
+- My label, my team and I are always looking to get involved with positive things.
+- I've learned over the years to appreciate God's timing, and you can't rush things; it's gonna happen exactly when it's supposed to.
+- No matter what you go through, if it's the truth, 9 times out of 10, somebody else has been through the same thing or is currently going through the same thing.
+- Breakups are still uncomfortable, period, and especially when you really are in love with somebody. They are not the easiest things to deal with, and once you break up, you're trying to get used to not being with that person.
+- Music is emotional. Your job is to make people feel something. The best way to do that is to sing and speak from something they've personally been through. That's where I write from.
+- I went back to my ex a couple of times, and regardless of how many times you hear from your parents or your best friends or whoever that 'Oh, you should let it go and be over it and let him go. Move past it and find somebody new.' Regardless of the advice that you're given, you kind of have to do whatever makes you happy.
+- Every year of my life, my dad has sent me a Valentine's Day gift. Whether I was in the same house or across the country, he always sent something.
+- People inspire me to write, the good ones and the bad ones.
+- A lot of times, you get into it with your significant other, and you feel like, 'Oh my God, you are acting crazy.' I've heard that before - I'm sure a lot of us have!
+- One thing that was really dope for me was that my dad had a '78 Corvette, '78 or '76 Corvette all my life. It always needed to be fixed up. I remember it's just been sitting in the driveway for years, and I got it fixed from top to bottom for his birthday.
+- I've had the honor to be in sessions with great artists.
+- I wanna be able to stand on the stage and hold out the mic and people sing all the lyrics to my song.
+- I feel like everyone has a preference. You have women who don't like shorter guys. You have women who like taller guys. You have women who like heavier men. You have women who like smaller men. It's the same thing with men. You have men who prefer lighter women and men who prefer darker women.
+- My favorite song I ever wrote is 'Yeah 3x' because it was my first placement. It was with a great artist, Chris Brown, and I couldn't believe it at the time. Honestly, I still can't really believe it! It is the first time someone ever gave me a shot, so that is my favorite.
+- Conversation without you trying to be sexy can still come off as very sexy. Trust me!
+- I swear I pick up little gems from every artist that I work with. That's why I'm so appreciative that I've been able to be a songwriter first.
+- I think in my life I have so many things that changed so much with work and my career, and I don't really get to plan out a lot of my days. So when I have something that's familiar - just something that's there - I don't really like to switch it up.
+- I'm a perfectionist to a default. I will drive you crazy sometimes. When I'm recording, I will try something a trillion times to get it right.
+- I love Janet Jackson.
+- I know, for me, that I have always been very conscious of how I dress when I go to the studio, I'm very conscious of my body language when I'm working - a lot of times, I'm the only female in the room. It's a very male-dominated profession. I'm always around guys. Guys are going to try you all day, and they're going to flirt all day.
+- I have a hard time getting over an ex. Getting over an ex is just hard, period.
+- I would love to do a record with Usher.
+- I'm extremely close to my mother.
+- I haven't always been good at flirting, but I've learned that flirting is all about confidence. I don't think it's about being sexy at all; it's just about having enough confidence to walk up to somebody and have a conversation with them.
+- I think men and women will both agree that one of the perks of being single on Valentine's Day is that you get to keep your money in your pocket.
+- I just want to give people the best album that I possibly can.
+- Growing up, I always wanted to be a singer, and I've done that.

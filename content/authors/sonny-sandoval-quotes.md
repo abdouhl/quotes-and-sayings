@@ -1,0 +1,81 @@
++++
+author = "Sonny Sandoval"
+title = "Sonny Sandoval Quotes"
+quotes_len = "75"
+description = "the best 75 Sonny Sandoval Quotes"
++++
+- I'm a laid-back, shy kinda dude, and it wasn't until when I was 19 that my life kind of changed.
+- We grew up on hip-hop, metal, and hard core, which... reflect a certain amount of the chaos and confusion that are part of daily life.
+- When you become a Christian, all of a sudden you start to live on this rapture mentality, like tomorrow the world's going to end. You live in that frenzy. We come from the streets, so the mentality was like, 'Yo, dude, what's up? You're not going to tell me I'm not down with God. What's up!'
+- I became a Christian when I was 19, and it wasn't like I was raised with the church.
+- We never claimed to be a Christian band; we just were outspoken about our faith. It's not like we knew there was a scene.
+- Rock and roll has become entertainment that just says what the consumer wants to hear. There's no more edge or rebellion that sets it apart from the norm.
+- I know God is watching out for me, and he's saying, 'OK, son, watch your step now. You can be in these places, but just be careful. Keep your guard up.'
+- Christian bookstores have banned our records, but we don't need them.
+- God is love.
+- I could have continued to get into trouble, but I wanted to do something positive with myself - and music is the best way.
+- If we do a record, and there's a reggae song, it's not shocking to us. If we do an all hip-hop song, it's not shocking to us. We all listen to that sort of music. It's not about what's in at the time; it's what feels right to us and what we're comfortable in doing.
+- Some bands sound like one song the whole album through. We've been all over the place because we are punk, hardcore, rock n' roll, metal, reggae - and I think sometimes it might be too much diversity, and kids are lost.
+- When we first started, I didn't know there was Christian rock or Christian music. I just thought we were a rock band that stuck to our convictions... Like every other hardcore band out there sang or screamed what they thought, we did the same thing.
+- It's religion that killed our King, you know what I'm saying - that religious idea that has distorted the love of God, and now the world doesn't want it. They don't want religion. They want Jesus in their heart. They want Him. They just don't want the religion.
+- We were never Christian enough for the Christian world, but were always way too Christian for the rock world.
+- We were always just a hardcore band that came out and said what we believed in, but we also talked about the streets and the stuff that we were into and the struggles and everything we were going through. Once people found out we were Christian, it was always, 'Is that Christian music?'
+- It's a dying art to play live anymore and just play raw. Who cares if you make a mistake? That's punk rock. Just go out and go for it and make some noise.
+- I'm a born-again Christian - if everybody can agree what that means. I believe in Jesus. I believe that He died for my sins.
+- I go to the local record store to buy my albums.
+- At every Ozzfest show, there's horns and devils somewhere; there's some kind of darkness somewhere. But the thing is, this is a stage, homey, and those fools are entertainers. And you know what, it shows! It's fake.
+- I'm a daddy first; I'm a husband, and I'm a lover of God and people.
+- A lot of bands just entertain you. I'm all about entertainment - I do it every day - but there's only certain things in your life that stick around. I think P.O.D. has done that for a lot of people, and I'm happy for that.
+- All the time, even before we had mainstreamed, it was like we were never really Christians because of the way we looked. Or, you know, we were never Christian enough, or we're too Christian at times. You can't please people.
+- I listen to a lot of old-school worship music.
+- Whoever is in charge of the artist will always have the upper hand. They act like it's the artists' world, but it's the other way around, so they're going to do whatever they want to do.
+- We want to be one of those bands that made their own way - a U2, a Led Zeppelin, a Red Hot Chili Peppers. I don't want to be a 'Behind the Music.'
+- Kanye West deceives many and will lead many people astray.
+- All we know how to do is write music and love God.
+- If you look at these bands like The Beatles, they did something that was new for that time, whether it was shocking or just a new direction that they were going.
+- P.O.D. kind of built that brand name. We came out and have been open about our faith. We've always been a positive band in a world that's pretty crazy and wild.
+- My hope for young bands, honestly, is that they do it because they love it, they do it because it's real.
+- It's important to tour with bands that you get along with.
+- We're all confused and have problems and struggles.
+- I love the nation of Israel. I love Jewish people. My King was Jewish, and I embrace that.
+- It is the power of God that keeps us rolling on. It's real good. When you know it to be real and true, that's when you have to share it with whoever will listen.
+- When we first started playing shows, we were all 17. Everybody started somewhere. There were guys throwing shows in condemned houses and backyards just for the love of music and for the love of what bands were standing for.
+- When I joined this band, I never thought of myself as a singer. I just did whatever I could, which was rap. And then, over time, I've grown, and we've developed and tried different things. It all happened gradually and naturally.
+- We don't need a resume to come to God. It's not our good deeds. We come broken, and we need a savior.
+- We want to represent the things we believe.
+- We're not a typical Christian band. We've got dreadlocks and tattoos.
+- Payable On Death is actually a banking term, when someone passes on, what someone leaves behind. We related that to Jesus on the cross, and by his death, our sins are paid, the debt is paid. We have salvation if we want it. We got tired of saying Payable On Death, so we went to P.O.D.
+- I'm a man of faith.
+- 'The Awakening' is meant to be listened to in its entirety. Every song ultimately explores a character dealing with life, making mistakes, fighting, trying. But we also live in a singles-type world, and it works on that level, too.
+- We don't tell you what to think or believe in. That's not our job. We're rock musicians. Our job is to rock.
+- To me, Christianity was so conservative and stuffy, but for me, it was just a relationship with God. The Church relationship was just so stuffy.
+- I'm the dirtiest of the dirty. I mess up all the time. I suck as a Christian. I can't stand religion. But I love Jesus, and I'm trying.
+- I went through those times in my life where I started to get bitter and angry, and you're like, 'Why am I even a Christian? I don't like any of these people that call themselves Christians.' That's when I had to go spend time with God, and He had to remind me I'm walking with Him and not these people.
+- It's always been my heart that God would save people through this crazy music somehow, someway, His way.
+- Even before the mainstream knew about P.O.D., we were going for several years underground. For me, those were the times where it really was about the music and really about the fan base.
+- You got to look the part. You have to look like all the successful rock bands look. This is what they do. That's never been us. You know, it's a hard game to play: at the end of the day, we are just a rock band and have so many different cultures of music that we have grown up on, because we are fans of all different kinds of music.
+- Kids come up to us all the time and say, 'Hey, I'm not a Christian, but what you guys are doing is cool.' Or they say, 'Man, there's something different going on when you guys play.' I believe that's the Spirit of God touching who God intends to touch, whether it's just one person or 50,000 people.
+- Someone like a Bob Marley - he was singing Scripture.
+- I was never growing up saying, 'Dude, I want to sing in a band.'
+- I was born into hip hop and reggae, and then I started listening to more hardcore and punk bands like Bad Brains and the Suicidal Tendencies; they opened up a whole new world for me. They had something to say, and I could relate to them.
+- My grandmother and mother were from Italy, so I was raised Catholic. That kind of just meant going to church on Easter and Christmas. I saw a radical transformation in my family when they started going to a Christian church. I watched them fall in love with God.
+- I'm trying to make sure that for myself and for my family, I'm staying as close to the heart of God that I possibly can.
+- At first, we were militant about our faith, really in people's faces. We used to say, 'I don't care if they kick us off the stage - I'm gonna tell them about Jesus!' But what good did that do? They never invited us back to the club.
+- People are buying music from 12-year-olds. No one realizes they didn't create this. They didn't write this. They didn't make this. All they have to do is press play, and you have a band.
+- We are all negative people, born negative people, so we concentrate on the good things in life, and that's what makes us smile.
+- We will not go out there and make negative music for selfish gain.
+- There is... a greater sense of divine purpose when we're playing at all-Christian rock shows. In clubs or bars, we know that the audience primarily came to see a show, so we try not to get preachy and instead let the music do most of the talking.
+- I think we've connected with our fan base on more than just a rock n' roll level. We really do care about our fans who come out. We have love for people, and we're just trying to spread that good message.
+- We have people on the road with us - our wives, our families and pastors. We come alongside each other, and we're always in prayer.
+- We realize all the struggles we have and all the things that catch our attention and our hearts - if we're not ready for it, it will take control of us.
+- I'm really not the biggest metal fan as it is. I'm more of a hard-street-punk kind of kid, but I also loved hip hop and reggae music, so we have always sort of refused a street style that is something that we are used to. Something that makes us comfortable and sounds good to us.
+- When we first started, and I jumped in this band, I was like, 'I'm not a singer.' I didn't go to school to sing. I just played to have fun. But these guys teach me, and they show me stuff and give me courage to try new stuff.
+- To know that so many people have our backs and support us is an awesome thing. You need people saying, 'Hey man, I'm with you all the way.'
+- I remember hearing, back in the day, so-and-so got a deal, and bands are spending the money. Some of them live in the old days, where money is coming in and budgets are endless, but bands have to pay that back. Some bands just don't realize that.
+- We're going out there whether it's Satan's personal party or not. We're going to sing our hearts out, and we're going to worship God, no matter where we are.
+- Some kid who thinks he's cool can say, 'Hey, I'm down with Jah.' It's the same thing as saying, 'I'm down with God.' If it's easier for you to relate that way, then cool.
+- I love rap, and I love the angst of hardcore music and punk rock.
+- Music and video games go hand in hand.
+- With rock n' roll and touring comes a lot of good and bad decisions. These guys who are 21, they're out there, and they're not indestructible. The history of rock n' roll tells us, and so a lot of these guys are on this road to destruction.
+- Jah, for me, is just short for Jehovah. It's a short name for God.
+- I grew up in Imperial Beach, surfing and going to the beach - my son plays baseball at the park.

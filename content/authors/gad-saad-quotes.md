@@ -1,0 +1,106 @@
++++
+author = "Gad Saad"
+title = "Gad Saad Quotes"
+quotes_len = "100"
+description = "the best 100 Gad Saad Quotes"
++++
+- The capacity for humans to come up with ever-increasingly granular in-group versus out-group demarcations is truly breathtaking.
+- Secular societies establish tolerance by being equally non-accommodating toward all religious demands within the public sphere.
+- There is no gospel of atheism. Atheists don't pray at the altar of a Richard Dawkins poster.
+- Nearly everything that defines much of our daily experiences is consummatory in nature. Yes, we consume products and services. But we also consume life experiences, religious narratives, art, literature, and ideas.
+- As an academic, I value the free exchange of ideas.
+- Western societies in general and universities in particular have not always been immune from institutional sexism. This is incontestable.
+- A proud and healthy society does not equivocate when it comes to stating clearly and unequivocally what it expects of its prospective immigrants. It is for immigrants to adapt to the host nation's values and never the other way around.
+- University students should rightly be exposed to a plurality of viewpoints as part of their intellectual growth, rather attending the 'flock of sheep association of like-minded individuals.'
+- Offending someone's religious sensibilities can never justify a violent response. There are no 'but' qualifiers, and the sooner that this lesson is internalized, the rosier our future will be.
+- Social etiquette dictates that when in mixed company, one should avoid discussing politics and religion. As someone who is quite active on various social portals, I can attest to the visceral emotions that are triggered when these topics are broached!
+- I contend that the ethos of perpetual non-judgment is intellectually dishonest if not outright cowardly.
+- Reason and science allow us to properly think about the necessary data that are required in order to answer a given question. This is precisely why the scientific method is the most powerful framework for understanding the world.
+- While I do not have a sweet tooth, I am a fan of the dark chocolate ice cream at Baskin Robbins.
+- Take off your wedding ring prior to swimming!
+- Life is short, and every moment is precious.
+- Notwithstanding the supposed egalitarian ethos of some hunter-gatherer societies, humans are a hierarchical social species. We care greatly about where we stand in comparison to some relevant reference group.
+- Across disparate cultures that require physical risk-taking as a rite of passage, it is always the men who engage in such pursuits.
+- My attachment to my wedding ring is a powerful symbol of the infinite love that I have for my wife and children.
+- World history is shaped both positively and negatively by people who judge.
+- There are justifiable case-by-case situations wherein an educator might exhibit targeted sensitivity to a student's unique circumstances. This is humane and laudable. In most instances though, trigger warnings are not a manifestation of justified empathy but are symptomatic of an ailing culture.
+- Casting judgments is an integral feature of what makes us human.
+- Unlike other animals, all of which are undoubtedly oblivious to their eventual demise, humans are fully aware that their time on Earth is limited. This is a reality that for most individuals is difficult if not impossible to bear.
+- To be an outspoken professor in academia is a very dangerous proposition.
+- Freedom of religion does not entitle your religion to have a privileged position within the public sphere.
+- The right to be able to speak openly and confidentially to another is, at times, codified legally if not ethically.
+- In the public realm, secularism should not concede a single inch to religious intrusions.
+- When a political party denies scientific facts, then by all means, they should be called out on their anti-science stance.
+- It is not 'dehumanizing' to call someone an illegal immigrant if he/she resides in the host country illegally.
+- It is perfectly acceptable in a free and liberal society to criticize, debate, mock, and reject any ideology.
+- Marketing is fundamental to what makes us human. Marketing is not solely about selling chewing gum, cars, cellphones, and tourist packages. Everything in life involves the process of marketing something to someone.
+- While it is true that all individuals are equal under the law, this hardly implies that they are created equal.
+- Trigger warnings are part of the West's debauchery of self-indulgent victimhood.
+- The world remains a very hostile place for women in many corners of the globe. As such, we should all strive to battle such injustices wherever these might occur.
+- If one wishes to forgo the protection afforded by secular pluralism, then perhaps Western liberal democracies is not the right place for you to freely exercise your religion.
+- The great majority of men are attracted to feminine women who do not possess the body type of Michael Phelps. Beyonce is desired not because of her 'diabolical femininity,' but simply because of her femininity.
+- One of the hallmarks of the American justice system is that it should be blind to individuals' idiosyncratic descriptors, including biological sex, race, ethnicity, religion, sexual orientation, or physical attributes.
+- One of the ways by which astrology tricks human brains is via the Barnum effect, which is the process by which individuals take general and vague statements that could apply to anyone and anywhere, and find personal meaning in them.
+- Few people are as well-situated to speak about the laudable benefits of a humane immigration policy than me.
+- A society is only as great as the values that it enshrines as part of its ethos. A society is only as great as the extent to which it is willing to defend its identity.
+- The seven deadly sins should be updated. We should add an eighth sin: Cowardice.
+- Animals use a broad range of strategies to advertise themselves in the mating market. In some instances, visual cues highlight a morphological feature - for example, the peacock's tail.
+- At the basis of a country's immigration policy is the recognition that a country has the right to pursue its interests first, and whenever it wishes to be altruistic and humane, this is instantiated without ever risking the danger of its citizens and/or its cultural values.
+- To rightly recognize that men and women are equal under the law is perfectly removed from the fact that men and women are distinguishable beings that have been shaped by sex-specific evolutionary challenges. Accordingly, there is no reason to assume or expect that there should be equal representation of the two sexes across all contexts.
+- Academia is ruled by a pathological herd mentality. Stick out, and be prepared to get ostracized.
+- To the uninitiated, the Hasidim constitute a rather homogeneous sect of orthodox Jewry, but this is far from being true.
+- The Christmas-New Year's holiday season can be a double-edge sword when it comes to one's mental health.
+- In the game of life, survival is only part of the battle.
+- All religious and cultural values are not equal to one another.
+- In the public realm, secularism should not concede a single inch to religious intrusions. To argue otherwise is to violate the meaning of secularism.
+- Of all forms of diversity that should be celebrated on university campuses, none is more important than supporting, nurturing, and promoting intellectual diversity.
+- Evolutionary psychology offers a parsimonious framework for understanding which domains are likely to yield sex differences and, if so, in which direction.
+- Medical ethics is a fascinating discipline, as it deals with issues replete with complex philosophical, moral, and ethical considerations that are rarely black or white.
+- Most people experience some insecurity regarding one or more of their physical traits.
+- People have the right to live as equal citizens under the law. They do not have the right to demand that their identities be coddled and celebrated lest they might otherwise get offended.
+- The contents of an ideology are not sacrosanct simply because they are couched in the cloak of a religion.
+- What you believe in the privacy of your thoughts and what you do in the privacy of your home or house of worship is your business. What you do in the public realm is our collective business.
+- My family and I were welcomed to Canada more than 40 years ago. We sought and obtained refuge in a liberal, modern, and secular society, and put the ugliness of genocidal religious hate and associated tribalism behind us - or so we thought.
+- If any syllable that I utter might be interpreted in 13,000 different ways, then the best way for me to never be tarred and feathered is to never open my mouth. So the next time that someone calls on me for an opinion, you know what? I won't say a thing.
+- Individual freedoms are the primary engine by which the pursuit of happiness can be maximally instantiated.
+- A successful marriage requires commitment to teamwork.
+- Any clear-thinking person should be able to engage in nuanced thinking when it comes to complex political positions.
+- Trigger warnings are an instantiation of the West's zeitgeist of perpetual offense and victimhood that defines much of public discourse.
+- Early in my doctoral training at Cornell University, I became immersed in the behavioral decision theory paradigm.
+- In criticizing an ideology, one cannot be racist, hateful, or bigoted. These descriptors apply to positions held against people and not ideologies.
+- Our African ancestors were the first to engage in breathing. By that logic, I think by breathing today, we are engaging in cultural appropriation of the first Homo sapiens. And so the only way I will ask you to stop being racist is to suffocate - to stop breathing.
+- There is nothing morally objectionable in stating that a country has the inalienable right to decide on the exact number of immigrants and the exact type of immigrants that it wishes to let into its borders. As part of that calculus, it is perfectly rational to exhibit preferential treatment to immigrants who share one's cultural values.
+- In many instances, mate choice is a compensatory process. In other words, both men and women choose prospective mates by combining their scores on several key attributes.
+- I am always on the lookout for new cafes to hang out at.
+- In some instances, a gender imbalance is indeed a manifestation of sexism. In others, it is not.
+- Empires implode from within due to their own excesses.
+- It is an immeasurable tragedy to spend a sizeable portion of one's waking hours doing a job that does not excite you nor infuse you with a sense of purpose.
+- The explanatory power of evolutionary psychology is limitless!
+- Bottom line - cosmetics are used to accentuate an existing sex difference in facial contrast. This does not mean that women engage in this beautification practice with knowledge of this sexual dimorphism.
+- There is a natural rhythm to parent-child interactions, including the fact that some parental insights prove poignant and veridical decades after they were first shared with us.
+- People's most prized possessions carry deeply symbolic and emotional significance.
+- If you are of sound mind and body, many exciting and challenging adventures are within your reach irrespective of your age.
+- For humans, gift giving is a universal ritual laden with evolutionary implications.
+- Let us stop pathologizing masculinity. Instead, let us appreciate the endless ways by which men and women are similar to one another, as well as the important ways in which the two sexes differ.
+- There is nothing offensive about the word 'obese.' It is a descriptor of a person's weight.
+- Great leaders are not proverbial fence sitters. They judge. They opine. They challenge. They fight for their vision.
+- To study consumer behavior is to explore human nature at its most fundamental level using the modern world as its backdrop.
+- Amongst Western intelligentsia, to criticize if not loathe American values is viewed as progressive and liberal, whilst to support brutal and intolerant religious and political ideologies is a hallmark of being enlightened.
+- Consumer behaviour is a powerful realm from which to explore our biological heritage.
+- The Ferrari is exactly the same in the human context as the peacock's tail is on the peacock.
+- No ideology should ever get a pass simply because it is cloaked in a religious robe.
+- Memorable people do memorable things. Followers are seldom remembered. The herd mentality is the killer of innovation. When appropriate, be bold in your undertakings.
+- There is an intellectual snobbery that, regrettably, many academics suffer from. They are proud their paper is only read by a small group of people - makes it very exclusive. Let's get rid of that. If it's truly important, people should be excited about it.
+- Needless to say, I fully support the legal codes that are meant to protect individuals from discrimination.
+- My purity manifests itself in countless ways, including an utter inability to sit idly when exposed to attacks on truth, reason, logic, and/or individual dignity.
+- In no culture ever studied have women repeatedly preferred to mate with pear-shaped, low-status, tepid men possessing high-pitched, nasal voices.
+- As a professor of marketing, I have a professional interest in examining how companies create integrated messages when communicating a corporate image.
+- As someone who escaped religious persecution in Lebanon and whose parents were kidnapped in Beirut, I fully support the protection of all individuals from institutional discrimination. That said, I am weary of the ethos of victimhood that has parasitized our culture.
+- There are many benefits to having interesting friends on Facebook. In my case, given that fellow academics constitute a sizable portion of my online friends, I am at times privy to shared studies that I might otherwise miss (or perhaps only identify at some future date).
+- One's political views and/or religious beliefs should not exist in an impenetrable and inviolable bubble wherein they are protected from criticism or scrutiny.
+- Everyone has the right to practice their religious beliefs in private but expect that people might publicly reject said beliefs.
+- Regrettably, many religious traditions exacerbate our innate proclivity to divide the world into two clearly demarcated camps, and in doing so, this fans the flames of intolerance and hate.
+- Secularism and pluralism are two of the defining ethos of Western societies. The former decouples religion from governmental institutions whilst the latter seeks to protect the rights of all citizens to freely practice their creed.
+- Atheists do not seek to violently impose their non-belief onto others. They simply reject all gods inherent to the 10,000 religions known to mankind.
+- As members of a social species endowed with large brains, we are natural-born marketers. Capitalism, the economic system that has elevated innumerable people out of abject poverty and misery, is founded on marketing. Everything that defines your daily existence has the indelible marks of marketing on it.
+- My personal growth stems from the humility with which I navigate the world, namely with a reverence for all of the knowledge that I've yet to learn but that is out there available to me.

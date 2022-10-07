@@ -1,0 +1,25 @@
++++
+author = "Pierre Boulez"
+title = "Pierre Boulez Quotes"
+quotes_len = "19"
+description = "the best 19 Pierre Boulez Quotes"
++++
+- People see me as a theoretician, but my music is also seductive, even spiritual.
+- My parents were so far from the music world that they couldn't conceive how you could make a living. But for me, it was the only solution for the rest of my life.
+- I am not nostalgic about things. When you have a kind of improvement, I am not nostalgic about the past.
+- All the people with whom I was very close at one point in my life - Stockhausen, Berio, Ligeti, Nono, Bernd Alois Zimmermann - they are all gone.
+- I discovered 'Rite of Spring' when I was 21. As a matter of fact, not with orchestra first, because it was still a work which was not often performed. Don't forget that I was 19 in 1944, still the Occupation time. So it was performed slightly after the end of the war, in 1945.
+- Some members of the Vienna Philharmonic convinced me to try Bruckner, which I have never done before. And that was interesting to me to have this experience with this orchestra, which knows the repertoire very well, and to be confronted with this knowledge, and to learn from them.
+- I always admired very much the virtuosity in Strauss because, really, he's a master of using the orchestra. And I like virtuosity, I must say, even if the taste of the music is not always mine.
+- I always think the relationship between a teacher and a student should be short and maybe violent. You don't need to spend years together. All you need is an explosion: you are the material to explode; the teacher is the detonator.
+- I said if I ever conducted, I would always give myself the best chance to succeed - though sometimes, despite everything, you still fail.
+- 'Music for Strings, Percussion, and Celesta' is a kind of expansion of chamber music.
+- Webern was a kind of 'Kamchatka of music,' an unknown country of music. That's true; for me and people of my generation, he was a radical - you couldn't be more radical than he was.
+- Conducting is more difficult than playing a single instrument. You have to know the culture, to know the score, and to project what you want to hear. Some conductors are well prepared but cannot transmit their ideas to an orchestra, and others are good communicators but have nothing to transmit because they are not absorbed enough in the score.
+- Acting and performing music is exactly the same. Therefore, an actor, for instance, who is very impressive, he's not simply imitating or trying to imitate, but he must dominate this kind of feeling, and then he transmits it in a much stronger way.
+- In business, in the music world, people know that I can be very friendly and warm but that, after a certain moment, the business is closed. I like to be alone: in order to concentrate on my work, the social life does not exist. It has never existed for me, really. I have chosen instead the working life because I prefer that.
+- I almost chose the career of an ethnomusicologist because I was so fascinated by that music. It gives a different feeling of time.
+- The first time I came to New York in 1952, I was busy with music. I made the acquaintance at this period with John Cage, and also the acquaintance of Varese for the first time. We were very good friends. He gave me some scores, and we recorded them a little later.
+- The most difficult problem in conducting is intonation. You must know what is wrong and how to correct it.
+- Certainly I was a bully. I'm not ashamed of it at all. The hostility of the establishment to what you were able to do in the Forties and Fifties was very strong. Sometimes you have to fight against your society.
+- I wanted contemporary music to be treated the same as the traditional repertoire - performed regularly by people who knew each other and the music. That is the way you convince an audience.

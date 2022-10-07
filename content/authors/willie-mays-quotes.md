@@ -1,0 +1,37 @@
++++
+author = "Willie Mays"
+title = "Willie Mays Quotes"
+quotes_len = "31"
+description = "the best 31 Willie Mays Quotes"
++++
+- In order to excel, you must be completely dedicated to your chosen sport. You must also be prepared to work hard and be willing to accept constructive criticism. Without one-hundred percent dedication, you won't be able to do this.
+- Yes, I had to learn how to live life outside, but I had so many people help me.
+- And my father didn't have money for me to go to college. And at that particular time they didn't have black quarterbacks, and I don't think I could have made it in basketball, because I was only 5' 11". So I just picked baseball.
+- It's not hard. When I'm not hitting, I don't hit nobody. But when I'm hitting, I hit anybody.
+- Baseball is a game, yes. It is also a business. But what is most truly is is disguised combat. For all its gentility, its almost leisurely pace, baseball is violence under wraps.
+- People talk about that catch and, I've said this many times, that I've made better catches than that many times in regular season. But of course in my time, you didn't have a lot of television during the regular season. A lot of people didn't see me do a lot of things.
+- I would try and help everybody, because the game was so easy for me. It was just like walking in the park.
+- I was very fortunate to play sports. All the anger in me went out. I had to do what I had to do. If you stay angry all the time, then you really don't have a good life.
+- When I was in Birmingham I used to go to a place called Redwood Field. I used to get there for a two o'clock game. Where can you make this kind of money playing sports? It was just a pleasure to go out and enjoy myself and get paid for it.
+- In 1950, when the Giants signed me, they gave me $15,000. I bought a 1950 Mercury. I couldn't drive, but I had it in the parking lot there, and everybody that could drive would drive the car. So it was like a community thing.
+- I didn't say I was that smart, I said I went to class and I enjoyed what I was doing.
+- When I'm not hitting, I don't hit nobody. But, when I'm hitting, I hit anybody.
+- At ten I was playing against 18-year-old guys. At 15 I was playing professional ball with the Birmingham Black Barons, so I really came very quickly in all sports.
+- I don't compare 'em, I just catch 'em.
+- I think I was programmed to do good things when I came into the majors. I knew how to play.
+- They throw the ball, I hit it. They hit the ball, I catch it.
+- I was a baseball player, I taught baseball, and all of a sudden I was in the business world. Now I used the baseball world to talk about their product. Not too much, just enough to keep going. Just be yourself and you'll never have a problem. That's what I did.
+- The greatest challenge I think is adjusting to not playing baseball. The reason for that is I had to come out of baseball and come into the business world, not being a college graduate, not being educated to come into the business world the way I should have.
+- Defense to me is the key to playing baseball.
+- I was very blessed with a good body. Never got hurt. Never was in the hospital. The only time I was in the hospital was when I would get exhausted a little bit, and go in for a check-up or something.
+- That's how easy baseball was for me. I'm not trying to brag or anything, but I had the knowledge before I became a professional baseball player to do all these things and know what each guy would hit.
+- When I got to professional ball I used to play 150 games every year. It depends on how many games there was.
+- I think I was the best baseball player I ever saw.
+- I always enjoyed playing ball, and it didn't matter to me whether I played with white kids or black. I never understood why an issue was made of who I played with, and I never felt comfortable, when I grew up, telling other people how to act.
+- I'm a very lucky guy. I had so many people help me over the years that I never had many problems. If I had a problem, I could sit down with someone and they would explain the problem to me, and the problem become like a baseball game.
+- If you can do that - if you run, hit, run the bases, hit with power, field, throw and do all other things that are part of the game - then you're a good ballplayer.
+- Robinson was important to all blacks. To make it into the majors and to take all the name calling, he had to be something special. He had to take all this for years, not just for Jackie Robinson, but for the nation.
+- I played with the Birmingham Black Barons. I was making 500 at 14. That was a lot of money in those days.
+- I don't mean to be bashful, but I was.
+- Every time I look at my pocketbook, I see Jackie Robinson.
+- Maybe I was born to play ball. Maybe I truly was.

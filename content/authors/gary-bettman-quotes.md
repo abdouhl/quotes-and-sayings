@@ -1,0 +1,96 @@
++++
+author = "Gary Bettman"
+title = "Gary Bettman Quotes"
+quotes_len = "90"
+description = "the best 90 Gary Bettman Quotes"
++++
+- I think there's always a line between what is parody in good fun in chanting and what is intended to belittle certain segments of society.
+- What we have tried to instill across the league through ownership and management is that we stand for inclusiveness and to judge somebody on the merits.
+- We don't worry about the integrity of our game. I'm more focused on the atmosphere in the arena, and that's something we're comfortable with going forward.
+- On the issue of behavioral health and the like, the program we have in place has always been available to former players as well.
+- In '94, we made the deal during collective bargaining that wasn't the right deal, just to save the season. Allowing the 'in the crease' rule, the foot-in-the-crease rule, we should have not done.
+- We're concerned how gambling and betting affects the NHL game and changes the perception of and challenges the integrity of the NHL game.
+- We'll have clinics and educational events and conferences to get more and more young players developing as hockey players.
+- I view myself as a dealmaker.
+- Our sport probably has the best history and tradition of being engaged in international competition.
+- Fighting is one of those things that gets tons of attention, far more than it deserves.
+- What our fans want, what our fans believe, what our fans are interested in is why we are what we are. But, nevertheless, ultimately we have to do the things that we believe are essential for the long-term health of the game, of the league, and of all of our franchises.
+- I believe, certainly in the NHL, a player who can help a team win because he can contribute on the ice is going to be coveted whatever his beliefs may be or whoever he may be. That goes to national origin, religious beliefs, or sexuality.
+- I don't weigh into politics.
+- We don't want our players getting hurt.
+- We don't tell the officials to change the standard for the playoffs, but as we all know, time and space tends to evaporate very quickly in a playoff game; there tends to be a lot more physicality and a lot more adjustments in the course of a series.
+- There are a couple people who have complained on other teams about some of the things that Pittsburgh players have done. Some of that goes in the category of gamesmanship. Some of that goes to the fact that we need to be vigilant as a league to make sure that players aren't unnecessarily and inappropriately hurt.
+- I couldn't do what I do day-in and day-out if I didn't love the game.
+- My message to the kids and our fans is hockey's a great game. There's a lot of hockey being played at all levels. Get involved, do it. We will be back and we will be back better than ever and hopefully as soon as possible. Don't give up on the game. It's too good.
+- If the IOC would move the Olympic hockey tournament to the summer, that would be great. We'd be thrilled to have our players participate because then it doesn't affect our season.
+- I don't think taunting chants at players on the other side of the ice is intended to be sexist in the slightest. It's like when you call a goaltender a sieve, they chant that. Is that now inappropriate also?
+- I think the media world is adjusting to the digital age.
+- There is less fighting in the game than we had years ago. I mean, we penalize it.
+- We're not anti-Olympics, we're anti-disruption to the season.
+- While players say they like the five-day break, they're also saying they don't like the compression that goes along with it, and that's something that is of great concern to us as well.
+- We're certainly not in position to expand into the East. We've been very candid and up front that if, in fact, we go through an expansion process, the world will know about it.
+- I think it's fair to say that all of the teams that have been in the playoffs have played very physically.
+- We encourage the growth of women's hockey.
+- From as early as I can remember, I was focused on becoming a lawyer.
+- Let's put it this way: I would consider my skiing ability to be far superior to my skating ability. And, in fact, my 10-year-old grandson, who's a AAA squirt, can skate circles around me.
+- We did the World Cup to relaunch our international efforts, and that served as a foundation.
+- You don't want people rooting for anything other than the team that they love and the players that they think the world of to win. We don't want there to be another agenda.
+- Our franchises have never been healthier. Our league, in terms of its economic footing, has never been healthier.
+- It takes two sides to make a deal, two sides to negotiate and two sides to make it go bad.
+- Market size, particularly when you're dealing with major media markets, has an impact in terms of gathering attention.
+- The Canadian franchises and Canada as a market for NHL hockey has always been a priority for us.
+- Our economics are not baseball's economics. Our game is not baseball's game. Our owners are not baseball's owners, with one or two exceptions. Our union is not baseball's union. What we do has to be crafted and suited to address hockey, to address the NHL, to address our 30 teams and our 700-plus players.
+- There are always going to be critics... and I have always had a rule: no matter how good the commentary is, or how bad the commentary is, it's more important that you do what you think is right.
+- My rooting interest these days is first and foremost competitive hockey, and secondly in officials not making a mistake.
+- You can have the biggest markets in the world, but if the game isn't exciting, compelling, and competitive, it's not going to generate a lot of interest.
+- We went from journalism, in newspapers that gets heavily edited, to blogs, where you can express your opinions, to tweeting, where you can say anything, and it gets repeated and becomes fact when it isn't. It's something the entire world is going to have to come to grips with.
+- I think it's our job to create a culture and an environment where a gay player knows he is safe and welcome. If and when that happens, believe me - that person will have the full support of the commissioner's office.
+- We are not giving up on the Coyotes in the Greater Phoenix Area... The team has got a number of options and is going to pursue them, so nobody should think that team is moving other than out of Glendale.
+- All have used the economic opportunity of a new arena project to transform their cities into the future.
+- Young people, particularly in their teens and 20s, are not consuming sports the way my generation did. They are doing lots of things; they are multitasking. They are getting downloads; they are getting alerts on their computers or on their cellphones, and they are consuming sports in a more real-time but less full-time basis.
+- It's not about big markets or small markets. It's not about dominant teams or not. It's about the actual competition and how good the games are, how good the series turn out. That's what I think is the most important for fans.
+- Eliminating fighting would mean eliminating the jobs of the 'fighters,' meaning these guys would not have NHL careers.
+- Sports, as a media property, is increasingly valuable because it's something you have to have live. As a result, we're a better touch point for sponsors and advertisers because our commercials typically don't get zapped out.
+- I never rule anything in or out; life can surprise you.
+- I think it's very difficult to generalize as to why, in a particular league or a particular industry, somebody has or has not come out. We certainly don't want a player to come out for our sake. It should be what's right for him and something that he has to be comfortable with.
+- The fact is, I view part of what I do is, if necessary, on difficult issues, be the lightning rod.
+- I think that when somebody loses a bet, they tend to sometimes confuse their motives in rooting and enjoying the game because if you lose your bet, even though the team you're rooting for wins, you have a potentially conflicted outcome.
+- Relatively, a very small percentage of betting takes place on hockey and even baseball because of the nature of the game and the scoring.
+- At least two or three of the leagues in Europe over the last few months have said to us, 'We hope you go to the Olympics,' and I looked at them, and I said, 'Why?' and they go, 'Because if you don't send NHL players, we have to send our players, and that's way too disruptive to our season.'
+- If you want to know how I feel, I'll summarize it in one word - terrible.
+- I believe that the Greater Phoenix Area is a terrific sports market; it's a terrific hockey market.
+- When you're in other time zones in other places, you don't get quite as much attention; you don't get quite as much visibility for the game, and you give up a lot to do it.
+- If you're thin-skinned, you don't belong doing what I do for a living.
+- To be the organization that we want to be, we have to have a place to play.
+- I would hope there would be a greater appreciation by casual sports fans of the incredible skill and passion of our players.
+- The good news for us is the NHL has never been stronger, never been more popular, and that, I guess, has led to a lot of interest being expressed from a number of places, an interest in getting an expansion team, and Las Vegas happens to be one of those places.
+- The Steelers run a great organization.
+- I don't feel that it's either necessary or appropriate for me to comment on what the NFL either says or does.
+- There's no question that the Kings have been, are, and can be great hosts for any major events.
+- Doing jersey advertising for the World Cup is not in the same universe as putting advertising on NHL sweaters.
+- I don't worry about the integrity of the game. Our players are professionals.
+- I think it's fairly clear that playing hockey isn't the same as playing football.
+- There are lots of come-from-behind wins, games getting tied in the last period, teams going on to win. That, I think, tells the best story. Whether or not some teams have more grit, better chemistry, or more luck or more skill, it's still within the parameters. I think that makes for great storytelling and great interest for our fans.
+- I was always a fan of the game, and I wouldn't have taken this job if I wasn't a fan of the game.
+- The relationship between concussions and the asserted clinical symptoms of C.T.E. remains unknown.
+- The issue of how the game is played is something that's constantly being reviewed internally with the Players' Association, with the general managers, and it's something that we continue to monitor on a daily basis.
+- We just want to see entertaining, exciting games, and we want the officials to do a good job.
+- I know when you're in the business of cover sports, you look for 60-minute games and a result. It's never that simple.
+- I don't really think about having a retrospective on my high-school years. It's not something that, from a positive or a negative standpoint, is a driving force in my life.
+- While we know gambling is part of the industry in Las Vegas, we're not going to make it all that easy for you to pick up a ticket, a gambling ticket, on your way into the arena.
+- What you want to do, particularly when you're dealing with a professional sports league and franchises and people's passionate commitment to the game and for the team they root for is, it has to be sustainable.
+- The Olympics are very proprietary about letting others promote and market what's going on, so we shut down for 17 days, and they don't let us do a whole lot in return for giving our players to them. We don't get compensated, and we've never looked for compensation.
+- I'm not here to win a popularity contest.
+- None of our series are ever static in terms of the dates. We always have a range of flexibility to respond to whatever may or may not happen.
+- I'm having trouble understanding why there hasn't been further progress on CalgaryNext.
+- NHL clubs don't like having to shut down at a critical part of the season and disrupt our season for anything, let alone a situation where we're not given an opportunity to promote our presence.
+- NHL clubs have not wanted to go to the Olympics, and we have been saying that for months if not years.
+- I don't see the Hurricanes relocating, period. I think the Triangle is a terrific market.
+- A good fan base has developed around the Hurricanes, and I see the opportunity for continued growth for this franchise in the future.
+- When you look at the team that Jimmy Rutherford has put together and the players that he has, this is just a great story of excellent in professional sports.
+- Having to respond to things that are made up or untrue tends to be a waste of time.
+- Whatever you do needs to be sustainable over time, and taking the money in the short term and taking it in a bubble - like buying an Internet stock in 2000 - may not be sustainable.
+- If you're a sports fan, it is really cool when you see the best-on-best for hockey at the Olympics.
+- I think there needs some attention to be paid to what sport is going to represent to young people: should it be viewed in the competitive, team-oriented sense that it is now, or does it become a vehicle for betting, which may, in effect, change the atmosphere in the stadiums and the arenas?
+- Obviously, we're focused on the Winter Classic.
+- Because of the way my words get scrutinized, I have to use a level of precision so people don't accuse me of misleading them.

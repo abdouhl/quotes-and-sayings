@@ -1,0 +1,17 @@
++++
+author = "Graham Taylor"
+title = "Graham Taylor Quotes"
+quotes_len = "11"
+description = "the best 11 Graham Taylor Quotes"
++++
+- The biggest thing I've found since I left the game - and I'm glad I chose to leave rather than being sacked - is that so many people are in football for the wrong reasons. Not because they love the game, but because they smell money.
+- You go to Holland, France, Germany, every community, the tiniest village, they have magnificent, pristine sports facilities.
+- In football, time and space are the same thing.
+- To be really happy, we must throw our hearts over the bar and hope that our bodies will follow.
+- I have to choose my words carefully because I don't want to sound like one of those who goes on about how things were better in my day.
+- Football needs its roots, it needs its connection with the supporters. But those in charge seem to think they can do without them.
+- Shearer could be at 100 per cent fitness, but not peak fitness.
+- Very few of us have any idea whatsoever of what life is like living in a goldfish bowl, except, of course, for those of us who are goldfish.
+- In club football you have your players and staff with you all the time, preparing for two games a week, you know them inside out, you have a discipline over them.
+- It's the only way we can lose, irrespective of the result.
+- In international football you have 10 games a season, with players from different clubs. There's no time for proper coaching; they're just recovering from playing on the Saturday.

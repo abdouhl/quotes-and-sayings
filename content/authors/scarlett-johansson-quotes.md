@@ -1,0 +1,63 @@
++++
+author = "Scarlett Johansson"
+title = "Scarlett Johansson Quotes"
+quotes_len = "57"
+description = "the best 57 Scarlett Johansson Quotes"
++++
+- Chickens scare me. I don't like them. They seem a little floppy or something.
+- As a devoted mother and private person, and with complete awareness that my daughter will one day be old enough to read the news about herself, I would only like to say that I will never, ever be commenting on the dissolution of my marriage.
+- It's a required part of your film history to know who Woody is. His movies are so wonderful, and not just funny but so insightful about human behavior.
+- Sometimes I live in Paris for a couple of months, then I have a job some place, and then I come back to New York. I guess my base is New York-ish, 'cause my family is here. But my husband's family is all in Paris, so we try to spend a lot of time there, also. Especially now that we have Rose.
+- I value my privacy and my personal life - and I certainly don't exploit my personal life.
+- I believe in finding a soul mate. I've always been in monogamous relationships. I would never want to be in an open one. It'd be too awful. Monogamy can be hard work for some people. I don't think it applies to everybody, and I don't think a lot of people can do it.
+- One of the best things for a woman to hear is that she is sexy.
+- I mean, it's nice to get a dinner reservation ahead of other people, but when it comes down to it, the most important thing to me is the actual work.
+- LA's a very hard place to be unless you have people there that love you. It can be very, very lonely, and it can eat you up if you don't take care of yourself. In LA, nobody wants to talk to each other, everybody's giving each other catty looks.
+- I think the idea of marriage is very romantic; it's a beautiful idea, and the practice of it can be a very beautiful thing.
+- I do work that I feel I have something to contribute to.
+- If you take a job as a public advocate, then you must advocate publicly.
+- I believe in finding a soulmate.
+- Whenever I'm taking time off, all I'm thinking about is working.
+- Powerful women often get concerned with this idea that they're going to be seen in this unforgiving light. Screw that. It's so old-fashioned... It's so uninspired and actually really cowardly.
+- I get up early, go to the coffee shop to play cards for a while.
+- I definitely believe in plastic surgery. I don't want to be an old hag. There's no fun in that.
+- There's no such thing as an aura of mystery anymore. It doesn't exist. That's a thing of the past.
+- I've always been very competitive, and a part of that is pushing your boundaries - taking a risk and being able to live with the loss that comes with taking a risk.
+- I look for projects with filmmakers who want to make things that give the audience a fresh experience.
+- If you feel glamorous, you definitely look glamorous.
+- When I decide I want to have children with somebody, I think it would be nice to be married to that person.
+- I think marriage initially involves a lot of people who have nothing to do with your relationship, because it's a legally binding contract, and that has a weight to it.
+- I hope they make a video game of me. At least I wouldn't have any cellulite then.
+- I've never been a superhero-comic fan exactly.
+- I've always had the same principle for choosing roles, which is to try and make movies that I would pay to see. As I get older, that's meant different things.
+- I certainly would never presume to play another race of a person. Diversity is important in Hollywood, and I would never want to feel like I was playing a character that was offensive.
+- I like this job. I like doing it. It's good to be challenged like that.
+- You think that your life is going to be one way, and then, for various reasons or whatever, it doesn't work out.
+- I don't go to McDonald's anymore. After I saw Super Size Me... no way!
+- I don't do damsel in distress very well. It's hard for me to play a victim.
+- I've always been interested in local politics. I never rule anything out, but I have a very full life right now, with a very young daughter. I have a lot that I want to do still with my career... I can't imagine that would be a possibility for a long time.
+- I went through this realization that acting, at its heart, is the ability to manipulate your own emotions.
+- I'm not anxious to starve myself. For me, it's not at all sexy to be ultra-thin.
+- Being married is different than not being married, and anybody who tells you that it's the same is lying.
+- When you spend a lot of time, like I do, just standing around and waiting, or being moved from place to place, every minute gets consumed by something someone else has set up for you. And it's not like I'm always in a beautiful place wearing something gorgeous.
+- I'm happiest when I have something to focus my energy on.
+- I've always been very determined, ever since I was a little girl, to make my way.
+- It's nice to have a crush on someone. It feels like you're alive, you know?
+- I'm not telling people where to give money, but if there is to be a spotlight shed on me, then I'd like to direct that spotlight onto causes I think are worthy or onto interesting, progressive figures.
+- I would never knowingly go into a film that I wouldn't pay to see, or something that didn't challenge me.
+- I would have loved to have gone into diagnostic medicine.
+- It's important for people to figure out their own lives before involving someone else - to gauge where you are and work on your own issues.
+- I think most of the impact I have over time most people will not actually know about.
+- I don't think it's natural to be a monogamous person.
+- Everyone has been discriminated against or harassed - sexism is real.
+- These tabloid magazines - I think they're hideous and the downfall of society.
+- I've stood around bogs wearing half a million dollars' worth of jewelry, up to my knees in the rot, thinking how much more or less the place smelled like a sewer than it did the day before.
+- Just because I'm the top-grossing actress of all time does not mean I'm the highest paid. I've had to fight for everything that I have. It's such a fickle and political industry.
+- I never struggled with trying to figure out what it was I wanted to do or what made the sparks go for me.
+- I work a lot, so I don't really live anywhere for very long periods of time.
+- I just adored working with Woody. He was more than I could have ever dreamed of. I'd do it a million times over.
+- I still eat a burger at a counter with ketchup dripping down my face.
+- I'd rather go to the White House Correspondents' dinner than any awards show.
+- I just want to work on things that are really hard, and when I'm not working on things that are really hard, I want to hang out with people I like to be with, and that's it.
+- I have always... expected a lot from myself.
+- I feel like in 10 or 15 years' time our children are going to look back and say, 'What? You were around when gay people weren't allowed to get married?'

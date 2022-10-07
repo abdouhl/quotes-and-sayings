@@ -1,0 +1,106 @@
++++
+author = "Geert Wilders"
+title = "Geert Wilders Quotes"
+quotes_len = "100"
+description = "the best 100 Geert Wilders Quotes"
++++
+- I never worked for any secret service, certainly not the Israeli secret service.
+- I'm an elected politician. If you don't agree with me, vote for somebody else.
+- Democracy on a supranational level is simply impossible. In order to have democracy, there needs to be a nation.
+- If I stop or moderate my voice, people who use or threaten violence against democracies would win. I will never let them win.
+- I am not ashamed to say that our culture is far better than the Islamic culture, which is a culture of barbarism.
+- Nexit is the best thing that can happen to us.
+- I can't set one foot out of my house or anywhere in the world without security.
+- I make a clear distinction between the people and the ideology, between Muslims and Islam, recognizing that there are many moderate Muslims.
+- I don't hate people.
+- It is a travesty that I have to stand trial because I spoke about fewer Moroccans.
+- People are equal, cultures are not.
+- I have said what millions of people think and find. It is a travesty that I have to defend myself in court for this.
+- Wake up, Christians of Tennessee. Islam is at your gate. Do not make the mistake which Europe made. Do not allow Islam to gain a foothold here.
+- The European Union cannot be compared to the United States. America is a nation, but Europe is not. Europe is a continent of many different nations with their own identities, traditions and languages. Robbing them of their national democracies does not create a European democracy - it destroys democracy in Europe.
+- Stating my views on Islam has brought me to court on charges of 'group insult' and incitement to racial hatred. I am being tried for voicing opinions that I - and my constituents - consider to be the truth. I am being tried for challenging the views that the ruling establishment wants to impose on us as the truth.
+- While there are many moderate Muslims, Islam's political ideology is radical and has global ambitions.
+- Europe started very well in the 1950s with a trading bloc but it became a political project, and we transferred sovereignty to them. If you don't know what you are - and this is the intention of the E.U. elites - you don't know what you're not either. We should regain our sovereignty again.
+- European Parliament should not be involved in foreign politics.
+- Islam and freedom are not compatible.
+- Immigrants have to adopt our values, not the other way around.
+- I believe we have been too tolerant of the intolerant. We should learn to become intolerant of the intolerant.
+- Prosecuting me as an elected politician for expressing the opinions of my constituents is absurd.
+- We want the Netherlands to leave the E.U., join EFTA and, like Switzerland, negotiate bilateral trade agreements with the E.U. and the rest of the world.
+- I experienced first-hand the degeneration of the poldermodel in full force.
+- I believe the Islamic ideology is a retarded, dangerous one, but I make a distinction. I don't hate people. I don't hate Muslims.
+- Don't let anybody fool you who says Islam can be moderated. It will not be moderated in a million years.
+- Why can't you ask people if they want more or fewer Germans or Belgians or Moroccans?
+- Europe is my home, Europe is my continent. Europe is where we live. The European Union is a political bureaucratic organization that took away our identity and our national sovereignty. So, I would get rid of the European Union and be a nation-state again.
+- Mass immigration changes countries beyond recognition. Ordinary people are well aware of that.
+- My intention is to show the real face of Islam. I see it as a threat.
+- If one in four Dutch people saying they will vote for my party, it's ridiculous to say we're divisive or extreme.
+- It's not about left and right, it's about common people and their issues.
+- I'm very strong willed and I'm very impatient as well.
+- Islam is something we can't afford any more.
+- People and nations wither away without the freedom to question what is presented to them as the truth.
+- Excluding certain problems from the political debate by making it a crime to discuss them won't lead to the disappearance of these concerns, let alone contribute to a solution.
+- I don't create hate.
+- I can't even go on a spontaneous walk or to a restaurant without armored cars and police, but there is no alternative.
+- Of course I am not evil.
+- Islam is the Trojan Horse in Europe.
+- We'll never join up with the Fascists and Mussolinis of Italy.
+- We in the Netherlands have the right to demonstrate and the right to speak up if we don't agree with something.
+- Cultural relativism has made it so people don't know who they are anymore.
+- Dutch values are based on Christianity, on Judaism, on humanism.
+- There is a perfectly good alternative to the European Union - it is called the European Free Trade Association, founded in 1960. Switzerland, Norway, Iceland and Liechtenstein are members. E.F.T.A. stands for friendship and cooperation through free trade.
+- We must have the courage to restrict legal immigration instead of expanding it, even if we sometimes have to build a wall.
+- My view on Islam is that it is not so much a religion as a totalitarian political ideology with religious elements.
+- I don't want a wall being built around the Netherlands.
+- It's sad that in the struggle for my country's freedom, I have lost my personal freedom.
+- I'm very thankful to live in a country where the government provides my protection - many police and armored cars and safe houses and things like that.
+- The Netherlands has been too tolerant to intolerant people for too long.
+- I have something against Islam.
+- We can never allow people who use nondemocratic means, people who use violence instead of arguments, people who use knives instead of debates, we can never allow them to set the agenda.
+- People hate me, or they love me. There's nothing in between. There is no gray area.
+- The Dutch are still allowed to speak critically about Islam, and resistance against Islamization is not a crime.
+- In referendums in 2005, the Dutch and the French electorates rejected the European Constitution, which aimed to turn the E.U. into a genuine state. But Brussels refused to take no for an answer. It went ahead with its plans for a constitutional treaty, notwithstanding the people's opposition. Brussels thinks it knows better than the people.
+- Israel is a lighthouse and the only democracy in a dark and tyrannical region. It's part of us, of our European identity.
+- It's not my intention to have anything at all to do with violence.
+- I believe a real democracy can only flourish when you have your own nation state, your own identity, even your own flag you can rally around.
+- There is no equality between our culture and the retarded Islamic culture. Look at their views on homosexuality or women.
+- Unfortunately, there is a tendency among political elites to distrust the opinions of ordinary people. They are perceived to base their views on dark instincts and unjustified fears, rather than on rational choices. European voters, however, are highly educated, and it is ridiculous to suppose they can be easily fooled or manipulated.
+- We should be tolerant to people who are tolerant to us. We should be intolerant to people who are intolerant to us.
+- We must precisely do what the terrorists prevent us to do.
+- I hate consensus. I like confrontation.
+- Europe should be a continent of nation states who are free trading, with our own identities, not a bunch of Eurocrats nobody voted for.
+- We don't hate Muslims, but they have to integrate.
+- I don't want to get rid of the typical Dutch tolerance.
+- We want to make our own Netherlands, to close our borders and to keep all that money that we give to the foreigners, there is billions, to Africa for development, to Brussels, to Greece, to asylum seekers in the Netherlands, we will stop that and give all that money to the Dutch people living in the Netherlands.
+- Mr. Trump is Mr. Trump. I'm Mr. Wilders. I'm not anybody's copy or whatsoever.
+- It is my right and my duty as a politician to speak about the problems in our country.
+- We are definitely not racists; we don't care about people's skin color.
+- I am not a consensus politician... This is something that is really very un-Dutch.
+- Wherever Islam gets its foot on the ground, you see less freedom, less freedom of speech, less freedom of anything.
+- We need to stop the Islamisation of the Netherlands.
+- I want the fascist Qur'an banned.
+- Citizens should never allow themselves to be silenced.
+- The message, 'stop Islam, defend freedom,' is a message that's not only important for the Netherlands but for the whole free Western world.
+- If you speak the truth - and I believe people should speak the truth about Islam - you pay a very heavy price.
+- We want to decide how we control our borders, our money, our economy, our currency.
+- We should not import a retarded political Islamic society into our country.
+- I am not saying all Muslims are wrong or are terrorists or criminals. You will never hear me say that.
+- I'm very afraid of being linked with the wrong, rightist, Fascist groups.
+- The European Union is robbing us of our national identities, our nation states.
+- On Islam, it is true that I am tough. Perhaps tougher than I should be if my only aim was to get votes.
+- The U.S. is so important to me, Europe is important.
+- The Moroccan scum in Holland... once again not all are scum... but there is a lot of Moroccan scum in Holland who make the streets unsafe, mostly young people... and that should change.
+- It's not that we have two different kinds of Islam. I acknowledge the fact that we have two kinds of people. There are moderate Muslims and non-moderate Muslims. But there is really only one Islam, and this is the Islam of the life of Muhammad, of the Quran, of the Hadiths, of the Sunnah.
+- Festering political problems do not go away simply because they are kept in a dark corner.
+- The threats against me are not only in Holland, but outside the country as well. We are talking about very serious threats on the part of different terror groups, and when you are aware of the extent of the threats, it's only human to think that something will indeed happen.
+- Without sovereignty, a nation cannot exist. Without borders, it can't be defined or protected.
+- Not all are scum, but there is a lot of Moroccan scum in Holland who makes the streets unsafe.
+- I believe that politicians have a public trust to further debates about important issues. I firmly believe that every public debate holds the prospect of enlightenment.
+- We are not for cutting social welfare and are for more health care.
+- My main message is that I have a problem with the Islamicisation of our societies.
+- I don't believe in political self-censorship.
+- We don't want a European super state.
+- I am responsible for my own actions and for nobody else's actions.
+- Not all Muslims are terrorists, but almost all terrorists are Muslims.
+- Freedom is the source of human creativity and development.
+- We should wake up and tell ourselves: You're not a xenophobe, you're not a racist, you're not a crazy guy if you say, 'My culture is better than yours.'

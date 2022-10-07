@@ -1,0 +1,74 @@
++++
+author = "Spike Lee"
+title = "Spike Lee Quotes"
+quotes_len = "68"
+description = "the best 68 Spike Lee Quotes"
++++
+- When I went to school, you had to take art, you had to play an instrument. You had to play an instrument. But it's all degraded since then. I do not know what kind of nation we are that is cutting art, music, and gym out of the public-school curriculum.
+- I respect the audience's intelligence a lot, and that's why I don't try to go for the lowest common denominator.
+- I think it is very important that films make people look at what they've forgotten.
+- And one thing Hollywood does well is sequels.
+- My cousin Malcolm Lee is also a filmmaker.
+- A lot of times you get credit for stuff in your movies you didn't intend to be there.
+- I'm very careful about how I portray violence in my films. I do believe that violence, especially violent video games, are not a good thing for young kids.
+- Mike Tyson is the most complex person I've ever met in my life. I've known Mike since 1986. We're both from Brooklyn. I didn't know him growing up, but once he became heavyweight champion, I knew him then.
+- For me, I believe in God, God is real.
+- I get offered to do stuff where the money's nice but it's not something I want to do - I get offered a lot of commercials too.
+- I am very fortunate I can send my kids to private school, but everybody does not have the money. If you cannot get your kid in a good school today, your kids are going to be behind the eight ball.
+- Right now a lot of people are still choosing to go to Toronto instead of shooting in New York City, something I haven't done and something I hope I'll never have to do.
+- I knew I was never going to play professional sport, but I loved playing and I went to all the games I could afford to.
+- I used the principles of Kickstarter to make 'She's Gotta Have It.' We filmed that in 1985 to 1986. The final cost was $175,000. I didn't have that money. It was friends, grants, donations. We saved our bottles for the nickel deposit.
+- I had a great education. From kindergarten to John Dewey High School in Coney Island, I am public-school educated.
+- I don't think I'm a total pessimist, so I think you can find hope in all my films.
+- Everything I do is always scrutinised. But that's all I'll say about that.
+- I'm riding my man Obama. I think he's a visionary. Actually, Barack told me the first date he took Michelle to was 'Do the Right Thing.' I said, Thank God I made it. Otherwise you would have taken her to 'Soul Man.' Michelle would have been like 'What's wrong with this brother?'
+- All directors are storytellers, so the motivation was to tell the story I wanted to tell. That's what I love.
+- People of color have a constant frustration of not being represented, or being misrepresented, and these images go around the world.
+- 'Do the Right Thing' was my first union film. I looked at the rosters, and for the most part, it was white males. Especially the Teamsters. So we had some conversations.
+- I'd like to state that Spike Lee is not saying that African American culture is just for black people alone to enjoy and cherish. Culture is for everybody.
+- There's a lot of Americans, black and white, who think that we've arrived where we need to be and nothing else needs to be done and affirmative action needs to be dismantled.
+- I don't dictate, you don't dictate to Stevie Wonder, not successfully.
+- I think the best actors in the world are here in New York City. And this city is just so vibrant the energy is just phenomenal. Great crews here. All the technicians, all the artists that work in this industry. I've just been very happy with the body that we've been able to do, especially those films we shot here in New York City.
+- I live in New York City, the stories of my films take place in New York; I'm a New York filmmaker.
+- I think people who have faults are a lot more interesting than people who are perfect.
+- I think that anyone who lives in New York, who's lived here, who's spent any time here, knows that it's basically a love-hate relationship, you might say. Even though I still think it's the greatest city in the world and I wouldn't live anywhere else, there're still things about it one doesn't like. The love far outweighs the negative.
+- We grew up in a very creative environment and were exposed to the arts at a very young age, so it's not a surprise that all of us are in some form of the arts.
+- A lot of times, we censor ourselves before the censor even gets there.
+- There's an unwritten law that you cannot have a Jewish character in a film who isn't 100 percent perfect, or you're labeled anti-Semitic.
+- 'Red Hook Summer' is another chapter in my chronicles of Brooklyn.
+- 'Do the Right Thing' was like the first film where I really felt comfortable working with actors.
+- People think I'm this angry black man walking around in a constant state of rage.
+- Amongst black people, you have always heard it said that once a black man reaches a certain level, especially if you are an entertainer, you get a white trophy woman. I didn't make that up.
+- I didn't dream about being a director. I didn't know I wanted to do something with film until the summer between my sophomore and junior years at Morehouse College in Atlanta, Georgia.
+- I tend to favour films that have multiple plot and story lines, multiple characters and ensemble pieces.
+- My grandmother lived to be 100 years old. Her grandmother was a slave, yet she was a college graduate in the Spellman class of 1917. She taught art for 50 years and she saved her Social Security checks for her children's education.
+- I think it would be very boring dramatically to have a film where everybody was a lawyer or doctor and had no faults. To me, the most important thing is to be truthful.
+- I've been blessed with the opportunity to express the views of black people who otherwise don't have access to power and the media. I have to take advantage of that while I'm still bankable.
+- The truth is I've been doing Kickstarter before there was Kickstarter; there was no Internet. Social Media was writing letters, making phone calls, beating the bushes.
+- I like to work with the same people when I can, and you want to get people with the same interests that you have, and the same aesthetic.
+- Violence is a part of America. I don't want to single out rap music. Let's be honest. America's the most violent country in the history of the world, that's just the way it is. We're all affected by it.
+- Don't think that because you haven't heard from me for a while that I went to sleep. I am still here, like a spirit roaming the night. Thirsty, hungry, seldom stopping to rest.
+- I think that every minority in the United States of America knows everything about the dominant culture. From the time you can think, you are bombarded with images from TV, film, magazines, newspapers.
+- People sometimes forget all the films that we've done. They remember the likes of 'Malcolm X' and 'Do the Right Thing.' But I've been working since 1986. From the beginning, I was determined to not just be a flash in the pan. I've got to keep up with Woody Allen. He's lapping me.
+- I think my work shows that I love women. I understand where these types of criticisms are coming from because black people have been so dogged out in the media, they're just extra sensitive.
+- '25th Hour,' like a lot of my films, takes place in New York City. I've been very fortunate to make films in the city that I live. I mean, it's great going home at night instead of being on location.
+- I'm blessed, I can afford to send my children to private school.
+- I don't like acting; not in front of the camera.
+- You have to do the research. If you don't know about something, then you ask the right people who do.
+- Any time you talk about the look of the film, it's not just the director and the director of photography. You have to include the costume designer and the production designer.
+- If we became students of Malcolm X, we would not have young black men out there killing each other like they're killing each other now. Young black men would not be impregnating young black women at the rate going on now. We'd not have the drugs we have now, or the alcoholism.
+- Making films has got to be one of the hardest endeavors known to humankind.
+- It has been my observation that parents kill more dreams than anybody.
+- 'She's Gotta Have It' was shot in twelve days and two six-day weeks.
+- 'She's Gotta Have It' and 'School Daze,' I really didn't know what I was doing. And the biggest indicator of that was the acting. 'Do the Right Thing' was like the first film where I really felt comfortable working with actors.
+- I don't get tripped up in technology. I use technology as a tool. 'Oldboy' we shot Two Pro 35mm. For 'Da Blood of Jesus,' we shot digitally. We shot the new Sony F55. It's a 4K camera.
+- A spine to my films that's become more evident to me is that many are about the choices people make, and the reverberations of those choices. You go this way, or that way, and either way, there's going to be consequences.
+- First of all, what in this world does not revolve around money? But money is a big part of film, unlike a lot of other art forms.
+- I am a hybrid. I do independent films and also do Hollywood films - I love them both.
+- It comes down to this: black people were stripped of our identities when we were brought here, and it's been a quest since then to define who we are.
+- Any film I do is not going to change the way black women have been portrayed, or black people have been portrayed, in cinema since the days of D.W. Griffith.
+- Fight the power that be. Fight the power.
+- I'm just trying to tell a good story and make thought-provoking, entertaining films. I just try and draw upon the great culture we have as a people, from music, novels, the streets.
+- I always give the example, if you turn on the radio today, black radio, Lenny Kravitz is not black. Bob Marley wasn't black: in the beginning, only white college stations played Bob Marley.
+- What's the difference between Hollywood characters and my characters? Mine are real.
+- Since the days of slavery, if you were a good singer or dancer, it was your job to perform for the master after dinner.

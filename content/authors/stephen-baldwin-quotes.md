@@ -1,0 +1,63 @@
++++
+author = "Stephen Baldwin"
+title = "Stephen Baldwin Quotes"
+quotes_len = "57"
+description = "the best 57 Stephen Baldwin Quotes"
++++
+- Getting movies made is not as difficult as people think. Making movies is easy. You get a script, you get a director, you raise the money, you make the movie.
+- What is happening within Christianity is that it doesn't know it needs to promote itself.
+- Praise the Lord, but do me a favor, don't ever say 'Stephen Baldwin' and 'ministry' in the same sentence.
+- Don't get me wrong, there are sometimes if I go and see a really funny comedy, that I wished I had smoked a joint. I'll be honest with you. That's the truth.
+- Stephen Baldwin believes that now we're in a particular time in the world's history where it is time that people stand up for Jesus. That people get more aggressive and radical how they communicate with our culture about Jesus.
+- The reason I love Luis Palau is because this is a guy who is completely all about evangelism and reaching people and the lost with the gospel.
+- If Barack Obama is elected, I'll be moving out of the country.
+- Jesus isn't a logo, I'm not promoting some company, some brand. I'm just professing my faith.
+- Scientology is much more accepted in Hollywood than Jesus.
+- I just think that probably when somebody calls themselves 'born again' and kind of goes out there in a pretty radically zealous way, professes their glee about that, it can creep people out.
+- I believe that the family unit has fundamentally been the most positive thing for society, and I don't believe that any minority has the right to create changes that impact on the majority.
+- All of the reality TV I've done has usually been simultaneously an opportunity to create awareness or raise funds for my mom's breast cancer organization.
+- Raised Roman Catholic up until 11 or 12, didn't stick. Went out into the world and did my own thing.
+- I don't think Warren Buffett should be the treasurer or whatever. Warren Buffett's nuts! Just because he's a freaking billionaire doesn't mean he has common sense.
+- Demons manifest themselves in people in different ways. For instance, out of nowhere, somebody can become very angry for no reason. That's not just an emotion. That's a demon.
+- I'm walking this walk, and my life has nothing to do with my perception of the world. It's all God! How do I function within His plan?
+- In 2002, in this country, there was an observation that for the first time in America, more kids were actively pursuing skateboarding than baseball.
+- Evolution isn't true, because if we evolved from monkeys, how can they still be here?
+- The truth is the real Christian experience is truly about repenting every day because there is no Christian that doesn't sin.
+- I've always competed in those shows. Like, I won 'Fear Factor', I did 'I'm a Celebrity Get Me Out of Here', I did 'The Mole', 'Celebrity Apprentice' with Donald Trump. I've done a lot of those shows, all in the hope of being a blessing to my mom's organization.
+- I've been to MTV and all of that worldly stuff. It's death. It's meaningless.
+- I'm excited to create more awareness about the importance of giving the youth of America a choice. There's a 24-hour music channel. There's a 24-hour comedy channel. I believe there's a 24-hour gay channel coming. Why isn't there a 24-hour Christian channel that's edgy and hip and cool and new and different, like all that other stuff?
+- I learned in an extremely hard way that the accountability falls with me.
+- When you do reality, you have to be pretty careful. You have to almost monitor yourself to make sure that you don't get yourself in situations that you shouldn't.
+- I'm a registered Independent. But my brother says it's obvious that I'm a Republican sympathizer. Once I get in the voting booth, it doesn't matter.
+- I don't care what reviewers think. If somebody hates a performance of mine, I kind of get a kick out of it. It amuses me when critics take something so irrelevant as a movie so seriously.
+- The word of God - what does it say about what his place is going to be in the Kingdom? Think about it.
+- I'm your full blown charismatic evangelical freak daddy.
+- I'm very focused on the world and my career and my Porsche turbo and making money and Stevie B. Inc. I'm just living according to the standards of the world.
+- You gotta love these Christians, they're humble people.
+- When you do what I've done - the normal Hollywood way, where you let people do things for you - and then you make certain choices where you have to learn to do it for yourself, which is how you should do it, it caused me to get way behind in stuff. I wouldn't change a thing because it's been a very important learning thing.
+- I've run my mouth pretty good about my beliefs.
+- I think it's really terrifying that a country based on the foundations and ideals of God, is now systematically removing God from everything. Everything!
+- There's been moments of depression in my life, moments when I was in situations that I thought I wouldn't be able to get out of.
+- I'm a Jewish born-again Christian.
+- I'm just the messenger here. I'm just another representative of my faith, so to speak.
+- Scripture is the thing I like to share with people more than anything. My prayer reality is quite kooky. I have this very unique dialogue with the Lord. I utilize my own sort of street vocabulary - nothing slang that would be unacceptable.
+- According to God's word, everybody at some point is going to be given the opportunity to know the truth.
+- Life is such a precious gift. Whatever life throws at us, if we could just learn to get through that day and hang on to the next, you never know what may come. It may get worse, but you never know.
+- For me, I've never been too concerned of what people think of me, so now as the youngest Baldwin brother in Hollywood making movies while simultaneously being a charismatic evangelical born again Christian who's an evangelist - that's a pretty crazy combination.
+- I was always a God guy.
+- It's a blessing because the Baldwin vibe on the street is what I live for the most. I think our name is something that a lot of people get a good feeling about and brings a smile to their face, and we're very fortunate.
+- I am living and having supernatural experiences. A lot of people get really freaked out about that. I speak in tongues; I've been baptized in the Holy Spirit.
+- Barack Obama is clearly a smart guy, talented.
+- My life is God's life in me for Him to do with what He wants.
+- Praise the Lord, but do me a favor, don't ever say 'Stephen Baldwin' and 'ministry' in the same sentence. I make movies, and in Hollywood, that's career suicide.
+- Loving Jesus is what's most important to me. I know it sounds hokey, but it's the truth.
+- We can't allow, in my perception, our traditions, which in the Bible are really looked down upon, to stop, literally, the potential of the gospel reaching the youth of America.
+- Not a lot of individuals get to refer to the Lord in their prayers as 'Dude', but he's doing a new thing with me.
+- I'm not going to fight in the physical with physical weapons, because it's not a physical fight. I'm going to fight with spiritual weapons, cause it's a spiritual fight.
+- People want change. How is Barack going to do it? I think McCain can bring change.
+- I almost died, secretly, behind closed doors.
+- I believe I have a calling. Do you know what that calling is? To stand up in a new and hard core, radical way for the Lord. In the process, if I insult a couple of people, if I offend a couple of people, and if I got to shake it up a little bit, as long as it is led by the Holy Spirit, amen.
+- When I have the Bible memorised, then I'll be able to go and read a couple other books.
+- I have no interest in changing Hollywood. Hollywood is a place so consumed by the spirit of the world that I don't even want to try to think about how to infiltrate that.
+- My point is simply this: I believe I have a calling. Do you know what that calling is? To stand up in a new and hard core, radical way for the Lord. In the process, if I insult a couple of people, if I offend a couple of people, and if I got to shake it up a little bit, as long as it is led by the Holy Spirit, amen.
+- I've never really been the type of person who worries much about what people think of me.

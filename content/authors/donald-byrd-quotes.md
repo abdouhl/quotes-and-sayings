@@ -1,0 +1,17 @@
++++
+author = "Donald Byrd"
+title = "Donald Byrd Quotes"
+quotes_len = "11"
+description = "the best 11 Donald Byrd Quotes"
++++
+- I don't follow what everybody else does.
+- Here in Seattle, I'm the most productive I've ever been. I don't allow myself personal distractions. I'm extremely disciplined here.
+- It's an incredible dilemma to be an artist of color and to always be in denial about that, saying, 'I'm a choreographer first and then I'm black,' when in fact, that's not the case. I'm black first and then I'm also a choreographer.
+- I can take any series of numbers and turn it into music, from Bach to bebop, Herbie Hancock to hip-hop.
+- I'm creative; I'm not re-creative.
+- They use all of the music that I did in the '50s, '60s and the '70s behind people like Tupac and LL Cool J. I'm into all that stuff.
+- I thought that I would like to be affiliated with some school or institution. As time went on, I also decided on the subject that I wanted to get involved with in addition to music: it was Black Studies.
+- I skipped school one day to see Dizzy Gillespie, and that's where I met Coltrane. Coltrane and Jimmy Heath just joined the band, and I brought my trumpet, and he was sitting at the piano downstairs waiting to join Dizzy's band. He had his saxophone across his lap, and he looked at me and he said, 'You want to play?'
+- My concerns have been about myself and not about giving something back and putting something in, even though that's been in the back of my head.
+- I was being ridiculed for going to school... But, you see, I had looked hard at the other musicians and the whole show-business scene... They were doing with jazz musicians what they usually reserved for rock n' roll cats: making them overnight successes, then overnight antiques.
+- My work sometimes can be abstract and appear not to have a direct relationship to Afro-American concerns, but, in fact, it is based on that.

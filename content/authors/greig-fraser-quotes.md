@@ -1,0 +1,64 @@
++++
+author = "Greig Fraser"
+title = "Greig Fraser Quotes"
+quotes_len = "58"
+description = "the best 58 Greig Fraser Quotes"
++++
+- The real kudos need to go to my family, who have supported my crazy filmmaking dreams - from Melbourne, to L.A., England and the wider world - by supporting my projects and passions over the past years.
+- I rewatched a lot of 'Star Wars' when I did 'Rogue One,' and the thing I learned was that as a young person, consuming 'Star Wars' at the level that I consumed 'Star Wars,' it kind of molds your visual psyche, so you see the world in 'Star Wars'-ian fashion.
+- Despite what everyone thinks about science fiction, ultimately, at its best, it's about human beings with human emotions.
+- The good thing about India, and the good thing about Melbourne, is that it's very, very hard on this planet of ours to find two places that are almost diametrically opposed.
+- Every film that gets made, and I'm not just talking about 'Star Wars,' I'm talking about Marvel, DC, every tent pole film - they seem to just keep getting bigger and bigger and bigger and bigger. The worlds get bigger, the stakes get bigger.
+- If you've ever experienced being in an Indian train station as the train pulls in, even as a six-foot adult, it's incredibly scary. You just have people storming at you, bumping around you, without any regard to your safety.
+- Where we shot in India, you could literally dump the camera off the back of the truck and you'd have an amazing shot.
+- I did 'Vice' with Christian Bale and 'Foxcatcher' with Steve Carell - both of those films had significant prosthetic work. You do need to be cognizant of the fact that the material that you're photographing is not skin.
+- For me, 'Mary Magdalene' is the most beautiful film I've shot with the performances and the script and the actors and ensemble. But not one saw it.
+- I think I signed my left kidney to Disney and my right kidney to George Lucas.
+- Looking through the camera lens reduces noise; as humans we see a million shapes, colours and textures. What the lens does, what art does in general, is get rid of all the noise. It hones in and isolates the qualities of a scene.
+- You first and foremost need to be honest with the script because you don't want to do anything to screw up the basic fundamentals of the story. You don't want to create anything overly dramatic when you don't need to, and you don't want to create anything less dramatic than necessary, either.
+- The film business talks a lot. People talk a lot. There's a lot of chatting. There's a lot of behind-the-scenes chatting. There's a lot of talking before you go and do it.
+- A perfect example is 'Zero Dark Thirty.' That's the closest thing to reportage that I've done because a lot of that was shooting from the hip and found images and giving the actors a lot of freedom to explore the space and not have to repeat their actions twice and basically workshop on-camera.
+- I hate to do the same thing twice.
+- There's always the temptation, as a cinematographer, to make the shot look as perfect as possible.
+- The juxtaposition of India and Australia is such a great one to explore.
+- Robert Pattinson is an incredibly gifted actor. Every role that Pattinson plays is a contender for an acting award.
+- The difference between a good shot and bad shot can be an inch to the left.
+- When you're dealing with a shoot day that's costing somebody $300,000; when you're responsible for making that day; when you've got a half-million-dollar stunt that you've got to make sure you cover properly. You don't want to be doing that early in your career. You want to be making your mistakes when not many people are watching.
+- It was very confronting after growing up in the suburbs of Melbourne, then going to India. There's such a different emphasis on everything: food, family, hygiene, love, marriage. It's why it's so exciting, why it's so beautiful.
+- Star Wars has built-in scale. Everybody understands it, we know the scale of the universe.
+- I mean listen, ultimately I'm positive George Lucas was inspired by 'Dune' when he made 'Star Wars.' I don't know if that's sacrilegious to talk about, but there are a lot of similarities in some areas, so you could tell he was definitely influenced by that.
+- Effectively, as a cinematographer, I am always on the lookout for a project that makes me want to go to the cinema.
+- The reason I loved doing films like 'Rogue One,' 'Zero Dark Thirty' and 'Lion' was that there was enough breadth and difference in those projects to properly represent my interests.
+- I had to forget a lot of 'Star Wars' when I was making 'Dune.' It wasn't hard, though.
+- I remember borrowing my mum's Instamatic 110 camera as a kid and doing still lifes of tennis balls and benches and thinking they were going to be something really amazing. They ended up being really bad.
+- India has a natural brownness to it, a natural yellowness, a sepia tone to it, with the dust in the air.
+- If you go into a studio without a set effectively, you've got a blue screen. As a DP you have to light it of what you think it should look like. You don't have any reference of what the background looks like. You might have some concepts, but effectively you're lighting it as what you think it should look like.
+- Google Earth has become a little bit of an icon in our society. You get on maps and you wanna see what the quality of the road's like, you go on Google Maps.
+- I place 'Star Wars' on such a pedestal, like many of my peers do, given that we all grew up with these stories.
+- I did a lot of prep for 'Rogue One' while I was working on 'Lion,' so I could take the skills I learned in India and apply them to 'Rogue' and then take the skills I learned on 'Rogue' and apply it to 'Lion.'
+- A lot of the time, what happens is, when you shoot in L.A., you tend to be able to do things faster, believe it or not.
+- Whether you're shooting in India or on the Death Star, you're doing human drama.
+- My daughter is a bit annoyed with me that she didn't get to meet Baby Yoda.
+- Rubber looks different to skin and it's very, very hard to make a prosthetic on a human look convincing if you don't light them correctly.
+- The key is you don't want to control the controlled stuff too much and you don't want to be too free flowing in uncontrolled situations. That can be a contentious issue with some directors. The joy of my career is I've gotten to work with great directors who get that balance.
+- Doing a 'Star Wars' TV show could be prohibitively expensive because 'Star Wars' requires a lot of prop building and a lot of character building, so we wanted to - with ILM's help - be able to make it a financially viable option to solve all the problems that you have with shooting a blue screen environment.
+- Everyone knows that a movie is false. But if as filmmakers we give the audience too many reasons to lose the suspension of disbelief, I believe we're working our way down a hole.
+- Trying to capture the essence of India is almost like trying to bottle magic, which is hard to do because India is so broad and diverse - it's controlled chaos. But there's spirituality and wholeness to the people.
+- Some of the films I've been most happy with have been the films that don't see a lot of traction.
+- As a DP who mostly does features, I'm normally in a director's pocket, 24/7.
+- It's either some sort of a kismet or something that I've been offered a film like 'Zero Dark Thirty,' which I would have lined up to be the first one to watch that movie, had I not shot it.
+- On a film, you work with somebody for four months and it's wonderful, but commercials it's like catching up with someone for a beer except you happen to shoot something at the same time.
+- Every single discussion I have with a first AD, or producers, is time of day. I can't begin to tell you how many times I've fought for early-morning calls. The light is 90 percent of our job; we as humans respond to light and where it is at different times of day and not only in positive ways.
+- I'm a firm believer, and some people may disagree, and I'm happy to have a beer with them and talk about it, but I believe that locations are such an integral character to the movie.
+- This is the great thing about my friends over at Lucasfilm: They are so committed to the highest quality product that they allow their DPs to come on well in advance of the shoot.
+- There's a reason why Europeans take siesta in the middle of the day. It's not just because it's hot, but because it doesn't feel good to be outside or look at light when it's coming straight down overhead.
+- The 'Batman' franchise is iconic and its a privilege to now be able to visualize it in my own way.
+- Emotionally, light very much influences, I feel, the audience. It's not something that most audience members are conscious of, which is a good thing, because it means as filmmakers, we have the opportunity to gently control an audience into feeling a certain way.
+- I don't love big films for the sake of big films. It's not been a career drive to get to that point.
+- It's never been my goal to do 'big' films because a big film in itself is not very interesting to me.
+- When you have the blue screen, you've got another set of eyes, eight months down the track, designing what you should have been designing on stage with the actor.
+- It sounds very hippy, I'm sorry, but like if you put something out to the world, you'll get the same thing back plus more.
+- I've spent a lot of time in India. When I was a young cinematographer, I was completely enthralled by the color, the movement, the sounds. But photographically, it was very hard to capture it; photographs rarely did it justice.
+- This is the good thing about commercials, is one week I'm working with Derek Cianfrance and the next week I'm working with another really good friend.
+- I'm confident that the wrong cinematographer on a project can very much derail the mood and the feeling on set when you're trying to create a bubble of trust, effectively.
+- It's been a dream to work alongside the talented team at Lucasfilm and ILM to make advancements and improvements to the filmmaking process to help tell stories more efficiently.

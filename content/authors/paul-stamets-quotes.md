@@ -1,0 +1,48 @@
++++
+author = "Paul Stamets"
+title = "Paul Stamets Quotes"
+quotes_len = "42"
+description = "the best 42 Paul Stamets Quotes"
++++
+- The virus-to-cancer connection is where medicinal mushrooms offer unique opportunities for medical research.
+- From dead plant matter to nematodes to bacteria, never underestimate the cleverness of mushrooms to find new food!
+- In the wild, an enoki mushroom is often squat-looking and its stem is rarely more than twice as long as the cap is wide. When they are grown by farmers and hobbyists, however, their stems elongate, the caps are smaller, and a forest of golden colored needle-like mushrooms shoot up all at once.
+- Disasters such as earthquakes, tsunamis, volcanoes, floods, oil spills and radioactive fallout cause massive death of people, pigs, bats and birds. These disasters also impact the immune health of survivors. All harbor viruses.
+- Turkey tail mushrooms have been used to treat various maladies for hundreds of years in Asia, Europe, and by indigenous peoples in North America. Records of turkey tail brewed as medicinal tea date from the early 15th century, during the Ming Dynasty in China.
+- My family is delighted every time I cook maitake. Our taste buds awaken in anticipation of its rich, deep and nuanced flavors.
+- The majority of modern medicines originate in nature. Although some mushrooms have been used in therapies for thousands of years, we are still discovering new potential medicines hidden within them.
+- Today, reishi stands out as one the most valuable of all polypore mushrooms in nature for the benefit of our health. Many naturopaths and doctors prefer organically-grown reishi from pristine environments because they are more pure.
+- We evolved living in more sunlight than today. We make our own vitamin D when sunlight hits our skin cells. Many people living in the northern hemisphere, however, suffer from lower levels of vitamin D during the fall, winter and spring.
+- Mycologists are few and far between. We are under-funded, poorly represented in the context of other sciences - ironic, as the very foundation of our ecosystems are directly dependent upon fungi, which ultimately create the foundation of soils.
+- Nitric oxide production by immune cells is one of the key mechanisms that our bodies use to destroy diseased cells. Enhancement of these types of immune responses is seen consistently with many medicinal mushrooms that have been tested by cancer researchers.
+- Chaga is one of the weirdest mushrooms you may ever see. A fungal parasite found on birch trees, Chaga is a hardened, blackened, crusty formation that looks like a bursting tumor.
+- Fungi are the grand recyclers of the planet and the vanguard species in habitat restoration.
+- Maitake mushrooms are known in Japan as 'the dancing mushroom.' According to a Japanese legend, a group of Buddhist nuns and woodcutters met on a mountain trail, where they discovered a fruiting of maitake mushrooms emerging from the forest floor. Rejoicing at their discovery of this delicious mushroom, they danced to celebrate.
+- If you do not know where the mushroom products you are consuming are grown, think twice before eating them.
+- While reishi mushrooms have historically been prepared as teas or infusions, other modern preparations include capsules, tinctures, and fractionated extracts of mushrooms, mycelium, and spores.
+- For many years, I have sought and studied Agarikon, an unusual mushroom native to the old growth conifer forests of North America and Europe.
+- I believe that mycelium is the neurological network of nature. Interlacing mosaics of mycelium infuse habitats with information-sharing membranes. These membranes are aware, react to change, and collectively have the long-term health of the host environment in mind.
+- Mushrooms have many helpful nutrients, including beta glucans for immune enhancement, ergothioneines for antioxidative potentiation, nerve growth stimulators for helping brain function, and antimicrobial compounds for limiting viruses.
+- Through trial-and-error and observable outcomes, our ancestors narrowed the field of edible mushroom candidates to just a few with remarkable, health-supporting properties.
+- Agarikon contains antiviral molecules new to science. Researchers for pharmaceutical companies may have missed its potent antiviral properties. Our analyses show that the mycelial cultures of this mushroom are most active but that the fruitbodies, the natural form of the mushroom, are not.
+- Mushrooms provide a vast array of potential medicinal compounds. Many mushrooms - such as portobello, oyster, reishi and maitake - are well-known for these properties, but the lion's mane mushroom, in particular, has drawn the attention of researchers for its notable nerve-regenerative properties.
+- Traditionally, our ancestors boiled mushrooms in water to make a soothing tea. Boiling served several purposes: killing contaminants, softening the flesh, and extracting the rich soluble polysaccharides.
+- Life exists throughout the cosmos and is a consequence of matter in the universe.
+- Vitamin D from mushrooms is not only vegan and vegetarian friendly, but you can prepare your own by exposing mushrooms to the summer sun.
+- In the past, mushrooms were maligned as nutritionally poor. Since they are about 80 to 90 percent water when fresh, their net concentrations of nutrients can be underestimated. Like grains, however, mushrooms should be weighed when dry to get their correct nutrient value.
+- Enoki mushrooms, a tasty variety commonly sold in grocery stores, were one of the first mushrooms studied for preventing cancer.
+- Mushrooms are miniature pharmaceutical factories, and of the thousands of mushroom species in nature, our ancestors and modern scientists have identified several dozen that have a unique combination of talents that improve our health.
+- My team and I have discovered, over decades of study, that mushroom mycelium is a rich resource of new antimicrobial compounds, which work in concert, helping protecting the mushrooms - and us - from microbial pathogens.
+- Growing the mycelium of the Chaga mushroom under laboratory conditions provides an ecologically friendly alternative supply of this unique medicinal mushroom.
+- Although oyster mushrooms have been studied extensively and support health in a number of ways, it is also extremely important to always cook oyster mushrooms!
+- Although the trends are promising and reishi mushrooms exhibit a number of interesting medicinal properties, modern scientific techniques have yet to affirm its traditional 'panacea polypore' status.
+- Known colloquially as 'winter,' 'golden needle,' and 'velvet foot' mushrooms, enoki mushrooms grow across much of the world, inhabiting dead conifer trees and stumps, and generally appearing throughout the late fall and winter months.
+- Some people think I'm a mycological heretic, some people think I'm a mycological revolutionary, and some just think I'm crazy.
+- Lion's mane mushrooms are not your classic-looking cap-and-stem variety. These globular-shaped mushrooms sport cascading teeth-like spines rather than the more common gills.
+- Of all mushrooms commonly consumed, oyster mushrooms in the genus Pleurotus stand out as exceptional allies for improving human and environmental health. These mushrooms enjoy a terrific reputation as the easiest to cultivate, richly nutritious and medicinally supportive.
+- If you look on the fungal genome as being soldier candidates protecting the U.S. as our host defense, not only for the ecosystem but for our population... we should be saving our old-growth forests as a matter of national defense.
+- Maitake can achieve humongous sizes, sometimes up to 50 pounds per specimen! Massive maitake can form annually from dying dendritic tree roots for many years, even decades.
+- Chaga mycelium is relatively easy to grow by using methods already practiced elsewhere in the mushroom industry. Its mycelium is initially an off-whitish color, deepening with age.
+- Lion's mane may be our first 'smart' mushroom. It is a safe, edible fungus that appears to confer cognitive benefits on our aging population.
+- Chaga is significant in ethnomycology, forest ecology, and increasingly in pharmacognosy. Its long-term human use and cultural eastern European and Russian acceptance should awaken serious researchers to its potential as a reservoir of new medicines, and as a powerful preventive ally for protecting DNA.
+- Nature is a numbers game. We need all the support we can get as our immune systems and health are under assault from pollution, stress, contaminated food and age-related diseases as our lifespans increase.

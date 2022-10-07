@@ -1,0 +1,57 @@
++++
+author = "Eric Alterman"
+title = "Eric Alterman Quotes"
+quotes_len = "51"
+description = "the best 51 Eric Alterman Quotes"
++++
+- The myth of the liberal media empowers conservatives to control debate in the United States to the point where liberals cannot even hope for a fair shake anymore.
+- Mistakes, after all, are endemic to foreign and military policy given the unpredictability of events and the difficulty of securing reliable information in a place like Iraq.
+- We live in a media world simultaneously obsessed with technology and personality.
+- Much of what Tea Party candidates claimed about the world and the global economy during the 2010 elections would have earned their adherents a well-deserved F in any freshman economics (or earth science) class.
+- There are more people at Obama's table offering ideas than there were five years ago, but when it came to facing up to the Republicans' threat to force a double-dip recession if they didn't get their millionaires' tax cut, they still amounted to nothing. And therein lies our fundamental problem.
+- As with almost every significant aspect of the Bush presidency, its handling of 9/11 was a catastrophe from start to finish.
+- The consequences of President Johnson's campaign of deliberate deception regarding Vietnam could hardly have been more catastrophic for the nation, the military, the president, his party, and the presidency itself.
+- Politically, Obama's amazing streak of self-destructing opponents who have lain beneath his feet during his unlikely political career appears to be holding.
+- Apple is a wonderful company for its customers and investors. So, too, Pixar. (NeXT, not so much...) But Apple is also an engine of misery for its subcontracted Chinese workers.
+- It's not merely that conservatives are better at selling their product, or that they happen to have an easier-and undoubtedly simpler-ideological product to sell. It's that they know what they are selling. Liberals in general and Obama in particular cannot say the same.
+- The Economist is undoubtedly the smartest weekly newsmagazine in the English language. I always look forward to its quirky year-end double issue.
+- Warren Buffett pays taxes on a smaller percentage of his billions in income than his cleaning lady.
+- Most of the provisions designed to fix what ails our health system don't kick in until 2014, which, one wishes administration officials had noticed, is two years after he has to win an election.
+- As a parent and a citizen, I'll take a Bill Gates (or Warren Buffett) over Steve Jobs every time. If we must have billionaires, better they should ignore Jobs's example and instead embrace the morality and wisdom of the great industrialist-philanthropist Andrew Carnegie.
+- Three centuries after the appearance of Franklin's 'Courant', it no longer requires a dystopic imagination to wonder who will have the dubious distinction of publishing America's last genuine newspaper. Few believe that newspapers in their current printed form will survive.
+- To own the dominant, or only, newspaper in a mid-sized American city was, for many decades, a kind of license to print money. In the Internet age, however, no one has figured out how to rescue the newspaper in the United States or abroad.
+- Fox News is nothing if not impressive. No matter how harsh the criticism it endures, the network somehow always manages to prove itself even worse than we had previously imagined.
+- Recently released government economic statistics covering 2010, the first year of real recovery from the financial collapse of 2008, found that fully 93 percent of additional income gains coming out of the recession went straight into the wallets and purses of the top 1 percent.
+- But particularly when the media profess to strive toward objectivity, gatekeepers play a crucial role in helping people navigate the news to make educated political decisions.
+- I am deeply devoted to the 27,000 songs I can take anywhere on my iPod Classic as well as the exquisitely engineered MacBook Air on which I typed this column.
+- President Obama has lowered taxes more than he has raised them, and they are today lower than they were in President Reagan's time. But you don't hear conservatives crowing about that.
+- This trend of reporting process over substance is unfortunate, if omnipresent. Even worse is the media's inability - or unwillingness - to fact-check Republicans who are angry about the Democrats trying to debate and vote on Iraq policy.
+- Newspaper companies are losing advertisers, readers, market value, and, in some cases, their sense of mission at a pace that would have been barely imaginable just four years ago.
+- Over one in five American children is living in poverty, and the number is rising.
+- More and more, Democrats are starting to worry they that they have a more um, colorful version of Jimmy Carter on their hands. Obama acts cool as a proverbial cucumber but that awful '70s show seems frightfully close to a rerun.
+- America's great newspapers have staffs that range from 50 percent to 70 percent of what they were just a few years ago.
+- Obama, like Carter, is reacting to warning signs by seeking to split the difference between dispirited Democrats and increasingly radicalized Republicans.
+- While history never repeats itself, political patterns do.
+- If bloggers are to improve our public discourse - helping busy and usually uninformed people make sense of the world - it is necessary to use some sort of standard with which to judge their reliability. Perhaps the answer (strictly advisory) is a body of their peers. Perhaps not.
+- American journalists tend to treat inequality as a fact of life. But it needn't be.
+- Americans have always evinced some distrust of government, but the current situation has exacerbated this to a degree that may be unprecedented.
+- Ironically, tendency to ignore inconvenient facts and unwelcome evidence is actually President Reagan's true legacy, as I noted in 'The Nation' back in 2000, before the current right-wing mania for President Reagan gained its full force.
+- Certainly there are worse sins than doing everything possible to make your presidency matter.
+- Whether people care enough about local news to pay for it is, sadly, an entirely different question than whether our democracy requires a strong watchdog function at the local level to ensure safeguards against abuse, chicanery, and outright dishonesty.
+- One of the many, many salutary aspects of Barack Obama's impending presidential nomination is the sea change his victory marks in the battle for the mind-set of the American foreign policy establishment.
+- Trends in circulation and advertising - the rise of the Internet, which has made the daily newspaper look slow and unresponsive; the advent of Craigslist, which is wiping out classified advertising-have created a palpable sense of doom.
+- Whether one agrees or disagrees with the tactics of the Occupy Wall Street movement, it's easy to understand the inspiration for its anger as well as its impatience.
+- Half the U.S. population owns barely 2 percent of its wealth, putting the United States near Rwanda and Uganda and below such nations as pre-Arab Spring Tunisia and Egypt when measured by degrees of income inequality.
+- The ability of the 1 percent to buy politicians and regulators is nothing new in American politics - just as inequality has been a permanent part of our economic system. This is true of virtually all political and economic systems.
+- Liberals believe that they can't get a fair shake from the media anymore.
+- If newspapers were a baseball team, they would be the Mets - without the hope for those folks at the very pinnacle of the financial food chain - who average nearly $24 million a year in income - 'next year.'
+- For the past eight years, the right has been better at working the refs. Now the left is learning how to play the game.
+- Philosophers and theologians have argued for centuries over the morality of targeted assassinations - a technique that the Israelis use with some frequency - without ever reaching anything approaching consensus.
+- Local politics, like everything else, are not what they used to be. But the fact is that our political system - like our physical existence - still breaks down along geographical lines.
+- Liberals do not appear to address potential solutions with anything like the far right's aura of God-given self-confidence.
+- Stylistically speaking, Barack Obama could hardly be further from Jimmy Carter if he really had been born in Kenya.
+- Bringing democratic control to the conduct of foreign policy requires a struggle merely to force the issue onto the public agenda.
+- Few progressives would take issue with the argument that, significant accomplishments notwithstanding, the Obama presidency has been a big disappointment.
+- So was it a political mistake for Obama to put so many eggs in the health-care-reform basket? Well, a negative decision from the Supreme Court will certainly make it appear so.
+- Face it, the system is rigged, and it's rigged against us.
+- Veteran print editors and reporters at places like the 'Times' and 'The New Yorker' manage to feed and clothe their families without costing their companies a million bucks a month, and they produce a great deal more valuable reporting and analysis than the network news stars do.

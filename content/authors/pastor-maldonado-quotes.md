@@ -1,0 +1,17 @@
++++
+author = "Pastor Maldonado"
+title = "Pastor Maldonado Quotes"
+quotes_len = "11"
+description = "the best 11 Pastor Maldonado Quotes"
++++
+- I just want to do my best, to be as close to the top as I can, and to get the maximum out of the car.
+- You can always improve your fitness if you keep training.
+- I did some mistakes; I accept that - I always accept my mistakes. For sure, we are looking forward to improve, to deliver my best as always.
+- Williams is one of the big names in F1 with a really strong pedigree, so it is an honour to be driving for them.
+- As a driver, you always dream of winning a F1 race, and to win so early on in my career was very special.
+- After karting in Venezuela, I came to Europe in 1998 to compete in international kart races, which was great for me to get experience racing outside my country. After consistently being at the top, I decided to move to Italian Formula Renault.
+- Having competed themselves, my father and my uncle are very passionate about motorsport, so I inherited it from them.
+- I'm used to having a lot of criticism. It's normal. It's normal when you come from South America, when you have a country pushing very hard in your back.
+- We live in a free world, so everyone can say whatever.
+- In my city of Maracay, there is a go kart circuit about five minutes from my home. When I was about three or four years old, I said I wanted to race, but I was too young; then, when I reached the age of seven, my father gave me a kart and we started from there.
+- Williams really does feel like a family, and I have built up very good relationships with people here; in fact, some of my best friends work for Williams. A friendly atmosphere can really help on the track as well because I feel like I can communicate freely with the team.

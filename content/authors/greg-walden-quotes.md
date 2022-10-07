@@ -1,0 +1,30 @@
++++
+author = "Greg Walden"
+title = "Greg Walden Quotes"
+quotes_len = "24"
+description = "the best 24 Greg Walden Quotes"
++++
+- It is no secret that those of us in the Northwest believe the Administration's proposal to drive up the cost of electricity in our region is not only misguided, but also will not achieve the intended goal of raising money for the treasury.
+- Since 2000, we've seen base power rates rise by 50%.
+- Small businesses are seeing huge rate increases every year, and more and more of them are saying they just can't afford to provide coverage. That's part of the reason more than 45 million Americans are now uninsured.
+- Removing substantial fuel loads from our forests helps prevent catastrophic fire and better protects species, watersheds and neighboring communities that call them home.
+- The Round-Up is a wonderful community celebration, and I greatly enjoy the chance to visit with residents and see so many families enjoying the festivities offered throughout the week.
+- We are taking steps to fight the production of meth on our own soil through limiting access to precursor ingredients, supporting educational efforts and providing necessary resources to law enforcement.
+- A $1.7 billion average increase in electricity costs is estimated to result in a $1.3 billion decrease in personal income and a loss of 13,000 more jobs in the region.
+- As federal lawmakers, we have a responsibility to set a precedent for energy efficient practices.
+- As the GAO report recognizes, the long-term health of our forests relies on additional fuel reduction options and funding to reduce the risks that catastrophic fire poses to our nation's ecosystems, communities and federal budgetary resources.
+- A man of strength and wisdom, John Paul became an inspiration to generations of both Catholics and non-Catholics throughout the world by encouraging freedom, promoting peace and respecting all faiths.
+- I am maintaining my schedule of commuting to Washington, D.C. each week from Oregon so that I can spend my weekends and days when we are not in session traveling to communities throughout my district.
+- I came here to help make America more competitive and prosperous by developing an energy policy that increases conservation, promotes cleaner technologies, encourages development of renewables and enhances domestic production of gas and oil.
+- Many individual growers now are growing organic fruit, and many are taking it upon themselves to market their own products to the public, as opposed to necessarily going through big processors, although, obviously, the bulk of the fruit still is dealt with that way.
+- We also have to stop the flow of precursor chemicals that meth cooks use to boil up this poison.
+- The war on meth must be fought with a multi-pronged approach.
+- I've experienced first-hand the wonderful work organizations like J Bar J do for young people in Central Oregon and I am encouraged that the federal government is taking an active role in the Cascade Youth and Family Center.
+- With the increasing demand for oil around the world and the rising costs in Oregon and throughout the nation, we must focus on the development of alternate energy sources, especially those that are clean, efficient and renewable.
+- Whether fuel cell system development in central Oregon, wind power generation along the Columbia Gorge, or geothermal energy in southern Oregon, investing in new energy sources makes America more energy independent while creating good paying, environmentally friendly jobs.
+- Operation Northern Star with Canada has made significant progress in battling meth from the north, and we are engaged in numerous training opportunities in Mexico to help curb the problem from the south.
+- I did not come to Washington to raise the electricity rates by as much as $40 per month as this plan would do.
+- As a lifelong Oregonian, I prefer our forests green, not black.
+- Large corporations and unions know the power of being big enough to bargain for better rates.
+- It is up to us as lawmakers to provide the resources and streamlined processes that will enable our federal forest managers to become the best possible steward of our lands.
+- I came away from the forums with a profound concern about the highly addictive and destructive nature of methamphetamine. Families are torn apart, lives are destroyed and treatment is difficult to get.

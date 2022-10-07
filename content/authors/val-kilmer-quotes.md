@@ -1,0 +1,80 @@
++++
+author = "Val Kilmer"
+title = "Val Kilmer Quotes"
+quotes_len = "74"
+description = "the best 74 Val Kilmer Quotes"
++++
+- Mark Twain is as big as America. He really is.
+- Most films made about the future acquiesce toward death, and I don't want to be told how to define my future.
+- Being creative and making money in the theater is very challenging.
+- That's the joy of art - it should be dangerous and challenging but it's just art - it's safe.
+- You can ask anyone who knows me, I've never said a racist or prejudiced thing in my life.
+- I never cultivated a personality. Almost everyone who is really famous has cultivated a personality.
+- If you look up the definition of news in the dictionary, it isn't what you watch on TV.
+- I love that Bob Dylan asked me to be in the first movie he wrote.
+- I can safely say that no one who has ever won an Oscar didn't want to win an Oscar.
+- With legitimate journalists I've always had a great time - I've never gone out of my way to court the press. That's probably cost me some money, but I've always had the respect of my peers.
+- Hollywood is wonderful, but it does eat its young.
+- What I do for a living is listen.
+- Peter Sellers was just a brilliant actor, and also comedic.
+- There are a thousand ways to play any role.
+- Mark Twain had a way of telling stories that shifts your consciousness away from labels.
+- I am not an American; I am the American.
+- I would probably do anything with David Mamet. He's so great. I just love his writing.
+- Youth is seen as everything. You don't know anything when you're young. It's great being older, just having a more balanced perspective. I wake up and realise that what seemed to be important last year no longer is. I'm increasingly grateful for every day.
+- Acting is very immediate.
+- I don't think of my life as a cliche, but I'm a cliche eccentric. Complete with a strange name - I mean, who's named Val? How many Vals do you know? I mean, really?
+- Life is precious, and when someone dies it's an opportunity to realise how precious it is. My brother drowned when I was 17. He was 15. I think I grew from that. My father didn't. It really crushed him.
+- Mark Twain created a new type of literature and not a lot of people can say that. Not a lot of people can say they're absolutely original and completely self-made.
+- It is a weird thing that actors have people applaud when they're done working. I still find that entertaining.
+- My father was raised in the mountains of New Mexico, and he picked cotton for a dollar a day. He was working for the family from the time he was 7.
+- One out of 100 citizens of the U.S. is going to prison, and it's not that the system is making criminals, it's that it's making criminals better criminals. We're breeding them like rats and it has to change.
+- I sang the songs in 'The Doors'.
+- You just don't understand humility until you have children and get divorced.
+- I've never been that comfortable talking about myself or about acting.
+- It's fun to look at people that are so good at acting that aren't actors, like David Bowie creating a mystique about rock n' roll. I've listened to 'Ziggy Stardust' as much as any rock n' roll fan - I don't really know what it's about, but it sure is fun to think about David Bowie as this mad creation.
+- It's a really weird thing, modern divorce. I found out I was getting divorced on television. That was kind of weird.
+- If you're in a hit movie, it's good to be in another hit movie straight away.
+- When you're young, you're always concerned about how you're being seen and how you're being criticized.
+- My children have absolutely no interest in my fame. They're very sophisticated, and they have a spiritual perspective on material things because we go to church.
+- There are lots of actors who are awful people, but nobody talks about them being awful because they've made billions.
+- I'm going to put a museum on my ranch and people keep saying, 'That's a huge idea.' Yeah, it's big, but not bigger than the average big movie. A hundred million dollars in the art world is a substantial amount of cash to do anything. That's maybe a big gallery's total sales for a given year.
+- Warner Bros offered me the next Batman, and the only reason that I didn't do it was because of The Saint.
+- Hollywood's like a warehouse. It's just a place that you go. What's interesting in the warehouse has to do with the creative people.
+- I live on a ranch that's larger than Manhattan. That's a weird circumstance.
+- Why do women get paid less money? It doesn't make any sense.
+- There was no one around called 'Val' when I was young, so I wanted to be John or Bill. Now I like it.
+- I'm a character actor, but I look like a leading man.
+- News is something that happens that matters to you, which is not most of what we watch on television.
+- We take what's shown on television as the truth, and it isn't. News isn't even the truth on television. If you look up the definition of what news is, it isn't that what we're watching on the new - it's entertainment.
+- A wonderful but kind of a terrible truth about acting is that you actually get to a point where you become content with an impossible task: it is really impossible to properly prepare. You kind of have to start over every time.
+- I don't watch television, but I saw 'The Office' by accident. I thought it was so sophisticated, the Victorian love story, and so bold. We'd do anything, all of us, to not work in that environment, and then I'm sitting there watching hours of it.
+- Jim Thompson understood something about the serial killer before the psychology caught up to it, which is that they are detached to it and they do want to get caught.
+- It's fun to look at people that are so good at acting that aren't actors, like David Bowie creating a mystique about rock n' roll.
+- There's nothing good about divorce.
+- Daryl Hannah likes to goof around with fashion, but she does have pretty impeccable taste.
+- I respect people who can do both careers, like Will Smith and a couple of other people who have done it, but I just don't know when they sleep.
+- Well I sure had been looking for a comedy for years without any success.
+- The good reviews that people have told me about through the years haven't really helped me do my job. So it's kind of like, if your hair turns out right you want to go out, you don't just want to stay in and look in the mirror. That's kind of what reading a review is like to me; it's like reveling in something that's just one night.
+- The Secret Service is a strange group. They don't really have a leader. It's not set up like a military. Each one is supposed to be able to act like a leader when something comes up.
+- There was such a relationship between the buffalo and the American Indian - the Indians would eat them, live inside their pelts, use every part of the body. There was almost no separation between the people and the animals.
+- News isn't even the truth on television.
+- I never had a business plan. I did, actually - I'm lying. My business plan was to get lucky, and I did; that was great. And then my second business plan was to get lucky again, and there, I faltered.
+- Unless a Western's made money - doesn't matter who made the money, doesn't matter what the subject is - if the last one didn't make any money, you can't make another one for a four-year period. Westerns more than any genre.
+- Again, in Wag the Dog, war has to be declared by an act of congress. But if you go to war, you don't have to declare war. You're just at war and we did that, which is not legal.
+- I think part of my reputation has to do with the difficult roles I've played. Actors do tend to get identified with their characters.
+- Postman is a media analyst and his theory is that television doesn't influence our culture, but that it is our culture and the presidency and anything that relies on television.
+- Partly because the town is just finicky, there are strange Catch 22 clauses in the consciousness of this community and one of them was that you, I found out, you can't do a comedy unless you've just done a comedy.
+- Warren Beatty once told me that if someone's really stuck on you, find them their next boyfriend. But I could never do that.
+- A lot of old guys in movies are like cowboys - they talk like cowboys and they dress like cowboys.
+- I'm very wary of news on television.
+- I just don't think I've ever been comfortable at public functions and selling myself as an entity.
+- I've been very fortunate and met the guys that have become, basically, philosophers and have a kind of sensibility about life that's very precious.
+- It's the first time that I've ever had an art show based on a film, but it's a photography collage.
+- Without deadlines and restrictions I just tend to become preoccupied with other things.
+- I have two children and they're young yet but all of the children that I know really inspire me.
+- If you think that by threatening me you can get me to do what you want... well, that's where you're right. But - and I am only saying this because I care - there's a lot of decaffeinated brands on the market that are just as tasty as the real thing.
+- It's the persona that makes you a leading actor. A leading actor has something extra that's fun to watch. But it isn't usually about acting.
+- The first play I saw was a Samuel Beckett play which was great.
+- I think death is just a transition to another state of consciousness.
+- My perception is that I've never done anything but work really hard.

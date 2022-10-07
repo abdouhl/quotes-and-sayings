@@ -1,0 +1,31 @@
++++
+author = "Soulja Boy"
+title = "Soulja Boy Quotes"
+quotes_len = "25"
+description = "the best 25 Soulja Boy Quotes"
++++
+- Stress is real, and you never know what a person is going through behind the camera.
+- Swag defines an artist, period. Lil Wayne has his super-tattooed pierces and dreads swag. Jay-Z has his New York, grown man, Beyonce and 40/40 Club swag.
+- I taught Drake everything he knows.
+- I hate it when people come up to me on trains and ask 'Are you Soulja Boy?' If people want pictures or autographs, that's cool, but I don't like the dumb questions.
+- I've always been interested in gaming, growing up as a kid. I played games all my life. So once I got into the music industry and I was successful with my music, I always wanted to get into the gaming world.
+- If you listen to Drake's first single... he copied my whole bar word for word and my cadence and my flow from my song. Can I just get my credit?
+- From the first time that I went over to China, I think I was around the age of 17, 18, and just going there and seeing that their technology being years ahead of ours in America, it sparked something with me back then.
+- I feel like it's big now with the passing of Mac Miller. Rest in peace, Mac Miller, who was a good friend of mine. That just showed people, like, it could happen to anybody. Just because you have fame or money, you're not immune to negativity and depression and stress.
+- If I'm going to make music for the streets or the clubs or whatever, I go at it with 110 percent.
+- When I was 10 years old my mom used to play Tupac while she cleaned the house.
+- Yo, people are saying Tyga had the biggest comeback. Tyga? Tyga! Lime in the coconut Tyga? Yo, get out of here.
+- Soulja Boy is on his dance, down south, young, 18-year-old, comedic swag. It's really just each person's personality; if every rapper had the same swag, it would be kind of boring.
+- I was one of the first artists to have a YouTube account, if not the first. I joined two months after the site launched.
+- My first single I was nominated for a Grammy with 'Crank That,' and I lost a Grammy to Kanye West, but it was still such a big deal for me to be nominated anyway.
+- It was, like, two mobile games I released. They did pretty well, and after I made those two games, I was like, 'Man, I want to make another game, but I want to make this game for PlayStation and Xbox and PC.' I was like, 'You know what? Forget making the video game for Xbox, PlayStation and PC. How about I make my own console?'
+- If I'm doing something its coming from a kind heart.
+- Words are powerful. When I make mistakes I just try to come back and clarify what I meant.
+- People in the media, it makes their day when someone they say is a five-star artist goes platinum.
+- I think swag is very important to rappers. It's the overall appearance and style of an artist - these blue shorts and this blue hat and this $80,000 chain, this jewelry and all these tattoos, that's swag.
+- Now that I'm in the position I'm in now, I like to take all my creative ideas and put 'em on the Internet for my fans to interact with. Give 'em something to do.
+- I just think that when you're coming out with a new product, you're gonna be criticized.
+- I don't travel anywhere without the PS3 and XBox. There's nothing better to do on long bus trips while on tour.
+- I'm headed towards greatness. I think I'm making history in hip-hop.
+- When I was in Japan on tour in 2010, I felt like I was 30 years into the future. I love technology and they are so advanced with their phones, computers, everything. I think they had the iPhone way before we did in the U.S. I love gadgets, games, social media and I try to stay ahead on all that stuff, but they get it all first.
+- Drake and Kanye, y'all gotta move out of the way. I'm younger than y'all. I look better than y'all. I got more swag than y'all. And it just is what it is. I'm here to take it. I'm the new best rapper.

@@ -1,0 +1,77 @@
++++
+author = "Guru Randhawa"
+title = "Guru Randhawa Quotes"
+quotes_len = "71"
+description = "the best 71 Guru Randhawa Quotes"
++++
+- I would not like to take credit for all the hard work that I have put in. It's all because of the Almighty. Whatever I have or will get in the future is because of Him.
+- There is always space for good music.
+- I make sure to eat dishes made in olive oil, whether virgin or extra virgin; the dish has to be made in olive oil. I believe it's the healthiest oil that you can consume to stay fit.
+- Punjabi songs have been a rage in Bollywood since a very long time. The lyrics' beat and the meaning behind them give an emotional touch to their lives and connects with youth.
+- I don't want to compromise on my singing or drop down its level to start acting.
+- In my childhood, I used to go to theatres to watch independent singers' outing on screen. I used to be excited about how different they sound in a video and at a theatre.
+- My association with Delhi goes way back... After finishing high school in Punjab, I moved here to chase my passion and obsession for music.
+- I'm really thrilled and excited about my first single with Dhvani Bhanushali.
+- I've always loved making independent music.
+- Bollywood helps in enabling a platform for many artistes.
+- We are trying our best to spread the culture of Punjabi music all over the world. With the traditional rigid Punjabi music, people always had a myth that the music is very conventional, but nowadays, we are really thrilled to see how people are loving the tunes and beats of Punjabi music.
+- I love my life, and I try to keep my fans happy.
+- I started singing and writing songs since childhood and later started releasing my independent music.
+- From the very beginning, I was clear that it would always be music for me.
+- Wherever you go, your memories from the place you grew up in always remain special.
+- It won't be fair on my part to name one song that brought me fame, but 'Suit Suit' from 'Hindi Medium' is close to my heart, and it quite turned tables for me.
+- I am a simple person and a big fan of Indian cuisine, so whenever I am home, I prefer to eat the simple daal roti.
+- If someone has given a hit in the industry, and everyone talks about the song and artist, that's a hit.
+- I consider myself blessed.
+- I have always been trying to make music which appeals to global audience.
+- I feel honoured and blessed for all the support from listeners worldwide who have supported my music.
+- My family, particularly my brother, made it possible for me to get into the Punjabi music industry.
+- I might have sung party numbers, but I love to party alone.
+- I love performing live and engaging with my fans on-ground.
+- Bollywood, no doubt, has a wider acclaim, and it feels top of the world to see people from all around the world dancing to my songs.
+- I am passionate about singing, and I strive to improve with every song and keep getting better.
+- I always tell my audiences not to listen to such artists who play audio CDs at their concerts. Such shows shouldn't be called live shows. People like AR Rahman, Sunidhi Chauhan, and Arijit Singh are the ones who hold true concerts.
+- I love my God, and whenever I want something, I pray to Him, and my wish is fulfilled. That's my success mantra.
+- I wanted to understand the business side of entertainment, and that's why I decided to complete my MBA while I was in Delhi.
+- My songs were already a hit track with over 100 million views/comments and multi-hundred thousand downloads on online websites before coming to Bollywood.
+- It is very important to learn. And I try to learn from everything around me.
+- I am not a rapper. And I believe people in India are not even clear with the whole idea of rap or what it signifies.
+- The industry and my fans' encouragement made me work on my own compositions more, and it is good to see my track 'Yaad Mod Do,' sung along with Millind Gaba, is liked by all.
+- I know the 4Ps (Planning, Priority, Perspective and Patience), and I believe that this knowledge sets me apart from others, as I know exactly how to promote a song, where to promote it. And basically, how much money should be spent in doing all that.
+- When I entered the music industry, the biggest struggle was reaching out to people.
+- Punjabi songs are fun. They help to cheer up the environment and the mood.
+- When the audience resonates with my music and sings every single word from the song, the high of performing live is unmatched.
+- One can find a Punjabi song in all genres. I, as a singer, too, aim to sing all kind of songs.
+- Actually, it's the beauty of independent music that the artist can feature in his own videos and be the face of it. It is unlike Bollywood movies, where one does playback singing.
+- I don't think I will be able act; I am not talented in that area.
+- Bruno Mars. He is my favourite artist, and I always look forward to see him perform live.
+- I did my first album with my own record label.
+- I know my worth, and I have full faith in my talent.
+- I come from a small village in Gurdaspur district.
+- Delhiites are mind-blowing. Their enthusiasm and fervour pumps me up to give my best shot. They value my music.
+- Don't just listen to my songs; listen to any song which you feel would make a change in your life.
+- I can understand criticism coming from people who have met me, but it is off-putting to hear nasty things about myself from people I have never met or even seen in life.
+- I think time has changed everything. Not only music but our surroundings, technology, fashion - everything has changed with time, and it will keep changing every day.
+- As an independent artist, there can be nothing better than the fact that your song will be played and heard in different corners of the world.
+- You don't necessarily need Bollywood for wider acclaim.
+- I am amused with the love people are showing for my songs. I am really happy to see my fans enjoying my music and loving the music I make.
+- Yes I am a big time foodie, but I make sure to eat a little less than my actual hunger.
+- I have a very small list of friends with whom I gel and love to spend my time with.
+- All my songs are clean, and I am very careful about the lyrics, too.
+- I have a lot of friends here, and I love spending time with them, but Delhi's endless traffic jams make it very difficult to manage the plans.
+- When most of my solo/single tracks started making a buzz globally, labels started placing my songs in movies.
+- I still don't know if there is any one mantra for success.
+- With independent music, I can do what I feel satisfied with, and not feel the pressure of what others expect me to deliver.
+- I don't see myself in competition with anyone, I am in my own space; I don't follow anyone, though I appreciate good work always.
+- Singing for Bollywood films has an altogether different approach, as the industry has a wider reach. It has helped me reach parts of India which I didn't know existed.
+- I think you should do Bollywood once you are all into your own market. Doing a Bollywood song for a particular actor or producer, you should be known in the world outside of Bollywood music.
+- 'Suit' garnered a lot of appreciation and love from the audience, and it gives me immense happiness to start my Bollywood journey with such a wonderful track. 'Hindi Medium' posed a perfect and appropriate opportunity to showcase my song and ensure that the beautiful track reaches the global audience.
+- Yes, I have done a few things like always, worked immensely hard, always respected people, admired good work, and never let success blow my top off; probably this has worked in my favour.
+- With good music, yes, we can bring people together because a good song will touch your soul no matter what and where it is coming from.
+- If a new artist comes, and he doesn't have a good record label to invest in him, then there is no point.
+- I am glad to see the people grooving to and loving the Punjabi tunes. I also personally feel that Punjabi songs have a different vibe and energy, which helps in lifting one's mood completely.
+- I never wanted to impress anyone nor had to complete my education just so that my parents could allow me to pursue music.
+- It has been my dream to feature on Billboard's list, as I always wanted to make music for India that will make to that list. I have always wanted to take Indian music to an international platform someday, even if it is on number 100.
+- I enjoy independent music, even more than Bollywood.
+- I don't know cooking at all, but I think I can make simple tea.
+- My concern has always been to write songs that my audience, my fans are able to identify with.

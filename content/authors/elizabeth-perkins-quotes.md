@@ -1,0 +1,15 @@
++++
+author = "Elizabeth Perkins"
+title = "Elizabeth Perkins Quotes"
+quotes_len = "9"
+description = "the best 9 Elizabeth Perkins Quotes"
++++
+- I have two older sisters; I'm the youngest.
+- It seems like all the good looking people have smaller dogs these days. Especially for the women, because they always come in with their little Chihuahuas and the guys come in with their Golden Retrievers.
+- It doesn't happen very often that you get to work with some really good friends of yours and there's a common language between everyone, you don't have to explain what you're doing, you can just run with it. It makes it just so much easier and more relaxed.
+- My sisters are very academically inclined so whenever they would fix me up, it would always be from someone in their world, people they would find attractive. When they came to the door in suits, it was over.
+- My kids are old enough now that they can watch that, but I like to do the family movies.
+- If you're middle aged... where're you going to go to meet someone? You're not going to go to a bar, you're not going to go to a night club; and there are the museums.
+- Right now, my daughter's just rolling her eyes at everything I do; I'm just an embarrassment.
+- I would kill the clone. That would be my first response.
+- My oldest step-son wants to direct or produce. As far as being an actor, I've already told them they have to wait until they're 18; I won't take them to auditions.

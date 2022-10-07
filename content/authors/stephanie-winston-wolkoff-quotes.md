@@ -1,0 +1,65 @@
++++
+author = "Stephanie Winston Wolkoff"
+title = "Stephanie Winston Wolkoff Quotes"
+quotes_len = "59"
+description = "the best 59 Stephanie Winston Wolkoff Quotes"
++++
+- I put on three or four outfits a day during Fashion Week.
+- I really do think that it's going to be very important that fashion at Lincoln Center becomes a year-round initiative.
+- My favorite event of the season is the Costume Institute Gala at the Met in May. To that I'll wear custom Vera Wang.
+- I love a bold statement piece!
+- I was not a fashionista. I played Division I basketball. I'm a black belt in karate.
+- Style depends more on how you carry yourself in the clothes than the clothes alone, but a killer pair of heels doesn't hurt.
+- Fashion was not something that I knew about. It just wasn't really particularly interesting.
+- Actually, I live in T-shirts and True Religion jeans.
+- It is my moral obligation to vote for Biden because I do not believe that Trump is a decent person and I believe in my heart that Biden is.
+- I now realize Melania is not a normal woman. Two women had described having sex with her husband on national TV in graphic detail in the same week. Her private response: It's politics.' Her public response: dead silence. It just wasn't a human reaction.
+- Fashion, ultimately, is for the masses.
+- After being at Vogue' for two years in PR, I decided to bring all events in-house. That's how I became the director of events.
+- Ivanka was relentless and was determined to be the First Daughter Lady and to usurp office space out from under Melania; she wanted to be the only visible female Trump on the premises.
+- I am so grateful for my experience at Lincoln Center working to help relocate New York's largest media event - Mercedes-Benz Fashion Week.
+- I live on David Kirsch Wellness Water and Energy Bubbles. They keep me hydrated, healthy, and full of energy.
+- I knew Anna Wintour was the editor in chief of Vogue,' I just didn't understand what it meant to wait around to meet with Anna Wintour.
+- When you make a mistake, own up to it.
+- I've dedicated my life to being true and honest and I would never take advantage of something.
+- I can't live without my Hermes day planner.
+- Melania's a pragmatist, Melania always - you know, if you can't control people's emotions then why even worry about it. And that's how she lived her life and that is what she stood by every day.
+- If I have time to dash home before an event, I love to swap workwear for something a bit more whimsical.
+- I see fashion as going on par with all the other cultural institutions here. Ballet, theater, opera - I don't see fashion differently.
+- If I don't know something, I'll tell you I don't know it. If I'm not sure about something, I'll say I'm not sure.
+- I love my Michael Kors, Ralph Lauren, Carolina Herrera, Vera Wang. I've grown up with them.
+- It's not that I'm a control freak - but I am. I want to make sure everything is perfect.
+- I live in a lot of Alexander McQueen.
+- Literally a headline destroyed my life and took away everything that I'd ever built.
+- My wardrobe reflects my long-standing belief that great style lives in the details.
+- I rely on accessories to add color and texture; if I'm already wearing something attention-getting, neutral-tone pumps keep the look from going over-the-top.
+- My BlackBerry is essential to my survival.
+- What attracted me to Melania is her strength, her independence, her doesn't-matter-what-anybody-else-thinks attitude.
+- I made a life-changing mistake. I continued working for Melania, and at the White House, even though the environment was toxic, because I believed I could make a difference.
+- I believed that regardless of political ideologies - the reality was I didn't even have any - which is no excuse, and it's a horrible thing to admit, but I've admitted it - you can't get into something not knowing who the players are, but also not understanding that policy and ethics go together.
+- For the record, my personal compensation for my work on the inauguration that I retained was $480,000. That number may seem like a lot. It is a lot.
+- Eleven years at Vogue and not one party crasher, and it won't happen here either.
+- Ivanka was asking her work contacts at the White House to write to her at her private email - the exact offense the Trumps had lambasted Hillary Clinton for during the general election. Would anyone chant 'Lock her up!' about Ivanka's private server? Doubtful.
+- It's perfectly acceptable to wear a short dress to formal occasions.
+- But for the vacation with my kids in the Bahamas, I'll bring a Michael Kors white gauze tunic, white Dolce & Gabbana jeans, Prada sandals, a ring by Iradj Moini, and enamel bracelets from Hermes.
+- I try to keep my appearance classic and sophisticated.
+- I realized we're all perfectly imperfect, which was a big thing. Perfectionism, to me, was an important thing.
+- I have ambition and drive, and I'm passionate about the fashion industry.
+- I didn't lie that I read Vogue' every day or that I grew up loving fashion, but I did know how to roll up my sleeves and do whatever it took to learn it.
+- We need to incorporate fashion into every element and institution, whether it be through designer-lecture series, photography exhibitions, or collaborative efforts between artists and designers.
+- I'm not about the next big trend. I'm about the silhouette and right fit and right designer for me.
+- When I met Melania Knauss in 2003, we were both 32 years old and walking the hallways of Vogue. I was working; she was visiting.
+- The Costume Institute Benefit became my baby. It was something that I lived, breathed, day and night.
+- Sweaters in light hues function perfectly as between-season buffers.
+- I'm a worker. I need to keep busy.
+- I witnessed the transformation of Melania from gold plate into twenty-four karat gold. I believed she had the heart to match.
+- With the publication of my book, Melania and Me: The Rise and Fall of My Friendship With the First Lady,' I have exercised my right to free expression.
+- Being at the vanguard of fashion in New York is magical.
+- Listen, fashion and entertainment is tough, but you see it as it is. You understand what's going on around you.
+- I favor big, bold jewelry - especially statement necklaces that still have a sense of delicateness.
+- I've always adored Sophia Loren.
+- A Trump is a Trump is a Trump.
+- Yes, Operation Block Ivanka was petty. Melania was in on this mission. But in our minds, Ivanka shouldn't have made herself the center of attention in her father's inauguration.
+- Melania and the White House had accused me of criminal activity, had publicly shamed and fired me, and made me their scapegoat.
+- I organize my closet by season, color, and silhouette, but I don't edit often enough, which causes me to hoard Hermes cuffs in Hermes bags that are crammed into my living room because my closet is overflowing.
+- Ivanka would never stop trying to muscle in on Melania's events.

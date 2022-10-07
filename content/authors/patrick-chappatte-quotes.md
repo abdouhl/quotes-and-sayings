@@ -1,0 +1,19 @@
++++
+author = "Patrick Chappatte"
+title = "Patrick Chappatte Quotes"
+quotes_len = "13"
+description = "the best 13 Patrick Chappatte Quotes"
++++
+- Let's not let cartoonists get involved in a war of any kind, except for a war against stupidity.
+- I don't think any media has to feel obliged to show the cover of 'Charlie Hebdo.'
+- The Internet has empowered us. It has empowered you, it has empowered me, and it has empowered some other guys as well.
+- A real totalitarianism is at work in the world and wants to impose its views not only on Arab Muslims, but on the West. The same way that they veil women, Islamic radicals want to veil cartoons in the press.
+- Today, fear of bloodshed is forcing us into recognizing new taboos: those of Muslims.
+- We have learned the lines of good taste through history and our sense of guilt, be it post-colonial or post-Holocaust.
+- Moderate people are able to be moderate and have free speech only because there are some people on the fringe.
+- Every village in Africa now has a cyber cafe.
+- Some felt as if 'Charlie Hebdo' was obsessed with its 'Screw Allah' stance. It's a sort of provocation that caused a lot of debates.
+- The big challenge our society faces is that we live in an increasingly open world with increasingly closed communities. This is also due to the evolution of the Internet, where people only read things that won't challenge their beliefs.
+- You know what they say? They say, 'The print media is dying' - who says that? Well, the media.
+- We need to defend absolutely the freedom of speech.
+- Religion and political cartoons, as you may have heard, make a difficult couple, ever since that day of 2005, when a bunch of cartoonists in Denmark drew cartoons that had repercussions all over the world - demonstrations, fatwa, they provoked violence. People died in the violence.

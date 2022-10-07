@@ -1,0 +1,61 @@
++++
+author = "Daniel Goleman"
+title = "Daniel Goleman Quotes"
+quotes_len = "55"
+description = "the best 55 Daniel Goleman Quotes"
++++
+- When I say manage emotions, I only mean the really distressing, incapacitating emotions. Feeling emotions is what makes life rich. You need your passions.
+- In politics, readily dismissing inconvenient people can easily extend to dismissing inconvenient truths about them.
+- Empathy and social skills are social intelligence, the interpersonal part of emotional intelligence. That's why they look alike.
+- As a freshman in college, I was having a lot of trouble adjusting. I took a meditation class to handle anxiety. It really helped. Then as a grad student at Harvard, I was awarded a pre-doctoral traveling fellowship to India, where my focus was on the ancient systems of psychology and meditation practices of Asia.
+- Companies in the East put a lot more emphasis on human relationships, while those from the West focus on the product, the bottom line. Westerners appear to have more of a need for achievement, while in the East there's more need for affiliation.
+- True compassion means not only feeling another's pain but also being moved to help relieve it.
+- Buying phosphate-free soap allows you to say, 'My detergent doesn't have the harsh chemicals others do.' The question is, how are you washing with it? The very worst thing for the Earth about detergent is that we heat water to use it.
+- The other thing is that if you rely solely on medication to manage depression or anxiety, for example, you have done nothing to train the mind, so that when you come off the medication, you are just as vulnerable to a relapse as though you had never taken the medication.
+- If you are doing mindfulness meditation, you are doing it with your ability to attend to the moment.
+- I think the smartest thing for people to do to manage very distressing emotions is to take a medication if it helps, but don't do only that. You also need to train your mind.
+- But there has also been a notable increase in recent years of these applications by a much wider slice of psychotherapists - far greater interest than ever before.
+- If you do a practice and train your attention to hover in the present, then you will build the internal capacity to do that as needed - at will and voluntarily.
+- I would say that IQ is the strongest predictor of which field you can get into and hold a job in, whether you can be an accountant, lawyer or nurse, for example.
+- Emotional intelligence begins to develop in the earliest years. All the small exchanges children have with their parents, teachers, and with each other carry emotional messages.
+- We need to re-create boundaries. When you carry a digital gadget that creates a virtual link to the office, you need to create a virtual boundary that didn't exist before.
+- The book is a dialogue between The Dalai Lama and a group of scientists about how we can better handle our destructive emotions and how to overcome them.
+- I don't think focus is in itself ever a bad thing. But focus of the wrong kind, or managed poorly, can be.
+- But once you are in that field, emotional intelligence emerges as a much stronger predictor of who will be most successful, because it is how we handle ourselves in our relationships that determines how well we do once we are in a given job.
+- Brain studies of mental workouts in which you sustain a single, chosen focus show that the more you detach from what's distracting you and refocus on what you should be paying attention to, the stronger this brain circuitry becomes.
+- When I went on to write my next book, Working With Emotional Intelligence, I wanted to make a business case that the best performers were those people strong in these skills.
+- Well, any effort to maximize your potential and ability is a good thing.
+- Western business people often don't get the importance of establishing human relationships.
+- Social distance makes it all the easier to focus on small differences between groups and to put a negative spin on the ways of others and a positive spin on our own.
+- We're exposed and carry in our bodies multiple chemicals, and we have to understand how they interact. Both how they individually interact and the thousands of effects they can produce when they interact with the receptors that run our bodies.
+- In a high-IQ job pool, soft skills like discipline, drive and empathy mark those who emerge as outstanding.
+- Societies can be sunk by the weight of buried ugliness.
+- My hope was that organizations would start including this range of skills in their training programs - in other words, offer an adult education in social and emotional intelligence.
+- The social brain is in its natural habitat when we're talking with someone face-to-face in real time.
+- The amygdala in the emotional center sees and hears everything that occurs to us instantaneously and is the trigger point for the fight or flight response.
+- The basic premise that children must learn about emotions is that all feelings are okay to have; however, only some reactions are okay.
+- Every morning, I go off to a small studio behind my house to write. I try to ignore all email and phone calls until lunchtime. Then I launch into the sometimes frantic busy-ness of a tightly scheduled day.
+- However, I began meditating at about that time and have continued on and off over the years.
+- Teachers need to be comfortable talking about feelings.
+- When it comes to exploring the mind in the framework of cognitive neuroscience, the maximal yield of data comes from integrating what a person experiences - the first person - with what the measurements show - the third person.
+- Once shoppers become empowered, we will facilitate industries thinking in completely new terms; for example, making products that are totally biodegradable.
+- A prerequisite to empathy is simply paying attention to the person in pain.
+- Making choices that improve things for all of us on the planet is an act of compassion, a simple act we can do any time we go shopping.
+- Scheduling down time as part of your routine is hard but worth it, personally, even professionally.
+- People tend to become more emotionally intelligent as they age and mature.
+- While there I began to study the Asian religions as theories of mind.
+- One way to boost our will power and focus is to manage our distractions instead of letting them manage us.
+- Teachers need to be comfortable talking about feelings. This is part of teaching emotional literacy - a set of skills we can all develop, including the ability to read, understand, and respond appropriately to one's own emotions and the emotions of others.
+- The more socially intelligent you are, the happier and more robust and more enjoyable your relationships will be.
+- There is zero correlation between IQ and emotional empathy... They're controlled by different parts of the brain.
+- The industrial processes in use today were developed at a time when no one had to consider what the environmental impact was. Who cared? But making ecological concerns matter to a company's bottom line will help it do the research and development that will reinvent everything we buy.
+- Emotions are contagious. We've all known it experientially. You know after you have a really fun coffee with a friend, you feel good. When you have a rude clerk in a store, you walk away feeling bad.
+- Mindful meditation has been discovered to foster the ability to inhibit those very quick emotional impulses.
+- Some children naturally have more cognitive control than others, and in all kids this essential skill is being compromised by the usual suspects: smartphones, TV, etc. But there are many ways that adults can help kids learn better cognitive control.
+- A little girl who finds a puzzle frustrating might ask her busy mother (or teacher) for help. The child gets one message if her mother expresses clear pleasure at the request and quite another if mommy responds with a curt 'Don't bother me - I've got important work to do.'
+- The emotional brain responds to an event more quickly than the thinking brain.
+- If your emotional abilities aren't in hand, if you don't have self-awareness, if you are not able to manage your distressing emotions, if you can't have empathy and have effective relationships, then no matter how smart you are, you are not going to get very far.
+- Emotional 'literacy' implies an expanded responsibility for schools in helping to socialize children. This daunting task requires two major changes: that teachers go beyond their traditional mission and that people in the community become more involved with schools as both active participants in children's learning and as individual mentors.
+- Whenever we feel stressed out, that's a signal that our brain is pumping out stress hormones. If sustained over months and years, those hormones can ruin our health and make us a nervous wreck.
+- Smart phones and social media expand our universe. We can connect with others or collect information easier and faster than ever.
+- Motivation aside, if people get better at these life skills, everyone benefits: The brain doesn't distinguish between being a more empathic manager and a more empathic father.

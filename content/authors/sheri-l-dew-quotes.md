@@ -1,0 +1,68 @@
++++
+author = "Sheri L. Dew"
+title = "Sheri L. Dew Quotes"
+quotes_len = "62"
+description = "the best 62 Sheri L. Dew Quotes"
++++
+- Satan has declared war on motherhood. He knows that those who rock the cradle can rock his earthly empire. And he knows that without righteous mothers loving and leading the next generation, the Kingdom of God will fail.
+- As sisters in Zion, we can be obstacles to the adversary's conspiracy against families and virtue.
+- The gospel of Jesus Christ is all about people. It's about leaving the ninety and nine and going into the wilderness after those who are lost. It's about bearing one another's burdens, with the ultimate burden anyone can bear being walking through this life without light.
+- In this world, the only true joy comes from the gospel - the joy that radiates from the Atonement and from ordinances that transcend the veil, and from the Comforter that salves our souls.
+- The blessings of the priesthood are available to every righteous man and woman. We may all receive the Holy Ghost, obtain personal revelation, and be endowed in the temple, from which we emerge 'armed' with power.
+- For the Holy Ghost blesses us with optimism and wisdom at times of challenge that we simply cannot muster on our own.
+- Our Father knew exactly what He was doing when He created us. He made us enough alike to love each other, but enough different that we would need to unite our strengths and stewardships to create a whole.
+- Being steadfast and immovable with our heels in tar on the Lord's side of the line is the only strategy that works long-term against Lucifer.
+- Men and women who sell their birthright for a mess of pottage will tell you that their demise began with something small, with some seemingly insignificant breach of integrity that escalated. The little things do matter. It is not possible to profess righteousness while flirting with sin.
+- No 11-year-old girl wants to be 5-10. I always felt big and unattractive.
+- There is nothing this confused world needs more, nothing that inspires a greater sense of well-being, nothing that has greater power to strengthen families than the gospel of Jesus Christ.
+- It is by letting the world go and coming unto Christ that we increasingly live as women of God.
+- The Lord needed the strength of the women of this Church as the seeds of the Restoration were planted and nourished.
+- By virtue of who we are, what we know, the promises we made to our Heavenly Father, and the fact that we are living now and where we are living, I absolutely think we were all born to lead.
+- By the time I turned 12, I was a 5-foot 10-inch social disaster. Towering over my friends was the bane of my adolescence.
+- Relief Society can help us turn away from the world, for its express purpose is to help sisters and their families come unto Christ.
+- I was raised on a farm in Kansas where we lived next door to my Grandma Dew, and I was her shadow. We went everywhere together - to the bank, the doctor, the Early Bird Garden Club, and to an endless procession of Church meetings.
+- The gospel of Jesus Christ is for everyone. We are all significant parts of the whole. I never think of myself as single; I think of myself as Sheri, a member of the Lord's Church.
+- I am a basketball junkie, and as a product of the great basketball state of Kansas, I have watched many a ball game between the University of Kansas Jayhawks and the Tar Heels.
+- Think about what there is to learn from your heritage, good and bad, and about what you want to cultivate and not cultivate.
+- My mother made me take piano lessons, and because I am her oldest and she had not yet been worn down by the task of prodding five children to practice every day, she kept me practicing despite my whining.
+- Most significantly, the fullness of the priesthood contained in the highest ordinances of the house of the Lord can be received only by a man and woman together.
+- Our responsibility is to learn to draw upon the power of the Atonement. Otherwise, we walk through mortality relying solely on our own strength.
+- It is no accident that faith in Jesus Christ - not only believing in Him but believing Him - is the first principle of the gospel.
+- The decisions you are making right now and that you will make in the foreseeable months and years will absolutely determine whether you pivot towards the world or towards the Lord.
+- If you are in a position to influence someone, you are a leader.
+- There is no greater name for a leader than mother or father. There is no leadership more important than parenthood.
+- The pain of loneliness seems to be part of the mortal experience. But the Lord in His mercy has made it so that we need never deal with the challenges of mortality alone.
+- If we don't do as well as we know how and we are prepared to do, it'll be largely because we act and make choices as though we're going to stay here, as though this life is all there is, when that is not the case.
+- It is easier to motivate people to do something difficult than something easy.
+- Without the presence of the Spirit, it is impossible to comprehend our personal mission or to have the reassurance that our course is right.
+- I have 17 nieces and nephews, who are a pure delight. We have hiked and biked and fasted and prayed together.
+- The power of the priesthood heals, protects, and inoculates all of the righteous against the powers of darkness.
+- There isn't anyone who wants to see me married more than I do.
+- Sisters, we as women are not diminished by priesthood power - we are magnified by it. I know this is true, for I have experienced it again and again.
+- Motherhood is more than bearing children, though it is certainly that. It is the essence of who we are as women. It defines our very identity, our divine stature and nature, and the unique traits our Father gave us.
+- Satan understands the power of men and women united in righteousness. He is still stinging from his banishment into eternal exile after Michael led the hosts of heaven, comprised of valiant men and women united in the cause of Christ, against him.
+- I had a lot of friends who were boys. I played ball with them, but we didn't date. They didn't ask me that much because I wasn't cute enough or because I didn't drink or party.
+- Regardless of your marital status, your age, or the language you speak, you are a beloved spirit daughter of Heavenly Father who is destined to play a critical part in the onward movement of the gospel kingdom.
+- Indeed, this life is a test. It is a test of many things - of our convictions and priorities, our faith and our faithfulness, our patience and our resilience, and in the end, our ultimate desires.
+- Through the years, I, like you, have experienced pressures and disappointments that would have crushed me had I not been able to draw upon a source of wisdom and strength far greater than my own. He has never forgotten or forsaken me, and I have come to know for myself that Jesus is the Christ and that this is His Church.
+- We are all farmers tending a little part of the Lord's vineyard.
+- My whole life, I've felt like I didn't quite measure up.
+- You cannot have a relationship with someone you can't trust.
+- You were born to lead as mothers and fathers, because nowhere is righteous leadership more crucial than in the family.
+- There will be days when you feel defeated, exhausted, and plain old beat-up by life's whiplash. People you love will disappoint you - and you will disappoint them. You'll probably struggle with some kind of mortal appetite. Some days it will feel as though the veil between Heaven and Earth is made of reinforced concrete.
+- I was a friend during school time, but not much after that. By the time I got to BYU, I was a social mess, an absolute misfit. There is not a shyer, more pathetic kid who stepped on that BYU campus than me.
+- God our Father and His Son Jesus Christ, with Their perfect foreknowledge, already recommended every one of you to fill your mortal probation during the most decisive period in the history of the world.
+- The Savior isn't our last chance; He is our only chance. Our only chance to overcome self-doubt and catch a vision of who we may become. Our only chance to repent and have our sins washed clean.
+- I drove a tractor almost as soon as I could reach the pedals.
+- I am innately very shy, and I have struggled with that challenge for years.
+- Motherhood is not what was left over after our Father blessed His sons with priesthood ordination. It was the most ennobling endowment He could give His daughters, a sacred trust that gave women an unparalleled role in helping His children keep their second estate.
+- Sisters, some will try to persuade you that because you are not ordained to the priesthood, you have been shortchanged. They are simply wrong, and they do not understand the gospel of Jesus Christ.
+- There is a direct relationship between how we feel about Jesus Christ and how we see ourselves. We cannot increase our devotion to the Savior without also obtaining a greater sense of purpose, identity, and conviction.
+- As a young girl, I saw commitment in my grandmother, who helped Grandpa homestead our farm on the Kansas prairie. Somehow they outlasted the Dust Bowl, the Depression, and the tornadoes that terrorize the Great Plains.
+- The Holy Ghost is the minister and messenger of the Father and the Son, and He testifies of both Their glorious, global reality and Their connection to us personally.
+- I know how to set an irrigation tube, and I helped with the harvest. I learned the law of the harvest without even knowing I was learning it. On the farm, you learn early that you reap what you sow.
+- We were all born to lead.
+- For reasons known to the Lord, some women are required to wait to have children. This delay is not easy for any righteous woman. But the Lord's timetable for each of us does not negate our nature.
+- My progress on the piano and my motivation to practice increased dramatically when I caught a vision of my potential.
+- Neither man nor woman is perfect or complete without the other. Thus, no marriage or family, no ward or stake is likely to reach its full potential until husbands and wives, mothers and fathers, men and women work together in unity of purpose, respecting and relying upon each other's strengths.
+- Very simply, our physical and spiritual safety lies in never even getting close to the line that separates light from dark, good from evil.
