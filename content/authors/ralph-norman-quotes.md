@@ -1,0 +1,21 @@
++++
+author = "Ralph Norman"
+title = "Ralph Norman Quotes"
+quotes_len = "15"
+description = "the best 15 Ralph Norman Quotes"
++++
+- I am a businessman.
+- My candidacy is one that fits the district and fits the Mick Mulvaney-Jim DeMint philosophy.
+- What Washington desperately needs now are citizen legislators that are dedicated to leading a free people and to maintain our God-given right to the pursuit of life, liberty, and the pursuit of happiness.
+- My views line up with Mick Mulvaney's views pretty much exactly.
+- Business creates jobs; government does not. Government creates a whole slew of jobs each time a new program or scheme is implemented, but always at the expense of the taxpayer. Small businesses invest in new businesses, which results in more jobs.
+- Men aren't able to retire and are going bankrupt making alimony payments.
+- I firmly believe that with President Trump in the White House, we have such a great opportunity as conservatives.
+- I don't think I can sell to our voters in our district that there's nothing to cut in the federal budget. Nobody, I think, sees that or would agree with that.
+- I got into politics because businessmen should be spending your money.
+- Our message of a balanced budget amendment, term limits to end career politicians, and a real plan to keep America safe is resonating with voters.
+- Everybody's had their differences with President Trump. He's a polarizing president, but I think a majority of the people like what he's doing.
+- My one issue in this country is to get on a firm financial footing. There's not much you can do if you're bankrupt.
+- John Spratt did a great job of constituent service. When somebody had a problem, he would jump on it. The reason I ran against him was that he was one way in the district and then when he got to Washington, he voted the opposite.
+- I believe in the free enterprise system.
+- If you liked Mick Mulvaney's votes, you'll like my votes.

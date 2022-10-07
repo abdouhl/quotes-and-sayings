@@ -1,0 +1,171 @@
++++
+author = "Rob Lowe"
+title = "Rob Lowe Quotes"
+quotes_len = "165"
+description = "the best 165 Rob Lowe Quotes"
++++
+- Comedies always need to be provocative and catch your attention in a way that dramas don't have to.
+- I'd love to serve my country. I would love it.
+- If you're telling a story, and somebody is going to come out badly, it better be you.
+- If you treat China like a foe, surely she will become one.
+- I've been on TV a long time, and I've never had a catch phrase.
+- Things that I consider bad qualities, I always try and figure out where they are coming from. I don't consider ambition to be a bad one. It's served me very well in my life. Very well.
+- I like the nexus of Bollywood and Hollywood. I'm actually shocked that there isn't more of a meld between our two industries.
+- I have been looking forward to this age of my life for a long time. In my twenties, I marked the days on the calendar - I was sick of playing high-school kids.
+- I'll be sober ten years and married nine soon.
+- I've said before that the common perception that all good actors should be good liars is exactly the opposite; only bad actors lie when they act.
+- I am the guy dressing up in, you know, the caveman outfit for the kids' birthday parties.
+- When you're writing personal stories, you have to be totally uncompromising - to the extent that you can be - about yourself. I know that if I am uber-uncompromising with myself, that gives me some latitude to write about others.
+- Children change you. They really do.
+- My parents did divorce, but my dad has always been present for me and loving me and my mom as well when she was alive.
+- I've come to really like Twitter. You really do get to see what I'm about, and I like sharing with my fans.
+- David Blum burned a lot of bridges. He burned people early in their careers. He took on the wrong people, though. He's not Hunter Thompson or Tom Wolfe, he's David Blum living in a cheap flat.
+- Here's my theory: If a person gets worldwide fame at a young age, they're emotionally frozen at that moment. For me, that's 15 to 18, so you find yourself in your mid-20s being a glorified 15-year-old. What could possibly go wrong?
+- Individuals usually do a better job than the government.
+- I don't know what drives me.
+- My dad is an attorney. I've always been interested in it. My sons are probably going to law school.
+- Look, I owns guns.
+- The Kennedys are our royals.
+- I made a conscious effort to focus on television so I could stay in Los Angeles, so I wasn't on a location all over the world doing movies.
+- I've been lucky enough in 'The West Wing' and 'Brothers & Sisters' to talk about the issues that are important to me with none of the awful mud-slinging or public scrutiny you have in politics.
+- I have had a lot of blessed, interesting things happen to me and have bumped up against some amazing people.
+- I was smart and married somebody who could do for me what I couldn't do for myself.
+- Show me someone who doesn't have some sort of experience that they would be uncomfortable for people to know about and I'll show you a dullard.
+- After my parents' divorce when I was 4, I spent weekends with my dad before we finally moved to California. By the time Sunday rolled around, I was incapable of enjoying the day's activities, of being in the moment, because I was already dreading the inevitable goodbye of Sunday evening.
+- I always like stories where the egg ends up on my face.
+- I like doing things that are different, unexpected, and where I feel that either the role feels like a natural fit for me or it's a really big swing that I don't know if I'm going to connect on.
+- Feng shui isn't open to interpretation.
+- I'd like to build a TV company for myself.
+- I like the way you can circumvent the media gatekeepers and go right to the people. That's my favorite thing about Twitter.
+- Guys are really lucky. We become our authentic selves the older we get.
+- When I was filming 'The Outsiders,' my idea of success was getting the next Martin Scorsese movie.
+- I'm perfectly flawed... I've got tons of flaws.
+- I am still in love with my wife.
+- The minute you start making calculations about what people will think of you as a person based on your work as an actor, you're on the road to becoming a bad one.
+- I wouldn't be where I am today without my mistakes. Particularly my mistakes. Exclusively my mistakes.
+- One of the interesting things about Twitter is looking how famous people choose to use it. Take someone like Steve Martin, who I follow: it's all sorts of comic gems, nothing private, nothing personal - all jokes. Other celebrities are overtly personal - like Charlie Sheen. I do a mix of observations and updates.
+- Belonging to one party is acceptable. But my days of just ticking the party box are long over. I judge the candidates for who they are.
+- Let me just say this - sometimes being a trailblazer is highly overrated.
+- The first private space of my own wasn't a dorm room; it was a hotel room in Tulsa, Oklahoma.
+- In acting, there's a type of courage you're recognized for all the time. You lose 100 pounds and play a guy with AIDS, and you get rewarded. But, in life, doing what is courageous is quiet, and no one knows about it. Courage is someone making sacrifices for their family or making selfless decisions for what they hope or feel.
+- To go from playing Jack Startz in 'Behind the Candelabra' to playing JFK in the same year, I have now operated at the far ends of my range as an actor.
+- In comedy you have to be willing to not take yourself seriously, you know? I take comedy really seriously, and so to take comedy seriously, you must not, you cannot, ever take yourself seriously.
+- I try to be authentically who I am.
+- I'll never forget one of those things that my father said to me. My father said: 'You know what? We have had so many amazingly positive experiences that we would have never had because you're famous. We can stand to have a couple negatives ones, too.'
+- I don't flip. I don't even dive into a pool - straight cannonball for me. No, thanks.
+- I have a lot of great memories, but I can't imagine anything more exciting than the life I have now.
+- Temperamentally, Sam and I are very much alike. He's a lawyer, my father's a lawyer, and I always wanted to play one. On so many levels the role just felt right. I fell in love with it as I would a woman.
+- I like the tradition of ordinary men in extraordinary circumstances and how they react to events which force them to be heroic in a way that is not in their natures.
+- Tom Ford, who is my all-time favourite, once said to me, 'Here's the thing about dress shirts, Rob. You need white, and you need black.' 'What about blue,' I asked. He said, 'Have you ever seen Cary Grant in a blue dress shirt?'
+- I loved fun. I spent my whole life in search of fun. I have not given up that part of myself.
+- I've had years of psychiatry, and I ask about every six months - it's sort of like getting your oil checked - I ask, 'I'm not an actual narcissist, am I?' The learned men of psychiatry assure me that I meet none of the medical criteria.
+- JFK is a role I've always dreamt of playing.
+- In my bachelor days, the priority wasn't learning to cook.
+- I've gotten to believe it's more fun to play politicians than actually be them.
+- I've been around for so long, people have their perceptions of me: good, bad or indifferent.
+- My roles in comedies from 'Austin Powers' to 'Tommy Boy' to 'Wayne's World,' were sort of comedic 'straight man' parts. My character on 'Parks & Recreation' is the comic relief in a comedy. To play a character that appears strictly for laughs is sort of new for me and really fun.
+- Sobriety was the greatest gift I ever gave myself. I don't put it on a platform. I don't campaign about it. It's just something that works for me. It enabled me to really connect with another human being - my wife, Sheryl - which I was never able to do before.
+- When I hear that I realize how quickly time passes and how everybody goes on their journeys and they're always unbelievable and they never go where you think they're going to take you and, quite frankly, it also makes me feel a little old.
+- I'm a true centrist: my beliefs put me in the middle... You know what happens to people who drive in the middle of the road? They get run over.
+- We always reminisce about how everyone tried to get Diane Lane's attention, to very little success.
+- Sun Valley is one of my favorite spots.
+- I liked being a teenager, but I would not go back for all the tea in China.
+- The first shooter video game stuff which - look, admittedly, I missed that generationally, so it's not a thing for me. I've never played them. I don't really get it. My kids do.
+- I wish I was a more religious person. I really admire Martin Sheen for his Catholicism. It's such a bedrock. I wish I had that in my life.
+- I'm a Hollywood pinhead; I don't know about political labels.
+- I'm not unashamed to say that I like movies that make me verklempt.
+- I had long ago become a creation, a public image made to be consumed, piled on top of a precarious shell of a little boy wanting to be loved.
+- I have, on the other hand, felt ill will from various people in the industry and the press.
+- Getting married isn't going to make your relationship better. It's just a ceremony.
+- For guys, I don't think you're ever ready... I don't think you wake up and go, 'You know, today's the day I'm going to get married. By God, I'm ready. My house is in order, and it is time.'
+- If you are worried about what people think of you, you should go into politics. Real actors take chances.
+- My issue isn't about physical aging; my issue is about wanting to remain vigorous and youthful in my spirit.
+- I have never felt at any point in my life, good or bad, any ill will ever from the man or woman on the street.
+- It's funny what actors take issue with. Some won't do parts where animals are in jeopardy; some won't ever play anyone remotely unlikable - 'Heroes only, please.' Some won't do violence. I have no such qualms.
+- I am terrible with people's names.
+- Like most guys, I don't come to beauty regimes naturally. I'm dragged kicking and screaming by the best in the world.
+- A few years ago, I got to a point where I realised that the only way you can tell someone's age is how they live their life. The candles on the cake mean absolutely nothing.
+- I believe in ceremony. I think ceremony is important, pomp and circumstance, tradition. I'm into those things.
+- I've always been involved in politics, since I was 8 or 9 years old. I sold Kool-Aid for McGovern - I could always pick a winner.
+- My life and the lives of many across the world have been deeply affected by lymphoma.
+- By making more people aware of lymphoma, Worldwide Lymphoma Awareness Day hopes to save lives by increasing early diagnosis and suitable treatment.
+- When I started on 'The West Wing,' that was at a time when this was still a stigma, because movie stars didn't do TV. Now, every movie star is desperate to find their 'True Detective.'
+- I started out being a really, really liberal Democrat.
+- Oh my God, I love rehab! I highly recommend it.
+- I love acting so much that I don't want to give that up.
+- My greatest regret at the passing of America-hating strongman Hugo Chavez is that he didn't live long enough to party with Dennis Rodman.
+- There's this unbelievable bias and prejudice against quote-unquote good-looking people, that they can't be in pain or they can't have rough lives or be deep or interesting.
+- The president of the United States can't even fire his chef. I'm not kidding.
+- I'm a political junkie.
+- When I got sober, that was 1990.
+- The cast of 'Parks & Rec' is just a group of unbelievably nice, humble, down to earth, hilarious friends.
+- Cannes is a little bit like French wine. There are certain years that people prefer over others.
+- For me, the battle is finding the balance between wanting to spend time with my boys and then having enough perspective to still be the disciplinarian and, like, not be in the best friend business.
+- As an actor and a fledgling director, I'm used to making snap decisions that I'll have to live with.
+- The '80s were about trying to establish myself as an actor with a career. And being a teenager enjoying the fruits of being successful with lots of what I think is appropriate for that age.
+- Malibu was a wellspring of counterculture group think.
+- Equality for everybody is great. That would be amazing.
+- I - you know, I loved politics more as a younger man.
+- In spite of being professionally gregarious, in my nonpaid hours I'm a bit of a hermit. After being around a crew of fifty people for twelve hours a day on a film set, I really like my alone time, and as always, I abhor small talk.
+- Before you could actually have face-lifts, they would pull your skin around the back of your head with rubber bands, where they would tape it. And then you'd have to wear a wig over it to hide the rubber bands. It was not the most comfortable.
+- My hopes and aspirations haven't changed since I started in this business. They've been to be able to play drama, to be able to play comedy, to be able to play leading men, and to be able to play character roles. I have no other aspirations in this regard.
+- I feel pressures to stay relevant. To stay interesting and interested. To stay at the top of my game and expand.
+- Eleven days before 9/11, I was on a plane with the 9/11 hijackers who were carrying out a dry run.
+- As a person navigating the waters of public scrutiny, you are often unable to hold on to personal heroes or villains. Inevitably you will meet your hero, and he may turn out to be less than impressive, while your villain turns out to be the coolest cat you've ever met.
+- Can we understand - just for the record, we do need the government for a lot of big ticket items.
+- Directors are not worried about casting beautiful women, but they are not sure that they want to cast great-looking men. My looks have prevented people from seeing my work.
+- My thing is personal freedoms: freedoms for the individual to love whom they want, do with what they want. In fact, I want the government out of almost everything.
+- I don't like being taken for granted anywhere in life. I don't want my vote taken for granted.
+- What's gratifying about West Wing is that everybody told us that it couldn't be done - that the man or woman on the street didn't care about politics. But if you set things up correctly, people don't have a problem with it.
+- I always wanted that house where everybody wants to go, full of energy, dogs, music, fun.
+- To be counter to the culture, you are by definition willfully and actively ignoring the culture, i.e., reality.
+- I've always written a little bit. I mean, I've written screenplays, and I've doctored my dialogue for years, and I've written speeches - I was a speechwriter on 'The West Wing,' so I like that kind of thing. But I never really thought I'd write a book.
+- Every relationship has its complications.
+- I couldn't have gotten sober without rehab because I needed the science.
+- I'm a sportsman, you know, and I shoot skeet, and I grew up in the Midwest, so that's a part of my culture.
+- I love London.
+- Being in a successful marriage is no different than being cast in a successful movie. It's all about who you pick; in that first moment, did you pick the right person? I think you need to pick somebody who's more interested in being married than in getting married.
+- The term 'celebrity memoir' has gotten such a bad name now, but there used to be a little bit of an art form to it.
+- I have a friend who is very successful in business, and his motto is, 'Don't do what you can do. Do what only you can do.' First of all, you have to know what your specific, unique gift is and then you do that... every actor does that but every once in a while an actor plays a part that only they can play.
+- The highest levels of fame in the entertainment business are geared toward keeping the artist disconnected, disinterested and continuing to make product and not developing any sort of 'normal life.'
+- If I had been on 'Ally McBeal,' I would have been seen coming out of the shower on the first show.
+- I signed up for 'Brothers & Sisters' because I think it's a really great show. I like my character, and I'm really interested in what he has to do every day - and this cast is so spectacular. I really wanted to work with this particular group of people.
+- The Brat Pack is timeless.
+- I was a child of the '80s.
+- There is a movie called 'My Dog Skip,' starring my 'Outsiders' costar Diane Lane. I do not recommend it. If you have a child, particularly one about to leave home, watching this film is to be emotionally waterboarded.
+- My deep dark secret is that I was a nerd in school. I liked the theater. I liked to study. I wasn't very good at sports.
+- Television is populated with commitment-phobes.
+- I only pray when it suits my own needs. I'm not proud about that.
+- I learned to focus on what's real rather than imagined; on not letting feelings drive the bus; on being courageous and honest; on putting my total effort into something and not worrying about the result.
+- It's a little bit of a 'if you can't beat 'em - join 'em' mentality for me when I think about Twitter.
+- My two sons are the most important things in the world to my wife and I - they are what I build my world around.
+- I like all of John Carpenter's movies. 'The Thing' is my favorite.
+- I never get bored talking about themes dealing with ambition, leadership and what it means to be an American. I love that stuff. I just love it. I've loved it ever since I was on 'The West Wing.'
+- We should all be so lucky in our lives to create things that we're still talking about 25 years later.
+- I had met my now wife, Sheryl, and was attempting my first try at monogamy, which was not really in my nature at the time, and I wasn't able to do it.
+- I didn't go to Ivy League schools. I dropped out of college to go into movies.
+- Fame is not a natural condition for human beings.
+- I've never met a funny person who wasn't smart. I've met a lot of dramatic people who were stupid. But I've never met a funny person who wasn't smart.
+- I look at it like this: that if Shakespeare were alive today, he would have written two or three plays about the Kennedy family, and actors would traditionally play JFK like they Hamlet or King Lear. They just would. I mean, people have played JFK, and they'll play him long after I have.
+- Of the many horrors of divorce, the most egregious is that it robs a kid of the best of both worlds. Dads can do many things that even the best moms can't, and vice versa.
+- Sampling, statisticians have told us, is a much more effective way of getting a good census.
+- My son Matthew's beloved dog is a Jack Russell. His name is Buster. Matthew picked him as a puppy, when he was tiny himself.
+- For sure, without question, the writing is better on TV pound for pound than movies because the businesses have changed so much. So all the great writers would rather work for TV, and they do.
+- I sadly never got to my prom. I was shooting 'The Outsiders.'
+- I'm no genius, but I'm real smart in one area - I picked the right mate.
+- I don't think the Internet should be immune to the standing laws of countries.
+- Some actors specialize in shooting weapons and punching people. Some have the market on playing buffoons cornered, others specialize in roles that require heavy makeup or outrageous wardrobe. Some trade exclusively in a post-ironic blase attitude.
+- The challenge as a parent is letting your kids fail in the right ways because that's where we do most of our learning.
+- I wouldn't go back on my old days, though; everybody needs to have their wild years. It's just a question of when and I'd rather have had them early than be doing it as a mid-life crisis type thing.
+- Matthew Lowe is one of the great water men that I know. He's a surfer, a great water polo player. I think he's half fish.
+- I'm what you would call an 'independent moderate.'
+- I had had some successes in the '90s, always made money, but the truth was I was like a man pushing a boulder up a hill. A huge, heavy, difficult boulder made up of some career mistakes, projects that didn't meet expectations, and twenty years of being a known quantity.
+- It took being famous to make me cool, which, by the way, I never forgot.
+- I think part of maturity is knowing who you are.
+- I'm a registered Independent.
+- I have other obligations now - the show, my family, my life... though I know that without my sobriety I wouldn't have any of those things.
+- The '90s were a time of building for me. Building a life that was sober, drained of harmful, wasteful excess and manufacturing in its place a family of my own.
+- Somewhere in my callow, misspent youth, I was smart enough to marry my best friend.
+- Marriage is becoming sort of fake. It's almost like a handbag. Everybody wants the newest, greatest and latest. It becomes an event, and it's definitely a status symbol in our society. I'm not saying it shouldn't be; it absolutely should be - but you shouldn't be focusing on that.
+- I would've loved Jack Kennedy. I would've loved to have campaigned for him and supported him. I wish there were more like him today.
+- I love anything by Joan Didion. Incidentally, she was one of the local moms when I was growing up in Point Dume. She always reminded me a little bit of my mother, so I feel a great affinity. I love the precision of Didion's writing. There's a construction and a craftsmanship to her sentences that's imbued with so much emotion.

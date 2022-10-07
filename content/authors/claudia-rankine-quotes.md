@@ -1,0 +1,22 @@
++++
+author = "Claudia Rankine"
+title = "Claudia Rankine Quotes"
+quotes_len = "16"
+description = "the best 16 Claudia Rankine Quotes"
++++
+- I think sports is one of the places where race plays itself out publicly. Although we pretend it doesn't.
+- A hoodie is worn by everybody: kids, white men, white women, black men. But it clings to the black body as a sign of criminality like nothing else.
+- The American imagination has never been able to fully recover from its white-supremacist beginnings.
+- As African-Americans, that's what's being played fast and loose with, our citizenship. When you have the Trayvon Martins and the Michael Browns being shot and killed, it's because, on a certain level, there is a kind of mutability in the understanding of citizenship around the black body.
+- There are two worlds out there - two Americas out there. If you're a white person, there's one way of being a citizen in our country, and if you're a brown or a black body, there's another way of being a citizen, and that way is very close to death. It's very close to the loss of your life.
+- If the Rev. Martin Luther King Jr.'s civil rights movement made demands that altered the course of American lives and backed up those demands with the willingness to give up your life in service of your civil rights, with Black Lives Matter, a more internalized change is being asked for: recognition.
+- The Black Lives Matter movement can be read as an attempt to keep mourning an open dynamic in our culture because black lives exist in a state of precariousness. Mourning then bears both the vulnerability inherent in black lives and the instability regarding a future for those lives.
+- The book, 'Citizen,' begins with daily encounters, little moments, places where language reveals how racism determines how we interact.
+- You don't become a poet if you want to make any money.
+- When you're writing, you think: How does intimacy happen in the work? You don't know who your reader is, woman, man, child, black person, Asian, who knows?
+- I don't write every day. I write when I want to write.
+- A lot of people feel that the realm of poetry and the realm of the lyric is personal feeling and should rise above politics, which, in fact, good poetry has never done.
+- Unlike earlier black-power movements that tried to fight or segregate for self-preservation, Black Lives Matter aligns with the dead, continues the mourning, and refuses the forgetting in front of all of us.
+- How do you keep the black female body present, and how do you own value for something that society won't give value to? It's a question I try to answer through my own life.
+- When you are alone and too tired even to turn on any of your devices, you let yourself linger in a past stacked among your pillows.
+- I love language because when it succeeds, for me, it doesn't just tell me something. It enacts something. It creates something. And it goes both ways. Sometimes it's violent. Sometimes it hurts you. And sometimes it saves you.

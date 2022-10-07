@@ -1,0 +1,32 @@
++++
+author = "Rod Taylor"
+title = "Rod Taylor Quotes"
+quotes_len = "26"
+description = "the best 26 Rod Taylor Quotes"
++++
+- I'm not doing my work for constant success.
+- When I said I no longer wanted to be a painter, that I wanted to be an actor, the first thing I did was get a stinking job in an insurance building.
+- Dore Schary was then head of the studio and he wanted to change my name.
+- Anyway, when I was a kid, I dutifully went to the Sydney Technical and Fine Arts College.
+- Apart from being interested in a good role, I think it's necessary to make up your mind as to whether it will make a movie that will entertain an audience all over the world and not just in your own backyard.
+- I am a poor student sitting at the feet of giants, yearning for their wisdom and begging for lessons that might one day make me a complete artist, so that if all goes well, I may one day sit beside them.
+- I pray and try every day to be a better actor.
+- I did well as an actor in Australia, and then Paramount invited me over... to have a look at me.
+- Acting doesn't suffice.
+- When people think it's successful, I'm grateful. When they don't - OK, I'll try again.
+- I was one of the first of the uglies. Rock Hudson and Tab Hunter... were very pretty fellows, and that was the trend. I was one of the first of the uglies to get lucky.
+- The fact that I'm going to be unsuccessful at times is pretty well-balanced by the fact that I'm going to be successful at others.
+- But I did a lot of boxing and I was captain of an Australian surf club.
+- To a large degree, those early lean days were self-imposed.
+- I wouldn't dream of selling my work. I give them to friends, to charities.
+- I suddenly realized how much I loved her when we attended Alfred Hitchcock's 75th birthday party last August. There was something magical about that night, and it made me see how much she really meant to me.
+- So I went and did an audition and became the biggest radio actor in Sydney, and that's how it all started.
+- To put what you see on paper is the same as funneling what you feel through yourself as a performer.
+- In the beginning I had a real work problem. Every time I had job I had to convince the immigration authorities I was the only man for that job and get a special work permit until I went under contract to MGM.
+- Acting is something I love.
+- I married at a tender age during my early stage and radio struggles.
+- I am proud to be an actor.
+- I worked at Mark Foy's during the day and studied drama at night.
+- Art doesn't feed me or fill the void when I am not working. If I haven't worked for six months, I can't paint.
+- I'd much rather turn down a starring role in a bad picture and do a small role in a very good picture.
+- The most important thing in my life is my work.

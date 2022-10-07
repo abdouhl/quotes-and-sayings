@@ -1,0 +1,36 @@
++++
+author = "Conrad Anker"
+title = "Conrad Anker Quotes"
+quotes_len = "30"
+description = "the best 30 Conrad Anker Quotes"
++++
+- I'm done with Everest. I did it three times, and I need to be good at that and be happy with it and focus on other climbs.
+- When I was a kid, we would build pillow forts. My pillow fort was always like Ice Station 9 in Antarctica. The other kids would come by and be like, 'Oh! The wind and snow is blowing.' From a young age, I wanted to be out there and surviving. I'm a high-strung, hyperactive guy.
+- It takes a lot of resources to climb Everest, and a lot of other people. But you should go do it.
+- The first ascent of Everest came at a time when humanity needed relief from two world wars. It was a unifying and inspiring event, signifying the drive to reach our greatest potential.
+- Standing on the apex of our planet is humbling. I'm starved of oxygen, depleted of reserves, unable to eat, and bound by anxiety. This is a dangerous place. Yet the symbolism of standing on top of the world gives me a chance to experience time on a cosmic scale.
+- The alpine environment is very delicate. I've been able to see change in the mountains in the 20 years that I've been climbing full-time. Glaciers have receded. The tree-line is changing. That's very rapid to see nature changing in a 20-year period.
+- If you compare Everest photographs in 1953 with its current state, things are melting. I imagine if I were a golfer in Indiana, I'd be hard-pressed to believe in climate change because nothing's going on there. But when you're up in the mountains and seeing the glaciers melt away, it's an obvious physical manifestation of a warming planet.
+- The compression of time one experiences when you're a small person underneath this huge avalanche is amazing.
+- Once I graduated from university, I wanted to climb and be outdoors as much as possible. I worked as a part-time carpenter and kept up a relationship with The North Face. One thing led to another, and I'm lucky to be where I am now. It was a circuitous path with lots of adventure throughout.
+- Yes, I was inspired by Jack London and still love reading his books. Ernie Banks is another hero because I lived in Chicago for two years as a kid, and I loved that he was the Cubs' loyal underdog and one of the first African-Americans to make that breakthrough.
+- The summit is what drives us, but the climb itself is what matters.
+- The mountains are a demanding, cold place, and they don't allow for mistakes.
+- I like to think that today is the best day of my life and tomorrow will be the next best day of my life. And if you think that way, you're living for the beauty of today.
+- It's our human nature to explore. Tens of thousands of years ago, our species walked out of Africa, traveling far and wide across the entire planet, from the Arctic to the tip of Tierra Del Fuego, making us the most geographically diversified species on Earth.
+- From a climbing standpoint, gravity is the adversary. You and your fellow humans are striving together to get to the same place at the same time. And I think that's a really good way for humans to interact.
+- Here at home, we're in a world of right angles and human construct, so whether it's cement or plastic or steel, everything is at an angle. But nature is chaos theory in full play. So having that uniqueness of what nature is gives me a sense of rejuvenation and scale.
+- Perhaps you could say that mountaineers are driven by ego or our competitiveness, but there's a lot more to it than that. Whether it's a huge face in the Himalaya or some crag in the woods behind your house, exploration offers us a unique perspective on the world that you can't really find anywhere else.
+- Mountains are freedom. Treat them respectfully.
+- I learned that life is about the people around you and the people you give back to. That's what parenting is: You're not there for yourself; you're there for your offspring and everyone else around you.
+- We can't take climate change and put it on the back burner. If we don't address climate change, we won't be around as humans.
+- If people see me giving back to the military, they'll hopefully follow suit and be good to these guys who have done so much. I'm not Lance Armstrong or Tiger Woods - I'm just an old, gray-beard mountain climber, but I'm hoping to inspire people to follow my way.
+- Meru is the culmination of all I've done and all I've wanted to do.
+- The mountains seem to have conquered us long before we set foot on them, and they will remain long after our brief existence. This indomitable force of the mountains gives us humans a blank canvas on which to paint the drive of discovery and, in the process, test the limits of human performance.
+- Climbing, as my grandmother said, it's a pretty frivolous thing. She always wondered when I was going to get a real job. But climbing is a real job for me now, and I enjoy it. It's a gift that I'm able to do it, share adventure and motivation with people.
+- Specifically choose not to take a GPS. Just create a challenge. You can climb Everest or walk across Antarctica with minimal gear and still have that sense of adventure. But in terms of exploration, Google Earth has this world mapped down to the square foot.
+- Live in the moment and make the most of every single hour that you're alive. Like it says on the sign outside the drop zone in front of the school: No Idling.
+- If people want to go do some big outdoor thing for their ego, have them climb snowy mountains rather than shoot animals.
+- I think, as a young guy, I was always drawn to being in wild places. Climbing was a logical extension of that.
+- It's more of an adventure when you set off into unknown territory, and there's nothing like that feeling you get when you discover a place on the Earth where no one has ever been.
+- When you find your passion, it's great. You go up a mountain with partners, and you have a wonderful opportunity to connect and achieve a goal together. You are not trying to be better than other humans. You are supporting each other.

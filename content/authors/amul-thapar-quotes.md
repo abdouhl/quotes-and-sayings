@@ -1,0 +1,20 @@
++++
+author = "Amul Thapar"
+title = "Amul Thapar Quotes"
+quotes_len = "14"
+description = "the best 14 Amul Thapar Quotes"
++++
+- The average juror is not Mr. Spock. If he were, then a trial-court judge's job would be much easier. He could instruct the jury in broad strokes - instructing only as to the bare elements of the crime, perhaps - and be confident that the jury would deduce all of the finer-grained implications that must logically follow.
+- It is not the responsibility of the judiciary to amend poor legislative drafting, even if judges would personally prefer a different outcome than what is required by a statute's text.
+- I support an equal playing field for plaintiffs and defendants - and the way to get that equal playing field is not by having unlimited discovery.
+- I am a proud Article III judge. We've been criticized from the beginning of this great country. What I will say about me and my colleagues is it doesn't matter to us.
+- I'm my own judge, and I hope my track record speaks to that.
+- I don't have the wherewithal to judge God's will. I don't have the wherewithal to determine whether your viewpoints are right or wrong.
+- Most Americans don't know how beautiful an area of the country Kentucky is.
+- The Boston College community took a personal interest in my success, not only as a student but as a human being.
+- You can't put a price on being proud of what you do.
+- Everyone should think seriously about public service at some point.
+- A defendant can use discovery to run out the clock on the plaintiff and to make the plaintiff run out of money.
+- At some point, the law has to command respect, and there is a lawful way to change it.
+- The solution to voters potentially being misled by a judicial candidate's political speech is more speech - not government censorship.
+- Keeping politics out of the courtroom is a goal every state aspires to achieve.

@@ -1,0 +1,106 @@
++++
+author = "Robin Lopez"
+title = "Robin Lopez Quotes"
+quotes_len = "100"
+description = "the best 100 Robin Lopez Quotes"
++++
+- Obviously I've loved my time here in Portland.
+- When the whole team succeeds, everybody profits.
+- My mindset is to go out there to do anything I can to help out my teammates, be that garbage guy like that. I think I've been very crisp from that standpoint. I've played with some great guys and some great teams and some not so good teams, but I think I've drawn a lot from those experiences.
+- Although Perm is one of the biggest cities in Russia it felt like a different kind of Russia. In Moscow, you have the Kremlin, St. Basil's, a lot of Soviet iconography everywhere. In Perm, it was a different side of Russia. A little more folksy. If Moscow is an iron statue of an eagle, Perm is a matryoshka nesting doll.
+- Teammates sacrifice for each other.
+- Brook is my sounding board about everything - including being tall.
+- We've all evolved as players throughout our tenure in the league.
+- The influences I had were all people with versatile interests who had a large world view.
+- I usually let my game do the talking.
+- G-Wiz has always kind of been on my top-five probably most-despised mascot list.
+- I don't like being scored on on the floor.
+- I've been traveling the world picking up new moves, kind of like David Carradine walking the earth in 'Kung Fu' though I hope things turn out a little better for me than they did for him.
+- I think really I've always had the same focus, to go out there and I like to facilitate and help my teammates in any way I can, go out there and work hard and I think things will turn out right.
+- Different matchups are always fun for me.
+- I'm just out there trying to have fun not letting anything bother me out there on the floor, which may appear sometimes why I'm just completely goofing out there.
+- Obviously, anybody in the NBA would love to be on a competitive squad.
+- Obviously I'm an NBA player, I want to play basketball.
+- Steve Nash, Grant Hill, they were always preaching whether you win or lose. You have to keep an even keel, keep a level head.
+- Who knows how players are going to develop in the future? I work on developing my own game.
+- There are a lot of facets of the triangle I can take advantage of. It does a great job of spacing the floor, getting people in the right spots. It plays to my strengths. I stay around the elbow and blocks.
+- There have been times we recognize, 'I need to get better at this particular aspect of the game.'
+- Who doesn't love scoring the basketball? That's kind of the name of the game.
+- You never know what is going to happen in the league.
+- When you are getting drafted you have an idealized situation, but you really don't know how things are going to go down.
+- Make sure you surround yourself with good friends. I've been fortunate that I was blessed to be surrounded with a great family, but also I've got a great group of friends that I've had since high school who have helped me get to where I am.
+- I'm just going out there, particularly defensively I am trying to help my teammates. I am trying to get my guys open with screens and such.
+- I play with passion.
+- I loved playing in the triangle. That was a fun experience for me.
+- Would not want to be a T-Rex with the short arms. I have some visible gifts.
+- What kind of a dinosaur am I? I guess something like a triceratops. A triceratops is not too dynamic, but has a little strength.
+- You can go on about injuries in this league; those will happen.
+- You always see those players that are going to get that next contract based off of a playoff run. That's what winning does; that's what team ball does.
+- There's something to be said for doing things a certain way.
+- Everybody sacrifices when you're in a team setting. It's kind of par for the course.
+- I've always thought I'm a lot more versatile than I've shown the floor.
+- Basketball is a passionate game.
+- I want to do the best I can with the situation I'm dealt.
+- Brook isn't just my brother, he's one of my closest friends. That won't change.
+- I'm not listening to 'Email My Heart.' I don't know anybody who is listening to 'Email My Heart.'
+- Orlando has a very nice arena. It doesn't seem like you're encased in concrete there. It is very comfortable.
+- You're going to have more skilled and more talented big men and you're going to have guards who will similarly adjust by pulling up from half-court, like the Ball brothers at UCLA. It's really interesting the way the game is going to evolve.
+- I've had a lot of coaches at my high school and at Stanford and in the NBA who helped me. Bill Cartwright comes to mind.
+- I'm a competitive person.
+- I possess the unique ability to slip into a coma at any moment's notice.
+- I'm trying to be the people's champion.
+- I just know as a rookie, a young guy, you see the game totally differently and it could take awhile for it to slow down the right way.
+- I don't play an attractive game. That's fine with me.
+- A lot of offensive rebounding is a lot of desire, a little bit positioning.
+- I really hate the Detroit Pistons' mascot Hooper. A lot of beef with him for a long time. I don't why, he just started going after me.
+- I'm trying to capitalize on taking high percentage shots and hopefully making them at a high clip.
+- Losing is hard on all of us regardless of rookie or veteran.
+- You worry about what you can control.
+- I think there's a real premium on skill at all positions on the court. I think that's going to continue.
+- If you want to win, when you want to get to the upper echelons of this league, everybody on the roster is going to sacrifice.
+- Growing up in California, I was always a Lakers fan.
+- Traditionally I've always led by example.
+- There's been a lot of coaches, a lot of guys at Stanford, a lot of guys at my high school. A lot of guys in the NBA. Bill Cartwright comes to mind, a lot of people I've learned from.
+- I like to travel a lot in the offseason.
+- I want to be the best player I can be on the court.
+- I like going to San Francisco. It's close to where I grew up.
+- Maybe my plodding style has its benefits, I suppose.
+- I think the only mascot that truly defeated me was Grizz of the Memphis Grizzlies. He threw a 'Kick Me' sign on my back. I thought he was extending an olive branch... he blindsided me.
+- When I came into this league, it was a Phoenix Suns team consistently going to the playoffs, and they had aspirations to go deep into the playoffs. People were always harping on sacrifice, what you have to give up for the success of the team.
+- If I would remain in Chicago, I'd be happy doing what I can to help out. That's pretty much how my mindset has been playing anywhere.
+- When you have somebody out there that's willing to work for the team first, that's contagious. In Phoenix, I learned that from Steve Nash, Grant Hill, so many different guys. When you're playing with somebody like Steve, like Grant, that just passes on to you.
+- I don't think anybody likes losing.
+- Everybody looks to expand their game. That's how you keep yourself in this league, in this game.
+- Brook and I both own a house. He doesn't do any of the work to maintain it, clean it.
+- Practicing every day against good players, I think you'll improve every way imaginable.
+- Shaq is pretty mischievous and playful. But he was a great vet to me. He always talked about the big-man alliance and the basketball gods.
+- Basketball is such a global sport, being second to soccer.
+- I like contributing to the team, contributing to the game however I can.
+- The greatest good is the team good.
+- I go after the back of the basket pretty fiercely. It's padded so I know it's safe.
+- I'm a basketball player. I'm going to compete every night, play some good ball and get better.
+- I've always prided myself on being a defensive big man.
+- I've always admired that kind of back-to-the-basket game. That's what I grew up watching. But who doesn't like stepping out and shooting threes?
+- I'm comfortable swinging the ball at the top of the key.
+- All my teammates, whether they've been playing with me or sitting on the bench and not dressing, they've supported me. I don't think I'd be too good a person if I didn't do at least the bare minimum of the same.
+- I am so fortunate to have a mom who shared with me her love for books and helped me, from my earliest memories, take great adventures through reading.
+- If I'm not playing basketball, I'm reading or thinking of stories I can create.
+- I want to play as many games as I possibly can.
+- The Lakers have always had nice jerseys.
+- I realize the NBA has a brand that is very global. But there aren't many brands that travel as well as the Chicago Bulls. Perhaps only the Los Angeles Lakers.
+- I think the four men of the Beatles are an apt comparison for one Robin Lopez.
+- Whenever I'm on the court, whenever I'm between those lines, I'm as competitive as anybody else.
+- Setting a solid screen is something I'm proud of.
+- I don't know if I ever said I'm going to get a lot of offensive rebounds. As far as I can remember that's been something I've done. I'm not sure how that happened. That's a way to help my teammates, so I'm happy doing it.
+- Obviously in the NBA, winning is everything; every NBA player will tell you when you are in a winning situation that's what this league is about. That one year in Phoenix when we went to the Western Conference finals was amazing; Portland when we got to the second round was a great year.
+- People will talk about character arcs, but you look at the character arc of C-3PO from 'Star Wars' to 'Return of the Jedi,' and it's a complete 180... he's not so much of a coward and a fussbudget.
+- I'm not as athletic as other players, but I like to think I'm versatile. I've become kind of a smart big man.
+- When you travel around the world you see people repping your team, occasionally repping your name. That's very special, that's a bond that can't really be broken.
+- L. Frank Baum is a genius.
+- She sacrificed a lot for us. She was a wonderful role model for us. She's probably the most intelligent person I know. And what's really cool for me is I have a lot of friends who will tell me, 'I was in your Mom's math class. I loved having her as a teacher.' That's really special for me.
+- I feel like my earliest encounters with mascots, they were never too receptive of me. I was a taller child. I always looked a little older than I was. I don't think I ever got proper attention from those mascots.
+- Brook's always had a knack for putting the ball in the bucket, and I would have to go out there and try to stop him. That would be my thing.
+- In my experience, accountability is a huge part of team success.
+- Anytime you come to a new team and with a new player there is a learning curve.
+- I've been to McDonald's in Spain, Greece, Turkey, Ireland, Norway, Denmark, Holland, Scotland, Hong Kong, Japan, Canada and Singapore. Despite that, I'm still without a fast food endorsement, which hurts a bit because you're not really somebody unless someone is paying for your McDonald's.
+- I've always had a bit of a temper.

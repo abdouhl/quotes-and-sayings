@@ -1,0 +1,25 @@
++++
+author = "Lucretius"
+title = "Lucretius Quotes"
+quotes_len = "19"
+description = "the best 19 Lucretius Quotes"
++++
+- Though the dungeon, the scourge, and the executioner be absent, the guilty mind can apply the goad and scorch with blows.
+- Victory puts us on a level with heaven.
+- The fall of dropping water wears away the Stone.
+- The greatest wealth is to live content with little, for there is never want where the mind is satisfied.
+- So potent was religion in persuading to evil deeds.
+- From the heart of the fountain of delight rises a jet of bitterness that tortures us among the very flowers.
+- Sweet it is, when on the high seas the winds are lashing the waters, to gaze from the land on another's struggles.
+- Pleasant it is, when over a great sea the winds trouble the waters, to gaze from shore upon another's great tribulation; not because any man's troubles are a delectable joy, but because to perceive you are free of them yourself is pleasant.
+- Pleasant it to behold great encounters of warfare arrayed over the plains, with no part of yours in peril.
+- Thus the sum of things is ever being reviewed, and mortals dependent one upon another. Some nations increase, others diminish, and in a short space the generations of living creatures are changed and like runners pass on the torch of life.
+- The sum of all sums is eternity.
+- And life is given to none freehold, but it is leasehold for all.
+- The drops of rain make a hole in the stone, not by violence, but by oft falling.
+- Life is one long struggle in the dark.
+- From the very fountain of enchantment there arises a taste of bitterness to spread anguish amongst the flowers.
+- In the midst of the fountain of wit there arises something bitter, which stings in the very flowers.
+- What is food to one man is bitter poison to others.
+- Such are the heights of wickedness to which men are driven by religion.
+- It is great wealth to a soul to live frugally with a contented mind.

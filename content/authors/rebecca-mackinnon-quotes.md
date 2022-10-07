@@ -1,0 +1,207 @@
++++
+author = "Rebecca Mackinnon"
+title = "Rebecca Mackinnon Quotes"
+quotes_len = "201"
+description = "the best 201 Rebecca Mackinnon Quotes"
++++
+- While Google no longer has a search engine operation inside China, it has maintained a large presence in Beijing and Shanghai focused on research and development, advertising sales, and mobile platform development.
+- Internet freedom is a bit of a Rorschach test: it means different things to different people.
+- It's harder and harder for journalists to get out in the field and interview Iraqis. The Web can get these voices out easily and cheaply.
+- Over the past several decades, a growing number of investors have been choosing to put their money in funds that screen companies for their environmental and labor records. Some socially responsible investors are starting to add free expression and privacy to their list of criteria.
+- I think one of the problems I think with a lot of people in high school is that people don't think of the Internet as a real place or a place that has physical consequences in the physical world. This happens with adults who ought to know better, too.
+- As it turns out, American-made technology had helped Mubarak and his security state collect, compile, and parse vast amounts of data about everyday citizens.
+- Congress may not get the Internet, but the Internet doesn't get Congress, either.
+- There is clearly a constituency that appreciates the message that Google is sending, that it finds the Chinese government's attitude to the Internet and censorship unacceptable.
+- Intermediary liability enables the Chinese authorities to minimize the number of people they need to put in jail in order to stay in power and to maximize their control over what the Chinese people know and don't know.
+- Negative views of Pakistan expressed by prominent members of the global business community are taken more seriously by government functionaries than are appeals by human rights groups.
+- Citizens continue to demand government help in fighting cybercrime, defending children from stalkers and bullies, and protecting consumers.
+- In the United States, whatever you may think of Julian Assange, even people who are not necessarily big fans of his are very concerned about the way in which the United States government and some companies have handled Wikileaks.
+- Facebook is not a physical country, but with 900 million users, its 'population' comes third after China and India. It may not be able to tax or jail its inhabitants, but its executives, programmers, and engineers do exercise a form of governance over people's online activities and identities.
+- After Secretary Clinton announced in January 2010 that Internet freedom would be a major pillar of U.S. foreign policy, the State Department decided to take what Clinton calls a 'venture capital' approach to the funding of tools, research, public information projects, and training.
+- Research In Motion, the owner of BlackBerry, has been asked by a range of governments to comply with surveillance requirements.
+- If I were a Chinese dissident, I'd be grateful that Cisco had helped bring the Internet to China, but I'd also be outraged that Cisco may have helped the cops keep me under surveillance and catch me trying to organize protest activities.
+- Without global human rights, labor and environmental movements, companies would still be hiring 12-year-olds as a matter of course and poisoning our groundwater without batting an eyelid.
+- We're going to get the Internet we deserve, and those people who are the most active in shaping the Internet to their liking are going to win out.
+- Political activists in Hong Kong and Taiwan use Facebook as their primary tool to mobilize support for their causes and activities.
+- Defending a free and open global Internet requires a broad-based global movement with the stamina to engage in endless - and often highly technical - national and international policy battles.
+- Taiwan politics certainly is colorful.
+- Nothing ever goes as planned in China.
+- So long as confusion reigns, there will be no successful global Internet agenda, only contradiction.
+- We willingly share personal information with companies for the convenience of using their products.
+- China's censorship and propaganda systems may be complex and multilayered, but they are obviously not well coordinated.
+- For centuries, the Yangtze River - the longest in Asia - has played an important role in China's history, culture, and economy. The Yangtze is as quintessentially Chinese as the Nile is Egyptian or the Rhine is German. Many businesses use its name.
+- Laws and mechanisms originally meant to enforce copyright, protect children and fight online crime are abused to silence or intimidate political critics.
+- While sanctions against Iran and Syria are intended to constrain those countries' governments, they have had the unfortunate side effect of constraining activists' access to free online software and services used widely across the Middle East, including browsers, online chat applications, and online storage services.
+- The Tunisian blogger and activist Sami Ben Gharbia has written passionately about how U.S. government involvement in grassroots digital spaces can endanger those who are already vulnerable to accusations by nasty regimes of acting as foreign agents.
+- Seemingly small choices and small actions add up over time.
+- Companies have choices to make about what extent they're handling their users' content.
+- If you just technically adhere to the law, sometimes that's enough, sometimes it's not; it's really hard to predict. There is definitely a possibility that the Chinese authorities won't find it sufficient.
+- I get the impression that most Chinese entrepreneurs are so focussed on doing what they need to do to succeed in the Chinese market - which is a big enough challenge even for the established players - that nobody is thinking much about the longer run or the bigger global picture.
+- After the non-Japanese Carlos Ghosn was brought in by Nissan to turn around the struggling auto manufacturer, he made English the company's official working language.
+- Radio was used powerfully by Josef Goebbels to disseminate Nazi propaganda, and just as powerfully by King George VI to inspire the British people to fight invasion.
+- On March 5, 2011, protesters stormed the Egyptian state security headquarters. In real time, activists shared their discoveries on Twitter as they moved through a building that had until recently been one of the Mubarak regime's largest torture facilities.
+- The better-informed we are, the more we can do to make sure what's happening is in our interests and is accountable to us.
+- We like to think of the Internet as a border-busting technology.
+- A moral argument about whether censorship is good or bad deteriorates quickly into accusations about who is more or less patriotic, moral, pious, and so on.
+- President Barack Obama's administration sometimes finds itself at odds with members of Congress who oppose nearly everything the United Nations does on principle.
+- The Chinese government sometimes shuts down the Internet and mobile services in specific areas where unrest occurs.
+- Whatever Tencent can see, the Chinese government can see.
+- The sovereigns of the Internet are acting like they have a divine right to govern.
+- Like it or not, Google and the Chinese government are stuck in a tense, long-term relationship, and can look forward to more high-stakes shadow-boxing in the netherworld of the world's most elaborate system of censorship.
+- Companies should have a due diligence process to determine the likelihood that their technologies will be used to carry out human rights abuses before doing business with a particular country or distributor.
+- As a citizen of a community, if you never vote or engage, don't be surprised when the outcome doesn't serve your interests; you've never done anything to push things in the right direction.
+- The user in China wants the same thing that any Internet user wants - privacy in conversations, maximum access to information, and the ability to speak their minds online.
+- Activists from the Middle East to Asia to the former Soviet states have all been telling me that they suffer from increasingly sophisticated cyber-attacks.
+- In Russia, they do not generally block the Internet and directly censor websites.
+- What role did the Internet play in the Egyptian Revolution? People will be arguing about the answer to that question for decades if not centuries.
+- In the future, 'the networked' will sometimes form alliances with the Silicon Valley companies against Congress, but sometimes we are going to want and need to target our campaigns for change at the companies themselves.
+- The Egyptian Revolution makes it clear, if anybody was in doubt, that digital technologies are going to play a powerful role in the future of global politics.
+- Citizens' rights cannot be protected if their digital activities are governed and policed by opaque and publicly unaccountable corporate mechanisms.
+- Amazon webhosting dropped Wikileaks as a customer after receiving a complaint from U.S. Senator Joe Lieberman, despite the fact that Wikileaks had not been charged, let alone convicted, of any crime.
+- Google attempted to run a search engine in China, and they ended up giving up.
+- Authoritarian systems evolve. Authoritarianism in the Internet Age is not your old Cold War authoritarianism.
+- When Tim Berners-Lee invented the computer code that led to the creation of the World Wide Web in 1990, he did not try to patent or charge fees for the use of his technology.
+- Digital power is every bit as likely to be abused as physical power, but is often more insidious because it is often wielded in the background until its results manifest themselves in the offline world.
+- Can companies just claim a total lack of political responsibility in how their technology is used in all instances? It's something that companies should be thinking about when they sell their technologies around the world.
+- QQ is not secure. You might as well be sharing your information with the Public Security Bureau.
+- The 'Shawshank Redemption' has nothing to do with China, but that hasn't kept social media censors from blocking the movie's title from searches on the country's most popular Twitter-like microblogging service, Weibo.
+- The Chinese government clearly does pay attention to public opinion expressed on the Internet - the extent to which they choose to adapt their practices based on it, or ignore it, seems to vary.
+- The Internet is an empowering force for people who are protesting against the abuse of power.
+- It is not inevitable that the Internet will evolve in a manner compatible with democracy.
+- It's much easier to force intermediary communications and Internet companies such as Google to police themselves and their users than the alternatives: sending cops after everybody who attempts a risque or politically sensitive search, getting parents and teachers to do their jobs, or chasing down the origin of every offending link.
+- Whether or not the U.S. government funds circumvention tools, or who exactly it funds and with what amount, it is clear that Internet users in China and elsewhere are seeking out and creating their own ad hoc solutions to access the uncensored global Internet.
+- There's a real contradiction that's difficult to explain to the West and the outside world about China and about the Internet.
+- There is a great deal of concern in the Chinese military that Taiwan's reunification with China is drifting further and further away.
+- In the wake of the Internet getting shut down in Egypt - something that also happened in Xinjiang - I know that there are groups working on ways to help people get online when domestic networks get shut down. This could also be of use to some people in China.
+- I lived in China for 9 years straight. I saw how my Chinese friends benefited and gained much more freedom to determine the course of their lives, their jobs, their creative works, and their identities over the course of a decade. Much of this increased freedom is thanks to economic engagement by the West.
+- The critical question is: How do we ensure that the Internet develops in a way that is compatible with democracy?
+- The fact of the matter is that fewer people in Tokyo are able to do business in English than in many other big Asian cities, like Shanghai, Seoul or Bangkok.
+- Thanks to the Internet in general and social media in particular, the Chinese people now have a mechanism to hold authorities accountable for wrongdoing - at least sometimes - without any actual political or legal reforms having taken place. Major political power struggles and scandals are no longer kept within elite circles.
+- In China, Vietnam, Russia and several former Soviet states, the dominant social networks are run by local companies whose relationship with the government actually constrains the empowering potential of social networks.
+- People in China have a range of strong views about how children should be protected when they go online and whether the responsibility should be with the government, with parents, or somebody else.
+- Professional camera crews are rarely there when a bomb goes off or a rocket lands. They usually show up afterwards.
+- Right after September 11, 2001, there weren't really any blogs in China, but there were a lot of Chinese chatrooms - and there were a lot of conversations in which Chinese netizens were saying things like, 'served them right.' That was definitely not the official Chinese government policy - which condemned the terrorists.
+- Despite the Obama administration's proclaimed commitment to global Internet freedom, the executive branch is not transparent about the types and capabilities of surveillance technologies it is sourcing and purchasing - or about what other governments are purchasing the same technology.
+- I am well aware of the facts presented by numerous security experts on the many ways in which the United States' digital networks have come under siege by cybercriminals and under daily assault by hackers in league with various foreign governments.
+- Public trust in both government and corporations is low, and deservedly so.
+- In the physical world, WikiLeaks founder Julian Assange is a wanted man.
+- The erosion of privacy rights under the Fourth Amendment, written to protect us against unreasonable search and seizure, began in earnest under President George W. Bush.
+- Twitter is growing up, expanding into other countries, and recognizing that the Internet is contrary to what people hoped; the government does reach into the Internet.
+- The potential for the abuse of power through digital networks - upon which we the people now depend for nearly everything, including our politics - is one of the most insidious threats to democracy in the Internet age.
+- Human freedom increasingly depends on who controls what we know and, therefore, how we understand our world. It depends on what information we are able to create and disseminate: what we can share, how we can share it, and with whom we can share it.
+- Whether or not Americans supported George W. Bush, they could not avoid learning about Abu Ghraib.
+- Human rights in cyberspace are really no different from rights in the physical world.
+- On Apple's special store for the Chinese market, apps related to the Dalai Lama are censored, as is one containing information about the exiled Uighur dissident leader Rebiya Kadeer. Apple similarly censors apps for iPads sold in China.
+- It's time to take decisive action to stop American and other multinationals from aiding and abetting the wrong side in the global digital arms race.
+- I don't think any foreign Internet company can effectively compete against Chinese companies in the Chinese market. The regulatory environment is so difficult that it's almost impossible for foreigners to have an advantage over locals who have better political connections and who can manipulate the regulatory system much more effectively.
+- There is no country on Earth where Internet and telecommunications companies do not face at least some pressure from governments to do things that would potentially infringe on users' rights to free expression and privacy.
+- Facebook is blocked in mainland China, but is used heavily by the rest of the Chinese-speaking world, including Hong Kong, Singapore, and Taiwan.
+- If they lose their legal basis for owning a .cn domain, google.cn would cease to exist, or if it continued to exist, it would be illegal, and doing anything blatantly illegal in China puts their employees at serious risk.
+- It's a tough problem that a company faces once they branch out beyond one set of offices in California into that big bad world out there.
+- It takes a strong stomach and a thick skin to be a female activist fighting online censorship in Pakistan.
+- While the Internet can't be controlled 100 percent, it's possible for governments to filter content and discourage people from organizing.
+- As in Pakistan, Tunisian and Egyptian human rights activists are concerned that any censorship mechanisms, once put in place, will inevitably be abused for political purposes no matter what censorship proponents claim to the contrary.
+- In a pre-Internet world, sovereignty over our physical freedoms, or lack thereof, was controlled almost entirely by nation-states.
+- I know plenty of people in China who don't like what their government does to the Falun Gong, but they don't want to entrust their data to the Falun Gong, either.
+- Facebook has a rule that you're not supposed to be anonymous.
+- The relationship between citizens and government is increasingly mediated through the Internet.
+- One day, people in China may be able to see the records of conversations between multinational tech companies and the Chinese authorities.
+- There are many cases of activists having their Facebook pages and accounts deactivated at critical times, when they are right in the middle of a campaign or organising a demonstration.
+- There has been a rising tide of criticism about China's treatment of foreign companies.
+- It becomes dangerous for somebody who doesn't want their boss to know their sexual preference to use online networks to push for laws supporting gay marriage or same-sex partner rights if they can't do so with a pseudonym.
+- Nobody is forcing anybody who is uncomfortable with the terms of service to use Facebook. Executives point out that Internet users have choices on the Web.
+- There is respect for law, and then there is complicity in lawlessness.
+- China is building a model for how an authoritarian government can survive the Internet.
+- Governments clash with each other over who should control the co-ordination of the Internet's infrastructure and critical resources.
+- 'Intermediary liability' means that the intermediary, a service that acts as 'intermediate' conduit for the transmission or publication of information, is held liable or legally responsible for everything its users do.
+- In January 2012, Google Plus started to roll out support for nicknames and pseudonyms, but those registering with a name other than their real-life one must be able to prove that they have been using that alternative name elsewhere, either on the Web or in real life.
+- Would the Protestant Reformation have happened without the printing press? Would the American Revolution have happened without pamphlets? Probably not. But neither printing presses nor pamphlets were the heroes of reform and revolution.
+- Over time, if you want rights, you have to also show that you can use them responsibly and that you can build a positive world in the online space, and that's also very important.
+- The Patriot Act, passed overwhelmingly but hastily after 9/11, allows the FBI to obtain telecommunication, financial, and credit records without a court order.
+- I first came to China as a child on a visit with my family in 1978.
+- Increasingly, people have very little tolerance for anything that smacks of propaganda.
+- If high-tech companies are serious about doing the right thing, they can join together and lobby for more transparency and accountability in the way in which Chinese officialdom deals with Internet services.
+- If multi-stakeholder Internet governance is to survive an endless series of challenges, its champions must commit to serving the interests and protecting the rights of all Internet users around the world, particularly those in developing countries where Internet use is growing fastest.
+- The Olympics brought a lot of development to Beijing, but I don't see that there have been any changes to human rights as a result of the Olympics.
+- There isn't much question that the person who obtained the WikiLeaks cables from a classified U.S. government network broke U.S. law and should expect to face the consequences. The legal rights of a website that publishes material acquired from that person, however, are much more controversial.
+- Like Syria, the government of Bahrain employs aggressive tactics to censor and monitor its people's online activity.
+- The early idealists and companies and governments have all assumed that the Internet will bring freedom. Yet China proves that this is not the case.
+- Clearly Google is searching for a way to do business in China that avoids them sending someone to jail over an e-mail.
+- Pretty much anybody who does creative work in China navigates the gray zone. People aren't clear about where the line is any more, beyond which life gets really nasty and you become a dissident without having intended ever to be one.
+- The Chinese government clearly sees Internet and mobile innovation as a major driver of its global economic competitiveness going forward.
+- There's a lot of politics over who gets the next allocation of Congressional funding.
+- Internet freedom is not possible without freedom from fear, and users will not be free from fear unless they are sufficiently protected from online theft and attack.
+- In the Internet age, it is inevitable that corporations and government agencies will have access to detailed information about people's lives.
+- WikiLeaks published the Afghan War Logs and U.S. diplomatic cables stolen from a classified network by an Army private.
+- The Internet is empowering everybody. It's empowering Democrats. It's empowering dictators. It's empowering criminals. It's empowering people who are doing really wonderful and creative things.
+- Even in democratic society, we don't have good answers how to balance the need for security on one hand and the protection of free speech on the other in our digital networks.
+- If China can't even given LinkedIn enough breathing room to operate in China, that would be a very unfortunate signal for a government to send its professionals about its priorities.
+- Shibuya is a trendy part of Tokyo where young people come to meet and have a good time.
+- While the federal government is required by law to document publicly its wiretapping of phone lines, it is not required to do so with Internet communications.
+- Internet companies created the social-media tools that fueled the Tea Party and Occupy Wall Street insurgencies, and that have helped political candidates rally grass-roots support.
+- Every year in China, Internet executives are officially rewarded for their 'patriotism.'
+- Facebook and Google are battling over who will be our gateway to the rest of the Internet through 'like' buttons and universal logins - giving them huge power over our online identities and activities.
+- Yahoo! had a choice. It chose to provide an e-mail service hosted on servers based inside China, making itself subject to Chinese legal jurisdiction. It didn't have to do that. It could have provided a service hosted offshore only.
+- I don't think there's any serious discussion inside the Chinese government about liberalising. I don't think anything's going to change in China until enough Chinese say, 'We're not going to play this game any more.'
+- To have a .cn domain, you have to be a registered business. You have to prove your site is legal.
+- Normalization of U.S.-China relations in 1979, combined with economic reforms and opening, transformed the Chinese people's lives.
+- There is a broad movement that has been holding companies accountable on human rights for a long time.
+- When controversial speech can be taken offline through pressures on private intermediaries without any kind of due process, that is something we need to be concerned about.
+- If China someday gains a more fair, just, and accountable system of government, it will be due to the hard work and efforts of the Chinese people, not due to the inexorable workings of any particular technology.
+- Almost every week, there are stories in the press or on Chinese social media about what even the official Chinese media call 'hot online topics:' stories about how people in a particular village or town used Weibo to expose malfeasance by local or regional authorities.
+- A lot of Chinese don't understand why people in the West are critical of China.
+- Anything illegal under Chinese law is, of course, not protected by copyright.
+- Any new legal measures, or cooperative arrangements between government and companies meant to keep people from organizing violence or criminal actions, must not be carried out in ways that erode due process, rule of law and the protection of innocent citizens' political and civil rights.
+- Clear limits should be set on how power is exercised in cyberspace by companies as well as governments through the democratic political process and enforced through law.
+- The U.S. relationship with Bahrain is obviously more complicated than with Syria and Iran.
+- We must all rise to the challenge to demonstrate that security and prosperity in the Internet age are not only compatible with liberty, they ultimately depend on it.
+- As a condition for entry into the Chinese market, Apple had to agree to the Chinese government's censorship criteria in vetting the content of all iPhone apps available for download on devices sold in mainland China.
+- The basic technical protocols that have enabled the Internet to work in such a globally interconnected way are developed and shared openly by a community of engineers.
+- Google's entire business model and its planning for the future are banking on an open and free Internet. And it will not succeed if the Internet becomes overly balkanized.
+- One thing is very clear from the chatter I see on Chinese blogs, and also from just what people in China tell me, is that Google is much more popular among China's Internet users than the United States.
+- Consistently, Baidu has censored politically sensitive search results much more thoroughly than Google.cn.
+- We have to start thinking of ourselves as citizens of the Internet, not just passive users. I don't see how we can bring about change in our digital lives if we don't take responsibility.
+- I haven't heard of any cases of anti-American blog posts being censored or bloggers encountering consequences for anti-American speech on the web in China.
+- The way I think liberties get eroded is not that all of a sudden you become an Orwellian state, but gradually it becomes harder for people with unpopular views to speak out without being in danger, be it from the state or just from the majority of the people who don't like them.
+- Microsoft runs the world's biggest blogging platform, MSN Spaces.
+- When Google went into China, there were some people who said they shouldn't compromise at all - that it is very bad for human rights to do so. But there were other people, particularly Chinese people, who said they were glad Google had gone in.
+- In China's big cities, American products - say, for instance, Proctor and Gamble shampoos or many other goods - are widely coveted by a lot of Chinese consumers.
+- The trend in China is toward tighter and tighter control. They are basically improving their censorship mechanisms.
+- Trade shows such as the wire tappers' ball are highly secretive and ban journalists from attending. None of the U.S. agencies that attended the wire tappers' ball - including the FBI, the Secret Service, and every branch of the military - were willing to comment when a reporter queried them about their attendance.
+- Speech within the kingdom of Amazonia - run by its sovereign Jeff Bezos and his board of directors with help from the wise counsel and judgment of the company's executives - is not protected in the same way that speech is constitutionally protected in America's public spaces.
+- There is a widening gap between the middle-aged-to-older generation, who still read newspapers and watch CCTV news, and the Internet generation.
+- Many of the Kuomintang elite in Taiwan have relatives among the ruling elite here on mainland China.
+- When U.S. commercial interests press the Chinese government to do a better job of policing Chinese websites for pirated content, a blind eye is generally turned to the fact that ensuing crackdowns provide a great excuse to tighten mechanisms to censor all content the Chinese government doesn't like.
+- Social networking platforms like Facebook and Twitter should be urged to adhere to business practices that maximize the safety of activists using their platforms.
+- The Internet is a politically contested space.
+- Only about 10 percent of India's population uses the web, making it unlikely that Internet freedom will be a decisive ballot-box issue anytime soon.
+- It would be normal for anybody running a high-profile, politically controversial operation in China to anticipate worst-case scenario, and to do everything possible to guard against them.
+- Facebook has conquered much of the world.
+- While American intellectual property deserves protection, that protection must be won and defended in a manner that does not stifle innovation, erode due process under the law, and weaken the protection of political and civil rights on the Internet.
+- I study how governments seek to stifle and control online dissent.
+- In China, the problem is that with the system of censorship that's now in place, the user doesn't know to what extent, why, and under what authority there's been censorship. There's no way of appealing. There's no due process.
+- Whether it's Baidu or Chinese versions of YouTube or Sina or Sohu, Chinese Internet sites are getting daily directives from the government telling them what kinds of content they cannot allow on their site and what they need to delete.
+- Digital activism did not spring immaculately out of Twitter and Facebook. It's been going on ever since blogs existed.
+- Democratic institutions are based on a reality of human nature: that those with power, however benign or even noble their intentions, will do what they can to keep it.
+- I do not know of a Chinese blogger who has gone to jail, but I know several who have had their blogs shut down. I also know some Chinese bloggers who have received threatening phone calls from police warning them to 'be careful.' In some cases, they stopped blogging for a while.
+- Each of us has a vital role to play in building a world in which the government and technology serve the world's people and not the other way around.
+- Most people who use the Internet seem take its nature and characteristics for granted, like we take air and water for granted.
+- During the 1980s, when Japan's economy was roaring and people were writing books with titles like 'Japan is Number One,' most Japanese college students didn't make the effort to become fluent in English.
+- Increasingly, corporate executives who don't speak Japanese are coming into Japan. Unlike their predecessors, they expect their employees to be able to communicate in English.
+- One-way monologues through the Voice of America and Radio Free Asia don't have much street cred with China's Internet generation, to be honest.
+- Freedom only remains healthy if we think about the implications of what we do on a day-to-day basis.
+- There are a lot of people that think the Internet is going to bring information and democracy and pluralism in China just by existing.
+- If you want to have traction in China, you have to be in China.
+- A number of countries, including Russia and China, have put forward proposals to regulate aspects of the Internet like 'crime' and 'security' that are currently unregulated at the global level due to lack of international consensus over what those terms actually mean or over how to balance enforcement with the protection of citizens' rights.
+- It is time to stop debating whether the Internet is an effective tool for political expression and instead to address the much more urgent question of how digital technology can be structured, governed, and used to maximize the good and minimize the evil.
+- Google transformed the way most of us get our information with a search engine that enables us to find citizen-created media content alongside the work of professionals.
+- Every news organization needs a social media strategy.
+- Ronald Reagan, when he was campaigning for President, said that he would break relations with Communist China and re-establish diplomatic relations with Taiwan. But when he got into office, he pursued a very different policy of engagement with China and of increasing trade and business ties with China.
+- Sohu will protect you from yourself.
+- It took a generation for companies to recognise their responsibilities in terms of labour practices and another generation for them to recognise their environmental obligations.
+- You don't have to be a nerd or a programmer or a network engineer to make a difference.
+- Governance is a way of organizing, amplifying, and constraining power.
+- For years, members of Congress have heard from constituents who want them to protect the nation from crime, terrorism and intellectual property violation. They have not faced equally robust demands that online rights and freedoms be preserved.
+- In Britain, a 'block list' of harmful Web sites, used by all the major Internet Service Providers, is maintained by a private foundation with little transparency and no judicial or government oversight of the list.
+- Compliance with the Stop Online Piracy Act would require huge overhead spending by Internet companies for staff and technologies dedicated to monitoring users and censoring any infringing material from being posted or transmitted.
+- Tactically, yelling at Google is unwise.

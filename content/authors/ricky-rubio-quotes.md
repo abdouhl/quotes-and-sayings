@@ -1,0 +1,106 @@
++++
+author = "Ricky Rubio"
+title = "Ricky Rubio Quotes"
+quotes_len = "100"
+description = "the best 100 Ricky Rubio Quotes"
++++
+- I'm going to keep working hard.
+- I never jumped too high, I'm going to be honest.
+- The goal of this sport is team wins.
+- I know what I can bring to the table. I have done it all my career, but every team you need something different.
+- If I want to do something in this life, it's to make this world better. One of the ways is impacting the kids by letting them have fun but at the same time teaching them some values.
+- If I wanted to play individual, I'm going to play tennis or something like that.
+- I use a lot of Pinterest to follow trends.
+- At the end of the day, we're here to play basketball but to help the community, too. It's something that makes me feel good and I do it more for me than for the others, but at the end of the day helping others helps yourself, too.
+- It's hard when you're missing a lot of players.
+- It's hard, when you are hearing things with the rumors that you are going to be traded, to be focused.
+- When a point guard is unselfish and thinking about the team, about winning first, it relates to the other players. So, I think that is my style of play.
+- When you hang out a lot off the court, the chemistry builds up and you can see it on the court. You become friends and teammates. That has an impact on the game.
+- By signing a contract, you accept the conditions, but there are ways and forms. Players are privileged, but those who are in charge of these things have to understand that, in addition of players, we are also people.
+- The thing that you have to do is... try to be yourself.
+- Sometimes losses come and it's hard.
+- I think one of my main things is I lead by example. I'm not going to be just talking, talking, talking and sitting on the side saying you have to do that or this. I'm going to be the first one over there in practice, diving on the floor, whatever it takes to really get it going.
+- It's fun to see all the trades. Unless it's you.
+- I grew up idolizing Spanish basketball, and to be a part of another chapter of our country's success was really special to me.
+- I always try to have fun, because that's why I like playing basketball; I love it. And sometimes it's hard when you lose.
+- We used to watch a lot of EuroLeague and ACB, which are the two leagues back home in Spain. And we used to dream about playing for those teams one day.
+- I know they like their sports in Minnesota.
+- You have to sacrifice something for the best, for the team.
+- In 2001, I watched Kinder Bologna win the EuroLeague, and I thought, Damn, I want to the win that some day. I remember thinking it was the coolest thing in the world.
+- Basketball is very important to me. But I know I can make an impact on this world in many other ways. I know I can be many other things. And of course, one of them is still being a mama's boy.
+- You don't find a lot of coaches who cares more about you as a person than the results.
+- Learning through mistakes as a young team can happen, but then make different mistakes.
+- When your name is out there in the media, you're thinking like, this can be my last game. Coming from Europe, it's different. You sign a contract and you don't leave until your contract is done.
+- I remember watching Argentina beat the U.S. in 2004 and I think maybe the same story that Argentina wrote with the 'Gold Generation,' we can write, too.
+- I want to play with a winner.
+- I have to say the truth. It's a dream for everybody to play in the best league in the world.
+- What makes a good team is putting the pieces together and make it work. As a veteran, it's part of my job to make that work. Seeing where and how the young talent has to sacrifice something for the team.
+- It's an exciting prospect playing in the NBA, one that every player wants. When you are little you dream about it.
+- I think basketball is a great way to have fun with the kids and teach some values through basketball.
+- You've got to fix it if things are not working.
+- When I tweet in English, Spanish people get mad at me. When I tweet in Spanish, English people get mad at me. You never can be 100 percent for everybody, you know. I try to do both, at the same time; but it's hard.
+- I feel like having good veterans like I had during my career really helped me improve my game and know the situation that we are.
+- I come from a winning team in Europe and I know what it takes to win games and to win championships.
+- It's just something, 'Should I run the team or should I score?' I gotta learn how to balance that, and be more aggressive sometimes.
+- It doesn't change much, my job from one team to the another. What I bring to the table. Helping the team be better and helping the young teams grow and help the talent already here. Get the best out of them.
+- We live in this business where we've got to do what we have to do - play professional.
+- I mean, you want to have fun, but you want to win, too.
+- Sometimes the stats don't say how good are you.
+- Basketball is basketball. You have to pass the ball, you have to score.
+- There are different types of leaders.
+- Losses will come. That's for sure. There's nobody in the league who has gone 82-0.
+- I can be put in every situation.
+- I like all sorts of games that make you think. Chess is one of the games I play a lot, read a lot of books.
+- If I help the team, I don't think of my stats.
+- Playing in the Target Center where there's more than 15,000 people every night, it's just crazy.
+- I like the NBA game as a spectator.
+- I love playing basketball, but the most important thing to me is my family.
+- You try to run to try to have freedom and try to have fun and sometimes you have to take care of the ball.
+- If you look good but don't feel comfortable you're not gonna feel good. But don't wear white socks anywhere.
+- What I've been doing, since I am young, is leading by example, practicing hard and doing everything on the court.
+- I think one of the hardest things to do in the league is not having a great year, but it's having a better year when you had a great year. All the attention is going to be on you, all the pressure is going to be on you. The challenge you're going to have is more mentally than anything else.
+- I know how to run a team and other stuff.
+- At one point I decided to forget about all the pressure and just play for fun and do my game and enjoy what I do.
+- I want to be happy.
+- If I can do some magic, I do it.
+- I've really learned, first, focusing on the future and thinking about the future doesn't let you enjoy where you are now. And second of all, it's things that you can't control. You can't know.
+- I mean, when I throw it through somebody else's legs, they're not ready for that. Sometimes you take a risk. But it's more fancy, and I like it.
+- Every time you don't make the playoffs, you have something inside that you want to prove again next year.
+- I know where my weaknesses are. I am not as athletic as other point guards in the league. I can't dunk over people. Maybe I'm not a good shooter, or whatever they say. But I know my strengths and that is helping my team to win by knowing exactly every moment what to do.
+- In Spain, we have a pretty good league - for me, I think it's the second-best league in the world. They play tough there, they play aggressive. The big difference is that we play only one game a week in Spain, maybe two.
+- Some people like it, some people not. I did an Instagram poll where I asked: man-bun or not, and no man-bun won. And I'm trying to follow what the people want. But sometimes I go out of the line and go back to my man-bun.
+- I like culture. So D.C. is a great city for me.
+- I prefer a small town where everybody knows everybody.
+- I try to do it in both languages: English and Spanish. But sometimes I just Tweet in Spanish.
+- At the end of the day, I think the players listen more to other players than the coach himself.
+- I have to learn how to be more vocal. I'm not good at that and I have to improve.
+- I'm not a man of many words, I don't like to talk much. I prefer deeds, sacrifices and showing that what matters is the team.
+- Basketball isn't one-on-one. It's five-on-five, plus the bench.
+- Barcelona is very similar to Santa Monica.
+- Sometimes at night during the season I was going through hell. Waking up in, who knows, Sacramento, in L.A., in the middle of the night alone in a hotel and thinking, 'Why am I here? Is it really worth it?'
+- I've been through good things and bad things that helped me grow up.
+- Sometimes you think you have all the time in the world. But the time is now. Sometimes you only have a brief opportunity.
+- When things get complicated, you have to bring out your character and put more wood on the fire.
+- I want to play against the best players in the world.
+- Minnesota was the team who drafted me and I don't want to think anything else. They were the one who trusted me and I'm so glad that they did.
+- I wanna be a coach on the floor.
+- If you do the same mistake over and over again, it means you're not learning.
+- I wanted to take advantage of my platform as an NBA player to bring smiles, and also to raise money for social causes.
+- You have to learn all the plays not only in your position, but you have to know where everybody has to go.
+- I live a life that I never regret any decision.
+- It's one dream to go to the N.B.A. It's true.
+- When you're young, every game and every situation it seems like it's the end of the world sometimes when it's not working.
+- You have to try to play well and focus on your game, and that's it.
+- I make a lot of mistakes. One time I mixed dark blue and black in a suit.
+- I watched Magic Johnson on tape. I didn't have a chance to watch him live. I remember I was 12 or 13, watching games, going to the gym and trying to mimic what they do. Steve Nash, Jason Kidd, all those guys.
+- I like to read psychologist's books. 'The Monk Who Sold His Ferrari,' that's one of my favorites. Those kinds of books.
+- You can do whatever you want, you can run a lot, but playing the game and practicing, it's just different.
+- I loved Minny. I still do. And that place, those people - they will always be in my heart.
+- If it's coming off the bench or if it's starting, I will try to contribute what is best for the team. If we're winning, I'm not going to complain.
+- When I go to bed and we've won that day, no matter what I did on the court, I am happy. And if we lost, no matter what I did, I am sad.
+- There's a lot of coaches who are just going to try to save themselves before saving you.
+- A lot of people, a lot of players, come to the league knowing 'I can do that, I can do this, I can do a lot of stuff.' But at the end of the day, what the team needs from you is what makes sense for the team. You have to do what's best for the team.
+- I try to help the team. It doesn't matter if you have to score 50 points or zero.
+- I am willing to do whatever the team needs to win as many games as possible.
+- When you travel around to the other side of the world, and you really only know your teammates, it's good to have someone else to hang out with, someone from home you can share time with in another culture.
+- I like Minnesota. But I want to win too.

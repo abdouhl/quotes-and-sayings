@@ -1,0 +1,21 @@
++++
+author = "Barbara Januszkiewicz"
+title = "Barbara Januszkiewicz Quotes"
+quotes_len = "15"
+description = "the best 15 Barbara Januszkiewicz Quotes"
++++
+- Art matters.
+- This is about relationships, about the placement of potent colors and the canvas sparkling through. I want the eye to dance across the canvas but direct you, too.
+- Color is a passion; painting is a passion.
+- Jazz can be a blank canvas full of possibilities.
+- Jazz is the art of thinking out loud.
+- If you look at how beautiful the eye can be, it has its own inside patterns and colors.
+- Be drawn to the visual arts for it can expand your imagination.
+- There's a moment of awe when you watch the colors dry and become lighter.
+- Creative thinking inspires ideas. Ideas inspire change.
+- Jazz vision for me is seeing my art in musical term. It offers me an visual expressions in an ever-changing musical palette.
+- Jazz vision is the fusion of music and art a real paradox of same-yet different. Here we play in exchanges, like the hardness of the key of c# major and from the softness of Db major - capturing, reflecting and improvising.
+- Imagination needs to be fed.
+- Most of the time, I never go back. I leave my brush mark and move on.
+- Jazz vision is a wordless conversation between musical notes and visual expressions.
+- Ideas come through us, not from us.

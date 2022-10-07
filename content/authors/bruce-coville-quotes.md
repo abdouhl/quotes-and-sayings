@@ -1,0 +1,20 @@
++++
+author = "Bruce Coville"
+title = "Bruce Coville Quotes"
+quotes_len = "14"
+description = "the best 14 Bruce Coville Quotes"
++++
+- I tend to be more of a novel writer. In fact, some of my novels started out as short stories, and I just got carried away! I think some of my best writing is in the short story form, but novels come more naturally to me.
+- Every book is like starting over again. I've written books every way possible - from using tight outlines to writing from the seat of my pants. Both ways work.
+- I feel like a very lucky person. From the time I was young, I had a dream of becoming a writer. Now that dream has come true, and I am able to make my living doing something I really love.
+- My writing works best when I remember that bookish child who adored reading and gear the work toward him.
+- When I was a kid, I read books that made me laugh but also made me shiver in terror. I wanted to make books that made other people feel the same way.
+- Like most people, I was not able to start selling my stories right away. So I had many other jobs along the way to becoming a writer, including toy maker, gravedigger, cookware salesman, and assembly line worker. Eventually, I became an elementary teacher and worked with second and fourth graders.
+- Ideas are all around you - everything gives you ideas. But the real source is the part of your brain that dreams.
+- I loved teaching. I used to teach fourth grade.
+- Most of all, I love being a storyteller. And yes, I want to make a good living, but I'm not always driven by the best commercial sense.
+- I know what I'm going to write for the next three years. It's frustrating, because if I get a good new idea, I have to put it aside.
+- I grew up around the corner from my grandparents' dairy farm, which was three miles outside of a small town called Phoenix.
+- When I go into schools to speak, I am not giving a speech - it's really a one-man show. I call it 'didactic standup.'
+- The first time I can remember thinking that I would like to be a writer came in sixth grade, when our teacher Mrs. Crandall gave us an extended period of time to write a long story. I loved doing it. I started working seriously at becoming a writer when I was seventeen.
+- In terms of age, I think I've covered about as wide a range as is possible, having written everything from picture books to early chapter books to middle grade novels to YA to one adult novel - and having been editor and lead writer for a magazine for retired people!

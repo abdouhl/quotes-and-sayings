@@ -1,0 +1,62 @@
++++
+author = "Amanda Knox"
+title = "Amanda Knox Quotes"
+quotes_len = "56"
+description = "the best 56 Amanda Knox Quotes"
++++
+- I think it's true that people seemed to have had a kind of tunnel vision in my regard, and that has been something that I've been having to fight against for a long time.
+- There are those who believe in my innocence and those who believe in my guilt. There is no in-between.
+- To be quite honest, the joyful relief of the publication of my book was short-lived.
+- I have a few close friends with whom I can practice speaking Italian, but I mostly maintain fluency through reading.
+- The only thing I rely on is caffeine.
+- I'm definitely not going back to Italy willingly. They'll have to catch me and pull me back kicking and screaming into a prison that I don't deserve to be in.
+- I know I may appear spacey, but that's how I am.
+- I have been in an experience where I thought everything that I had hoped for in my life was taken away from me, and I had to redefine what mattered.
+- That is the thing that I was scared of - that I would know intellectually that there's something to glean out of life, but that I would be so broken that I wouldn't care.
+- When you meet me and hang out with me, I might come across as a very upbeat, driven person. I don't come across as someone who is wounded.
+- Our long history of exploiting women's bodies and suppressing their voices had a direct impact on my case and other women's lives.
+- You can always do something that can make you feel good about your life despite what you're going through.
+- As this case has progressed, the evidence that the prosecution has claimed exists against me has been proven less and less and less. And all that has happened is that they've filled these holes with speculation.
+- If I'm guilty, I'm the ultimate figure to fear, because I'm not the obvious one. But, on the other hand, if I'm innocent, it means that everyone is vulnerable, and that is everyone's nightmare. Either I'm a psychopath in sheep's clothing, or I am you.
+- I was told that my best-case scenario would likely consist of writing my memoir and then disappearing.
+- Now I have normal-person fears - fears of failure, of not being smart enough or strong enough or kind enough.
+- I didn't confess. I was interrogated. They acted like my answers were wrong. They told me I was wrong, that I didn't remember correctly, that I had to remember correctly. And if I didn't, I would never see my family.
+- I lost years of my life to prison because of two-dimensional and misogynist stereotypes.
+- Even if Trump means well, his schemes tend to be blunt, selfish, and short-sighted rather than nuanced, empathetic, and thought through.
+- I think the fact that my case was so sensationalized is because I am a white woman.
+- It's almost like living a double life where I'm in a limbo space where Amanda Knox, a real person, exists, 'Foxy Knoxy,' an idea of a person, exists, and I'm constantly having to juggle how someone is interacting with me based upon that two-dimensional person of me that has been in the public's imagination for so long.
+- What I started to read and most enjoyed while I was a student was an Italian edition of 'Harry Potter and the Chamber of Secrets.'
+- I am a marked person, and no one who's unmarked is going to understand that. It's very intimidating. I don't even know what my place is anymore. What's my role in society? Who am I, after everybody has branded me?
+- I think that there was a lot of fantasy projected onto me, and that resulted in a reappropriation and re-characterization of who I am.
+- I know I have not always been understandable and that I was guided for too long by stubborn naivety, which created confusion.
+- I have a great amount of respect for life, and I always think that no matter how bad situations get, you can always make something out of it.
+- It's one thing to be called certain things in the media, and then it's another thing to be sitting in a courtroom, fighting for your life while people are calling you a devil.
+- One of the things that I somewhat realized, especially right after I was convicted, was that sometimes really, really horrible things happen for no reason.
+- I know that Perugia is probably the least-welcome place for me in the entire world.
+- In a time when my entire family had already tapped into their retirement savings and taken out second mortgages, we were grateful when any supporters, including Trump, donated to my defense and spoke out about my innocence.
+- I was not aware of a ton of the stuff that was being said about me out in the world since I wasn't able to get British or American headlines from my prison cell in Perugia. But I was aware that in the courtroom, I was being called a succubus, a man-eater, 'Foxy Knoxy.'
+- I am living in this world, and if this world already has a certain prejudice of me and an idea of me, then it's really hard for me to go through it.
+- Everybody tells me, 'You're famous.' And I answer, 'I'm not Angelina Jolie!'
+- I'm terrible at basketball. I have really small hands, and I can't control the ball.
+- Everyone deals with tragedy in his own way.
+- After my conviction, I was devastated. I had never believed that I would be convicted.
+- When we label human beings and flatten them to just a splashy headline, we lose decency and the truth.
+- The best thing #MeToo did was say women's experiences matter. You can't blame us for what happens to us anymore.
+- Before Italy, I had a happy life.
+- I'm always trying to feel less stress.
+- I always carry a book with me to read on the bus, and I tend to arrive everywhere early.
+- Like most millennials, I have the bad, anxiety-inducing habit of grabbing my phone in the morning and scrolling through social media for 15, 20 minutes before I'm fully awake.
+- People can take, take, take from you. There are people whose profession is to do that. It's entertainment at the cost of human lives.
+- I'm very anti-antidepressants. It's not the chemicals of my brain that's a problem; it's reality. I don't think tricking my brain into reinterpreting reality is going to help.
+- I don't want to get married for the sake of getting married. My hope is that I have a partner with whom I can continue to take on the world.
+- No one knows how they would react to a horrible situation until it happens to them.
+- I've gained a seriousness that has to do with a certain perspective, a gratitude for being able to see the importance of things. And that lends itself a gravity to everything. And that is something that I sort of carry as a weight but a good weight inside of me.
+- A good way to vilify women is by attacking their sexuality.
+- I would prefer to be famous for something I did or built or achieved.
+- The only thing I can do is continue to defend myself.
+- I would like to be re-considered as a person.
+- I had to grow up in prison for something I did not do.
+- I'm working on getting tougher with self-defence classes.
+- All wrongfully convicted people are portrayed as monsters. But there's a special kind of monster that is a woman.
+- Politics is not a tit-for-tat game. It's not 'I helped you, now you help me.'
+- I looked to books to stimulate my mind and create a daily sense of purpose.

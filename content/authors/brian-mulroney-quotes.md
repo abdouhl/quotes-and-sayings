@@ -1,0 +1,33 @@
++++
+author = "Brian Mulroney"
+title = "Brian Mulroney Quotes"
+quotes_len = "27"
+description = "the best 27 Brian Mulroney Quotes"
++++
+- You have to spend your political capital on great causes for your country.
+- And look, I was a big, brassy guy who won and won big. I did what I wanted.
+- So that was Reagan's political problem. As a rancher in California, he was an environmentalist himself. But the President of the United States doesn't control everything that happens in Washington.
+- It's my responsibility, and entirely my fault, Of course I regret it. It's the kind of locker-room conversation we all use, but as prime minister I shouldn't have used it.
+- If your only objective is to be popular, you're going to be popular but you will be known as the Prime Minister who achieved nothing.
+- If everything is very important, then nothing is important.
+- You accumulate political capital to spend it on noble causes for Canada. If you're afraid to spend your capital, you shouldn't be there.
+- The Conservatives over the years have done a great deal, from Sir John A, to Diefenbaker, and others.
+- I think the government has to reposition environment on top of their national and international priorities.
+- There are so many demands on your time, on your resources, and on the prestige of the government.
+- You can't be chasing 15 rabbits. Otherwise, the public mind cannot follow you.
+- I am not denying anything I did not say.
+- When I appointed the Minister of the Environment to major cabinet status, the Planning and Priorities committee, the signals that that sent through Ottawa were major, because that's what the bureaucracy understands.
+- The biggest trading partner of the United States is not West Germany or Japan, it's right here.
+- Once you articulate an agenda, you have to follow it.
+- First, President Reagan was not enthusiastic. But I built up a relationship with him in other areas and then persuaded him that this was important to us and to me, and that we had to at least be in the process of looking at this seriously.
+- Trudeau's contribution was not to build Canada but to destroy it, and I had to come in and save it.
+- You cannot name a Canadian prime minister who has done as many significant things as I did, because there are none.
+- I would go to them and I would explain this is the price of going forward. We're going to move ahead in all these other areas. We're moving ahead in tax reform and GST, we are moving ahead on trade, but this will not be done at the cost of the environment.
+- Whether the process proves to be Kyoto or something else, let's acknowledge the urgency of global warming.
+- We decided that the environment was an integral part of our policies and the political thrust of our government. We gave it the priority and we sustained it with the money required to make it happen.
+- Every cabinet minister gets a mission statement from the Prime Minister.
+- And, of course, the fact that Maurice Strong, a Canadian, was in charge made it important for us to pull up our socks and become leaders in this field. Now, here is a field we should be a leader in!
+- I can see now a vision emerging how Canada is going to profit in the future from our Arctic resources without destroying the environment on which it is all based.
+- For example, the Prime Minister earlier this year talked about the importance of the Arctic to our future. He's right. A hundred years from now, the strength of Canada is going to be coming from our resources in the Arctic.
+- We created the Cabinet Committee on the Environment to review the environmental implications of all government initiatives. I think what made us successful was the fact that it was a sustained approach. We did something new every year.
+- In politics, madame, you need two things: friends, but above all an enemy.

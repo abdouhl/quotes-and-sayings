@@ -1,0 +1,46 @@
++++
+author = "Flavor Flav"
+title = "Flavor Flav Quotes"
+quotes_len = "40"
+description = "the best 40 Flavor Flav Quotes"
++++
+- I have over a hundred clocks. I've got fancy clocks and clocks from all over the world that people made for me.
+- I remember rap music. We used to party and dance off of it. Today it's all about a whole different angle... Rappers are going against each other, and it's more of a bragging, boasting thing.
+- One thing you can't do with babies, you can't give them steak.
+- I got my degree in culinary arts in 1978.
+- Doing scripted acting is a challenge to me. I can't remember things too good, so remembering lines is a challenge to your boy.
+- My chicken ain't no joke. I ain't scared to go up against the Colonel, tastewise.
+- I wear my Viking helmet because the horns define how sharp my brains are. If you try to rub me the wrong way, I will stick you with both of my horns.
+- Queen Latifah used to help me out with my kids, because while we were all out on tour - Public Enemy, Naughty By Nature, Queen Latifah, Heavy D - when Public Enemy went onstage, I didn't have anybody solid to watch my kids. So, Latifah would help me out.
+- I'm a real big celebrity. I'm this megastar.
+- Since 1987, when I got my first one, I've been wearing a clock around my neck 24/7. You feel me? 24/7.
+- Remember the diner in 'Happy Days?' I do want to do a show like that. But an updated version.
+- I'm trying to grow. I don't want to stay on the same page.
+- When I was in jail, I was a lot of people's favorite person. I practically ran the jail. I had more freedom than the police.
+- I got a lot happening, a whole lot, and it's not always easy being me.
+- We never broke up. As long as I'm living and as long as Chuck D is living, Public Enemy is always going to be alive.
+- What I'm trying to do is put back into rap music what's missing - which is the good part, the fun part, that party part.
+- Definitely, I think I'm a life coach for real. The lessons I give are lessons you can take to the bank.
+- I worked as a head cook at courthouses and high schools. I left it behind when I started getting into my music real heavy.
+- Honestly, Flav is not much of a video game player these days. BUT, I used to spend hours on Time Crisis. I beat all levels, man.
+- I look more to the future. That's where my head is at.
+- The hype man's job is to get everybody out of their seats and on the dance floor to have a good time.
+- I ain't scared to do another dating show, but I ain't really trying to. I want to do a talk show or something. I've done enough dating on television. I'm ready to spread my wings, and go down other avenues.
+- The moments we have behind us, you won't be able to see again. We're only responsible for what we live in right now.
+- I'll tell you one thing you can't do: you can't put your shoes on, then your socks on.
+- I know I have a hit show on my hands.
+- I try and spend a lot of time with my kids. I try and have fun with my kids. I try to put father time in there.
+- Best advice that I ever got is to do whatever it takes to make myself happy, so that I'll be able to make others happy. If I'm not happy, I can't make other people happy.
+- My parents owned a soul food diner. It inspired me to go to culinary school.
+- Your man Flavor Flav is living!
+- If I do look back, I'll say that I'm blessed. I'm blessed, and I appreciate God for not only letting me live through everything, but to prosper.
+- I set our house on fire when I was a little child playing with lighters. Boy, did I burn the place down!
+- I got a way to get through to kids. I try to take that and use that to my advantage. If we work on the kids right now, I'm telling you, they'll be making less mistakes, the jails will be gettin' less full. It's all about what we do with the kids.
+- I'm not doing no more 'Flavor of Loves.' I'm trying to grow. I don't want to stay on the same page. You can't stay on the same page in order to get to the next chap.
+- If anyone wants to know what the definition of 'dope' means, it's: 'Definition of Public Enemy.'
+- Hip-hop is when you have crowd participation; when you chant at the audience and they chant back at you; when you wave your hands in the air like you just don't care; or some breakdancing. Everything today is just low-beat, real bass-y, bass-y, good rap records.
+- Back in the day, when the D.J. would be playing a record, I'd be on the mic trying to hype up the crowd. So once Public Enemy became a rap group, I decided that that's the role that I wanted to take on. I wanted to be the one that was hyping, because I've always been good at it. I can hype up any crowd.
+- I grew up playing about 15 instruments and the way that I was able to accomplish that was by cutting my classes, hanging out in the band room all day, and going from one instrument to the next to the next, until I learned how to play everything by ear.
+- Back in the day, cooking definitely was the thing where you could make a lot of money. Also, it was something that I liked to do.
+- I just want to show the world it's never too late to get your diploma, and show kids they should stay in school and not wait until you're old to get it.
+- I've taken a lot of time to build up the name Flavor Flav, but this could come tumbling down in 30 seconds. If you want to keep what you worked for hard all your life, then you got to do the right thing in your life.

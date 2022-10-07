@@ -1,0 +1,25 @@
++++
+author = "Lauren Oliver"
+title = "Lauren Oliver Quotes"
+quotes_len = "19"
+description = "the best 19 Lauren Oliver Quotes"
++++
+- I was a troubled teen and I was constantly looking for someone to throw me a rope. Those ropes are connections. They allow us to see that life exists beyond the little worlds we are currently a part of.
+- My parents were pretty liberal, but they were still parents. I definitely had my teenage rebellion.
+- With 'Delirium,' I had to spend time thinking about the political, social and religious structure of a different world. But it was a fun challenge.
+- I think dystopian futures are also a reflection of current fears.
+- Finishing books - and leaving the world you've created - is always a kind of emotionally wrenching experience. I usually cry.
+- I think all artists are only interested in a couple of themes, really. I'm primarily interested in change and connection as being this restorative force. I write about them because that's what I think about in my own life.
+- I love to sleep. I'm an excellent, excellent sleeper.
+- You don't reach points in life at which everything is sorted out for us. I believe in endings that should suggest our stories always continue.
+- 'Requiem' has been controversial because people don't feel I gave it closure.
+- I try to write characters that are as real, emotionally and psychologically, as I can make them; I feel the same way about setting. This often means that I'm drawing from my experiences and observations.
+- There are times I wish I was more conventional. I would get a husband and a baby and a big SUV in the 'burbs and be happy. But forging my own way - my career, my relationships with wonderful but troubled people - that's who I am.
+- One of the things I've tried to do in my career is really write different kinds of books, so I'm able to broaden people's expectations of what I'm allowed to do.
+- Dystopian novels help people process their fears about what the future might look like; further, they usually show that there is always hope, even in the bleakest future.
+- I think 'Voldemort' is definitely the scariest villain.
+- I often write two books simultaneously. Usually one of them starts out as a fun experiment designed to give me a daily break from the real book I'm writing. And then that becomes a real book too.
+- I think I'm able to do so much because writing is what I love to do. So, often when I have free time, I choose to write and edit.
+- I feel a lot of adult fiction looks down on plot as a lesser form of literature.
+- I have a beautiful pair of Giuseppe Zanotti black pumps that make me feel like a model every time I put them on. I have a pair of Jimmy Choo flats I would marry, if I could.
+- I worked in publishing before I became an author, so I knew how a book gets made.

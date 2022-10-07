@@ -1,0 +1,85 @@
++++
+author = "Charlie Baker"
+title = "Charlie Baker Quotes"
+quotes_len = "79"
+description = "the best 79 Charlie Baker Quotes"
++++
+- We believe it is essential to establish federal emission reduction targets that can vary by state or region with policy flexibility for states to design solutions that work for their unique circumstances. Such targets would level the playing field and send a clear signal to business and industry as we transition to a clean energy economy.
+- Anybody is beatable.
+- As governor, I would seek to ensure that Massachusetts has access to a balanced portfolio of low-cost energy that doesn't put us at a competitive disadvantage relative to other states, or put an even heavier burden on working families.
+- There are exceptional schools in many of our most disadvantaged neighborhoods throughout the Commonwealth. Proving they can get it done for kids, no matter what their circumstances.
+- I'm not a virtue signaler.
+- I'm a proud product of the Massachusetts public schools.
+- I'm a pro-choice candidate and I support marriage equality - my brother is actually gay and married. But I'm a pretty hard-headed guy when it comes to the budget and whether you're getting a bang for your buck.
+- If our elected representatives want to further increase the gas tax, they should have to take a vote each time they do.
+- We must have courage to set partisanship aside and embrace the best ideas and solutions no matter which side of the aisle they come from.
+- A strong Commonwealth is built on a foundation of strong communities. Friendly, welcoming, bustling neighborhoods and downtowns. Great schools. Safe, accessible, attractive places to play. Growing local economies. And a belief that anything is possible.
+- There's value in checks and balances. And there's value in having independence in the governor's office with respect to the legislature.
+- There are creative ways to create pathways to sufficiency for families in need. To do so, we need to work together to implement good ideas.
+- I don't think any Patriots fan would want anything other than for Tom Brady to stay.
+- Former Gov. Weld is that kind of guy who you can't predict what his next move will be.
+- I'm obviously a huge Bill Weld fan.
+- My wife, Lauren, is a remarkably good sport and one of the most adaptable personalities I've ever met.
+- When a mom or dad can stop worrying about where they will lay their head each night they can start climbing back on their feet and out of poverty.
+- I've supported a lot of folks with a lot of points of view. But I have concerns about Mr. Trump's temperament. Some of the things he's said about women, Muslims and religious freedom, I just can't support.
+- We live in a great state filled with creative, community minded, hard-working, decent people. And what they want from us is opportunity, possibility and hope.
+- This is Massachusetts, we're supposed to be one of the tech centers of the world. We have MIT within walking distance of the state house.
+- I'm a big-tent Republican.
+- Learning how to communicate to big audiences, and how to frame a message in a way that works in a sound-bite world, that for me is very challenging.
+- I think our Republican brand is an effective one and I think it fits and works here in Massachusetts.
+- When my brothers and I were young, my mom, a Democrat, and my dad, a Republican, used to lead freewheeling discussions at our dinner table. The only rule was paying attention when others were talking, and no interrupting.
+- I've said a thousand times I want every community to be a place where people believe tomorrow is going to be better than today. I say that not just because I believe it, but because I believe in it.
+- Politics and public life are not for the faint of heart. It has been and always will be a noisy and cantankerous place.
+- I think our agenda is very aspirational.
+- I would argue that the charter schools are really good at building programming and curriculum around the issues and the interests of the kids that they serve.
+- One of the advantages of getting elected governor when you're 58 instead of 38 is you have some mileage on you and part of that means some history and some relationships with people who have spent a fair amount of their career in the public and in the private sector.
+- I think I've got a track record and an experience brief that I'll put up against anybody's.
+- Our Founders worried a lot about the tyranny of the majority. They designed our form of government to provide a loud voice for minority points of view. They hated the idea of unilateral power. And wanted to force advocates and policy makers, through structure and process, to compromise.
+- Competition in politics is just as important as competition in everything else.
+- The biggest difference between the private sector and public sector is in the private sector, there's a sense of urgency because you have customers and you have competitors. Whereas in government, one of your major objectives is to not make any really big mistakes.
+- Our obligation to the people we serve is too important to place politics and partisanship before progress and results.
+- When leaders choose to burn bridges instead of build them, they sacrifice their ability to do their jobs.
+- You just can't get surprised when you get surprised, because weird stuff just comes over the transom all the time, and it's not necessarily anything that you've planned for or anticipated.
+- The most heart-wrenching responsibility I have as Governor is to meet a family at the airport as they stand silently waiting for the military casket of their loved one to come home.
+- If you want to be great, you should be great everywhere, not just here and there.
+- I rode it a lot before I was governor. I rode the commuter rail for a lot of years, I rode the T for a lot of years, and I talk to people all the time who ride both.
+- When public leaders turn public debates into words of war - 'enemies' 'go to hell' 'attack' - they are enabling the edgiest of their followers to take things into their hands, and unfortunately, some of them do.
+- I saw 'The Sting' about 35 times and 'Jeremiah Johnson' and 'Billy Jack' about 50 times.
+- Nobody wants to see someone's life ruined over a small-time lapse in judgment.
+- Mitt Romney said many years ago that he thought Russia was the single biggest geopolitical threat to the United States and their presence in a variety of conflicts of one type or another have borne out much of what Mitt Romney said.
+- The most important thing you need to make one of those incubator/accelerator type projects work is to have some people who understand how to do it and want to do it in a particular place.
+- Across Massachusetts, there are many talented and inspiring educators doing for their students what their predecessors did for me.
+- I'm a big believer in what I call demand-style workforce development. It looks at what kinds of skills are in demand out there in the workplace. It takes that approach to skill-building.
+- Massachusetts is a global community.
+- I don't think it's appropriate for people who are citizens of Massachusetts to be waiting in line when folks who aren't citizens access benefits.
+- There are a number of issues that I disagree vehemently with Mr. Trump on. I question whether he's got the temperament to serve as president.
+- I believe I'm a real champion for women.
+- I've said for a long time that the governor and the mayors should be far more engaged in this conversation at the federal level. I mean, the consequences and the impact of the federal government's broken immigration policy do not land on the backs of the people in Washington. They just don't.
+- I don't like it necessarily when other people speak for me.
+- I oppose indexing gas tax hikes to inflation.
+- We all benefit from the shared experiences of our partners from around the world. Our education, health care, business and public sector institutions rely on these relationships to deliver on their missions every single day.
+- I hope when I am governor and it's all over, I am a governor who underpromised and overdelivered.
+- I'm not going to raise taxes.
+- The Democrats for the most part want to raise taxes, we don't.
+- When I left Harvard Pilgrim, it had been ranked first in the nation by U.S. News and World Report for customer satisfaction for six years in a row.
+- Tom Brady has given a tremendous amount of happiness joy and amazement to people all over New England and to fans outside New England as well.
+- I do see great opportunity to make reforms to our tax code, making it simpler, fairer and removing corporate loopholes.
+- I've said many times that people are policy. And to be truly successful in any big organization you need to put people into jobs where they have relevant experience, relevant subject-matter expertise and the capacity to actually perform.
+- Look, there's no place and no point in public life, in any life, for a lot of the things Scott Lively says and believes.
+- Balance is a good thing - checks and balances are a good thing.
+- Bill Weld and Paul Cellucci are my political role models.
+- Whether it's the grind of the day to day, or a crisis, we all need to work together because that's what great public service is all about.
+- Do I miss Harvard? Not for a second. With a few exceptions... those four years are ones I would rather forget.
+- My mission will be to improve life across Massachusetts, including communities and geographies that are seeing a slower economic recovery. Lower and fairer taxes are an important part of creating jobs and accomplishing that goal.
+- Success is measured by what we accomplish together.
+- There are very few people who work for me who are afraid to tell me what I don't want to hear.
+- I think it's important for people to believe their elections are on the up and up and they aren't being tampered with by anyone, and in this particular instance there's a large body of evidence that at a minimum Russia tried to tamper with our election.
+- I think people are kind of tired of the really amped-up rhetoric that passes for a lot of political dialogue, and they appreciate the fact that that's not the way we are participating in this process.
+- Our communities are strong because local leaders and active citizens listen and learn from the people they serve.
+- We need to root out the waste and abuse that is rampant in our state agencies. When we do that and grow the economy, we will be able to fund the vital programs and services we need.
+- The thing I would say is governments have the tendency to over-promise and under-perform. So the over-promise part ends up sounding very aspirational. But it's the performance part that ultimately people feel every day and read about. And my goal is to make sure, whatever it is we aspire to, that we deliver on.
+- Look I can't get into the minds of people who made decisions to support us or support anybody else. But I can tell you that Scott Lively, a lot of what he says and a lot of what he believes doesn't belong in public discourse.
+- I'm a very big believer that the primary focus for any organization at any point in time should always be smarter, better, faster.
+- Expanding Massachusetts' developing gaming industry to include wagering on professional sports is an opportunity for Massachusetts to invest in local aid while remaining competitive with many other states pursuing similar regulations.
+- Sometimes when something doesn't go the way it should go, everyone blames the concept. Sometimes we screw up the way we implement it.
+- How well we spend education dollars is just as important as how much we spend.

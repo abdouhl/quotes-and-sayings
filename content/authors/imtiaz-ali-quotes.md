@@ -1,0 +1,43 @@
++++
+author = "Imtiaz Ali"
+title = "Imtiaz Ali Quotes"
+quotes_len = "37"
+description = "the best 37 Imtiaz Ali Quotes"
++++
+- I'm a big foodie. Hyderabadi cuisine is amazing, and the kind of mutton dishes available at some restaurants in the Old City is incredible.
+- I think I am a travel junkie, and I have never enjoyed anything else in my life more than travelling and going to places.
+- I'm not educated about cinema or genres.
+- The physical journey in my films is indicative of the internal journey that my characters take.
+- I used to love Kapil Dev and, like any schoolboy, wanted to become a cricketer till I started dreaming of making movies.
+- All the conscious decisions that I have taken in my life have never borne fruit. Not even come close! So, I am just very happy not planning.
+- Through travel, you discover a new aspect to your personality. You discover things which you wouldn't seated in the confines of your home.
+- I feel whatever an actor does on screen is something the actor 'does,' and what the director can do is to tell, talk or instruct. So, all the credit for an actor's performance goes to the actor alone.
+- Dilip Kumar was the only Bollywood hero who could make a girl shiver just by looking at her. If you don't believe it, ask your mom!
+- I myself got married at a very young age. It has always intrigued me because marriage is very synthetic in an otherwise natural world.
+- Especially on unexpected journeys, you have time; you can figure certain deeper things out, like who you are and what you want. That's why I enjoy journeys.
+- I just write characters, and somehow they happen to be a boy and a girl. When the story is put together, and their characters interwoven, they do end up together somehow.
+- The story of 'Highway' is completely about travel. It is about the fascination of travel to an extent that I don't want to even reach the destination and also being away from society gives you a certain view of the society, so that was the intention of the film.
+- 'Love Aaj Kal' is not really a road movie, but it does involve some travel.
+- My father did irrigation jobs, and I would sometimes accompany him, and that gave me a taste of what was going on in the innards of India.
+- I'm not the 'look at me' kind of a person. I do not like showing off in public or written about.
+- I am a keen observer of my own films; I also try to discover myself through the movies I make.
+- I have always tried to make profitable films because people's offices shut down if films fail, and I will do everything to avoid that.
+- Usually, you lose interest in a story beyond a certain point. But with 'Highway,' there was something very subtle, yet something very influential. I intended 'Highway' to be the first film that I ever made. Didn't happen.
+- I enjoy looking beyond the obvious and look at the stories happening all around me - you kind of formulate things in your mind and get excited about them.
+- Coming from a middle class background, travel was always considered a luxury then, even if it meant going to a relative's place or a religious shrine.
+- I try to travel as much as I can... I'm always looking for a reason to.
+- I was complexed and awkward that I was good for nothing and was always lying. I would lie to my school friends that I was a stud in my colony and to my colony friends that I was a stud in the school cricket and football teams, though I was in no team.
+- If a person wants to enjoy attention, he will create situations to get it.
+- I was interested in theatre and media and came to Mumbai to get a job. I imagined that the film industry would be a white building with producers sitting in different rooms, and you could walk in and meet them, and they would interview you and select you.
+- I think 'Rockstar' is more dear to me than any of my other films.
+- I come from a middle class background. I have travelled a lot by trains and have lived in the world. It is a world I cannot get away from; I would not even want to.
+- Sometimes I don't know whether a movie has been shot on film or in digital when I watch it in the theatres.
+- Expenditure can't really guarantee a great experience. I don't even like shopping; I've never bought stuff for myself, and everything I wear are gifts from my brothers, friends and people.
+- I enjoy scenes in films, which do not have the pressure of the story so much... and it flows. I've tried to go in that direction.
+- My job is to tell a story, and the decisions about the casting have to be honest.
+- I want all my films to look distinctly different, like some other directors I admire. But in a way, I can't really take myself completely out of the movies I make.
+- I was called to audition for a play when I was very young, following which I continued to act as well as write and direct. When I moved to Delhi and joined Hindu College, theatre became a very big part of my life.
+- The film industry has been extremely welcoming to me. It's an industry which is biased to what they think is talent. If they think you can bring value to cinema, they'll support you.
+- Anything I wanted to do and achieve has not been influential in my life, but my failures have.
+- When you write a story, it just flows and you don't control it. It's subconscious.
+- I want to direct what I feel is interesting - not what is supposed to be my zone.

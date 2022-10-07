@@ -1,0 +1,24 @@
++++
+author = "Iris Dement"
+title = "Iris Dement Quotes"
+quotes_len = "18"
+description = "the best 18 Iris Dement Quotes"
++++
+- Some guy refuses to fight and we call that the sin, but he's standing up for what he believes in and that seems pretty damned American to me.
+- For a long time I was interested in being a social worker. In a lot of ways I feel that that's all my music is, trying to help people.
+- I've always written about things that cause me to feel something.
+- And I've been walking 'round with memories way too long.
+- Maybe I spent more time dwelling on emotions than some people, and maybe that's why I ended up writing.
+- I honestly don't listen to a lot of music - I spend so much time working at my own music.
+- Making the record was tons of fun, the most fun I've ever had.
+- I don't know what other people are like, I haven't been able to crawl inside anybody else.
+- If something bothers me, it bothers me for a long time until I find a way to work it out. Music provided me with a means of working things out.
+- Writing, overall, has never been what I'd call fun. It's fulfilling. It doesn't come real easy for me.
+- My guitar is really tempermental. I don't give up on it though, I'm close to my guitar!
+- Most of the music you hear on the radio today is developed for making money. It doesn't feel true or honest. You can feel it in the music.
+- This is how it has been since time began: If you want to make something really worthwhile and true, then you have to suffer for it.
+- I was mainly influenced by the Carter Family, Jimmie Rodgers, Loretta Lynn, Merle Haggard, and others like Bob Dylan, Johnny Cash.
+- I never set out to write songs about the world around me... it just kind of came about as a result of paying more attention to things.
+- Turn off the TV and start digging around for information that's not from a corporation trying to make money.
+- I don't describe myself as a Christian or religious, but I like to think that how I live my life is honest.
+- I've always been aware of having feelings that were pretty intense at times. I imagine most people have had that, or they wouldn't be human.

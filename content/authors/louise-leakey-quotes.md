@@ -1,0 +1,17 @@
++++
+author = "Louise Leakey"
+title = "Louise Leakey Quotes"
+quotes_len = "11"
+description = "the best 11 Louise Leakey Quotes"
++++
+- If you want to become a fossil, you actually need to die somewhere where your bones will be rapidly buried. You then hope that the earth moves in such a way as to bring the bones back up to the surface. And then you hope that one of us lot will walk around and find small pieces of you.
+- It's important to remember that we evolved. Now, I know that's a dirty word for some people, but we evolved from common ancestors with the gorillas, the chimpanzee and also the bonobos. We have a common past, and we have a common future.
+- If you want to become a fossil, you need to die somewhere where your bones will be rapidly buried. You then hope that the Earth moves in such a way as to bring the bones back up to the surface.
+- My father so appropriately put it that we are certainly the only animal that makes conscious choices that are bad for our survival as a species.
+- I think when you work on fossils, and you realize that a species is there, and it's abundant for quite a long period of time, and then at some point it's no longer there - and so, when you look at that bigger picture, yes, you realize that either you change and adapt, or, as a species, you go extinct.
+- With the discovery of Zinjanthropus at Olduvai Gorge in 1959, my grandmother Mary Leakey pioneered the research in East Africa with my grandfather Louis. Many more spectacular fossil finds have since been made, both in Africa and elsewhere, by many researchers driven to understand our past.
+- Every species becomes extinct; at some point, we will go extinct. The question is, as Homo sapiens, are we going to be able to adapt to the change that we're actually part of? We're causing such dramatic changes to the planet, so yes, you do stop and think, 'I wonder where we're headed.'
+- In the rush of today's world, and with more than half of us now living in cities, the majority of people are less and less connected with the spectacle of nature.
+- What is it that really makes us, us? It's our collective intelligence. It's our ability to write things down, our language and our consciousness.
+- What the fossil record does do is to force us to contemplate our place on the planet. We are but one species of several hominids that inhabited Planet Earth, and like our distant cousins who went extinct fairly recently, our time on Planet Earth is also finite.
+- When we find a fossil, we mark it. Today, we've got great technology: we have GPS. We mark it with a GPS fix, and we also take a digital photograph of the specimen, so we could essentially put it back on the surface, exactly where we found it.

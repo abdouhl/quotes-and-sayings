@@ -1,0 +1,106 @@
++++
+author = "Liz Kendall"
+title = "Liz Kendall Quotes"
+quotes_len = "100"
+description = "the best 100 Liz Kendall Quotes"
++++
+- I don't want to protest. I want to get into power.
+- I'm happiest at home.
+- I hope I've got people's respect.
+- I like listening to Ken Clarke. He has had guts in taking his own party on on Europe - and I am a massive pro-European - and I think he stuck with what he believed in through thick and thin even when many have opposed him.
+- Effective stewardship of the public finances has to be at the heart of everything we do.
+- Can you imagine if it was like that: everything you're doing as you grow up you're wondering, 'What is that going to mean if I ever end up being a politician?' You wouldn't have anybody except ruthlessly ambitious automatons going into politics.
+- I speak to more people across different walks of life, I would bet than most people.
+- I was a huge Kinnock fan. He was a man of ideas.
+- I don't want anyone to be put off going into politics - particularly women - if they feel that they're going to get personal questions.
+- We can't turn back and be the unelectable party of protest.
+- Doing stand-up in front of arenas or clubs is something else; it's not a talent I have.
+- Securing dignity for everyone in old age means transforming support for families who look after their elderly and disabled loved ones, and fully joining up the NHS and social care - not setting local services in aspic.
+- People's taxes spent on servicing our national debt, instead of funding public services. This isn't just a waste - it's also a risk.
+- Labour was formed to be the voice of community organisers, civic leaders and workplace activists, whose fight against poverty and injustice involved organising for their values, their principles and their loved ones.
+- We must stop being a party that allows briefings against colleagues.
+- Those who pursue the ideology of Isil are not children - they are responsible for their own actions, driven by their own ideology.
+- I don't want anyone being put off going into politics because they fear their personal life, family and relatives will be spread all over the media.
+- I'm proud to be feminist.
+- I love an Omega. I think they're great watches.
+- Jeremy Corbyn and his supporters do not have a monopoly on principle.
+- You do your best, you work hard for yourself, for your family and others.
+- There's nothing progressive about spending more on servicing your debt than on educating your children.
+- Too often people are being left without the tools they need to get themselves back into work.
+- Oh god, I'm a rubbish cook.
+- People are forged in the fire of their first political experience.
+- Instead of promoting inherited wealth for the few, I want to tackle inherited disadvantage for the many.
+- I want every Labour Council to lead a revolution in opening horizons for pupils and making better educational chances everyone's business.
+- Let me just say this - I may not have children myself, but I am part of the best family in the world - my mum, my dad, my brothers and my nieces.
+- When enough people stand together they can change the world.
+- A Labour Party that stops talking about social mobility has forgotten what it is for.
+- In Finland they are brilliant at ensuring no young person falls behind. From the day a child is born they are visited by health workers who assess their well-being and developmental. The health workers work with psychologists and speech therapists and aim to identify any problems at a very early stage.
+- There are moments in life we all remember, and I will never forget where I was on 7 July 2005 when the awful news came through that a series of bombs had gone off on the London Underground and on a London bus.
+- Services should revolve around those who use them and be fit for the future, not stuck in the past.
+- Some people think we can have everything we want without making any difficult decisions. They have forgotten what it takes to win. It is fantasy politics.
+- The hospital of the future will start in people's homes.
+- When Labour loses we do one of three things. We decide we didn't win because we weren't leftwing enough: fantasy. We decide we can avoid the really tough decisions because they are too uncomfortable: a fudge. Or we decide that winning is too important.
+- There will remain a role for the private and voluntary sectors where they can add extra capacity to the NHS or challenges to the system. I believe what matters is what works. That's what I've always believed in and I continue to believe in.
+- If people do not think we are serious on the economy or about supporting great business, withdrawing from the world, not being strong on our international alliances... I think that could further undermine support for us.
+- Our values are precious: the freedom to elect or kick out a government; the freedom to worship in different places; and the freedom that allows me as a woman to wear what I want, to choose any career that I want, and to love whom I want. These values are vital. They are part of us. And they are worth defending with everything we have.
+- I always wanted to be a dancer. I danced for maybe 16 years. So I would have loved to have been a dancer in the past.
+- Oh, I could never leave the Labour party. I could no longer leave the Labour party than leave my own family.
+- I don't think it's principled to give up on electoral victory to make ourselves feel good.
+- Making sure there are good jobs that pay a decent wage in every part of the country means backing hi-tech companies, modern manufacturing, Britain's scientists and creative industries - not spending billions of pounds reopening coal mines or renationalising huge swaths of the economy.
+- I think many parents who are not on tax credits have to make difficult decisions about how many kids they can have and how many kids they can afford.
+- I'm not a Blairite candidate, I'm my own candidate.
+- When people say, 'You don't have a family' it makes my blood boil. I thought, 'Yes I do, I have my dad, my mum, my brothers and nieces.'
+- I want to get power out of Whitehall and down to our communities.
+- We are a party that believes in dignity and respect for one another. We can't say that is what we want in the country if we don't behave like that ourselves.
+- There is no point saying you believe in economic responsbility and being careful with taxpayers money if public services are a reform-free zone.
+- When it comes to public services, I am firmly on the side of the public.
+- I am a strong champion of personal health and social care budgets.
+- The NHS needs to change fundamentally. It's a fragmented service when it should be joined-up. It's a last-minute crisis intervention service when it should be about prevention. It's a sickness service when it should have promoting health as its core. Crucially, it doesn't do enough to help people to help themselves.
+- We need welfare reform to get people back to work and provide proper support for those that can't.
+- My parents are like many across Britain. Neither on the breadline, nor loaded, they were determined to give their daughter all that any of us can ask from our parents: love, security, ambition and hope.
+- Europe itself needs to change fundamentally and focus on jobs and growth.
+- I want to stand up for Britain's national interests.
+- Being leader is a tough gig.
+- David Cameron should be focusing on what is in Britain's national interest and our place in the world, not on internal party politics.
+- I hate weedy thin delicate women's watches, gets on my nerves, I like big men's watches.
+- I love 'Flight of the Conchords' and 'the Mighty Boosh.'
+- It's very precious to me and really important I have that space that's personal and just to me.
+- Voters in my constituency do not feel people who are not working should get more than those in work.
+- You fall in love with your constituency, you really do.
+- I wish I'd known what type of learner I was as a child - I could have done better.
+- I am not going to be the sort of politician who does all that stuff about their private life.
+- My goal is to get power out of Westminster and into the hands of the people it affects. That means sharing power with those who have none and using national and local government to help people to help themselves and one another.
+- Can you imagine the Mail on Sunday asking the weight of the prime minister, George Osborne or any other leading politician? I just think it's unbelievable that in the 21st century women still get asked such very, very different questions from men.
+- I don't want to win power for myself. I want to win it to give it away.
+- I will be fighting for what I believe in till the very end.
+- I have got a vintage Omega 1949 watch I love... It was a present that I got for my birthday.
+- Creating a more equal society means tackling the inequalities that emerge before children even start school.
+- I've seen phenomenal work in Leicester where people with chronic obstructive pulmonary disease use telecare to measure their own oxygen levels, and if they need to change their meds they get a phonecall from a nurse who has seen the results of their readings.
+- I hated what Margaret Thatcher had done. How she'd taken jobs. I hated her divide and rule politics.
+- Unity is vital for any party to win.
+- Labour grew out of popular movements of mutualism and self-help.
+- I can't pretend to being particularly happy about Jeremy Corbyn being leader of the Labour party.
+- Nobody wants to think about what they'll be like when they're incredibly old.
+- Friendly societies, educational associations and trade unions gave working people the power to shape their own lives.
+- We definitely need more women in politics. We don't want women in their late teens or early twenties who are interested in politics to think they would never go into it.
+- The answers we need in 2020 are not going to be same as in 2015 or 2010, let alone 1997.
+- As you get older, of course you want to be settled, but life changes and it doesn't work out. Who knows what will happen?
+- I well remember the pride that my parents felt when my brother and I went up to Cambridge, but I also know many friends that I grew up with - brilliant, funny, acutely intelligent girls - who never fulfilled their potential.
+- I am a person who loves and wants to be loved.
+- We have learned - or at least we should have - that seeing Islamist extremism purely as a reaction to what we do is fundamentally mistaken. Indeed that view - Western centric as it is - belittles the threat we face. It implies we can somehow opt out of this fight, that if we hide maybe they will leave us alone.
+- We urgently need an open and honest debate with the public about what help and support they will be entitled to when they are older, and what it is reasonable for them to contribute in return.
+- Life doesn't have to be the way it is. We can change it. That's why I'm in politics.
+- Leadership means saying what you believe.
+- The Labour party is the greatest champion of equality and opportunity this country has even known.
+- A jobs-first Brexit deal means remaining in the single market and customs union.
+- Europe has massive challenges in completing the single market, the free movement of labour or benefits.
+- For too long, politics has been about politicians winning power to take decisions about everyone else.
+- I would radically redesign early years education to learn from the best bits of the Finnish system.
+- I believe you need to have a serious and credible shadow cabinet with people who are prepared to take on the very difficult issues we face as a party, as well as inspiring our supporters with a clear vision for the future.
+- We have to be as passionate about wealth creation, skills, life chances and world class education as we are about wealth distribution.
+- You can't sort out crime unless locals have a good relationship with the police. You can't tackle health challenges unless people have an active role in their own health.
+- Look I'm in favour of free movement of labour but not free movement of benefits; people who come here should come to work and that is extremely important that that is dealt with.
+- Making sure children from all backgrounds learn about opportunities that are usually available to a few, is an inspiring vision of what our schools can be. That means ensuring there is strong leadership and great teachers, particularly in the most deprived areas.
+- As a shadow minister I've been working with the Treasury team for years and they've been clear we couldn't make unfunded commitments.
+- Parties always win when they set out a positive and optimistic and confident vision for the future, when they have a broad appeal.
+- Winning is not selling your soul. Winning is not betrayal. Winning is the means of applying your principles.

@@ -1,0 +1,37 @@
++++
+author = "Anita Hill"
+title = "Anita Hill Quotes"
+quotes_len = "31"
+description = "the best 31 Anita Hill Quotes"
++++
+- Testifying has helped me understand that one individual's behavior and actions make a difference. That my actions are important to people other than myself.
+- I resent the idea that people would blame the messenger for the message, rather than looking at the content of the message itself.
+- What we really need to be understanding is that all of these things matter and they all stem from the fact that certain people live with power and authority and they want to maintain it.
+- The experience of testifying and the aftermath have changed my life.
+- But the issue of sexual harassment is not the end of it. There are other issues - political issues, gender issues - that people need to be educated about.
+- When I think of what has happened in a larger sense, beyond myself, then I would not change anything.
+- Because I was extremely uncomfortable talking about sex with him at all and particularly in such a graphic way, I told him that I did not want to talk about these subjects.
+- We have a history of gender and racial bias on our court that continues to undermine the system. Excluding individuals based on race is antagonistic to the pursuit of justice.
+- I did what my conscience told me to do, and you can't fail if you do that.
+- Telling the world is the most difficult experience of my life, but it is very close to having to live through the experience that occasion this meeting.
+- During this period at the Department of Education, my working relationship with Judge Thomas was positive.
+- For my undergraduate work, I went to Oklahoma State University and graduated from there in 1977.
+- What I wanted was for everyone listening to understand that these things mattered - not necessarily for me, but in this particular forum they mattered in terms of whether of not we were getting a person who should sit on the Supreme Court.
+- My parents are older, and they lead a somewhat sheltered life. It was difficult to talk with them about things that were embarrassing to me, and that I had never spoken to them about.
+- One of the things I was taught in law school is that I'd never be able to think the same again - that being a lawyer is something that's part of who I am as an individual now.
+- I see myself as an educator.
+- The FBI has had a history of sex discrimination complaints brought against it, as well as race discrimination.
+- I became the messenger who had to be killed.
+- I have no personal vendetta against Clarence Thomas. I seek only to provide the committee with information which it may regard as relevant.
+- I was aware, however, that telling at any point in my career could adversely affect my future career.
+- I am really proud to be a part in whatever way of women becoming active in the political scene. I think it was the first time that people came to terms with the reality of what it meant to have a Senate made up of 98 men and two women.
+- It would have been more comfortable to remain silent.
+- But I think it would be irresponsible for me not to say what I really believe in my heart to be true - that there are some serious inequities that we face as women and that we can work to address these inequities.
+- Well, of course it was a very trying time for me, and fortunately I had a lot of people who were supportive. A lot of people who were writing and calling and saying they were praying for me. Some people sent me Scripture, and that helped.
+- In July of 1983, I left Washington, DC area and have had minimal contact with Judge Clarence Thomas since.
+- I think, though, as African-American women, we are always trained to value our community even at the expense of ourselves, and so we attempt to protect the African-American community.
+- The real problem is that the way that power is given out in our society pits us against each other.
+- I'm not sure I can say there is a clean line between me as an individual and me as a lawyer.
+- I thought that by saying no and explaining my reasons my employer would abandon his social suggestions. However, to my regret, in the following few weeks, he continued to ask me out on several occasions.
+- Certainly my life will not ever be as private and discreet, and perhaps I should even use the word insulated, as it was before.
+- If you think about the way the hearings were structured, the hearings were really about Thomas' race and my gender.

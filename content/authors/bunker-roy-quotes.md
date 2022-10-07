@@ -1,0 +1,17 @@
++++
+author = "Bunker Roy"
+title = "Bunker Roy Quotes"
+quotes_len = "11"
+description = "the best 11 Bunker Roy Quotes"
++++
+- School is something that you learn - reading and writing. Education is what you learn from the family, from the environment, from the community.
+- Jeff Sachs has the Millennium Villages. He spends $2.5 million in one village. It's an absolutely ridiculous model, because I've said that if you gave me $2.5 million, I can train 100 grandmothers, solar electrify 100 villages - 10,000 houses - and save you 100,000 litres of kerosene.
+- In India, I'm always 'Aruna Roy's husband.'
+- You have to be a cop-out or a wash-out or a dropout to come to our college. You have to work with your hands. You have to have a dignity of labor. You have to show that you have a skill that you can offer to the community and provide a service to the community. So we started the Barefoot College, and we redefined professionalism.
+- We have shown that solar-electrified villages can be technically and financially self-sufficient.
+- Who is a professional? A professional is someone who has a combination of competence, confidence and belief. A water diviner is a professional. A traditional midwife is a professional. A traditional bone setter is a professional. These are professionals all over the world. You find them in any inaccessible village around the world.
+- You come for the money, you don't come to Barefoot College. You come for the work and the challenge, you'll come to the Barefoot College. That is where we want you to try crazy ideas. Whatever idea you have, come and try it. It doesn't matter if you fail. Battered, bruised, you start again.
+- In 1965, I went to what was called the worst Bihar famine in India, and I saw starvation, death, people dying of hunger, for the first time. It changed my life. I came back home, told my mother, 'I'd like to live and work in a village.' Mother went into a coma.
+- Wherever I've been, and I've been to over 20, maybe 25, countries in Africa, I've noticed how their backbone is broken. They don't have any confidence in themselves. They always think a white man will solve their problems from outside for them.
+- I went to a very elitist, snobbish, expensive education in India, and it almost killed me. I was all set to be a diplomat, teacher, doctor - all laid out.
+- The Barefoot College is supposed to be a sparking off process. People are adopting it and owning it, which is really the story behind the college.

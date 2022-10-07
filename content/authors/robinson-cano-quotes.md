@@ -1,0 +1,37 @@
++++
+author = "Robinson Cano"
+title = "Robinson Cano Quotes"
+quotes_len = "31"
+description = "the best 31 Robinson Cano Quotes"
++++
+- When you play this game, you're not just playing for yourself and your fans. You also play for a name you have to represent. You have a family that's hoping you do good every single day.
+- Sometimes I play without any strength or energy, but you have to play, give the best of yourself.
+- One of the best things is to be able to go to the playoffs and win a championship. After you taste the first one, you want to go back every year.
+- I would say for a team to win, you don't need big names. You just need the right pieces.
+- I play this game to win.
+- I'm always trying to be a better player every year and also improve myself.
+- We all make mistakes. There is always someone out there making a mistake.
+- I feel thankful for the Seattle organization and the city. The fans embraced me right away, and I had a great time there.
+- I spend more time in New York than the Dominican. I play here, I live here, so why not become a citizen?
+- It's always good to be back in New York, where everything started in my career.
+- I don't want to be like those guys that, two or three years into their contract, they do really good, and then they don't care.
+- I'm the kind of guy that says nothing is impossible when you work hard.
+- I have so much passion for the game.
+- Playing in New York is special to me because you are surrounded by so many communities and a strong Latin community, including the Washington Heights neighborhood. I come to Washington Heights for real Dominican food that reminds me of my hometown, and it's a great place to visit.
+- Although playing baseball is my biggest passion, the help my foundation has been able to provide people over the years makes me very proud.
+- I always loved playing in New York, where the Yankees fans expect a winning team every year.
+- A lot of people think I just came to this game to make the money and go home. I love this game. I play because I love it.
+- We all should be proud of the United States. For those of us that came from the Dominican, we've been able to come here, work, make money and become somebody in our lives. We've gotten a huge opportunity from the U.S.
+- The city of Seattle has become my second home for my family and I.
+- My grandma used to pitch to me. Hit rocks with a broomstick.
+- When you're gonna get married, it's all about your heart.
+- I sit on the bench, and I watch even my teammates swing, so you can learn from them when they make a bad swing or good swing. I like to watch from the rookie to the veteran player, and that way you can see the difference and learn something from them.
+- I don't think I'm a home run hitter. Most of my home runs are line drives. If I hit it, thanks God. But it's not the kind of thing that I think about. I just go out there and try to have a better season than I had before. Home runs are not in my mind.
+- I'm made in the Dominican. I'm from baseball country.
+- You're only going to get better when you work hard and you focus on what you're doing.
+- I have gone above and beyond to care for my child, including an agreed upon monthly stipend, a house, a car, insurance, school and other essentials for the baby and his mother as well as many other things, including toys and clothing.
+- For me, baseball is everything.
+- When things go well, people like everything you do. When things don't go well, people look for 1,001 explanations, and they don't understand you're a human being.
+- I love giving back to the community.
+- The first thing I learned from Jeter is to be the same no matter if you are doing good or bad. It is kind of like, play hard every day, and don't take anything for granted.
+- I want that second World Series ring. I want to win again.

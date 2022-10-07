@@ -1,0 +1,21 @@
++++
+author = "Creed Bratton"
+title = "Creed Bratton Quotes"
+quotes_len = "15"
+description = "the best 15 Creed Bratton Quotes"
++++
+- Playing with my grandfather, grandmother and my parents, I came to music pretty naturally.
+- In my early days, I was about 145 pounds. I was really a starving artist; the poster child for starving artists.
+- I do love to walk around in New York because people will notice me, smile, but they never bother anyone. New Yorkers are very cool. I love New York.
+- I was with a folk trio back in '63 and '64, and we traveled all across North Africa, Israel, and Europe.
+- I was a drama major through college.
+- I wouldn't really say I'm a jazz guy, which I'm not.
+- I'm a survivalist and a survivor.
+- There's not that many people from the sixties who have progressed as writers and are continuing on. They're out there. But I'm one of them who's just continued on, following his own little inner madness.
+- I love Westerns and I remember as a kid climbing up on the couch and make it into a saddle and shoot guns and fall off. I would lay there after my death and my mom would tell me to eat lunch and I'd say, 'I'm still dead, Mom!' I was Method, even then.
+- I'm a happy guy.
+- Apparently, I don't want to take myself too seriously.
+- I liked back in the sixties where you'd turn on the radio and go 'Oh that's Hendrix, that's Creedence Clearwater, that's The Doors, there's The Grass Roots, The Monkees, there's Big Brother.' You could just instantly hear it and tell. But in the eighties and nineties there's no way you could do that.
+- I love music so much; I've always played.
+- I keep busy. That was my nickname in college, 'Iron to the Fire.' I like to keep several things going at once.
+- I don't sit down to write a song, per se.

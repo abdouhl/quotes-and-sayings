@@ -1,0 +1,104 @@
++++
+author = "Leandra Medine"
+title = "Leandra Medine Quotes"
+quotes_len = "98"
+description = "the best 98 Leandra Medine Quotes"
++++
+- When you have a voice, you also have a moral obligation to use that voice for good.
+- I buy all my perfumes duty free - I think people are fools not to.
+- Could Yosef be considered a Man Repeller even though he's a man? I'd love to get my hands on that techni-colored dream coat! Feels very Matthew Williamson to me.
+- Especially with Instagram, I feel reluctant to make all the photos beautiful because I don't necessarily want to send this message that life is perfect and your avocado toast is always going to be beautifully lit. I want readers to feel like the Man Repeller page is real and kind of dirty. Messy.
+- I think, fundamentally, Man Repeller is a voice for women to connect with; they can come and try it on for size and be a part of it, and if it works for them, they take it with them.
+- I understand that there are thick, dark circles under my eyes. I have grown to appreciate them. I have noticed that my nose grows a little hookier on a near-monthly basis. That's fine. I know there are wrinkles ready to stake their claim as full time residents on my forehead any moment now. My dad has those, too, and I find that endearing.
+- If I were going to prom again, I would wear a huge skirt and plain cotton tank. A big, poofy, flotation-device-sized skirt. I wish I had done that.
+- I wore some stupid brocade dress to my prom.
+- As long as you are promoting something that you really believe in - yes, it's incredible to see that designer earn the esteem they deserve - but there's something to be said about the fact that if you're convicted about an opinion, and you really believe something's great, you're not going to credit yourself for their success.
+- Initially what defined me as a 'man repeller' was my conscious effort to wear clothing that was attractive in my opinion but not necessarily in a man's opinion.
+- I don't hate what I see when I look in the mirror. Even if legions of others don't agree. I have accepted the reflection that reliably bounces back at me for its perks and its flaws.
+- Next time you look in the mirror, close your eyes and ask yourself when you feel like the best version of you. When you open them, act on that.
+- That's what I always wanted Man Repeller to do - to change the way people actually think. Showing young girls that there are no rules.
+- I always wanted to make sure that I was honest to myself and that people wanted to hear an opinion that was authentic... I wanted Man Repeller to be a voice for women who felt like they didn't have a voice or for women who didn't know how to express their voice.
+- I knew I wanted to be a fashion writer but didn't want to contribute to the over-saturated market unless I could contribute in a meaningful way.
+- There's charm, in some capacity, to every trend. I just think practicality should die. Crocs - blech.
+- I never thought I'd wear Birkenstocks, but here I am! Having said that, I'm pretty sure I'd never wear Crocs.
+- I'm probably most inspired by good street style that features items I already own; it's always great to see how another person wears something you have, which sort of reinvents it for you.
+- The holidays are only overwhelming because it's crunch time. It's like everyone trying to get last-minute things in before the New Year starts.
+- Man Repeller is intended to chronicle all the fashion trends that women love and men hate. I started it because I am woman with a deep appreciation for harem pants. And sometimes blaming clothing on a sad love life is easier than blaming oneself!
+- No matter the candidate, every detail in a campaign is carefully and strategically framed for our consumption. The devil is in them.
+- The number one thing I would say to someone who wants to start a business is if you really can't sleep at night and smack the passion out of yourself, then go for it, but if you can live a happy life working for someone else, do that.
+- You have to keep a feeling of goodness in your exteriors.
+- Running a business is incredibly hard, especially as a creative person, because you're extricated from the creative very quickly, and that is really hard. Obviously, I have experienced that first hand.
+- I'm not dressing with men in mind at all. I'm just going to wear what I want to wear. It makes things easier, too.
+- I have a degree in journalism, which is something that I make very clear very frequently just so people are aware of it. I went to school to write... Editorial integrity is very important to me.
+- I realized that if I were a 23-year-old girl getting married, and I wasn't struggling with it, that would likely mean that something was either massively wrong with me or that my brain is made up of delicately wrapped almonds that serve perfectly as party favors.
+- I'm really happy that people understand that man-repelling is a good thing. I was afraid people would think I was mocking fashion, and it's like, 'No, I swear, I'm wearing feathered sleeves as I write this!'
+- Women totally dress for women. If we were dressed for men, we'd be prancing around in tight, tight, tight bodycon skirts and tops all day or really simple jeans and T-shirts.
+- I am comfortable with how I look.
+- I have always had a fleeting relationship with clothing.
+- I never borrowed money from Mom. I lived at home, but my parents never helped me. I worked hard and moved out. I treated my blog like a business; hard work is important.
+- I always grew up with the idea that in order to be a successful writer, I should have a book published.
+- I understand that it's the thought that counts, but receiving money is so great, so if you're in a position to give an employee a bonus, just do that.
+- You're not stupid because you're interested in fashion, period.
+- I really love the category on the site called Brain Massage.
+- I can't imagine catering to an audience that doesn't also interest me.
+- I wanted to be my own editor, and by 'editor,' I mean unedited-or.
+- I started my blog when I was a senior in college, and I knew that all the people in my program were probably going to be applying for very similar jobs, so I needed something to separate my resume.
+- My goal is never to push anyone to do anything other than think.
+- I have a pretty decent understanding of which posts will perform better than others. Specifically on Instagram, when it's a style picture, those ones always get way more likes.
+- I don't say in the morning, 'Look, Leandra, here are a bunch of women. Put that bronzer down.' It's more that I'm busy and whatever helps you get out the door and go to sleep easier.
+- I don't take such good care of my skin; my mom kills me about it... I sit in the sun so much. I love a tan.
+- I'm not comfortable leaving the apartment if the bed isn't made or a chair isn't tucked into the table.
+- I got a C in art when I was in 11th grade. That it is even possible to come out of a high school art class with a C is wondrous, especially considering the creative license we were encouraged to use to, for lack of a better axiom, color outside the lines.
+- My blog is not about repelling men, it's about good fashion.
+- My eyes will never be blue; my bone structure will never allow for you to mistake me for a Scandinavian model.
+- I gained this new sense of control over my love life because when I called myself a 'man repeller,' you assumed that being single is my choice. I'm man-repelling because that's how I want to dress. I'm not single because no men like me. I'm single because I choose fashion over a relationship.
+- The men who really get repelled by what you're wearing are a little shallow, and you probably don't want to date them anyway.
+- Part of what dressing for yourself means requires your understanding that the scrutiny of others is frankly irrelevant.
+- I want Man Repeller to feel like you're waking up in the morning, you're calling your girlfriend, you don't know what she is going to say, you don't really care what she has to say, but you know you're going to like it, and you're going to laugh and hang up the phone and feel ready to take on the day with all this new knowledge.
+- I am loving visible bras with shirts, high-waisted pants and oversize blazers.
+- What a woman does or does not do to her face is personal. And as with most other things, makeup or a lack thereof can serve as either a prison or a fortress commanded by the mind: you can become a slave to it, or it can set you free.
+- Without getting too spiritual, God has done so much for me; the least I can do is drink Kiddush wine on a Friday night.
+- Nothing feels better than constructing a beautiful sentence.
+- Nothing's worse than oily skin.
+- I feel like alternative piercings in the ear is this untapped way to festoon yourself. Not many people understand this, but it hurts so good. It's like getting dental work done. It hurts in the right way.
+- Nighttime dressing is not very different from daytime dressing for me. I feel like night clothes don't get a chance to live the way day clothes do, so I prefer to think of night clothes as day clothes.
+- I think Man Repeller is more about self-confidence than it is about a woman's relationship with a man.
+- Fashion is used as a tool to convey a point about who we are or potentially want to be. Whether or not a civilian curates his or her own aesthetic is up that person, but it is an integral part of one's public image.
+- Making the decision to embrace or to shun makeup is one that should be contingent on nothing more, nothing less, than doing what makes you feel like the best version of yourself.
+- Most people assume that my style is so outlandish and out there, but the reality is I like very classic pieces just rendered unusually.
+- As someone who has been known for the way they've been dressed, it's almost OK for me to wear New Balances and sweat pants. I'm not necessarily moulding trends, but it's OK if I'm not adhering to them.
+- When I'm wearing red lipstick, I'll never do anything with my eyes. And it's so easy - you just put on red lipstick, and your whole face just seems done.
+- When you're writing a blog post, you can take solace in knowing that you will immediately know how people will respond to it, and if the criticism is bad, then that's fine because you can work on that and fix it, and if it's good, then that's great because you know what to do in the future. It gets pushed down so quickly.
+- People always ask me how I muster the strength to be so open about things, and I explain to them that I took the Myers-Briggs test, like, four times, and every single time, I ranked an 87 percent extrovert, so it would probably take more strength for me to shut up.
+- Most people don't know this, but I never wanted Man Repeller to be about me. It was titled that to identify a genre of women.
+- I think the thing about New York City real estate is that you kind of just take what you can get when you're renting.
+- I have never done anything to my brows, though sometimes I tweeze the intersection of the left and right brow, which is either a really good thing or a really bad thing.
+- I'm Jewish, so I don't really do Christmas gifts, and Hanukkah is not as big a deal as gifts are concerned, so I never actually give gifts.
+- I have always, always loved words.
+- You don't usually find an island in a New York kitchen.
+- Our sartorial choices aren't that different from our psyches.
+- Sloane Crosley and David Sedaris are two of my favorite writers; they're the kind of writers who make you feel like, 'I can do this. I want to do this.'
+- One thing I didn't think upon getting married: that my style would - or could - change.
+- By the time I graduated college, I was sick of what was out there. I wanted to bring something new to the Internet.
+- I don't necessarily see my not wearing makeup as a social comment or that it's because I work in a female-dominated industry.
+- When push comes to shove, no one really cares what you're wearing except you.
+- I haven't worn make-up since my wedding, and my husband loves me a lot.
+- Your doubts are generated by fear, and fear is a series of distorted thoughts.
+- What good is a wall without framed art? It is like the equivalent of the accessories that you choose to wear to decorate a black dress - precisely the stuff that makes the wall/dress you.
+- I didn't actually even really know my grandmother; I must have been 3 or 4 when she died.
+- I do know that I would never - though you should never say never - work with a decorator, because I don't want to see the touch of someone else in my own space.
+- Fashion Week is a great opportunity to make unimportant people feel like they own the world.
+- I think men like things tight and simple.
+- I have such a simple process - it takes me, like, ten minutes to get ready.
+- I think that when I started Man Repeller, the Internet was still hungry for authentic content from girls that weren't actresses or supermodels and were just relatable girls who had opinions and outfit ideas, and they weren't always good, but at least they were original.
+- Don't get me wrong - I'm not against makeup. If I could manage looking like 'me' in a way that also read as tastefully, invisibly airbrushed, I'd sign up for that faster than you could choose a filter to do it for me.
+- It seems inevitable, if unfair, that when a woman is vying for a prominent position in office, her outfit choices will be analyzed to a degree considerably higher than those of her male counterpart by simple existence of gender stereotypes.
+- I love manicures - I'm really into colorful nails.
+- If I have to give up good fashion for a relationship, I don't want a relationship.
+- Being a man repeller becomes a process of elimination. If a guy is only really into your outfit and won't date you because of what you're wearing, they are too driven by the female exterior and don't care about your intellect.
+- People often ask me if my parents helped me. My mother did lend me $10 to register the domain name.
+- Sometimes I wear red lipstick - it makes me feel sophisticated.
+- I do not wear a lot of makeup. On social media, this seems to work both in my favor and against me.
+- When I wake up, I put on what I'm in the mood to wear.
+- I'm someone very comfortable airing out the stories of my own life. Some people call it narcissism, but for me, the intention is that it will positively affect other people.
+- I didn't launch the website with any goals in mind, to be honest. I didn't know that it would have been anything other than a digital portfolio once I graduated college.

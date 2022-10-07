@@ -1,0 +1,39 @@
++++
+author = "Bobby Orr"
+title = "Bobby Orr Quotes"
+quotes_len = "33"
+description = "the best 33 Bobby Orr Quotes"
++++
+- Once you turn pro and you're making the big money and kids are buying your sneakers and your skates and your gloves and so on, you are a member of that role model club.
+- The kids wait for it to be organized. They want to go play all of these tournaments, for a little practice time. I learned my skills by dropping the puck just with the kids. I think that's missing today.
+- If you're going to help somebody, sneak in, sneak out, do what you can. I just sneak along and do my thing and meet wonderful people, some people I've never met, new friends.
+- I'm a terrible dancer! Oh, I'm an awful dancer!
+- Sidney Crosby, our greatest player, I don't want to see Sidney Crosby in the penalty box. I don't want to see Sidney Crosby hurt. I want to see Sidney Crosby play.
+- I was an offensive defenseman. I was up the ice as much as I was back.
+- When you're young, you don't realize the sacrifices that people are making for you.
+- The fat lady hasn't sung yet. We'll wait until we get a look at what is in the motion passed on third reading.
+- I don't spend a lot of time here in New York. I didn't realize there were so many Bruins fans in New York.
+- I didn't want to do a book just to do a book. I wanted to do a book that, if you should read it, you might take one thing from it. Until that was clear in my mind, I wasn't going to do one.
+- You hear all the time about European players playing the game. These players that come over at 17, 18 and 19, they just don't all of a sudden become skilled. From the time they were little fellas, they learned the fundamentals of the game. Let them create.
+- You hear peewee coaches teaching the 'trap'. What the heck are we doing teaching the 'trap'? Let the kids go, let them have fun; that's how you improve.
+- Staying out of the penalty box will really help.
+- The biggest thing we get out of it is seeing the kids smile. And hopefully we will also see that the lessons we're teaching - not only the fundamentals of hockey, but also the life values - are sinking in.
+- Developing better people should be the number one goal for any coach when dealing with kids. In trying to develop better people, we are going to develop more and better pros.
+- The love and passion I had for the game was my key. I never had that taken out of me by my parents or a silly coach.
+- I never looked at hockey as work. Now that I'd finished playing, I had to go to work.
+- If a player is trying to intimidate a skilled player on your team, what do we want? We want our skilled players playing, so we shouldn't be doing that.
+- I've been a very lucky guy. I played on championship teams. I played for Canada. I've won some awards and I'm very proud of those accomplishments. But I don't think there's anything greater than to come home and to be recognized at home. This is the pinnacle.
+- My Dad was my biggest supporter. He never put pressure on me.
+- We're professional athletes. People know who we are, and if there's some way we can help with a friend or someone in need, that's a responsibility we have. I really strongly believe that.
+- There are no environments where you're only going to win, because life just isn't like that.
+- If you talk to most athletes, the place you're most comfortable is your playing field. I'm not so comfortable at a podium or talking about events.
+- Hockey is a tough game.
+- Everyone should have the same opportunity, and in many areas that's not the case because programs are built around the elite.
+- I couldn't wait to get on the ice. I couldn't wait to get to practice. As a kid, I couldn't wait to shoot pucks or play in parking lots, or play on the river or play on the bay.
+- Forget about style; worry about results.
+- Growing up, if I hadn't had sports, I don't know where I'd be. God only knows what street corners I'd have been standing on and God only knows what I'd have been doing, but instead I played hockey and went to school and stayed out of trouble.
+- Minor sports in the community is fun and recreation for everyone, not just the elite. I think back to my days in minor hockey and those are my fondest memories, having fun.
+- We're going to have more kids playing, and we're going to have a better chance of finding those players Minor sports in a community is for fun and recreation. For everyone.
+- So many of today's programs are about trophies and jackets, and we think that's a big mistake.
+- I was the happiest guy in the world when I was on the ice. You're being paid to play a game! That's pretty special.
+- Growing up in Canada, most kids from Canada dream of playing in the NHL, and they also hope one day to be on a Stanley Cup team. That was a big goal.

@@ -1,0 +1,34 @@
++++
+author = "Cat Power"
+title = "Cat Power Quotes"
+quotes_len = "28"
+description = "the best 28 Cat Power Quotes"
++++
+- People tend to think I'm insane, and I'm really tired of it.
+- I got told I needed a producer I don't know how many times - maybe 27 times, 30? Then I recently got told 'I'm so proud of you.' That was even more great to hear.
+- I've never had a clique. It's impossible when you're always traveling.
+- I still haven't been able to capture the joy of what it's like when I sing - you know, when I'm by myself, or like when I was a little kid.
+- Playing the guitar, you kind of lock into a rhythm and a groove, and then it relaxes me to make up lyrics and sing.
+- I've always done things myself. I've never bragged or screamed that I produced a record before. I never told anybody.
+- From folk to tribal to Cab Calloway, Cole Porter, Gershwin to the Rolling Stones, whose first record was all covers, to country-western, bebop, blues, and even the referencing in classic hip hop to cliched love ballads of the '80s or whatever - that is kinda gone, and that's just terrifying to me.
+- I don't come from money or an educated family background or any sort of supportive family life, so all of my choices are made on my own.
+- There's just a lot of stuff that really moves me, and I don't know how to express it, and I just want to try to do the best I can and surround myself with good people who don't invalidate me.
+- I used to want to be a war photographer, and I used to want to be a ballerina and a comedian. I used to want to be a writer. I invalidated myself; it's a mistake for me.
+- I've always dressed like a dude.
+- Nobody considers a covers record an album.
+- I got told so many times I needed a manager. For a long time I resisted, and I finally got one so I can pay my mortgage, and it helped me from becoming a homeless person.
+- I'm not a professional entertainer. I'm not Neil Diamond.
+- For me, the moment the mic is on and it's rolling, it's impossible to vocally relax for some reason. But one day, I'm going to be able to sing the way I sang when I was a little kid, completely open and free. That's, I think, the one thing that's changed: Growing older, I'm not ashamed to hear my voice.
+- If your parents gave you fire to play with when you were two, you'd be standing in fire by the time you were an adult.
+- I need to be able to face things.
+- Usually, I'll just sit down at a piano or with a guitar, and I'll just be relaxed and playing music. Because that's what relaxes your subconscious. That's why everyone from animals to humans love music.
+- I am human and I make mistakes.
+- After my second-to-last record, 'The Greatest', I had gone on tour for a while, and I didn't play an instrument for about five years. And I got kind of - it's not self-esteem or whatever, or anger toward myself - but disappointed in myself that I hadn't been challenging myself to learn musically.
+- Hip-hop and R&B is mostly what I listen to. I don't have a connection with punk rock - I just never had that experience.
+- We're always going to remind ourselves of our mistakes and how we do things differently, trying to be a better person or whatever.
+- Life is hard and it gets worse and worse and worse.
+- Everybody tends to think I'm crazy, which is the biggest problem in my life.
+- People and their religions don't affect me.
+- I moved to Los Angeles to be with a man I loved.
+- I think the hardest thing about my life is that I've met so many people all over the world who I love, but they're not friends with each other.
+- I got more guts than brains, and that's my problem.

@@ -1,0 +1,25 @@
++++
+author = "Bill Plympton"
+title = "Bill Plympton Quotes"
+quotes_len = "19"
+description = "the best 19 Bill Plympton Quotes"
++++
+- I'm not as successful as Pixar or Dreamworks, and that is disappointing to me, because I think my films are as valid as a Pixar film. I think there's an audience for my films. I know there's a market for someone like Quentin Tarantino, who basically does adult cartoons in live action.
+- I love Pixar films; I think they're the greatest filmmakers in the world. I love Disney films. 'Tangled,' was great. I loved 'How to Train Your Dragon,' the Dreamworks film. But it's not for me. I don't want to make a film for families; I want to make adult films.
+- I think it reflects well on the state of animation that people are knowledgeable about it and love the fantasy and imagination that goes into it.
+- My films usually start with an idea that I get while walking the streets. For example, I got the idea for 'Guard Dog' when I was walking in the park and I saw a dog barking at a bird.
+- People used to want to be filmmakers and animators; now they want to make apps.
+- If I'm really feeling good and not having a lot of interruptions, I can do a minute of animation a day, so theoretically, I could do a film in three months without any interruptions.
+- I look at some of my early stuff - back when I was 12 or 13 years old - and I was already doing cross-hatching back then. I don't know where I picked that up. I think I was in a hurry, and I wanted to shade something really fast, and I tried cross-hatching a shadow.
+- I'm very happy with the success of short films. In fact, for me, the short films make more money than the features.
+- America is behind Europe and Japan in terms of accepting adult ideas in animation.
+- For me, the perfect film has no dialogue at all. It's purely a visual, emotional, visceral kind of experience. And I think one can create wonderful depth and meaning and communication without using words. I started out as an illustrator and a cartoonist and caricature artist, so for me the visual is primary.
+- Hand-drawn animation is something that I feel really strongly about. A Pixar movie may be really great, but it looks like it was drawn by a machine.
+- I think it's part of the responsibility of an artist to shock, to upset, to make people think differently, and to surprise people. And that's where the good humor is, if there's a surprise and there's something unexpected. Something that's not normal, not in the realm of general living expectations.
+- I listen to Emmylou Harris. She's my favorite. I don't know why, but I just feel more creative with her playing.
+- I like to get up at six in the morning, and I draw until sometimes ten at night.
+- Being a talented artist is good, it's nice, but it's not the most important thing. I think being a good storyteller, having a good idea, a good gag, is probably more important than being a great artist.
+- I'm much better known in France and Germany and Spain than I am in the U.S. When I go to Russia, I get mobbed; I have groups of fans waiting for me out in the hotel lobby, waiting for me to come down off the elevator. In China, I almost got beat up because people were trying to get me to do a drawing for them.
+- I think each film I do has less and less dialogue. It really helps a lot for foreign sales, because when I go to Europe, there's very little problem with communication. All the gags are visual. The music they can understand, and it helps communicate a lot better.
+- I'd love to win an Oscar; that would be great. I hope to get a feature film that I've made get a wide release. I'm not sure that's ever going to happen.
+- I don't see why it's such a stretch for distributors, buyers, and studios to put cartoon characters into adult situations on film.

@@ -1,0 +1,106 @@
++++
+author = "Andre Iguodala"
+title = "Andre Iguodala Quotes"
+quotes_len = "100"
+description = "the best 100 Andre Iguodala Quotes"
++++
+- Kevin Gamble was one of the first NBA players from my city.
+- Tech stuff, I will always do. They've been good to me.
+- I play videogames all the time on the plane.
+- When I was growing up, there wasn't too much technology. There weren't so many channels that we were glued to on TV. We had to go outside and create our games. Kids had the habit of being active and exercising, just enjoying the fresh air.
+- I'm just really excited to play basketball in America and to be free and all that.
+- I came to the Bay Area not just to play basketball but to explore business interests.
+- It's just something I pride myself on as a basketball player, having that knowledge, being the guy who can go to any situation and make the situation better for that team.
+- Guys on Team U.S.A. were calling me Iggy just to mess with me. I've been called that since I was a kid. I don't care.
+- When I'm out there playing basketball, it's just, 'Let me do me,' and everybody is going to benefit. I feel confident that whoever I'm out there with is going to win.
+- That's the number one thing for a guy for a new coach coming in. You've really got to buy into the system and believe it's going to work because, if you don't, it's going to cause conflict, and you're not always going to be on the same page as the other guys on the team or with the coach.
+- People ask what message I have for kids, and it's simple: Just go outside.
+- We have to have adversity in order for us to really reap the benefits and really just have an appreciation of how hard it is to win in the NBA.
+- Even if you shoot 60, now you're aiming for 59. Golf is something you can never master.
+- I'm always happy for guys who are enjoying the game and maximizing their potential on and off the court.
+- The sixth man, the position, I don't have a problem with, but the award - it's not that it's not important, but being singled out, it's like affirmative action or something like that to me. So, it's like, whatever.
+- You always wonder how a coach's demeanor will be going from assistant to head coach. They can kind of change, the personality, and you don't know how that will affect the team or how they see him.
+- I can play until I'm 40. But I won't.
+- I've had a lot of help... from Marc Andreessen and Ben Horowitz, venture capitalists. They've helped me out a ton.
+- I owe a lot to my teammates.
+- I've been blessed to be in the NBA.
+- I don't think I can coach.
+- The key to success is to find things that you have a passion for and would enjoy doing, even if you weren't getting paid to do it.
+- I do a little bit of everything... kind of like being a chef on the court.
+- I'm a tennis fan, so I like Roger Federer. He's always two or three steps ahead, so he's hitting a shot, but he's also thinking about the next two shots. So I try to be in that frame of mind - to always be ahead.
+- A lot of sixth men have more responsibility, and they've made more of an impact sometimes than 80 percent of the rest of the guys on the team, so it's just a name.
+- NBA players, we're directly involved in the tech world whether we know it or not. Media content and wearables directly influence us every day.
+- I feel like golf has brought me some peace.
+- In golf, you're more competing with yourself.
+- Every player goes through streaks where they're just not making their shots. It may last two games, it may last ten games, and a lot of times, it's something off the court that is bothering you, or coach might cut your minutes for some unknown reason.
+- The same way you train yourself to be physically gifted player - whether you do weights, or running to get in shape or swimming - the mental side is the same way. You've got to train yourself to be ready for whatever.
+- I'm pretty fast getting up and down the court, especially with Andre Miller.
+- You see a lot of finesse players in our league who have a lot of success.
+- I like stick deodorant. I'm not a huge fan of spritz.
+- I got a yoga mat, I do yoga twice a week. I do both regular and hot yoga. Lululemon has an extra large yoga mat, longer and wider, so it fits me.
+- I try to get through a book every two weeks.
+- The biggest thing is becoming a better player and proving your doubters wrong.
+- JaVale McGee is one of the smartest guys I know. Like, he's a nerd, plays with gadgets, and is into technology. He's funny - he's got crazy jokes, and his timing with jokes is really funny. You have to be really smart to think the way he does.
+- Most of the time, it's easy for us basketball players to adjust to our situation.
+- Yoga, meditation, and unplugging the phone at night to make sure I get enough hours of sleep. That's huge for athletes.
+- When you get to college, they're never teaching you how to start a credit line or get a loan on a car, things of that nature.
+- Because of my Nigerian heritage, Jumia's use of technology to deliver innovative online services to consumers and improve the quality of everyday life in Africa is very important to me. I'm thrilled to be a part of this unique enterprise that is shaping the future of digital Africa.
+- Especially as pro athletes, at the highest level, what we put into our bodies plays a huge part in our performance.
+- Sometimes fans, sometimes even players, they don't know the game sometimes, and they look at numbers, or they use smoke-and-mirrors as far as who's a top 15 player, who's a top 20 player.
+- The majority of NBA players' upbringing, there's not much financial education.
+- In every sector of business, it's really hard to build something where you can get on a good run. In sports, it's even harder because you only have a small window for an athletic career.
+- I wanted to be the best player, so I thought in order for me to be the best player, I had to guard the best player on the court.
+- With the exception of maybe Vegas or Miami once or twice, other than that, it's all the same to me. I can't hear anything in the club with the loud music, so you're in there, and you're like, 'I can't hear you because of the loud music.' I hate that, yelling back and forth. And I don't drink, so it's kind of pointless.
+- When I played, I just wanted to guard the best player, and I didn't want him to score. That was just it, just competing. Along the way, it just kept building that I could be a great defender.
+- It's the nature of basketball sometimes: every player and coach are going to have run-ins.
+- It doesn't matter to me who I'm playing with. I think I'm going to make anybody better.
+- When you first come in the NBA, you have a lot of conversations about saving your money, financially educating yourself, not just trusting whoever it is handling your money, not just having those meetings once a year, and not really putting the effort into learning the same way you learn your craft on the court.
+- Seattle was my favorite team growing up, so I know a little bit about Coach Karl and his history. He's one of the best coaches in the game, well-respected by much of his peers and much of his players.
+- It's a real accomplishment for me, personally, to be named to the All-Star team.
+- As long as I keep working hard, the sky will be the limit.
+- When you go out there, you're not just representing your country or the NBA: you're representing your beliefs. You want to play hard for Someone who died for you.
+- It's important to dabble in things that interest you, and for me, I'm interested in the tech space that is here in Silicon Valley, fashion and golf.
+- God is great.
+- The biggest thing is to give it back. You want to leave the game in a better situation than you came in with it. That's really important to me, especially being an avid reader and just learning about how to build businesses, learning how to make the most of the business you're in, the ins and outs of the relationships that you build as well.
+- I understand that, in this league, there are a lot of guys who can be All Stars, be superstars, so timing and circumstance plays a huge role.
+- I think I'm a smart guy who knows the game.
+- In the Finals, you want to set a statement like, 'This is me. This is who I am.' You know everyone's watching.
+- I'm wearing a blazer, like, all the time. That's my go-to - a blazer - and I can just figure out if I want to wear jeans or slacks. Turn it into a suit.
+- Math was my favorite subject, so numbers were always running through my mind.
+- I've been able to meet interesting people who have helped me. And, in turn, I want to help out my fellow NBA players.
+- I just want to play ball. As long as people like the way I play, I'm cool.
+- At the end of the day, everybody wants to win.
+- When things aren't going right, I can get out on the golf course, and when things are going really good on the court, I can go and enjoy the scenery, enjoy the weather. And when I'm too high, I can have golf humble me and beat me up a little bit.
+- The Spurs, obviously - you look at an organization like that and say that's what you want to be consistent, because they've become consistent. That's what you start striving for night in and night out.
+- Draymond's always talking trash, and he's really good at getting you off your game. He's one of the guys that he'll talk trash, even when you're playing golf. He will knock you off your game... But when you see his swing, you're like, 'How do you talk trash so well, and your swing's this bad?'
+- You've got organizations out there that are consistently at a high level. They're known to play the right way at the right time.
+- There are a lot of guys who average a lot of points, but they make the game hard for themselves, and they make the game hard for their teammates, and that's why you never really see them win or get deep in the playoffs.
+- I'm just a golf enthusiast where I enjoy the game so much, and I'm excited.
+- They make documentaries like 'Fast Food Nation.' The food our kids are eating in schools, the vending machines kids go to a lot, the portions of food that American restaurants are serving that are bigger than anywhere else in the world - it's kind of crazy.
+- It's natural to me. I played point guard my whole life up until my senior year of high school. Most people don't know that. It's just in my game.
+- My whole life, I've felt like I can do anything on the basketball court, from playing point guard in high school to having to play center one year in high school, doing everything in college and going through different roles in Philadelphia.
+- Yoga helps me with basketball, but it helps me outside of it more than anything.
+- I don't want to be a basketball player that's a businessman. I want to be a businessman that's a business.
+- One move nobody knows about, when I catch the ball on the wing and I'm driving, I'm looking at the defender's legs, and I'm yanking their legs back as I run by.
+- When I introduce my basketball friends to golf, I tell them to just swing halfway. The power is the easy part.
+- It's similar to basketball: when you go to different gyms and win or lose, you learn something new. So when kids get out of the classroom, go to a new environment and meet different people, it opens their eyes to new things, and they have fun learning.
+- I'm always training. I've been told that I don't take enough time off.
+- I have a drive to get more steals and improve my game and stats overall every year.
+- I used to be PlayStation only, but Xbox 360 is really cool, so we play 'Live' and 'Tiger.'
+- Ben Horowitz, he's the guy. He's really big into hip-hop, and he's a brainiac.
+- I was always a guy who could score the ball as a kid, but everybody wanted to score. And I always wanted to be different in some type of way.
+- It's definitely important for kids to learn in many different settings.
+- It's a really good place for me to be, on the golf course.
+- Michael Jordan and Kareem Abdul-Jabbar were the two guys with unstoppable moves.
+- I'm a collector of designer backpacks.
+- I don't really shop too much. I shop a few times a year.
+- In high school, I figured I'd get a few extra baskets by getting steals. I would just pressure up the ball.
+- I always wanted to present myself well and express my style with my clothes, as well as who I was as a basketball player.
+- My game has really picked up in the NBA.
+- I really don't care what people call me. I don't like 'Iggy,' but I'm used to it now.
+- The tech titans and the tech guys who I most admire are the ones behind the scenes.
+- Philly will always have a special place in my heart, and I will cherish the great memories with the city and my teammates there.
+- I wasn't highly touted coming out of high school, so it wasn't like I was expecting to get a lot of minutes. For me, I didn't know how good a player I was, even though I think I did decent as a freshman.
+- If I get on the golf course, my basketball game is a direct reflection of how many rounds of golf I can get. So, the more rounds of golf, the better I play.
+- I try to let the people I do business with off the court know that I'm serious about my business off the court. So I try not to mix the two.
+- I'm a huge tennis fan, so the game I play the most is 'Top Spin.' You really have to know how to play tennis to get good at this game - whether you want to hit a forehand or a backhand, when's the best time to hit a slice - it's so real.

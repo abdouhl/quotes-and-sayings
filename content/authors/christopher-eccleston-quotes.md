@@ -1,0 +1,43 @@
++++
+author = "Christopher Eccleston"
+title = "Christopher Eccleston Quotes"
+quotes_len = "37"
+description = "the best 37 Christopher Eccleston Quotes"
++++
+- I've never been up with the times, always been slightly out of step.
+- The film is about Joe discovering who his mother and father are and his relationship with them, and the identity crisis he goes through once he finds out who his parents are.
+- We all need a firm sense of identity.
+- Rather than disliking theatre, I've expressed a preference for television because it tends to deal in its small way much more with issues and is able to reach a broader church of people than theatre.
+- I love my accent, I thought it was useful in Gone In 60 Seconds because the standard villain is upper class or Cockney. My Northern accent would be an odd clash opposite Nic Cage.
+- I don't like to watch playback. But being on the set, watching the way the camera is being moved and the way the light is being used, you do get an idea of it.
+- The money is better in films and television. But in terms of acting, theatre is more rewarding.
+- I heard the various terms of abuse at school and probably indulged them in the way you do as a kid.
+- Often as a child you see someone with a learning disability or Down's Syndrome and my mum and dad were always very quick to explain exactly what was going on and to be in their own way inclusive and welcoming.
+- I love Dead Ringers. A democratic set, the work was taken seriously.
+- It can be very difficult to trace your birth parents.
+- Lots of middle class people are running around pretending to be Cockney.
+- We like to think that our parents made a decision to bring us into the world.
+- I think the themes of belonging and parentage and love are obviously universal.
+- I know exactly where I've come from, I know exactly who my mum and dad are.
+- I used my instincts. It's very easy to imagine how you'd feel, actually. I just had to tell the narrative.
+- Jacobean plays, before Shakespeare, were particularly visceral.
+- The person who gives you your first job is so important in any industry.
+- Any horror element is as much psychological as special effects.
+- I went being unemployed for three years to being the lead in a British feature in the days when we only made two a year, 1990. It was ridiculous really.
+- I only ever worked on interiors, and an interior is an interior. I don't know what they did about exteriors.
+- I think theatre is by far the most rewarding experience for an actor. You get 4 weeks to rehearse your character and then at 7:30 pm you start acting and nobody stops you, acting with your entire soul.
+- My parents always knew I was hopeless at everything else, I was fortunate in that I was backed all the way. I came to it late and only because I thought there'd be loads of women and drinking!
+- I had bags of energy as a kid.
+- I think film and television are really a director's medium, whereas theatre is the actor's medium.
+- I don't see a lot of films. I'm quite choosy, but there's certain films that stick out.
+- Twelve years on sets watching directors, I've taken a bit from everybody and rejected a lot.
+- I got a tiny part in a play, auditioned for another one and got that as well. Not only that, the first finished on the Saturday and the other started on the Monday which is like an actor's dream!
+- I wasn't always such a great fan of Shakespeare, mind you. I can guess we all at one time had it rammed down our necks at school, which tends to take the edge off it.
+- I want to direct but I think I'd be bloody awful and I don't want to produce but I think I'd be a very good producer because if I believed in something I'd be able to protect it.
+- Many times I've sat with a camera and another actor and seen all their fears and insecurities and struggles. You want to support them and help them as much as you can.
+- What goes down on film is different to what you see with the naked eye.
+- I care more about telly because it made me an actor and there's a much more immediate response to TV. You can address the political or cultural fabric of your country.
+- Theatre is expensive to go to. I certainly felt when I was growing up that theatre wasn't for us. Theatre still has that stigma to it. A lot of people feel intimidated and underrepresented in theatre.
+- I had to help to coax the performances and I really enjoyed that extra responsibility.
+- Television, although It's in steep decline, still occasionally gives voices to people who don't have voices.
+- On The Others, very atmospheric and probably mysterious is how I would say it felt to be on the set. It felt just a little uneasy, the atmosphere that we were trying to capture.

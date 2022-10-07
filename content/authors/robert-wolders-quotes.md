@@ -1,0 +1,23 @@
++++
+author = "Robert Wolders"
+title = "Robert Wolders Quotes"
+quotes_len = "17"
+description = "the best 17 Robert Wolders Quotes"
++++
+- At the time in our lives that we met, we had both made our mistakes. If chance would have had it that we would have met at an earlier stage, we might not have had the discoveries together that we did have and found those things in life together that were valuable to us at a later point in life when we were both more mature.
+- It seems to me that Audrey will have sensed, very early in life, that self-worth, based on fame or beauty is very short-lived and so she remained forever her basic self: realistic, aware and caring.
+- I felt she had two unhappy marriages, it was wonderful the way it was. When Audrey would be asked, she'd also say, 'Why mess with a good thing?' I remember her saying to one interviewer it's more romantic this way because it's not another piece of paper, but out of loyalty to each other that binds us together.
+- The memory of Audrey is in my innermost mind. And I don't need a foundation to commemorate her. That's perhaps a bonus, if you like.
+- She didn't hide her relationship with Albert Finney. I can't imagine two people who were better suited, but thank God it didn't work out, or she and I would never have met.
+- Some people tend to think of Audrey as a film-star first and a humanitarian second. But to Audrey herself, and to those who knew her well, the two roles were intertwined and inseparable.
+- I was born in Holland, Rotterdam, and lived there most of my life. I started my acting career there, but to really be successful, I left Holland and came to the U.S.
+- Riding and romping are easy enough. It's the costume changes that wear me out.
+- Audrey didn't necessarily feel that she had accomplished anything. But she was serene, because Audrey was very realistic about death. She had a great faith in nature, and she felt that if her time had come, then she should accept it graciously.
+- Audrey, it seems to me, never strove or hoped to leave a lasting legacy with her films - she was far too modest for that. But what I think she would have wanted, had she been given more time, would have been to continue her work for children because she knew that is a task with so much to be accomplished.
+- Her father didn't have a Nazi past. He was a fascist sympathizer, but Audrey didn't try to keep that a secret. She had no tolerance for any fascist philosophy.
+- After I'd met her, a mutual friend prompted me to ask her out for dinner, but she said she had a night shoot. I thought it was her gentle way of rejecting me. The next day she invited me for a drink at the Pierre hotel, which turned into a three-hour talk.
+- I'm not looking for someone who comes close to Audrey. But if I found someone, I'm sure Audrey would be happy.
+- She viewed us as being married. There were times in order to avoid confusion that she would present me as, 'My husband, Rob,' but never as, 'my partner,' or 'my life partner,' or anything like that. What always pleased me or always sounded so nice was, 'Have you met my Rob?' Or, 'This is my Rob.'
+- Eric Hunter is the type of character I've always dreamed of playing.
+- The Audrey you saw in her films and in her advocacy for children is who and what she really was and what, I think, we all sensed was an extraordinary honesty of emotion.
+- Most Europeans like the American manner of living. They've been exposed to the U.S. through American television shows.

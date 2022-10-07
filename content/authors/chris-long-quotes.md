@@ -1,0 +1,106 @@
++++
+author = "Chris Long"
+title = "Chris Long Quotes"
+quotes_len = "100"
+description = "the best 100 Chris Long Quotes"
++++
+- I'm very proud of my dad. To me, there are comparisons, but there aren't comparisons. We kind of play two different positions. He's a Hall of Famer, I'm not a Hall of Famer.
+- Any football player will tell you that in July you get this dark cloud over you if you know camp's coming.
+- I wouldn't be anywhere close to where I am today without my pops. I think a lot of a football player's makeup is mental, and I've been blessed to have someone to learn from. Not just from a technical standpoint, but everything he taught me about being a hard worker, a teammate and just being a football player.
+- Robert Quinn. He's ridiculous. He can do anything a DB can do... at three hundred pounds!
+- I don't know that I've gotten to the point where people know me more than my dad or that I ever will or even want to get to that point.
+- For Laura Ingraham to go after LeBron for speaking out politically is ridiculous.
+- My dad and I shared a lot of football memories.
+- At 33 years old, I think any player my age should take time to take inventory and see what their situation is and see how the body feels.
+- I've noticed that right tackles have gotten better in pass pro throughout my career.
+- I've dealt every day of my life with my dad's career, the comparisons to him, with people wanting me to live up to him. I just put that stuff out of my head, I don't even hear it after awhile - I just turn my ears off.
+- I've been lucky, man. I've been very lucky for 10 years, made a lot of money playing a game, a kids' game.
+- Too often athletes think there's these norms that I have to fit into and there are people that I have to please.
+- I want to squeeze every drop out of my potential as far as affecting the world around me.
+- Tom Brady blew me away. Who's the most famous athlete of our generation: Tom Brady? LeBron? Messi? Ronaldo? Serena Williams? Maybe I haven't been around enough to know how the biggest stars really act. But Brady is a normal guy.
+- I think a lot of times with football players, we're just head down, grinding away, maybe not enjoying it as much as we should.
+- My dad taught me to work hard and to be the same guy every day. If that's going 100 miles per hour and working hard, then that's what I'll do.
+- If I never got cut, I wouldn't have the Super Bowl ring.
+- I think of myself as a complete person, not just a football player and athlete.
+- I've always believed there are inequities in our country.
+- You'll learn that the most worthwhile exercises are preceded by this very human phenomenon, fear. Marriage, parenthood, relationships.
+- I love charity. Ask anyone.
+- My dad was able to give me everything through football.
+- Continuity is one of the hardest things to come by in the NFL.
+- Football, for me, wasn't a foregone conclusion. My parents didn't force me into it, and quite the opposite happened.
+- The older you get, it is harder to prepare physically, even if you have all the experience in the world. You're more sore the next day, you can't pack in as much, and you have to train smarter. You have to pay attention to more subtle things like your warmup routine or core work.
+- I do have great memories from when my pops got inducted. Obviously, knowing him and knowing how hard he worked in pro football for so long and what he sacrificed, the physical side of it, the injuries, and the grinding and now eight years into the NFL you know what hard work that is.
+- The 25-year-old me would tell the 32-year-old me to take the two rings and go start the next chapter in life, but it's never simple when you still have gas left in the tank.
+- There was a time when I was injured and playing really bad and cut, rightfully so, that I wasn't sure what my future in football was.
+- At the end of the day, Coach Belichick does a great job of bringing in people he knows that will fit well.
+- My first big paycheck - this is kind of funny - I bought a Cadillac DTS. I thought it looked really comfortable.
+- I think that's just the way football is supposed to be played, at a high speed.
+- It's a team game, but at the end of the day, you gotta be happy, and you gotta enjoy playing football every day.
+- I just like playing ball.
+- If teams focus on me, that will allow my teammates to make plays.
+- There's no secret about it: Every team does things differently. Seattle runs their program one way. New England runs it another way. Philly runs it another way.
+- I'm a bit biased with my love for Kyle Long. I would say he's the best bald guard in football.
+- Wherever I go and whoever I go play for, I'm a football player. I enjoy playing football, I enjoy the game, I enjoy being a teammate.
+- I've been compared to my dad my whole life. That pressure I've learned to deal with.
+- I've heard a lot of people say you need white athletes to get involved in the anthem protests. I've said before I'll never kneel for an anthem, because the flag means something different for everybody in this country, but I support my peers.
+- In my career playing football, nobody asked me to do as much as Bill Belichick did.
+- The 24-hour news cycle is kind of insatiable. Players in the '80s and '90s didn't have to deal with that scrutiny.
+- I am incredibly thankful that football has provided me with a platform to give back and I am proud that so many of my colleagues have decided to use this stage to create positive and impactful change in our local communities and around the world.
+- The lead initiative of my foundation is clean water, but not far behind it is military appreciation.
+- I am honored to be named the 2018 Walter Payton NFL Man of the Year and to join the long line of men who have received this prestigious honor.
+- If we're saying there are incidents of oppression in this country, systematically or individually in this country, I don't think saying, 'Well, in country X, Y or Z it's 10 times worse' is making things any better. I think that may be true, but why can't we improve?
+- I'm a rhythm player. I need to set people up, I need to be in the flow of the game.
+- I'm always trying to play for respect. I don't play the game for much else.
+- I'm a big guy and I can't have any tiny tattoos.
+- For all the evils in the world, I think apathy is one of the most dangerous.
+- The great thing is my dad was OK with whatever I wanted to do. He always supported me, and once I showed I was serious about football, that's when he really started to get involved and give me pointers.
+- I came to Philly not only because of the quality of the team and the organization, but also the fans, the passion - it's really palpable in that city.
+- I think a lot of winning a Super Bowl is being at the right place at the right time. It's sacrifice, it's making team plays and being an impactful player is part of it.
+- Some people are tired of hearing me tweet because they want me to stick to football but I like to use social media like I was a regular guy because I think I am.
+- I look at the opportunity to play football as a blessing and I think what doesn't kill you certainly makes you stronger.
+- It's an accomplishment to play in the NFL.
+- Ties in the NFL absolutely suck. Trust me, I was involved with a tie against the San Francisco 49ers when I was with the Rams in 2012 and it felt pointless.
+- In my training in the summer, back in the day, I used just go, go, go! I wouldn't take any days off, I would do whatever I wanted, as much as I wanted of it.
+- I joke that every time I'm in the playoffs, it feels like I'm in the Super Bowl.
+- You may doubt the significance of your work, but work faithfully anyways.
+- Even when I was being recruited here to the University of Virginia, a lot of people in my own community didn't think I was Division I football material because I played at a small private school.
+- Educational equity was my way of giving my salary. It's not $10 million or anything. I'm not going to act like I'm the first guy to donate $1 million to something, but it has been good.
+- I've had to work and scratch and claw for every inch of what I've gotten as a football player.
+- And I respect the anthem. I would never kneel for it. We all come from different walks of life and think differently about the anthem and the flag and what that means.
+- I've been through nine camps, and they're all a little bit different, but at the end of the day, it's just football.
+- I'm a worker. I'm a grinder.
+- A mullet is something that takes time and effort.
+- Earlier in my career, I wanted to do a lot of things under the radar because I felt uncomfortable in engaging with the fans because then they're thinking, 'Well, you're doing it for publicity,' or whatever.
+- I do believe that clean water is the most efficient way to change the world.
+- I'm open for whatever any team asks me to do.
+- I like having my dad around.
+- My mother has been really instrumental in raising a lot of money through the Boys & Girls Club in my hometown.
+- I do respect a man who doesn't settle.
+- Everyone fears change. But what you'll find is that change breeds your most important accomplishments.
+- I like that outlaw crossover rock 'n' roll-country sound.
+- I think if you show a player an avenue to make a difference, he's going to bring that same intensity he brings on the field in his community.
+- My wife and I have been passionate about education being a gateway for upward mobility and equality.
+- Playing eight years, never making the playoffs, you feel like you're running on a treadmill that's going nowhere. You're like, 'Is this it? Is this all football is?'
+- One thing I take pride in is that I never cracked and stopped playing hard. There's something to be said for that, because life doesn't always throw the best situations at you.
+- When I entered free agency, I said whatever team I end up on, I'm going to work.
+- I play in a league that's 70 percent black and my peers, guys I come to work with, guys I respect who are very socially aware and are intellectual guys, if they identify something that they think is worth putting their reputations on the line, creating controversy, I'm going to listen to those guys.
+- It's unbelievable how far my career has taken me.
+- I never mean to make a headline where it's like, 'Chris Long unsure.' I never try to make it sound like I'm under the impression it matters either way if I play or anybody cares.
+- I was a Panthers fan growing up, being close to Carolina.
+- Before I was a champion, I failed, and I was afraid.
+- I think preparing every week like it's the most important game in the world makes things a little easier once you get in situations where a lot more people are watching and it might be a lot more important for people outside of the building.
+- Michelle Obama has also done a lot of work in the scope of educational equity and being able to work with her on some of her initiatives has been awesome. I'm very honored.
+- This is not supposed to be a fascist country, where you are forced to do things you don't want to do. This is a free country.
+- When I grew up, I had everything you could ask for, and I kind of didn't appreciate it. Because it was a given for me. Everybody that grew up in my neighborhood was going to have an opportunity to go to college. I took that for granted. I always regret that.
+- I love Philadelphia.
+- I don't think football is enough for me.
+- It wasn't like I loved football from 12 on. It took time.
+- Actually, I wanted to play baseball. Honestly, I just think with a kid developing, playing a lot of sports, it's just kind of whatever you're good at.
+- Do I get irritated by the no-Pro Bowl thing, never making a Pro Bowl? Yeah, I do.
+- I think the one commonality between the two Super Bowl teams I've been on is great, great teammates. I can honestly say that guys in Philly could definitely thrive in New England and vice versa - if you throw out the scheme differences.
+- America's an awesome country, man. Everybody knows that.
+- I'm not somebody that's been a natural at anything.
+- In New England, I learned so much about football. I always thought I was a smart player, even though I never thought about anything but the six inches in front of my face. In New England, I was forced to learn so many schematic concepts.
+- Baseball was always my favorite sport, and I thought it would be the sport I'd pursue for the long term. But I guess about my sophomore year in high school, I started really getting into football, and then it just took off from there.
+- This is a wonderful country, and I think everyone agrees on that, but there are things in our country that can improve.
+- There are always more people to prove wrong.

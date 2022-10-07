@@ -1,0 +1,106 @@
++++
+author = "Forrest Griffin"
+title = "Forrest Griffin Quotes"
+quotes_len = "100"
+description = "the best 100 Forrest Griffin Quotes"
++++
+- If it were up to me, I'd be fighting chumps.
+- I'm someone who needs goals and direction, and fighting provided that for me.
+- My fitness philosophy is very different from the UFC fighter fitness philosophy. Mine is to work out in a way that you will be able to sustain for the next 20 years.
+- When I know that I trained real hard and I had a good training camp, that's when I'm very confident. But sometimes I don't train hard and I don't feel that confident.
+- I try not to make personal attacks on people - unless they're deserving.
+- Unfortunately, I found out when I was trying to like square up with people and face off with people and, like, try to intimidate them and I'm pretty non-threatening.
+- I worked in a dining hall in college and I worked at UPS for a full three weeks - it was the worst job I ever had.
+- I don't really give a damn about too much other than myself.
+- During a fight with Anderson Silva, I slipped on an imaginary banana peel.
+- I'm kind of a grinder.
+- It's very unmanly to change yourself for others. Be comfortable with oneself. There have been feminist movements but there's never been a male one.
+- Time catches everyone. Sooner or later, it gets everybody.
+- If you look at UFC champions: BJ Penn - terrifying! GSP - terrifying! Anderson Silva - terrifying! But I'm not terrifying.
+- I do actually enjoy the process of putting my thoughts down on paper and having people actually read them.
+- I was a police officer in Augusta, Ga.
+- It sucks when you do poorly at your job.
+- I wrote an article for Revolver and it was very offensive.
+- I thought wrestling was the stuff where people jumped off ropes. So that was my experience with wrestling.
+- The UFC actually does a lot of charity stuff, but they don't talk about it that much.
+- I hate when someone gets the better of me. A Division 1 wrestler comes in and takes me down and I get frustrated.
+- It's nice to get to do other things and not worry about fighting.
+- Gay, straight, whatever - none of that actually matters when you're fighting someone. Not what you have in your bank account, what you drive, what sex you are, none of it. I think that's the message the UFC has been trying to push.
+- We grew up in an era where there was a lot of fear of HIV. Everybody worried about it and everybody took precautions, and everybody knew that it was a thing that was out there. As it slowed down, it left the spotlight, people forgot.
+- No, I don't play video games.
+- HIV is not a gay or straight disease. It's a young people's disease, unfortunately.
+- You can't cuss on TV. It does hurt your brand if you do stuff like that. That's not what blue chip sponsors are looking for.
+- I've made a ton of money but I don't have as much as I'd like.
+- I'm never going to struggle but I definitely want to make more money, we all do.
+- I've been victimized by general filthiness on multiple occasions... I received a nasty staph infection... I was told to wait it out... a few days later I literally thought I was going to die... I ended up being on antibiotics for five weeks and, as a result, I had to back out of the fight against Machida.
+- Here's the deal: the extraordinary becomes ordinary really quickly. One minute, everything is new and amazing, the next it's expected.
+- Whatever Brett Favre does, it's a sign of the apocalypse.
+- I love football and basketball but fighting is the original, most primitive to our nature.
+- I really believe zombies are a threat to our national security.
+- I am not a super-talented guy, I'm just a dude who will fight you tooth and nail.
+- I get to work out for my job and punch people and wrassle, that's a pretty cool job.
+- I've framed houses, worked on an asphalt crew, I was a cop, a lifeguard.
+- I like listening to Method Man before fighting.
+- I like to make people quit. Whether it's because I'm striking them or submitting them, I just want to make them quit. In the war of wills, that's the win.
+- Jesus was a liberal. Jesus was like the original liberal.
+- Winning the belt is one thing. But you're not really a champion until you defend it.
+- I feel bad for guys in other sports that never work a job. Think about it, most MMA fighters have had to do something for money whereas a guy who was an athlete in college sport then went straight to the pros, he's never had a skill outside of sport.
+- I'm a nice guy. I'm trying to be positive. I've got my own things, I'm kinda crazy but I'm not trying to hurt anybody. I'm trying to be good and I'm doing the best I can. Just like everybody else.
+- When you get the opportunity to give away somebody else's money to make somebody else's life a little better. That's pretty cool, actually.
+- You have to move on with your life at some point. You don't quit fighting, fighting quits you at some point. It's very unfortunate, but that's the nature of the beast. And that's one of those things, too, that I like to tell young fighters. Have a backup plan.
+- I say whatever's on my mind, I don't really care.
+- I like ice cream, I don't like pain.
+- Thiago Santos is a guy who can take your belt from you with one punch.
+- You talk to people, and they don't understand our water. They come and turn on a tap and drink clean water, and to them, that's amazing. Millions of people around the world have to carry water miles and miles, and that's all they have. It's hard for fat Americans like myself to even understand that.
+- When I announced my retirement, that was actually when I was trying to come back and I realized, it just wasn't viable. It passed me by. My shoulder is done. I brush my teeth with my left hand now. That's just the way it goes. I can't shoot a basketball, I can't throw any kind of ball. I was right handed.
+- I've always mid-lined myself where I don't really expect myself to do big things or to win big fights. It's not a lack of confidence, it's just that I think to an extent that you need a bit of an ego if you're going to think that you're going to conquer something.
+- You have the belt, you fight who they tell you to fight.
+- I like to start every sentence with: 'So here's the deal.'
+- I just love fighting. I know I'm not the best, but I'm still pretty good, there's a lot of people I can still beat. What do you do. What else am I supposed to do? I have no other skills. I enjoy doing this. There's nothing I'd really rather do, you know?
+- Look what happened when I fought Anderson Silva. It can't possibly get worse than that. I've already seen the bottom and it wasn't that bad. I made it through. I survived. It's fighting. It's not the end of the world.
+- In the grand scheme of things, fighting people in the cage is not that big of a deal, I know. It's not a hero profession even though its treated as one. It's not being a soldier or police officer or paramedic of firefighter or anything.
+- Anyone can get beaten in mixed martial arts. It's the nature of the sport.
+- It gets old, all of it. People putting a lot of hopes and dreams on you. Telling you they put money on you, and 'you're my kid's idol.'
+- The only thing that gives my mom pleasure in life is buying stuff off QVC, and I'm gonna pay those bills. I paid my mom's house off. My wife's family needs help? I'm gonna take care of that.
+- I try to break a sweat every day doing something. Try to do hot pilates once a week. I'm not kidding. I actually hurt myself doing hot pilates, so I got that going for me.
+- I hate flying so I always drive.
+- Anytime you think about ring rust and travel and camps back-to-back, it helps not having any bad injuries and being able to train consistently.
+- Every injury is specific to what has happened, but the advice that I will give is that if you have a lower body injury, to work your upper body out. If you have an upper body injury, work your lower body out. Again, move what is not broken and you will definitely feel better.
+- I like not having a job, not having to get up early in the morning is awesome. I would recommend it to anybody.
+- I live the perfect life.
+- Nobody goes, 'I'm a top 10 fighter. Well, maybe Top 15. I can beat a lot of guys'... Nobody ever says that. That's the thing with having a grasp on reality. I know I'm not the best.
+- It was so fun, 2006, 2007, 2008. I went into the gym and I felt like I was winning in the gym, which is important for an athlete.
+- I will give one piece of advice that always keeps me going; get your body moving every day, no matter what. Don't truly have an off day, just move. Move light and try to get your body moving to break a light sweat.
+- I remember being 32 years old and feeling great, better than ever physically. Then at 33, I tore my shoulder and was out for eight months, and it was like I fell off a cliff. I was never the same.
+- Me and my step-dad shared a $500 Chevy Celebrity, a 1983 Dodge Ram truck, and an old Ford Ranger truck - it was a piece of junk. I hated that thing. It fell apart. It didn't always go in reverse. So I drove in a circle or I would just get somebody to sit in the thing and I would push it backward.
+- There will be a time when I physically cannot do this sport.
+- People think TRT is for lazy people. No, it's just you're just trying to improve yourself.
+- The biggest thing I learned is that when Dana says retire, you should retire. Otherwise, you will blow your knee out before your next fight.
+- I always wanted to work in charitable things, community outreach, etc.
+- For like a year, even after I retired, my ear would just bleed. There was just some scar tissue on it that tore open so many times that it just started bleeding all the time. It's rough on the wife, she has to keep washing the sheets again and again.
+- I can do anything for 25 minutes.
+- I don't have the best chin in the world.
+- There are two things I want to be able to know when I walk into a fight, or with anything in life. And I'm not Superman, I'm not even that great at fighting. Those two things are: I have done everything in my power to prepare for this and I will not quit, no matter what.
+- I like deer. They're kinda cool.
+- You get away from something long enough, you miss it. You get hungry for it.
+- Some guys are real noble guys, like Rich Franklin or Randy Couture. These guys are just really good people who happen to fight.
+- You would have to be born with a gene that doesn't allow you to recognize sarcasm if you take anything I say seriously.
+- I grew up in a different era. People were definitely afraid of HIV back then, but education also helped change the way we thought about the disease. That education helped my generation make smarter choices about the way we protected ourselves.
+- I'm not a naturally giving person.
+- I'm pretty careful not to make friends with other guys who fight at 205.
+- The best car I ever had was a Mazda 626. I paid $72 for it. The guy told me if I towed it off his property I could do whatever I wanted to it. So I paid to have it towed to my house and me and my step-dad fixed it up and drove it until I totalled it.
+- I've always kind of been the guy next door who just happens to fight for a living. I tried to figure out what was special and marketable about me early on in my career and I realized that there's absolutely nothing special about me, so I wanted that.
+- Taking care of your family is the manliest thing you can do.
+- I am a Georgia guy, and I have Brett Favre's card when he played with the Atlanta Falcons. That's my retirement plan.
+- I have great coaches, but one thing I've never really had is that head coach - a Greg Jackson, Matt Hume, John Hackleman.
+- In the beginning, fighting was fun - I wasn't concerned with the outcome. At some point, I started training out of fear and anger. I wasn't really happy.
+- What's wrong with wanting to be better at your job?
+- I had some pretty substantial injuries.
+- It was weird, I saw the Brian Stann vs. Wanderlei fight, I thought, if I don't have another of those in me, there's no point in continuing. I never really cared about winning or losing, then don't put the product out there at all if it's going to be subpar.
+- It's long been a problem. But I'm not just talking about the UFC - I mean homophobia in sports in general and athletes sometimes say really stupid things.
+- I am not the super-submission guy, I am not the one-punch KO guy, so I am not the most feared guy in the world. But I will not quit, I will not break and I will fight you like a dog for every second of every round.
+- I don't think you should punish a guy for losing when they were hurt.
+- I think anyplace people can be themselves is a good thing.
+- I want people to like me.
+- My philosophy when I trained was to be 1% better every day.
+- I found being a coach in 'The Ultimate Fighter' series hard because I had to care about others. I don't feel a lot of empathy with others. Having kids is going to be a scary one for me - I guess I'm going to have to learn.

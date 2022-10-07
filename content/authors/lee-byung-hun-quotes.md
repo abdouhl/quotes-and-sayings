@@ -1,0 +1,31 @@
++++
+author = "Lee Byung-Hun"
+title = "Lee Byung-Hun Quotes"
+quotes_len = "25"
+description = "the best 25 Lee Byung-Hun Quotes"
++++
+- I do not want to name any individual names, but I felt like when I was working in Hollywood, there were some fellow colleagues of mine who didn't even look me in the eyes because I was Asian.
+- Having - and keeping to - a regular exercise routine is crucial. And forget about those extreme diets - they aren't healthy.
+- In Korea, I do different kinds of genres. So, like that, I would like to do a lot of good acting films.
+- Having an interview in English is difficult for me, but acting in English is much harder. Because when I'm acting in English, if someone points out bad pronunciation or accent, I cannot focus on my emotions anymore, so it was very hard.
+- Just like other ordinary people, I want to have a happy family.
+- I find myself working out at hotel gyms quite regularly - just so that I can keep up with my training.
+- The two moments that I felt the most nervous in my entire life were when I first had reading rehearsal for 'G.I. Joe: The Rise of Cobra' and when I was at the Academy Awards ceremony.
+- There are more crime films about the corruption of power because our society has similar problems. It would be great for me as an actor to work on an 'Inside Men' sequel, but I hope it never gets made. Because it would mean the corruption is still there.
+- Hollywood has a longer pre-production period and they juggle shooting schedules more carefully for each cast. In Korea, we shoot day and night without much break.
+- I have a special attachment to 'Bitter Sweet' and feel grateful because it introduced me to people in the film industry overseas and helped me experience Hollywood.
+- When I was a young kid, my father was a big fan of Hollywood movies. He would make me watch movies with him, and he would explain the story and characters to me.
+- New Orleans has a lot of good food.
+- It was great to be able to play a hero in 'The Magnificent Seven' in a film industry where Asian actors are often limited to playing a villain.
+- Sometimes people know I am an actor but are not really sure what I have been in.
+- I had no idea what it took to be an actor. Then all of a sudden I found myself cast in a TV drama. The director was very harsh with me. One time, he told me this would be my first and last acting job. I seriously thought that acting was not the right career for me.
+- Whenever I open a movie, I go secretly to the theater and stand in the back and enjoy the moment. I laugh when people laugh, and when people cry, I laugh.
+- For 'The Rise of Cobra,' I was dieting more and using protein powder to help supplement my meals. For 'Retaliation,' however, I opted for more natural protein. I had a chicken breast and broccoli meal about five times every day. I also drank plenty of water and made sure I got enough rest.
+- I lead a very active lifestyle. When I am not working, I enjoy snowboarding in winter. I golf and swim in the summer months. However, trying to find the time to exercise when I am traveling is quite a challenge. I find myself working out at hotel gyms quite regularly - just so that I can keep up with my training.
+- My dream role would be to play a Korean hero in a Hollywood superhero movie.
+- Some people cheer me on. Some people want me to do more Korean movies or TV series.
+- The more I act, the harder it gets, since I feel like I still have so much to learn. Whenever I embark on a new project, it always feels like the first time. If it were easy to me and I felt like I knew everything, my acting might have been different. I think the feeling of 'newness' keeps me on my toes and concentrated.
+- Actors always want to play the villain role at least once in their life.
+- I was a fan of westerns growing up. Every boy wanted to ride a horse and be a cowboy.
+- G.I. Joe is not shown in Korea at all, basically, so a lot of people didn't know about G.I. Joe and I also didn't have the information about G.I. Joe.
+- I'm really close to Stephen Sommers. He was a really nice man.

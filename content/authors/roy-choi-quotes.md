@@ -1,0 +1,104 @@
++++
+author = "Roy Choi"
+title = "Roy Choi Quotes"
+quotes_len = "98"
+description = "the best 98 Roy Choi Quotes"
++++
+- TV is a hard thing to do. It's a hard thing to get a show.
+- I make food as affordable as possible.
+- I don't have a boss. I don't answer to anybody. I do everything that I want to do out of the purity of making people happy.
+- At my lowest point, I found cooking.
+- Only if you're from L.A. do you know Elysian Park.
+- I want to pay homage to Los Angeles.
+- When you have parents that come from a country that you weren't raised in, you feel this weird sense of familiarity, like you've returned to something.
+- I don't really have a strategy for social media. I think that's my strategy is that I don't have a strategy.
+- All Korean food is not just one thing.
+- My restaurants are about community and about sharing and about warmth.
+- There is no typical day, not when there are so many people out there that I care about that can't access good food in their neighborhoods.
+- I like to go to a Korean salon.
+- I'm a quiet person in real life.
+- I dream like a shaman.
+- I don't have many hobbies or talents other than cooking, but I've always been good at figuring out a city.
+- I don't go for average.
+- Kogi changed what a generation eats, introducing people to fermentation and different vegetables and flavors.
+- My parents and friends, they're Ph.D.s that worked as custodians, that owned their own businesses, that went bankrupt, that moved seven times, that sent their kid to Harvard, that don't have any money for retirement. Highs and lows of life.
+- When Kogi started, I was dead broke, selling tacos on the street just to survive.
+- I don't really care about job security.
+- Yes, a business should thrive, but it shouldn't thrive at the expense of everyone else losing.
+- Oh yeah, the 'Chef' movie was awesome.
+- Animals have been talking to me. And any shaman will say that that's not that weird.
+- I typically like Sicilian pizza.
+- I wanted to be a topographer when I was young.
+- I grew up around food and in a restaurant, so it never dawned on me that this was a thing to do; it just was. Then I found it as a profession in my mid-twenties after years of bad decisions and depression. The first step was going to the bookstore and learning about this craft. Then applying in kitchens and just getting to work.
+- I grew up around so many different people in so many different neighborhoods, but the Latino heritage, the neighborhoods, and people have always been a part of my life, ever since I was a kid.
+- I go by 'Papi' on the streets.
+- What was important for 'Broken Bread' to do was show real life.
+- I used to be a chef.
+- Chefs don't have a union. We don't have a Screen Actor's Guild.
+- I've always wanted a straight-up cooking show since I was a child.
+- I knew of the 'Gilmore Girls' - I wasn't a rabid fan, but I watched it sporadically when it was first on.
+- Straight up, Oreos, sodas, chips, salsa dips, egg white omelets, yogurts, breads, ketchups, mustards, barbecue sauce, frozen pizzas, hot pockets, ice cream, all these things that you eat in your normal life - I think if chefs got more involved in that, then it could be better. Because we're the ones that know flavor.
+- I was watching TV and saw the 'Emeril' show, and it spoke to me. I went out and started researching the culinary world and chefs that I knew nothing about. Then I moved to New York and went to culinary school, and everything just fit like a glove. It's been on ever since.
+- I know a lot of artists and chefs don't talk about this, but sometimes you just don't get to the finish line. That honesty and tenderness is something we're kind of not supposed to express.
+- Myeong-dong in Seoul is an area that is crazy at night, just packed.
+- I didn't just grow up lowriding: I grew up lowriding and also in mansions in Orange County.
+- I make milkshakes at home, but the two best are at at Gulfstream and Disney's Soda Fountain on Hollywood Boulevard.
+- As a young manager, I had no idea what it meant to be a chef.
+- I realized why I can cook for different environments. Because of everything I've gone through growing up. Why can I cook for a Hollywood event without blinking an eye? Because I cooked at the Beverly Hilton and because I moved to Villa Park. Why can I cook for kids on Hollywood Boulevard at night? Because I went through it.
+- Everything I do is like tough love; everything I put out there in the universe is me trying to feed you. I really care.
+- I know what it's like to be a teenager in Orange County. I know what it's like to be a kid in L.A. I know what it's like to not have any money and have your lights turned off. I know what it's like to live in a house with five rooms.
+- Korean food is primarily based on herbs and shoots and sprouts. There's no pasture land in Korea; we eat like Hobbits.
+- I've got a lot of experience under my belt, but I still have a very naive and idealistic outlook on life.
+- I'm a little old-school in that I think there's some value in the classics and the steps of achieving a certain profession. If we start slanging the word 'chef' on anybody and everybody who cooks, it takes away a lot.
+- I know all about Orange County.
+- I went to high school in Orange County.
+- I've lived through a lot of different neighborhoods.
+- I'm in a place where I feel comfortable not being a chef anymore. That's taboo in our industry. 'Chef' is supposed to be the ultimate end of the road.
+- You have to believe in something, and you have to believe in the things that you feel and find value in those things, and not be swayed all the time. Maybe you're gonna get swayed 90% of the time, to keep those things submerged, but you can't distrust yourself 100% of the time.
+- I was a latchkey kid, from 4 or 5 years old.
+- I've been through a lot of things in my life.
+- Chefs have always been leaders, but now, because of social media and the evolution of the chef identity, we have a voice that expands beyond cooking.
+- Even as a kid I wasn't, like, a natural entertainer, where I would gather everyone around me and then sing or something at family parties.
+- Cooking is one of the most zen things - you have to be there.
+- A lot of my friend's mothers and parents worked at Paramount Studios, so I would always go. I met the Fonz when I was really young, like four or five years old. I was always around people in entertainment all the time throughout my whole life.
+- Cooking is not a craft to get into for money. The money may come, or it may not. But you must get into it for the craft and the culture.
+- Pico Union is an underrated part of L.A., and not a lot of people go unless you live there.
+- I want to reshape fast food in America.
+- Why can I cook for tourists that come and visit L.A. and are so excited to see the Kogi truck? Because I cooked at country clubs and Embassy Suites hotels.
+- When you come out of the ocean after surfing all day, loco moco is the best thing you ever tasted.
+- What if every high-caliber chef told our investors that for every fancy restaurant we build, it would be a requirement to build one in the hood as well?
+- When you never see yourself in the mainstream format, you are stripped of the strength of your identity.
+- With public television, they're making things that aren't driven by advertisers. They're one of the only platforms where we can really mine for truth.
+- For us in Asia, fermented, bubbly, creamy things are just the norm.
+- I don't know if I'll ever be as good as I was when I started Kogi, but I strive for that.
+- A lot of times in television, you don't get the opportunity to show real life because we're brainwashed to believe the propaganda that these things aren't marketable, that these things don't sell.
+- Go out one day and treat yourself. Go out and have the best sushi you can find, or go to the best barista in your city and have just a cup of cappuccino, and tell yourself that you deserve this. I think that is very empowering.
+- I don't really do that much office work. I just go to the office, and I'm like Steve Carell in 'The Office.' You know, like, I just go around and like - I don't know what I do in the office. I look at paperwork and act like I'm understanding what's going on there, and I shake my head and put my hand on my chin and like, 'Hmm.'
+- I think that a lot of times, we all want to help each other and be a part of each other's lives. It's just - we don't allow ourselves into each other's lives.
+- Time is an illusion anyway. You can create as much time as you want.
+- I grew up on Julia Child, Paul Prudhomme, Sara Moulton - and obviously, Emeril's first show had a huge impact on my life.
+- If you look at my life, I wasn't just poor; I was rich and poor.
+- I really think I cook good Korean food. I really do, just straight up.
+- When I was around 25 years old, I lost everything and was a complete dirtbag.
+- Food trucks are an essential part of people's days. They are important to the fabric of feeding people, like hotel chefs cooking breakfasts or for weddings.
+- My parents worked and sold and hustled; they were gone from the morning, and I pretty much took care of myself. But in a Korean household, you're always eating with your family no matter what, and you're always cooking. And our food is not one you can just open a package and eat right away; a lot of our food takes time to develop.
+- Being a cook, there's always pressure - not for your ego but for people to love your food.
+- I translate Hawaii as a place where people make sure I'm having a great time, eating terrific food, without any expectation of anything in return. It's a place for people to be happy. It sounds corny, but in Hawaii, it's not; it's uncorny.
+- A-Frame was a real, pivotal moment because that's where I really got to channel a lot of emotions.
+- I have a tendency to trail off in conversations. I don't look up at people sometimes when I talk or cook, and those are all pretty bad no-no's being in front of the camera.
+- In mainstream media, everything gets turned into a stereotype of ourselves.
+- I'm just trying to cook good food, and I'm not afraid to do whatever I need to do to keep the food evolving.
+- I kind of feel for the vegetable world - the vegetarian world. It's almost as if people look at them like aliens or foreigners.
+- It's so easy to produce food, throw it away, and watch people starve. It's so hard to produce food mindfully and to feed and to reduce waste.
+- I was a salary man for so many years. I never had to worry about the ins and outs of business or entrepreneurship or funding. I just had to show up and do my job. And then, all of a sudden, I was having to be responsible for my own business.
+- There are certain foods that are somewhat sacred or you're not supposed to mess with. When you do mess with them, it touches a nerve where you have to compare it to the original, and then that thing you're creating has a loosing change right out of the gate.
+- Public television is a very important thing for our human race, and it allows us the ability to discuss the elephants in the room and understand stories beyond the headlines.
+- American barbecue is all slow and low, you know, or low and slow, as they say down in the South, in Texas. But Korean barbecue is thinner cuts of meat.
+- People think that being Korean is all one thing.
+- I have a fun side and a serious side.
+- I'll never be able to outlive Kogi. Kogi is a beast.
+- A-Frame became an expression of creating a place where everyone would feel comfortable, even if you were made to feel uncomfortable in restaurants before. It's a place where I explored my own insecurities as far as being mistreated in restaurants or being given the worst table.
+- I'm not a get-off-my-lawn guy. I embrace the new generation.
+- There is something timeless and beautiful about cooking straight to camera.
+- The Korean taco was a phenomenon... It just came out of us. We didn't really think about it.
+- The things that make Korean food delicious are garlic, ginger, soy sauce, sesame oil, chili powder, and chili paste. They make anything delicious.

@@ -1,0 +1,31 @@
++++
+author = "Cindy Sherman"
+title = "Cindy Sherman Quotes"
+quotes_len = "25"
+description = "the best 25 Cindy Sherman Quotes"
++++
+- As I was looking through a book about German Expressionist films and their stars, it all came together because of the extreme way actors made their faces up in those early day of film in order to pop out in the black-and-white. I just wanted to use makeup in the same way, partly perhaps because as women get older, they're told to wear less makeup.
+- My dad was such a bigot. He was a horrible, self-centred person. He was really racist and he'd talk about the Jews and blacks and Catholics even.
+- I didn't have any interest in traditional art.
+- Inconsiderate, rude behavior drives me nuts. And I guess the inconsiderate rudeness of social ineptitude definitely fuels my work.
+- I have had a lifelong fascination with horror movies, scary movies, how they work.
+- The more horrific works came out of a feeling that everyone accepted my stuff too easily. I was deliberately trying to be antagonistic towards collectors and critics.
+- I feel I'm anonymous in my work. When I look at the pictures, I never see myself; they aren't self-portraits. Sometimes I disappear.
+- I'm really just using the mirror to summon something I don't even know until I see it.
+- It is not like adding wrinkles to look older; it is using the wrinkles I already have to say something else. What is disturbing is not seeing more lines on my face but seeing that the range of possibilities of what I can do is much more limited.
+- I realised that in my last two bodies of work - the mural and the Chanel pieces - that I didn't use any make-up because I was changing the faces digitally, and I realised I missed make-up in a major way.
+- Everyone thinks these are self-portraits but they aren't meant to be. I just use myself as a model because I know I can push myself to extremes, make each shot as ugly or goofy or silly as possible.
+- I think people are more apt to believe photographs, especially if it's something fantastic. They're willing to be more gullible. Sometimes they want fantasy.
+- I want there to be hints of narrative everywhere in the image so that people can make up their own stories about them. But I don't want to have my own narrative and force it on to them.
+- I don't analyze what I'm doing. I've read convincing interpretations of my work, and sometimes I've noticed something that I wasn't aware of, but I think, at this point, people read into my work out of habit. Or I'm just very, very smart.
+- People assume that a self-portrait is narcissistic and you're trying to reveal something about yourself: fantasies or autobiographical information. In fact, none of my work is about me or my private life.
+- Every time you have to come up with a new body of work for a new show, you're aware that people are just ready to rip you apart, they're just waiting for you to fall or make the slightest trip up.
+- I'll see a photograph of a character and try to copy them on to my face. I think I'm really observant, and thinking how a person is put together, seeing them on the street and noticing subtle things about them that make them who they are.
+- The still must tease with the promise of a story the viewer of it itches to be told.
+- Quite often, I will do something and think, 'Oh, no, she looks a little too much like me.' I have tried to learn not to be afraid of that when that happens. I am not trying to obliterate myself and completely hide within the images like I used to.
+- I always need to get away from whatever it is I've just finished, to feel a distance from it.
+- I think I always resented the fact that people thought I was trying to entertain them with my multifaceted, chameleonlike character changes. Although I liked doing that, I wasn't out to fool people and say 'Guess which one is me.'
+- We're all products of what we want to project to the world. Even people who don't spend any time, or think they don't, on preparing themselves for the world out there - I think that ultimately they have for their whole lives groomed themselves to be a certain way, to present a face to the world.
+- I had to redo my last house after the pipes burst, and something was lost in the renovation. The soul of the old space was compromised.
+- I wanted pretty pictures of older women - women who are trying too hard but succeeding - pulling off an extreme look. What I didn't know would creep into the portraits was a vulnerability behind the strong facade that most of them wear.
+- People think because it's photography it's not worth as much, and because it's a woman artist, you're still not getting as much - there's still definitely that happening. I'm still really competitive when it comes to, I guess, the male painters and male artists. I still think that's really unfair.

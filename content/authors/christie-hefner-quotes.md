@@ -1,0 +1,104 @@
++++
+author = "Christie Hefner"
+title = "Christie Hefner Quotes"
+quotes_len = "98"
+description = "the best 98 Christie Hefner Quotes"
++++
+- Women would all be better off if we realized we didn't have to choose between being an intelligent being and a sexual being.
+- Before I went to work for 'Playboy,' I planned to apply to Yale to get a public policy master's. I felt drawn to go into politics. Even before that, my dream was to wind up either in the Senate or on the Supreme Court. I had big dreams as a little girl.
+- I have invested in the stock market since I was very young.
+- Being a CEO still means sitting across the table from big institutional investors and showing your leadership and having them believe in you.
+- Some, but much of my money is tied up in Playboy stock.
+- I don't think you can know too many smart people. I don't think you should ever stop meeting people.
+- I know what the attitudes of the readers are: These are guys who love women and respect women.
+- I believed deeply that digital was an empowering opportunity for Playboy, not a threat.
+- I'm motivated and driven, and I have been from a young age.
+- I came to Playboy not expecting to stay. But after five years, I found myself really enjoying the business world, and I realized I had some skill.
+- I had an allowance, but I had to do things around the house to earn it. I think I always wanted my own money.
+- I prefer tailored clothes. I always have. But I find that whatever I wear, people see it as charged with symbolic meaning.
+- I think this country is growing up a little bit.
+- My father has always enjoyed games... always with a combination of the fun and social side of it, but also always highly competitive.
+- I'm private because I want to be private.
+- It's so deeply disturbing to me that half of the eligible voters don't vote in this country. We talk about how divided the country is. The truth is, we don't even know. We just know what the half that voted thought.
+- I think of Chicago as a great entrepreneur city, a city that supports its own, that isn't as jaded as New York and L.A.
+- I experienced no conflict between my mother and father, which was entirely due to my mother's compassion, intelligence, and maturity.
+- Most people sell stock to pay taxes, but I didn't want to sell any stock.
+- I don't think about financial success as the measurement of my success.
+- If I wear a suit, as I generally do in the business world, it's supposed to mean I'm retreating from competition with the bunnies. If I wear a very glamorous romantic dress, as I'm very likely to do if I'm going out in the evening, then I'm supposed to be competing with the bunnies.
+- I'm surrounded by very powerful women and very progressive men.
+- In college, my big money memory was saving up to buy a car with my boyfriend, whom I lived with.
+- What's funny in Italy may not be funny in Spain.
+- I never thought I was going to go to work for my father's company.
+- We don't fight about money... I hate to see people fight about money.
+- The power of Playboy is its appeal around the world.
+- I'm not much of a 'road not taken' person.
+- I'm among the many Chicagoans who love to take advantage of the opportunity to dine outdoors in the summer months.
+- My father is not that comfortable with children, but he's a terrific father for an adult.
+- I expected to go into journalism or law.
+- Well, I grew up around the magazine and was part of a generation that was embracing our sexuality.
+- From the time that I can remember, I worked to make money - either baby-sitting, or one year wrapping gifts at a department store at Christmas, so I could have my own money.
+- When I first came to Playboy, I thought I would go on and do something else in a few years. But when the company got into trouble with political and regulatory challenges, I felt that I could really lead the turn around.
+- What you don't do is as important as what you do.
+- If you ever get to a point where you stop learning, you will find your professional options and your personal satisfaction severely curtailed.
+- I don't know what a world would be like if you do away with sexy images.
+- I think in terms of what I am able to accomplish and build.
+- I'd guess that 80 percent of the people who work for Playboy are feminists.
+- I think I've established my own identity here at Brandeis.
+- You can't delegate turning a company around.
+- It's embarrassing to be in the only westernized economy that doesn't have paid family leave and flex scheduling, and that disproportionately helps women.
+- I don't think 'Playboy' would have been successfully started on either coast.
+- I've always believed that you need to find interactive applications on the Internet.
+- I've lectured at the Harvard Business School several times.
+- No, I never thought about my father's money as my money.
+- I developed a great sense of self-confidence when I was very young.
+- I consider myself very fortunate to grow up in a time when my family, my friends don't look at me funny because I'm a 29-year-old single woman.
+- I've always believed about brands and media that the mistake sometimes that's made is to think you're just going to take what you've been doing and kind of re-purpose it into the new platform. I don't think that ever works because consumers look for different experiences in different media formats.
+- The very first stock I bought right out of college was Berkshire Hathaway.
+- I don't think the Playboy brand has changed much at all - it's always been sophisticated and aspirational.
+- Relationships between men and women have become much more complicated.
+- I freelanced for the 'Boston Phoenix.'
+- Actually, my parents were separated by the time I was about 2 years old.
+- The world changed on us. In a world where there were singles bars in every city, women weren't going to go out and hang out in a Playboy Club.
+- I would like to see both parties aggressively compete for the women's vote and talk about what they will do to unleash the economic power of women, to protect women's health, to provide the right policies that provide for real family stability and real family values.
+- Billy not only had a distinguished career in the Legislature, but he also has great business instincts and has done exceedingly well making investment decisions in both stocks and private ventures such as real estate.
+- It's mutual respect and love that are important, not a wedding.
+- Even though money seems such an objective topic, it can also be the most intimate, and possibly harmful, part of a relationship.
+- I never have to this day, because my money is the money I earn.
+- To me, saying you're not a feminist should be like saying you're a racist. It should be that politically unacceptable.
+- I've always believed that a goal in life is not to own a boat but have a friend with a boat.
+- I never intended to go into the family business. I've always been drawn to wanting to do something else at some time in my life.
+- Playboy's all about why it's worth working so hard.
+- Half of my employees are women.
+- I defend the right of almost everything to be published... because I think that you're better off in trusting the marketplace than allowing other people to make that decision.
+- It's difficult sometimes to, in effect, let go of how you're used to doing things and give the brand room to be reinvented.
+- I live the life I want to lead.
+- Honestly, in retrospect, it probably was a little easier being an adolescent and not having people immediately know that Hef was my dad.
+- I've had this conversation with friends who have had challenging relationships with one or another parent. The only thing I can say is what I feel: The other person isn't going to change. That is who they are.
+- You can learn more about leadership by reading about Lincoln than you can from most business books.
+- It's not unusual for someone running for Senate in Illinois to come see me.
+- My mantra is, I want to work with people that I like to hang out with, who are smart, where I can add value, that I think is an interesting space.
+- Hef is a man of the big picture. He is a creative force.
+- With someone who is genuinely abusive or a bad person, you should just get out of town. But if they're being the best person they know how to be, then you have to decide if there isn't much there you can love and not become consumed with what they're not able to give you.
+- I'm basically a gift-giver.
+- The people who relate to Playboy, both readers and people who produce it, are not the way the critics think they are.
+- I like dressing sexy, and I like having a good time.
+- But maybe because the dot-com world gives people positions at a younger age, and many women are prominent in this business, it will help change the view about who can run big companies.
+- I consider Playboy very wholesome, frankly.
+- It's important not to limit the amount of their own money that candidates can spend, but to give other people access to enough money to run competitive races.
+- Access to legitimate information and thoughtful analysis is the lifeblood of a democracy, the basis of which people make decisions about who they vote for and what they believe in. And if you're only getting half the story, that certainly doesn't lead to an informed citizenry.
+- I had higher math SATs than in English - yet I became an English major in college.
+- We should all miss bookstores. They let you discover things.
+- I didn't have the luxury of devoting myself entirely to not-for-profit activities.
+- Not only did I enjoy the creative side of Playboy and enjoy being surrounded by people who are curious about life, but I also love the analytical and hard business side of it.
+- We're fortunate in my family because we really have three families: my brother, David, and me; the two boys, Cooper and Marston, from my dad's second marriage; and my dad's wife, Crystal.
+- Try not to be either intimidated by or a captive of jargon. Even though it's language, and language is about communication, it often exists actually to obfuscate and to control power and not to communicate.
+- I think when you're on a visiting relationship rather than a living relationship, it's kind of hard to have impact as a parent.
+- I'd actually call myself pretty much a liberal. A progressive liberal. Because I do think that government is there to be a provider of services for people who cannot provide for themselves.
+- Part of brand management is what you don't do, not what you do.
+- While I have always had a good relationship with my father, much of the time it has been a very limited relationship until I was older. So you can't really give him credit or blame for how I turned out.
+- My mother thinks I could have even run a larger company.
+- In any endeavor, you have to understand your tolerance for risk. What's a failure you can afford?
+- Nightclubs are a small-revenue business that go through pretty fast popularity cycles.
+- I'm certainly proud of the transformation of Playboy from a magazine to a multimedia corporation.
+- I think in the '80s, we certainly wrestled with what was the role of 'Playboy Magazine' in a post-sexual revolution, post-feminist world.
+- Any brand that attempts to live off a retro appeal is only going through a short second life cycle.

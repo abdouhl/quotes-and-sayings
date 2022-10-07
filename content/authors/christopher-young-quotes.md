@@ -1,0 +1,20 @@
++++
+author = "Christopher Young"
+title = "Christopher Young Quotes"
+quotes_len = "14"
+description = "the best 14 Christopher Young Quotes"
++++
+- In horror movies, you can write music that if it was performed on the concert stage would have the audience running out of the room with their fingers in their ears. But in a movie, all of a sudden it becomes incredibly accessible and appreciated.
+- As a kid, I had a Beatles poster and a Bela Lugosi as Dracula poster, so both worlds always appealed to me. Horror allows you to do things as a composer than you're able to do in no other style of movie. The music has to be aggressive. You can't tiptoe around. It has to be incredibly focused dramatically - no time for second thoughts.
+- I don't think when I started off that I was expecting to become so specialized, but what happened is that when my career started, I didn't pick my first film. I was picked to do it, and it happened to be a horror film.
+- I've always had a fascination for everything surrounding things that are unexplainable. Not surprising that my first movie was a horror film, even though, of course, at the time I had no experience writing horror music.
+- 'Psycho' is probably the best known example of a horror film whose exclusive sound was strings, and since then, it's been hard to avoid that. The minute you have strings as your primary voice, the comparisons are always made.
+- I'm into horror pictures because I love the fear of being alone in the dark, and I'd recommend that to any composer who wants to work in this genre.
+- Writing in the electronic world, you imagine a sound, and then you have to go and find it. It's not like imagining a flute and then making that sound materialize. That's easy!
+- 'Sinister' is the first score I've done in which there's no orchestra in it whatsoever. There are traditional instruments I sampled, then manipulated, so you don't even recognize the source anymore.
+- I don't care how inventive you are; once you introduce strings into the ensemble for a horror film, you're entering into a world where a tradition has been thoroughly established. So it's repeated use over the years is like, 'Oh God, another film with strings, another spooky movie with strings.'
+- Film composers are the most prolific music makers on this planet, and most of us are, like, losing our minds if we're doing five or more movies in a year.
+- When I was younger, I'd make a point of driving to the middle of nowhere and spending an evening with just me, the wind, and the moon. Your skin crawls up an octave. This is what I tap into when I'm working on horror films. I'm just afraid a time will come when I lose touch with that part of myself.
+- Horror films are the ones that pay the bills, and historically, they have shown that they are good investments. They helped Universal survive with that initial splash of horror films in the 1930s and '40s. And horror films kept New Line alive with the 'A Nightmare on Elm Street' series.
+- People who work in horror know they are contributing to a genre that has always been loved and will always be loved - privately. It's the forbidden evil working behind the curtain. My job scoring a horror movie is like being the barker at a carnival. A good barker can get anyone to walk into the roped-off tent.
+- Usually when I am approached to do a score for a horror movie, it's to attempt a repeat performance of what I did way back on 'Hellraiser' or 'Jennifer 8' - one of those really orchestral scores.

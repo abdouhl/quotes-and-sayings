@@ -1,0 +1,116 @@
++++
+author = "Ricky Gervais"
+title = "Ricky Gervais Quotes"
+quotes_len = "110"
+description = "the best 110 Ricky Gervais Quotes"
++++
+- Science is constantly proved all the time. If we take something like any fiction, any holy book, and destroyed it, in a thousand years' time, that wouldn't come back just as it was. Whereas if we took every science book and every fact and destroyed them all, in a thousand years they'd all be back because all the same tests would be the same result.
+- I've been lucky enough to be able to choose exactly where I want to live.
+- I haven't had my teeth fixed, I haven't had a hair transplant. I haven't had a skin peel, tummy tuck. I've done literally nothing.
+- As an artist, you want as many people as possible to see your work with no interference. And usually, I've gone onto fringe channels: BBC Two, HBO, Channel 4.
+- When I was growing up, I didn't like cheese. I had to wean myself onto cheese.
+- If you spend your days doing what you love, it is impossible to fail. So I go about my days trying to bring something into the world that wasn't in the world before. And then everyone gets furious about it. And then I sit back and say, 'I did that!'
+- I like flying to New York from London. It's like a day off for me. No phone or e-mails. Food, wine, iPod, movies, snoozing.
+- Ego is hilarious - especially the vanity of a comedian. As soon as you see one start worrying about how cool he is or about how many stadiums he can fill, he stops being funny.
+- If I was a research scientist, I'd want people to say, 'You know what, he's a great research scientist, that Ricky Gervais. He's really good, really good.' You know, I'd go to award ceremonies for research scientists and go, 'Yeah, I really worked hard, yeah.' It's brilliant.
+- I think all art - even one as lowly as making jokes about celebrities - is there to make a connection.
+- To be fair to David Brent, he wants to be famous for doing something, for being a musician, but he's just not good enough.
+- Karl Pilkington has the roundest head, I think, in the world. It's not technically a deformity, but I've never seen anything quite that spherical.
+- I didn't know I was poor, growing up, because everyone was in the same boat. I couldn't have bikes. It never really bothered me, but I could have any book. I loved school; I loved learning. Yeah, I never cared for possessions. I still don't, really.
+- The second series is always my favourite as a writer/director; you can hit the ground running... so that's fun.
+- I'd never tried as hard with anything as I did with 'The Office,' and it was one of the things I'm proud of. I wasn't trying to be famous or a comedian, but this opportunity came along when I was 38 or 39. It came late, and I couldn't have been prouder of it.
+- Let's be honest here: Twitter, for me, is 90 per cent a marketing tool.
+- I think comedies should be short. I don't want to be self-indulgent; I don't want a two-hour comedy.
+- I'm a scientist at heart, so I know how important the truth is. However inconvenient, however unattractive, however embarrassing, however shocking, the truth is the truth, and wanting it not to be true doesn't change things.
+- I really just want to make Karl Pilkington the new messiah.
+- I was never ambitious. I was never ambitious at school.
+- I didn't like noisy cinemas when I wasn't famous.
+- Stephen Merchant looks like a Muppet. I mean, he looks like Beaker.
+- I was David Bowie-thin up to about 28, and then I discovered food.
+- People confuse the subject of the joke with the target of the joke, and they're very rarely the same.
+- I don't believe in ghosts or ESP or elves... or God. But I am spiritual in the sense that I get a lump in my throat when I listen to Vaughan Williams.
+- With the Internet era and social media and politics being so out there with the lies, now you've got people denying things they're on camera doing, and then you've got people not really caring about the truth. You've got people supporting people who've done horrific things, but just don't want the other side to get any satisfaction.
+- I'd much rather eat exactly what I want, and then burn it off, than diet.
+- Oh, let's face it: I hate everything in others.
+- The grass isn't always greener on the other side!
+- Why buy a book when you can join a library.
+- Making people laugh is easy for me. I'm quite proud of that. But I'm prouder of silencing an audience for a minute because they're thinking about something.
+- There are no Hollywood stars speaking out for the elderly. They're forgotten, bewildered, and I don't think it's because people are cruel or don't care. It's because you don't want to think about your own mortality. I think people don't talk about it enough.
+- All of my friends are oddities.
+- My dad was a laborer. And he used to get up at 5:30 every morning. He worked for 50 years of his life, in all weathers for, by showbiz standards, petty cash. I remind myself of that when I feel a little bit spoiled or hard done by.
+- You give up a lot being an atheist.
+- I think Dustin Hoffman has been in at least three of my favorite movies of all time with things like 'Tootsie,' 'Marathon Man.' Getting a bit more arthouse and darker, 'The Graduate' - incredible, barrier-breaking movie, 'The Graduate.'
+- I love 'The Godfather' and 'Casablanca' - great stories, acted well, made well.
+- Proper stupidity is fascinating.
+- Cynicism, to me, is trying to make people as unhappy as you are.
+- Free speech is one of the most important things to me, but I think it gets confusing when it comes to offense. Because for one, just because you have the right to say anything, it doesn't mean you have to.
+- I think Spielberg is a master. I think 'Jaws' invented a genre.
+- A couple of people I knew went to university apart from me, but all the way through I was the smartest kid in the school. That's luck, but I was proud of it. And I was also proud of doing well without trying. As you get older, and it took me a long time to realise it, that's a disgusting attitude, revolting.
+- I think you can make fun of anything except things people can't help. They can't help their race or their sex or their age, so you ridicule their pretension or their ego instead. You can ridicule ideas - ideas don't have feelings. You can ridicule an idea that someone holds without hurting them.
+- I don't care whether people say, ''The Office' is rubbish, 'Extras' is worse, 'Flanimals' is a waste of time. He's not funny; he never has been. I hate him.' I don't mind that at all. In fact, not only do I expect it, I celebrate it, because I think the haters are really important.
+- If I just cut out the food, I'd have a six-pack. I'd look like Matthew McConaughey.
+- When I go to work, I don't want to make depressing, gritty, urban stories that are depressing to watch. I want to give people something to enjoy. When people think I'm a control freak and an ogre - which I am - it's only because I want my work to be accessible and Everyman, in a way.
+- I don't know why other people are concerned about other people's lives that much.
+- My career, I look at it in a Darwinian framework. I'm going to do exactly what I want, and I'm going to survive, or I'm not. I'm not going to pander. I'm not going to change things. I'm not going to do focus groups. I'll live and die by the sword. I don't care. Because I couldn't live with myself.
+- Comedy is easy for me, but with drama, I don't know... it's still the Holy Grail.
+- Look, just tell me where that lemon came from and I'll shut up and go away.
+- I see my real job now as - never mind 'The Office,' 'Extras,' film career, Emmys - I want everyone in the world to know who Karl Pilkington is.
+- People now live their lives like an open wound to be famous - they do bad things because they're rewarded for it.
+- Humor is to get us over terrible things.
+- If I've only got a career if I bring David Brent back, you can have it.
+- When I see a headline 'Guess who's going out with who?' I don't guess, and I don't click.
+- Even I can't talk about myself for an hour.
+- There's nothing wrong with being respected by your peers. There's nothing wrong with trying to do your best. There's nothing wrong with success. There's not even anything wrong with trying to get a raise. There's nothing wrong with that.
+- Fame is an upshot of what I do. If you're a successful comedian or actor, then you're a famous one. But it's not the driving force. It's a by-product.
+- Everything I do is somehow rooted in humanity. It's always about people; it's always about ego. It's always about desperation. It's quite existential. You know, 'Am I leading a good life?' That might be because I'm an atheist, and I think this is all we've got, so you better be nice. And have fun.
+- I'm an optimist.
+- I've got re-addicted to normal people, which is the loveliest thing to write about.
+- You should make something. You should bring something into the world that wasn't in the world before. It doesn't matter what it is. It doesn't matter if it's a table or a film or gardening-everyone should create. You should do something, then sit back and say, 'I did that.'
+- I am not a wolf in sheep's clothing, I'm a wolf in wolf's clothing.
+- The great thing about being an artist is, we want our work to be seen.
+- Your reputation is still the most important thing that you've got.
+- I remember asking my mum when I was about 13, 'Why are my brothers and sister so much older than me?' And she just said, 'You were a mistake.' And I laughed.
+- I think I'm pretty self-aware.
+- I do the Golden Globes because they say I can say what I want. I wouldn't have that at the Oscars.
+- I don't know what Trump has to do to lose his supporters. It's like a religion. He's a school bully.
+- Stupidity without malice isn't horrible; some people can't help it.
+- Believe it or not, I work out regularly.
+- You can laugh at anything. It depends on the joke.
+- I don't do karaoke. I don't dance, even at weddings. I'm the grumpy one sitting down drinking wine.
+- I think being nice is more important than being clever.
+- With Netflix, I browse; I watch documentaries about things I'd never dream of, but I think, 'I might as well.'
+- The best script in the world doesn't work perfectly when you actually act it out. That's a law. That's a given. So you have to play with everything. And the more fun you have with it, the better the finished product.
+- I lift weights. Then I put them down again.
+- Luckily, even when people are shouting lies, the truth is undamaged. Science doesn't matter what you believe.
+- How many times have we seen reality celebrities fall from grace - often through no fault of their own - and then go on a show like 'Celebrity Big Brother' and say, 'I want to show the public a different side of me.' And I'm screaming at the telly going, 'This is not therapy. This is voyeurism!'
+- Honor is a gift a man gives himself. You can be as good as anyone that ever lived. If you can read, you can learn everything that anyone ever learned. But you've got to want it.
+- I am myself sometimes, and I do state my opinions, but not in a comedy routine and not in my character. There always has to be some sort of layer to it.
+- Even on the stage, I've played a bit of a persona, and the persona I played was a much brasher, more arrogant, less aware, less educated version of me.
+- I think our elderly are forgotten sometimes.
+- I'm a fan of the kind of political correctness that is about not promoting prejudice. But some people in America are offended by equality because when you've had privilege for so long, equality feels like oppression.
+- What makes 'Derek' a different kind of sitcom - if it is even a sitcom - is its sincerity.
+- You can be watching the greatest film in the world, and if you hear your neighbor getting into a fight, you're at the window.
+- I think it's important to hold a mirror up to society and yourself.
+- I don't do one-liners, because you don't learn anything about that comedian.
+- Pol Pot - he rounded up anybody he thought was intellectual and had them executed. And how he told someone was intellectual or not was whether they wore glasses. If they're that clever, take them off when they see him coming!
+- That's the buzz for me, the creative process. An idea is never as good as when it's in your head. And then it's just how little you ruin it.
+- I love UFC, vigilante films, and any acts of merciless heroism.
+- I stand by 'I'm not going to do 'The Office' again.' That would be weird: all the same people sitting at the same desks at a paper merchant's in Slough.
+- Sometimes being old is used as an insult, which is bizarre because, if you're lucky, that's literally going to happen to you. It's a strange thing to gloat about: being born recently.
+- I don't mind what people say about me as long as it's an opinion or the truth. If someone says, 'He's the worst comedian in the world,' that's fine. If someone says, 'His face makes me want to punch the TV,' that's fine. But if they say, 'Oh, and I know for a fact he hunts squirrels,' I go: no, no, no... that's a lie.
+- I'm influenced by those '40s, '50s, and '60s films: things like 'The Apartment' - I was a big fan of Billy Wilder.
+- I could always take a joke. I could always be the butt of the joke. I could always hand it out. That was just who I was.
+- I was very protective of my privacy. I didn't want people to write bad things about me that weren't true, because that's just not fair. Fifty percent of everything written about me is wrong.
+- I like grown-up comedy, where it's about character and attitude and life as opposed to obvious gross-out and jokes.
+- I'm a fang-toothed, blob-nosed, slouchy slob.
+- I find comedy easy, and I find drama exciting and tantalising.
+- The only thing that really depresses me is animal cruelty.
+- When I was about to be famous, I feared it on a few levels. I feared it because I didn't want people to lump me in with those people who'd do anything to be famous. I didn't like the word 'celebrity.' I feared intrusion, you know? Make me famous, and suddenly you can go through my trash bins.
+- I've avoided doing a network comedy, because I wouldn't get my own way. Even though it would get more viewers, it wouldn't be mine.
+- I like the ironic pomposity of a stand-up comedian. Like all those comedians thinking they can bring down Coca-Cola. They forget to be funny.
+- I always do a little bit of improv. I did some of 'The Office,' a tiny bit in 'Extras,' a bit more in 'Derek.'
+- Where there's a will - there's a relative!
+- There's no difference between fame and infamy now. There's a new school of professional famous people that don't do anything. They don't create anything.
+- I don't like it when I see a racist comedian go up and say, 'What are we gonna do about all these immigrants?' and they get a round the applause. I think, 'Well that's not a joke. That's just your biased opinion.'
+- It's funny because I was offered film parts the first week after 'The Office' went out. I was sent a script, and I said, 'Who's the lead?' They said, 'We want you to be.' And I said: 'Well, who's going to go and see that? You want John Cusack.'
+- I wanted to be clever, but being funny came first. That's how you know someone is clever. They don't come out and tell you pi to 13 places - they tell you a joke.

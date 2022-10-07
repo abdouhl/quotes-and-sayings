@@ -1,0 +1,20 @@
++++
+author = "Lee Hye-Ri"
+title = "Lee Hye-Ri Quotes"
+quotes_len = "14"
+description = "the best 14 Lee Hye-Ri Quotes"
++++
+- Many people say that my positive energy lights up the room, but I think it's the people around me who give me strength.
+- I love gifts.
+- Actually, Jang Ki Yong and I have completely opposite personalities.
+- Most gumihos are scary beings in ghost stories.
+- A manager's job is really tough - you have so little time, but so much to do.
+- Deok Sun, like me, is learning about the world every day, but not through books.
+- I rarely shared my personal life or what I'm like off camera.
+- I went through much deliberation on choosing my next TV role after 'Reply 1988.'
+- Honestly, I thought I had a lot of similarities to Lee Dam, but when I looked closely, we were actually quite different. There were some things I didn't know about younger people these days.
+- I fully immersed myself in the character Sun-sim in 'Miss Lee.'
+- I like that the two roles are similar yet so different at the same time. Geu Rin comes from a broken family and has to pick up the broken pieces in order to move forward. There's some kind of sadness in her. Deok Sun, on the other hand, is just very cheerful. The word I would use to describe her is naive. She is young and free.
+- I find it difficult to portray something I've never experienced before. For the character I played in 'Miss Lee,' I had to ask friends and staff members what it was like to be a low-level employee as I've never been one myself.
+- I'm trying to differentiate Geurin from Deokseon. At first glance, the two may seem similar because both are outgoing. But as a person who knows Deokseon pretty well, I am confident that I can eliminate her specter in Geurin's character.
+- Lee Dam is a character who expresses her feelings honestly. I thought we had a lot in common and I've always wanted to play a confident character like her.

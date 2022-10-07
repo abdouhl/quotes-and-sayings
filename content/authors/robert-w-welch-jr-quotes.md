@@ -1,0 +1,28 @@
++++
+author = "Robert W. Welch, Jr."
+title = "Robert W. Welch, Jr. Quotes"
+quotes_len = "22"
+description = "the best 22 Robert W. Welch, Jr. Quotes"
++++
+- The responsibilities which are imposed by rank and privilege and good fortune can... become very onerous indeed.
+- Neither facts nor pictures seem to sink into our centers of feeling any more.
+- We have seen a central government taking more and more control over public education, over communications, over transportation, over every detail of our daily lives.
+- In the best days of our republic Americans were fiercely proud of the fact that rich and poor met on such equal terms in so many ways, and without the slightest trace of hostility.
+- All alone in a committee room of the Senate Office Building in Washington, I was reading the dry typewritten pages in an unpublished report of an almost forgotten congressional committee hearing.
+- In a democracy there is a centralization of governmental power in a simple majority.
+- In our Constitution governmental power is divided among three separate branches of the national government, three separate branches of State governments, and the peoples of the several States.
+- It was under Wilson, of course, that the first huge parts of the Marxist program, such as the progressive income tax, were incorporated into the American system.
+- Newspapers write ringing editorials declaring that this is and always was a democracy.
+- There is no question but that the laws and principles which Solon laid down both foreshadowed and prepared the way for all republics of later ages, including our own.
+- The difference is that for a soundly conceived and solidly endowed republic it takes a great deal longer for those seeds to germinate and the plants to grow.
+- The American Republic was bound - is still bound - to follow in the centuries to come the same course to destruction as did Rome.
+- The whole country is one vast insane asylum and they're letting the worst patients run the place.
+- And it was under Wilson that the first great propaganda slogan was coined and emblazoned everywhere, to make Americans start thinking favorably of democracies and forget that we had a republic.
+- For not only every democracy, but certainly every republic, bears within itself the seeds of its own destruction.
+- We have seen a central government promote the power of labor-union bosses, and in turn be supported by that power, until it has become entirely too much a government of and for one class, which is exactly what our Founding Fathers wanted most to prevent.
+- In summary, the Romans were opposed to tyranny in any form; and the feature of government to which they gave the most thought was an elaborate system of checks and balances.
+- The word democracy comes from the Greek and means, literally, government by the people.
+- And for well over a hundred years our politicians, statesmen, and people remembered that this was a republic, not a democracy, and knew what they meant when they made that distinction.
+- For in the first place the American people could not have been swept too fast and too far in this movement without enough alarms being sounded to be heard and heeded.
+- For, quite literally, the whole world today is looking for us to take the lead in carrying out those obligations imposed on the American people as a whole by the beautiful, compassionate and courageous principle of noblesse oblige.
+- In the Constitution of the American Republic there was a deliberate and very extensive and emphatic division of governmental power for the very purpose of preventing unbridled majority rule.

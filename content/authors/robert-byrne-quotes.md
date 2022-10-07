@@ -1,0 +1,32 @@
++++
+author = "Robert Byrne"
+title = "Robert Byrne Quotes"
+quotes_len = "26"
+description = "the best 26 Robert Byrne Quotes"
++++
+- Getting caught is the mother of invention.
+- There is money to be made giving trick-shot shows at schools, clubs, tournaments, and even shopping centers. Pool shows on television almost always include a few fancy shots.
+- Prejudices save time.
+- There are two kinds of people, those who finish what they start and so on.
+- Once-dominant games like straight pool and three-cushion billiards have lost ground to eight-ball - the game of choice for millions of tavern league players - and nine-ball, the preeminent tournament game.
+- Petty thievery is a more profitable job than pool hustling, which it resembles, requires far less talent and training, and is equally devoid of promise.
+- Until you walk a mile in another man's moccasins you can't imagine the smell.
+- To apply spin with security, you must learn to make a snug bridge with your forefinger looped over the cue. When you hit the cueball, follow straight through; don't let your cue rise in the air after impact.
+- The purpose of life is a life of purpose.
+- Doing a thing well is often a waste of time.
+- Partying is such sweet sorrow.
+- To err is human, to purr feline.
+- Winter is nature's way of saying, 'Up yours.'
+- One reason people get divorced is that they run out of gift ideas.
+- Anybody who believes that the way to a man's heart is through his stomach flunked geography.
+- Democracy is being allowed to vote for the candidate you dislike least.
+- A game is great, in my view, only if it can be played happily by a sane person of at least average intelligence for several hours a day for fifty years. Both pool and billiards qualify.
+- Everything is in a state of flux, including the status quo.
+- No one ever committed suicide while reading a good book, but many have tried while trying to write one.
+- Learning to dislike children at an early age saves a lot of expense and aggravation later in life.
+- Memorial Service: Farewell party for someone who already left.
+- Byrne's Law: In any electrical circuit, appliances and wiring will burn out to protect fuses.
+- If you know a good player who is tempted by pool hustling, introduce him at once to a career guidance counselor, a psychotherapist, or a surgeon who does lobotomies.
+- It's easy to make a cue last a lifetime. Don't boil it or freeze it in the trunk of a car. Don't lean it against a wall for years. If you lose a game to a complete idiot, hit the edge of the table in anger with something other than your cue.
+- If the numbers keep mounting, newspapers will eventually have to admit that pool exists and give it some coverage.
+- A promising young man should go into politics so that he can go on promising for the rest of his life.

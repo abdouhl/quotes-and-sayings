@@ -1,0 +1,21 @@
++++
+author = "Cherie Currie"
+title = "Cherie Currie Quotes"
+quotes_len = "15"
+description = "the best 15 Cherie Currie Quotes"
++++
+- Punk hadn't even begun when The Runaways started, at least not in the US. We had our own sound, straight up glam rock.
+- Neal Shusterman is a phenomenal writer, he's known for his young-adult books.
+- Little did I know how much the Runaways had influenced so many people.
+- I went on to become a drug counselor and then I became a mother, which is the biggest gift I've ever had.
+- I met Joan Jett and Kim Fowley in a club, and all of a sudden this amazing offer comes to me. I'm thinking 'This is all I want to do.' I jumped at the chance.
+- My life has always seemed to move at a fast pace.
+- I wouldn't change a thing except I wish we could have got back together. That's my only regret... Being in the Runaways, we were trailblazers, we changed a lot of people's perspectives on what they could or could not do as females.
+- Well, chainsaw art is when you pick up a log and carve a mermaid or a dolphin or dogs or bears or whatever. I saw some people doing it in Malibu in the early '90s and I couldn't get it out of my head.
+- Would I ever recommend anyone working with Kim Fowley? No. But I feel that The Runaways would never have happened without Kim's tough love, which also brought about the demise of the group.
+- I thought the Runaways always got brushed under the rug. The Go-Go's, at least they always gave us credit.
+- I made a record with my sister, which was a mistake. I didn't listen to that voice in my heart that said, 'This isn't right.' I went ahead and did it anyway. It was a mistake, and so it failed.
+- I couldn't even listen to The Runaways' music for about 20 years.
+- We got such abuse on a daily basis. They were trying to harden us to the reality of the rock'n'roll world but how could we possibly know this wasn't the way it was supposed to be?
+- I never get tired of doing those Runaways songs. My mind is still that young girl up on stage, only a lot wiser. I really enjoy it.
+- I had just been to the David Bowie Diamond Dogs concert, and I kid you not: When I watched him onstage, a lightning bolt came out of the sky and zapped me. I knew at that moment, that's what I wanted to do with my life. It was my calling.

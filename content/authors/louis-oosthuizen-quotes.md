@@ -1,0 +1,21 @@
++++
+author = "Louis Oosthuizen"
+title = "Louis Oosthuizen Quotes"
+quotes_len = "15"
+description = "the best 15 Louis Oosthuizen Quotes"
++++
+- I like it when it's nice and quiet. I'm not a big city person.
+- I usually have a few coins in my pocket when I'm playing, but the one I use to mark my ball on the green is a special silver coin that my wife designed for me. It has our wedding date inscribed on it.
+- I grew up in Mossel Bay in South Africa on the Garden Route. It's really windy there, and I like it. I enjoy links golf a lot.
+- My putting strategy is simple: If you're not making putts, don't be afraid to change your technique.
+- I just go out there and play the game; I get on with things. Golf is not everything in life.
+- You have to be sharp with all aspects of your game at Augusta. You need to put yourself in the best spot off the tee and hit the longest drive you can, but I think this is really a second-shot course. If you leave yourself with an awkward putt on the greens, it can be very tricky here.
+- Whenever I have a little time off, I try to go back to my farm in South Africa. I'll spend time with my family and hunt antelope, kudu and springbok. During a 2010 hunting trip, I tore some ligaments in my ankle when I stepped in a hole.
+- I like the course, the history - everything about St. Andrews.
+- I just enjoy playing in wind, grew up in it, and it makes the golf a bit more fun.
+- It's the gap in the teeth. My friends say I look like Shrek - some of my friends - and you can't choose your friends, so what can I say?
+- Sometimes my backswing gets long, and I get in bad positions. The club also can get behind me coming down, so I have to flip my hands to catch up to my body.
+- I pay attention to the sun. I've worn sunglasses while I play, for years, and apply sunscreen. No matter where I'm playing, there's a rain suit in my bag, too.
+- You've got so much confidence if you start making big putts because you know you just need to hit the greens, and you've got yourself a good opportunity for the birdies.
+- On the practice green, I hit a lot of four-footers with my right hand only. But whatever grip I'm using, you can bet I'm feeling good about it. Otherwise, I'd change. That's how I avoid slumps.
+- I never try to set goals that I know are too tough to achieve or out of my reach.

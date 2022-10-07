@@ -1,0 +1,99 @@
++++
+author = "Filippo Inzaghi"
+title = "Filippo Inzaghi Quotes"
+quotes_len = "93"
+description = "the best 93 Filippo Inzaghi Quotes"
++++
+- I always choose for the good of the team.
+- My team mates are fundamental for my characteristics, if they send in crosses I can play inside the area.
+- I love it at the San Siro.
+- In fact, the sense of positioning, anticipation, is something very natural. I always knew where the ball was going to drop.
+- It's difficult to take in but my relationship with Milan is special.
+- I will always forgive a technical error, but I will never forgive the wrong attitude.
+- Sometimes I play, sometimes I don't, when I'm given the chance I try to be ready.
+- I miss everything. The field, the dressing room, the training. I miss San Siro. But I was lucky enough to experience good feelings as a player.
+- 150 goals? It's nice.
+- I always want to improve.
+- Overall I have always had my chances to play at Milan and I never thought about leaving.
+- I am very happy to coach AC Milan, it's a very big opportunity for me because Milan is the club of my life.
+- I have always said that playing against Allegri's sides was difficult because he is a very organised tactician. His players always know what their role is on the field.
+- I had a great time at Juventus, I have won a lot and I have scored a lot.
+- I have a great relationship with Conte.
+- Milan have faith in the man as well as in the player. They know that I will never be a burden to them.
+- If you don't score for a few games at Juve you are immediately under scrutiny.
+- I've scored five goals in the most important three finals, and we won all of them.
+- Racism at the stadium should be ignored, it is not right that this minority are given so much attention.
+- I have to say that clubs like Piacenza, Atalanta, and Parma always call me, they make me feel important. Probably they also appreciated me as a man, not just as a player. But after everything I've experienced with the Rossoneri's shirt, I think it's right that I end my career at Milan.
+- I cannot see Kaka wearing another jersey. He is loved by everyone here and he adores the environment at Milan.
+- I live to knock the ball into the back of the net.
+- Without doubt the striker who resembles me the most is Alberto Gilardino, but also Paloschi.
+- I have the best job in the world. I think that's what the younger players need to learn.
+- My secret is passion.
+- I have the best job in the world.
+- I want to end my career at Milan.
+- My dream is to be with AC Milan - I just hope to put them back on top.
+- Milan's fans follow me with great affection.
+- I think for a coach the most important thing is to have the players on your side.
+- It is best to keep a substitution open for the final 15 minutes, as you never know if you are going to lose someone to injury and be left with 10 men.
+- I read criticism that I change the starting XI a lot, but I cannot play injured players.
+- Pirlo is an irreplaceable player.
+- I am ambitious.
+- It would have been a shame not to reach 300 appearances with Milan, after 12 years as a Rossonero and 126 goals.
+- Both were wonderful experiences, but I've always said the Champions League campaign where I was most important was 2003. However, the one the fans remember is 2007, which shows how important goals in a final are.
+- All the affection I feel around me helps me to keep working harder.
+- I didn't have everything served to me on a silver platter during my career; unfair criticism helped me.
+- Maybe that's my only remorse, not having played more alongside Ibrahmovic towards the end of my career with Milan. We had an incredible feeling - he was delighted when I scored and I think we were made to play together and be a strike partnership.
+- If you are not born a Ronaldo or a Kaka, you can still become a great player through commitment, serenity, perseverance, loving what you do.
+- I am very proud to be playing for Milan. It's always a privilege for me.
+- I prepare everything in the tiniest detail. My diet, how I train. This has been my secret.
+- Anyone who works makes mistakes and if you don't work, you never make mistakes.
+- A footballer must quit at the right time.
+- When there is a respect, it is much easier to accept the coach's decisions.
+- I have always said that to remain at a certain level we must always give our all.
+- I had some misunderstandings with Allegri but they have been cleared up.
+- When a big club takes the lead at home, then they cannot let it slip and be turned over.
+- When you're a kid your dream is to be decisive in a Champions League final, and I managed to do that.
+- When a player leaves, it means all the parties involved took this decision.
+- It's true that after spending as long as I have at the highest level, a number of injuries have nearly wrecked my career along the way.
+- I consider myself lucky because I've had the possibility in life to do the one thing closest to my heart: playing football. I've also been lucky enough to win prestigious trophies like two Champions Leagues and other competitions with Milan.
+- Carlo Ancelotti is a role model for me.
+- I look back on my career with pleasure.
+- It was very difficult in 2007. I was out for a long time after an ankle operation in Antwerp, then when I returned, I was not at my best, of course.
+- We're Milan and we're not afraid of anyone.
+- I want to thank Milan because the most beautiful years of my life were spent wearing that shirt.
+- Whatever Milan tell me to do, I will do.
+- Who doesn't fight cannot play for my Milan.
+- I've scored quite a few times in Europe, but scoring in the Champions League final is something special.
+- What can you say about Carlo Ancelotti? I talk to him regularly and he made history for Milan.
+- At Milanello there isn't a particular atmosphere, we just want to do well.
+- My mother knows how to cook for me. If I lived abroad, I couldn't enjoy her meals.
+- Balotelli is an asset for Italian football.
+- After all the good years in the kit, I hope to close my career with Milan.
+- As a player, I started in Serie C and got to the top of Europe and the world.
+- On a personal level I would like to reach Gerd Muller's European goal record.
+- Life is made of cycles.
+- When I won I always was part of a real team with real men and a real coach.
+- You can learn from every match.
+- From every coach that has coached me I have learnt something.
+- The toughest defenders I've faced are Alessandro Nesta, Paolo Maldini, Ivan Cordoba, Ciro Ferrara and Walter Samuel.
+- It is not easy to play three games in a week.
+- No player is happy when he is substituted, I would be worried if it was the opposite.
+- It makes me proud if my players are called up the national team.
+- Of course, I want to try and overtake the record of goals scored in European cups with the Rossoneri shirt.
+- I cried when I won but never when I lost.
+- Each of us has something which is our own and which only you yourself can pass on to others.
+- It's fine by me, even if I score with my hand.
+- Who would not be emotional about everything that's been written about me?
+- A derby is different, it is not to be played, it is to be won!
+- It does not get better than scoring in a Champions League final.
+- A good coach is one who realises what he could have done better, and when you lose, it's the responsibility of the coach.
+- Soccer is my life.
+- Everybody's going to be watching us, but I hope to lead Venezia into Serie A.
+- AC Milan are my top priority and I will never cause any problems for this team.
+- My dream is to stay at AC Milan for my entire career.
+- As a footballer I think your own history speaks for itself.
+- I've always thought that the best answers you can give are answers on the pitch, and I hope to continue doing just that, which is the most important thing.
+- He is better than me in everything. I can only learn from Simone: he is a modern coach and seeing his Lazio side is a spectacle.
+- What is the most important moment in my career? The Champions League final played in Athens in 2007 when I netted a double.
+- I know the respect Mourinho has for me.
+- With Cristiano Ronaldo, who is the best player in the world, Juventus are the best team in Europe or at least one of the best teams.

@@ -1,0 +1,106 @@
++++
+author = "Black Thought"
+title = "Black Thought Quotes"
+quotes_len = "100"
+description = "the best 100 Black Thought Quotes"
++++
+- I'm anti-ageism in the arts.
+- Questlove and I - we were in high school with artists like Boyz II Men and Amel Larrieux.
+- We record in the spirit of the Berry Gordy camp and Gamble & Huff, where people were writing up to a dozen quality songs within a day because the competition was that hard.
+- The Tonight Show' afforded us the opportunity to work with The Muppets and other 'Sesame Street' characters, and we always had the desire to do something that spoke to young people.
+- Philly DJs sort of always won battles and always won awards and stuff like that and were always super sharp.
+- So in my personal opinion, I definitely feel like I'm a legendary emcee, and I also feel like we're a legendary brand, which is why I started rebranding ourselves years ago by saying 'The Legendary Roots Crew,' which is how we're introduced on 'The Tonight Show.'
+- I feel like I've been around for such a long time, as a writer and as an artist, that I need to sort of speak to the way that my perception of the world has sort of changed.
+- Some of my favorites are the classics like 'What They Do,' 'Proceed,' 'You Got Me,' and 'Silent Treatment.'
+- The difference between a Black Thought album and a Roots album is the texture, the instrumentation.
+- What we were doing was alien in '92. We were less than immediately accepted by our fans and peers.
+- The thing that's carried over from my visual-art education into what I do musically is my openness.
+- There are some millennial artists that I totally get and understand, and I know what they're talking about. People who I've worked with and who I'd like to work with. But there's a whole element of artists that I can't explain what they're talking about.
+- The Roots brand is like the Lipton of hip-hop, so to speak.
+- We don't try to please everyone. Those older fans who expect something from The Roots are a tad more important to me than getting new fans.
+- For some music, lyrically, the best move is to keep it simple in what it is that you are saying, and just kind of come across in your rhythm and the way that you lock in on the music.
+- When I was coming up, a freestyle wasn't a freestyle unless everything was completely improvised, in-the-moment and right there, and you had to incorporate various elements of what was going on in the room on the day.
+- We usually overrecord. Then we boil it down to the cream of the cream.
+- For me, I'm a super private person.
+- I don't know that Dilla was the father of neo-soul as much as he was highly influential in that time when he was doing what he was doing at his best... Dilla's influence transcended genre and it transcended region.
+- It's weird what can trigger the beginning of a song or some bars. It can be a banging slice of apple pie or it can be smelling a certain perfume or something.
+- I'll read a book. I'll watch a documentary or a film or whatever. I'll go to an art exhibit and just try and open myself to influence.
+- I'm not driven by the spotlight and I'm not that outgoing.
+- 'Rise Up' is very necessary. Point blank.
+- It felt like a huge weight had been lifted off my shoulders the day I finally finished both verses for 'My Shot.'
+- I grew up in Mount Airy, a middle-class enclave in the Northwestern area of Philadelphia.
+- We're trying to plug a void and bring what's been missing back to hip-hop.
+- I want to be at the top of my game.
+- I think at the end of the day the diversity has served as a major... that's what has determined the difference between The Roots and some of the other artists from our graduating class. I feel we followed the De La Soul, the Native Tongue blueprint.
+- You can always hear me breathing during my verses, but that breathing becomes part of the music.
+- I got a family to take care of and kids to feed. That's my motivation, this is my job.
+- Lots of people are saying that I shut down mumble rap in one 10-minute setting. But that wasn't my intention, because mumble rap - if we go back - that's something I invented.
+- There probably won't be an animated The Roots or Black Thought as there was, say, an animated Michael Jackson when 'The Jackson 5' cartoon show was on when we were kids.
+- I give back because that is what I was taught and it is what I believe.
+- Passyunk Productions is our film & tv production company. The name comes from a street in Philly, Passyunk Avenue, where the concept of The Roots was born, as Ahmir and I started out busking on the corner of 5th & Passyunk back in the early '90s.
+- I think we need more community health programs and we need to develop programs that are low-cost.
+- I think we could really play the Olympics.
+- I've never studied music.
+- Although there are people who regard 'Do You Want More?!!!??!' as our first major release, I think 'Things Fall Apart' was the real arrival of The Roots, so to speak.
+- A lot of our earlier material was freestyle tunes.
+- I started as a visual artist and I've always dealt with music in that same sort of way.
+- I don't sit down and write a song, and then slam down the phone like, 'We got another one!' and pop some champagne. It's like if someone's writing a novel: You write a series of drafts.
+- Anyone that I've ever worked with, it's not like I just meet you or someone throws us together for the sole purpose of coming up with a song that's gonna be a hit. I have to have some sort of relationship, or we had to have interacted on some other sort of level and that's when it feels most natural.
+- The most profound memory I have from my childhood is burning down my house at 6 years old.
+- I love Trader Joe's.
+- I feel like the youthful experience is what drives the creativity, and I feel like experience and maturity as an adult, experience as an elder statesman, that refines it.
+- As we get further into our career we're figuring out how to become more efficient as artists, and doing so many different things is testament to our cohesiveness as the Roots.
+- Something that is funny, that I use sometimes if I'm doing comedy, is the fact that I'm now often mistaken for the rapper Rick Ross. And I don't know that I've ever corrected anyone - like I've never said, 'No no, I'm not Rick Ross, I'm Black Thought from The Roots.'
+- I used to be a Def Jam artist. I was - I survived Def Jam.
+- I remember when I was 15 or 16 years old, I couldn't imagine what life would be like past the age of 30, just because I didn't know that many men who had lived beyond their 20s.
+- I like to say hip-hop was born when I was in my mother's womb.
+- I think the true artist - musician, dancer, writer, actor - a true artist is able to sort of articulate pain and tragedy, in a way that sort of expresses what the listener or the beholder may have been feeling but was less able to communicate.
+- I miss being out on the road.
+- The Evolution of Greatness' was an amazing experience, and it's something that we hope to have been a steppingstone for us to come back and not only do more NBA All-Star performances, but do halftime performances at events like the Super Bowl.
+- To be in a band with the other founding members that never sleep is inspiring. Questlove put out five books a year and deejays every night and still do the same day job that I do, only with more responsibility. It drives me to find a way to juggle it.
+- I was raised as a Muslim.
+- I grew up in the neighborhood where 'Rocky' came from.
+- When people see that we're signed to Def Jam, the perception has changed.
+- I definitely enjoy performing on stage with The Roots.
+- For me, the arts has always been sort of my saving grace.
+- My children have a world of opportunities that were not available to me. My kids have no idea about going without - there's no desire or need they have that hasn't been fulfilled, which is a blessing.
+- I feel like visual art, the culinary arts, the theatrical arts - the medium changes, the tools that you use to tell whatever the story changes, but you're still all telling stories.
+- If there's a track that's rhyme friendly, the verse will basically write itself. If the track is less rhyme friendly, you have to put forth a little more effort to get the song out.
+- I'm down to work with anyone as long as it's an organic collaboration.
+- I'm in great company and some may say that the underexposure has added to my allure and the staying power of me as a MC and The Roots as a band.
+- The Roots want to dip our toes into everything in the arts.
+- Commercial success won't come to us from a change in the music. It will gradually be the result of a change in the appetite of the audience.
+- You are an instrument if you understand your voice and how to use it - this sound, that sound and certain ranges and different pitch. Within that I try to find a rhythm and play the voice as if it was a horn.
+- I'm tryin' to get some acting credibility, get some other work.
+- By the time I was, you know, 16 years old, I had done a lot of growing up.
+- There's a lot of terms we come up with for the music that we're making because we want something that's going to be definitive. Often there is no word to encapsulate the emotion that the music represents.
+- I strive for improvement. want to be a master of my craft.
+- What we do every day onstage, there's lights, there's lots of other musicians, there's an audience, there's a microphone and mic stands - layers of the onion we have to kind of hide behind.
+- Don't do anything for fear, because fear will never do anything for you.
+- The first rhymes I wrote, I was 9. It was Kool Moe Dee-style.
+- If hip-hop is dead, then let it rest in peace and let's move on to something else.
+- I like that the hard-core ruffians, the street thugs come up to me and say, 'Man, you killed it with Adele.'
+- You can't expect every idea of yours to stick or even come to fruition, you have to make sacrifices for the greater good of the team.
+- At this point, in 2008, if you put out a book, a movie, or write a verse, paint a painting, it should have some sort of social value.
+- You can only be the great artist for so long - come out with effort after effort that garners all this praise.
+- Everything we've ever done has been for artistry's sake, and for the greater good and paying homage to those who came before us and paving the way for those who come after us.
+- I mean, I'm no superhero.
+- To me I think leadership is activism. It's giving back to your community, it's investing in oneself, and you know women and children.
+- Everything I do has been a lifetime in the making.
+- We've always been a band that intentionally transcended race and age.
+- We've been branded 'the thinking man's hip-hop.' So the music's got to have some level of maturity.
+- I've become a functioning cog in the machine called The Roots, but in my youth I was comin' from a more braggadocious, egotistical perspective.
+- Nah, I don't feel overlooked, underappreciated, or none of that because it's a short list of artists, past and present, that I kind of have respect for. And in all of those situations, the admiration and respect is mutual.
+- I made the mistake of going to a barber who was not from Philly, and let's just say, I would never do that again.
+- In a lot of places Jay-Z is considered God, Philly, our hometown being one of them.
+- I move in silence. I don't like puttin' too much of me out there to be dissected, analyzed.
+- I've always sort of listened to news radio.
+- Our plan for Passyunk Productions is to make an impact in the film & tv world by leveraging our collective resources, telling great stories and creating smart programming told from a unique perspective.
+- I do not seem like a funny guy.
+- The Roots - we signed our first record deal when I was about 19 years old.
+- We always do kinda like the bare bones representation or variation of the voice and drums, which is what we feel is the foundation or backbone of rapping and hip hop.
+- I feel like Black Thought is a name that has so much meaning and depth, not only to me but to my fans, that it's something that I wanted to hold onto a little bit tighter.
+- I think poor folks are the only people who cannot afford - financially and otherwise - to be sick.
+- The Roots are well-respected and considered vanguards in the music.
+- We are true to our name. We're somewhat beneath the surface, and I think well always be to a certain extent.
+- I work well within The Roots because I can let my music speak for itself while Ahmir does most of the press and the promotion and the brand-building because he enjoys that.

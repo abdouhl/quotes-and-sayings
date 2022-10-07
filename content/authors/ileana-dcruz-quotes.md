@@ -1,0 +1,105 @@
++++
+author = "Ileana D'Cruz"
+title = "Ileana D'Cruz Quotes"
+quotes_len = "99"
+description = "the best 99 Ileana D'Cruz Quotes"
++++
+- I am very critical about the way I look.
+- When I see myself on screen, I am always looking at the bad bits and finding fault in something or the other.
+- I'm happy I'm doing films at a slow pace rather than doing anything and everything.
+- If you are visible in the whole film, but there is no depth in your role, then the role is not significant.
+- I didn't realise how much I was alienating people. I would constantly refuse to go out when friends would call. At one point, I didn't realise I was at home for a week.
+- The reason I did 'PPNH' was because I wanted to do something different, wacky, and mainstream after 'Barfi!'
+- I can't watch Kevin Spacey's show anymore, though I have loved it earlier, because he has been accused of harassment. It disgusts me as a person.
+- I'm aware that I am flawed. I'm aware that I have issues. I'm aware that I need to be able to be healthy, not just physically but mentally.
+- I was only 18 years old when I started acting.
+- I am a massive foodie.
+- My personal life is only my business and the business of the people who are close to me.
+- My father worked as a mechanical draftsman at Mazagaon Docks and is a Catholic. My mum was a Muslim, so my parents broke quite a few rules to get married.
+- When I have actors flirting with me in acting, in my head, I am thinking, 'If I flirt back, I could definitely land a film with this guy. If I consider going to his house for drinks, considering he has invited me, I could definitely get a film with him.' But I just don't want to do that.
+- I was a complete tomboy. You'd never see me wearing skirts.
+- 'Barfi!' was a beautiful film. I'm proud to be associated with it.
+- I don't like the way my arms jiggle.
+- I know that when people ask me about my boyfriend, they're not disrespectful but just curious.
+- There are some actors that I know I won't do a film with no matter how good the film is.
+- Anxiety has been a big problem for me, but I think my biggest struggle has been depression.
+- I am glad that after 'Rustom,' I did 'Mubarakan' and then 'Baadshaho,' as it explores my range as an actor.
+- I would say the most difficult part of film-making is dealing with people you are working with and trying to forget the drama that goes behind the scenes.
+- We rely on our partners, but if we're not stable within, we crumble in our relationships, too.
+- I don't like being called a celebrity. So much so that I find it very uncomfortable looking at myself on the screen.
+- At the end of the day, you are doing the film for the audience.
+- Films happened to me accidentally when I met Marc Robinson in a hotel in Goa, where my mum worked as a supervisor. I would often go there, and the manager there would see me and tell my mom that I should try being a model.
+- I like that with social media, you can choose how much you want to reveal. If there is an issue that requires clarification, at least you can turn to social media. You know it's coming from the horse's mouth.
+- When I first started out in Telugu cinema, I signed anything and everything that came my way. I was 18, was immature, and it felt like a good idea that 'Oh, they are paying me a good amount of money.' I was young, naive; I had zero ambition, and honestly, it wasn't my calling.
+- I have a lot of dignity and am my own woman who does not dance to anyone's tunes.
+- When I was working in south films, I never understood how films were made.
+- I'm a fairly mature woman, and I've realised that I'm not going to grow if I keep thinking, 'The other heroine in the film is so much better than me.' I would rather take inspiration from them.
+- I'm just going to keep pushing and try and be the best of version that I can be of me.
+- There is a glimpse of me that I'd like to keep private. And I believe that is necessary for my kind of sanity. I'd not like the world to know everything about me.
+- I am a public figure, but I am not public property.
+- At one point, you start wondering if being talented in Bollywood is enough, or you need connections.
+- I am being selfish here by saying this, but I believe 'Barfi!' helped me the most. It got me recognition and respect.
+- I never thought I'd be somebody dealing with anxiety or depression.
+- When people ask me to describe my journey in Hindi cinema post-'Barfi!' I actually don't know what to say.
+- I love music, I love to sing, but I am terrified of singing in public.
+- My mum is a rock star, and I idolise her. She was born in a conservative Muslim family, where the girls were not educated much, and she was required to wear a burkha. She felt repressed but dreamt of driving her own car, walking around in jeans and wearing sunglasses, and she did.
+- I was always like the wallflower.
+- My entire life goal was to be accepted by everyone. I think that's what I wanted the most. I never got it.
+- I love watching funny films.
+- I loved playing Sweetie in 'Mubarakan.' It was chaotic and funny; it was sort of a magnum unfold in a chaotic way.
+- I am not one of those people who want to work 24/7.
+- If I'm going to get overshadowed in a film, it's because of something that I haven't done, not because of what the other heroine has done or because I've focused on the amount of scenes she had in the film.
+- It makes it so much easier to work with people who you can implicitly trust.
+- As far as clothes are concerned, for the day, wear something chic: a good pair of jeans, crop, and open hair with a bright lip colour. For an evening, a nice pair of high-waisted trousers and a nice blouse looks great.
+- We actors get a lot of love, but at times, we get double the amount of negativity for no reason whatsoever.
+- I like meeting my friends, being with my family, going for holidays.
+- I fell in love with films only two years after working in films.
+- A lot of people say I am very mysterious. It takes a lot to know me.
+- I do not like to be told what to do, but in the end, I take my own decisions.
+- I always wanted to play a Punjabi girl because I always found them very colourful, in a way. There's always a spark to all the Punjabi girls I've seen onscreen.
+- I do use social media as a gateway into my personal life, but only to a certain extent. When I don't want to, I pull the blinds down.
+- Love yourself for who you are, and trust me, if you are happy from within, you are the most beautiful person, and your smile is your best asset.
+- I think what matters is whatever you do on screen should be good irrespective of the time you have on screen.
+- I am not from a film family. I don't know much, but I definitely knew that if I want to be a good enough actor, I should be able to do any sort of role.
+- I feel that I don't have to have it all together all the time. I don't have to be this smiling face for the public.
+- You can call me a Mumbai girl since I have spent the first ten years of my life here. Then I shifted to Goa, where I got my first modelling break.
+- I love wearing very simple colours.
+- I've got every possible thing I could want. And I wondered, 'Why am I so depressed?' I still don't know sometimes.
+- The elegance of a sari or the flirtiness of a lehenga is matchless.
+- Imperfections are a part of life, and one should learn to love who you are.
+- When you are working with likeminded people, then there are no pretences.
+- In my first-ever shot, there was a big shell that was dropped on my belly in slow motion. I even asked the director why we are doing it, and he said it would look beautiful... and I wondered, 'Really? But why and how?'
+- Marriage isn't important for me. It's just a social announcement where we splurge on feeding a lot of people.
+- I like my smile.
+- In the end, only a good actor stands out; if I am not a good actor, I won't stand out.
+- Work is secondary - for me, what's important is having a close-knit family and having someone you can call family.
+- Marriage is great for some; it makes them better people. For me, commitment doesn't have to be marriage. It stems from the fact that I have a Westernised world view.
+- Now I don't look at life where I'd say, 'Oh gosh, my life's over if I don't have films anymore.' My approach is that there's so much more for me to do.
+- I'm a beach bum, so I'm more comfortable in western wear.
+- I think marriage is beautiful, but I have mixed feelings about it.
+- I think marriage and live-in relationships aren't really different. It is just a piece of paper that separates the two.
+- I don't think I will ever understand Bollywood. And I'm happy about that because it is a big, crazy, world. It's too complicated and chaotic to understand.
+- I'm a Goan girl.
+- You have one life, and it can't be just about work because you lose out on so many amazing years of your life if you just work, work, and work.
+- I don't think I constantly have to be on a promotional spree or be seen in the newspapers every day or even be part of social parties and film gangs. I'm having my own set of journey, and I am happy with it because I don't want to be like everybody.
+- I like being thrown out of my comfort zone.
+- It would be prudish to say, 'I don't want to be a prop in a film,' because there are certain films I've loved doing, as I have looked very glamorous in them.
+- My basic knowledge about Punjabi comes from films.
+- I like watching romantic comedies and animation.
+- I had a different perception of what a relationship or love is like. I was all giddy-headed and fairytale about it in my head, but it's so different. There's a lot of restraint that you've got to have, compromising in certain situations - and you've got to have a lot of respect.
+- There are days when there's no will to do anything. It's not easy for someone in my profession, because you are always meant to be in the limelight. I can't just not turn up, as I will come across as unprofessional, and people won't work with me anymore.
+- When you are working with actors who are secure, who have nothing really to prove, it gets a lot easier working with them.
+- I enjoyed every experience that life offers.
+- I have been parts of some films in the South where I didn't expect certain shots to be shot in a certain way. I wasn't experienced enough; I was very naive. I didn't have the standing of an actor to say that I don't want to do this shot.
+- I don't want my personal life to become a part of public domain. It is something that is sacred and means a lot to me. I don't want it to become some frivolous gossip column.
+- Eleven years of acting it has been for me, and I still sometimes think I am not cut out for this. I hate the people-pleasing that goes with it, and the stupid politics, but that is with every kind of work and job.
+- I was always a very self-conscious person and was picked on for my body type. I used to feel low and sad all the time, but didn't know I was suffering from depression and Body Dysmorphic Disorder till I got help.
+- You are a human being and are allowed to be imperfect, and you are allowed to be flawed. There is a lot of beauty in your imperfections, in your uniqueness.
+- Acting is a career where you keep learning with every film you do.
+- I don't like being jealous.
+- It might sound cowardly, but I do agree that if you speak out about the casting couch, it will end your career.
+- I have been singing since the time I was two. My mom says I would sing Gujarati songs with my grandmother when I was a kid.
+- For me, a very chilled out day would be me on my couch or cooking, sitting with one or two friends watching TV or films over a glass of wine.
+- I was this very self-conscious, shy person once I hit my teens.
+- You may look at us actors and think that, 'Oh my God, they are so pretty, so perfect.' But that's not how it is. It takes two hours to get ready and look like this.
+- I personally feel my equation with Varun Dhawan is on a different level. I share a great rapport with him. He is very charming, matured, and he knows what to say when.

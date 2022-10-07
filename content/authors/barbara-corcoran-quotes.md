@@ -1,0 +1,56 @@
++++
+author = "Barbara Corcoran"
+title = "Barbara Corcoran Quotes"
+quotes_len = "50"
+description = "the best 50 Barbara Corcoran Quotes"
++++
+- I was a hot-dog stand lady, I was an orphan housemother, I was a waitress 3 or 4 times. All of those jobs did not have good bosses. They basically told you what to do, when to do and when to hop. And I just didn't like that very much.
+- I gave up years ago on the concept that you could actually have balance in your life, I think it's a phantom chase.
+- My husband had a very strong identity and was successful in his life. Thank God for that. There's no way I can control him. I wouldn't stay married to him if I felt I could. I can readily take my business personality into the home. But he forces me to be a partner rather than the boss.
+- Refinancing your mortgage usually makes sense if you can lower your interest rate by at least two points. But the most important question to ask yourself is, how long will it take you to break even?
+- My mother is an amazing woman. Not only did she manage the entire household, she noticed a gift in each of her kids and instilled confidence in all of us that that gift would take us wherever we wanted to go.
+- A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of 'curb appeal.' Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.
+- It's rumored that doing well in real estate is to be able to close a deal. I did not find that to be the case for myself, I was probably the worst closer out there and I didn't find that was true of my top super stars either.
+- I got along with people very well at every job I had, people liked me and I liked them and I loved being on my feet.
+- The best time to expand is when people are asleep at the wheel.
+- Everybody thinks that they're going to time the market, they're going to sharpshoot the market, and buy right at the bottom. The truth of the matter is that nobody is good at it.
+- I built the business exactly the way my mother built and ran her family. I wanted a replication of the big, happy family I grew up in. I wanted happy people having fun.
+- No loan is free. The costs are in your loan somewhere, maybe rolled into the amount to be refinanced or even coming at a higher interest rate.
+- The joy is in the getting there. The beginning years of starting your business, the camaraderie when you're in the pit together, are the best years of your life. So rather than being so focused on when you get big and powerful, if you can just get the juice out of that... don't miss it.
+- If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.
+- Refinancing doesn't reduce your debt, it just restructures it, so be clear about what you want to achieve with a refi.
+- I did everything in my power to give my brokers brand identity and clout in the market. I saw my job as parent to build them up and if I took care of them, then they would take care of their customer.
+- Buy with your heart, not your head. You can look at all the aspects that make a purchase practical, but that kind of thinking makes it an investment rather than a home.
+- A funny thing happens in real estate. When it comes back, it comes back up like gangbusters.
+- People stayed with me and worked extra hard for me because I could see the potential in them - I'm not so sure they could see the potential in me.
+- Especially if you're over 40, shortening the term of your loan to pay it off sooner could make you mortgage-free in retirement.
+- No one tells salesmen what they can and can't do.
+- I hadn't learned to read by third grade, which wasn't unusual for some kids. I knew something was wrong because I couldn't see or understand the words the way the other kids did. I wasn't the least bit bothered - until I was sent back to the second-grade classroom for reading help after school.
+- I have a theory and I really believe it. I think your worst weakness can become your greatest single strength.
+- If you get labeled a winner, people come along for the ride. Might as well enjoy it and they should too.
+- I became a larger than life figure for one reason only. When you're quoted in the 'Wall Street Journal', the 'New York Times', constantly as the expert in the business people assume you're a lot bigger than you are. And then I had to run like hell to catch up with my own image.
+- Don't you dare underestimate the power of your own instinct.
+- The most expensive hobby a rich man could have is a boat, and the second most expensive hobby he could have is a very old house.
+- If your house has been on the market for more than four months, take it off the market and re-list it in two months as 'new.'
+- Sex appeal is in the workplace every day of the week. I'm not saying that's the only calling card, but it's a whole crayon box.
+- I wanted to be a 150% entrepreneur and a 150% mom, and I found that I was having a very hard time doing both. I was about 75% and 75% - still better than 100%, but not what I was accustomed to at work.
+- Every single thing I learned about marketing and building my business, I learned from my mom, and she had never been in the workforce. She just had great practical sense.
+- The best mistake I ever made was believing that I was stupid. It was a childhood thing, but it played out big-time as an adult. It scorned me the rest of my life - in a good way.
+- I had probably seven agents by the time I became a legitimate real estate broker.
+- Whatever you got you have to accentuate. I ran my female card up and down the ladder my whole career, because I was in a man's world. It was worked by women but owned by men. I was the only female owner in my field at that time.
+- I love myself. Anything that has my name I'm tickled to death.
+- Buyers decide in the first eight seconds of seeing a home if they're interested in buying it. Get out of your car, walk in their shoes and see what they see within the first eight seconds.
+- I sat down and collected all of our eleven sales for the past six months and I added them all together and divided by eleven. I then took that average and presented it as the average price for a Manhattan apartment. The media ate it up.
+- Most great entrepreneurs I know are nothing like the other kids. They're almost like tangent lines - those lines that seem to go nowhere. Nothing connects them, until they get out in the real world. Then they connect just fine.
+- In business, you're the Chief Salesman. Create a sense of demand, rather than waiting to have demand.
+- When you're a big money earner and your husband isn't, it makes you question how feminine you are. I felt I was less feminine than if I was a supporting wife, or a second fiddle, or 'Mrs. Higgins.'
+- In New York City, the meek don't inherit the earth. The big mouth does.
+- The most influential factor in selling a home is always price. Don't build 'wiggle room' into the asking price. There's a price war out there and you have to win it from the get-go.
+- My greatest strength as a child, I realize now, was my imagination. While every other kid was reading and writing, I had seven whole hours a day to practice my imagination. When do you get that space in your life, ever?
+- I'm never in control of my time during the workday.
+- If a house is priced appropriately, make a bid 10 percent below that amount.
+- I was well motivated. What I wanted to do was work for myself. I had twenty two jobs before I started my business at the age of twenty three and I didn't want one more boss telling me what to do. So I was motivated simply because I didn't want a boss.
+- I've been in real estate for my whole life, I've been trying to sharpshoot the market with my investments, I'm never right. All you need to do is get near the bottom. That's good enough.
+- You may not like the idea of putting money into a home when you're moving out. But it's demanded by the market. You need to show it off. You don't have to rip out the kitchen and bathroom. But maybe replace the tiles or the countertops. Get professional advice.
+- A complainer is like a Death Eater because there's a suction of negative energy. You can catch a great attitude from great people.
+- What people ask for has nothing to do with the value of a property. You might see a listing for $300,000 and think you should make a $250,000 bid. But hyper-focus on what the house is worth. You should know what the house is worth by looking at comparable properties. Base your bid on that.

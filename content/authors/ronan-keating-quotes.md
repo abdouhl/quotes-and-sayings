@@ -1,0 +1,106 @@
++++
+author = "Ronan Keating"
+title = "Ronan Keating Quotes"
+quotes_len = "100"
+description = "the best 100 Ronan Keating Quotes"
++++
+- I find it very hard to make choices.
+- As you get older, the cliches of life ring true. It's the simple things that matter most: your family, the people you love, your health and sanity.
+- My dad taught me to work hard and be a grafter, and my mam taught me to have a heart and showed me how to love. That's a good balance.
+- I'm not incredibly wealthy. When you go through a divorce, that diminishes rapidly because you're supporting more than one household.
+- Music is my heart and soul. That's what I love to do.
+- I want time for my career, my kids, and my partner.
+- My 13 year old, my girl Missy, has made four feature films. She's the most grounded, level-headed kid.
+- I would love to do a Bollywood flick.
+- I hate seeing people getting a raw deal and artists not being in control of what they are doing. It happens all the time.
+- I'd tell my 16-year-old self, 'Don't take yourself so seriously, and just have fun.'
+- I think my feet were on the ground, and I had good family around me. It comes down to who you are and your upbringing.
+- I have a Superman tattoo on my right arm.
+- The song 'Gave It All Away' has a reggae sound.
+- I always wanted to make my parents feel proud of me.
+- The industry has changed in that it is far more disposable than it used to be. When Boyzone came out, we were given a shot and the patience to record our singles and albums. Nowadays, the thought is if it is not working, then the artist will be dropped. The record companies will bail on the artists, and I find that sad.
+- I'm not nervous coming back to my old audience. I'm looking forward to it. That's really what I do; that's my day job.
+- I love making music, and performing, that will always be there.
+- I have done a lot of interviews over the years, so you think I would know how to handle difficult questions, etc. But the truth is, I don't.
+- I love iTunes. I love downloading music.
+- I worked very hard in my first marriage, and I travelled constantly to make money for the family, and when I came home, I would be the best father that I could be.
+- As a working-class boy, golf was never really on my radar, and when I was growing up, Irish football was my sporting passion.
+- I put up a front to make people think I had all of this confidence in myself, which I didn't.
+- I'd like less Irish-looking skin.
+- If you're an up-and-coming star, and you want to do well, then a show like 'The X Factor' is really important.
+- You're just one of the guys who fills a suit, and that's what's drilled into you by the record company and the management - 'You're lucky to have it. Now shut your mouth.' I get where that comes from, but it takes time to shake it off.
+- I've always been quite an insecure person.
+- The Beckhams are really inspiring and have very elegantly risen to being the most powerful brand in the country. I'm sure a lot of couples look at that and say, 'Wow.'
+- I've never been particularly happy with what I see in the mirror - I don't think anybody ever is. And I'd like to be taller, too: I'm 5 ft. 9in.
+- People deserve to be happy.
+- I'm a good dad. I'm proud of that.
+- I wanted to be Jon Bon Jovi and Bono. But I'm not that cool. I don't need to be. I'm not a rock star. I am who I am.
+- I did a bit of running away when my mam passed away. I didn't go back to work; I started drinking quite a lot, and I know how damaging that can be.
+- Director Baz Luhrmann flew me to New York to read for 'Moulin Rouge!' Maybe I was a little blase about it.
+- It was amazing to be on the map, to be recognised by other artists, and to be so successful.
+- I don't know how to use a washing machine.
+- I've gone through some dark times, and at those times, my tattoos have helped and guided me through.
+- I wouldn't want anyone to go through what my mam did - she was ill for two and a half years with breast cancer that moved to her spine, and died in 1998, when she was 51.
+- The toughest challenges I've faced are the deaths of my mother and Stephen Gately.
+- I cook and do my own laundry.
+- I'm a pop artist, and that's what I'll always be. I don't want to be a 'credible artist.'
+- My future definitely lies in the music business.
+- I'm glad to have a couple a quid in my pocket to be able to enjoy life.
+- One time, a fan jumped on the back of our vehicle, and without noticing, we drove away. I was pretty frightened, actually.
+- It's harder for someone like a singer to prove they can be an actor because people immediately want to say, 'Oh, he's no good.'
+- Not a lot of bands get to go out on their own terms.
+- You can stay in situations just for the sake of it. That can be a very dangerous thing and tough on your soul and heart.
+- When we live in a world where everyone wants their 15 minutes of fame, I think it's nice to have a show like 'All Together Now,' where it's about people having 15 minutes of fun.
+- I wasn't going to let anything control me.
+- Forget about musical credibility. I think, unless you're Radiohead or whatever, it's pointless striving for that. What I would like is some respect.
+- I don't need to do or say things to place me in a position where I look a bit cooler.
+- Christmas is a special time of year for everyone - I remember getting my first BMX bike when I was a kid, and it was the best present ever.
+- My average day is with my wife and kids in Dublin, doing school runs, grocery store, feeding and walking the dogs.
+- I would like to take on roles which nobody would expect. I don't want to be reduced to love stories. I'd like to try dark, edgy roles. I need a challenge.
+- As a parent, you're never wrong in your children's eyes.
+- You need to be experimental. You try things, and it is OK if they don't always work necessarily.
+- As a kid, I was called Tintin because of my hair colour and style.
+- A musical is never something I thought I'd do.
+- I wanted to travel. I wanted hit records. I wanted success. I wanted respect, but not credibility - that's one thing Boyzone never looked for.
+- I have a great relationship with my kids.
+- I just want to be a good man.
+- We were a working man's boy band.
+- It's that kind of Dublin mentality: you just have to grin and bear some things.
+- Judging on 'The Voice' or the 'X Factor UK' would be great; that would be ideal, really. But I don't think it's going to happen.
+- Even at our height, we were never very polished.
+- I've done a couple of castings... I've done an audition for 'The Hobbit.'
+- All my children are blessings. I love them to bits. They're my world.
+- When greeting Pope Benedict a few years ago, I was meant to kiss the papal ring but I head-butted his hand instead. He just laughed at me.
+- The most influential person in my life had been George Michael. He was very important to me and was one of my musical heroes growing up. Then he became a friend and mentor and someone I'd lean on.
+- I had spent so long trying to be the perfect husband.
+- I can take too big a step. I can try to be too cool, and people won't accept that.
+- I've always had to work to feel reassured, to feel secure, and that's not nice because you don't know where you stand.
+- I'm not doing 'Once' to prove that I'm worldly or cultured. I just love the role.
+- We'll never do a show without honouring Steo in some shape or form, and that's really important to us.
+- My faith is in God. If it's a little statue of Buddha or whatever works for you, brilliant.
+- Having the guts to be the person you are is what makes you brave.
+- I thought I'd go away and make one album, but it was extended. The album did so well, and they wanted another album. I was on a high. You make hay while the sun shines, and I was doing it, and you think about yourself; that's what you do.
+- I am not a fan of being in the sea. I like being in a boat - sailing.
+- I listen to loads of different music all the time.
+- The boys and I were all very close. There were never any bust-ups in Boyzone, never any fights.
+- Sydney is the most amazing city. The food and the beautiful beaches are fantastic, and all that surf and sunshine make you feel unbelievably relaxed.
+- Twenty-five years has been a good run. Boy bands like Boyzone don't get to last this long, usually.
+- The one thing I have always tried to get across is what you see is what you get. This is me, like it or lump it.
+- Music is my passion.
+- Kids are different. Boys and girls at 14, 15, 16 - some are more developed in the mind; some aren't... It comes down to the individual.
+- Me and me dad didn't have a great relationship when we were younger. We had a good relationship, but it wasn't an affectionate relationship.
+- Coffee isn't just a source of pleasure for me: it is something I rely on to get me through the day.
+- I grew up as the youngest child in a big, noisy family, and there was always someone around to hang out with.
+- Being in a boy band, everyone has an opinion of all of us and what we do. There was a time I fought with that.
+- When times are at their worst, it's amazing what people will do for you.
+- You've got to take every day as it comes and live as if it's your last.
+- I try to stay fit and healthy and eat well.
+- I do not regret the end of my first marriage.
+- If Simon Cowell asked me, of course I would love to do 'X Factor.'
+- Being in a boy ban,d you're not allowed to be good at anything. You're not allowed to be talented. You're not really allowed to be a songwriter. You're not allowed to be that good a singer.
+- I find the Aussies are great and just let you be. The odd time, somebody has something smart to say, but it's very rare.
+- Real-life experiences will probably end up in my music.
+- I have lived a crazy life since I was 16, have travelled the world, and met some amazing people. And if you can turn that into music, then you are doing something right.
+- I wear my heart on my sleeve, and whatever I was giving, it was just coming from my natural place at that time. And you know, some albums I've made, I look back and think they were great, and then some I look at, and I think that wasn't right at the time.
+- The beauty of being in Boyzone - and maybe other bands are the same - is that as soon as you're back together again, it doesn't matter how long you've been apart. It feels like nothing's changed.
+- I think eventually all music will be free.

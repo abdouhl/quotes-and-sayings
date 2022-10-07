@@ -1,0 +1,95 @@
++++
+author = "Bebe Rexha"
+title = "Bebe Rexha Quotes"
+quotes_len = "89"
+description = "the best 89 Bebe Rexha Quotes"
++++
+- It's one thing if you write a song and somebody else sings it because you give the OK. But if your voice is on something and you don't get the credit, it's kind of hard.
+- It all started when I was 4. I was watching a lot of 'The Little Mermaid,' and I loved that movie. I was going around the house singing - I wanted to be on Disney and everything; I wanted to be a princess.
+- I try to photobomb as much as possible.
+- My ideal night would probably be a dope outfit, people that I love around me. Go to get some dinner, have some amazing food. Maybe sushi or Italian: I love both.
+- You get to the point where you're like, 'I'm just doing me, and if people don't like it, then it is what it is.'
+- I remember starting out and covering songs.
+- I don't really want to make this sound depressing, but I will say that I didn't really have my first kiss until really, really late.
+- I view myself as a male artist.
+- I will always, forever, write songs, and wherever they're meant to be is where they'll be.
+- I just want to be myself and be real and be funny.
+- I think what 'The Monster' means to me is I find it really hard - like a lot of other people in the world - to really be OK in my own skin. It was a message to myself saying, 'It's OK that you're not perfect.' I'm gonna learn to love myself and accept myself, even though I'm a little crazy.
+- I got so excited about it. I was like, 'Yes! I won a Grammy!' And then my manager was like, 'No, you did not win a Grammy. You were part of a song that won a Grammy. Rihanna won a Grammy.'
+- I want people to be happy.
+- I've been in the room or watched artists walk in who don't write, and you can't figure out what they really want.
+- We don't wake up happy and looking absolutely perfect and feeling amazing every day, you know? We're only human. So I think, with me, I'm not really scared to let people see that - because it's real.
+- I was a Versace perfume girl at Saks Fifth Avenue, and Rihanna actually came up to the counter and asked for something. And she wouldn't even take her sunglasses off! She was so mean to me. Not mean, but, like, guarded. I don't blame her, though.
+- It's weird to me when an artist comes in, and the label says, 'We want him to sound like Chris Brown,' but he says he wants to sound like Sean Paul. There's a huge disconnect - it's like we're making a product.
+- Anytime there was an award show, it was a ritual where me and my mom would sit around and watch with my friends. We would make desserts and buy chips and popcorn and see what our favorite performances of the night were.
+- We just recently saw Bruno Mars at the Hollywood Bowl, and he was incredible.
+- I grew up in the era of Britney Spears, where artists had songs written for them, and you got up and sang them. That's how I always thought it was.
+- I never thought of myself as a songwriter. I was just an artist writing songs, and they just happened to get placed.
+- It's a very hard industry, and it's very cold. It's loving for when you have a hit record, but when you don't have anything going on, there's really not much support.
+- We're fighting to be ourselves in a world that's trying to make us like everyone else.
+- I just respect Kanye as an artist.
+- Life is hard. It is. And it's like, I don't want anybody feeling any pain.
+- Since I'm on a tour bus, sometimes it's really hard for me to wash my face, so I always make sure I have those Neutrogena Make-up Remover Cleansing Towelettes. No matter what and no matter how long the days are, I always have to wash with those before bed and when I wake up.
+- Nicki Minaj is a very strong woman who knows exactly what she wants. As an artist, I understand her, and I could see how she could be misunderstood by a lot of people, but she is really passionate about her art, and that's something I really admire about her.
+- I just don't let music genres define me.
+- If you can't find dry shampoo, baby powder is great.
+- I had a moment where I was like, 'I'm so tired of waiting for other people to accept me.'
+- I want to show every part of me and every color of me. And I think, growing up Albanian, I wanted to bring that to light.
+- It must be so hard trying to figure yourself out in this industry. Justin Bieber has hit rock-bottom with everyone watching him; that is just so tough.
+- I think, especially in pop culture, we're brought up to think that a normal pop star is this pretty, well-kept-together girl.
+- I know what it takes, and you have to fight for yourself and what you believe in.
+- The world can be very small. That's why you have to be very careful, whoever you meet.
+- It might crush a lot of people, but I've never been in the room with an artist that I've written a song for.
+- I just want us to all have a good time and to party and enjoy this life, because it's too short. It's too short.
+- 'Straight Outta Compton' was such a great movie, and obviously, I'm in the music business, so getting to see that piece of history was amazing, and it was an incredible movie.
+- We don't walk around wearing candy stuff all day or colorful stuff. It's like, I walk around wearing black.
+- I have never spoken to Eminem. I've never even spoken to him once.
+- In the beginning, I found it hard to give my songs away, but now I've realised it's exciting, and it's only making me better.
+- I was the girl that didn't go to prom or my graduation because I was too busy working with producers and making music.
+- I'm not one to be like, 'What is everybody doing? Let me do that!' I just do what I want.
+- It was always my dream to be part of MTV and make history.
+- I think in a lot of situations I had got songs stolen from me, or treated badly.
+- I turned sadness into an anthem for not letting anything or anyone slow you down.
+- I have a lot of respect for Eminem and Rihanna. They are both very real in their music.
+- One of my biggest inspirations was Alanis Morissette's 'Jagged Little Pill.'
+- It's tough hearing your voice on the radio, on a chorus, and knowing that people think it's another artist.
+- You need to know when to surrender the album.
+- I'm very obsessed with not being perfect.
+- The most important thing to me is that it's all really raw.
+- I bought these pink sticker things... and I would write things on them, and I wrote, 'I will write an international smash,' and shortly after, it was when we did 'Monster,' and it was an international smash.
+- For mascara, I'll just use whatever I have in my bag. I'll use anything. I feel like, from drugstores to a Saks, they are all the same to me.
+- I've had situations where producers would be like, 'Could you meet me? Take the train; don't tell your parents.'
+- I want to be Kanye and do what he does musically. I'm very fearless.
+- I think that the music industry is such an interesting place, and there are so many situations that people don't know about.
+- I just want to be a little more real. Maybe I'm a little bit darker than others.
+- I went through that stage of the Mumford & Sons and the Alanis Morissette vibe. I was in a dark place at the time.
+- If you're in a dark place, you're there for a reason. And the only way to get through to those kids or to other people going through the same thing is really to meet them in that dark place and then slowly bring them to the light.
+- I'd love to work with Kanye West. He's gone through a lot of stuff in the public eye, but his music is genius. He always takes risks.
+- I'm proud of my work and how far I've come, and I'm proud of the way that I did it.
+- When I first was a part of 'The Monster,' I really wanted to put it out under my name, but no record label thought it was good enough - until Eminem liked it.
+- I played the trumpet for nine years, and then I joined the choir after that, and then I was in musicals in high school.
+- Sometimes it gets a little too bubblegum for me, but what I do love about KPop videos is their attention to detail, and their choreography and dancing are always spot-on.
+- When I was 16, I had a really big hit in the K-pop world. It was a hip-hop/R&B/pop song. I kinda strayed from that because of the writers I was hanging out with.
+- Nothing really scares me anymore.
+- I want to release six songs, let people listen to those, let them chill for a second, do a tour, release another six songs, chill for a second and then take my favorite four, put them on the album, and add some more.
+- I wanted to be part of pop culture, so I started songwriting, and I got signed to my first record deal.
+- There's nothing mathematical to my writing. It's a feeling.
+- I love what TLC did with the baggy pants. I love a lot of throwbacks.
+- My favorite artists are Kanye West, Jay Z, the Fugees, Lauryn Hill, Destiny's Child.
+- I rolled up my sleeves and said, 'I want to make a mark on this world.'
+- I don't judge people on their personal lives.
+- I write all of my songs from scratch, so the one thing I love about EDM is the way a song transforms into a piece of art, and how the different sounds can change the feel of the record.
+- I'm very tomboy, and I'm inspired by hip hop artists.
+- I never wanted to take the easy way, and I was always willing to hustle.
+- What I like about the EMAs is that you will never know what happens.
+- I have put absolutely everything into my album. I feel like it's been such a long journey to get here. It is like giving birth to my first child, and I want to make sure I did everything right.
+- Donatella Versace has been a renegade. Just an incredible, artistic person.
+- I'm definitely inspired by old hip-hop.
+- I think what people get confused about is that they want to label me as this EDM girl, but a lot of this stuff is genre-less.
+- Music changes so fast, and we're in a singles market.
+- I was very obsessed with my music, and I think that, as a young girl, I really wanted to get into this business, and I don't think my parents really knew how to protect me.
+- What you start learning is that to get over a breakup, you kind of have to live through the emotions and not run away from it because then it lasts longer.
+- I'm constantly hydrating my hair.
+- We write the song, then it gets played for the artist, and they somehow fall in love with it and go back in and make it their own.
+- My music is a little dark, and my lyrics are a little darker. Every day, I'm fighting towards the light.
+- When I was a little girl, my dream was just to hear my song on the radio. It was very fascinating to me, and I was like, 'How do I do that?' Now it's like, 'Oh my God, my song is on the radio!'

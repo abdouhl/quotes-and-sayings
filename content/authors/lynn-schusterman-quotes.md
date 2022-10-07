@@ -1,0 +1,42 @@
++++
+author = "Lynn Schusterman"
+title = "Lynn Schusterman Quotes"
+quotes_len = "36"
+description = "the best 36 Lynn Schusterman Quotes"
++++
+- As our parents planted for us, so will we plant for our children. When Charlie and I began our philanthropic journey, we wanted to focus our resources on planting seeds that would help perpetuate Jewish values and traditions for future generations and also contribute to repairing our world.
+- In my work with young Jewish adults in the gay community, I hear their stories of discrimination, of struggling for acceptance, of feeling invisible not for what they have done but simply for who they are.
+- Our people represent a tapestry of interwoven identities embodying the rich diversity of what it means to be Jewish.
+- We will continue to make ROI as supportive, diverse and beneficial as possible and to meet the evolving needs of the members and communities we serve.
+- I was a young girl the first time I learned about the concept of paying it forward.
+- A Jewish community that is diverse and openly embraces all who seek to lead actively Jewish lives will be a Jewish community that is stronger and more enduring for generations to come.
+- I believe that as we face unparalleled prosperity in some quarters and deep impoverishment in others, it is the willingness of the next generation to bridge the gap between the two that will return us to our sense of purpose and focus.
+- It took several years of trial and error, soul-searching and hard work to shape the ROI program into the ROI Community. In the first few years, we got to see the power of these gatherings and the resulting connections that spanned the globe. It inspired us to think about how we could transform an annual gathering into a year-round community.
+- To all of the young people out there who are creating social change or even fomenting social movements: hold on to your idealism and your belief in your ability to change the world. Your lofty goals demand attention and deserve support.
+- I believe young people hold the key to building a vibrant global Jewish future, and we must invest in their passion and potential to do so.
+- I would love people to understand that not everyone can give away $100, but everyone can take the time to help someone get across a street.
+- The Jewish people are very diverse, and I believe this rich tapestry of identities and experiences strengthens our community.
+- Even if you don't have a lot, you can help someone.
+- Imagine living in a state where businesses can legally refuse to serve people based on their sexual orientation. Where parents can force their children to undergo conversion therapy to 'cure' them of their 'homosexual tendencies.'
+- ROI is full of talented entrepreneurs and professionals, and we want to help each of them tap into the incredible power the collective has to offer and to contribute what they can.
+- We must work together to strengthen Jerusalem as a modern, open capital and to foster welcoming, inclusive communities across the Jewish world. It is vital to the health and vibrancy of the global Jewish future and to ensuring a strong Israel.
+- Charlie would be so proud of what these young people are accomplishing today and, in true Charlie fashion, would encourage them to walk to the very edge of their comfort zone and then take another step.
+- ROIers are always reaching out to me to share their appreciation for the experiences, opportunities and connections we have provided and also to express their excitement about taking the next step in their leadership journey.
+- I very much believe in teaching young people about philanthropy, and to give back.
+- Our family was the most important part of Charlie's life. He loved us very much, and we adored him.
+- We in the Jewish community must ask ourselves what role we are going to play in changing policies and practices that discriminate against LGBT Americans. We have a special responsibility and civic duty to ensure that all Americans are treated with dignity and equality.
+- Just as we rely on Israel as a continual source of inspiration and renewal, Israel relies on us.
+- Together, we can build the kind of world in which we all seek to live, one of universal equality and justice.
+- It is striking to see the magnitude of impact mentorship and tutoring can have on student performance and young lives.
+- Across the Jewish community, the MLK Shabbat Suppers are part of Repair the World's multi-year effort to mobilize Jews across the nation to serve as tutors, mentors, and college access coaches for public school children.
+- People often ask why I remain so optimistic, even in the face of the complex challenges we are facing in the Jewish world, in Israel and beyond. It's because I am so impressed and inspired by the young people I meet.
+- I am proud to state that every national Jewish organization we support enforces non-discrimination practices around sexual orientation and that more than 70 percent have written policies in place covering gender identity and expression.
+- A high school and college degree are linked to greater employment prospects, higher earning potential, and the ability to contribute more to our communities.
+- When my husband Charles passed away in 2000, I took over as chair of our family's foundation. As I was mourning his loss, I also had to keep the foundation moving forward and to chart a course into what was then a very male-dominated philanthropic world.
+- The people of Oklahoma deserve better. We deserve leadership that's willing and unafraid to take a public stand against bigotry and bullying.
+- I love spending time with young people. I love to hear about what they think. It keeps me young. And they need role models.
+- Now is not the time for us to shy away from challenging ourselves to make substantive change for the better. We have the opportunity to raise the bar in the faith-based world by forging a culture in which inclusivity, diversity, and equality are paramount.
+- I believe that if we are to continue to strengthen the social and economic fabric and future of this nation, we cannot tolerate laws that drive some of our best talent to choose between living in their country or with the person they love.
+- My greatest hope is that we will see a day when Israel will stand tall as a symbol of belonging across the Jewish world, and when global citizens will look to Jerusalem as the vibrant, modern, inclusive capital of Israel.
+- As Jews, we are commanded to give tzedakah - an act of justice, not charity - because it is the righteous thing to do.
+- The MLK Shabbat Suppers focused on the theme of educational inequity, which Dr. King considered inextricably linked to the struggle for equality and justice.

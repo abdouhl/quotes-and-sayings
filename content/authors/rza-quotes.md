@@ -1,0 +1,106 @@
++++
+author = "Rza"
+title = "Rza Quotes"
+quotes_len = "100"
+description = "the best 100 Rza Quotes"
++++
+- When you defeat somebody, you're not really defeating them: they're defeating themselves.
+- To me, Wu-Tang is beyond Wu-Tang Clan... It's just like, hip-hop is beyond Grandmaster Flash, but Grandmaster Flash was one of the first guys to hit those turntables like that. The same thing with Wu-Tang. You'll see the difference in hip-hop from the moment we came in to before we came in. We changed it. We changed the whole structure.
+- If you take 'Nothin' But a G Thang' by Dr Dre, that could also be an R&B record. 'Bonita Applebum' by A Tribe Called Quest could even be a jazz record. 'Bring Da Ruckus,' you gotta call it hip-hop.
+- I don't have the same respect for time as most people. I take that extra day to think about it.
+- When I was eight or nine years old, my older cousin took me to the St. George Theatre on Staten Island to see a Bruce Lee movie and a Jim Kelly movie. Those were my first martial-arts films, and I fell in love with the genre back then.
+- I actually heard hip-hop before I saw a movie in a movie theater. I heard hip-hop first, at the tender age of seven, so that came first. I didn't see a movie until I was eight.
+- Of course black lives matter. All lives matter. I stopped eating meat because their lives matter to me. I don't think it's necessary for us to grow a cow to kill it.
+- Being black in America - especially as I was growing up - the feeling of oppression, the feeling of being outcast, the feeling of not having a voice was part of my life.
+- I've always believed food, like music, has the power to change our day and even shape our world.
+- I tell my sons, I say, if you're going somewhere, you don't have to wear a hoodie - we live in New York, so a hoodie and all that is all good. But sometimes, you know, button up your shirt. Clean up.
+- I'm addicted to music.
+- When you prepare for something, it's like jumping into cold water, but you're prepared. You jump in. And you start swimming, or if you don't swim, you drown.
+- Growing up in New York, there are a lot of tenement buildings and a lot of projects. You don't leave your projects too much. The laundry's there. The grocery store is there. Everything takes place right there. When I got knowledge of myself and thought about moving around the city, hip-hop was something that helped me.
+- I got a chance to act in a film, 'Derailed.' I was having a recurring nightmare, and after doing that film, the nightmares stopped.
+- The director can be a dictator, but it's not wise to be. You have to choose the days to be a dictator and the days to deal with diplomacy and democracy. Every great leader should know that, even a dictator. Tyrants get overthrown.
+- I didn't discover how music and film could work together until Jim Jarmusch had me do 'Ghost Dog.'
+- An artist is made to entertain. That's their primary goal, to entertain you. But some artists record the moments of time. You wouldn't know what was happening in the '20s and '30s; you got to check the song or art.
+- We think it's a blessing that we were able to bring our music to the world. That our music has not only inspired our communities but other communities. That's one of the greatest things an artist in any field could know: that you've touched the mind of another artist.
+- Wisdom is important in every man's life.
+- If I'm a cop, and every time I see a young black youth - whether I watch them on TV, movies, or just see them hanging out - and they're not looking properly dressed, properly refined, you know, carrying himself, conducting himself proper hours of the day - things that a man does - you're going to have a certain fear and stereotype of them.
+- The history of black America was from slavery, oppression, civil rights, and you felt kind of isolated as an entity in our country.
+- One of my illest villains was the Butcher from 'Gangs of New York,' Daniel Day-Lewis.
+- Wu-Tang Clan's first album, '36 Chambers,' there wasn't a lot of money given to make that album.
+- Beyond Greek mythology, history just didn't have a strong resonation with me.
+- When you do something in music and see it happen again in the next generation, you know you're on the right wave length.
+- My mom gave me the children stories of the Bible. I memorized that book at the age of nine.
+- I love Paul Simon... his lyrics.
+- I'm grateful for what I've accomplished. I'm grateful for anyone who thinks I accomplished something and says, 'Well he did this; he did that.'
+- I love the Bee Gees, and I love Barry Gibb and Andy Gibb. I listen to them almost every day.
+- When I first heard hip-hop, in 1976, there were maybe only 500 people that could do it.
+- I always argue with a lot of people. They ask me for my top rappers, and he's always on my list. I mean, the GZA inspired me.
+- I have a special style of frying tofu that even the most carnivorous meat-and-potatoes eaters enjoy.
+- I have love for the entertainment side of the world.
+- I was writing lyrics since I was nine years old, so by age 15, I was feeling pretty confident about my talent.
+- I have to make beats every day. Wherever I go, I got a keyboard waiting for me.
+- I will say, for Wu-Tang, money wasn't the motivation, it was artistic domination.
+- I became a vegetarian in 1995. I had some fried chicken, and my teeth hit the bone. My mind said, 'Dead bird, dead bird.' It didn't feel right, so I stopped. I kept eating fish until one day, in 1997, the chef brought my ginger-fried snapper with the head still on it.
+- The whole first 100 Wu-Tang songs was made on an ASR-10.
+- I always had this imagination about making colorful movies. I use to walk to school and daydream about it.
+- If you keep eating McDonald's, you gonna get sick. You need a real home-cooked meal. And I knew that that would be healthier. And that's what Wu-Tang was: It was a home-cooked meal of hip-hop. Of the real people.
+- The 'Godfather I' and 'II,' those were real straight movies in my life. At the same time, so is 'Five Deadly Venoms,' if we go into kung-fu movies.
+- I could never be a control freak. If Wu-Tang is a dictatorship, how does every Wu-Tang member have their own contract, their own career, and have put out more albums without me than they've done with me?
+- I'm me, and the me that's me is me and is going to continue to be me, and it's always reaching and growing.
+- I will keep a Bible or Koran on me at all times - the Bible I can actually carry on my phone, and any hotel you go to has a Bible, but the Koran is harder. I keep a physical Koran in my guitar case and put it on the table in hotel rooms so after a day's work, I can read a few verses.
+- I love W.C. Fields. I can watch all the Laurel & Hardys.
+- I stopped with the red meat, let go of turkey and chicken, and then I held onto fish. When we finished 'Wu-Tang Forever,' I felt like I evolved and completely dived into veganism.
+- When I made hip-hop, I made hip-hop. I didn't make R&B or make it for the radio.
+- I got a bad habit of creating.
+- I actually have eyes that irritate easily, so I wear the glasses to keep stuff out of my eyes. If you see me in shades indoors, you might be like, 'RZA is wearing shades inside. What the hell is going on?' I'm protecting my eyes, and I'm looking cool.
+- 'The Good Earth' is a great book.
+- You don't 'practice' martial arts; it's more like a way of life.
+- Growing up, all of my friends would set their schedules to the showing of kung fu movies on TV.
+- I've helped save so many families with my music and inspire so many people.
+- A wise man has to always listen to the peers he surrounds around himself. That's why you surround yourself with other smart people. Captain Kirk keep Mr. Spock right beside him.
+- The influence of the Shaw Brothers films on my work has been profound. In addition to the richness of Asian culture, we at Wu-Tang were fascinated with the struggles between the oppressed Chinese villagers and the repressive Manchu authority and how it mirrored our own experiences growing up as black kids in America's inner cities.
+- Art - the beautiful thing about art, from my standpoint, is that it has no discrimination.
+- Twenty percent of my records, you'll find a loop, like two or three loops per album out of 13 or 15 songs. I'd rather keep it like that.
+- Method Man is a rough, rugged street dude, but all the girls love him.
+- Everybody wants to be a good fighter.
+- The way you have to think in chess is good for everyday thinking, really, especially for brothers in the urban community who never take that second look, never take that second thought.
+- 'Grease?' I watch that film over and over.
+- I thought that Wu-Tang was the best sword style - the best sword-style of martial arts. And the tongue is like a sword. And so I say that we have the best lyrics, so, therefore, we are the Wu-Tang Clan.
+- I'm focused on creating art and whichever outlet it can get out in.
+- I would not have one turntable if my brother didn't buy the turntable. I was the dreamer; he was the doer.
+- I think exclusivity is important in life. When you look at a hot pair of Jordans, not everybody got them - it's a limited run. You look at guitars. When Gibson made the robot guitar, it was a limited run.
+- I've been vegan for over 20 years, but I started as a vegetarian and grew into veganism in between.
+- I keep all my work and files and kung-fu movies on my laptop because sometimes you travel, and the Internet is slow.
+- As a kid, I was naive. One thing I did have a dream of, though: I had a dream I would make a kung-fu movie.
+- We told you Wu-Tang was forever, and some people forgot that. It's not some fad.
+- With '8 Diagrams,' I just skimmed the surface of musical exploration.
+- When Def Jam wanted to sign Method Man, they wanted to sign Method Man and Old Dirty. And Old Dirty wanted to be on Def Jam - everybody, that was like the dream label. But if I had Old Dirty and Method Man on Def Jam, that's two key pieces going in the same direction, whereas there's other labels that needed to be infiltrated.
+- I didn't learn black history in school. I had to go find Malcolm X books.
+- The black community has for a long time been a part of the Hollywood community, and of course we would love to have a more proportionate ratio of films that tell our stories.
+- That movie 'Hellraiser 2' - to me, that was the most evilest display of evil I've ever seen. I watched that movie ten times because I couldn't believe that each character became more evil than the other.
+- I wrote a big animation scene for 'Iron Fists,' but we couldn't afford all that.
+- I'm a director! I don't work with no amateurs!
+- I'd love to make 10 to 12 films in my life. That's a lot of films, but it's doable.
+- It brings me joy to hear that people are laughing at my scene in 'Due Date.'
+- You come to my studio, it says 'No photography on premises.' I picked that up from Kanye. We don't need all that. In the old days in the Wu, we didn't allow anybody in the studio, not even women. We didn't start allowing women until five years after our debut. ODB used to get mad.
+- Every time I make a new album, I get better and better.
+- Because I have so many brothers and sisters, I think I'm able to have a certain patience.
+- I was definitely a big Run-DMC fan.
+- The spaghetti Western genre is definitely one of favorites.
+- Directing is such a high. It's the hardest job ever, but I really love doing it.
+- When we was making a song called 'Bring Da Ruckus,' we took the snare, and we put it in an elevator shaft and recorded it.
+- In the past, when Jay-Z did 'Best of Both Worlds' with R. Kelly, I thought it was a great album, but the campaign went south because of personalities.
+- I'm not the first guy to make a record or to make hip-hop, but I did it differently.
+- I'm a big fan of technology; I've been a geek since 1986... and I was spending all my paper money on gadgets.
+- I'm glad Wu-Tang was able to inspire other producers and artists, but I would never want to be erased or removed.
+- A lot of people don't know this about Wu-Tang, it started from a focused mind. I was given total autonomy to do whatever I want with them... They agreed, to me, to be a dictator for five years. And in those five years, it's considered some of our best work.
+- While a lot of hip-hop was inspired by jazz or James Brown samples and was made to be played live in the clubs, I made hip-hop that was made for MCs to eat the mic up. It was an aggressive form of hip-hop. It was made just for hip-hop. It's not made to sing or dance to, though you can if you want.
+- As I grew older and got into the late teens and early 20s, I wanted to be a voice of the people. You know, getting locked up all the time and going through so much oppression and seeing it all around myself, I wanted to be a voice for it.
+- I live a very satisfying life. Not because I've made a few dollars, but because I have a wife who loves me and children who wait for me to come home. And that is beautiful. I think that's the American dream: to be at peace at home.
+- A servant sometimes need to be served.
+- If you let a man that you love or anybody - man, woman or child that you love - sit there and destroy themselves in front of you, you're neglecting them.
+- My wife and I go to movies every Wednesday.
+- I thought about doing '36 Chambers' on Broadway.
+- Parenting is something that I got early, because when you grow up without a father being there, and you see a single mother struggle to feed the kids, you do not want to put your own blood through that.
+- 'Rainy Dayz' and 'Glaciers of Ice,' those two songs - I mean, I just love those songs.
+- So I was about 19 when I got my first SP-1200, and on that SP-1200, I made 'Bring The Pain' and a few other classic Wu joints.

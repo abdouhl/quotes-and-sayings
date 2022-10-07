@@ -1,0 +1,68 @@
++++
+author = "Russell Baker"
+title = "Russell Baker Quotes"
+quotes_len = "62"
+description = "the best 62 Russell Baker Quotes"
++++
+- It was clear soon after his election that Obama, like FDR, wanted to start dealing with the economic crisis immediately after his inauguration.
+- You can't enjoy light verse with a heavy heart.
+- Listen once in a while. It's amazing what you can hear.
+- A skillful playwright might have a good time with the story of the assassination of President William McKinley, and especially with the three most flamboyant political figures involved: Mark Hanna, Theodore Roosevelt, and Emma Goldman.
+- American foreign policy had still not recovered from its victory over communism when George W. Bush and Condoleezza Rice took over at the White House in 2001.
+- Situation comedy on television has thrived for years on 'canned' laughter, grafted by gaglines by technicians using records of guffawing audiences that have been dead for years.
+- Live by publicity, you'll probably die by publicity.
+- Children rarely want to know who their parents were before they were parents, and when age finally stirs their curiosity, there is no parent left to tell them.
+- Reporters thrive on the world's misfortune. For this reason they often take an indecent pleasure in events that dismay the rest of humanity.
+- Americans like fat books and thin women.
+- An educated person is one who has learned that information almost always turns out to be at best incomplete and very often false, misleading, fictitious, mendacious - just dead wrong.
+- People who say you're just as old as you feel are all wrong, fortunately.
+- Journalism talk is part of the nonstop background noise of American life.
+- Roosevelt's declaration that Americans had 'nothing to fear but fear itself' was a glorious piece of inspirational rhetoric and just as gloriously wrong.
+- There is a growing literature about the multitude of journalism's problems, but most of it is concerned with the editorial side of the business, possibly because most people competent to write about journalism are not comfortable writing about finance.
+- Feel good about linking hands in human chain for good causes.
+- Journalism was being whittled away by a Wall Street theory that profits can be maximized by minimizing the product.
+- It's always seemed odd to me that after a group of terrorists commits a vile and odious deed they rush messages to the public to claim credit for it.
+- Misery no longer loves company. Nowadays it insists on it.
+- Is fuel efficiency really what we need most desperately? I say that what we really need is a car that can be shot when it breaks down.
+- The goal of all inanimate objects is to resist man and ultimately defeat him.
+- Poetry is so vital to us until school spoils it.
+- Anticipating that most poetry will be worse than carrying heavy luggage through O'Hare Airport, the public, to its loss, reads very little of it.
+- In America, it is sport that is the opiate of the masses.
+- Letter writing was clearly important to Reagan. Even as president he kept dashing off letters to friends, pen pals, media people, statesmen, critics, and the kind of people who write to presidents never expecting a reply.
+- Anything that isn't opposed by about 40 percent of humanity is either an evil business or so unimportant that it simply doesn't matter.
+- What the New Yorker calls home would seem like a couple of closets to most Americans, yet he manages not only to live there but also to grow trees and cockroaches right on the premises.
+- The worst thing about being a tourist is having other tourists recognize you as a tourist.
+- Rereading A.J. Liebling carries me happily back to an age when all good journalists knew they had plenty to be modest about, and were.
+- Serious journalism need not be solemn.
+- You can always tell folks from nonfolks. Folks like to feel good, like to smile for the camera when there's a big photo opportunity for a really good cause.
+- It's good for the soul to hear yourself as others hear you, and next time maybe, just maybe, you will not talk so much, so loudly, so brilliantly, so charmingly, so utterly shamelessly foolishly.
+- Inanimate objects can be classified scientifically into three major categories; those that don't work, those that break down and those that get lost.
+- When sudden death takes a president, opportunities for new beginnings flourish among the ambitious and the tensions among such people can be dramatic, as they were when President Kennedy was killed.
+- It is fitting that yesteryear's swashbuckling newspaper reporter has turned into today's solemn young sobersides nursing a glass of watered white wine after a day of toiling over computer databases in a smoke-free, noise-free newsroom.
+- Usually, terrible things that are done with the excuse that progress requires them are not really progress at all, but just terrible things.
+- A group of politicians deciding to dump a President because his morals are bad is like the Mafia getting together to bump off the Godfather for not going to church on Sunday.
+- Strategic thinkers were naturally rattled to find this outsider fooling around with their work. They had been thinking strategically when Reagan was just another movie actor playing opposite a chimpanzee, for heaven's sake. They think Reagan is too naive, too innocent, to grasp the intellectual complexities of cold war strategy.
+- People seem to enjoy things more when they know a lot of other people have been left out of the pleasure.
+- Don't try to make children grow up to be like you, or they may do it.
+- When it comes to cars, only two varieties of people are possible - cowards and fools.
+- Objects can be classified scientifically into three major categories: those that don't work, those that break down and those that get lost.
+- Gerald Boyd was a classic specimen of the self-made man. Born poor, he worked and studied his way up out of poverty under the guidance of his widowed grandmother.
+- A man writing a letter is a man in the act of thinking, and it was an exercise Reagan obviously enjoyed. After his first meeting with Gorbachev, for example, he sent a 'Dear Murph' letter about it to his old friend George Murphy, a former senator and actor who had once played Reagan's father in a film.
+- It was Queen Elizabeth who made me a foreign correspondent.
+- The only thing I was fit for was to be a writer, and this notion rested solely on my suspicion that I would never be fit for real work, and that writing didn't require any.
+- In an age when the fashion is to be in love with yourself, confessing to be in love with somebody else is an admission of unfaithfulness to one's beloved.
+- Kingsley Amis was one of a trio of brilliant comic novelists who made English literature sparkle in the twentieth century.
+- Like all young reporters - brilliant or hopelessly incompetent - I dreamed of the glamorous life of the foreign correspondent: prowling Vienna in a Burberry trench coat, speaking a dozen languages to dangerous women, narrowly escaping Sardinian bandits - the usual stuff that newspaper dreams are made of.
+- The American press has the blues. Too many authorities have assured it that its days are numbered, too many good newspapers are in ruins.
+- Caution: These verses may be hazardous to your solemnity.
+- The best discussion of trouble in boardroom and business office is found in newspapers' own financial pages and speeches by journalists in management jobs.
+- A day spent praising the earth and lamenting man's pollutionist history makes you feel like a superior, sensitive soul.
+- In America nothing dies easier than tradition.
+- I gave up on new poetry myself 30 years ago when most of it began to read like coded messages passing between lonely aliens in a hostile world.
+- Newspaper people, once celebrated as founts of ribald humor and uncouth fun, have of late lost all their gaiety, and small wonder.
+- Few expected very much of Franklin Roosevelt on Inauguration Day in 1933. Like Barack Obama seventy-six years later, he was succeeding a failed Republican president, and Americans had voted for change. What that change might be Roosevelt never clearly said, probably because he himself didn't know.
+- Those who remember Washington's cold war culture in the 1980s will recall the shocked reactions to Reagan's intervention. People interested in foreign policy were astonished when in 1985 he met alone at Geneva - alone, not a single strategic thinker at his elbow! - with the Soviet Communist master Gorbachev.
+- My natural instinct after doing something shameful is not to rush into the street boasting about it but to put on dark glasses and head for the next county, hoping nobody notices I've been in the neighborhood.
+- It seems to be a law in American life that whatever enriches us anywhere except in the wallet inevitably becomes uneconomic.
+- Ah, summer, what power you have to make us suffer and like it.
+- Except for politics, no business is scrutinized more exhaustively than journalism.

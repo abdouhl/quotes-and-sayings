@@ -1,0 +1,110 @@
++++
+author = "Andrew Lloyd Webber"
+title = "Andrew Lloyd Webber Quotes"
+quotes_len = "104"
+description = "the best 104 Andrew Lloyd Webber Quotes"
++++
+- Sometimes I get the story wrong, or it's the wrong story, and then things don't work.
+- If you look at my career... I couldn't possibly have chosen those subjects if I was thinking, 'That's a great commercial idea.' I'm not aware of a great musical where someone has done that.
+- All I've ever tried to do is get the best out of people and to bring a bit of humour into it. Unlike, say, 'The X-Factor,' which may be great TV, but has no humour at all.
+- It doesn't stand up to huge intellectual scrutiny.
+- The arts are the one thing that appeal right across all forms of politics, race, creed - everything.
+- It must have been an extraordinary time. I guess the worrying thing about musical theatre to me, is if you look at the London season this year, mine is actually the only one to have come in.
+- I loved medieval architecture when I was very small; I don't know why.
+- As a composer at a point where I can absolutely pick and choose what I want to do, I don't want to write about anybody I don't care about.
+- Mobiles mean people know where you are.
+- I said, look, do you think you could bring Gerry through, and they said yeah, absolutely, they thought that. Joel was very keen to cast him. If all my music team were happy, I was happy.
+- I think that the wonderful advantage we have in the film of being able to cast a girl as young as Emmy and which we couldn't do in the theatre of course because no girl of 16 or 17 could sing 8 shows a week, couldn't sing two.
+- I don't really care very much if I don't think that the critics really understand music.
+- Superstar was made so early in my career I had nothing to do with it at all. The first time I saw it was the opening screening.
+- I wonder what would have happened if automation and computers had existed when 'Oklahoma!' was having its out-of-town try-out, and three days before closing in Boston, when it was still called 'Away We Go,' they added a new song called 'Oklahoma!' I don't think that could happen today. It's almost impossible to change musicals on the go now.
+- Together, we can nurture the talent of the future and bring the empowering force of music and the arts to a new generation.
+- The fact is that 'The Wizard Of Oz' has never really worked in the theatre. The film has one or two holes where, in the theatre, you need a song. For example, there's nothing for either of the two witches to sing.
+- Here's the truth. The proposed top rate of income tax is not 50 per cent. It is 50 per cent plus 1.5 per cent national insurance paid by employees plus 13.3 per cent paid by employers. That's not 50 per cent. Two years from now, Britain will have the highest tax rate on earned income of any developed country.
+- I have a very strong will.
+- I would have gone right ahead but the only thing, the only phenomenon that's going on now of course, which is different in my experiences, is that you are getting things planted in the Net by people about the Woman in White on the Net. That's not a nice change.
+- Corny answer is of course is that everyone who wants musicals are children in different ways, aren't they? So you think of them in different ways. There are things of mine I'm sorry haven't come here.
+- Glenn Slater is my lyricist who, of the new young lyricists coming along, is the most exciting, I think.
+- 'Phantom of the Opera' started in my little 100-seater converted church in Britain with a stage where we did what we did. But it was the score itself was what made it.
+- Nothing will ever be as big as 'The Phantom of the Opera' for me.
+- A couple of back operations didn't cure anything, but instead, things got worse and worse and worse.
+- You're the luckiest person in the entire world if you know what you really want to do, which I was lucky enough to know when I was very young. And you're the luckiest person in the world if you can then make a living out of it.
+- If you know what you want to do, as I always loved musicals, and then to have been lucky enough to be successful with them, I think that's all you can ask isn't it? I think I don't really think too much about it. I am a bit shy socially, yeah, I admit that.
+- I do want to write again. I hope to. But it's also important for me to realize, as I get older, that I don't have to be doing everything all at once.
+- The plot of my 'Phantom' is pretty much mine. It's based on the Gaston Leroux book - I've taken a lot of liberties with it.
+- There's no getting around it: Writing is hard, while working with young performers is nearly always a joy.
+- I often think how lucky we were with 'Jesus Christ Superstar.'
+- Nobody ever thinks that the work they're going to do could ever be bigger than the one they do before, especially if you're lucky enough like I had to have such a huge thing as 'Phantom' was.
+- They should go back to the medieval tradition, which is that the nave of the church is always used for local business.
+- Making good television is what Simon Cowell does. That's his business.
+- Disgracefully, the arts have too often borne the brunt of short-sighted cuts to educational budgets.
+- People in Britain always think of 'Jesus Christ Superstar' as a musical - it wasn't.
+- I've got to find something and if I find something that I like, I'll do it. If I don't, I won't.
+- It never occurred to me that 'Phantom of the Opera' was the sort of subject that I'd want to do, because I just thought it was something that would be a bit jokey. 'Til I read the book.
+- I'm a ladies' man who can never make love. I'm resigned to that.
+- I think back at the time, if it had been 1988, I would have thought Michael and Sarah probably would have been cast but I don't think, I think it's much better that the girl is younger and if Sarah would have been 26 or 27 then.
+- I want to get every church in the country on Wi-Fi.
+- Musical theatre history is littered with bad reviews for now classic pieces.
+- I remember, once I was going through Nice airport with Roger Moore, and these kids came up and asked for our autographs. Afterwards, Roger said, 'It must be very strange for you. I'm an actor, and signing autographs is part of what I do. But you're a public figure who people don't really know.' He was right.
+- I'm wondering whether to have someone go around with my mobile to completely throw everybody off the scent. I could appear in weird places.
+- I never wanted to be a performer. I suppose I was precocious, really.
+- We felt we had to know something of his back story. I don't think people in the cinema would just accept that he's there. I think we had to learn how he (got there).
+- I knew nothing about film at all. I suppose the biggest surprise is all these things. In the theatre we sort of do, I might do two or three key interviews and that would be it.
+- In Evita I wasn't really hugely involved with it. I gave a little bit of help but they needed a bit of technical help on the movie and so some of my music people went in at the end of the movie and helped out with it.
+- At one point I couldn't move or get out of bed or anything. I developed blood clots because I'd been completely inactive. Then they thought - because the pain was so much - I had an infection in the bones, so they gave me pills, which gave me a tummy infection. It's like a French farce.
+- Well we'd just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he's a big hunk isn't he? All I can say, if you look at his chat line, or the Phantom website, it's quite worrying. Because the girls really seem to love him.
+- I think the thing's that perhaps sad really is that younger people haven't come in and I think it must have been absolutely fantastic to have worked in the 50's when you had all of the great Broadway composers and when West Side Story didn't win the Tony Award.
+- I guess the thing is that we remained huge friends after the original Phantom movie, when we decided it wouldn't take place and we just saw each other socially over the years so we were friends.
+- 'The Phantom of the Opera' is the biggest thing I've ever done, bigger even than 'Cats' which, in itself, I never thought we'd top.
+- It's interesting that the wondrous 'Hamilton,' which I could not be more ecstatic about, has taken a long time to perfect to bring it to Broadway. And it wouldn't have been possible if it was developed in the commercial theatre from the get-go.
+- I haven't written a score that's going to change the Western world or the musical as we presently know it.
+- When we finally came to start work on this, the joy was it was only Joel and I, we didn't have to answer to anybody, and we didn't have to submit a screen play or anything like that. We just wrote it and then made it.
+- One would be lying if one didn't say that one had melodies that I keep in my back pocket.
+- I'm going to take the kids away over Christmas but I don't, I've written 14 musicals now, I don't want to rush into doing something just for the sake of doing it. I want to do it when I find a story.
+- 'The Phantom of the Opera' is about love. It's as simple as that.
+- I'm not a critic, and I never talk about other people's work.
+- I put a hell of a lot of myself into 'Love Never Dies,' and I felt quite drained afterwards.
+- After I had prostate cancer, I had something which was misdiagnosed which led to a load of back operations.
+- I'm alive. I have my music; I have my children. I am the luckiest man.
+- Where I have come unstuck sometimes has mostly been to do with the stories not being quite right or not connecting with a contemporary audience.
+- I was about 10, and I was supposed to be playing the piano at the school concert, and I got up in front of the whole school and said, 'I'm sorry. I'm changing the agenda. I want to play some songs I've written.'
+- Music, architecture and pictures have always been my passions, and all that material wealth has meant for me, is being able to have some of the pictures I liked.
+- It may sound amazing to people today, but Rodgers and Hammerstein were considered by - how can I put it? - the sort of opinion-making tastemakers and everything to be 'off the scale as sentimental.'
+- And it sort of jogged a memory of something that I read at school and I read it, and I thought God this is it. So you never can tell. I could find something this afternoon.
+- I don't know what really makes a great musical or not. In the end, you write it, and you write it because you want to write it.
+- What strikes me is that there's a very fine line between success and failure. Just one ingredient can make the difference.
+- People like to put you into a box. I'm afraid I don't sit in a box.
+- I often think of random melodies. And I pretty much hear in my head what I want to do with the orchestra as I'm writing on the piano.
+- I've often thought that we left the original 'Phantom' with a little bit of a cliff hanger, and I thought, 'Well, why not to do a sequel to it' at one point.
+- I began to think, now is the time. I found quite a lot of opposition in Hollywood about the idea of doing a film musical and we ended up having to buy the rights back. I'm glad we did because it meant John and I were able to make exactly the movie we wanted.
+- Musicals are very collaborative. Unless you find somebody who wants to do something with you and has equal commitment, it's not going to work.
+- Two pieces of advice for young composers: Go away during technical rehearsals. And do not have a back operation.
+- I guess we've had a very close relationship because I don't pretend to know about cinema and I think I do know a bit about theatre but he does, he respected that and so we really just had a collaboration which went completely like this.
+- If you just want ten songs to fit somebody else's script, then I'm not really the composer for that.
+- You can't just sort of come with, say, 'Yesterday,' or 'A Hard Day's Night,' and it be in the wrong place in the wrong show, and expect the song to work theatrically.
+- What I can't tell is, I don't know if there's a subliminal resistance to the idea of a sequel to 'The Phantom of the Opera' anyway.
+- The next few years are going to be horrendous in the UK. The last thing we need is a Somali pirate-style raid on the few wealth creators who still dare to navigate Britain's gale-force waters.
+- Since 'School of Rock' opened, for the first time in my career, ever, really, I've had a lot of projects offered to me. It's extraordinary. Normally, I've initiated them all myself.
+- I think Michael Crawford realised, I think we all realised, once we'd gone the route of casting a very young girl, you can't really cast a 65 year old man opposite. Slightly different resonance I think. No, we weren't going to go there. We'd have Jack Nicholson in the lead.
+- My wife says I can't remember if she has milk in coffee.
+- Well the least favourite question is the one that one's asked particularly about in Japan is what's the difference between theatre and cinema and I think, well, that's about eighty bucks.
+- We try to get the best performance out of the artists. There is no point in saying to them, 'You're useless.'
+- You cannot help but notice that schools that take music seriously tend to be more academically successful.
+- Two years ago I hadn't even thought of the Woman in White, and I was doing a television show and I said I hadn't found a story and the next day somebody rang me and said have you ever thought of the Woman in White.
+- We don't have butlers. Obviously we have people who look after the houses, but I try not to run things formally.
+- I have lived and worked in Britain all my life. Not even in the dark days of penal Labour taxation in the Seventies did I have any intention of leaving the country of my birth.
+- Surely, you go to the theater because you want to have a great evening in the theater.
+- I mean I don't really think about it. You know, do you know what I often say to myself? I think you're very lucky in life if you know what you want to do.
+- My love of musical theater was certainly not typical. I mean, it was considered to be very, very abnormal, in fact!
+- Negative things, and they were all deliberate and I'm not going to say who they were but I know who they were and it was in the business, and that's not a good sign.
+- I don't think I am that materialistic, actually. Obviously at home in the country the art collection is important, but we have one big room in the middle of the house where we do everything - the television, the kitchen, everything.
+- I've a rare Turkish swimming cat.
+- I have always tried with my shows - win, lose, or draw - to take the boundaries of music as far as I can.
+- You never know what will happen. There is a thing called zeitgeist. You have to hit it.
+- 'School of Rock' is fun. Hopefully, I've fleshed it out with a few catchy songs and kept the spirit of the original movie.
+- I got known as the school swot, which wasn't me at all.
+- The regrets in the theatre have always been the shows that you know ought to have worked but for one reason or another haven't.
+- The moment the doctor said he wanted to do a biopsy, in my heart I thought I'd probably got it. But I also know a lot of people who have also had prostate cancer, so I had a reasonably good idea what to expect.
+- The one thing I have always felt about musical theatre is that it is, to an extraordinary degree, about construction.
+- Because her voice is, it's like the muscles and it develops all the time. That was the fantastic thing for us.
+- I'm a composer, and therefore I know when I've written a good tune. When you've written a good song is when you know that the lyric is completely coalesced with the song.

@@ -1,0 +1,106 @@
++++
+author = "Big Show"
+title = "Big Show Quotes"
+quotes_len = "100"
+description = "the best 100 Big Show Quotes"
++++
+- You always have to embrace your size.
+- Miami is always my favorite town to work because it's a short drive home.
+- I'm a little worried because I've heard that Shaq has got, like, really fat. If he's going to go into WrestleMania bigger than me, I'm going to lose my moniker as 'The World's Largest Athlete.' I hope he is well. I hope he is healthy.
+- I'm kind of a Jack of all trades, master of none.
+- When I came out in '95, even though it was part of the storyline, I was known as the next evolution of Andre, the next giant. I was that young, athletic, trash-talking monster. That was my introduction to the industry, and I was able to build on that.
+- Kane is one of the best big men of all-time.
+- Not everybody is going to be John Cena. Not everybody is going to be The Rock. You need to be what you can be and contribute like you can.
+- I like to think, personally, that Shaq got scared. He saw the six-pack and realized if he faced me at WrestleMania, he was going to be Fat Shaq.
+- I got to meet Hulk Hogan. He took a liking to me because of my size. He saw that I was a good athlete and could move. He told me at the time, he says, 'You got a big dollar sign in your forehead, kid,' and I said, 'Well, please show it to me, because I'm broke.'
+- WWE is home; it's a family. I'll always be a part of this as long as I can contribute in some positive way. But I know there's a time when the sun sets on everything.
+- You don't want to have a fast career for two years. You want to have an amazing career for 20 years.
+- I'm definitely saying right now that if I had to face Shaq's mom at WrestleMania, I will not show up. I'll be scared. If Shaq shows up, no problem. Shaq's mom shows up, eh, I don't know. I think I might get the flu.
+- I think a natural evolution for me would be to try to transfer over into the film and TV world and start playing different characters. Hopefully, that way, I can keep entertaining my fans that are fans of me, in different avenues and different spotlights. It's a natural evolution.
+- I had a conversation with John Cena, and I told him, 'If only I could be a giant with abs,' and he said, 'Maybe you could be a giant with abs.' That kind of got me thinking that maybe John was onto something, because when it comes to obviously being successful and marketable, John is one of the smartest people I've been around.
+- I think that's one of the reasons why I've been able to have a great career for 20 years - because I'm able to adapt.
+- I'm not under any pressure other than to go out and have fun.
+- I was a big kid and a big athlete, but let's be honest: I don't know diddly about football.
+- You have to look in the mirror and really have an honest conversation with yourself and find the discipline to not eat things that don't agree with you.
+- The Attitude Era was so great because you had the best collection of superstars of any one time period. You had The Rock, Stone Cold, Undertaker, Mick Foley.
+- Kane's gloves get pretty rank. He grabs you for a chokeslam, and you just want to faint.
+- WWE is a team. Out of the billions of people on this planet, the 75-80 men and women on the roster have the opportunity to call themselves WWE superstars. That's a very small percentage of people. They are in a position to be thankful.
+- I want to make myself more marketable. Well, in order to do that, I need to lose some weight.
+- Bam Bam Bigelow was an amazing athlete for his size.
+- People love storylines. They love them because at some point, the talent will get people emotionally invested.
+- Defining moments are the moments that either define you, or you define the moment.
+- I wouldn't want to get Shaq's mom mad, I'll tell you that much. If she told me to do something, I would do it in a heartbeat. I wouldn't want her mad at me. That woman is serious.
+- Let's face it. My dad was a mechanic, and my mom was a cop: my college options in seventh grade didn't look that great. And the chance I got to go to college and experience college life is something that's pretty precious to me.
+- I can look at every one of my faults, see they're there, and go out and try to improve on it.
+- I think I'll always have a home in WWE.
+- Professionally, John Cena has my respect more than anybody I've ever been around in the ring and out of the ring.
+- I have a self-deprecating sense of humor, so I knock myself.
+- The Undertaker is the John Wayne of our business. I watched him come out and deliver some of the best matches night after night.
+- I don't think anyone really knows me.
+- I'm an emotional person. Anger and frustration comes out in many ways... I'm not afraid to hug my friends that I love, and I'm not afraid to express my emotions when I'm upset.
+- Arn Anderson - I loved 'The Enforcer' Arn. He cut the best promos. He always looked cool because he had that Polo with the rope chain, the rose-colored glasses, and that mean beard.
+- There is nothing more powerful in the world than the human spirit and the human will.
+- I used to do an impersonation of Hulk Hogan and Randy Savage in a romantic relationship.
+- I owe my start in professional wrestling to the red-headed kid from 'The Partridge Family.' I was discovered by Hulk Hogan, Jimmy Hart, and Ric Flair in Chicago when I was introduced to those three gentlemen by Danny Bonaduce.
+- I'm really impressed with Sheamus. The thing about Sheamus is he's very, very physical. He's a brawler. He's strong, he's hungry, and if he's smart, he'll learn to avoid my right fist.
+- I do a lot of gaming.
+- I'm a big 'Call of Duty' fan, and I used to play a lot online while I was in the bus, but I hate to be the guy who is lagging everybody out.
+- I liked being the monster that was bigger than everybody around me.
+- I'll be that guy who's 80 years old and still has a job. There is no 'retire' for me.
+- A lot of U.K. wrestlers are very good at chain wrestling, telling a story through holds, while American wrestling is a little more flashy, with lots of high-spots.
+- It's real easy to talk about stepping in the ring, but once you do actually step in the ring, it takes a lot of courage and mental fortitude to do what we do.
+- The toughest problem for us as giants is finding someone that we can work with and wrestle.
+- Being a WWE superstar is about giving, and I think there's a few guys who get that.
+- I've always prided myself on doing what really was best for business.
+- I never thought I'd be good enough. I really didn't. There's probably some fans out there who say I'm still not good enough, and that's OK.
+- Standing toe to toe with another fighter, I could probably do well, but a smart fighter is not going to stand toe to toe with me, and they're going to move to a weakness.
+- I think it's a good trade to have to be versatile, to be adaptable, and be dependable, and that's one of the things that has enabled me to have the long career that I've had. It's definitely not because I'm good looking!
+- At 12, I was, like, 6-2. At 13, I was, like, 6-5 or 6-6. I had always stuck out as a bit of a freak, so athletics gave me a chance to make friends and, I guess, find my 'cool' vibe, if there's such a thing when you're in high school.
+- Nobody beats Superman. Everybody else needs a costume - Superman needs a costume to be normal.
+- No man can knock me out. I've been hitting my head with steel chairs in the WWE. I've never been knocked out in my life. And nobody can knock me out.
+- I am able to carry storylines. When you're good at what you do, you're going to work. That's a good thing. But from the standpoint of being an attraction, sometimes too much isn't good. So it's a difficult fine line.
+- I've had a blessed, blessed, fantastic career. I have no regrets whatsoever in my career.
+- WrestleMania is one of those events where you want to put the most different, most extravagant, most exotic show you can out there.
+- I started out thinking I was going to play in the NBA; now I travel the world as a WWE Superstar. Life changes.
+- Luther Reigns is a powerhouse.
+- I found a great trainer in Miami with Dodd Romero, who's worked with a lot of celebrities and athletes. We built a good program for me for training and for me to work on my nutrition and things like that.
+- I start small. I'm kind to people. I say please, I say thank you, and I always try to be encouraging and positive.
+- I was trained by Terry Taylor and Triple H. Triple H always hated when I say that.
+- There is nothing that anyone can stop you from doing if you really want.
+- I have a lot of respect for Shaq. He's one of the greatest NBA centers of all time.
+- I was a fan of 'The Jetsons' growing up.
+- When I walked down the ramp and stood in the ring, I made other big guys look small.
+- I've had a great career and had a lot of fun.
+- The only time I had an ego is I when wanted to have a reverse Undertaker record at WrestleMania, and they messed it up!
+- I have fun every day I go to work.
+- Not by any means do I think that I'm The Rock or Mark Wahlberg. I understand that I'm not like them, being a leading guy, but I'm a great comedy sidekick, and, who knows, I can be in the X-Men or something.
+- I've wrestled some of the strongest, most athletic guys this business has ever seen. Brock Lesnar, John Cena, Mark Henry, Kane. These guys are phenomenal, phenomenal athletes and powerhouses.
+- I have a PS2 and Xbox and a GameCube: that way, in case anything comes out that looks cool, I have the system to play it on. I got everything, bro, I ain't no rookie.
+- Brock Lesnar is a guy who doesn't do a lot of live events, doesn't do a lot of house shows, but every time he steps in the ring, it has a big-fight feel.
+- I'm definitely looking to do more animation stuff.
+- The best match I've ever been in match-wise, I wrestled The Undertaker in France in a coliseum that was built in 300 A.D. by the Romans. It was the most amazing match I've ever been in.
+- I think, quite frankly, I have been on TV too much, but part of it is necessity, and part of it's ability.
+- I love representing WWE, like, with Make-A-Wish, Be a STAR, Special Olympics.
+- People always talk about my heel/face turns. One of the jokes in America is I've had more turns than NASCAR.
+- Being able to give someone a hug from the heart, it's healing. It's healing for yourself and healing for others, and we need a lot of that.
+- I've never been a guy to sit back and look at all my trophies and look at all my awards; that's not me.
+- I think, for me, I really looked at nutrition, talked to some people who knew a lot about nutrition, looked at different meal plans... calorie intake and what I was trying to do. I started slowly. I didn't start as a 'diet.' I started as a lifestyle change.
+- Diversity makes us better and allows us to grow, which is what I want for WWE.
+- I'd love to wrestle Baron Corbin and Finn Balor.
+- I've never been one of those guys who wants to put up titles and championships and run around and brag.
+- I think competition is the best thing for everyone. Competition is what makes us evolve, from when we were itty bitty little tadpoles in prehistoric times to what we've turned into now. Competition makes us evolve and makes us push ourselves better.
+- The only way to get better is to wrestle better people and work with better guys; that's the only way to get better in our business.
+- It's funny, I used to ask guys who were in shape all the time, like Triple H, 'What do you do?' It was hard to get information out of them, and I understand why now. When you take the time and do the research, it's more about what suits you, not what suits everybody.
+- There's a lot of trainers in my career, between Terry Taylor and Arn Anderson, who've always told me to keep my damn feet on the ring mat, and there's just that little kid in me - I may be 45, but there's that little kid in me that, if I get a chance to do some flying, I'm gonna do it.
+- You've got to have a mean streak to be a successful, big man.
+- One of the first media tours I did was with The Rock - no one knew who I was, as I had just come from WCW; they thought I was The Rock's bodyguard.
+- Of course I will always be an ambassador for the WWE, so definitely anytime they need me for something, I'm only a phone call away.
+- The way I look at it, I'm more of a man because I'm in touch with my emotions. I think people that deny their emotions are pretty weak individuals, if you want my honest opinion.
+- For so many years of my career, I was The Big Show. So in the back of my mind - whether it was 'fat' or aesthetically not pleasing or whatever crap people want to sling around - I enjoyed being The Big Show. I enjoyed being 450 pounds.
+- The Internet is filled with so-called experts who couldn't lace up a pair of boots.
+- Wichita's a fun place. It's a great place to go to school. It's a big university, but at the same time, it's not too big.
+- That's why John Cena was No. 1 for so many years. Because every time John got in the ring with somebody, he made them better than they were.
+- I've always been a really hard critic of everything I do.
+- There are a lot of projects I want to do with producing and acting outside of wrestling.
+- The Internet connection from the road can be spotty, so usually when I'm on the tour bus, I'm playing 'God of War.'
+- So there are ups and downs, but the best is just the looks on people's faces when they meet me for the first time, because I am a real-life, walking, talking giant. It's not every day you see someone like me walking down the street.

@@ -1,0 +1,106 @@
++++
+author = "Charles Oliveira"
+title = "Charles Oliveira Quotes"
+quotes_len = "100"
+description = "the best 100 Charles Oliveira Quotes"
++++
+- I'm going to take it step by step to get my belt.
+- I never asked for bonuses inside the octagon, I always focused on winning.
+- I fought Swanson when I was injured and I shouldn't have but I wanted to.
+- McGregor talks a lot, but he's also really tough and deserves our respect.
+- Why 'Do Bronx'? Because I'm from the slums, those are my roots.
+- I have to talk to my team, but I want to stay at 145-pounds. It's my division and I feel more comfortable there.
+- In the division, yeah, I believe I have the best ground game.
+- I dream of getting to the belt. I know I'm gonna get there. I'm gonna be the champion.
+- Mr. Efrain Escudero is a great fighter and TUF Champ. He has fought in big fights, and has a great record.
+- I know a lot of people will talk crap at me, but they can say whatever they want.
+- Jim Miller is an important fight for me. It's just like any other fight, but it's important for me because Jim Miller was the first guy to defeat me.
+- I think the only thing that happened when I fought Jim Miller is that I was a just kid, he had way more experience. I was winning the fight, landing punches and trying to get 10 submissions at the same time, and Jim Miller went for one attack only, a kneebar, and got it. His experience made the difference.
+- I came into the UFC five years ago and I was a kid. Now I'm becoming a man in there.
+- Featherweight is my division.
+- I asked for a tough fight, and I'm very excited to fight such a good fighter and a former champion like Frankie Edgar.
+- I called out Conor McGregor, but it didn't work.
+- I think the UFC needs to value me and they are valuing me.
+- There are guys that just entered the UFC and people already talk about fighting for the belt. Guys that have one fight there and say call a jiu-jitsu phenom. They haven't done anything in the UFC yet to deserve all that attention.
+- I think Kevin Lee is an excellent fighter who fights well on the feet, has evolved in that area, but his strongest weapon is wrestling, not jiu-jitsu.
+- The only thing Kevin Lee does better than me is talk and sell fights like that. I sell fights my own way, inside the cage.
+- I come from the favelas, I'm grounded.
+- Actually, 2016 wasn't a good year for me, as I didn't get any wins. But I started to feel things would get better when I found out about the pregnancy. I'm very happy, this is a new chapter of my life and I'm sure I'll win and dedicate it to my daughter and my family.
+- Everybody knows where I come from and how my jiu-jitsu is, training at Macaco Gold Team, but I also work on my striking at Chute Boxe Diego Lima, so I'm prepared on the feet and on the ground.
+- I want to get the belt at 145-pounds.
+- It felt amazing to walk out and hear the energy of the crowd here in Chicago.
+- I was a child among the lions. Now I want to be one of those lions.
+- I'm an employee, I work for the UFC.
+- Kevin Lee is really tough. He has some flaws in his game that we can work with. I think he mixes up his boxing and his wrestling really well. He takes you down, he unleashes some strong ground and pound. However, he usually starts a round strong and then starts to fade. In five rounds, I think I can take an advantage of that.
+- If someone ever says I had an easy fight in the UFC, they are lying.
+- I believe everybody feels better when they don't cut too much weight.
+- Anyone that is in the UFC, if you don't have a dream for the title, you're in the wrong sport. You can leave.
+- My jiu-jitsu is very simple and basic.
+- I work on armbars, triangles, anaconda chokes, guillotines and rear-naked chokes. Basic, simple stuff. I just wanna go there and win the fight, I don't wanna invent too much and try doing fancy things.
+- I came to the UFC to make history.
+- Anthony Pettis, he's a really tough fighter and it was a close fight until I made a mistake and gave him the neck.
+- I'm ready to fight anyone, top 10, top 5... I deserve a chance at the belt.
+- The future belongs to God.
+- I don't have to rush the fight. I have five rounds to win.
+- I'll fight anyone. I've never turned down a fight in the UFC, and I'm here to fight.
+- I love it here, 145 pounds is my division.
+- I don't think about winning a bonus, I think about putting on a good fight and, if God blesses me, I will win the bonus.
+- I practiced everything, from my BJJ to wrestling, judo and Muay Thai.
+- When I get in the cage I am smiling because I am having fun.
+- Lightweights are heavier and bigger than me. I walk around 166 pounds, and other lightweights come down from 198, so they are stronger than me.
+- Man, jiu-jitsu is such a chess match.
+- I ended up moving up to lightweight, which I didn't want, and fought a really tough guy, Will Brooks, and beat him like nothing.
+- Anything you do in your life, you have to be a professional.
+- My team never let it go up in my head that I am a record holder.
+- I think I have to go down to featherweight. That's where I should stay, where fights will be more equal.
+- I have fun when I fight, and I am going to have a lot of crazy moves.
+- I'm staying lighter because I want to go back to 145.
+- Stop messing around sending me unranked fighters. I want someone ranked, someone that will take me closer to my goal, which is to become champion.
+- I'm almost certain that no one at featherweight or lightweight wants to go to the ground with me.
+- I rested only two days after my loss to Jim Miller.
+- I have a great jiu-jitsu game and I'm awesome at submissions.
+- I know I can beat everyone that defeated me.
+- I will do my best all the time.
+- I do not think UFC gives wrestling of the night bonus.
+- I like to stay busy!
+- When Kevin Lee's name was brought up, I told everyone I thought this fight would happen. This is a good fight for me. It surprised me because nobody wants to fight in Brazil.
+- Becoming the guy with most submissions in UFC history at age 28, breaking Royce's record, will definitely give me more leverage with the UFC. I'll get more attention and more sponsors. It helps a lot.
+- My job is to fight. I make money by fighting - that's how I provide to my daughter.
+- I'm here to put on a show.
+- I'm a professional fighter. My game plan is to fight standing up and to fight on the ground.
+- To stay in the UFC while fighting top opponents... tell me one easy fight I had in the UFC. I have a history in the UFC.
+- I had no easy fights ever since I joined the UFC.
+- Will Brooks is a very tough guy. He's an ex-champ and beat very tough guys. The same way I fought very tough guys.
+- Max Holloway, I know I can beat him.
+- I injured my neck in training, but did physical therapy and thought everything was fine, but when I fell against the cage everything went numb, I couldn't feel my body.
+- I'm a legend now. But I'll keep my feet on the ground.
+- What's important is to be fighting in the UFC. It doesn't matter if it's the first or last show.
+- A fight is a fight and anything can happen.
+- I fought three opponents in one night two or three times, but never five rounds.
+- My friends joke that I'm a young veteran in the UFC.
+- Everything in life has its perfect moments.
+- If I could I would fight every week.
+- The Brazilian circuit is very different. There are no easy fights, every gym only puts in their best guys to fight.
+- Only I know how hard I trained. I left my family, my girlfriend, and the people I love in Brazil to train in the United States with 'Macaco' five or six times a day.
+- In my first interview in the UFC, I asked them to throw me among the lions. I wanted to fight the best, and that's what the UFC did. Ex-champions, future champions - that's what I wanted.
+- What matters the most to me is breaking into the top-10.
+- There's no denying it, I'm one of the best in the world, the belt's going to be mine.
+- You do have to fight different when you might have to fight three times in one night. I really like fighting just one time a night, this lets you do more things.
+- Rear-naked chokes are easy? Yeah, it's easy to get, but people are getting better at defending it.
+- I'm working hard not only during training, but also studying English to talk to the crowd and respond by myself during interviews.
+- Sometimes at 155 pounds I was the smaller fighter, at 145 pounds I am more often the bigger fighter, and the taller fighter.
+- I think I would have a war against Dustin Poirier, because of his style. Tony Ferguson, too.
+- I'm in my best moment, seven straight wins, five by submission, two by knockout. I don't ever leave it in the hands of the judges.
+- I've been fighting in the UFC for five years now and it's about time I'm headlining a card.
+- The new trend in MMA is to talk trash and curse to get a fight, but I'll never change who I am.
+- I'm the best there is in jiu-jitsu.
+- I would really like fight in Uruguay.
+- It's easy to enter the UFC, but staying there isn't.
+- If I see an opening, I'll go for the submission.
+- I showed that once again a guy from the 'favela,' from the community, it taking over the world.
+- I always come in different. A different Charles comes in every time. A Charles that wants to fight and win and become the champion.
+- Yes, everyone at UFC are very nice.
+- I don't come with the goal of submitting, knocking out or getting bonuses. I come to do my job, to show that a humble guy can chase what he wants.
+- God gave me the power. God showed me the way. He helps me and gives me support and it's my job to get that message out.
+- I had a shoulder injury and the pandemic helped me take some time off to recover 100 percent, and the UFC took some time off, too.
+- I would fight McGregor in any weight, no problem. It would be a good fight, I'd really like to fight him.

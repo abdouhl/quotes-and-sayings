@@ -1,0 +1,16 @@
++++
+author = "Frank Thomas"
+title = "Frank Thomas Quotes"
+quotes_len = "10"
+description = "the best 10 Frank Thomas Quotes"
++++
+- I grew up in the Boys & Girls Club. That's where I really started playing all sports, and that's why I'm a big advocate for the work they do.
+- When you're going into a game, you're not expected to hit a home run every game. You're just doing everything proper with proper swings.
+- In the South, the food is outstanding. Down south, we eat to get full, and the people up north, they don't do that.
+- I come from good stock. Both of my parents are big - my dad is a big guy; my mom is a big lady.
+- At the Home Run Derby, you're expected to hit home runs. You're up there trying to hit home runs.
+- I think there is a lot of good in making the All-Star Team. People look at your career a little bit differently.
+- I got snubbed about eight times for the Mid-Summer Classic, and I know what type of career I had, and I know that I'm a true All-Star. The selection process is not very accurate.
+- I'm just happy to be sitting right here in Chicago and right here at U.S. Cellular Field, holding my Hall of Fame press conference. I'm proud of that.
+- Doing something the right way is something I take pride in.
+- A Home Run Derby is fun. It's just like taking batting practice, and you just want to go deep. Guys do it every day. Yes, there's a little more pressure when they pull that cage back, but if you practice properly, it shouldn't affect the second half of your season at all.

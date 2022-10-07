@@ -1,0 +1,72 @@
++++
+author = "Russell Simmons"
+title = "Russell Simmons Quotes"
+quotes_len = "66"
+description = "the best 66 Russell Simmons Quotes"
++++
+- Most people believe that results matter. The idea that results matter is one that you have to keep letting go of. And most of the time, I believe it.
+- People are afraid of failure - they don't like to work so hard and have people keep saying, 'No.' I think that's what people fear most.
+- I mostly eat healthy. I just do. I'm not a vegan for health reasons - although obviously I'm 20 pounds lighter than when I started. I stayed 20 pounds lighter. I feel better. My friends say I look better. All that's true. But I'm a vegan for compassionate reasons.
+- It is crucial that rappers have the chance to express the truth that is in their heart.
+- I want to get involved in things that makes a difference in peoples lives and lifts them up. I don't want to be a part of anything that's not inspiring or helpful to the community that I'm serving.
+- Judgment of the people in the situation is not helpful. How can you help them is the question.
+- People will always blame the poets for society's ills. But these are the true artists.
+- American democracy is spoiled by people buying everything in sight and then selling and buying everything in sight, including our politicians.
+- I have 2 million Twitter followers. Some of those people are also yogis and activists and people who really go out and make a difference. I do as much as I can with my voice. It's effortless in some cases. I try to remind everybody that they have that kind of voice.
+- I try to make my life about service, and hope that one day we can all 'see' a little better because God is with everyone and everywhere.
+- I think that diversity is key for the next American entrepreneurs. They want to be a part of this society where there is so much diversity they have to have people from all the experiences.
+- Surround yourself with people who are smarter than you. Pick people who are interested in what you're interested in.
+- I produced Run DMC. I produced some early records, lots of records early on.
+- I think the idea of getting money out of politics is critical.
+- You know, I love all kinds of activism. I certainly think blacks deserve to have something whether it is affirmative action or an opportunity that should be opened up to them. But at the same time I believe that people of color are not the only poor people in America and all over the world.
+- I think people instinctively know that their job is to give service and that they are part of a community. It had a great impact on me when my father walked the picket lines and I walked with him during the civil rights movement.
+- I'm not a politician. I only want to help relieve the suffering in communities, and I want to help people see their community in each other.
+- I think I will always have a connection to young people, to try to bring their voices to the polls, bring their voices wherever they can make a difference.
+- I think I'm less afraid of failure than some others.
+- The thing about hip-hop is that it's from the underground, ideas from the underbelly, from people who have mostly been locked out, who have not been recognized.
+- I don't use my brain about the creative thing. From a business standpoint, I instinctively do things: when I get something right, it's never because I use my brain.
+- I run a bunch of charities and I say this line to people: 'I am somebody who has always been helped.' A little thing like that can make people believe it.
+- To be awake is to be fully present, no noise, just you and God. Most of us only have seconds of full consciousness. To live in a state of Samadhi - that's what we're here for.
+- If you run a corporation, your job is to maximize the return on investment for your investors. Good for you. But by the same token, we have to remember that corporations have no compassion. That's why legislation and regulations are necessary.
+- My experiences have been, from the very beginning, cultural and creative. And my business has been a way of exposing the culture, exposing the artists so that the world could hear and see them.
+- If you learn late, you pass it on to people so they can learn early. It's a step process.
+- Art is a way to express yourself and through that you can escape a bad situation.
+- Respect your parents. What they tell you is true. Hard work, dedication and faith will get you anything. Imagination will drive itself. You can get anything you want, but you have to have faith behind all your ideas. Stick to your goals and have an undying faith.
+- I think when you're very dedicated to something and you're engaged fully, you become a giver.
+- As I get, I give. Giving as you get is critical. It has everything to do with being happy for yourself, and making others happy is the cause of making yourself happy, and it's the cycle of giving and getting.
+- Last year my wife got a Rolls-Royce.
+- Look at all the billionaires. If I know 15 billionaires, I know 13 unhappy people.
+- If you wake up deciding what you want to give versus what you're going to get, you become a more successful person. In other words, if you want to make money, you have to help someone else make money.
+- Well, it's the last step of the civil rights movement: You know, wrap your hands around some money, right?
+- You know, the diversity that America has is so special. It's starting to really become a cool thing for young people.
+- I'm a big supporter of President Obama.
+- My financial service business is the absolute best thing I have done to empower the poor. I run many charities and fight many political causes, but my financial service company is the greatest gift I've given.
+- I've been blessed to find people who are smarter than I am, and they help me to execute the vision I have.
+- I'm born into the cycle of giving that we're all born into, and I recognize it. So just because something is a good business, I'm not a business guy. I'm a creative guy.
+- The reason that I have Global Grind is to communicate ideas to people who might otherwise not be listening.
+- Surround yourself with people who are smarter than you.
+- Young people, when they're left alone, always want to have compassion, and they always want to give. They always want to help people who are less fortunate.
+- There was a moment when I was watching Martin Lawrence and Will Smith in 'Badboys' that I felt, you know, inspired. I don't know if I was proud, because so many people do the work. Everyone's part of a team that develops over the years and gives people chances. There have been some good moments watching people develop.
+- I try to do things that I think are helpful to the environment, to the animals, and to the planet.
+- Hip-hop is a voice for voiceless poor people.
+- I try to use my voice. I know that celebrity is valuable, and people do listen.
+- I don't spend any time thinking about my place in history, ever. If people say I changed things, it's nice, and I take it - but if I could give it to a charity it would be useful. I really believe now that my only job in life is to achieve a state of comfort and happiness.
+- If you wake up deciding what you want to give versus what you're going to get, you become a more successful person.
+- I go to yoga every day. I meditate every morning.
+- I want to promote poetry to the point where you got all the baldhead kids running around doing poetry, getting the music out of the way and having only words, the spoken word, and then see what happens.
+- I want to fight poverty and ignorance and give opportunity to those people who are locked out.
+- My little girls are the most beautiful women in the world. I am a lucky, lucky man. I will spend every day making sure that they know this.
+- Service is the key to everything in life.
+- When I started the diamond business, no black person, period, was in it to do what we're trying to do to change the industry. So I like to do things that I see clearly that are in my, you know, scope. And then, I had to figure how I get talented or smart business people around me to execute. That's what I have to do.
+- Poverty and lack of knowledge must be challenged.
+- I try to create businesses that I think are not hurtful.
+- If you give a good thing to the world, then over time your karma will be good, and you'll receive good.
+- Actresses are kind of a little crazy.
+- I'm a creative guy. And I only do businesses as a result of like I've - I'm try to find what my gifts are and give them immediately. As soon as I get them and I understand, I give them back.
+- The book 'Do You!' is about your inner voice. And when you connect to that voice then you - then the freedom comes. And we're only here to be happy. So happy makes money. Money doesn't make happy.
+- I am very lucky that I have talented and creative people around me. Also, meditation has been a very big part of my freedom, because it allows me to watch all the things going on and allows me to focus.
+- I try to keep a positive intention and use whatever resources I have to benefit others. I try to create businesses that I think are not hurtful. I try to do things that I think are helpful to the environment, to the animals, and to the planet.
+- You can't jump to vegan if you're not. Some people are absolute. Some people are able to be gradual.
+- The difference between blues, jazz, rock n' roll and rap is that rap stayed poor. Even the white rappers are poor. It's scarier to look at poor people; it makes everyone uncomfortable. Their pain is something that people would like to see swept under the rug.
+- Art allows people a way to dream their way out of their struggle.
+- The conditions of suffering that exist today in our impoverished communities are not acceptable. The reflection of those conditions are less concerning to me. And I work everyday about changing the conditions.

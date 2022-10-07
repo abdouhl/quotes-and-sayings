@@ -1,0 +1,91 @@
++++
+author = "Becky G"
+title = "Becky G Quotes"
+quotes_len = "85"
+description = "the best 85 Becky G Quotes"
++++
+- Even though I know who I am, musically I'm a blank canvas. I know what colors I want to use, but I don't know what picture I want to paint yet.
+- My grandma taught me how to hand-sew, so I'm always making things from hand-me-downs.
+- I still live in Inglewood and have a great relationship with my Mexican family.
+- I want my fans to understand that what you put into the universe is what you get back.
+- Growing up, my family struggled to make ends meet, so I know how important organizations like The Salvation Army are for families to lean on in times of need.
+- I wrote 'Oath' for Cher Lloyd because there were really no best-friend anthems out there. Not only did she love it, she wanted me to rap on it, too!
+- 'Can't Stop Dancing' is this other side of me that I was ready to introduce to my fans, which is like, after you hang out with me, you start to see that I can be chilled and relaxed, and I'm a little bit more mature for my age.
+- I don't know if it's because I'm Latina or something, but I have no problem speaking my mind.
+- I'll eat anything. I love food in general. I love traditional Mexican, carne asada. Just meat, beans, rice, and some good salsa.
+- My personal style reflects my music. My music and how I dress is just how I express myself; it's just me. My music is urban pop, and my style of dressing is urban but still girly. I like that combination. The contrast is very nice.
+- My song 'Play It Again' is a perfect example of my music because the verses go so hard, and they're so urban; and then this pop hook comes out of nowhere and socks you in the face and makes you want to dance.
+- When I was 11, I decided to start rapping, playing guitar, and writing songs. Everything really blossomed from there.
+- My parents are so cool, so chill, super hip. They know what's up.
+- Never let the negativity get to you. There are gonna be a lot of people you have to plow through, but as long you believe in yourself, that's all that matters.
+- Music was my one way to vent.
+- This is kind of weird, but I eat lemons with salt as snack. They're so good!
+- In my industry, it's important to have people I look to for different things: guidance, inspiration and motivation.
+- I'm a California girl. I grew up in Inglewood right by LAX.
+- I'll never forget one time a fan came up to me crying, and told me, 'You really inspire me to be me. I feel OK to be myself now.'
+- I love big summer dresses, and it sucks because I'm such a little person, so I always have to be very specific about which ones I put on.
+- My fans can see me grow up.
+- Honestly, are we ever going to get over 'California Girls' by Katy Perry? I know it's old, but that song - I love that song!
+- My only way of getting my uncles' attention or aunts' attention or whoever's attention was by dancing and singing around the house.
+- It's really easy with makeup to look like you're trying too hard, like a clown. That's not what you want!
+- There are days I'm feeling lazy, and my mom will remind me, 'Beyonce also only has 24 hours during the day.' That always keeps me going.
+- I look up to Rihanna and Rita Ora. They obviously wear a lot of gold jewelry and have this urban feel to them.
+- Giving back is the right thing to do, whether it's donating clothing or even just a smile to someone who needs it.
+- My grandparents don't really listen to pop music, and they only speak Spanish and only listen to Spanish music.
+- I'm not going to be doing anything to hurt myself or my fans.
+- I've been using makeup since I was ten years old. I've learned a lot of do's and don'ts over the years. But one would definitely be that you should do your makeup for the occasion.
+- I like Xtreme Sour Strips. These really colorful little strips that are so good. I like snacking on them. They're not healthy for you, though!
+- I want a guy who's going to be accepting of - one, my big 'ol, loud Mexican family - and also my career, because it's a lot. I don't want someone who's like... 'Oh, you don't have time for me'. Like, I want somebody who's sure of himself and gonna be like, 'Okay, you go do your thing, and when you come back, we're good.'
+- I always tell people, 'Coming from such a big Mexican family when there's a new baby every three weeks, you have to do something to get someone's attention.'
+- When I'm on family road trips, there is always Ranchera playing.
+- I like a fresh face. I like clean skin. Fresh skin, cute color on the lip, cat eye, mascara, and I'm good to go!
+- People may not know this about me, but I've always loved cooking. My favorite thing to cook is my mom's spicy spaghetti.
+- I really like Ariana Grande, Jessie J, and Nicki Minaj's song, the 'Bang Bang' song. It's the new 'Lady Marmalade.' So good.
+- I'm such a big TLC fan, so I love singing 'Waterfalls' in the shower.
+- Being a teenager, it's so hard to find foundation that's good for your skin for everyday wear.
+- Boyfriends? Psh, like I've got time for that!
+- I love Shakira - she is such a beautiful person. She does so many good things for the world on top of making good music. And she is an awesome mom. When you are Latina, it is all about family, and to see that she prioritizes family and her career at the same time is really nice.
+- I got discovered off of YouTube.
+- I look at old performance videos now, and it's really funny - I thought I was such a gangster!
+- I did a lot of little girl groups here and there just to get more comfortable on stage. When you're in girl groups, it's a lot different because if you mess up, there's someone on stage to back you up, and finally I got to a point where I knew I could do it on my own.
+- I wrote 'Wish U Were Here' for Cody Simpson, and he invited me to perform with him on tour and be in his music video. He was shy at first. I think it's the surfer boy in him that makes him so mellow.
+- I never lie to my fans.
+- Working with Bruno Mars would be really awesome. I'm such a fan of his, and I love that he's a real artist.
+- When I was nine years old, my family lost our home, and the six of us moved into my grandparents' converted garage.
+- Sometimes I'll post goofy photos of myself on Instagram without make-up or making silly faces. I don't always look like a little Barbie doll.
+- I've definitely accepted the fact that I'm not normal.
+- For my everyday look, I don't like going anywhere without eye makeup.
+- For me, my number one Hollywood role model is Jennifer Lopez.
+- It's nice to get to know people who are the same age as you that do the same things because it's like a different level of understanding.
+- When I was doing all this acting stuff, all these kids, like, assumed, 'Oh, my God, you're on TV, and you probably have a lot of money.' And I was living in a garage.
+- I would love to have my own fashion line because I love sketching.
+- Sometimes you do get caught up in the midst of becoming... a product, a brand, and not having a say in any of that.
+- I really have a passion for food. Of course, music, but behind that, it's food.
+- I interact with my fans mostly through Twitter, and I like to do livestreams about every two weeks, where I say, 'Ask me anything!' and I just sit there with my computer for 15 minutes, taking a break from work, and answering their questions.
+- I just want to stay creative, share my ideas and see where it all leads.
+- I want to be open to the kids who only speak Spanish, the kids who speak only Spanglish, and the kids who don't even speak Spanish at all.
+- I love spending time with my family and friends during the holidays, and my favorite holiday tradition would be the pozole that my mom makes almost every Christmas. It's the best!
+- My favorite holiday memory was sitting at home all day in my pajamas during winter break for school watching a bunch of old Christmas movies like 'Jack Frost' and 'Rudolph the Red-Nosed Reindeer' with my siblings and parents.
+- I love having my hoop earrings. Just regular gold hoops.
+- Miguel has this Prince, Marvin Gaye, old-school feel that I love.
+- I have fun when I'm making music, and I want people to have fun when they listen to it.
+- I think confidence is a true form of beauty.
+- I have an obsession with hot sauce. I love Cholula. I put Cholula on everything.
+- My family are my friends.
+- If I can, I love staying in pajamas all day and watching movies and eating good food.
+- I got beat up sometimes in the girls' bathroom.
+- I'm a rapper-singer, or singer-rapper - it's not one before the other. I do both.
+- I'm like, 'Yeah, I could afford braces, but why should I change myself to be what everybody else wants me to be when I'm OK with who I am and I'm happy with who I am?'
+- Coffee is my water now.
+- When I get out of work early, or if I have some time before I go into the studio, I go to Disneyland for a few hours with my siblings. We just have fun, go on all the rides together, and eat all of the good food.
+- When you're first learning how to do eyeliner, it's really hard to get both lids the same. A good tip for when you're putting it on, is to make sure your elbow is on a table. Make sure your arm's really stable. And make sure you have an eye makeup q-tip to get that really sharp line.
+- My little siblings keep me grounded. I'm a kid at heart.
+- I feel like a little beast when I'm onstage, and I feel like my fans have that little beast inside of them, too: this hunger for life.
+- 'Latina' has become part of the Becky G family, and I feel very proud to say that.
+- My main focus when I do my makeup is my eyes - I accentuate my eyes, and they look bigger. More 'va va voom,' I guess you can say.
+- I love people who dress how they feel and change it depending on the day.
+- I'm nosey, and I have a great imagination. So it's not necessarily things I have to go through, but it's things people I know or my family is going through, and I hear about it, and I think, 'That sounds like a great song.'
+- My parents are high school sweethearts.
+- I figured, 'Why not go into entertainment?' I love entertaining people. I always loved being extra loud.
+- I don't know about you, but I love going on trips - especially with my family.
+- I'm all about telling stories. I like people to picture the music video in their head when they're just listening to the song.

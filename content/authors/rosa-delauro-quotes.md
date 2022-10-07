@@ -1,0 +1,17 @@
++++
+author = "Rosa Delauro"
+title = "Rosa Delauro Quotes"
+quotes_len = "11"
+description = "the best 11 Rosa Delauro Quotes"
++++
+- 1 month ago the American people stopped to remember the third anniversary of the beginning of the Iraq war. We thought first and foremost of the selflessness, patriotism and heroism by our troops, our National Guard and Reserves.
+- Alzheimer's, Parkinson's, brain and spinal cord disorders, diabetes, cancer, at least 58 diseases could potentially be cured through stem cell research, diseases that touch every family in America and in the world.
+- I believe that the issue of mental health services for our troops deploying or returning from combat is one that demands the attention of this body, if only for a few minutes today.
+- The State Energy Program, it provides grants to States and directs funding to State energy offices. The States use these grants to address their energy priorities, program funding to adopt emerging renewable energy and energy-efficient technologies.
+- The best proof of the high quality of American beef is the continued negative BSE findings supported by the highest surveillance possible. The administration should be working to increase our surveillance of BSE, not scaling it back.
+- The Bush administration and Congressional Republicans have failed to bring up comprehensive energy reform or any piece of legislation for that matter that would lower gas prices, opting instead to give massive subsidies to the oil and gas industry.
+- The Texas Energy Office's Loan Star Program has reduced building energy consumption and taxpayers' energy costs through the efficient operation of public buildings, saving taxpayers more than $172 million through energy efficiency projects.
+- The moral issue here is whether the United States Congress is going to stand in the way of science and preclude scientists from doing lifesaving research.
+- Evening the playing field for women workers is a matter of fairness and with women now providing a significant share of their family's income, it is a family issue.
+- Expanding eligibility of family planning services to low-income women will maximize cost-savings to both federal and state governments, reduce the disparities in access to family planning services for low-income women, and decrease the incidence of abortion in the U.S.
+- President Kennedy understood the importance of equal pay for equal work and signed historic legislation that gave women around the country hope that one day their wages would be on par with that of their male counterparts.

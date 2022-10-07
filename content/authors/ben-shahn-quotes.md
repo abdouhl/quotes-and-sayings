@@ -1,0 +1,34 @@
++++
+author = "Ben Shahn"
+title = "Ben Shahn Quotes"
+quotes_len = "28"
+description = "the best 28 Ben Shahn Quotes"
++++
+- I was primarily interested in people, and people in action, so that I did nothing photographically in the sense of doing buildings for their own sake or a still life or anything like that.
+- So, I was offered this job to come down there but first it was suggested that I take a trip around the country in the areas in which we worked to see what it's all about, and I tell you that was a revelation to me.
+- I confess that Roy was a little bit dictatorial in his editing and he ruined quite a number of my pictures, which he stopped doing later. He used to punch a hole through a negative. Some of them were incredibly valuable. He didn't understand at the time.
+- I still love to look at photographs but I couldn't do it myself anymore.
+- I did take my camera along, as I felt there wouldn't be enough time to draw the things I wanted to do. I did some drawing and did a lot of photography but I was not part of Stryker's outfit at all.
+- It's a little bit like my inability to read a guide book before I go anywhere. I can read it after I've been there and by the same logic I refuse to accept any technical stunts from anybody. I refused to learn more than I knew and I confess I missed a great deal.
+- I was brought in, not in the photographic department at all, I was brought in on a thing called Special Skills. I was to do posters, pamphlets, murals, propaganda in general, you know.
+- Whatever I get involved in, I'm totally involved, you see.
+- In the South or in the mine country, wherever you point the camera there is a picture.
+- I've been asked a great deal about the influence I've had with my work and it's impossible to say, you know.
+- It used to be twelve people crowded around a sewing table; now it's ten.
+- It's pretty hard to measure influence of written or visual material.
+- When a man returned from the field and we'd look at the work, we'd criticize each other very genuinely and never offensively. And we would avoid all tricks, angle shots were just horrible to us.
+- An amateur is someone who supports himself with outside jobs which enable him to paint. A professional is someone whose wife works to enable him to paint.
+- Roy was just another bureaucrat to me, but I realized very soon that without Roy this thing would have died.
+- When you talk about war on poverty it doesn't mean very much; but if you can show to some degree this sort of thing then you can show a great deal more of how people are living and a very great percentage of our people today.
+- In '38, this time I did a job for Mr. Stryker. I went on his payroll at about half the salary I was getting before, to cover what he called Harvest in Ohio.
+- Of course I realize that photography is not the technical facility as much as it is the eye, and this decision that one makes for the moment at which you are going to snap, you know.
+- Now, when I came on to Washington to begin my job, I was so interested in photography at that time that I really would have preferred to work with Stryker than with my department, which was more artistic if you wish.
+- I feel, having the choices I had, I felt I had more control over my own medium than I did over photography.
+- Some time ago, we went to Asia and took a camera along, and I began to do what I'd done even years ago doing people. I couldn't get interested in it. And I did hundreds of photographs of details of the monuments as sculpture.
+- I felt very strongly the whole social impact of that depression, you know, and I felt very strongly about the efforts that this Resettlement Administration was trying to accomplish; resettling people, helping them, and so on.
+- Now, my knowledge of photography was terribly limited.
+- I was so impressed with the work we were doing and I was very involved ideologically in photography - that I arranged an exhibition at the College Art Association. The first exhibition I picked the photographs and so on and we had an exhibition in New York.
+- I remember traveling around in Arkansas with Senator Robinson, and I told him what this little trick was. He felt very much part of it and had me take pictures of people unbeknownst to them.
+- I became interested in photography when I found my own sketching was inadequate.
+- The time when I had desire to go to the United States I didn't have a penny. It was in the middle of the depression, you know. I couldn't get as far as Hoboken at that time.
+- I didn't care where my works were published.

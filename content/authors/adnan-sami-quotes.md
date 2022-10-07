@@ -1,0 +1,103 @@
++++
+author = "Adnan Sami"
+title = "Adnan Sami Quotes"
+quotes_len = "97"
+description = "the best 97 Adnan Sami Quotes"
++++
+- I am not scared of anyone except the Almighty.
+- Being a public figure, you cannot make everyone happy. Some people will criticise your actions, and I cannot stop expressing my opinion based on that.
+- I have been working and composing music since 1986. Over the years, I have seen our music industry go through all kinds of transformation.
+- Film songs have so many creative limitations, but a private album is like an autobiography that reflects your state of mind.
+- Whoever portrays me on screen need not necessarily be a look alike. Any hero could play my part.
+- My father was a diplomat and served as Pakistan's ambassador to 14 countries. I was born in London and grew up there and studied and lived in a hostel throughout in London and became a barrister.
+- I had to make lifestyle changes and stick to them for the rest of my life. For instance, I've had to give up bread, rice, sugar, and oil completely.
+- I am like a child when it comes to gizmos and gadgets.
+- The way the Pak government treated me is only testimony to the ill treatment meted out to artistes. There was outrage against me. People were amazed that I had applied for citizenship in India. I don't give a damn about getting trolled. I have earned immense respect and love in India.
+- For me, everybody is the same. If you are not nice to me, I will say, 'Okay, we will try to make it nice tomorrow.' I am like that. I am not a confrontational person.
+- I don't give a damn about trolls.
+- 'Grateful' is a small word to express my gratitude, as God has blessed me with so many opportunities to restart my life.
+- I was too big to even contemplate exercise. I had to use a walking stick and a wheelchair to get around.
+- There is nothing more beautiful for a musician to listen and see harmony.
+- When my first album came out, it wasn't Bollywood. The love that I received from people was everything, and it still is everything for me.
+- Sometimes it's a beautiful face, sometimes it's a place. I am inspired by everything.
+- I am a singer; my job is to create music and harmony. Wherever I see harmony, I would go towards there.
+- Every person goes through a bad phase. Amitabh Bachchan and Salman Khan, too, had a rough phase in their careers. In my case, it was unfortunate that my personal problems came up at a time when I took a break to rejuvenate myself.
+- Northeastern folk music influenced me from a very young age. Sachin Dev Burman is one of the inspirational musicians in Indian film music. The way he fused folk music with his signature style is amazing. So, I am aware of the beauty of northeast folk music.
+- I come from a non-musical family.
+- I am blessed to be a proud father of a daughter.
+- If my life and music brings a smile or makes a difference in any individual's life, then there is nothing beyond for me as a god's gift.
+- My father was a great connoisseur of music and arts. He said, 'I will encourage you in anything you do, but make sure you get a solid education.' So, I studied in the finest schools and went on to become a qualified barrister but didn't take up law because my music was my area of interest.
+- My education has allowed me to be more open to ideas which I would not have been had I not been as educated.
+- If there is a new airport in Mumbai, I would feel proud about it, and I equally feel angry when I see potholes.
+- Music, in its true essence, has got no language. You don't listen to anybody because he is black or white or because he belongs to a particular geographical region. You listen to him because you like what he does.
+- I am an incurable romantic. I am even in love with the idea of being in love, and hence, I write a lot of love songs.
+- There's a famous saying: 'Hell hath no fury like a woman scorned.' I want to change it to 'Hell hath no fury like a nation scorned.'
+- Terrorism doesn't have a border. Terrorists attack Mumbai, Peshawar, and also Paris.
+- The response that I have got over the years is the best example that the people of India love me, and I feel as much Indian as anybody.
+- When my first album came out, it wasn't Bollywood.
+- I know we live in a materialistic world. I am not living on Cloud Nine; I am not living in Disneyland. I understand all that.
+- I genuinely believe that, physically and emotionally, women are far stronger than men. The amount of pain they have to endure for a childbirth, a man cannot take an ounce of it. A toothache or a stomach upset is the end of our world at times.
+- As a musician, to be part of anything that promotes peace is very rewarding.
+- I come from a very affluent family. I have been educated in one of the finest institutions of the world. Money was never a factor in my life: by the grace of God, I was blessed with a golden spoon.
+- While my mother is from Jammu, my father was originally from Afghanistan, as my grandfather was the governor of five provinces there, including Herat.
+- If someone ever decides to tell my story, it will make for a typical masala movie.
+- I have had an extraordinary life, but it's been one incredible roller coaster ride.
+- I'm grateful to God that I'm able to praise his glory through my music.
+- I like to greet anyone who comes to my house with a lot of positivity and peace.
+- Recording a Hindi song takes me around 40 minutes whereas a Kannada song takes me about two hours. The music isn't a problem, since the notes used are universal. The language is the problem. I try my best to get it right, as I'm sensitive about respecting every language, since all of them are sacred in my heart.
+- When I was obese, I reached a point where I was about to meet death, and I lost weight to restart my life.
+- When you want something that is very dear to you, somewhere along the line, you become the child.
+- Pakistan doesn't value its artistes. I will get trolled for what I have said, but that is the reality. It is unfortunate.
+- Though music was not in my blood, I always considered myself belonging to music, and that remained with me throughout my studies. The studies were my parents' wish, which I fully complied with, as one must be educated at the highest possible level.
+- People said that I had liposuction surgery, but you tell me how can a man of 230 kgs lose weight only with a prick of a needle.
+- I have gone to many beautiful places across the globe, but I must say that the northeast of our country is the best-kept secret in the world.
+- If it is written in my destiny that I will go back to Pakistan, then I will. I won't be scared of going back.
+- I believe that sugar is just as important for our body as salt is, and other natural foods.
+- Music reflects an artist's feelings and their experiences.
+- Whether it was the 9/11 attacks, Paris shooting, or the attack on the Taj, people across the world mourn the collective loss.
+- People all over the world know me as an Indian artist. I could have chosen any other country and wouldn't have had to go through problems claiming my citizenship. But it is India where my heart is and has always been.
+- I have always believed that there is no such thing as coincidence, and I have always believed in destiny.
+- I want people to get over my weight and the loss of it. It's been years, and I am sure people can find better things to talk about.
+- When Indians have loved and embraced Pakistani artistes, why can't the latter come out in their support when injustice has been meted out to the people? No one wants these artistes to wage a war against their government. People didn't demand that they condemn their own country. They just expected them to say something for the sake of humanity.
+- I will surely pen my autobiography.
+- I am a singer. You love me or hate me based on my music. If you are judging me based on my nationality and religion, you are a racist. This is very offensive. I cannot encourage that.
+- My father was a great admirer of music and the arts, so there was always a lot of culture in the house. As it happened, while my father was the ambassador in Portugal, the ambassador's residence had a piano, and so I started learning how to play it at the age of five.
+- I believe every artiste, at some point, needs to take a step back.
+- I want to be able to touch people's heart through my music. I want to bring a smile on every face. In my own humble, small way, I want to touch lives.
+- Sufis were always spreading love with their music, and if some kind of extremism is a threat to it, it is a threat to all humanity.
+- Apart from being a playback singer for films, I'm also an independent musician.
+- Mumbai is home to us. Medina was born in Munich because Roya's family lives in Germany and she had five sisters to help her while I was travelling for work.
+- My independent songs are actually about me, so if you really want to know me, listen to my songs and know what I have been through in my life.
+- I am glad that my weight never affected my singing career, but other than this, I faced a lot problems: like, I was unable to talk for 20 minutes after coming down from the stage after my shows. I got very tired because of my fatness.
+- My songs are my girlfriends. I have a secret romance with all of them. I romance with them year after year.
+- I had my own ups and downs in getting Indian citizenship. But, ultimately I got it and I am happy about it. I like India. My love is here. I am a proud Indian.
+- I suppose I am more comfortable with jazz because I have been playing it that much longer, and also because classical music is a much more disciplined genre.
+- India fell in love with me, but I fell in love with India even more.
+- Music does not have colour or religion. If I listen to a song, I don't care about the colour, religion, or country of the singer. It doesn't matter, even if it is in another language, because I love the music.
+- I remember my father playing a cassette for me when I was fifteen - Amjad Ali's 'Durga.' He said, 'This is from our part of the world. You must listen to it.' And I continued rewinding it and listening to it from early evening until midnight. By the end of it, I was nearly in tears.
+- I can never stop thanking God because my music influences people in their respective lives.
+- I started playing music when I was about six and didn't discover Indian classical music until I was fifteen. So, essentially, I had a lot of catching up to do.
+- Pakistan never valued Nusrat Fateh Ali Khan saab until English songwriter Peter Gabriel started collaborating with him. After that, the country suddenly realised that they have an amazing talent. This is the story of a lot of artistes there.
+- God has blessed me with the in-born talent for which I pour my heart out in the form of music.
+- I can understand when people say that they're not a big fan of my music. That's an individual opinion, and I respect that. But you don't have the right to comment on my choice of citizenship, my skin colour, or my religion. It's not open to discussion.
+- My weight is this permanent topic that just doesn't fade away. Most days, I am fine with people talking about it. That doesn't bother me as much as how people use the fact to promote their own ventures.
+- I have always maintained that it's not the quantity of work, but the quality that should speak. I have maintained the same for my music albums, too. I have always released them after a gap of two to three years.
+- My love for my wife Roya is so intense that I gave up alcohol. My love for my father was so great that when he made me promise him that I'd lose weight, I did and lost 167 kg.!
+- A song's lyrics can't be held culprit for the overall change in society.
+- My roots are in classical music and jazz, and I want the freedom of being able to improvise. This freedom is possible only in a live concert.
+- Sometimes, I make music in my sleep. So I get up, put on my headphones, and compose it on the piano.
+- I was born in England, but India is the only place I feel at home.
+- Every human being is unique and reacts differently to different food items. A diet that works for you may not necessarily work for your friend.
+- I believe in the philosophy of turning the other cheek.
+- I used to play rugby, polo, tennis, and cricket in school. It was only in the 1990s, when I used to live just opposite Harrods in London, that I started putting on weight. I used to have my breakfast there every day.
+- Pakistan is not the torch-bearer of Islam, and if I change my country, it doesn't mean that I have to change my religion.
+- While artistes do want peace, it is not their preserve alone. Everyone wants peace just as much.
+- When people love you for your cultural contributions, geographical boundaries become nonexistent.
+- I feel that one should be health conscious, and that feeling can only come from within, so I suggest people to challenge yourself.
+- I am a Mumbaikar. It has a special place in my heart.
+- The love, adulation, and warmth that I got from India is the reason why I chose this country.
+- The only relationships I wish to honour and keep are with my family and my dear loved ones.
+- I do not think classical music faces any threat because new music is being made through computer, as the real charm of classical is its purity, and one who is seeking purity will surely find classical music in spite of so many alternatives.
+- I was 230 kg, with a size 81 waist. I couldn't buy anything off the shelf and needed more than one tailor to measure and stitch my clothes.
+- Whenever I have asked something from God and worked hard for it, I have always got it, be it my Indian citizenship or my weight loss.
+- I love the classic marble inlay work of Arga.

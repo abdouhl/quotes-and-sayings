@@ -1,0 +1,31 @@
++++
+author = "Chiranjeevi"
+title = "Chiranjeevi Quotes"
+quotes_len = "25"
+description = "the best 25 Chiranjeevi Quotes"
++++
+- The tourism ministry may not have been the greatest portfolio, but no one can say that 'Chiranjeevi left without doing anything'. I have left my mark, as promised.
+- I always believe holidays strengthen the family bond, away from our daily hectic schedules.
+- I have made it a point to reach out to the masses personally - so I am there as a symbol for the masses.
+- 'Baahubali' has brought so much name and fame to our industry. And if given a chance to work with Rajamouli, who would say no? I hope to work with him. You never know, maybe my 151st or 152nd film.
+- More than the hits, flops will have an impact on my career. In fact, flops helped me shape my career. They made me look at things from a different angle.
+- One had sown the seeds of corruption, and the other watered and nurtured it. Both the TDP and Congress have played their bit in patronising Satyam.
+- Charan is very mature, and I see myself in him. He also gives equal importance to family, and as an actor, too, he does his job well.
+- Once I am done with the film, I don't worry about how many centres the film has released, what are the BO records, etc. As I have no knowledge of such things, feeling the pressure doesn't arise.
+- I used to do some philanthropic work, but with the political platform, I can contribute in a bigger way.
+- I'm not an ambitious person. I'm very content, and I have no pending dreams. God has given me so much, and if there's one thing I really want to do, it's to serve the people.
+- I have a clean image. I want to serve the people with humility and sincerity. Politicians have made use of peoples' votes but do not care for them.
+- I assure, the door to politics is never closed. Whatever medium is necessary to reach the masses, I will take that - be it cinema or politics.
+- It so happens that after a certain stage, we have to give in to the wishes of the people rather than your own satisfaction. I look at it as my responsibility to satisfy the wishes of the people more than mine.
+- When my fans and actors like Rajinikanth and Amitabh garu wished that I do films once again, I thought I should do. I had some skepticism in me, initially. But looking at the encouragement, I grew in confidence.
+- Internationally, I love going to Switzerland. I went there many times for shooting and loved the Alps, the tranquility, cleanliness, the greenery and the warmth of the people there.
+- An artist's responsibility is a lot. I can't deny and escape from the responsibility. You have to be very guarded about your personal behaviour, future plans, etc.
+- I have no regrets in going into politics or leaving the Tollywood for a while.
+- When I went to Spain, the tourism minister told me a lot of people want to come to India, as they love Bollywood, but they don't have direct flights and find it difficult to get visas on arrival that is currently offered to only citizens of nine countries.
+- In totality, I take care not be a bad influence on youngsters.
+- Politics has been a roller coaster, but I'll never look back and say, 'Why did I do it?' In fact, if my son decided to join politics tomorrow, he has my full and unconditional support.
+- Tourism in India has the potential to promote faster, sustainable and more inclusive growth. It could be used as a powerful antidote to tackle poverty.
+- Self-control is needed in the age of technology. Folks have to apply their sense in reacting to different things. I don't appreciate perverse and venom-spewing mindset.
+- In India, there are lots of places that I love, but my favourite is Kashmir.
+- I don't compare myself with the late NTR, but I want to give livelihood to people. He was pro-poor, and people want me to substitute him and bring a change, and I will do that.
+- One wants to entertain the audience till the end. Sometimes, the desire is never-dying, as ANR garu once said. The caveat is that one has to be watchful of public reception.

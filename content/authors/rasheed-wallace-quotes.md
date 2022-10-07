@@ -1,0 +1,106 @@
++++
+author = "Rasheed Wallace"
+title = "Rasheed Wallace Quotes"
+quotes_len = "100"
+description = "the best 100 Rasheed Wallace Quotes"
++++
+- You might get fouled and have a no-call, but let's still go out and hoop. Just beat them up the other way, and that's with the scoreboard.
+- It's for a different circumstance when you're talking about playing for money and playing for heart.
+- If you've got one guy you know is going to get that ball in crunch time, it's easier to defend him. But if you have five guys who can get that ball in crunch time, it's harder.
+- I will go off at times. Overall, I'm a pretty good teammate.
+- The things that we did in Detroit will never be done again. Our record of holding seven teams under 70 points will never be done again.
+- I have to say that to myself a lot - to be patient.
+- Being an opponent playing in Boston over the years, you always see guys in the stands who played for the Celtics. It's a mystique. It's cool.
+- A wise man knows when to go 'head and back off so you gotta pick and choose your fights. I know how to pick and choose.
+- Ain't no worst part about retiring! Believe me.
+- The NBA is 95% mental and 5% physical, so it's more in my favor now with me being older.
+- When I was playing, I had that passion and fire, cussing everybody out, but I had the opportunity to change that being out on the floor. But now that I'm coach, I can still have my passion, but I just have to tone it down.
+- Ball don't lie!
+- Growing up raising three boys on your own is either gonna make you strong or make you crazy. It definitely made my mom strong.
+- That's what the CTC means, whoever cuts that check, that's who I have to play for.
+- There are a lot of elderly people in Flint who are homebound and can't get the supplies they need.
+- I keep going back to Flint for one reason: the people. They still have hope. They just need to know that there are other people who still care about them.
+- I'm not in this league to be an All-Star. I'm not in this league to make the Hall of Fame. I'm not in this league to make the all-defensive team.
+- I just play an overall game.
+- The only people I care about are my wife and kids, my mom and brother, close friends to the family. Anybody outside my circle, I could care less.
+- People walking down the street would just say 'Ball don't lie.' I kinda feel like Bobby McFerrin, the mastermind behind 'Don't worry, be happy.'
+- I would rather be here in the Philly Hall of Fame than the NBA Hall of Fame.
+- When people look at me, ask me, or say something to me, they know I'm Philly.
+- When I got interested in football, nobody was cheering for Kansas City. Kansas City was trash. I said, 'That's my team.' Then what happens? We get Joe Montana and Marcus Allen.
+- I've always had the media going against me every year.
+- Once my family grew bigger I loved Portland more.
+- Not saying that guys in the NBA don't play for heart, but once you get that money, you're under a different mindset. But when you're trying to get there and get on this level, you're more hungry.
+- This is America, but the way that the people of Flint are being treated with this water crisis is like a third-world country.
+- Some of the fans are mad at me, some of the fans cheer for me, I can't worry about that.
+- There's times where I could take all the shots every time I touch the ball, but that's not me. I just play a team game and just take open shots.
+- My attitude is to win.
+- I just go out there and 'D' up. Everybody can make a layup, but everybody can't play 'D.' Just winning, that's all that matters, that's the bottom line. Get a win.
+- Personally, it doesn't matter to me if I had the worst career stats in N.B.A. history as long as I got my 'ships. The 'ships, it shuts everything up.
+- I never liked Duke. I don't know why. Just never did. Guess they were always a heavy favorite and I liked to go with the underdog.
+- As long as the people in Flint need our help, we're going to be here. And our hands-on impact is needed to uplift the morale and bring people's spirits up.
+- I was never one to feed into what the media was saying about us, especially out there in Portland because I was so in-touch with the people everyday.
+- I already accepted that I can't jump no more. I'm not as fast as I used to be. I accepted that already. That's where you become more smart, make that first step or two before that quick player can get there. I gotta make this jump shot, so I'll give a pump fake because I know that he can jump higher than me.
+- You know that social media can be a harsh thing, man.
+- The advantage of not starting is you're sitting back, looking at the game and saying, 'OK, we need rebounding,' or 'We need hustle points.' Coming off the bench, that's what you try to do. The disadvantage of it is you gotta catch that flow. You're coming off the bench, you gotta come ready, warmed up already, catch the flow of the game.
+- I always wore natural high tops.
+- That's how you get better on defense; not just 'oh, man, my guy beat me,' but you have to think about, 'okay, my man beat me, so I either have to pick up the next man, or I'm going to give somebody a foul.
+- Everyone in their career is going to go through a slump, but the thing is how you react to it. You're either going to talk about it or you're going to try to shoot your way out of it and I'm going to try to shoot my way out of it.
+- Two minutes, 30 minutes, whatever, as long as I'm contributing to the team for the 'W.' If I score a point and we win, hey, it's the sorriest point I've ever scored but we got the win.
+- As long as I can look my family in the face every day, and they know what type of person I am, I'm cool.
+- Every kid likes to be read to, or just even have an adult play with them, no matter if it's little girls with a tea party or boys playing in the dirt, it's all part of being a kid. It's something we all went through.
+- Of course, everyone knows my history as far as technical fouls, but I don't think you can match the intensity that I bring to the floor.
+- Hey, people have their own opinions. But when I'm on the floor and I don't see somebody giving their all - I'm going to demand an effort. I'm out there to win games, and that's the bottom line.
+- I am a confident person. I can make predictions or whatever, that is just my confidence level. If I got out there and do that, fine. If not, ain't no tears coming out of my eyes.
+- I have this particular shoe with blood stains, marked all up sitting in my office. I always look at it everyday.
+- I'm a 'big' who just knows how to shoot.
+- People don't understand why guys keep coming back, why a lot of older players who played for the Celtics keep coming back. It's the tradition.
+- Look, I'm not a water expert. I'm not a scientist. But I've been to Flint. I've seen what's happening. We have a third-world situation still going on in the United States of America. That's the truth.
+- When I was in my heyday, of course I had those who hated me. They were supposed to hate the opposition. But it's good, though. It feels good.
+- Actually I think it's better for me to come off the bench, because for them first couple of minutes when that first five is in there, you can see the little things and what you need to do when you get in there.
+- That's what I hang my hat on, is defence.
+- I came up with my natural logo and ya know, just dealing with Nike I was like can y'all put my logo on the shoes and, you know. At that time I think other guys had logos or specific names on the shoe. So they was like yeah - let's rock and roll.
+- It all starts with post play.
+- I love Air Force Ones. That's the shoe I grew up with in Philadelphia. My older brothers got me wearing them and I just stuck with them. Everyone in the neighborhood used to wear them. It's retro. It's tradition. That's me, old school.
+- There are a lot of talented guys in the league, short and tall.
+- Honestly, I don't play basketball games. I'm more into fighting games like 'Mortal Kombat' or RPGs.
+- I know, playing in schoolyards, and summer leagues, that I can hit the three.
+- I'm not sure how I became that way. But I've always been that way. Every team has to have at least one emotional player on the squad, or it wouldn't feel like a real squad. That lifts the squad up whenever it's down. That's what I try to do.
+- I like Josh Hart. I've liked him since 'Nova.
+- The heart of that player will determine how he plays.
+- OK, my funniest tech I ever got in the NBA was for looking at a ref.
+- To me, once you lose that step or two, you pick up a step or two with your head.
+- It doesn't have to take a Portland Trail Blazer or a professional basketball player to do good things in the community. You can work at a bank or work at a 7-Eleven.
+- To me, Portland, there's a lot of things to do out there especially if you have a growing family.
+- I think people can see that I go hard.
+- If I retire from this league and I haven't won at least one championship, I'll feel like all my years in the league would be a failure.
+- Everybody needs help, even Superman. That's why he had the Justice League.
+- If I feel as though myself or my teammates have been dealt a wrong hand, I'm going to let it be known.
+- What I tell a lot of the younger guys is, 'My speed isn't the same, my agility isn't the same, but yet I still can talk.' That's an extra defender out there.
+- The things I do, I do for me, not for no publicity stunt or cameras or whatever.
+- As long as somebody 'CTC,' at the end of the day I'm with them. For all you that don't know what CTC means, that's 'Cut The Check.'
+- Real ballers don't golf.
+- I just love Portland, man. For real.
+- Offence doesn't concern me. It's easier for people to get layups than it is to get stops on defence or a block.
+- There's two facets of this game. You know, if I'm not making shots, OK, then I have to do something on defense. So if I'm missing shots or making shots, it doesn't affect my overall game.
+- There's a lot of bad habits a lot of guys have now in the NBA and in college, so there's only one way to get them started right and that's to go back to the roots.
+- I'm not scared of the NBA. I'm not scared of the NBA officials.
+- People know I'm Philly straight up and down.
+- What good is it if you are a 15-, 16-time All-Star and you never won nothing? A ring supersedes all of that.
+- A shooter takes shots, a shotter makes shots.
+- When I was with Washington, Portland, Detroit, everybody still got love for me and I still got love for them.
+- Two of my bread and butters are my ankle and knee. That's why I always wore high-tops. I had to protect my ankles no matter if I taped my ankles or wore ankle braces. I gotta protect my ankles. Gotta protect the money maker. That's why I've always rocked the Air Force 1s. Of course, I put in orthotics in there 'cause these joints is flat.
+- I wouldn't say it's to the point where I hate him or nothing like that because he's not with my mom or he wasn't there when I was growing up. He's my father whether I like it or not - he helped give me life. So I still love him and everything. Sometimes I wished he was with me, and other times I didn't.
+- In college you could say 'Coach, let's go to zone,' when you're tired.
+- I hung out in Northeast Portland, I hung out in Beaverton. I knew a lot of people on every demographic. For me out there, I loved my time out there.
+- I know for me, when I'm on the court I'm totally different than when I'm off of the court.
+- To me it seemed in college ball, guys are more hungry. It's for a different circumstance when you're talking about playing for money and playing for heart. Not saying that guys in the NBA don't play for heart, but once you get that money, you're under a different mindset.
+- Flopping shouldn't get you nowhere.
+- Life ain't fair, period.
+- Some of the technicals I deserved. Cussing at the officials or throwing something. But some of them I didn't deserve.
+- I'm not the type of player to let the 3s get me down: 'Oh, I'm missing a couple of 3s. I don't want to do this no more.' No, I'm out there playing basketball, and I'm not going to let that get me down.
+- When the ball don't lie, you can look at it as, OK, if I put that hard work in with shooting, what's going to happen? The ball is going to go in more. If I'm doing a lot of hard work, in the gym, in the weight room, I'm putting that hard work in - then throughout your career, that ball is not going to lie.
+- To me it seemed in college ball, guys are more hungry.
+- I lived across the street from my elementary school, and in the schoolyard we could always go play there and know we were safe.
+- If it was true that I just cared about the money, then my whole attitude would be different. I want to win every game, and I want to go out a winner.
+- If a person doesn't like me or doesn't like my game, OK, that's how they feel. Can't be upset with it.
+- I only know one speed.

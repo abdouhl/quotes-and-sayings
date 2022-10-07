@@ -1,0 +1,42 @@
++++
+author = "Rainer Maria Rilke"
+title = "Rainer Maria Rilke Quotes"
+quotes_len = "36"
+description = "the best 36 Rainer Maria Rilke Quotes"
++++
+- Let life happen to you. Believe me: life is in the right, always.
+- A person isn't who they are during the last conversation you had with them - they're who they've been throughout your whole relationship.
+- Spring has returned. The Earth is like a child that knows poems.
+- And now we welcome the new year. Full of things that have never been.
+- He reproduced himself with so much humble objectivity, with the unquestioning, matter of fact interest of a dog who sees himself in a mirror and thinks: there's another dog.
+- The purpose of life is to be defeated by greater and greater things.
+- It is good to be solitary, for solitude is difficult; that something is difficult must be a reason the more for us to do it.
+- Live your questions now, and perhaps even without knowing it, you will live along some distant day into your answers.
+- More belongs to marriage than four legs in a bed.
+- Love consists in this, that two solitudes protect and touch and greet each other.
+- It is a tremendous act of violence to begin anything. I am not able to begin. I simply skip what should be the beginning.
+- The only journey is the one within.
+- The future enters into us, in order to transform itself in us, long before it happens.
+- There are no classes in life for beginners; right away you are always asked to deal with what is most difficult.
+- Who has not sat before his own heart's curtain? It lifts: and the scenery is falling apart.
+- Truly to sing, that is a different breath.
+- There are quantities of human beings, but there are many more faces, for each person has several.
+- I want to be with those who know secret things or else alone.
+- There are so many things about which some old man ought to tell one while one is little; for when one is grown one would know them as a matter of course.
+- The deepest experience of the creator is feminine, for it is experience of receiving and bearing.
+- Everything is blooming most recklessly; if it were voices instead of colors, there would be an unbelievable shrieking into the heart of the night.
+- All emotions are pure which gather you and lift you up; that emotion is impure which seizes only one side of your being and so distorts you.
+- There may be good, but there are no pleasant marriages.
+- All the soarings of my mind begin in my blood.
+- Perhaps everything terrible is in its deepest being something helpless that wants help from us.
+- Love is like the measles. The older you get it, the worse the attack.
+- For one human being to love another; that is perhaps the most difficult of all our tasks, the ultimate, the last test and proof, the work for which all other work is but preparation.
+- This is the miracle that happens every time to those who really love: the more they give, the more they possess.
+- If your daily life seems poor, do not blame it; blame yourself that you are not poet enough to call forth its riches; for the Creator, there is no poverty.
+- Perhaps all the dragons of our lives are princesses who are only waiting to see us once beautiful and brave.
+- No great art has ever been made without the artist having known danger.
+- I hold this to be the highest task for a bond between two people: that each protects the solitude of the other.
+- One had to take some action against fear when once it laid hold of one.
+- Surely all art is the result of one's having been in danger, of having gone through an experience all the way to the end, where no one can go any further.
+- Once the realization is accepted that even between the closest human beings infinite distances continue, a wonderful living side by side can grow, if they succeed in loving the distance between them which makes it possible for each to see the other whole against the sky.
+- Believe that with your feelings and your work you are taking part in the greatest; the more strongly you cultivate this belief, the more will reality and the world go forth from it.

@@ -1,0 +1,85 @@
++++
+author = "Charles Oakley"
+title = "Charles Oakley Quotes"
+quotes_len = "79"
+description = "the best 79 Charles Oakley Quotes"
++++
+- Don't say, 'I don't want to do this, because, whatever.' Don't give up on something. You got to work hard.
+- If you're out after 6 o'clock, have a jacket on, because you might go somewhere. People say, 'Oh, I ain't dressed for it.' But if you have a jacket on, you can go anywhere.
+- I still can't believe I'm even in the NBA. Me? Hah.
+- My thing was I had attitude every night. No matter who I played, who I went against, what team, you've got to have an attitude.
+- One of the things about the NBA is anybody could be traded.
+- A gentleman pays his debt within a week or two.
+- I love New York, gave my whole heart.
+- Coming from the inner city of Cleveland and growing up you never expected a street to be named after you or anything. It's a special honor.
+- Chicago was a good place for me. Maybe New York will be better.
+- You can't say, 'You're a scorer, you score. You rebound, you rebound.' Basketball is more than that. Basketball is knowing the next step, knowing the next play, knowing how to make things happen.
+- If you have a horse that isn't winning any races, sooner or later you have to get a new jockey.
+- I just tried to go out there and play with attitude, doing what I was supposed to do and knowing my role on the team. Doing what my team expected me to do every night, not just once a week. It was all about work and I was just a tough guy who would knock somebody down.
+- I don't have any specialties. Anything I cook, I just make it special.
+- You can't throw a hook on the side of the road and expect to catch a fish in the grass.
+- You can't play Around the World in the NBA, you've gotta go to the basket.
+- David Stern is the mastermind behind a lot of stuff, he controls a lot of stuff, he dictates a lot of stuff so he's going to make himself look good.
+- I just want to let the fans know I don't hate the Knicks. I love the Knicks.
+- Do me a favor and don't make me out to be no hero.
+- My thing was, if somebody talks about you this and that, you got to go prove them wrong.
+- People say, 'You're old.' Old ain't nothing. You've got new cars that break down and old cars that pass them.
+- A lot of guys do the pretty things. Dunking, tattoos, earrings, sagging jeans. That's the league now. They have athletic ability, but they don't know the game.
+- I'm a veteran. I understand the game. I can control a game. I understand systems. I can play several positions.
+- People hate to go out to eat with me because they know I'm going to send it back. Like, I'm trying to order simple. But don't blame me if you bring out the wrong stuff.
+- Knicks fans are the smartest in the world and they know you can't just play one end of the court.
+- When I first got into this league, I knew a lot. But I made myself better by listening and working hard.
+- My thing is, when Barkley played basketball, he didn't practice, he wasn't a leader, he wasn't this or that, he just had natural talent so he got chosen to the Dream Team, All Star team because he had the talent and he was the franchise player on the team.
+- Every headline in the paper, I don't write them. My story's inside the paper, not the headline.
+- I'm always willing to work stuff out, because I'm that type of guy.
+- Some guys get by on natural athletic ability. And then when they reach a certain point, they got to put in the time before and after practice and in the off-season.
+- I always try to treat people with respect and I just don't know. I got three assault cases for no reason.
+- Potential is like a summer crop. If it don't rain, it don't grow.
+- There's always someone who wants to make you look bad.
+- I'm not a troublemaker. People say, 'You got into a lot of incidents.' Yeah, but it was on the basketball floor.
+- It's been so overwhelming, the people in New York. That's why they call New York, New York - because they care about things and know real situations. My love for the fans, it's mouth-dropping.
+- You put in what you get out. If you don't put time into your game, you're not going to get better.
+- You can't shut somebody up by losing.
+- I guess I'm going to have to go Google myself and see why people think I shouldn't be coaching.
+- Just because there's glass on the road don't mean there's been an accident.
+- When you play 40 minutes a game, you're going to average a lot of rebounds.
+- I'm like a toll booth. Sooner or later, you have to come to me.
+- I like Chicago. I've visited Chicago before and have family here.
+- I'm cool with whatever. I'll just keep eating my bread, sipping my soup and serving my time. But the chicken is going to lay some more eggs one day.
+- A shirt look good when you iron it but if you iron too much, it gonna get burned.
+- Most coaches are mostly small guards because they think guards have more knowledge.
+- In Chicago, they wanted Michael to do his thing and me to be just rebound. I'm more than a rebounder.
+- Why complain to the NBA and to the officials all the time, just like Tyrone Hill, always complaining about me on the court?
+- If you a real true guy you don't talk about a guy after he is deceased.
+- If I would compare anybody to Michael Jordan, it would be Kobe Bryant.
+- I'm just a piece of the pie, a slice of the pound cake.
+- I'm not the kind of guy you threaten.
+- We had guys come out of high school, Moses Malone, Kevin Garnett, LeBron James, but all these guys could play.
+- Every superstar in this league, if you don't go through adversity, if you try to duck and dodge it, it's gonna damper your team.
+- I don't play mind games.
+- They told me many times throughout my career to bite my tongue and I told them my tongue's been bleeding since I was born.
+- You can't just score more points than last year without playing defense.
+- I'm in New York every two weeks. I don't have to ring a bell when I come to the city. I just do what I'm supposed to do when I'm in the city. I don't shy away.
+- If you're picky, you have to learn about cooking.
+- I just don't like when you preach one thing and do something else.
+- If you see a man kiss me, I better be in my casket.
+- Back in our day and era, you had to have your potential and be ready to play right away. Everybody was talented.
+- I'm all about having a good time and respecting my teammates.
+- Even though I retired, I work out four to five days a week, run two to three miles, I play ball.
+- I don't just hop in the car. I have destinations. I drive to relax. I'll be gone for two weeks, hit four or five major cities. I don't like being nowhere for more than two or three days. I just go. I don't have a schedule.
+- I don't like 7-footers shooting threes, it's a disrespect to the game for me.
+- I was in New York, I went to a Yankees game and I called and said, 'Can I get tickets to the Knicks game?' They said, 'We can't get you tickets no more to the Knicks game.'... They had tickets, but they said they didn't have no tickets for me.
+- There's been a thing with Detroit and the Bulls ever since I've been in the league.
+- In the old days Michael Jordan and Larry Bird worked for everything they got. They worked hard on their game.
+- I'm a trendsetter. I'm a leader, not a follower.
+- I've got too much heart and pride for the game.
+- I'm not a high jumper, but you don't see guys intimidating me or posting me up.
+- When you walk out here with the Bobcats logo, stand for something. Not wearing your hat to the back, sagging jeans. Be a professional, that's how I present myself to them.
+- Some things don't just walk away. A dog got a broken leg, he ain't just going to walk away. He going to try to get himself together.
+- Your offense might not be great every game, but defense is just about working hard and outworking your opponents.
+- One guy can't make a team better.
+- I shoot five or six times, go out and play defense and make sure everything is clicking. I'm like a transmission in a car. You can't see me, but I make the car go.
+- Every team has a main guy.
+- I ask everybody, who's the best between Magic and LeBron? Everyone says Michael's greatest. But, OK, well, we'll give him his props. But LeBron is a better athlete, and he can do more than Michael on the basketball court.
+- I want to do what's best for the team, always.
+- The guys who beat me didn't get 1,000 rebounds. I did. It's not my fault the other guys didn't play as many games.

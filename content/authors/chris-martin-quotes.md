@@ -1,0 +1,108 @@
++++
+author = "Chris Martin"
+title = "Chris Martin Quotes"
+quotes_len = "102"
+description = "the best 102 Chris Martin Quotes"
++++
+- If you don't let love in, then you can't really give it back.
+- When you're on your fifth album, you are going to be judged against all your previous work and expectations.
+- I don't speak particularly well. That's one of the consequences of being extremely ugly.
+- I never talk about my wife: we're both in public professions but we try to keep our private life private.
+- I'm not a great dancer. I'm a great advertisement for freedom of expression. I don't care what you think. I'm having a great time.
+- If I hear a song that I like, my first instinct is to find out about who made it.
+- Coldplay fans are the best in the world. If you like Coldplay then you're obviously very intelligent and good looking and all-around brilliant.
+- I think we're a band with a lot of history now so it's nice to come up with something that doesn't have any history at all.
+- You gotta wear the right trousers if you're gonna be a rock star.
+- Anything that we think is incredible and beautiful and wonderful, we ascribe to something that we don't know what it is.
+- I'm just a public-schoolboy. I've got a degree. I'm from a middle-class family in Devon. I've got no story.
+- You can sometimes get your own feelings across more strongly if you pretend that you're singing it from someone else's angle. But it's always from me. It's just a new way of framing it.
+- My philosophy at the moment is that I'm great - and so is everybody else. You have to fit your own oxygen mask. That's really my philosophy now: our band is the best band in the world. And so are all the other bands.
+- I can't believe we've got away with becoming this huge band. And we still haven't done anything I think is that good yet.
+- I always dream about other musicians. And they're never interested in hanging out with us. It's like being at school and the bigger boys don't want to play with you!
+- I personally really like getting a proper album with artwork and everything.
+- People who write happy songs are often unhappy.
+- I've had tinnitus for about ten years, and since I started protecting my ears it hasn't got any worse - touch wood.
+- Well, once we finish something, I can't really listen to it because all I hear are problems.
+- Record sales don't really mean anything. For us, the pressure is imagining some 15-year-old kid in Cincinnati who buys our album and doesn't feel like he wasted his pocket money.
+- I genuinely love Oasis, and I also genuinely love Beyonce. My body gets the same pleasure. If you like different types of music, it's OK to say it.
+- The goal is to try and make the perfect song. Which of course will never happen.
+- You've got to express yourself in life, and it's better out than in. What you reveal, you heal.
+- Music is split up now into little pockets.
+- I get more people approaching me about how good I was in 'Napoleon Dynamite' than being in Coldplay.
+- Being such a big band is never a problem but it can be distracting.
+- I just want to make the best music of all time with my best friends.
+- Economically, unfair trade will benefit nobody in the long run, as poorer countries will be bled totally dry and will become unable to produce anything.
+- The thing I really believe deep down is that everybody has a gift for something. Our job as adults is to make sure all children have the opportunity to find their gift.
+- What makes us a bit nervous is, in this instant age, to release something that might take more than one listen. Where everything is instantly judged on YouTube or something! It's a bit like releasing a horse and cart on a racetrack.
+- If a few companies were less greedy, the people at the bottom woud have a lot more.
+- To be totally honest with you, I'm so happy to be alive every day.
+- You have two years to make a record and do what you like to it; then, you have 10 minutes to do an interview that could mess it all up. It's the Crispian Mills Syndrome.
+- There's a part of me that wishes no one knew anything about me, but it's just not realistic.
+- A band's only unique thing is its chemistry, especially if none of you are prodigious players or particularly handsome. The one thing you have is your uniqueness, so we hold on to that.
+- It's more egalitarian on the Internet - anyone can put anything up. But in terms of the money it takes to allow a band to get good, there's less of it to invest.
+- I could be walking down the street one minute and get a handshake and then get spat on the next. I'm never sure whether to wear gloves or a helmet.
+- I may not be as lyrically adept as Jay-Z and Morrissey, but at least I can sing what I feel.
+- Once a week, I don't eat for 24 or 30 hours. Your brain becomes very lucid about ideas. It also made me so grateful for food and for life, basically, and that's why a lot more joy is coming through our music, I think.
+- I've never been cool and I don't really care about being cool. It's just an awful lot of time and hair gel wasted.
+- More idiots should just shut their mouths.
+- When you think of Rihanna's voice, you think of this whole, rich thing, solid like a tree trunk.
+- I do worry - a lot.
+- When you don't have food in your life, just for a day, it makes you realise you're lucky to have it the next day. So the day after fasting, the music that comes out will be very joyous.
+- India appeals to everybody. For me personally, I always felt like we would come here when we wanted to embrace all colours. I don't mean racially, but literally; just all the colours of the world.
+- Maybe it's because I'm English, but in terms of how people perceive us I only pick up on the negative side of it.
+- We want to make something that moves us when we hear it. Because after all the hype and awards and whatever, that's all music is.
+- Celebrity culture has gone crazy, and I think the reason is that real news is just not bearable, and it also seems impossible to change anything.
+- I'm saying One Direction are brilliant! And I'm not kidding. Because their songs are really good.
+- Going through something difficult in your life, music, for me, is always a friend and something that helps you to figure things out.
+- For people who write songs, it's a gift you're given. You become good at the craft, but you're given the gift.
+- I think shareholders are the great evil of this modern world.
+- Even though the album is an endangered species, can we try and make a coherent and good one, even if it's like making a horse and cart at a Nascar conference?
+- I think if you're lucky enough to be in a band with your best friends, and you look at the world in the right way, than you understand that everything that's happening to you can be alchemized.
+- Although it's painful at the time, most of the things that people have said about us negatively - some of them are true and you can work on them, and the ones that you don't agree with, you don't work on.
+- Being voted the world's sexiest vegetarian is about as cool as it gets. It's not quite as cool as Brad Pitt, but it'll do.
+- Everyone asks me about being so worried or thinking about existence as if I'm the only person who can't understand why a tree grows the way it does or why a person is in power when they're not that great. These are questions everyone has.
+- Looking after your ears is unfortunately something you don't think about until there's a problem.
+- I have my moments - usually twice every album - when I basically lose it.
+- Rihanna's voice is just delicious for your ear. Sinatra had the same thing; anything he sang sounded pleasing to most people.
+- I think that the fact that a relationship becomes public is a bit of a bummer. Because it can distract from the real reason why you're together, which is that you just like each other.
+- I think everyone in their life goes through challenges, whether it's love or money, kids or illness... You have to really not run away from that stuff.
+- I think it's part of being English, particularly if you are middle-class - you're always looking to be reminded that you are no good and you are always actually embarrassed about being successful.
+- I have a very wonderful separation-divorce. It's a divorce - but it's a weird one.
+- I don't actually own a car.
+- There comes a point where it doesn't matter how many zeroes are at the end of your bank account.
+- This person loves tangerines, This person loves raspberries - and my son won't even look at berries. Isn't that amazing? And so I have to apply that to music; otherwise, I would always hide in a hole because of all the people that don't like Coldplay.
+- Anyone who criticises me for talking about fair trade is a few pebbles short of a beach. Because everyone should care about it, just like everyone should care about the environment, because we all live here.
+- When I'm with my kids, I feel like that's really me. And when we're on stage, I feel that, too.
+- Some people misconstrue our band just to be a commercial venture.
+- To me, India's always represented 'everything'; it represents 'all.' Everything is here. You can stay here forever, and you'll never feel like you've missed out on life.
+- We aren't cool and never will be.
+- Music comes from a place we don't know.
+- If you want to be depressed every day, there's plenty of material. The world is crazy.
+- Somebody rang me up the other day and said 'Yellow' was on a karaoke machine. That made me genuinely excited. It's got a nice beat.
+- I don't drink, I don't take drugs, I don't smoke.
+- You can never say you're big - I don't think you can ever take anything like that for granted.
+- What was I like as a kid? The same as I am now, just smaller with a higher voice.
+- I'm petrified of reincarnation because, you know, I like being me.
+- I give complete respect to any couple that stays together, however they do it, whether they do it by going on red carpets or going hiking together, you know, or keeping themselves really quiet and trying to stay out of all that press stuff.
+- You can try to be catchy without being slick, poppy without being pop, and you can be uplifting without being pompous. Because we're sometimes playing quieter stuff, it's hard to sound like we're trying to change things, but we wanted to be a reaction against soulless rubbish.
+- I know I am in a band that is famous, and my private life is famous. I get it, and it's fine. Even when I grew up in a village, people wanted to know who was going to the dance with whom, and I understand, but I think if I engage with it too much, it won't be that healthy.
+- I know being on a major label is meant to be antiquated, but we're fine with it.
+- We rely more on enthusiasm than actual skill. Whatever you do, do it enthusiastically and people will like it more.
+- Just because a romantic relationship ends doesn't mean that the other facets of your relationship have to end... or, indeed, doesn't mean they can't get better.
+- Sometimes we have criticism that is very constructive.
+- I'm competitive with anyone who writes a good song - I don't care if it's a band or solo artist or whoever.
+- Rihanna has this thick tone, so it's very hard to annoy anybody. It's like a beautifully squeezed tube of toothpaste.
+- People say it's a bit repetitive to say, 'Oh oh oh oh oh oh,' but you can't translate the melody into words.
+- I'm not sure if I can whip, but I can nae nae with the best of them.
+- Well, I don't like the word 'rock star,' the two words, 'rock star.' Not even 'soft rock star. Not even limestone star. I don't like those words.
+- Anything where we're the butt of the joke, no one tells us about it.
+- I had a couple of years in the mid-2000s where it was really confusing to me. I was like, 'Why is our band sometimes a punch line?'
+- There's a reason why people who've had bad relationships with their parents listen to angry stuff.
+- I do an hour's yoga and go running every day. Then I see a picture of myself and I still look like a skinny, potbellied idiot - and I thought I had turned into this superhunk!
+- It's difficult when you're successful, to admit that you need help.
+- You know, it's possible for two humans to be in a relationship without there needing to be some public reason for that relationship.
+- I'm happy in L.A., but I will live wherever my kids are, and I don't really mind where it is.
+- There's stuff going on in the world right now, which you can't imagine why is this happening; it's crazy. I don't know what the answer is, but if you didn't have faith in the universe that somehow something great would arrive at the end, then we'd all give up, and that would be a waste of everyone's time.
+- So I have probably 1,200 little bits of paper with notes, which when the Ambien really starts to kick in, don't really make much sense. Say what you like about prescription drugs, but they do help when you're sequencing a record.
+- Before our albums are released I feel like we still own it, that we have control over our music. But once it's out there in the world it's no longer ours.
+- I don't mind not being cool.

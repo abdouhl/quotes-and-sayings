@@ -1,0 +1,29 @@
++++
+author = "Barry Goldwater"
+title = "Barry Goldwater Quotes"
+quotes_len = "23"
+description = "the best 23 Barry Goldwater Quotes"
++++
+- I think any man in business would be foolish to fool around with his secretary. If it's somebody else's secretary, fine.
+- I could have ended the war in a month. I could have made North Vietnam look like a mud puddle.
+- You don't have to be straight to be in the military; you just have to be able to shoot straight.
+- Hubert Humphrey talks so fast that listening to him is like trying to read Playboy magazine with your wife turning the pages.
+- If everybody in this town connected with politics had to leave town because of chasing women and drinking, you would have no government.
+- Equality, rightly understood as our founding fathers understood it, leads to liberty and to the emancipation of creative differences; wrongly understood, as it has been so tragically in our time, it leads first to conformity and then to despotism.
+- I won't say that the papers misquote me, but I sometimes wonder where Christianity would be today if some of those reporters had been Matthew, Mark, Luke and John.
+- The income tax created more criminals than any other single act of government.
+- I will offer a choice, not an echo.
+- You don't need to be straight to fight and die for your country. You just need to shoot straight.
+- If you don't mind smelling like peanut butter for two or three days, peanut butter is darn good shaving cream.
+- When I'm not a politician, I'll be dead.
+- You've got to forget about this civilian. Whenever you drop bombs, you're going to hit civilians.
+- Nixon was the most dishonest individual I have ever met in my life. He lied to his wife, his family, his friends, his colleagues in the Congress, lifetime members of his own political party, the American people and the world.
+- The only summit meeting that can succeed is the one that does not take place.
+- It's a great country, where anybody can grow up to be president... except me.
+- I would remind you that extremism in the defense of liberty is no vice! And let me remind you also that moderation in the pursuit of justice is no virtue.
+- Extremism in the defense of liberty is no vice. And moderation in the pursuit of justice is no virtue.
+- I wouldn't trust Nixon from here to that phone.
+- To disagree, one doesn't have to be disagreeable.
+- Where is the politician who has not promised to fight to the death for lower taxes- and who has not proceeded to vote for the very spending projects that make tax cuts impossible?
+- American business has just forgotten the importance of selling.
+- I think every good Christian ought to kick Falwell right in the ass.

@@ -1,0 +1,97 @@
++++
+author = "Logan Paul"
+title = "Logan Paul Quotes"
+quotes_len = "91"
+description = "the best 91 Logan Paul Quotes"
++++
+- I believe you really do need to be 360 in this industry. And being just a Vine creator was not my goal.
+- Everyone who uses their phone on a day to day basis just be careful with how much you're consuming because it can get unhealthy quickly.
+- I can sing, I can act, my physical comedy is on point. I can do the splits.
+- I would want to fight in the UFC or Bellator. Why CM Punk? Anyone, just a worthy adversary. It can't be a world-class fighter.
+- I've wrestled my whole life.
+- It's so easy for anyone to be like, 'Logan Paul just ended his career. He's done.' But the only person who will ever decide whether that's true is me. Like, if I sleep for the rest of my life, maybe.
+- Why can I do the splits? That's weird. I'm uncomfortable with myself.
+- MMA guys, we sparred a lot of them training for KSI because of the wild punches.
+- Good luck trying to cancel me.
+- I want to be the biggest entertainer in the world. That's my deal. I'll do whatever it takes to get that.
+- I want to explore for myself and keep an open mind. There is a stigma of being a flat earther and if I'm going to do it I want to know the facts.
+- I would love to box Dillon Danis. But do the fans want to see me box Dillon? Does Dillon put people in seats?
+- There comes a time when you have to grow up and start thinking for yourself.
+- I want to expand and conquer every platform, every medium as well as pursue entertainment beyond social media - acting, producing, and directing.
+- I want to fight a UFC fighter.
+- I'd love to entertain people forever.
+- Boxing is by far one of the best things to happen to my life.
+- I have no interest in bantering back and forth with someone who is the exact person that I am trying not to become, and stay away from, by degrading women, by going after my family, in a manner that is intended to harm.
+- People do horrible things.
+- I was one of the best wrestlers in Ohio.
+- This Internet stuff is definitely not my future.
+- I'll make some TikToks, who knows?
+- I actually don't mind viral trends. I think most of them are inexplicably really funny.
+- Some of my Vines, the young girls love them. But college students will watch them and be like, yo this is dumb.
+- There's a difference between being culturally insensitive - being insensitive towards a culture - and being insensitive.
+- I literally did athletics my whole life.
+- Is it possible for Logan Paul to make a comeback or am I going to be a failed YouTuber?
+- There are so many funny guys, like Theo Vonn or Joe Rogan, making really entertaining podcasts. There is so much value in a Joe Rogan podcast.
+- I jumped off a bridge in Italy, is that culturally insensitive? Is saying 'mamma mia' culturally insensitive?
+- I will think twice in the future about what I post. Probably three times.
+- YouTube does a better job of monetizing for the creators. Like, that is the home for me as a creator where, not only can my content be seen, consumed, digested, but also they pay.
+- So most girls I date - actually, all of them - say this. Every girl I end up dating, there's like a couple things. One, they hate me at first.
+- If I'm being quite honest with you, I'm the fastest YouTuber; I'm the fastest entertainer on the planet.
+- I'm blessed to be curious about things.
+- Creating content to make people smile and laugh, that's what makes me happy.
+- If I'm going to do something, I might as well go for it.
+- I'm an athlete, I'm funny, I'm creative, I can tell a story, I'm likable.
+- This creating? It's my passion.
+- Some of the best scientists can't explain gravity; Neil Degrasse Tyson, Bill Nye, in the end, do they even know?
+- One of the things I'm learning is that crisis passes, and for anyone suffering I think it's important to know that.
+- As the funny guy, the funny frat bro, any time I try out for that role, I get it. Like, I walk in and they're like, 'Yeah, you're it.'
+- I don't think everyone should get a second chance.
+- The issue is sometimes when people are themselves, like, what if you suck, you know? There's a good chance you're not gonna resonate and not be relatable to people. You gotta be a goodhearted, positive person. And a lot of YouTubers I've met anyways are.
+- I don't even know what my artist name would be. Would it be Logan Paul? Would it just be Logan? I don't know.
+- I'm betting 100,000 that I'm the fastest man on the planet.
+- All the Vine creators, we knew our home, the place we started on was slowly reaching a plateau.
+- To my fellow creators, wholeheartedly, I am sorry I brought shame upon the platform. I promise I will do the community well and keep on trucking and bring light to YouTube.
+- I mean astronomically, that one doesn't even make sense. Because if you shoot for the moon, you're not going to land on the stars. The moon is closer than all of the stars.
+- One of the reasons boxing is one of the greatest things to happen to my life is because it made me human again.
+- I'm not like a full athlete. But I'm definitely a boxer.
+- Peyton List is sweet.
+- I try not to get too political.
+- Every big platform wants to be the video platform.
+- So how do you make it as a mainstream entertainer? Who knows? But I think you have to be uncomfortable, right? You have to make yourself uncomfortable. All success stories depend on that. That's why I might start sleeping on hardwood floors and taking cold showers.
+- The old Logan was plain old insensitive.
+- They're the smartest, most cunning, slick, coolest group of people on the planet. Generation Z, I love y'all.
+- It's like, 'How can I reverse engineer what it takes to gain followers on a platform?' And I'm curious about how it works. And I'm the same way with people. I'm curious about what makes them tick.
+- I'm unlike any other creator on the Internet.
+- If you can be yourself and people like you, you're golden.
+- I'm everywhere, baby, I'm everywhere. And I'm nowhere, I'm like a ghost.
+- I can speak at length and use my brain. It's nice to be able to show that side of me.
+- I want to be in R-rated movies.
+- I'm so used to doing stuff, as you can imagine, fast and on the go, and just calming down, being patient for me is something I have yet to get used to.
+- I was so used to people liking me. But being hated? I hate it. I hate being hated!
+- I think Hollywood, I think America in general, they love redemption stories.
+- I try not to live my life thinking about money because money doesn't make me happy.
+- Everyone deserves second chances.
+- After all the stuff that I've been through, I'm trying to rebuild my brand and be true to who I am, and be authentic, and make the truest, realest content that I can.
+- I could be the quickest man on the planet.
+- I am my own demographic.
+- I want to find the intersection between digital media and traditional media and be pioneering the endeavor to merge the two worlds.
+- I mean, look when you meet me in real life, I'm not the person you see on the Internet, as disappointing as that is.
+- I have been hated by the whole world and it's been something to definitely overcome.
+- I think I would destroy CM Punk if I'm being honest. I don't know if anyone would disagree with that.
+- I love MMA.
+- The branding stuff is really fun.
+- Let's just say, I went to Sweden for a reason, to make music.
+- The biggest companies in the world and brands have come to me to help sell their product to the younger generation. And I speak the language of millennials, and they respond to my content.
+- I don't want to be a Snapchat star. I barely want to be a YouTube star.
+- Girls love trampolines.
+- I am incredibly grateful for the opportunities Vine has given me.
+- I was disrespectful everywhere: U.S., Italy, France.
+- I moved out to L.A. to pursue entertainment beyond social media. Because I could have made Vines from Ohio.
+- Boxing has definitely allowed me to focus on something other than just creating content which I think we've seen historically can be so toxic.
+- No matter how many people want me to crawl in a hole and die forever, I'm not going to do that.
+- I'm a maverick.
+- The biggest surprise about making a movie has got to be the wait in between takes.
+- Rejection is just a part of life.
+- Just so you know, I am an ex-controversial YouTuber.
+- A lot of people want to get involved, so thinking up Vines that require crowds is always good. But I've definitely gotten tweets before that were like, 'Just saw Logan Paul shooting a Vine and ran in the other direction!' so it's not for everyone.
+- I want to become better, I don't want to let my mistakes define me.

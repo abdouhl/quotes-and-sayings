@@ -1,0 +1,61 @@
++++
+author = "Bart Millard"
+title = "Bart Millard Quotes"
+quotes_len = "55"
+description = "the best 55 Bart Millard Quotes"
++++
+- It's kind of scary making a faith-based film.
+- When I was a kid, my dad would let me stay up and watch 'Cheers' each week. Granted it's not the most 'kid friendly' show, but I could've cared less. I was getting to stay up past my bedtime!
+- I have pretty much always been about - if I write that song or whatever, it is all for Mercy Me. Anything I want to do is for Mercy Me.
+- I don't know what it is, but St. Louis has always welcomed us with open arms.
+- After 'The Hurt & The Healer', we kind of hit a wall. I grew up in a somewhat legalistic church and it taught me that faith is enough, but here's three more things left just in case. There's always things left to do to be closer to God.
+- We have jokingly said if you've got good hair, can sing and know three chords, you can lead worship at First Baptist Houston or wherever. But that's kind of scary, putting somebody on stage just because they have a good voice. Do they know theologically and spiritually what they're saying and why they're doing it?
+- Probably about 10 years ago or so I told my grandmother that I always wanted to make a record of hymns if I could ever make a career of all of this. She kind of held me to it. She passed away in 1999. I just never forgot it.
+- You didn't choose Christian music because it's more beneficial. It doesn't pay more. It doesn't make you more famous. There's some reason why you came to this. What changed your life at some point?
+- When my father died of cancer in 1991, he left me with the assurance that he was headed to a better place. He used to always tell me that I was getting the raw end of the deal because I had to stick around here.
+- Our relationship with Christ is something we cannot just turn on and off. It is a part of us. On our best, and our worst, we are in this thing for life... and then some.
+- 12 years ago all I wanted to do was sing the right songs and get emotionally wound up, but now I realize my job is to make Christ the center of attention each night.
+- Basically, there's not a single circumstance, I pray, that can derail me from what Christ is to me and who I am because of Christ.
+- The song 'Even If' is incredibly special to me.
+- Part of the tradition of the Christmas season is every night my son and I hit the town and look for every Christmas light we can find. This is something my son absolutely adores.
+- I'm not trying to shove anything down anybody's throat.
+- If you go to a Christmas concert, you take your wife on a nice evening, people are dressed up a little bit more, and it's definitely a sit-down event.
+- The only time I actually got mad at God is when my dad completely changed and was my closest friend, and then he was taken from me too soon.
+- Then, when my dad was diagnosed with cancer, I started to notice this crazy transformation, where he fell desperately in love with Jesus.
+- I came to know Christ at the age of 13 during church camp at Glorieta, New Mexico.
+- As long as our heart's beating, there's a chance for us, or whoever that person is in our life, and I don't know how the story turns out, but I do know that no one is out of the reach of God, and that anybody's capable of change.
+- What I view as worship now is certainly a little different than how I used to view worship. I don't see it as a verse in a chorus, on a big screen with words, like I used to. It's just trying to be as real as possible in front of an audience.
+- We are not disqualified or bad people trying to be good. We are holy, righteous, and redeemed. Sometimes, we spend more time on what we used to be and not who we are now.
+- I've been through difficult times where it just seems like hope is nowhere to be found, but those are some of the greater moments where we run to Christ a little faster and hang on a little tighter.
+- I just want people to not assume their story is over, especially when maybe they have somebody in their life that they've given up on or they think it's hopeless.
+- Let me put it this way, if you were drowning, you wouldn't really be in a place to lend a hand as far as being rescued. You'd be at the mercy of the lifeguard. Once pulled out, you may be a little out of it, not sure where you are, but safe nonetheless.
+- I have one brother who's five years older than me and he was a huge part of my childhood.
+- We started making independent records. We started in '94 until about 2000 when just kind of just did it ourselves... We'd write our own songs. No one cared... At some point, we decided to try and write our own original stuff and one of the last independent records is when we wrote the song 'I Can Only Imagine.'
+- If there's a moment on the record to reach people where they are, it's 'Even If'. We're ministers first. We're trying to reach the hurting first. This song wrecked us.
+- More than anything, whether it's my dad's fault or whatever, I wouldn't allow myself to be loved. I lived most of my life thinking that I was unlovable, that I was broken goods, or whatever.
+- Good songwriters write about what consumes their heart, and ours is about our relationship with God.
+- A Little Hope' is a song we wrote a couple of years ago and hated the thought of it not getting at least a little attention. It's a song that just makes you smile.
+- Yeah, musically, from a production standpoint my favorite is probably 'Have a Little Talk with Jesus'. Just the way it turned out production wise with the clarinet and everything, it sounds like something from a movie.
+- The second that MercyMe stopped being my identity, instead of quitting, I started falling back in love with it.
+- Writing Christian or worship music is just because I love Jesus, so everything I do is going to be an overflow of that.
+- We try to do everything that we can to make Christ the center of attention. Our goal is to kind of broaden the definition of worship. I know that God has always used us as a forefront for people to draw closer to Him and get into His presence.
+- We never want to force the Bible down people's throats. But I want them to ask, 'What joy do they have that I don't have?' Let go and enjoy yourself and leave feeling like you can take on whatever you're facing in life.
+- I've never met an artist who was at a certain level of spirituality offstage and then lowered it onstage.
+- I believe my life has been covered by grace since I trusted in Christ at age 13. I just had to turn 40 to notice.
+- I did everything religion told me to do for a long time only to end up frustrated, beat down and jaded. I couldn't keep up. No matter how hard I tried, it was never enough. So I decided to quit. And I did.
+- My dad was a monster and I realized if the gospel could change that dude, the gospel can change anybody.
+- I ended up living in fear for most of my childhood.
+- At some point, I talked about how I had never graduated college. I dropped out my sophomore year to start MercyMe 21 years ago. Part of the reason was I felt like I was treading water.
+- I think everyone, especially after the passing of a loved one, starts to hope that maybe there will be something better on the other side.
+- I'm all into Jazz; I'm into New Orleans type music. There is country, there is southern gospel. I'm a huge southern gospel fan.
+- On Christmas Eve, it's my wife and my son and my daughter and I. We're home, and we open our presents together on Christmas Day, and then after we go visit the rest of the family.
+- I finally got the dad I always wanted and then he left. At 18, 19 years old, I was really upset and had to work through that.
+- God was always a refuge for me growing up.
+- My son, Sam, is 15 years old, and he's been a diabetic since he was 2. When you're a parent of a child with any kind of chronic illness, these things don't go away. You have a lot of good days, but some days you feel like you're losing bad.
+- The popularity's got its pluses and minuses, and there are many days that I would rather just be a Christian and not known at all, but that's not what God has called me to do.
+- Whether you have an abusive father or the most amazing dad ever, every son is trying to find their way out from under the shadow of their dad.
+- I think everybody's got someone in their life that they think is out of the reach of God, or unchangeable, unreachable, if you will, and maybe we think that way of ourselves sometimes.
+- I am just sitting back and trying to take in the idea that the God who created everything around us, He didn't call the mountains or the forest or the ocean to spend eternity with Him, but He called us.
+- As long as there's breath in our lungs our story is still being written.
+- If somebody told me people would still care about our music 25 years ago, I would have thought they were crazy.
+- My dad would do horrible things to me, but I was so desperate for his affection and his approval that I would keep coming back.

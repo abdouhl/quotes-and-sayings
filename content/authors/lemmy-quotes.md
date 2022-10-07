@@ -1,0 +1,105 @@
++++
+author = "Lemmy"
+title = "Lemmy Quotes"
+quotes_len = "99"
+description = "the best 99 Lemmy Quotes"
++++
+- I'm not a poker player; I play slot machines.
+- Rock n' roll sounded like music from another planet. The first time around, we had people like Elvis, Little Richard, Chuck Berry, Jerry Lee Lewis - all them people.
+- Women always left me because I wouldn't commit, but then nothing changes a relationship like commitment. If you move in with someone, you lose all respect for them.
+- I don't really admire musicianship per se - as is obvious from my own playing.
+- Some songs, you just can't shake; they keep creeping back into your set list.
+- Like most housewives, I don't cook unless I have company.
+- I was in the Rockin' Vicars, which was the first British band to tour behind the Iron Curtain. A lot of photos were taken of us next to milk churns.
+- I never liked jazz or anything else. Early rock n' roll - that was music to me. Everything else was boring.
+- Rock n' roll's had a good time out of me - and I've had a very good time out of rock n' roll.
+- I'm not afraid of death. How can you be afraid of something that's inevitable?
+- All my dreams came true. There's not many people that can say that. I mean, most people have to work in a job they hate all their lives, and I can't imagine that.
+- My persona has given me a certain notoriety, if not international celebrity.
+- Oh, I listened to a lot of the blues. I love the blues. You know, Slim Harpo, people like that, and Sonny Boy Williamson.
+- I always open doors for women. It's just good manners.
+- It's very much up to you, how you shape your life. I mean, I missed out on human relationships. But looking at relationships that I've seen along the way, I don't think I've missed much.
+- It's when you get to 60 when everything starts to go pear-shaped. Everyone thinks that becoming an older guy is easy, but you never consider it fully. It comes as quite a shock.
+- I don't know if love exists, not the kind that keeps. I think love's an infatuation that turns into a habit, because you can't keep that passion going. You get used to people, and that's death for me - I like to be surprised.
+- In every kid's life, there's about three or four years when you're at liberty, and after that, you have to get a job because you're getting married or you have to support your parents or whatever it is. I was lucky: I didn't get married, so I didn't have to have that responsibility.
+- Nobody in the world could possibly be as mean as I look, could they?
+- The hippie era was a wonderful time because we still believed we could make the world a better place.
+- I don't eat vegetables. I eat potatoes and green beans, and that's it.
+- It's not that I take pride in being unfashionable. It's just that I've gotten used to it.
+- I was brought up by two women: my mother and my grandmother.
+- I don't want to advise anyone to do anything, apart from try and stay alive. That's my advice - don't die.
+- I can't say I was really that surprised when the doctor told me I needed a defibrillator inserted in my chest. When you've lived the life that I have, you should always expect something like that to crop up. I was not a good boy.
+- Cold pizza is a perfect breakfast, with lots of salt.
+- We was living in squats in Battersea when we started with Motorhead. And we lived with the Hell's Angels in this flat. They were always around.
+- I've never met a girl who could stop me looking at all the others. If I did, I'd marry her.
+- I'm against any religion, and Communism and Nazism - they're both equally religions. They're just replacement gods.
+- People don't become better when they're dead; you just talk about them as if they are.
+- Good manners don't cost nothing.
+- It just seems like we get more popular every eight years or so. For some reason, it becomes cool to like Motorhead again.
+- I can never be anonymous - especially when I walk round looking like this; especially when I take so much trouble not to be anonymous, right?
+- We've made bad albums in the past, and people have bought them. I don't know. I don't care. I'm just grateful for it.
+- I make a very good steak.
+- I was the kid a lot of other mothers wouldn't let you play with.
+- I'm not going to die broke, but I'm not rich.
+- I dislike religion quite intensely. It's been the cause of all the grief in the world ever since they discovered the first stone to worship.
+- I saw the Beatles play the Cavern in Liverpool when I was 16. They had attitude: Onstage, they were like a four-headed monster.
+- I don't only collect Nazi stuff; I collect objects from all the Axis countries.
+- Growing up in America is like being taught to be stupid.
+- I always write about war, love, death, and injustice. There's plenty of that around, so I never run out of ideas.
+- Just 'cause something's popular, it can still be good. In fact, if more people are buying it, then you must be doing something right. People look down on stuff that sells. What do you call that? Downward snobbery, I guess.
+- I do quite like that Andrew Lloyd Webber song from 'Cats.' What's it called? 'Memory?' Sends shivers up your spine.
+- I don't really have the voice for love songs, do I?
+- I wasn't very worried about the Cold War; I was busy being a musician.
+- I like hard, aggressive music.
+- From the beginning of time, the bad guys always had the best uniforms. Napoleon, the Confederates, the Nazis.
+- I like touring; I live on the road, more or less.
+- The thing about death is it's so final, isn't it, really? As far as we know... Nobody has ever come back and told us about it.
+- My advice wouldn't be good to anybody. I don't see it really being greeted with thunderous applause.
+- In your twenties, you think you are immortal. In your thirties, you hope you are immortal.
+- 'Bomber' was the first song I wrote about war.
+- You can't win fame; you have to earn it. If you're given fame without working for it, then you're not going to be ready for it.
+- I wasn't any good at playing tennis.
+- I was never going to be a doctor or a lawyer, so being a musician seemed to be the best of what was on offer.
+- The Beatles were from Liverpool. It's a hard town. The Stones weren't the hard men. They just dressed up. The Beatles were the hard men.
+- I didn't really want to be in the lifestyle without the music. And I didn't want to be in the music without the lifestyle.
+- It's much more fun to be full of hope than pessimism any day of the week.
+- You can't plan your life. It doesn't work.
+- Human nature is to blame for everything, innit? We're just a disease on this planet.
+- I guess anything in excess is no good for you, even things that are supposed to be healthy.
+- Everything I hear influences me. I can't tell you all my influences as a musician.
+- Falling in love is terrible. It makes you act foolish, like an idiot.
+- I wanted to be a farmer; actually, I wanted to be a horse-breeder. And I had the stallions... but then I heard Little Richard, and that was it.
+- My father walked out on us when I was three months old, and my mum, well, she wasn't the driven sort.
+- People don't know how to be outrageous anymore.
+- I'd never have left Hawkwind if I hadn't been fired.
+- The Beatles are the classical music of rock n' roll. And rock n' roll is far more widespread than classical will ever be.
+- Everyone gets depressed. But what do you do? You just go through it.
+- Eddie Cochran - I never got to see him live, but he could play. Him and Buddy Holly, they were the best guitarists. They could get a good raunchy beat going.
+- I listen to everything from Ravel to the Bee Gees.
+- Am I going to get my warts removed? I might do, but I'm certainly not going to auction them on the Internet.
+- Touring is too much fun to stop.
+- Gay people are made and not born.
+- You learn all the best stuff in life after you leave school.
+- I find it quite easy to play chords, and, you know, that was all I ever did. I never wanted to be a lead guitarist.
+- As a roadie for the Jimi Hendrix Experience, I learned that I should give up being a guitar player.
+- My hearing is usually O.K.
+- I went to go see the Rolling Stones in the park, and they were awful: completely out of tune. Jagger wore a frock.
+- I don't know, I've always written songs that are mainly about attitude, not me personally.
+- I always wanted to be able to show off like the guitar players do. I think I managed that alright!
+- Got two kids; one's a record producer who lives just up the road from me - great guitarist and piano player, too.
+- As for what other people think of me, I don't care. I don't care and never have.
+- I always thought we had more in common with punk than with anything else, but we had long hair, so we didn't fit in that box.
+- I once fell through a hole in the stage.
+- Kids are generally rotten until the age of about six, when they become people.
+- I learned that if I had known how much of this Nazi memorabilia there was to collect, I never would have started in the first place. It's crowding me out of my house.
+- There's no point thinking about dying, because it's going to happen anyway, isn't it? I don't waste my time worrying about that.
+- I've always been very wordy; I've got a great vocabulary.
+- I hate golf! I still can't believe Alice Cooper plays golf!
+- I don't miss anything by being a bachelor. I don't know any happily married couples, not even my parents.
+- I am emphatically not a Nazi.
+- In 1967, I had my first black girlfriend, and a lot more ever since then. I just don't understand racism. I never thought it was an option.
+- I've always been alone. I grew up alone. I like it that way. Even when I'm in an arena surrounded by 10,000 people, I'm alone in my head.
+- Elvis inspired my sideburns, but Little Richard inspired me for vocals.
+- The more you learn about everything, the more you learn that everything's fixed not in your favour.
+- Everyone wants to be safe. Well, I got news for you: You can't be safe. Life's not safe. Your work isn't safe. When you leave the house, it isn't safe. The air you breathe isn't going to be safe, not for very long. That's why you have to enjoy the moment.
+- I don't like people's table manners. That really puts you off eating food.

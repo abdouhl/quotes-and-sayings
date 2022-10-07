@@ -1,0 +1,92 @@
++++
+author = "Caterina Fake"
+title = "Caterina Fake Quotes"
+quotes_len = "86"
+description = "the best 86 Caterina Fake Quotes"
++++
+- Rob Kalin, Etsy's founder, never finished college. Evan Williams, Biz Stone, Jack Dorsey - the founders of Twitter - are not college graduates. Mark Zuckerberg, Facebook founder, is another dropout. And, of course, Steve Jobs and Bill Gates.
+- If you look at all the companies I've been involved with - Flickr, Etsy, Findery - communities are a significant part of them. Connecting people to each other, user-generated content, building interactions. That's what I've cared about most.
+- If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
+- A lot of the reason I wanted to become an entrepreneur and avoid working for others is that you get to create the world you want to live in and the company you want to work for, and I've loved that. It's a part of entrepreneurship that women should really embrace.
+- I go to bed early - around 9 P.M. or 10 P.M. - and wake up between 2 A.M. and 5 A.M. and get an extra three hours of work done. Then I have a regular work day. It's very effective.
+- It makes me happy to meet other poetry fans. Especially when they recommend poets I'm not familiar with.
+- A lot of things have changed since the days of Flickr. Facebook has concentrated the sociality of the Internet within its blue borders, like a Walmart siphoning off the mom-and-pop shops that formerly comprised the Internet's gathering places. Communication, in the age of mobile dominance, has become, of necessity, shorter and snack-sized.
+- I'm not good at vacationing. I've repeatedly failed at palapas and mai-tais.
+- I learned most of what I knew about online communities on The Well, and it was a good place to learn. The group of people in Sausalito and Bolinas who'd gotten the Whole Earth Catalog off the ground - a bunch of boomer hippies, intellectuals and nerds - established the 'Whole Earth 'Lectronic Link', and showed us what online communities were.
+- When we were making Flickr, we called it the 'Eyes of the World.' The idea was that everybody, everywhere, is looking. It was this sense of being able to penetrate worlds that you had never been able to access before - of global, universal travel.
+- In 2001, the hard disk on my laptop crashed, and everything on it was lost. I'd been using the computer for two, almost three years, and had all my work on it - email, which was stored locally; photos; fragments of poems; presentations; sketches; ideas; love letters; everything. I lamented the loss to my friends and got lectured on doing backups.
+- Entrepreneurship works on the apprenticeship model. The best way to learn how to be an entrepreneur is to start a company and seek the advice of a successful entrepreneur in the area in which you are interested. Or work at a startup for a few years to learn the ropes.
+- I spent many years in college studying English literature. I was on the verge of attending grad school to get a Ph.D. in Renaissance poetry - my lost careers were being a writer, artist, or academic. Do I regret spending all that time poring over Shakespeare when I could have been getting a jump start on the competition? Not at all.
+- Sometimes you climb the mountain, and you fall and fail. Maybe there is a different path that will take you up. Sometimes a different mountain.
+- Part of why making Pinwheel is so fun, is so exploding with possibility, is that a note, like a photo, can be a container for all kinds of things. It is the perfect social object. Stories, advice, jokes, diatribes, information, memories, facts, advertisements, love letters, grocery lists, and manifestoes can all be put into a note.
+- I can't tell you how many times I've booked an air ticket only to get to the airport and find out they killed my ticket because it goes into the system, and the program tosses a ticket that says 'fake' on it. Twice I've gone to the counter for a KLM flight through Northwest and have been rejected.
+- Etsy is fundamentally a creative community. On eBay, or Amazon for that matter, practically anyone can sell practically anything. On Etsy, you can only sell handmade goods, vintage goods over 20 years old, and craft supplies for making.
+- For a while, I couldn't join Facebook because of my last name. During the registration process, I was asked for my real name, and when I wrote 'Fake,' it rejected me. Finally, a friend working for Facebook took care of me.
+- If you looked at my resume in the years leading up to Flickr, I worked in a dive shop in landlocked Arkansas; I was a starving artist. I just arrived at the thing I love to do accidentally.
+- I'm sure there was some amazing art at the Frieze Art Fair, but I wasn't able to find it. However, found some friends there, which was even better. And the boat to and from was lovely.
+- College works on the factory model and is, in many ways, not suited to training entrepreneurs. You put in a student, and out comes a scholar.
+- I'm an accidental business person. I just love the medium. I love the Internet.
+- Good parents, who are able to maintain the affection and respect of their children and whose offspring admire them and value their good opinion, can be reasonably certain that their values and ways of socialized behaving will be adopted by the next generation.
+- I love Hunch, the awesome team, my brilliant cofounders - we're doing great work and building a great company.
+- The things I'm good at are building communities, participatory media, places where people contribute things of their own making.
+- I've had two IPOs: with Etsy in 2015 and Cloudera in 2016. There have also been a ton of trade sales in my portfolio.
+- 'You, too, can be the President,' every American kid is told. But one unintended consequence of this belief, it is that, as a result of our being a meritocracy, if you have not succeeded, you are of lesser merit. It is shameful to be a failure in this country.
+- Every place has a story - or a thousand stories. Findery brings places to life, be they where you stand or where you hope to go.
+- On Etsy, you can't resell new goods you weren't involved in making, whereas on eBay and Amazon, that is more than welcome - everything from dishwashers to XBoxes, curling irons, espresso machines, and metal detectors.
+- If you built a successful company the first time, it's really important not to fall into the trap of resting on your laurels and doing the same thing the next time. It's stepping into the unknown that enables you to create something fresh, new, and innovative.
+- I've never understood cheating, probably because I never cared much about my grades. I instinctively knew that the grades didn't measure anything meaningful - usually just my ability to quickly memorize information I'd just as quickly forget.
+- I work really hard. My daughter asks me what I do, and it's mostly calls, emails, and meetings. We have our office in Hayes Valley, a nice part of town, because we're all about place being important.
+- I stay up on current events. I read 'The New Yorker' and 'The Economist.' I go to community meetings to see what concerns the people in my neighborhood. I studied literature in college, so I also continue to read poetry, literature, and novels.
+- The children of less effective, less competent parents will be more likely to adopt the customs and values of the peer group.
+- As a child, I learned hundreds of poems by heart, which I can recite to this day.
+- 'Free' is the museum show of our times, presaging the whole Wikileaks dustup, and it shows shifting power dynamics and a glimpse of the human in a world of flowing data.
+- I love participatory media, collective knowledge systems, user-generated content and the like, and spent much of my life and career participating in them and making them.
+- My background isn't in social software; it's in online community, social networks, personal publishing, blogging, self-expression on the Web. I got on the Internet in the 1980s, and the magic moment for me arose from my being a literature geek, especially Dante and Shakespeare.
+- I had never understood why the farmlands of the U.S. had been settled in such a sparse and isolated way, whereas the farming communities in Europe seemed closer, more convivial, centered around village life.
+- I'm happy we're about to start inviting people into the thing we've been working on!! It's called Pinwheel, and it's a way to find and leave notes all around the world.
+- I approached Yahoo as a learning experience. Everything at every stage of the game affects what you do next. At Yahoo, I learned a lot about social search and met a lot of amazing people - some are now entrepreneurs with companies I subsequently invested in.
+- Trade sales are the bulk of exits, and there's no shame in that. Sometimes, it's exactly the right thing to do.
+- My favorite online communities are characterized by their incredible generosity.
+- The Well taught us how to create a civilized space for debate, speak in our own voices, use our real names, mediate flame wars, and boot trolls. Brand's mantra was, 'You own your own words,' meaning you have the right to say your piece but must also take responsibility for what you say.
+- When I die and my memories die with me, all that will remain will be thousands of yellowing photographs and 35mm negatives in my filing cabinets.
+- On Pinwheel, you can find and leave notes all around the world. The notes can be public or private, shared with an individual, a group, or everyone.
+- The single thing I've found it valuable to memorize is poetry.
+- I worked at a Web development shop and other start-ups and eventually started a project called Ludicorp, which built an online game. We soon ran out of money, and Flickr was the last-ditch effort to save the company. It quickly became a very unstoppable juggernaut.
+- After reading about the Al Ain Oasis by ECWC, I became curious about cultivating dates, and browsed about the web a bit, learning.
+- My life project is humanizing technology: making technology more real and bringing it back into human interactions.
+- I first got online in the late '80s when I was an eccentric teenager in suburban New Jersey, in a town mostly interested in sports, popularity, and clothes. I was a reader, into Jorge Luis Borges, and I found, connected to, and delighted in a group of Borges scholars from Aarhus, Denmark, that I met online.
+- 'Game Never Ending' came out of an earlier game called 'NeoPets,' a children's game that adults also played. It was a series of mini-games where you accrue points and can acquire objects - houses and all kinds of stuff.
+- If the business were a play, Act One is, 'Woohoo, bright and bushy-tailed. We're going to make something great!' Act Two is, 'We're six months behind on back-end development.'
+- Ecstasy is almost never discussed anymore, but leaving the earth is one way of attaining it. To exchange ecstasy for death is often the bargain.
+- Etsy radically simplified and amended their policies. Sellers of handmade goods can now hire as much help as they need to run their shops. They can apply to sell designs they produce with the help of outside businesses.
+- In my house, there is an old Chinese cabinet full of little figurines on two shelves. They are for my daughter, to tell stories. We have told hours and hours or stories using these figures. There are all kinds of people, children and adults, and all kinds of animals - elephants, tigers, snakes.
+- Eliminate activities that require you to be around people you cannot stand. Don't do things for people who should be doing them themselves... and don't waste time chasing trophies.
+- Because the Internet is a medium, it doesn't care whether it transmits love or hate. It is what we build and who we are that make it what it is. We can build things that diminish our humanity or build things that bring us to human flourishing.
+- One of the issues we face here in San Francisco and Silicon Valley is a sense that the people all around us are as conversant in startup and tech culture as we are. But we need to remember, and remind ourselves repeatedly, that we're a small minority in a larger population.
+- The computers people have are no longer on their desks but in their hands, and that is probably the transformative feature of the technology. These computers are with you, in the world.
+- Etsy helps work be more human - you can stay at home and work alongside your kids - and it makes commerce more personal.
+- I was an eccentric teenager in suburban New Jersey, in a town mostly interested in sports, popularity, and clothes. A fan of Jorge Luis Borges, I found a group of Borges scholars from Aarhus, Denmark - perfect strangers - whom I connected to online and immediately became enthralled by the idea of virtual communities.
+- It's fairly easy to know when you've succeeded because you're kind of hanging on for dear life. It's such an unstoppable juggernaut; you're trying to stay with your head above water because things are moving so fast.
+- In building a social network, the standards and mores of a community are its lifeblood; one does not lightly 'experiment' with these, and LinkedIn is exactly right to defend them.
+- I wish we didn't have to be nude to be noticed... But given the game as it exists, women make decisions. For instance, the Miss America contest is, in all of its states... the single greatest source of scholarship money for women in the United States.
+- The wall at Le Philosophe is covered with French philosophers, and supposedly, if you are able to name all of them, they will pay for your meal. I was only able to identify Simone de Beauvoir, Sartre, Descartes and, I think, Foucault. And, I think, Luce Irigaray.
+- Facebook is a powerful company, yes, but so was IBM.
+- Our successes have been so great and so rapid that, within 20 years, we've gotten a third of the world's population online, shrunk our computers to the size of our hands, and connected each to each.
+- There is great work to be done, and the women will lead us. So I say, Astonish us with your genius. Inspire us with your creation. Work with one another. Endure the tribulations.
+- 'Apartamento,' a magazine out of Spain but written in English, is one of my favorite magazines.
+- I joined a meetup group called Bay Area Parents for a Commercial-Free Childhood, which I had searched for, as I was going to start a group like it myself.
+- College is an environment designed to encourage openness - the ability to think of things in novel ways and entertain unconventional beliefs.
+- Being pregnant has all kinds of advantages. People keep telling you how beautiful you look. They do it over and over. Very sweet of them, but it is just not true. I've seen myself before, and I've definitely looked better.
+- I joined the board of Etsy when it was just three founders, and I helped recruit the COO and CTO, Chad Dickerson, who later became the CEO.
+- A co-founder is like being somebody's parent: You want to make sure your offspring thrive.
+- My background is in art. I was a painter and an occasional sculptor, and I really like materials - you know, stuff. Physical objects. The world and the trees and the sunshine and the flowers. And all of that doesn't seem to really exist out in the ether of the Internet.
+- Do not seek prizes that aren't worth getting.
+- It's becoming increasingly difficult to find kids to hang out with that don't consume a lot of commercial culture.
+- When I was a kid, I really wanted to be a writer and an artist when I grew up. So in college, I was an English major, and then I became a fine artist. But when I arrived in San Francisco in 1995, I figured I could leverage my artistic skills by becoming a Web designer and programmer.
+- If there is a national, secular religion in the United States, it is the belief that America is the Land of Opportunity, that we are a meritocracy, that any kid, no matter who they are, or where they come from, can work hard and move up in the world: that their effort matters.
+- Dream, struggle, create, prevail. Be daring. Be brave. Be loving. Be compassionate. Be strong. Be brilliant. Be beautiful.
+- One of the many wonderful things about homeschooling is that I am constantly learning alongside my daughter.
+- The Internet is full of strangers, generous strangers who want to help you for no reason at all. Strangers post poetry and discographies and advice and essays and photos and art and diatribes. None of them are known to you, in the old-fashioned sense. But they give the Internet its life and meaning.
+- When you have a failed pitch, you meet many more venture capitalists than you really want to.
+- I wanted to become a writer and felt that poetry was perfected language, so having it in my subconscious mind would make the music of language always available to me.
+- Vacations are good, and I come back energized, with the whiff of Hawaiian Tropic in the air and 2,000 messages in my Inbox.

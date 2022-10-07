@@ -1,0 +1,17 @@
++++
+author = "Frederic Chopin"
+title = "Frederic Chopin Quotes"
+quotes_len = "11"
+description = "the best 11 Frederic Chopin Quotes"
++++
+- Sometimes I can only groan, and suffer, and pour out my despair at the piano!
+- Man is never always happy, and very often only a brief period of happiness is granted him in this world; so why escape from this dream which cannot last long?
+- Vienna is a handsome, lively city, and pleases me exceedingly.
+- Oh, how miserable it is to have no one to share your sorrows and joys, and, when your heart is heavy, to have no soul to whom you can pour out your woes.
+- The crowd intimidates me, its breath suffocates me. I feel paralyzed by its curious look, and the unknown faces make me dumb.
+- I wish I could throw off the thoughts which poison my happiness, but I take a kind of pleasure in indulging them.
+- As long as I have health and strength, I will gladly work all my days.
+- Oh, how hard it must be to die anywhere but in one's birthplace.
+- If the newspapers cut me up so much that I shall not venture before the world again, I have resolved to become a house painter; that would be as easy as anything else, and I should, at any rate, still be an artist!
+- I shall create a new world for myself.
+- Simplicity is the final achievement. After one has played a vast quantity of notes and more notes, it is simplicity that emerges as the crowning reward of art.

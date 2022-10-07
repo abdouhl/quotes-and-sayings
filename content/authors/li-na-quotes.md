@@ -1,0 +1,44 @@
++++
+author = "Li Na"
+title = "Li Na Quotes"
+quotes_len = "38"
+description = "the best 38 Li Na Quotes"
++++
+- In badminton, they use a lot from the wrist. But I use a lot from the shoulder.
+- When I got into the sport I was so fat that my manager said he should send me to boot camp to lose the weight!
+- I think because I was the first Chinese player to win a grand slam, people were thinking: 'She's not like normal people.'
+- I always had a powerful serve. It's one of the best in women's tennis. It's very good to have a weapon like that.
+- I just follow my heart.
+- People know what I'm doing.
+- I do what I want.
+- China tennis - we're getting bigger and bigger.
+- I feel like my whole life only tennis.
+- The woman's tour is very tough for all of the players.
+- Of course, after I retire I want to be the housewife, really.
+- I've played in a lot of big matches and you learn from them.
+- I don't know how many years I can still play. I have to listen to my body and see how it feels.
+- I think players changing coaches is normal.
+- I'm still happy, I like this life.
+- If I didn't do well at Wimbledon maybe Chinese people will forget about me.
+- Tennis is best of three sets, so even if I lose the first set, I still have a chance.
+- I just feel exciting.
+- Just because you win the French Open it doesn't mean you can do well at Wimbledon.
+- I just keep fighting and try to be the last one standing.
+- I don't need to worry about being idolised.
+- If I have children, after school they'll always feel happy energy in the home.
+- The weather for me is nothing special. The weather couldn't kill me.
+- I would like to say now I was very enjoy the life right now.
+- I felt sad because everyday I had to wake up early to practice before going to school. After school I had to go back to tennis again, and then after tennis I had homework. I didn't have time to play.
+- People in China say: 'If you love your children, send them to New York. If you hate your children, also send them to New York.'
+- It's always tough when you're fighting with your husband on the court.
+- I'm married. Who cares about me?
+- I really do not think about 'Oh, right now I have to defend those points and this title.' I just really want to enjoy playing on the court, in front of the fans.
+- It was a big decision to leave the system because many people said I would fail.
+- I never thought I could win the French Open.
+- I love New York City.
+- When you do one thing, people think it's right or wrong. Maybe half-half.
+- I need some time to recover. I'm not a machine.
+- I would prefer to have no money but to have a nice family and good friends around.
+- I look forward to competing.
+- Of course you're nervous going into a final.
+- The first time I showed the tattoo, it was big news in the newspaper: 'She has a tattoo with a snake.' It's not a snake.

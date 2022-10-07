@@ -1,0 +1,26 @@
++++
+author = "Lillete Dubey"
+title = "Lillete Dubey Quotes"
+quotes_len = "20"
+description = "the best 20 Lillete Dubey Quotes"
++++
+- We are a family of professionals, especially doctors. Thanks to my father, I got exposed to a whole lot of things. I call him a Renaissance man.
+- Plays which are universal tempt me. 'August: Osage County' is a play which is relevant to the urban Indian set up.
+- I first watched 'Adhe Adhure' in college. I loved it, and it stayed with me ever since. I decided that I would some day direct this play - not in English, but in Hindi.
+- I believe divinity is within us.
+- There is so much freedom I enjoy in theatre. In films, the roles are limited.
+- You are not dead until you are in that grave, so don't close the book. Don't give up.
+- A lot of people in India are not that into non-Indian films or Western films.
+- Ahmedabad is a cultured city with a rich heritage of craft and theatre.
+- Theatre is my first love. I don't understand why people say that theatre can't give you money.
+- It is hard to get good actors who also do television, ads and films. Theatre requires six weeks of rehearsal for a play.
+- I was a rebel. I went to Carmel Convent in Delhi where I was a complete rebel. I thought I was 12 going on 18. I wanted to go out with friends older to me, stay out late - my parents were horrified. It was then that we began having our first disagreements.
+- All actors know that the real adrenaline rush is in doing theatre. There is an immediate connect, and a role in a play, for an actor, is the biggest temptation.
+- I'm always thinking, 'What next,' even while working on one play or shooting for a film.
+- India's a fascinating country. It's constantly changing, but there's still a lot of superstition and backwards thinking.
+- Everything is possible. Anything is possible at any time and at any time in life. That's such an affirmative kind of feeling.
+- The Indian film industry is very, very vibrant. It is a mix like it is in Hollywood - there is a lot of highly commercial cinema.
+- I like taking up challenges. I prefer working with scripts that are different and veer from the tried and tested. So far, it's always worked.
+- I am not a regular at film festivals.
+- My father was the artistic one. At a very young age, my father realised I had a strong voice and made me learn Hindustani vocal. I was five. I have Dad to thank for introducing me to the finer things in life.
+- So many people ask me this, but I tell them I look forward to each day because I love what I do.

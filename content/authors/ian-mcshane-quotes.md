@@ -1,0 +1,53 @@
++++
+author = "Ian Mcshane"
+title = "Ian Mcshane Quotes"
+quotes_len = "47"
+description = "the best 47 Ian Mcshane Quotes"
++++
+- Blackbeard is probably the most infamous pirate who ever lived. He's one of those characters for which most of your work is done before you start.
+- The bad boys get all the best lines.
+- I never wanted a life of having a nice house, driving around, settling down.
+- Acting is great therapy - you get to do things you'd normally get arrested for.
+- I don't believe in the death penalty, but I understand personal vengeance.
+- Robert Fisk is my hero. In America, they think he's a terrorist.
+- If I'd had the choice when I was 14, and someone had said to me, 'You can either be a footballer or an actor,' I'd have said: 'Well, can't I be a footballing actor?'
+- When you've done a show that's as successful as 'Lovejoy' was, it hangs around for a few years, and people know you from it. I escaped the shadow when I stopped 'Lovejoy' by not doing any television for four years.
+- Seventy years old! How did that happen? I was part of the generation that wasn't going to die.
+- People tweet before they think, and it becomes obsessive.
+- I had a bit of a male menopause. It started at the age of 18 and continued until I was 45.
+- I would like to be in a really big, successful film - boffo, spectacular, $500 million!
+- My dad was a football player - a soccer player - for Manchester United, and I loved playing football, but I also happened to be the guy in class who was pretty good at sight reading. My teacher gave me scripts, and I was very comfortable.
+- I enjoy every role I do.
+- My second marriage was to a girl I met in Manchester, kept a long-distance relationship going for two years, then we got married... disaster.
+- I come from the liberal side of thinking: Better one guilty man should walk free than one innocent man found guilty.
+- Every actor has to love and loathe the character he plays.
+- My daughter said, 'I don't think granddad really suits you.'
+- I'm a child of the Sixties.
+- I don't think that acting is as youth-obsessed as the general culture. In acting, as you get older, you get better, and the parts you get improve, too. But that's only true for a man, not a woman.
+- Whenever there was a pause on the 'Hercules' set, everybody whipped their Blackberries out of their skirts - 'Are you texting the King of Thrace to tell them we're on our way?'
+- 'Lovejoy' has a special place in my heart because it was through my efforts that the series first came to the screen.
+- You set paths for yourself, but as you get older, things change.
+- Mum and Dad were both happy for me to do what I wanted.
+- I think the reason 'Sexy Beast' was so good was it wasn't just another run-of-the-mill gangster film; it was a love story.
+- I mean, I'm an actor. I do what comes along.
+- When you're doing a medieval show like 'Pillars,' it starts off a bit like a school play. You're all in funny costumes; you've had your coffee, and you say, 'Good morning'. Then you go on set and, if you've got good actors and directors, it takes on a life of its own.
+- There's only two kinds of actors - good ones and bad ones... and lucky ones and unlucky ones.
+- I don't remember my first two marriages... the details are very sketchy.
+- As long as the cheques carry on coming in, and I'm enjoying my work, I shall continue acting.
+- What you do is, you just do the gig, enjoy, get on with it, and treat the rest as horse doodle.
+- I had a teacher at school who said, 'We are going to do a play next year, and you're in it.' He said, 'You should try out for the Royal Academy as an actor.' I did and got in. I was 17. My mum wasn't too happy, but it worked out OK.
+- I don't do social media.
+- When you're in your early 20s, you go ahead and do everything. And it's very hard to judge yourself.
+- The bad boy: always more fun.
+- I don't want to be in 'Expendables 5.' You can keep those kind of movies.
+- Theater is a dance of a different kind, a dance of rawness and characters stripped down.
+- Do you follow American politics? They hate Obama. Hate him. He's a black man. That's what it is: it's racist. This guy is no bleeding-heart liberal. He's a centrist.
+- What's great about acting is you can let all your wackiness hang out while you work.
+- What 'Deadwood' did was to talk about how capitalism started, how civilised society came in, and how that brought its own problems.
+- You don't particularly want to stay close to your ex-wife. Or why would she be your ex-wife?
+- Bosses will tell you they are looking for something different but they're not, actually.
+- If 'Deadwood' had gone on another two years, I wouldn't have got as many movies made.
+- I'm from the disco era where everybody thought they were John Travolta... What song is going to get me on the dance floor? Anything from 'Saturday Night Fever,' and you're up there like a demon.
+- Acting's boring.
+- I've never hankered for any role.
+- You don't know where life takes you.

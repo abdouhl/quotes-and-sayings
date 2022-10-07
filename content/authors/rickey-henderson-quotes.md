@@ -1,0 +1,43 @@
++++
+author = "Rickey Henderson"
+title = "Rickey Henderson Quotes"
+quotes_len = "37"
+description = "the best 37 Rickey Henderson Quotes"
++++
+- I don't want to be one of those great players who never made it to the Series.
+- You never had the opportunity to play with some of the great ballplayers, but being that close around them, and being in the same category, was a great feeling, to feel that vibe of all the best players who played the game.
+- I love the game and I wanted to continue playing. It came to a time that I had to stop.
+- Certain guys, they can see a guy do a certain thing with their glove and know what pitch is coming. I couldn't do that. But I can get on first base and I can tell you by his move if that pitcher is going to first base or home plate every time.
+- If my uniform doesn't get dirty, I haven't done anything in the baseball game.
+- Once you can accept failure, you can have fun and success.
+- People always ask me why I still want to play, but I want to know why no one will give me an opportunity. It's like they put a stamp on me: 'Hall of Fame. You're done. That's it.'
+- My journey as a player is complete.
+- Lou Brock was a great base stealer but today I am the greatest.
+- I wanted to be a part of something special and contributing to the launch of a new league was very exciting to me.
+- To me the most important thing was stirring things up and scoring some runs so we could win a ballgame.
+- The only name on my birth certificate was Henley, no first name.
+- My impact on the game was going out there and making things happen.
+- If you look at some of the people in the Hall of Fame, my numbers are compatible.
+- I have to play baseball to make me happy. I have to be an athlete. But when it's all said and done, I'll be a normal father. A normal-type house man.
+- I like playing for Oakland, they have a very colorful uniform.
+- To all the kids out there: Follow your dream. Believe in your dream. Because dreams do come true.
+- In baseball you train the whole body, except for the hip and eyes.
+- I did so many things that made me a threat.
+- People say I stole a lot of bases. I stole the bases for a reason. I crossed the plate.
+- You have to keep running. I always believed I was going to be safe.
+- I haven't had the time to say, 'I'm retiring.' But baseball says, 'You're retired.'
+- I love talking about baserunning.
+- My dream was to play football for the Oakland Raiders. But my mother thought I would get hurt playing football, so she chose baseball for me. I guess moms do know best.
+- Even the slowest guy can go from first to third and help win a ballgame.
+- I'm a Hall of Famer and I'm still fighting for it because I love the game and I love to play.
+- I'm disappointed about how my career ended.
+- When you're a kid, you want to be a millionaire.
+- Somehow, I've been blessed to be able to have the young spirit inside - not feel like every year I get a year older. I feel like every year I get a year younger. I don't wake up in the morning with aches and pains.
+- Rickey got a big ranch. Rickey got a big bull. Rickey got horses. Rickey got chickens and everything. And Rickey got a 20-gallon hat.
+- Rickey don't like it when Rickey can't find Rickey's limo.
+- I can still steal a base anytime I get ready.
+- I can't find a job. It makes me crazy.
+- I don't think I ever got proper credit about being smart about the game.
+- Just because I believed in what I was doing on the field and dedicated myself to playing the game, does that mean I'm cocky? Does that mean I'm arrogant?
+- People recognize me - but if you've been in the public eye as long as I have and people don't recognize you, I feel bad about myself.
+- I love playing this game and every spring training feels like the first.

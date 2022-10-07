@@ -1,0 +1,137 @@
++++
+author = "Luke Evans"
+title = "Luke Evans Quotes"
+quotes_len = "131"
+description = "the best 131 Luke Evans Quotes"
++++
+- As much as my parents were worried about me moving to London at 17, they could see that I was hungry to find my path. And it probably helped that they saw me succeeding at it, slowly but surely.
+- I don't need to be super-ripped all year round. That's a pretty miserable way to live your life.
+- I think sandals should be burnt. I hate them - purge them!
+- And I love to cook! I've impressed hundreds of women with my cooking. And they always come back for more.
+- I've had some pretty awful jobs that I don't miss, like working on a nightclub door, or compiling VIP lists at 3 A.M. in the morning, but sometimes it's just got to be done.
+- Miranda Kerr is absolutely lovely.
+- Being involved in 'The Hobbit' has been a huge boost for me. It's really put me on the map and helped me be taken more seriously as an actor.
+- There are certain films you want to see on the big screen.
+- I certainly didn't want to make another movie that's 'just another Dracula film.'
+- If you train too much, it can rule your life, and I don't think that's healthy - for men or women.
+- You don't want to play the same roles or do the same genre.
+- My trainer is with me all day. We train before I come to work, and then I just keep training all day.
+- I research the role, and if it's a literary character, I read the book, and if it's an historical figure, I research documents and biographies. If it's a fictional character, I work off the script.
+- Gemma Arterton in 'The Master Builder' at the Almeida - she was absolutely brilliant. Ibsen is difficult and quite hard to follow, but she just brings the stage to life.
+- The Sixties was all about style and a certain look. But what was interesting about 1963 was that it was pre-Beatles, so the clothes of that time, especially the suits, were very different from the clothes post-Beatlemania.
+- From the big mountains in the north to the valleys in the south, all through my childhood and teenage years, my family would always holiday in Wales.
+- I was often looked at as a leper by kids at school because I was a Jehovah's Witness. They didn't like it - you were 'weird'. And on Saturday mornings, you'd be knocking at their doors. I remember standing there with my mum and dad, thinking, 'Oh my God, I know whose door this is, and I'll have to see them on Monday.' It was terrible.
+- If you're gonna start a story, you start from the beginning, right?
+- In all honesty, I should have given up this acting lark years ago.
+- British actors are renowned for being great villains in movies, like Bond films, all the rest of it.
+- When you get to work with people like Ian McKellen or directors like Peter Jackson, you sit and watch.
+- I've had letters from people who have read my articles and said, 'I'm a guy, I'm 18, and I've not come out to my mom and dad yet, but it was so nice to hear your story, and you know, I wish your article would have been longer, because you gave me hope for the future.'
+- I just love the sound of a black woman's voice.
+- I feel that New Zealand is my second home.
+- To be able to work with people who I have respected and admired, to be a part of something like the Cannes Film Festival, is surreal and brilliant.
+- I look in the mirror, and I don't mind what I see.
+- It's a lovely thing to be able to sing.
+- One thing Tolkien does incredibly well - and this is from a lay person's point of view; I am not scholar or anything - is that you don't have to make an effort to envisage the worlds that he writes about.
+- Everybody knows about Peter Jackson, 'The Hobbit' movies and 'The Lord of the Rings' films being made in New Zealand, and to actually have been part of it for such a long period, to live there and to have friends that I will have for life because of that experience, is an amazing thing.
+- One funny thing is, though, I wear my watch on my right hand and I'm actually right-handed. People always wonder why - I don't know myself, I've just always done it that way and I like it the way a good watch fits on my right wrist.
+- I really loved 'Fast Five.' I thought it was a brilliant movie. I thought it was so well done, well directed. The action sequences were really well thought out. It looked fantastic.
+- When I was focusing on theater, I would go on for months without any work and could hardly pay the rent.
+- You have to have a lot of money to go to college. It's not cheap.
+- The percentage of people that go to drama college in the U.K. is probably just like anywhere in the world. It's a very hard business to work in. They say that, at any one time, there's only 5% of actors in the world that are actually working and getting paid, which is a shocking percentage, really.
+- I always wanted to get into proper shape.
+- I come from a country that lives and breathes rugby, and I didn't think there would be anywhere else in the world that could be the same. But New Zealand takes it to another dimension. It's extraordinary how much passion Kiwis have for the game.
+- Sometimes I eat at, like, 9:30 at night and then go to bed at 10:30 and wake up at 4:00.
+- The first time I was flown to L.A. for a screen test was an incredibly nerve-racking experience.
+- Most of the time, you do films and they can be big films, but you are rarely aware of the fan base that comes with it.
+- My mother did like to make clothes, and in I think the worst picture I've ever seen of myself - I must have been eight or nine - she'd dressed me in a matching t-shirt and Bermuda shorts ensemble which I think looked like somebody had thrown up all over it. I was so glad when that sewing machine stopped working, I have to say.
+- The gym is somewhere you can go to just forget for an hour what you do for a living, what you are doing on a daily basis. You just turn up and get on with it.
+- I come from south Wales. A place called Aberbargoed.
+- I always find cardio the most monotonous. Running on a treadmill shows me why hamsters are so crazy.
+- It's a lot of fun being dressed by designers and surrounded by publicists.
+- When I left school, I got a job in a shoe shop and I used to save 15 quid a week and pay for my own singing and acting lessons.
+- I don't necessarily pay extreme attention to what I wear on a daily basis, but I do love to wear something special for an important occasion or when I feel happy.
+- It is a very beautiful story, 'The Crow.' It is a very tragic story with huge emotional themes.
+- I think heroes are the people that go into houses when they're on fire and save people in hospitals.
+- Before the 'Fast & Furious' promo in Manila, I went on a vacation in the Philippines 10 years earlier. I loved it. My 'Miss Saigon' friends showed me around.
+- Directing is something I've sort of always felt like I'd like to do at one point, and I thought the best way to start it is to write something myself or with someone and I'd go from there. My own material.
+- There's a lot of directors who were actors, so they have the sensibility of an actor, which sometimes helps.
+- It's hard work just being on set 14 hours a day.
+- Most men have an insecurity of some sort. But we're brought up to believe that we can't show them.
+- I'm this dude that can play a farmhand and a handyman and sometimes a Greek god.
+- I moved to Cardiff when I was 17 and never needed a car. When I came to L.A. for my first job there, I needed a car, so I had to pass my driving test.
+- I'm basically turning my apartment into an armory.
+- Costume is a massive thing. I think costume makes you stand differently.
+- Wales is blessed with some truly magnificent castles, full of history and a must see for visitors.
+- The truth of the matter is roles like James Bond are the ones that I look up to as probably the best roles ever to play. So that's probably my ultimate goal one day: to play James Bond.
+- My style is determined by the mood, the period and the circumstances which I'm going through in a given moment.
+- You have to give everything to every job you do.
+- Living in New Zealand, it's like a different world - it is a different world. It's very, very cool.
+- In the future, I would like to do more films with contemporary themes. Perhaps comedy, which is something I have done in theater but not in cinema.
+- I had a very lovely childhood, and, being an only child, I'm very close to my mom and my dad.
+- I think every role you take on, you should take on the responsibility of doing the best representation of that person or that character or that role. When it is a human being that has actually existed, and it is a person that people know of, yeah, you feel an even more amount of pressure to do a good job.
+- You can read 50 great things about yourself, but the one bad thing will be what you remember most.
+- I think the best directors rarely lose their temper.
+- I think the best directors provide you with a safe environment where they can instill you with confidence and allow you to try things out and not feel like you're failing or that you're doing it wrong.
+- It's good for people to look at me and think, 'This guy is doing his thing and enjoying what he's doing and successful at it and living his life.' And that's what I'm doing, and I'm very happy.
+- I've got two cows licks; when I was a kid, all the boys in school used to have curtains, and my hair never used to do that, ever! I always used to try, and I always looked like the geek.
+- I would love to be able to tap dance.
+- To me, growing up in South Wales, a pair of Diesel jeans were the thing to have - if you could afford them.
+- I'm not one of those superstitious people.
+- I've always had quite long canines. It's a very strange thing. My parents don't have them.
+- When I didn't get a job, I thought, 'Don't worry, there'll be another one.' I still live by that now. Nothing really fazes me any more.
+- I had a role in 'Crossroads' when I was about 21, and then I went on to perform in 'Small Change' and then 'Piaf' in the Donmar Warehouse, London, and it was when I was there that some casting directors spotted me.
+- When I'm training hard, the diet is miserable.
+- I guess maybe directors see a face that seems to have been lived in. I know that my face has been lived in, yeah.
+- If you ask an actor what he'd prefer to act on, he'd probably say a tangible, real set, or even better, a real location out on a mountainside or by a river. It's just easier because you don't have to imagine anything.
+- Every time you get in shape for a role, there's a different way to do it so it doesn't get boring.
+- A longbow takes a massive draw for the arrow to go anywhere.
+- I have seen 'Fast Six,' and it's awesome.
+- The fascination for the Great Train Robbery has never diminished.
+- It's just hard to get an independent film made.
+- It's good for your body to have a break. Even when you're training, you have to have a cheat day every week. The body reacts better to training if you give it intervals of not training, or you relax the diet.
+- 'The Desolation of Smaug' stands alone as an action/adventure epic movie. It's visually stunning, and the 3D is incredible. Plus, it's directed by Peter Jackson, and he's extraordinary.
+- If I have to look a certain way for something, I know how long it's going to take me do it.
+- For my part, if the audience wanted to see Dracula again, I would be happy to reprise the role. It is an immortal character that can appear anywhere because it lies beyond time. Possibilities are endless.
+- Vampires were always able to transform into creatures of the night. The dark creatures like bats have always been associated with vampires and using the darkness to their own advantage.
+- Everybody knew me as a gay man, and in my life in London, I never tried to hide.
+- I did use my own accent in a play once. It's a very freeing, liberating experience. Actors are often asked to adopt a different accent, and sometimes a different voice, so when that's taken away and you don't have to think about it, that's a lovely thing.
+- I've always said that theater was where I began, so everything I do now has a bit of my theater background in it. It was my training.
+- I wouldn't say being in a film with The Rock was 'motivating.' 'Terrifying' would be a more accurate description.
+- I'd like to make a film musical. That's really my dream.
+- A watch is a fashion statement, and it says something about the person wearing it.
+- I guess once you've been acting for a long time, you glean the great bits of good directors and the bad bits from other directors, and you know the way that you would like to be directed.
+- I was a weed. Such a skinny little weed. I just couldn't put on weight; I couldn't put on muscle. I was the oddest shape. And I thought that was it: that's how I'd look for the rest of my life. And I'd beat myself up about it so much. But you change an awful lot. You're 16. Your body's not even halfway to what it'll end up being.
+- A guy's biggest style mistake is definitely trying to look too cool. As long as you've got a good pair of jeans, a good pair of boots and a few good shirts, you're fine.
+- If you decide you want to work in the film industry, you just have to bite the bullet and take other jobs until the proper jobs come in.
+- I don't carry off 'quirky.'
+- I think starting a cinema career late in life has more advantages than disadvantages.
+- There are certain tuxes you can get away with a black tie, but with others, you'd be dishonoring the workmanship if you didn't wear a full bow tie.
+- For your own self-respect and sanity, your creative freedom, you have to be careful that you don't rely too much on other people's opinions of what you do because it can stunt and inhibit you.
+- I don't see enough theatre.
+- You never get over an ex, but you learn to live with it.
+- People come up to me in pubs - gay pubs, mind you - and can't believe that I'm gay.
+- I had a very difficult upbringing.
+- Basically, Apollo was more of a mediator between Zeus in Olympus and Perseus on Earth. He played much more of an active role.
+- I don't think you should spend that much time in the gym. Don't sit around between sets too long. If you want to burn some calories, keep the sets tight. Give yourself 30 seconds to a minute between each set. Supersetting is brilliant.
+- In theater, you sometimes can only do one or two jobs a year because they're long periods. In film, you can shoot so many. It's quite interesting.
+- I was bullied at school, so I didn't much like it.
+- I don't comment on other people's opinion.
+- Good suits don't come from anywhere, though - I mainly wear Armani, Louis Vuitton and Burberry.
+- It was very weird because for a long time no one really recognised me from my films, but 'The Hobbit' has totally changed that, and I've had some really special moments, especially with youngsters.
+- I've dabbled in period films in my career, and I've enjoyed each one.
+- I love to sit down on a beanbag at the end of the day and watch my fish. It's therapeutic, isn't it? They're alive, and I'm keeping them alive. I like the responsibility.
+- And I knew that, being an actor, you have to take the rough with the smooth and the highs with the lows. That's how it is.
+- I felt alive when I read a script and acted out a scene, or sang a song. It was my dream. I'm just very lucky that I'm still doing it and able to earn a living from it.
+- I'm not a 'Twilight' boy; I'll never be as good looking as those lads, and that's fair enough.
+- It was never really part of my plan to be in films; it was really sort of a dream.
+- I've played quite a few good guys.
+- I understand, certain scenes have to have a lot of takes. As an actor, I think it's quite nice to have a handful of takes, because you don't want to do it once or twice; I think once or twice sometimes is quite terrifying because you don't really feel like you've given them what you want.
+- I come from the countryside. I come from a bunch of horticulture family members. My best friend was a farmer's boy.
+- Voices are always a challenge. I always have to work at each accent I do.
+- I used to take my car and go down to the South Island for five or six days and climb glaciers and jump out of planes and jump off bridges and go white water rafting - a bit of thrill-seeking.
+- In 10 years, I'd love to live near the sea, in a warmer climate. I could see myself with three dogs... and it'd be great to share them with someone else.
+- I do like Jason Statham as a person and as an actor. I think he's a great performer, and he delivers every time.
+- I always wanted to sing, as a child.
+- People want to hear your stories about these wonderful experiences you have, and that's what press tours are for.
+- Peter Jackson is a wonderful man. He's a great director. He's found his niche in life.
+- Singing seems to be inherent in Filipino, just as it is in my race. That's why I have this affinity with Filipinos.

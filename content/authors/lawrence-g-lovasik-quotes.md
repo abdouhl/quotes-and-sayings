@@ -1,0 +1,20 @@
++++
+author = "Lawrence G. Lovasik"
+title = "Lawrence G. Lovasik Quotes"
+quotes_len = "14"
+description = "the best 14 Lawrence G. Lovasik Quotes"
++++
+- Do not take yourself too seriously. You have to learn not to be dismayed at making mistakes. No human being can avoid failures.
+- A gentleman has his eyes on all those present; he is tender toward the bashful, gentle toward the distant, and merciful toward the absent.
+- Kind words are a creative force, a power that concurs in the building up of all that is good, and energy that showers blessings upon the world.
+- Strength of character means the ability to overcome resentment against others, to hide hurt feelings, and to forgive quickly.
+- Try to make at least one person happy every day. If you cannot do a kind deed, speak a kind word. If you cannot speak a kind word, think a kind thought. Count up, if you can, the treasure of happiness that you would dispense in a week, in a year, in a lifetime!
+- Nobody needs a smile so much as the one who has none to give. So get used to smiling heart-warming smiles, and you will spread sunshine in a sometimes dreary world.
+- If, when you charged a person with his faults, you credited him with his virtues too, you would probably like everybody.
+- Have you noticed in your past experience that your kind interpretations were almost always truer than you harsh one?
+- A sarcastic person has a superiority complex that can be cured only by the honesty of humility.
+- Cheerfulness is a very great help in fostering the virtue of charity. Cheerfulness itself is a virtue.
+- Only a kind person is able to judge another justly and to make allowances for his weaknesses. A kind eye, while recognizing defects, sees beyond them.
+- It is just as cowardly to judge an absent person as it is wicked to strike a defenseless one. Only the ignorant and narrow-minded gossip, for they speak of persons instead of things.
+- The practice of patience toward one another, the overlooking of one another's defects, and the bearing of one another's burdens is the most elementary condition of all human and social activity in the family, in the professions, and in society.
+- You are just as capable of making a mistake as anyone else. By insisting too eagerly upon a small right, you may turn it into a wrong against yourself and also against your neighbor.

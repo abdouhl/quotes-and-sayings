@@ -1,0 +1,35 @@
++++
+author = "Chris Tucker"
+title = "Chris Tucker Quotes"
+quotes_len = "29"
+description = "the best 29 Chris Tucker Quotes"
++++
+- I think real life reflects your movies. In your life, you pick stuff that influences what movie roles you wanna pick. I think if you've got an interesting life, you wanna do interesting movies about interesting things.
+- Comedy comes from a place of hurt. Charlie Chaplin was starving and broke in London, and that's where he got his character 'the tramp' from. It's a bad situation that he transformed into comedic one.
+- Everybody goes through a lot of the same things, and I talk about those, and that's the key. You have to connect with your audience, and I might take them on a trip with me, tell them I went here and I went there and they'll go with me, you know, to hear the stories.
+- I travel. I do a lot of traveling around the world.
+- I've actually tried to give Brett Ratner dance lessons, but he thinks he already knows how to.
+- Being a big star and being known, making movies and a lot of money - that really doesn't interest me.
+- Georgia was a great place to live, but I wanted to get out because I knew the opportunities for what I was doing - stand-up comedy and eventually acting - were in Los Angeles.
+- I wanted to cut down on the profanity, because I think I'm funnier without sayin' a lot of cuss words.
+- I've got a big closet of scripts, and a big stack of scripts on the side of my desk, because you get a whole bunch. Nothing's going to be perfect, and I realize that; but I am a perfectionist, so you go through a lot of stuff.
+- When you're first starting out, you want to keep making good movies. When you're young and you're black, you do a bad movie and you're through.
+- My mom raised me to never have anything control me.
+- I tell people that stand-up's like golf: you gotta do it every day to get it down - or at least three times a week to get it down.
+- This country is just that great that the opportunities are there for a Hispanic president, a black president or any other race for a president, yes.
+- I feel like every time I go out, I want to do a good job. I want people to say that he's just as good at stand-up as he is in some of the movies I've seen him in, so I try to do the best every time I go out there.
+- Making people laugh is giving, and it's healing, too, when people can go up to the movies and forget about their problems. It's a good thing. That's why I want to work.
+- It takes intelligence to make real comedy, and it takes a reality base to create all that little stuff I like to do that makes you giggle inside.
+- I do a lot of traveling around the world.
+- A lot of directors, they're creative, but they're different.
+- You don't know who you messing with man, I slap people for fun. That's what I do man! You wanna play rough, huh, I kill for fun!
+- I love traveling. It not only opens my mind up, but it also allows me to use my fame in another way through humanitarian works and stuff, and being an influence around the world.
+- I want to keep working, I want to keep doing my humanitarian stuff around the world, shining light on different places that have problems. Keep making movies, make people laugh.
+- You know, we're missing so much as African-Americans and we should be concerned about what's going on in Africa.
+- I think all the knowledge and all the travels that I've done, I'm going to do a lot of great work in the future.
+- I couldn't imagine not having clean water.
+- I really loved what I was doing being creative and being funny as a stand-up comedian.
+- I will always do stand-up, even if my acting career takes off. Stand-up is my life.
+- Day-to-day life is a lot of work. I work a lot on stand-up stuff, and then day-to-day life and, you know, just living. It's always different. Try to work out, try to stay in shape, and try to have some fun.
+- I think my life is a movie and your life reflects your work.
+- You loan your friend money. You see them again, they don't say nothin' 'bout the money. 'Hi, how ya doin'? How's ya mama doing?' Man, how's my money doin'?

@@ -1,0 +1,104 @@
++++
+author = "Luka Modric"
+title = "Luka Modric Quotes"
+quotes_len = "98"
+description = "the best 98 Luka Modric Quotes"
++++
+- It is normal for a player to dream about playing for a bigger club.
+- I will fight to be here as much as possible. I only have Madrid in my head.
+- I can say I am playing some of the best football of my career at 31. So maybe I can play better as I get older.
+- There are so many great players who have played for Real Madrid.
+- In Madrid, the demand is maximum, and you have to always be at the top. If you are not, doubts come.
+- Playing at Real Madrid is something special in itself, but winning trophies with Real Madrid is even more thrilling.
+- I have a good relationship with Cristiano Ronaldo, and we'll have good relationship in the future, too.
+- What is the most important is never to give up, never to give in to circumstances, to trust yourself.
+- Cristiano Ronaldo respects the fans - it's like a marriage. There are good days and bad days, but the important thing is that they love each other.
+- I always look forward to playing for my national team, especially at a major tournament.
+- Real Madrid were the ideal club for me, and, when I knew they were interested, I couldn't think about anything else.
+- It's an honor to be at the biggest club in the world.
+- I have to keep working hard and improving every day.
+- All I dreamed of when I became a footballer was to play for a club as big as Real Madrid. It's maybe the most famous and best club in the history of football.
+- For me, the team is always more important.
+- You don't have to be a strapping lad to play football.
+- I would say the best Croatian player in 2014 was Ivan Rakitic, leading Sevilla to Europa League glory and earning a big transfer to Barcelona.
+- When I first heard Madrid were interested, nothing else mattered. I just wanted to come here. This is the best club in the world, with the best coach and great players like Cristiano Ronaldo, Xabi Alonso, Gonzalo Higuain, Angel Di Maria... so many great players.
+- My emotions, when I think about the time I spent at Spurs, are always really positive.
+- You need to believe. If you don't believe, you can never get anything.
+- Zlatan is one of the best strikers in the modern generation.
+- As Real Madrid is a team of stars, Bale would fit perfectly.
+- The toughest away match in La Liga for me used to be the one against Osasuna.
+- My father fought for me to play football. He never had to make me shinpads, but it was a lot of money to send to me to a soccer school. And to provide boots and things.
+- My position at Tottenham was in the centre of midfield, and I have played there for Croatia, I feel I am best there.
+- Fight for your dreams and success. This is what has always guided me.
+- The most important thing is how the season ends.
+- Madrid is a big and beautiful city with great parks where I like to walk. There are a lot of squares and museums, historic monuments. But I'm more a home guy; I feel most comfortable there with my wife and kids. We play, watch cartoons, like all families do.
+- Tottenham was my first international club. I spent four glorious years there, and the fans were brilliant with me. I only have good memories.
+- My favourite position is as midfielder, playing with Xabi and Khedira.
+- I want to be able to help the coach and team as much as I can.
+- The team is the most important thing.
+- Spanish League is very tough, especially away matches.
+- You can't predict things in football because anything can happen.
+- I've seen a great deal of hardship in my life.
+- Nobody is accustomed to play in front of an empty stadium.
+- The war made me stronger; it was a very hard time for me and my family. I don't want to drag that with me forever, but I don't want to forget about it, either.
+- Tottenham is the club that first gave me my opportunity to play in one of the strongest leagues in the world.
+- Two goals away from home is very good.
+- You never tire of winning.
+- It happens in football. You have bad days.
+- I want to stay in London. I am very happy here, and so are my family. I like the city.
+- Going 33 games unbeaten is no coincidence.
+- Fear doesn't exist in football, especially for Real Madrid.
+- My one regret is that I didn't win a trophy with Tottenham, despite us being a strong team who played good, attractive football.
+- When you play a semi-final, it is impossible to be tired. You know how much is at stake.
+- Everyone has a different view on football, but I didn't have a fear that I wouldn't be good enough in England.
+- I always said that I would like to finish my career in Madrid if it's possible.
+- This is Real Madrid, and I understand there is great pressure for new signings to succeed here.
+- I remember my first shin pads had the Brazilian Ronaldo on them, and I loved them.
+- Sometimes, when we play against weaker teams, everyone says, 'Oh, you won because you played weaker teams.'
+- When the boss chooses the system, we must play as well as possible and give everything. It is good to be able to use various systems so that you can change in difficult moments.
+- You must never give up and have faith in yourself.
+- We lived in a hotel for many years as we struggled financially, but I always loved football.
+- After four seasons with Tottenham, where I had grown as much as possible, I needed new challenges for the sake of improving.
+- When you win something, once, twice, three times, and you have that feeling, that pushes you forward again. You want to win more and more and more.
+- I can make my football dreams come true with Tottenham, and that is why all my thoughts and also my future is with this club.
+- I want to thank all the people at Tottenham. I had four great years there, and I enjoyed every moment. I want to thank everyone who made my life enjoyable in London.
+- For what Ronaldo's achieved, he's amazing; he's a great team-mate.
+- I believe that I've improved a lot as a player and a person, because being surrounded by great players on a daily basis helps your development out on the pitch.
+- The most important thing is to never give up, never give in to circumstances, believe yourself, and to soldier on, no matter what's in your way.
+- I never considered leaving Real Madrid or that it was a mistake to come here.
+- Spurs will always have a place in my heart.
+- I think everybody respects Real Madrid; nobody wants to play against us.
+- My challenge is to win titles and trophies with Real Madrid.
+- I really enjoy my life in Spain.
+- Of course it is very important for me to play for Croatia, however different it is to play at club level.
+- Individual awards are important, but I am not obsessed with them.
+- People in Real ask me about Mateo Kovacic all the time. He is a phenomenal talent and will play in some of the biggest clubs. Inter is a big club, no doubt, but Kovacic will play in even bigger.
+- Jelavic improved massively going to the Premier League. He was great for Rangers, but Premier League is different: faster and more physical. He is perfect for the Premier League, has everything to succeed.
+- I knew sooner or later I would show my quality and show to everyone why I'm here, why Real made such an effort to bring me here.
+- I had great relationships with all the four coaches I played under at Real Madrid. They all helped me improve, but if I had to pick the best, I would pick Ancelotti.
+- I don't like to compare players, particularly to myself.
+- It was my dream come true when I signed for Real Madrid. I want to stay here for as many years as possible and, if it's possible, finish my career here.
+- When I came to England, I was dreaming about winning titles.
+- I have great memories of Tottenham. I spent four great years there with a lot of emotions, with a lot of love from the club and the fans.
+- It is very challenging to adapt to life at a big club like Madrid, but I'm not the kind of person to make excuses.
+- When the war started, we became refugees, and it was a really tough time. I was six years old. These were really hard times. I remember them vividly, but it's not something you want to remember or think about.
+- No individual can do it all on their own.
+- I have met him a few times. What can I say - Maradona is one of the best players in football history.
+- My thing is to play as well as I can possibly can.
+- Mourinho asks me to play as I did with Tottenham, but at a higher level.
+- London is such a great place, and at White Hart Lane, I feel just like home.
+- My whole career, when I was in Croatia, people questioned me, saying I wouldn't make it, that I wasn't good enough because I wasn't big and strong.
+- The Nations League is a great competition.
+- I enjoyed every moment with Tottenham. But in one moment, you feel you need to take a step forward, to go to a higher level.
+- We are Madrid, and we want to define our own philosophy. We don't want to be compared to anyone.
+- You can't expect to score lots of goals in every game; football isn't like that.
+- I guess I'm just not that comfortable talking about myself.
+- I would change all my individual trophies for that trophy of World Cup champion.
+- To play at Real Madrid, it is not enough to just have football quality. You must be mentally strong.
+- Santiago Bernabeu is the best stadium I have ever played in. I enjoy every minute on its pitch.
+- There are ups and downs, but whatever happens, you have to trust and believe in yourself.
+- The Premier League is the best competition in the world, and it's not easy to win a league with great teams like Man United, Chelsea, Liverpool, Man City, and Arsenal as rivals.
+- I am very emotional.
+- My father is strong in his legs, and I think I get that from him. I am stronger there than in my upper body, but that is what gives me a low centre of gravity. It makes it harder for opponents to get me off the ball.
+- I had a nice childhood, even though I grew up in hotels.
+- All my future plans are related to Real Madrid, and there are no other clubs on my mind. I'm so happy here along with my family. Few players have ended their career here, Zidane being one of the exceptions. I'd like to be one of those players, too, but time will tell what the future holds.

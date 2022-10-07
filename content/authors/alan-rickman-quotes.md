@@ -1,0 +1,91 @@
++++
+author = "Alan Rickman"
+title = "Alan Rickman Quotes"
+quotes_len = "85"
+description = "the best 85 Alan Rickman Quotes"
++++
+- What is it about actors? God knows I get bored with actors talking about themselves.
+- Being on the stage in New York is always exciting because you feel like you're part of the life of the city.
+- Film has to be reflecting the world that we live in, and that's all you want to be a part of. Actors inhabit the same planet as everyone else. It's a weird thing that happens when you're an actor because people hold you up because you somehow embody in parts groups of people or people's hopes or something.
+- Somebody with Debbie Reynolds' features doesn't get cast as the Wicked Witch.
+- Every so often you read a play and a character just speaks to you - almost seems to speak through you, in fact.
+- I was 7, and I remember being given a part in a play and thinking, This is exciting.
+- Acting touches nerves you have absolutely no control over.
+- If only life could be a little more tender and art a little more robust.
+- It's a nightmare to sit and watch a film that I'm in. There's a horrible inescapability to it.
+- I love working in New York theater.
+- I never talk about 'Harry Potter' because I think that would rob children of something that's private to them. I think too many things get explained, so I hate talking about it.
+- Maverick is a word which appeals to me more than misfit. Maverick is active, misfit is passive.
+- I was a student in London in the '70s, so CBGB really wasn't on my radar at all. Obviously, I was aware of the emergence of the Police in England and as an art student, I was very aware of David Byrne, but I suppose my musical taste at that time certainly didn't stretch towards the Dead Boys or the Ramones.
+- I am the character you are not supposed to like.
+- I've never been able to plan my life. I just lurch from indecision to indecision.
+- I can only see my limitations. That's just who I am.
+- It is an ancient need to be told stories. But the story needs a great storyteller. Thanks for all of it, Jo.
+- It would be wonderful to think that the future is unknown and sort of surprising.
+- If people want to know who I am, it is all in the work.
+- I'm always aware of the camera and it feels like that's the audience.
+- I'm a quite serious actor who doesn't mind being ridiculously comic.
+- From my experience, I think that every actor has to make sure that they're in charge of their own career somehow or other.
+- Older people say, 'Oh I loved you in 'Sense and Sensibility,' and that's the only film they want to talk about. Equally, there are people who only want to talk about 'Galaxy Quest.' And there's a whole bunch of teenagers who only want to talk about 'Dogma.'
+- The more we're governed by idiots and have no control over our destinies, the more we need to tell stories to each other about who we are, why we are, where we come from, and what might be possible. Or, what's impossible? What's a fantasy?
+- I'm still living the life where you get home and open the fridge and there's half a pot of yogurt and a half a can of flat Coca-Cola.
+- England in the '60s and the '70s was everything that history has said; it was phenomenally exciting, musically.
+- If you could build a house on a trampoline, that would suit me fine.
+- I have a love-hate relationship with white silk.
+- I do feel more myself in America. I can regress there, and they have roller-coaster parks.
+- I do take my work seriously and the way to do that is not to take yourself too seriously.
+- My idea of a real treat is Magic Mountain without standing in line.
+- I knew with Snape I was working as a double agent, as it turns out, and a very good one at that.
+- The first time that I came to New York to work properly was the mid-'80s, but I was doing eight shows a week. You have no life. Going to a punk rock club - or whatever the music was at that time - would not have been on my agenda.
+- Mellow doesn't describe me. I'm hungry every day.
+- The directors you trust the most are the ones, when you ask them a question, they've got the guts to say, 'I don't know.'
+- You can lull the paying customers as long as they get slapped.
+- All I want to see from an actor is the intensity and accuracy of their listening.
+- I think worrying things are going on in England - a real apathy.
+- I have just returned from the dubbing studio where I spoke into a microphone as Severus Snape for absolutely the last time.
+- The audience should feel like voyeurs. Their response is absolutely crucial.
+- I have every sympathy for writers. It's a mystery to me what they do. I can edit. I can cross out and say, 'I'm not saying that' or, 'How about we move this to here? Wouldn't that make that bit of the story better?' But where any of it comes from is beyond me. I will never write a play or a novel.
+- I want to swim in both directions at once. Desire success, court failure.
+- Three children have become adults since a phone call with Jo Rowling, containing one small clue, persuaded me that there was more to Snape than an unchanging costume, and that even though only three of the books were out at that time, she held the entire massive but delicate narrative in the surest of hands.
+- One longs for a director with a sense of imagination.
+- I approach every part I'm asked to do and decide to do from exactly the same angle: who is this person, what does he want, how does he attempt to get it, and what happens to him when he doesn't get it, or if he does?
+- I always feel that when I come to Edinburgh, in many ways I am coming home.
+- You try to find things that are challenging and interesting and hopefully it will be the same to the audience.
+- I like it when stories are left open.
+- On the screen were some flashback shots of Daniel, Emma and Rupert from ten years ago. They were 12. I have also recently returned from New York, and while I was there, I saw Daniel singing and dancing (brilliantly) on Broadway. A lifetime seems to have passed in minutes.
+- I don't think it's right that everybody knows everything about me.
+- Los Angeles is not a town full of airheads. There's a great deal of wonderful energy there. They say 'yes' to things; not like the endless 'nos' and 'hrrumphs' you get in England!
+- I have a photograph at home of Fred Astaire from the knees down with his feet crossed. It's kind of inspiring because it reminds me his feet were bleeding at the end of rehearsals. Yet when you watch him, all you see is freedom. It's a reminder of what the job is about in general, not just being in musicals.
+- I think every English actor is nervous of a Newcastle accent.
+- Nothing gives me as much pleasure as travelling. I love getting on trains and boats and planes.
+- You know, London is so sprawling, and you can sometimes forget that anybody else is on a stage anywhere else.
+- A lot of the time I hate the theater. You think, 'I have to climb Mount Everest, again, tonight.' Oh, the theater is a scary place to be.
+- I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.
+- And it's a human need to be told stories. The more we're governed by idiots and have no control over our destinies, the more we need to tell stories to each other about who we are, why we are, where we come from, and what might be possible.
+- Parts win prizes, not actors.
+- The point about a great story is that it's got a beginning, a middle and end.
+- What's interesting about the process of acting is how often you don't know what you're doing.
+- I'm very aware that when one is acting in the theater, you do become kind of animal about it. And you're reliant on instincts rather than tact a lot of the time.
+- I'm a lot less serious than people think.
+- Actors are actually very supportive of each other.
+- There's a voice inside you that tells you what you should do.
+- So you can't judge the character you're playing ever.
+- I love perfumes. Every morning when my girlfriend and I come down to the courtyard in our block of flats we're assailed by the most delicious scent - jasmine round a doorway. It almost makes me swoon.
+- Who I am gets in the way of people looking innocently at the parts I play.
+- In theater, you've got to be aware of your whole body because it involves stamina. It involves two-and-a-half hours and a sustained release of energy, maybe for six months.
+- Each character I play has different dimensions. I'm not interested in words that pull them together.
+- Any actor who judges his character is a fool - for every role you play you've got to absorb that character's motives and justifications.
+- Unless we tell stories about ourselves, which is all that theater is, we're in deep trouble.
+- Talent is an accident of genes - and a responsibility.
+- I think there should be laughs in everything. Sometimes, it's a slammed door, a pie in the face or just a recognition of our frailties.
+- Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.
+- When I get off the plane in England I always feel about two inches shorter.
+- My parents certainly didn't have anything to do with the theater. I'm some kind of accident.
+- On film you put all your energies into a single glance.
+- Market forces impose certain rules before a film can actually get made.
+- If you spend any time in Los Angeles, there's only one topic of conversation.
+- I get stage fright and gremlins in my head saying: 'You're going to forget your lines'.
+- I suppose with any good writing and interesting characters, you can have that awfully overused word: a journey.
+- I think there's some connection between absolute discipline and absolute freedom.
+- Originally, theater was my life. It was what I assumed I'd spend my working life doing - if I was lucky. Then along came movies.
+- I think the thing about film is, as it gets proved by a lot of young filmmakers now, that the medium will just go on reinventing itself, and so you just hope to be a part of that and not a part of some kind of endless regurgitation or 'Here I am doing what you know I do' kind of thing.

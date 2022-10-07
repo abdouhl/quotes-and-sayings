@@ -1,0 +1,81 @@
++++
+author = "Carl Jung"
+title = "Carl Jung Quotes"
+quotes_len = "75"
+description = "the best 75 Carl Jung Quotes"
++++
+- Who has fully realized that history is not contained in thick books but lives in our very blood?
+- There is no coming to consciousness without pain.
+- Mistakes are, after all, the foundations of truth, and if a man does not know what a thing is, it is at least an increase in knowledge if he knows what it is not.
+- Every form of addiction is bad, no matter whether the narcotic be alcohol or morphine or idealism.
+- We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them.
+- As far as we can discern, the sole purpose of human existence is to kindle a light in the darkness of mere being.
+- A human being would certainly not grow to be seventy or eighty years old if this longevity had no meaning for the species. The afternoon of human life must also have a significance of its own and cannot be merely a pitiful appendage to life's morning.
+- Great talents are the most lovely and often the most dangerous fruits on the tree of humanity. They hang upon the most slender twigs that are easily snapped off.
+- The shoe that fits one person pinches another; there is no recipe for living that suits all cases.
+- Grounded in the natural philosophy of the Middle Ages, alchemy formed a bridge: on the one hand into the past, to Gnosticism, and on the other into the future, to the modern psychology of the unconscious.
+- The debt we owe to the play of imagination is incalculable.
+- Man needs difficulties; they are necessary for health.
+- If one does not understand a person, one tends to regard him as a fool.
+- We shall probably get nearest to the truth if we think of the conscious and personal psyche as resting upon the broad basis of an inherited and universal psychic disposition which is as such unconscious, and that our personal psyche bears the same relation to the collective psyche as the individual to society.
+- Dreams are the guiding words of the soul. Why should I henceforth not love my dreams and not make their riddling images into objects of my daily consideration?
+- Nobody, as long as he moves about among the chaotic currents of life, is without trouble.
+- The Christian missionary may preach the gospel to the poor naked heathen, but the spiritual heathen who populate Europe have as yet heard nothing of Christianity.
+- In all chaos there is a cosmos, in all disorder a secret order.
+- I have treated many hundreds of patients. Among those in the second half of life - that is to say, over 35 - there has not been one whose problem in the last resort was not that of finding a religious outlook on life.
+- Shrinking away from death is something unhealthy and abnormal which robs the second half of life of its purpose.
+- The word 'belief' is a difficult thing for me. I don't believe. I must have a reason for a certain hypothesis. Either I know a thing, and then I know it - I don't need to believe it.
+- Knowledge rests not upon truth alone, but upon error also.
+- The healthy man does not torture others - generally it is the tortured who turn into torturers.
+- Your vision will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes.
+- Children are educated by what the grown-up is and not by his talk.
+- A man who has not passed through the inferno of his passions has never overcome them.
+- In my case Pilgrim's Progress consisted in my having to climb down a thousand ladders until I could reach out my hand to the little clod of earth that I am.
+- One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child.
+- The pendulum of the mind alternates between sense and nonsense, not between right and wrong.
+- We cannot change anything until we accept it. Condemnation does not liberate, it oppresses.
+- Often the hands will solve a mystery that the intellect has struggled with in vain.
+- Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+- Neurosis is always a substitute for legitimate suffering.
+- A 'scream' is always just that - a noise and not music.
+- Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
+- When an inner situation is not made conscious, it appears outside as fate.
+- Sometimes, indeed, there is such a discrepancy between the genius and his human qualities that one has to ask oneself whether a little less talent might not have been better.
+- Knowing your own darkness is the best method for dealing with the darknesses of other people.
+- We are in a far better position to observe instincts in animals or in primitives than in ourselves. This is due to the fact that we have grown accustomed to scrutinizing our own actions and to seeking rational explanations for them.
+- Just as we might take Darwin as an example of the normal extraverted thinking type, the normal introverted thinking type could be represented by Kant. The one speaks with facts, the other relies on the subjective factor. Darwin ranges over the wide field of objective reality, Kant restricts himself to a critique of knowledge.
+- A particularly beautiful woman is a source of terror. As a rule, a beautiful woman is a terrible disappointment.
+- Understanding does not cure evil, but it is a definite help, inasmuch as one can cope with a comprehensible darkness.
+- If there is anything that we wish to change in the child, we should first examine it and see whether it is not something that could better be changed in ourselves.
+- Everything that irritates us about others can lead us to an understanding of ourselves.
+- Even a happy life cannot be without a measure of darkness, and the word happy would lose its meaning if it were not balanced by sadness. It is far better take things as they come along with patience and equanimity.
+- A psychoneurosis must be understood, ultimately, as the suffering of a soul which has not discovered its meaning.
+- In the child, consciousness rises out of the depths of unconscious psychic life, at first like separate islands, which gradually unite to form a 'continent,' a continuous landmass of consciousness. Progressive mental development means, in effect, extension of consciousness.
+- Man is not a machine that can be remodelled for quite other purposes as occasion demands, in the hope that it will go on functioning as regularly as before but in a quite different way. He carries his whole history with him; in his very structure is written the history of mankind.
+- We should not pretend to understand the world only by the intellect. The judgement of the intellect is only part of the truth.
+- There is no birth of consciousness without pain.
+- There is no such thing as a pure introvert or extrovert. Such a person would be in the lunatic asylum.
+- Show me a sane man and I will cure him for you.
+- All the works of man have their origin in creative fantasy. What right have we then to depreciate imagination.
+- Everyone knows nowadays that people 'have complexes'. What is not so well known, though far more important theoretically, is that complexes can have us.
+- Masses are always breeding grounds of psychic epidemics.
+- Where love rules, there is no will to power; and where power predominates, there love is lacking. The one is the shadow of the other.
+- For a young person, it is almost a sin, or at least a danger, to be too preoccupied with himself; but for the ageing person, it is a duty and a necessity to devote serious attention to himself.
+- Our heart glows, and secret unrest gnaws at the root of our being. Dealing with the unconscious has become a question of life for us.
+- The collective unconscious consists of the sum of the instincts and their correlates, the archetypes. Just as everybody possesses instincts, so he also possesses a stock of archetypal images.
+- The word 'happy' would lose its meaning if it were not balanced by sadness.
+- Man's task is to become conscious of the contents that press upward from the unconscious.
+- The Christ-symbol is of the greatest importance for psychology in so far as it is perhaps the most highly developed and differentiated symbol of the self, apart from the figure of the Buddha.
+- It is a fact that cannot be denied: the wickedness of others becomes our own wickedness because it kindles something evil in our own hearts.
+- The man who promises everything is sure to fulfil nothing, and everyone who promises too much is in danger of using evil means in order to carry out his promises, and is already on the road to perdition.
+- The least of things with a meaning is worth more in life than the greatest of things without it.
+- The greatest and most important problems of life are all fundamentally insoluble. They can never be solved but only outgrown.
+- Follow that will and that way which experience confirms to be your own.
+- The creation of something new is not accomplished by the intellect but by the play instinct acting from inner necessity. The creative mind plays with the objects it loves.
+- Who looks outside, dreams; who looks inside, awakes.
+- We are born at a given moment, in a given place and, like vintage years of wine, we have the qualities of the year and of the season of which we are born. Astrology does not lay claim to anything more.
+- Resistance to the organized mass can be effected only by the man who is as well organized in his individuality as the mass itself.
+- The wine of youth does not always clear with advancing years; sometimes it grows turbid.
+- It all depends on how we look at things, and not how they are in themselves.
+- The most intense conflicts, if overcome, leave behind a sense of security and calm that is not easily disturbed. It is just these intense conflicts and their conflagration which are needed to produce valuable and lasting results.
+- The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed.

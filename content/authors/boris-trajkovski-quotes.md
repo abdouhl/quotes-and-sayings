@@ -1,0 +1,18 @@
++++
+author = "Boris Trajkovski"
+title = "Boris Trajkovski Quotes"
+quotes_len = "12"
+description = "the best 12 Boris Trajkovski Quotes"
++++
+- The Republic of Macedonia is being built on democratic ideals and values, not on ethnic groups. Those ideals and values include economic opportunities, language and educational opportunities, religious rights, and political processes.
+- I understand the protests, but not the shooting and the attempts to bring down the state. We cannot allow hatred to control our lives. We must remain unified to defeat this evil.
+- Remember all those references to Macedonia as the oasis of peace in the Balkans. You only really appreciate it when you have lost it.
+- I am ready to accept all accusations, allegations, anger - but I have to succeed.
+- I intend to be the president of all citizens of Macedonia, regardless of their ethnic or religious background, regardless of their political standing. I shall not allow ethnic hatred and intolerance to undermine Macedonia's stability.
+- We think that Kosovo will continue to serve as a centre of violence and regional instability in future.
+- The alternative to peace is war, which will expose everyone to mass casualties, misery and a loss of perspective for many years to come.
+- While there continues to be differences, the important point is that all citizens and elected officials use democratic and legal avenues for solving those differences.
+- Our citizens will lose their confidence or trust in the values and principles of the international community, especially if our personal identity is denied.
+- I am considering two things on a daily basis: what is right to do and what is wrong to do in my role as President of my people. According to my conscience, I am trying to abide by the right. My vision is peace. My vision is prosperity.
+- My faith is a very important part of my life. I do not feel that I have become president of this country by accident, but that I have been chosen because nobody can accuse me of favouring the Albanian Muslims or the Orthodox.
+- Never underestimate or mock peace.

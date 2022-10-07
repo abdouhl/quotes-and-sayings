@@ -1,0 +1,60 @@
++++
+author = "Casey Stengel"
+title = "Casey Stengel Quotes"
+quotes_len = "54"
+description = "the best 54 Casey Stengel Quotes"
++++
+- It's wonderful to meet so many friends that I didn't used to like.
+- Finding good players is easy. Getting them to play as a team is another story.
+- They say some of my stars drink whiskey, but I have found that ones who drink milkshakes don't win many ball games.
+- You can't go out to the mound hobbling and take a pitcher out with a cane.
+- They say Yogi Berra is funny. Well, he has a lovely wife and family, a beautiful home, money in the bank, and he plays golf with millionaires. What's funny about that?
+- Son, we'd like to keep you around this season but we're going to try and win a pennant.
+- Ability is the art of getting credit for all the home runs somebody else hits.
+- All right everyone, line up alphabetically according to your height.
+- The trick is growing up without growing old.
+- I feel greatly honored to have a ballpark named after me, especially since I've been thrown out of so many.
+- Most ball games are lost, not won.
+- The trouble with women umpires is that I couldn't argue with one. I'd put my arms around her and give her a little kiss.
+- Don't cut my throat, I may want to do that later myself.
+- You got to get twenty-seven outs to win.
+- I was such a dangerous hitter I even got intentional walks during batting practice.
+- Been in this game one-hundred years, but I see new ways to lose 'em I never knew existed before.
+- Don't drink in the hotel bar, that's where I do my drinking.
+- I don't like them fellas who drive in two runs and let in three.
+- No baseball pitcher would be worth a darn without a catcher who could handle the hot fastball.
+- If you're playing baseball and thinking about managing, you're crazy. You'd be better off thinking about being an owner.
+- Without losers, where would the winners be?
+- I broke in with four hits, and the writers promptly declared they had seen the new Ty Cobb. It took me only a few days to correct that impression.
+- The key to being a good manager is keeping the people who hate me away from those who are still undecided.
+- The team has come along slow but fast.
+- I've tried to give a dollar and 25 cents in work for every dollar paid me.
+- There comes a time in every man's life, and I've had plenty of them.
+- You have to go broke three times to learn how to make a living.
+- You have to have a catcher because if you don't you're likely to have a lot of passed balls.
+- The trouble is not that players have sex the night before a game. It's that they stay out all night looking for it.
+- I came in here and a fella asked me to have a drink. I said I don't drink. Then another fella said hear you and Joe DiMaggio aren't speaking and I said I'll take that drink.
+- Oldtimers, weekends, and airplane landings are alike. If you can walk away from them, they're successful.
+- You gotta learn that if you don't get it by midnight, chances are you ain't gonna get it, and if you do, it ain't worth it.
+- Sure I played, did you think I was born at the age of 70 sitting in a dugout trying to manage guys like you?
+- Good pitching will always stop good hitting and vice-versa.
+- If I've got a good pinch-hitter, I hate to have him stay on the bench with men on the bases in an early inning. He may end the game right there.
+- I was a left-handed dentist who made people cry.
+- The secret of successful managing is to keep the five guys who hate you away from the four guys who haven't made up their minds.
+- There are three things you can do in a baseball game. You can win, or you can lose, or it can rain.
+- Two hundred million Americans, and there ain't two good catchers among 'em.
+- I don't know if he throws a spitball but he sure spits on the ball.
+- Being with a woman all night never hurt no professional baseball player. It's staying up all night looking for a woman that does him in.
+- I got players with bad watches - they can't tell midnight from noon.
+- I was not successful as a ball player, as it was a game of skill.
+- The Yankees don't pay me to win every day, just two out of three.
+- The Mets have shown me more ways to lose than I even knew existed.
+- Everybody line up alphabetically according to your height.
+- All blame is a waste of time. No matter how much fault you find with another, and regardless of how much you blame him, it will not change you. The only thing blame does is to keep the focus off you when you are looking for... reasons to explain your unhappiness or frustration.
+- They told me my services were no longer desired because they wanted to put in a youth program as an advance way of keeping the club going. I'll never make the mistake of being seventy again.
+- When you are younger you get blamed for crimes you never committed and when you're older you begin to get credit for virtues you never possessed. It evens itself out.
+- If you're so smart, let's see you get out of the Army.
+- Managing is getting paid for home runs that someone else hits.
+- You gotta lose 'em some of the time. When you do, lose 'em right.
+- If we're going to win the pennant, we've got to start thinking we're not as good as we think we are.
+- Never make predictions, especially about the future.

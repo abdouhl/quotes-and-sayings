@@ -1,0 +1,38 @@
++++
+author = "Liu Cixin"
+title = "Liu Cixin Quotes"
+quotes_len = "32"
+description = "the best 32 Liu Cixin Quotes"
++++
+- I did not begin writing for love of literature. I did so for love of science.
+- The Cretaceous-Paleogene extinction was a horrible event. Dinosaurs and many other animals and plants were killed.
+- A bright future may be what humanity aspires to achieve but it's far easier to talk about conflicts that play out in dark and pessimistic settings.
+- After the founding of the People's Republic in 1949, science fiction became a tool for popularizing scientific knowledge, and its main intended readers were children.
+- Our reality is narrow, confined, and fleeting. Whatever we think is important right now, in our mundane lives, will no longer be important against a grander sense of time and space.
+- The three-body problem is a term borrowed from physics. It is a phenomenon that can basically be explained like this: Two objects in space can interact in a predictable fashion rotating around each other due to their gravitational pull. But if a third object is introduced, it makes their interaction more complicated.
+- In the century-long history of Chinese science fiction, apocalyptic themes were mostly absent. This was especially true in the period before the 1990s, when Chinese science fiction, isolated from the influence of the West, developed on its own.
+- I do think that science fiction ideas are best expressed through visual media like film and TV. Realist literature depicts things that we have seen in life, but science fiction is different: what it depicts exists only in the author's imagination. When it comes to science fiction, the written word is inadequate.
+- For about 30 years, I stayed in the same department and worked the same job, which was rare among people of my age. I chose this path because it allowed me to work on my fiction.
+- As a science fiction fan, the Nebula Award and the Hugo Award mean a lot to me.
+- I'm absolutely positive about human survival. We will continue to develop our civilisation and expand not just on Earth, but also across the solar system, the galaxy, even the entire universe.
+- In the early years after the Communist Revolution, politics and revolutionary fervor infused every aspect of daily life, and the very air one breathed seemed filled with propaganda for Communist ideals.
+- Science fiction is not a genre that has much respect in China. Critics have long been discouraged from paying attention to the category, dismissed as a branch of juvenile literature.
+- In the Chinese subconscious, the universe exists on a timeline that extends into the future without end, and also without change.
+- Sci-fi novels are concerned with problems faced by all of humanity. Crises in sci-fi mostly threaten humanity as a whole. This is a unique and treasurable trait inherent in the genre - that the human race is perceived as a single entity, undivided.
+- Like most genres of literary expression, science fiction in China was subject to instrumentalist impulses and had to serve practical goals.
+- To be honest, before the American publication of 'The Three-Body Problem', I prepared myself for the possibility of uniformly negative reviews.
+- Perhaps in ten thousand years, the starry sky that humankind gazes upon will remain empty and silent. But perhaps tomorrow we'll wake up and find an alien spaceship the size of the Moon parked in orbit.
+- In my youth, when I tried to plan for the future, I had wished to be an engineer so I could get work with technology while writing sci-fi after hours. I figured that if I got lucky, I could then turn into a full-time writer.
+- My own family went through its own difficulties in the Cultural Revolution, perhaps in a milder form than many other people.
+- Unexpectedly, 'Death's End' turned into a major success. It made a much bigger impact than the first two books in the series and became a bestseller.
+- I'm a writer. I don't begin with some conceit in mind. I'm just trying to tell a good story.
+- Humans are selfish, and because of our innate selfishness, I'm very confident that we can overcome any amount of environmental destruction.
+- China lacks good science fiction, but not mediocre science fiction. Even so, the gap between Chinese and American sci-fi is still very large and it is most apparent in quality of the works.
+- In high school and college, I started to read more and write science fiction myself. I was fully engaged in writing in the 1990s.
+- It's not hard to read parallels between the Trisolarans and imperialist designs on China, driven by hunger for resources and fear of being wiped out.
+- There's nothing special or memorable about me. I always blend into any crowd.
+- The main difficulty is finding an idea that really excites me. We live in an age when miracles are no longer miracles, and science and the future are losing their sense of mystery. For science fiction, or at least the type of science fiction I write, this development is almost fatal, but I'm still giving it all I've got.
+- Facing ultimate destruction and the end of the world, human society will undergo extreme, complex, and profound transformations.
+- I am a conventional science fiction author. But that said, once your work is published, it no longer belongs to you. It belongs to the readers and they will derive all sorts of interpretations.
+- The earth's crust is very thin but the planet can act as a spaceship if a force or energy powerful enough was exerted on it, to eject it from the solar system. But its mantle and core may leak due to inertia, causing the planet to disintegrate.
+- Science fiction stories reflect major issues that concern humanity.

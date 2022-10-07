@@ -1,0 +1,106 @@
++++
+author = "Raul"
+title = "Raul Quotes"
+quotes_len = "100"
+description = "the best 100 Raul Quotes"
++++
+- In my head the word surrender has never existed, because that is what Real Madrid is about.
+- I'm happy with, and proud of, everything I've achieved - of each game and each goal that helped the teams I played for.
+- In the Bundesliga you don't have much time with your family.
+- I think Cristiano and Lionel Messi are two of the best players in the history of the game. Are they better than Pele or Diego Maradona? They are at the top, but I think it is difficult in football to say who is first or second or third.
+- You need to take care of yourself, have a good diet, rest sufficiently and have a lot of enthusiasm.
+- I'm not going to lie: not playing football will be very difficult for me.
+- The things you learn when you're young you don't forget.
+- It was only a matter of time until my records fell.
+- You must believe in the players, their quality, and send the message that working together it was easy to win the Champions League and difficult for anyone to beat you.
+- A champion's thirst for titles should be insatiable.
+- Having a successful career as a player does not ensure that you will be a good coach, I have to prepare myself.
+- I believe that patience is fundamental in football. It is difficult as sometimes patience is not there. You must have a clear idea and a path you want to take.
+- I spent 17 years at Real Madrid and nobody can doubt that I'm a 'madridista.'
+- The key is to be the best-prepared possible and that is my commitment to the club.
+- I think that the message Zidane has to offer will get through to the players, because he was a world-class player.
+- I like to do things step by step.
+- I want Real Madrid to win it all in 2011-12. The Champions League, La Liga and the Copa del Rey.
+- The demands at Real Madrid are huge. The expectations are enormous. Sometimes, it is good. When you're winning, it's an amazing place and the fans are happy.
+- Look, every club needs stability.
+- Messi has a unique talent, he plays alongside quality players like Xavi and Andres Iniesta. Cristiano is also a great player.
+- I was as excited when Beckham started to play with us as I am with the arrival of Cristiano.
+- It is necessary that the coach has things as he wants.
+- Schalke, for me, is a great adventure, and I wanted to experience new sensations away from Real Madrid.
+- When you change coach it's because things have not gone well.
+- Pogba is a player that Madrid would love to have - as would any team.
+- The European leagues and teams are more competitive, very technical. It was good to work in Qatar - a good experience for me for the future. In the U.S.A., the teams and the players are improving every season.
+- My first choice will always be Real Madrid, but working at a global level for La Liga can't possibly offend anyone.
+- There are not many Cristiano Ronaldos in the world and Real Madrid has made a great financial effort, but Real Madrid wants the best team in the world.
+- My departure from Madrid was my own choice. I had one year left on my contract, but I decided to go for a new professional experience, so I joined Schalke. I have no problem with the club and our rapport is good.
+- What brought me here was a desire to keep playing and the exciting project the Cosmos proposed to me. As well as being able to play, which is my passion and what I like doing, they also gave me the chance to help develop a youth academy, where I can bring my experience and knowledge to bear.
+- I could imagine playing for Fortuna.
+- Every season is very difficult.
+- I was runner-up for the Ballon d'Or once and came third on another occasion. Could I have won it? Maybe. But I don't care. Football is a team sport.
+- Everyone throughout the soccer world knows the Cosmos name and the legacy of the players that played for this team previously. They helped establish soccer in America and I'm honored to follow in their footsteps.
+- I love playing games, but also training.
+- I'm not a star. I am a football player, a team player.
+- We should be proud of what Cristiano has been doing. He scores 50 goals per season. I struggled to hit 20.
+- I don't really understand what 'Galacticos' is supposed to mean. It's a term I dislike. I like football, pure and simple, and that concept isn't part of football. It's something else entirely.
+- I know a lot of marathon runners who are at their best when they are close to 40. You say to yourself, 'It's 42 kilometres and they are 37 or 38 years old,' but the body can. What you have to make sure you don't lose is your head. That is the most important thing.
+- Football has been my life and Real Madrid my home and together we have lived unique moments.
+- Real Madrid is my home and if I have the opportunity to go back and do something important, or something that really appeals to me, I'll do it.
+- I never tire of repeating that I feel at home at Schalke.
+- I'm fortunate to have a great family.
+- Seasons are 10 months long and what matters is to get to the last two to three months in your best form.
+- I have been happy at Real Madrid and I will always be willing to help the club in whatever it needs.
+- Playing on turf sometimes, not grass, makes it a little bit more difficult.
+- It is not easy to change from player to coach.
+- When I left Real, I left a great club but joined a great club.
+- I don't think Madrid would be Madrid without Barcelona and vice versa.
+- If you are lucky enough to avoid serious injuries then the body goes on; it's the mind that gives in. And it's the mind that you need to enable you to suffer pre-season every year.
+- I'm fully aware that Qatar are striving to become one of the leading sporting nations and they have big plans for football. Winning the honour of hosting the 2022 World Cup is the best possible proof of their intentions.
+- I respect the decisions other players make but my life has always been about playing and all the rest of it did not really interest me.
+- This is Real Madrid. You have to win titles every year. And if you don't? Oof, it's complicated.
+- Every season has its bad patches.
+- I think Ancelotti is a great coach who has a great relationship with the players, but is also very demanding of them.
+- Beckham has enough charisma to win over the fans quickly. All he needs to do is to show his class on the pitch. He's one of the world's best and I've always been a fan.
+- I got used to playing at half-empty stadiums at Al Sadd. There was no one in the stands in Qatar.
+- When I was a player I always said I would only play for Madrid.
+- I do not rule out any position in football. Not even the president.
+- When I go five games without a goal, there's always a debate. Everything else that I do on the pitch is never valued.
+- The affection shown to me by the Schalke fans is extraordinary and unforgettable.
+- Joining Madrid is the best thing that could happen to anyone.
+- It's a city that we have always liked. Who doesn't like New York? When you are here you do feel a bit more anonymous. Obviously, you still find people who recognize you, but it's nice to be able to go out and walk around and have it be a normal experience.
+- I hope things go well with Zidane, the same as I would have said about Benitez. Because what we all want is for Real Madrid to win trophies.
+- I love to play, but to coach is very different.
+- I think it's important to work with children and teach them the right way to train and play at a young age.
+- I've devoted my life to doing what I love: playing football.
+- From the time when I started out, the best players around then were Roberto Baggio and Ryan Giggs.
+- Being a Real Madrid player is the greatest dream you can imagine.
+- Punctuality and showing respect in the workplace are the foundations of success. Success is meaningless without them. I'm always looking to pass these lessons on to younger players, because they are the secret of excelling and developing your game.
+- A player does not make a team.
+- I have five children of my own, so as a father I understand how important it is to help children in any way you can.
+- My time in New York has been amazing.
+- I set the record at Real Madrid in the Champions League, but Ronaldo is one of the best players in the world.
+- I was close to joining Seattle Sounders when I left Schalke in 2012, but we decided to go to Qatar first.
+- I've always wanted to live in America with my family and learn more about its culture.
+- What Cristiano has been doing is huge, but Madrid have a great team with players who can still offer more. The important things is that they keep working as a unit.
+- It is clear that Schalke is a special club and it is because of their fans.
+- There's always a winning ambition in me, which keeps me going.
+- Having Leo Messi and Barcelona is good for La Liga - it's a real delight.
+- I believe that soccer in the United States lacks an idol and they should do everything possible to create one.
+- So once the game begins, it doesn't matter if it's 10, 20 or 80 thousand fans. The objective is to win the match, and that's where my focus is.
+- Schalke will always be a part of my life.
+- It's important to get match rhythm.
+- Contrary to what many say, Real are a unit. Individual brilliance is always a last resort.
+- Never mind a year, if you don't win one game, it can become a complicated week! Yes, that's life at Real Madrid.
+- My decision to pursue my career at Schalke 04 is in no way a mistake.
+- Schalke was a beautiful experience for me.
+- I have always been there to help the team, sometimes coming off the bench, other times as a starter.
+- All kids have the dream of becoming a professional soccer player, but to become that you need so many things. You have to have talent, be hard working, have support, have discipline. You also have to have ability, physical and technical, and understand the game.
+- I speak with a lot of players who have stopped playing and they go to the gym for two hours a day and say 'now I run 10km a day.' When they were still playing they would complain about running for 10 minutes!
+- I believe it's important to have a sporting director - someone to facilitate the communication between the club and the squad, and work on its planning. But not just at Madrid, at all teams.
+- The intensity and speed of the ball on turf are very different.
+- At clubs with constant media attention it is harder.
+- Real Madrid is a very big club and bad results generate controversy.
+- It's not for me to give anybody advice about their private life.
+- I was at Madrid for 17 years and, save for Vicente del Bosque and Jose Mourinho, I never saw any coaches stay for many years.
+- I was lucky enough to play with Zidane, Ronaldo, Figo, Cristiano... but Messi is different; he makes everything look so easy, so effortless - even the impossible.
+- Harry Kane is a typical striker. He scores in every single game. I think he has great qualities. I like him a lot.
+- I like to work in a team. And for that you must have a structure that covers everything and that there is fluid communication.

@@ -1,0 +1,69 @@
++++
+author = "Bowen Yang"
+title = "Bowen Yang Quotes"
+quotes_len = "63"
+description = "the best 63 Bowen Yang Quotes"
++++
+- If someone's personality is 'punch an Asian grandma,' it's not a dialogue. I have an Asian grandma. You want to punch her? There ain't no common ground, mama.
+- I don't get too, like, you know, freaked out or nervous around famous people. But for some reason, Yvonne Orji is just one of those people where I'm like, I'm too - I would be too nervous to meet her.
+- It's a big deal to have Peppermint and Jiggly, two trans women, be on a pre-taped sketch for Saturday Night Live.'
+- I thought of myself as a very goal-oriented person. The more I've aged, the more I'm like, well, maybe I'm not that ambitious.
+- All heist movies are about gadgetry, ultimately, which feels very queer.
+- I wonder if there's space to queer the nomenclature in fitness. Maybe we call a goblet squat a Dannii Minogue instead? Just an idea.
+- I was 8, and I was probably too young for it, but that's when I started to watch SNL.' That's when I got a sense of what American humor was.
+- I think there is gay comedy, because I think most gay comics are very very very in touch with that identity.
+- There's this joke that Anna Drezen wrote for Melissa Villasenor, where Melissa plays every teen-girl murder suspect on Law & Order.' And there's this joke in there that is like, We stabbed her as a joke, but she took it the wrong way and started bleeding!'
+- I want to have two suitcases full of hair extensions by the time I'm 40.
+- Stop letting Grey's Anatomy' fool you into doing pre-med.
+- I came to New York in 2008 not knowing a thing about fashion, but even back then I knew Opening Ceremony was this beautiful, welcoming beacon on the shores of taste, shooting up gorgeous flares for us wayward souls at sea.
+- I'm just a comedian. I don't have all the answers. But I'm not just looking for them online. I'm looking around me.
+- Pride for me has always been about holding a personal vigil within your own relationship, with nuclear being under the queer umbrella or being an ally wherever you land.
+- It's nice to have social media, but it's not the same as going to a party.
+- We tell ourselves, It's important to get a sense of what people are saying about me.' But it really feeds some narcissistic impulse to check and see if people like you.
+- Gosh, my own podcast, Las Culturistas,' is so unstructured and loose. There's no preparation that goes into it. It's just about plugging in and playing.
+- I wouldn't have been born if my parents had stayed in China. Which is kind of funny. But it also just kind of fills me with this existential dread.
+- I think any gay comedian will acknowledge the fact that he or she is gay - it's not a coincidence, it's deeply who they are.
+- I think as queer people, we were very used to accommodating.
+- I was going through this identity crisis of being like, 'I don't think I want to be a doctor anymore.' And, 'oh my god, have I made a huge mistake? What do I do?'
+- Well, you know, the best compliment I've ever gotten from a coworker is Anna Drezen, who is a longtime friend of mine from college, which she was like - one day she turned to me and she said, you know, Bowen, you make video games seem accessible or you make it seem - you make them seem less esoteric or whatever she said.
+- I've fully turned a corner in terms of thinking about my own voice. I think I have a pretty cool voice, just sonically.
+- Podcasts feel about as accessible and ubiquitous as books or articles or anything like that.
+- You know, you might not think that Wigglytuff can, like, throw a thunder or lightning-type move at you. But, oh, just you watch.
+- I always end up making friends at Pride and like, I see them throughout the year, but then you always have that nice, fond memory of, 'Oh my goodness I saw that person at this march, or this event.'
+- Everything is telling me that I should not do this, and yet I still do it. That is nightlife for a lot of gay people and the worst thing nightlife can be, which is compulsory.
+- When I watched The Outs,' I was like, 'Oh my god, this is just such a great, grounded, lived-in story about people my age living where I happen to live.'
+- It's not to say that, like, my sensibility is being sort of policed in any way. It's just I am trained at SNL' to think about the general audience. That's a unique aspect of SNL' - that everyone has an opinion on it from every generation.
+- Margaret Cho is definitely one of the people, like just watching or hearing her stand up back in the days when stand-up albums were pretty prolific. Seeing her in Carnegie Hall was pretty revolutionary for me to be like, 'Oh, this Asian person talking about her sexuality.'
+- I loved 'Grey's Anatomy.'
+- A lot of different people under the queer umbrella come together but Like there's something inherently queer about the heist genre, in some way. It's about just flying under the radar and procuring something furtively or, you know, that thing that is just so fun and high-stakes in the way that a lot of queer experiences are.
+- I feel like 'SNL' is this kind of fixed, refractive prism. And whatever comes through it is just whatever - is just the absurdity of what's going on in the world or what people are saying or what's not being said.
+- I think the whole glue of Search Party' is this idea of victimhood.
+- I was anticipating Animal Crossing.' I was an early adopter. And then I was really, really looking forward to it coming out even before lockdown happened. And then, of course, everyone sort of glommed on to it. And I embrace that. That's the whole point of the game. You want to build a community through this video game.
+- Getting a TV in my bedroom was something that I decided to do five months into the pandemic because I was finally, like, You know what? I might as well make my apartment feel like a hotel room.
+- I'm absolutely looking at my career differently, but it's still really important to some sense of connection to where I came from, which is this DIY, queer work ethic and sensibility.
+- The way I see queerness now is that, best case scenario, another queer person reflects it back at you. Worst case scenario, which is what happened to me, is having people say, Well, you like Michelle Branch, so you must be gay.'
+- My dad every now and then will toe that line and be like, You could try women!' And I'm like Don't. It's almost an endearing kind of homophobia, if such a thing exists.
+- I spent freshman year trying straightness on for size and failing miserably.
+- Yeah, I feel like every year there's some collective thought that podcasts just keep evolving and that podcasts are still just like the weird wild west of media.
+- I texted one of the writers I said, 'I have this crazy idea, I think I have to play Fran Lebowitz on Update.' The next day, Anna Drezen, our head writer, texted me, 'Crazy idea, but I think you should play Fran Lebowitz on Update.'
+- Holding those two identities of being gay and Asian have, I guess, made my skin a little thicker.
+- A few years ago I was participating in a comedic 'Inner Beauty Pageant' and I had to figure out a talent very last-minute. I always loved Tyra Banks's 'We were all rooting for you!' moment, and so I decided to lip-sync live to the six-minute entirety of it as my talent.
+- There have been times where I have said, even in a sketch that I'm not in, 'I don't think you should be making that joke at the expense of Asian people.'
+- I find the expectation that a public figure - who is known for something besides, like, having a political thought, someone who puts on wigs for a living - would have something complex to say about any number of things, to be so aligned with a certain value system, is a little bit flawed. It's like, why would you think that?
+- I was the kid who at 12 years old went to NBC studio tours, and I would just answer all these trivia questions on the tour that the pages would ask about 'SNL'. I was that kid.
+- Just classic immigrant story - I mean, child of immigrant story - did not grow up with cable and so felt constantly like I was being spoken to in a foreign language when I would go to school. And people would be like, did you watch this? Did you watch that? I'd be like, no, but I did watch 'SNL.'
+- This is what gay nightlife is: It's about building an image. You are constantly in proprioception where you're clocking your own movement through space constantly.
+- I used to be very anti-bath.
+- No, broadly speaking there is no average age in comedy, which is very refreshing. Any stress over success vis-a-vis age in comedy is just a matter of giving up short-term gains in favor of the long haul.
+- I think the sooner you take responsibility for what reaction you want to get out of an audience, the better.
+- I'm not setting too many expectations for myself. I'm just trying to create opportunities for something interesting.
+- When I go to Fire Island, it's always sort of the same thing. Everyone is coexisting, and isn't that nice? But also, the risk of people co-opting what is a queer invention is okay, as long as it's not for capital.
+- I feel like doing Las Culturistas' for an extended period of time has taught me where to put the fulcrum on having structure and having looseness.
+- Swapping a duvet cover is the most stressful chore in the world to me, and I haven't figured out a way to do it without scuba diving into a giant sac of linen and figuring out if I'm tying the right knots in each corner.
+- I was fully burnt out - and in some ways I think that was good, because I was just fully numb.
+- Pandemic life has turned me into a freak for baths, and my process is involved enough to make it fun. I pour in some bubble bath, add a pouch of Japanese onsen powder, and place some candles around the bathroom for ambiance.
+- Being an Asian person on SNL,' when people are like, 'Why did it take so long?' It's sort of a question that doesn't fully understand the idea that there is no developmental experiential process for a queer Asian person to get into comedy in a way that feels inevitable.
+- I thought going in that I had to have this very broad, very palatable sensibility that works for everybody, but then the stuff that I'm the most proud of, and probably even got the most success from, was outwardly an expression of queerness or gayness. That's been a nice surprise.
+- After high school, I really learned to love myself. I finally stopped getting bullied by straight people. Then, I pretty much immediately started getting tormented by gay people for my taste in music.
+- There's some humility that has to be constant. And if I ever put pressure on myself to represent in any meaningful way for Asian people, then that would just get in my way in terms of thinking that I am destined to speak on behalf of multiple people.
+- And I would go on all these college tours. And I was thinking about where I would want to go. And at the end of each tour, I'd be like, yeah, yeah, yeah. So you guys have any improv groups?'

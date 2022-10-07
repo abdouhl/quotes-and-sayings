@@ -1,0 +1,17 @@
++++
+author = "Claudio Bravo"
+title = "Claudio Bravo Quotes"
+quotes_len = "11"
+description = "the best 11 Claudio Bravo Quotes"
++++
+- I always try to improve in every aspect and learn from my errors.
+- I will have to play as a goalkeeper and sometimes like a centre-back and play with my feet. I like that system and I feel comfortable in it.
+- I play in a way that means taking risks. The problem is that, from 300 passes, you make one mistake.
+- I have played as a goalkeeper since I was six but I always worked on my ball skills, playing with my foot, knowing how to control the ball, how to pass. But the main thing is to save goals.
+- You have to pick up things from the big teams, who are always in finals and winning big trophies.
+- I'm happy in England and so is my family.
+- When you are playing against Lionel Messi day to day in training it forces you to improve your level.
+- I didn't like to wear the same clothes as everyone else. I wanted to be special, also because I knew I needed something else. I found it more fun to play as a goalkeeper than any other position.
+- When you play well you usually win.
+- In fact, I often accept criticism because I feel it helps me to get better and get stronger. And I hardly ever remember the compliments.
+- I would like to thank Barcelona for putting their trust in me and my future abilities.

@@ -1,0 +1,17 @@
++++
+author = "Richard Foster"
+title = "Richard Foster Quotes"
+quotes_len = "11"
+description = "the best 11 Richard Foster Quotes"
++++
+- I think of Pope Gregory the Great. He wanted the cloister. He wanted to pray and study, and yet he was thrust into this administrative job, and he submitted to that. And in that submission, he became a great leader. You could say that the only person who is safe to lead is the person who is free to submit.
+- There is a sense of call to take leadership roles. You're serving people and submitting to God as best you can.
+- Leadership is an act of submission to God. To be a leader means listening to all kinds of people and situations. Out of that listening, we are hoping to discern the mind of God as best we can. This is the price of leadership - it's an act of sacrifice. So leadership is part and parcel of the work of submission to God.
+- Spiritual direction involves a process through which one person helps another person understand what God is doing and saying.
+- In spiritual direction there is absolutely no domination or control.
+- Pride is one of the socially acceptable sins in some corners of the evangelical culture. It's just straight-out ego gratification - how important I am; whether my name gets on the building or on the TV program or in the magazine article.
+- In the context of Quaker worship, it is perfectly appropriate for any person in the congregation to speak a timely word from the Lord.
+- Spiritual direction is an interpersonal relationship in which we learn how to grow, live, and love in the spiritual life.
+- Supremely, spiritual directors/mentors/pastors are persons who have a sense of being 'established' in God. Otherwise they are too dangerous to be allowed into the soul space of others.
+- We bless the organized church structures and their meetings. But if there are 10,000 others that meet outside of these ecclesiastical structures, that's wonderful, too. The kingdom of God moves forward in lots and lots of ways.
+- We all learn submission because we all have 'bosses', whether we're presidents of companies or not. The easiest place to learn it is in family.

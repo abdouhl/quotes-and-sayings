@@ -1,0 +1,13 @@
++++
+author = "Leonor Varela"
+title = "Leonor Varela Quotes"
+quotes_len = "7"
+description = "the best 7 Leonor Varela Quotes"
++++
+- I don't believe in nudity for nudity's sake, but it's really beautiful when it's done well, when it's within a story. I'm very comfortable with my body. I grew up mostly in France, where nudity is not taboo.
+- When we strip away the clothes, the jewelry, that's who we really are. I walk around naked in my house.
+- Ask any parent what we want for our children, and invariably we say 'a better life.' To that end, we give our time, our sleep, our money, and our dreams, much as our parents did before us. We all want a better life for our children. But what we want for them ceases to matter if we leave them an unlivable world.
+- I don't need jewels and cars. It's about the delicacy of the way I'm handled.
+- We have chosen to bring future generations into this world of rising seas and warming temperatures, droughts and floods, heat waves and wildfires, a world in which one in four mammals and one in eight birds are at risk of disappearing forever. While the damage we've done is irreversible, that doesn't give us the right to do nothing.
+- What we owe future generations is the subject of growing debate by economists, philosophers, ethicists, public policymakers, and academics of all stripes. But for me as a mother, the moral implications are very clear. We owe them clean air and fresh water, a healthy planet and a secure future.
+- I'm not good with limitations. I tend to like to find my own. It hurts sometimes, but it's good. I'm little extreme in that sense - the middle ground is not my forte.

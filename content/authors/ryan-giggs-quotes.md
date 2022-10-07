@@ -1,0 +1,37 @@
++++
+author = "Ryan Giggs"
+title = "Ryan Giggs Quotes"
+quotes_len = "31"
+description = "the best 31 Ryan Giggs Quotes"
++++
+- When you lose a game or don't play well you can't wait for the next one, because it soon disappears, the disappointment.
+- I've put myself forward to be involved. Whether I get picked, we'll have to wait and see. Obviously everybody is excited about it, about the Olympics coming to London and the football being played in different parts of Britain.
+- It's not just the players, it's the culture. Sometimes it's the people around them; the people who are looking after them - the money they're given. Some of the families give up their jobs and live off their sons. That would never have happened 10 years ago.
+- A lot of people don't know that my father is black.
+- He was a professional rugby player in the area that I played as a youngster. So a lot of people who I went to school with knew who he was and knew that he was black. So I would get racist taunts in school.
+- What you've got to realise is that footballers, and me in particular, have seen everything in the changing room. Everything. I've seen the manager kicking off with the players, the players kicking off with him, players fighting each other, managers fighting, everything.
+- My dad played rugby, so I used to watch a lot of rugby union and rugby league.
+- Football is easy when things are going well, but when its not, it becomes the biggest test.
+- Every footballer wants to play forever. And if you are going to keep on playing - to enjoy it to the full - you want to win games, and as a result, trophies.
+- I'm not comfortable being photographed, though I accept it is part of the job.
+- Celebrity culture, it's everywhere, isn't it? It's reality TV, Big Brother. I didn't become a footballer to be famous, I became a footballer to be successful. I didn't want to be famous. Now people want to be famous. Why? Why would you want people following you about all day?
+- Where I grew up, people obviously knew my dad because it's a small place and he was the top player for Swinton - they'd go and watch him play, see him in the papers, so they knew he was black.
+- I've always had people come up to me to say that they admire the way I play, and then they tell me they're not United fans. That's always been nice.
+- I had an early taste of fame. I was 20, going out with TV presenter Dani Behr and we'd have paparazzi chasing us. I'm not comfortable being photographed, though I accept it is part of the job. I had to ask myself, 'What comes first, being a celebrity or footballer?'
+- I had my footballing heroes such as Bryan Robson and Diego Maradona but my dad was a rugby league star, and he was my real hero. But the relationship with my mum was rocky and we saw things that would affect any youngster.
+- There's never been completion in my football career because I've always been striving for that next thing.
+- I have always considered myself to be very fortunate. To play for the biggest club in the world, which also happens to be the team I supported as a boy, means I have never had to consider changing away from Manchester United.
+- You get yourself prepared for a big game, you get yourself up for it. Then afterwards you don't sleep or eat properly.
+- I am proud of my black roots and of the black blood that runs in my veins.
+- I do not wish to hide my origins, nor do I seek to make it a subject of conversation. I am what I am.
+- My weight doesn't really fluctuate, but I make sure I don't eat late at night. It's about making sure I'm right physically because mentally I'm OK.
+- All players have 'ordinary' periods in their career and it's hard to explain why. So at these times, its all about self belief, hard work and hopefully you get the break and your form returns.
+- Many players want to make as much money as they can and change teams for ten grand. How is that going to make much difference to their lives?
+- If I feel I'm not influencing games, not scoring goals or making goals, then that's the time I'd pack it in.
+- I didn't become a footballer to be famous, I became a footballer to be successful. I didn't want to be famous. Now people want to be famous. Why? Why would you want people following you about all day? I couldn't think of anything worse.
+- I like to let my football do the talking, I'm respectful of other good teams such as Arsenal.
+- As players, you just play for the club. I love Man United, I'm going to play for Man United, and that's what my focus is on.
+- I just want to be as successful as I can in football.
+- Too much money at a young age, it just takes your eye off the ball. And you're not as hungry as players used to be. You think you've made it before you've done anything.
+- Where does it stop? You get offered money for your wedding, then for your kids, new houses, holidays... We earn enough from football and sponsorships, why do you need any more?
+- As a footballer I can't imagine life without the use of one of my legs... Sadly this is exactly what happens to thousands of children every year when they accidentally step on a landmine.

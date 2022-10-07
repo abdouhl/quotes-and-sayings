@@ -1,0 +1,58 @@
++++
+author = "Bob Saget"
+title = "Bob Saget Quotes"
+quotes_len = "52"
+description = "the best 52 Bob Saget Quotes"
++++
+- I wasn't the first choice for the role of Danny Tanner. Betty White was. Not true, but there was another actor whom they had shot the pilot with.
+- Now I've literally become neighborhood watch. I call 911 on people. I'm the old man driving 25-miles-per-hour down Sunset.
+- I have three kids, the oldest is 18 and her friends are going to see it The Aristocrats because they told her they're going to see it, especially her guy friends.
+- I think when you dissect a joke too much, you have ruined whatever there is in comedy.
+- I'm doing 5000 seat theaters and audiences are going nuts, it's fantastic and it makes me very happy. I'm dirty, but not like this; I just do comedy that I find funny. I'm working on a new tv show for cable and it's not set up yet.
+- I never expected to live this long.
+- Unless cameras were rolling, I was pretty much not Danny Tanner.
+- I am a fortunate man in that all three of my daughters are exceptional. Very high beings, very smart people, very wonderful and very brilliant, very beautiful. They're all artists.
+- Like with any good art form, if you can entertain people and make them think, it's an honor. It's just an honor to be a comedian.
+- One of the first things I ever did was 'Critical Condition.' That was before 'Full House.' It was a Richard Pryor movie. I didn't have a giant part, but I was in it throughout. I loved the heck out of it.
+- I don't like the negative of reality tv - the 'you're no good, so you have to leave, I choose you, but I thought you really loved me.' It's all about how bad people are and I just hate that. I like Pimp my Ride where someone is helping somebody.
+- I become a chameleon for wherever I am.
+- There was this whole middle time that only Chris Rock came out of, you know, 10 years ago it was Chris and a few other people, but that's about it. Chris is in a class of his own; I don't see another comedian who I put in high regard as him.
+- It was a JOB; the video show was a JOB; you don't tell the Aristocrats joke at 8 o'clock at night on network tv, it would be funny though. But those guys know I like dirty stuff, I like clean stuff too.
+- Soon, I'm going to meet somebody around my own age, and she's going to be smart and beautiful, and I'm going to date her daughter.
+- My confidence wavers between being genuine and being insecure.
+- I think Desperate Housewives is a pretty good show, I watch it, I like it and I don't love reality tv that much. I do watch some, I've got three daughters so we'll watch the good stuff, the fun stuff.
+- Paul Riser tells it in an interesting way; he dissects it and tells the structure, you know, 'you don't mention that part here.' But that's what's interesting about it and the people who are absent are interesting too.
+- Yet there are some people - Steve Allen would dissect comedy forever; he's a really funny guy, but he would love talking about comedy. I'm doing it right now and you all seem bored.
+- I just did a play in New York which has been my best experience that I've had for maybe ever. It was Paul Weitz's play called Privilege and I was in New York for three months.
+- I've taken Midol before. My daughters find that hilarious. I had a headache and cramps, and there were no other pain relievers with caffeine in the house.
+- I have nine compartments in my brain, and four of them don't stop.
+- I was so depressed for so many years over trying to become a working comedian that my sense of self-worth would plummet.
+- I had enough therapy to know when I broke it down, it became clearer to me: Yes, comedy was kind of a cleansing thing for me to do.
+- I have a couple of jokes that are politically oriented, but it just sickens me to do them.
+- I've just never been a person that was political or religiously savvy. Except for the fact that I was born Jewish. That gives me 10 circumcision jokes.
+- People learn English from 'Full House.' Candace's husband, Valeri Bure, he learned to speak English watching it... 'Aw, nuts.' 'You got it, dude.'
+- As soon as I go into a dark subject, like discussing the people I've loved and lost, I off-road into absurdist comedy perversion. It's both a means of protection and a kind of denial, a blessing and a curse. Wait, it's not a blessing at all. I guess it would be a bad habit and a curse.
+- Celebrity is a word that I find offensive. That's the c-word. I hate it. It means no discernible talent. It means all you want is to be famous. It doesn't mean you're a writer, an actor, a mime. I think I wanna not be a celebrity.
+- I love performing. I love the people. I sound like Liza Minnelli right now, don't I?
+- The nature of comedy is 'just do it.' But I think what's interesting about it is this joke has been around and why. And it's just saying what's wrong and how wrong can you be if you say it.
+- I don't roll like that but I've never been with a hooker either. Yeah, that's good to say in an interview cause I feel bad a little because people grew up watching me and that's a little disturbing.
+- I've had a pilot every single year that didn't sell for the past four years, that'll smack you in the back of the head. I had a really good one last year; I wouldn't have done the play in New York if I had gotten that one.
+- I really love making people laugh.
+- I never went to camp as a kid. I couldn't get into an Ivy League school. I wouldn't join a biker club.
+- Comedians' first ten minutes usually stay with them the first several years of their career. It's their mission statement. Their disclaimer that lets people know who they are. Or were. It's also a good time to make fun of your name if you have a funny or strange one.
+- I've met so many remarkable people so far, coming up through stand-up all these years, who just aren't alive anymore. Because they are dead. Some really great people who helped change my life and career, people like Richard Pryor, Sam Kinison, Rodney Dangerfield, Johnny Carson.
+- 25, 30 years ago, that meant something, they were making some money. And they were doing all sorts of comedy, screaming at the audience, basically crowd control. And then there was the whole urban comedy scene.
+- I don't censor myself, but I don't want to force my sick-skewed version of the world, either.
+- When you're famous, you're always famous. It doesn't go away.
+- I have a feeling I'm going to wake up one day and say 'I can't do dirty stuff anymore, I want to go all clean.' I'll do clean stuff too, I like to entertain people. Then they egged me on; we shot it at The Laugh Factory.
+- What I have now are good problems of trying to decide and what I really want to do is good work next. My phone's ringing a lot more and I've got nine lines so when it doesn't ring, it's very frustrating.
+- When you've seen a lot of bad stuff and just want to enjoy your life and be happy and have your kids happy and have your friends happy, you just have a value system where it raises the bar on what's important.
+- I think things just happen to people. That's healthier, I feel, than believing there's some grand scheme where your story is already inscribed in the Book of Life. Books get rewritten.
+- It's still a soft R, but when I watch other people's standup, I'm dumbfounded that people call me dirty. That's only because I did family television.
+- I've never not felt relevant.
+- It's 103 comedians, or however many it is, and how would everyone tell it. It's enough people of substance that it makes you think of the people who aren't there that are alive.
+- I really love standup because it's something that I've been literally doing for 40 years, which means I'm a thousand years old.
+- Now people want what the movie was about, which is violent comedy. And that's really what The Aristocrats is based on - what will a family do out of desperation.
+- It's interesting to talk to young comedians. I love it because it makes me go, 'Oh, that's how I can be funny.'
+- There's just something about the audiences in Detroit that I've always felt connected to. Detroit is different.
+- The whole thing for me is that I did 'Full House' and 'America's Funniest Home Videos,' and I look like a dentist, and I'm a dad. Being known as a dirty comedian turned into this weird thing. It's people's image of me.

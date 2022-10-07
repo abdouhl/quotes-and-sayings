@@ -1,0 +1,49 @@
++++
+author = "Lewis B. Smedes"
+title = "Lewis B. Smedes Quotes"
+quotes_len = "43"
+description = "the best 43 Lewis B. Smedes Quotes"
++++
+- God is not a doormat, nor should anyone else be a doormat.
+- My father was only thirty-one when he died of a heart attack, much too young for a father to die and leave his young wife with five rambunctious little kids to take care of. I was the youngest. Only a couple of months old when he died.
+- Our sense of fairness tells us that people should pay for the wrong they do.
+- Promise keeping is a powerful means of grace in a time when people hardly depend on each other to remember and live by their word.
+- Sometimes I like to list the strongest arguments I can find to support a point of view I think is wrong. When I have them before me, I am up against a real opponent rather than a hypothetical one that is an easy target for me to hit.
+- When we have been badly injured and clearly wronged, we make an instant caricature of the person who did it to us. We define him totally by the one wrong he did.
+- Some people have loved ones they will not forsake, even though they are a pain in the neck.
+- As I read the New Testament, I find only one path to salvation - the path of an informed faith in Jesus Christ.
+- Our society is pluralistic. We who accept the privilege of membership in that society agree to respect the people's right to live by their own religious precepts.
+- Retributive justice did not arise from any Christian principle; almost every pre-Christian society dealt with wrongdoers by causing them pain.
+- Some people still make promises and keep those they make. When they do, they help make life around them more stably human.
+- The lies we tell ourselves are the most subtle of all lies.
+- No one really forgives unless he has been hurt.
+- We are anxious in the face of our unchangeable past; we long to recreate segments of our private histories, but we are stuck with them.
+- Forgiving does not erase the bitter past. A healed memory is not a deleted memory. Instead, forgiving what we cannot forget creates a new way to remember. We change the memory of our past into a hope for our future.
+- Common sense suggests that if no one ever judged other people, there would be no real human community.
+- I believe that we should, on biblical grounds, tell all parents of mentally disabled children that God loves their children, regrets terribly that they are disabled, and will, when they die, carry them gently into a heavenly life where every person is forever whole.
+- Some people still have causes they will not desert, even though the cause seems lost.
+- Restorative justice is not a replacement of retributive justice, but a complement. It seeks the rehabilitation of the wrongdoer and the repair of the victim's injury.
+- Modern Americans suffer from a fear of judging. Passing judgment on the behavior of fellow human beings is considered an act of medieval, undemocratic intolerance.
+- In a sinful world, no community can exist for long where nobody is ever held accountable: no teacher would grade a student's performance; no citizen would sit on a jury or call a failed leader to account.
+- God does not give us salvation because we believe. Our believing is only the normal way of receiving the salvation he freely gives.
+- Nobody sees reality whole; we all need others to show us the parts of it that they see better than we do. Nobody sees reality with total accuracy; we all need others to correct our own vision.
+- When we forgive evil we do not excuse it, we do not tolerate it, we do not smother it. We look the evil full in the face, call it what it is, let its horror shock and stun and enrage us, and only then do we forgive it.
+- Nothing enables us to forgive like knowing in our hearts that we have been forgiven.
+- No doubt, corporate CEOs who lie to their shareholders and politicians who lie to their public know and believe intellectually that lying is immoral. Why then do they lie? They lie to others because they first lie to themselves.
+- To forgive is to set a prisoner free and discover that the prisoner was you.
+- The problem with revenge is that it never evens the score. It ties both the injured and the injurer to an escalator of pain. Both are stuck on the escalator as long as parity is demanded, and the escalator never stops.
+- The Holy Spirit, thank God, often enables people to forgive even though they are not sure how they did it.
+- Our history is an inevitable component of our being. One thing only can release us from the grip of our history. That one thing is forgiveness.
+- Any lazy or biased fool can have opinions; making judgments is the hard work of responsible and compassionate people.
+- You will know that forgiveness has begun when you recall those who hurt you and feel the power to wish them well.
+- Forgiving is love's toughest work, and love's biggest risk.
+- Seeing reality for what it is is what we call discernment. The work of discernment is very hard.
+- Nothing is more private than a woman's body; it is her physical, emotional, and moral citadel. She cannot be free at all if she is not free to decide for herself, in private, what to do with her body.
+- True, the apostles did not expressly say that people will be saved only if they repent, believe, and confess. But most evangelicals assume - with good reason - that this is what the apostles implied.
+- The blood of Christ covers all of our sins, but each of us must do personal business with God in order to experience his forgiveness.
+- What is a disloyal act? A person is disloyal if he treats you as a stranger when, in fact, he belongs to you as a friend or partner. Each of us is bound to some special others by the invisible fibers of loyalty.
+- Jesus said that we should render to the state what properly belongs to the state, and though he had taxes in mind, we might reasonably infer that giving the state the job of punishing wrongdoers is one way of giving the state its due.
+- The right to personal privacy is precious. Without it, we are all potential victims for a prying secret police.
+- The God who has the whole world in his hands has grace for the whole world in his heart.
+- At the cross, God was punishing Jesus for the sins of the world. God's justice required a penalty from sinners, and in his unspeakable love, he paid the penalty himself in the person of his crucified Son.
+- It takes one person to forgive, it takes two people to be reunited.

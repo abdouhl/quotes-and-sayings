@@ -1,0 +1,30 @@
++++
+author = "Illeana Douglas"
+title = "Illeana Douglas Quotes"
+quotes_len = "24"
+description = "the best 24 Illeana Douglas Quotes"
++++
+- I come from a pretty strange family.
+- I'm a big fan of Albert Brooks, Nichols and May. I'd like to follow in their footsteps and do comedy films.
+- When we were doing a scene, lots of times we would collapse giggling, because it seemed so silly because it felt like we were doing a home movie at times.
+- I met Patricia Neal, John Houseman. But I loved my grandfather because he was this kind, talented man.
+- We were big Saturday Night Live and Eddie Murphy fans.
+- There's too much insecurity on studio sets, with all the people standing around, whispering.
+- The best situation is where they cast you and then they trust you.
+- I love anything to do with ventriloquism and magic.
+- In high school, my goal was to be a writer for SNL, then I got into the acting.
+- I always wanted to get into the horror genre. I like scary movies. I want to go to the fan shows and sign posters with my head hanging by a thread like a B-movie actress.
+- I had an obsession that I was male characters from movies.
+- I'm a huge poster collector.
+- I wore a lot of vintage clothing. I dressed like a reporter, with a little card in my hat. I had these fantasies of who I wanted to be, so I'd dress like an explorer, a cowboy. I dressed up like Elton John a lot too. That was another period.
+- I loved the idea of the Nerd as Hero, which Ghost World also had.
+- I want to be an animated character. I'm also doing more writing and directing.
+- I like doing movies that relate to people's experience.
+- I love sketch comedy. My real goal is to do something with Albert Brooks. That would be my fantasy. I stay up night and day thinking up stuff he might find funny.
+- I like the idea of capturing people who aren't there to save the world.
+- When I do a character, I try to base it on someone I have met or an experience I've had.
+- God only knows what else is on the web about me.
+- It's nice to see a movie where people are actually succeeding.
+- I've done a few studio films in the last few years where I feel like I've done good work, and then I only end up in two scenes. That's been very disappointing.
+- It was an interesting way to come across in my first big role. To work with Robert DeNiro was very exciting.
+- I know as I'm taking my dying breath, the ambulance guy will ask me why they cancelled Action.

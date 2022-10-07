@@ -1,0 +1,31 @@
++++
+author = "Renzo Piano"
+title = "Renzo Piano Quotes"
+quotes_len = "25"
+description = "the best 25 Renzo Piano Quotes"
++++
+- The difference between a builder and an architect is that an architect also cares about desire, about dreams.
+- In some way, people believe that if you are permeable, if you are a good listener, you don't have the quality of somebody with a firm attitude. This is what, fundamentally, I got from my mother.
+- A builder is like a little god - somebody who does things, doesn't just draw things.
+- When you design a building, you start from a general philosophy, and you come down, and you start from detail and come up. Only the theoretical architect believes that you can make the concept and then sometime, somebody will come to build it.
+- Architects have to dream. We have to search for our Atlantises, to be explorers, adventurers, and yet to build responsibly and well.
+- A museum is a place where one should lose one's head.
+- A piazza is not a plaza. The plaza is the theme park of the piazza; the plaza is the commercial version. A piazza is an empty space with no function. This is what Europeans understand.
+- In architecture you should live for 150 years, because you have to learn in the first 75 years.
+- As an architect, you cannot be so arrogant as to say you are 100% sure about what you do.
+- Architecture is a very dangerous job. If a writer makes a bad book, eh, people don't read it. But if you make bad architecture, you impose ugliness on a place for a hundred years.
+- As an architect, you have to provide a shelter to enjoy art. And you have to love art. It's like when you make a concert hall. You must love music. This is the reason why you make the space, to enjoy music - making a space for art is the same thing.
+- Enjoying art is a personal matter. It's made up by contemplation, silence, abstraction.
+- Every year I spend one month just sailing, but I still work when I'm on the boat. You never separate work from leisure. A boat is like a magic world, like a little island.
+- There is something about giving everything to your profession. In Italian, an obsession is not necessarily negative. It's the art of putting all your energy into one thing; it's the art of transforming even what you eat for lunch into architecture.
+- You have to accept as an architect to be exposed to criticism. Architecture should not rely on full harmony.
+- When I was a student in the '60s, I dreamt of making a house 7 feet by 7 feet, as a dream of freedom, of self-moderation.
+- Great American art needs the idea of uninterrupted spaces, like a loft, which itself is something very American.
+- I don't want to be romantic, but one of the most important things is to have happy buildings... it's like having a family with a lot of children.
+- I came to architecture from building. Because my father was a builder, everybody was - and is - a builder in my family.
+- In a way I spend my entire life stealing from everything - from the past, from cities I love, from where I grew up - grabbing things, taking not only from architecture but from Italy, art, writing, poetry, music.
+- I don't remember a single thing in my childhood that was not related in some way to building.
+- The day I went to see my father to say I wanted to become an architect, he was a bit surprised, because for him being a builder is much more than being just an architect. He was very angry, and I never thought I could do something else.
+- London is one of the most civilised places in the world for the procedure of making architecture and urban design.
+- I think people should try to teach young children that these qualities - stubbornness and a capacity to listen - might look like they are opposites, but they are not.
+- I don't like the idea that the first preparation when you start to design your building has to put your label. I think this is not fair. It's not fair to the building or to the people, to the client, because every building tells a different story.

@@ -1,0 +1,101 @@
++++
+author = "Bojan Krkic"
+title = "Bojan Krkic Quotes"
+quotes_len = "95"
+description = "the best 95 Bojan Krkic Quotes"
++++
+- Italian football is just how I imagined it to be - far more tactical than the Spanish game which is based on technique.
+- Mark Hughes convinced me to come to Stoke, he has helped me and showed his trust in me from the beginning.
+- I love football, it's my life.
+- It is my goal to stay with Barcelona for a long time and be successful here.
+- In the end, I know my qualities and I know I'm not Messi. I'm Bojan.
+- For its part, one of the keys of Tottenham is that it has players who know each other very well for two or three years. They have not made changes and are managed by the same coach, Mauricio Pochettino. Therefore, they perfectly apply the idea of team and style of play.
+- I've been doing extra work but I always do. I want to feel at my best and I want to be ready when the gaffer gives me the chance.
+- In Italy, one game you win and score, you cannot go in the street because the people are so enthusiastic, and when you lose they go crazy. After the game they wait for you.
+- Nobody told me that I would be just a player to be exchanged. Nobody likes to be a part of that situation, especially not me.
+- I miss scoring lots of goals, but I have always thought that a striker should not be judged just by the amount of goals he scores. The work he does for the team is also important.
+- There's not a single club out there that can compete with Barcelona.
+- I am super happy to have finally scored in the Bundesliga. That makes me proud.
+- It is very uncomfortable to be dizzy 24 hours a day.
+- It is important to find a place where you feel trust, you feel belonging and stability.
+- Some people like Messi didn't have to learn a lot as his is a natural style. But of course you can improve your technique, your football intelligence, your everything.
+- I don't think it's fair comparing Barcelona's style with that of Roma.
+- I chose Milan for many reasons. It is a great club and the team is made of an historic group of players.
+- Barcelona have a unique approach to the game based on specific types of footballers playing together as one.
+- The No. 9, a team's centre forward, is a number that means a lot and, God willing, I hope to inherit it some day.
+- I've learned that the most important thing in football when finish a race are the experiences.
+- It's not good for anybody if they're out of a team. No one is happy when they're not playing but the most important thing in that situation is to be strong and to work hard.
+- I watch box sets. I worked my way through 'Breaking Bad' and 'Prison Break.'
+- I need to feel like I am important part of the team, if I get that the goals will come.
+- Sometimes innocence is a good thing but I think life, experiencing different situations, different clubs, gives you a lot of knowledge.
+- Those of us who have feeling, who are sensitive, who can be affected, need a good shield. Footballers are very young and they're exposed. Even at under-15s, players have Twitter and I'm sure they're already getting insults... it's ugly, it sullies society and football.
+- That's the good part of an injury, it strengthens you in many ways.
+- Stoke City gave me the opportunity to play in the most competitive league in the world, and I have only words of gratitude for their trust and for the way they have treated me.
+- I learned and played with the very best like Messi, Xavi and Iniesta.
+- When you play with a big club, you need to get results every single day, even more when a homegrown player goes into the first team. It's not easy.
+- I am very happy and satisfied with my first year in Italy.
+- As a fan, Guardiola is the best coach in the world, but personal things that have happened to me were hurtful.
+- I still feel it was a privilege to be a part of this team the past years, that I helped make Barca the best team in the world.
+- I write a diary every day.
+- Being a home-grown player, I achieved what I set out to do by playing and scoring for Barca. I consider I was a success.
+- I like to play as a striker or secondary striker.
+- This is football, things can change very fast. Let's be clear about it though: I will not be used as change to facilitate someone else's transfer.
+- I made my debut very early and a lot of things happened to me at a young age, but I was there for the best time in Barcelona's history and played with the best players in the world.
+- Mark Hughes really believes in me, he makes me feel as though I'm a great footballer.
+- I was called up for Spain against France, my international debut, and it was said that I had gastroenteritis when I had an anxiety attack. But no one wants to talk about that. Football's not interested.
+- Messi scores three goals every game. If you score one goal, you're not Messi.
+- I thank God for having played for four years in the best Barcelona team in history, but playing in the Premier League is also very important.
+- In Spain, people do not respect the players, the same in Italy. In England, it looks like a different world - the people admire the player, but also respect the player.
+- The footballer's career is very long and staying on the top for many years is always very difficult.
+- One thing that I like from a coach is that they don't put up too big a distance between the player and the trainer.
+- For me, what makes Liverpool special is that they are a team that works very well on the lines, very compact, in which everyone attacks and defends.
+- At Barcelona from the early days I was seen as a goalscorer. Going somewhere else for a while has shown me I can enjoy games from a perspective other than just scoring goals.
+- I feel really proud of my career - more here in England than in Spain. There are different mentalities. Here the people respect you.
+- And the most important thing isn't the trophies, it's the experiences, what you lived, what's here in your heart, what you know, what you live. No one can ever steal that from you.
+- If you become their property it is much clearer for you, for the club, for everything. It was a great experience to play in three different teams, different leagues, different experiences, but if I wanted to improve I had to break this cycle and make my own way. That's why I signed this contract to come to Stoke.
+- I like to get the ball on the ground, make good plays and move the ball around the pitch quickly at a good tempo.
+- Anxiety affects everyone differently. I spoke to someone who felt like their heart was beating 1,000 times a minute. With me, it was a dizziness, feeling sick, constant, 24 hours a day.
+- I like to play, it doesn't matter where.
+- I played many matches and got experience very early. Did I lose some of my childhood? This is one of the things that I am more sensitive about and that touched me the most, because I am a family person. There are many moments that I haven't had the chance to enjoy with my family and also with my friends.
+- My target is enjoying and proving to myself that I am progressing.
+- Frank Rijkaard put me in the first team when I was 17 and gave me every week the chance to play with the first team and start my way in football. I was so young and my dreams came true so quickly thanks to Rijkaard.
+- Feelings are above money.
+- For me, the wind is the worst weather you can have to play football.
+- Without doubt, some of the happiest moments of my career have come in a Stoke shirt.
+- Step by step I'm getting my opportunities and what's important for me is to be prepared to show my best whenever possible.
+- My Italian adventure was positive because I improved a lot in tactical terms, most of all defensively, which is something I hadn't worked on quite so much.
+- One thing I've been taught from young is that you have to work hard, turn up to extra training sessions, etc.
+- My mission is to be kept on by Milan. Nobody wants to stay with the Rossoneri for only for one season.
+- I am flattered Serbia are interested in me and for the great effort they are making. But I am Spanish and my desire is to play for Spain.
+- When you are 17, you don't know what pressure is, because you play with the best team in big stadiums with big players. But when I look back now, it's difficult for a 17-year-old to get by and deal with the whole situation.
+- When you play, of course you want to win, but the most important thing about pre-season is improving your fitness.
+- The more you play, you get a better rhythm and play better.
+- It is an honour for me that Mainz gives me the opportunity to prove myself in another top European league.
+- You do not always have to play in the Camp Nous and the Old Traffords and with pleasant climates. It's different experiences that you take in... that's also a part of football.
+- I am a striker or at least a playmaker behind the front man, certainly not a wide man. But with Rome and Milan, I was only playing on the wings.
+- Christmas time is for me one of the most special times of the year.
+- It's a quiet life. Normally it's training, house, gym.
+- One of the factors that has helped me to reach 100 games was not to lose hope.
+- The group of players that you see in the Barca dressing room is unique. There are a lot of homegrown players and others who really care for Barcelona a lot as well.
+- My only hope is to see more frequent game time and even play alongside Ibrahimovic. We have two different styles and we can complement each other well.
+- But I think that if a club like Barcelona sign a player, it is because he has the right qualities.
+- I hope my role is an important one at Roma.
+- I need match practice of course, I need minutes in my legs to reach my best form.
+- I started very young and it is not easy to get to grips what I achieved at the age of 17.
+- My first year I scored 10 goals in La Liga. Then people started saying 'yeah, the new Messi.'
+- It is clear that Barca are the best team in the world, and can call on the best players in the world, but we will only achieve something if we are convinced we can do it. We must only think of giving our all.
+- I think when you are 17 you are very innocent.
+- Eventually, when I retire, I can say I've played at the Britannia Stadium on a Wednesday at 7 P. M. in the cold and wind.
+- I was looking to be in a club where you feel the love, a family where everyone is fighting for the same thing. I'm like that as a person.
+- I can't put this down. I'm reading it in Spanish but I am still having English lessons. It is a motivational book about basketball legend Michael Jordan. His determination was inspiring. It helps me focus and drives me on.
+- I love watching Santi Cazorla.
+- I miss everything that surrounds the club. I miss my colleagues, my friends and everyone who cares for Barcelona.
+- I watch Denzel Washington films with subtitles.
+- Barca have given me everything, and I feel at home here.
+- In Holland, I have got the buzz back playing as a centre-forward, which is where I perform best. Ajax always appealed to me from when I was young and they gave me a chance to play in the Champions League too.
+- When I decide to do things in my life, it's because I feel it.
+- I didn't play much for Roma and arriving here at Milan is a step forward for me.
+- In my head, I am always saying that I should play every minute of every game because it is my job and it is what I love to do.
+- The relationship with Pep wasn't a very good one.
+- My years at Barcelona are a big help. I spent four dream years there.
+- Pochettino is a manager with a lot of character, so Tottenham applies it in the field. That's why they have eliminated big clubs like Manchester City or Ajax.

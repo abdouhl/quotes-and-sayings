@@ -1,0 +1,71 @@
++++
+author = "Ross Duffer"
+title = "Ross Duffer Quotes"
+quotes_len = "65"
+description = "the best 65 Ross Duffer Quotes"
++++
+- We're from North Carolina originally.
+- The summers of our childhood were the best times of our lives.
+- Of course, watching 'Stand By Me' is, to me, the pinnacle of child performances in movies or shows. It doesn't get much better than that, and those kids, you feel like you know them instantly and they feel real.
+- It was Tim Burton's 'Batman' in, what, '89, I think? What we could see was there was someone behind the curtain controlling all of this, and you could see it from one Tim Burton film to the next, that the guy who made 'Edward Scissorhands' also made 'Batman.' You could connect the dots because his style was so distinct.
+- We wrote a script in college.
+- It was seventh grade or something like that when we started falling in love with stuff like Sam Raimi and Wes Craven and John Carpenter. Also, our filmmaking skills were getting a little more polished, so we thought we could actually make something that was not funny.
+- What I liked about 'Get Out,' which is so rare, is that there's just as much focus on getting to know and care about these characters on top of the film being clever and scary.
+- Big crowds scare me.
+- When I look back at something like 'E.T.,' not only does it hold up beautifully but it feels timeless.
+- We started making movies when we were really young, in the fourth grade... if you can call them movies.
+- At the end of the day, what really matters in 'Poltergeist' is that Carol Anne is missing and they have to go through a portal in the closet to get her back. That matters more than the backstory.
+- We have vague memories of the Eighties. But we were still pre-Internet and pre-cell phone for most of our childhood.
+- At the end of the day, 'Hidden' was a great experience. Because we know what it's like to fail. And we know it will happen again.
+- The biggest and most important part of our childhood was making movies. Our whole drive in life was to do this for a living, and then also to try to recapture that feeling that we had when we were telling those stories in the summer.
+- Even when 'Stranger Things' was finished and we couldn't touch it anymore, we saw all these problems still and we were begging Netflix to go back in and fix stuff. They were like, 'Guys, stop, just leave it alone.' But it was torturous, honestly.
+- Sometimes you see a monster sitting down in a chair and it looks ridiculous.
+- I don't wanna put people in front of green screens.
+- Some of our favorite movies, like 'Close Encounters of the Third Kind' and 'Breaking Away,' were set in Indiana.
+- There's a lot of 'Silent Hill' in the Upside Down, which people have noticed.
+- There's nothing worse or more grating than a bad child actor performance.
+- I have social anxiety.
+- We were the last generation to have the experience of going out with our friends to the woods or the train tracks and the only way our parents could connect with us was to say, 'It's time for dinner.'
+- We're 10 or something, and we're watching 'Evil Dead,' which you don't really see the humor in when you're 10 years old. It was just terrifying. And same with 'A Nightmare on Elm Street,' which is such a brilliant movie and such a brilliant concept.
+- That was always our favorite type of story, and that's the stuff we fell in love with. The peak of those type of ordinary-meets-extraordinary stories was in the '80s.
+- When you look at it and see, 'Oh,they made their first movie at 27,' you feel like a jerk saying it felt like forever, but at the time it did.
+- In college, even, we shot on film.
+- Game of Thrones' really opened the door. It let people see that genre shows are worthy.
+- One reason I loved '80s monsters is after I watched the movie, I could go into my room with crayons or markers and I could very simply draw these monsters that I fell in love with.
+- We wanted it to have a simplicity to it, so that if you're a 12-year-old and you're watching the show and you get inspired, you could easily sketch this thing out with your markers or crayons or whatever, then you'd show your friends and they'd instantly go, 'Oh yeah, that's the Demogorgon, that's the monster from 'Stranger Things.'
+- I remember it took us so long to see 'Gremlins 2' - all my friends had seen it, but our mom was just like, 'no PG-13.'
+- We hung out with a group of nerdy friends playing games.
+- We were seeing TV becoming increasingly cinematic, with stuff like 'True Detective.' And 'Game of Thrones' opened up 'genre TV' and showed it doesn't have to be cheesy.
+- I love playing into those horror tropes of 'don't go into the basement, you idiot.' I love that, so it's fun to sometimes play into it and sometimes against type and the tropes.
+- I don't go on Reddit, because I know that'll be quicksand and I won't be able to get out.
+- We weren't playing much Dungeons and Dragons, we were mostly playing Magic the Gathering, but very similar. And we would go out in the woods and you felt like you were on these adventures.
+- We have our Upside Down document which describes its rules and its mythology in quite a bit of detail, but I think we're just going to slowly parse that out, and maybe not even fully use all of it.
+- All I know is it was very easy for us to write the Barb character and I think that, you know, Shannon Purser - who had never acted before - just did such a brilliant job realizing her. And, again, without very many lines - 25 lines. And I think everyone feels like either they knew this girl or they were this girl.
+- The first 'Gremlins' was PG because I think it was before Spielberg scarred people with 'Temple of Doom.'
+- It's my favorite, when you see those auditions that you're just like, 'That's the guy.'
+- Chapman pushes internships a lot, and starting the summer of sophomore year we started interning because we knew that was the best way to make connections.
+- The minute you start calculating and trying to figure out what a huge audience is going to think, you're going to fail.
+- As brothers, you still get in plenty of disagreements, but I think that generally we work stuff out.
+- I remember reading 'The Running Man' in like one night.
+- High school was terrible for us.
+- We had this idea, and I think a lot of people did going in, that you can make some short film and it's going to get industry attention and that's going to be your thing. And it was only later on at school that we realized that's very rare that a short film is going to capture the attention of anyone.
+- Most sequels are generally disappointments.
+- We love genre, but in film if you make a genre film it has to all be about the genre. We were excited to be able to tell more complex stories on television.
+- I love the early days of seasons, because you are filled with all of these possibilities.
+- Jaws' was a big one. It's a classic. The shark not working while making that movie made it much better.
+- One reason that we moved into TV is that we love genre. But the genre stuff that we grew up loving wasn't just about jump-scares, it was really about characters.
+- Of a thousand people, someone's not a good guy.
+- We just want to make sure we're excited every year and we're not treading water.
+- So many kids nowadays, it's almost like they go through this Disney training where they're taught to be cute and play it up for the camera, and they're trying to get laughs.
+- It was strange initially to be directing Winona Ryder. Of course it was.
+- I have a problem with trailers, because I love them too much. I'm one of those nerds that watches them on repeat.
+- There's so much art out there, and I'm happy to see people who are drawing monsters that are very simple designs.
+- If you look back at a lot of these Spielberg movies and Stephen King books, even though there's a lot of fun and a lot of camaraderie, there's also a bit of sadness there, whether it's 'E.T.' with the divorce or in Stephen King's 'It,' where there's racism. There's always some sort of evil - there's sadness and people aren't happy.
+- The format of Netflix was the dream for us. It allowed us to make cinematic, longer episodes without interruption.
+- We were so focused on the production aspect of it that it wasn't until later in our college experience that we realized we needed to focus on writing. And once we did, that sort of became our way into Hollywood.
+- I perform the best when I'm isolated or with a few friends.
+- Tim Burton - he's not exactly a subtle filmmaker. I mean that in a good way.
+- If you have a successful movie, No. 2 is always a little bit bigger.
+- We always loved that idea of the Amity feel in 'Jaws,' in a coastal town.
+- Sound is very important to us, even in our scripts. We write-in tons of sound effects.
+- We still love movies.

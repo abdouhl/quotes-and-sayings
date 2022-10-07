@@ -1,0 +1,125 @@
++++
+author = "Robert Kennedy"
+title = "Robert Kennedy Quotes"
+quotes_len = "119"
+description = "the best 119 Robert Kennedy Quotes"
++++
+- The eradication of racial and religious prejudice in the United States - and in the rest of the world as well - is a long-term process.
+- Every generation inherits a world it never made; and, as it does so, it automatically becomes the trustee of that world for those who come after. In due course, each generation makes its own accounting to its children.
+- I was the seventh of nine children. When you come from that far down you have to struggle to survive.
+- The history of antitrust law enforcement shows that successful antitrust prosecutions have often strengthened and brought vitality to extremely large companies and businesses.
+- Those who challenge the law in one or another of its aspects weaken the whole legal structure of society. For one man to disobey a law he does not like is to invite others to disobey another law which he may regard as indispensable to his own livelihood - or life.
+- Progress is a nice word. But change is its motivator. And change has its enemies.
+- In the last analysis, our every right is only worth what our lawyer makes it worth.
+- It is easy to overlook the importance of the young in underdeveloped countries. It is the natural course for nations, and diplomats, and those who publish newspapers, to speak to the established order. Seeking out the young requires a conscious effort.
+- Even as my father grew up in Boston, Massachusetts, signs told him: 'No Irish Need Apply.'
+- When our forbears - yours and mine - came to America, they came because this country promised them something. It promised them an opportunity, nourished by education, not merely to grind for a bare living, but to strive for a good life.
+- The fact that free men persist in the search for the truth is the essential difference between Communism and Democracy.
+- There has been far too much hypocrisy in the field of civil rights. It is easy enough to give rousing speeches or call for legislation which has no possibility of passage.
+- There are people in every time and every land who want to stop history in its tracks. They fear the future, mistrust the present, and invoke the security of a comfortable past which, in fact, never existed.
+- The glory of justice and the majesty of law are created not just by the Constitution - nor by the courts - nor by the officers of the law - nor by the lawyers - but by the men and women who constitute our society - who are the protectors of the law as they are themselves protected by the law.
+- Ultimately, America's answer to the intolerant man is diversity, the very diversity which our heritage of religious freedom has inspired.
+- Our scientists grapple with the difficulties of placing a man on the moon, but the immediately troubling concern of our society is whether men of different races can sit together at a lunch counter.
+- The free way of life proposes ends, but it does not prescribe means.
+- I do not run for the presidency merely to oppose any man, but to propose new policies. I run because I am convinced that this country is on a perilous course and because I have such strong feelings about what must be done, and I feel that I'm obliged to do all I can.
+- Within the United States, we have put great emphasis upon political freedoms. Because it has been our experience that these freedoms can lead to others.
+- Science began as one of the noblest expressions of man's reason. It will continue to serve humanity so long as it never forgets that human beings remain the heart of its purpose.
+- The leaders of the world face no greater task than that of avoiding nuclear war. While preserving the cause of freedom, we must seek abolition of war through programs of general and complete disarmament. The Test-Ban Treaty of 1963 represents a significant beginning in this immense undertaking.
+- In truth, the world is now a seamless web from which no nation, large or small, young or old, can disassociate itself. Every attitude and every action of every nation can affect the welfare and security of every other nation around the globe.
+- If the purpose of the wall was to destroy Berlin, Herr Ulbricht and his cohorts have erred sadly. Berlin is not only going to continue to exist - it's going to grow and grow and grow. Its ties to West Germany will not be severed.
+- I am ashamed to report that my father, who is 73, has never been beaten by any of his four sons in golf. We have all become resigned to the fact that he has determined that he won't be beaten.
+- Let us dedicate ourselves to what the Greeks wrote so many years ago: to tame the savageness of man and make gentle the life of this world.
+- The world of sports knows no religious, racial or political differences. Athletes, from whatever land they come, speak the same language. The lessons of competition are lessons for life.
+- From the first moment of independence, the United States has been dedicated to innovation as a way of government and a way of life.
+- It is one thing to open the schools to all children regardless of race. It is another to train the teachers, to build the classrooms, and to attempt to eliminate the effects of past educational deficiencies. It is still another to find ways to feed the incentive to learn and keep children in school.
+- I believe indeterminate sentencing can be extremely useful, but I also believe that any such system should always take into consideration the special knowledge as to the facts in a case which only the trial judge possesses.
+- But suppose God is black? What if we go to Heaven and we, all our lives, have treated the Negro as an inferior, and God is there, and we look up and He is not white? What then is our response?
+- Freedom possesses many meanings. It speaks not merely in terms of political and religious liberty but also in terms of economic and social progress.
+- Desegregation of schools does not automatically transform them into better schools. It is only a step. The larger goal is to see that the education of our youth is not merely desegregated, but that it is excellent.
+- It is the right of government to protect the weak; it is the right of the weak to find in their courts fair treatment before the law.
+- Whenever men take the law into their own hands, the loser is the law. And when the law loses, freedom languishes.
+- Lawyers have their duties as citizens, but they also have special duties as lawyers. Their obligations go far deeper than earning a living as specialists in corporation or tax law. They have a continuing responsibility to uphold the fundamental principles of justice from which the law cannot depart.
+- One of the great creative statesmen of our age was Franklin Roosevelt. He was creative precisely because he preferred experiment to ideology.
+- Good union leaders make excellent public leaders in the legislative and executive branches.
+- America's answer to the intolerant man is diversity - the very diversity which our heritage of religious freedom has inspired.
+- All of us might wish at times that we lived in a more tranquil world, but we don't. And if our times are difficult and perplexing, so are they challenging and filled with opportunity.
+- Few will have the greatness to bend history itself; but each of us can work to change a small portion of events, and in the total; of all those acts will be written the history of this generation.
+- I don't believe newspaper reporters can substitute for a district attorney, but a newspaper has a very valid investigative role. Newspaper reports on corruption in government, racketeering and organized crime conditions can be very helpful to your communities and the whole country.
+- The poor man looks upon the law as an enemy, not as a friend. For him, the law is always taking something away.
+- The hardest problems of all in law enforcement are those involving a conflict of law and local customs. History has recorded many occasions when the moral sense of a nation produced judicial decisions, such as the 1954 decision in Brown v. Board of Education, which required difficult local adjustments.
+- One-fifth of the people are against everything all the time.
+- Wars of any magnitude release powerful social and economic forces which can change the whole face of the world.
+- Communism everywhere has paid the price of rigidity and dogmatism. Freedom has the strength of compassion and flexibility. It has, above all, the strength of intellectual honesty.
+- Hand in hand with freedom of speech goes the power to be heard, to share in the decisions of government which shape men's lives.
+- The travail of freedom and justice is not easy, but nothing serious and important in life is easy. The history of humanity has been a continuing struggle against temptation and tyranny - and very little worthwhile has ever been achieved without pain.
+- In the long run, a flexible sentencing procedure which works to rehabilitate offenders offers the best hope in the majority of cases in the Federal courts.
+- Martin Luther King dedicated his life to love and to justice between fellow human beings. He died in the cause of that effort.
+- Now I can go back to being ruthless again.
+- Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+- Automation provides us with wondrous increases of production and information, but does it tell us what to do with the men the machines displace? Modern industry gives us the capacity for unparalleled wealth - but where is our capacity to make that wealth meaningful to the poor of every nation?
+- Unions, by and large, are democratic organizations with freely chosen leaders and policies determined by the membership. They concern themselves with individual dignity not only in their aims but in their method. We have no better example of what is worthy of emulation abroad than the workings of a good union.
+- It is not enough to understand, or to see clearly. The future will be shaped in the arena of human activity, by those willing to commit their minds and their bodies to the task.
+- Tolerating organized crime promotes the cheap philosophy that everything is a racket. It promotes cynicism among adults. It contributes to the confusion of the young and to the increase of juvenile delinquency.
+- The most significant civil rights problem is voting. Each citizen's right to vote is fundamental to all the other rights of citizenship and the Civil Rights Acts of 1957 and 1960 make it the responsibility of the Department of Justice to protect that right.
+- I can understand the Chinese Wall: it was built as a defense against marauders. But a wall such as that in Berlin, built to prevent people from seeking freedom, is almost beyond comprehension.
+- I come from a family that has always emphasized and enjoyed sports - golf, tennis, football, baseball and the rest.
+- Satellite communications connect television screens in Japan with television cameras in England, and the distance of half a world loses its meaning.
+- If I get to be president, what can I do anyway? With Congress and the press, what chance do I have to make basic changes?
+- Circumstances of crimes vary. So do motives. And so do prospects for rehabilitation. The number of imponderables makes it impossible to sentence by formula and still sentence justly.
+- A high standard of living cannot remain the exclusive possession of the West - and the sooner we can help other peoples to develop their resources, raise their living standards, and strengthen their national independence, the safer the world will be for us all.
+- What has violence ever accomplished? What has it ever created? No martyr's cause has ever been stilled by an assassin's bullet. No wrongs have ever been righted by riots and civil disorders. A sniper is only a coward, not a hero; and an uncontrolled or uncontrollable mob is only the voice of madness, not the voice of the people.
+- I thought they'd get one of us, but Jack, after all he's been through, never worried about it I thought it would be me.
+- I believe that, as long as there is plenty, poverty is evil.
+- Every American has the duty to obey the law and the right to expect that the law will be enforced.
+- Nothing is more false than the notion that the triumph of Communism is inevitable or that the Communists are steadily pushing the free world into a corner.
+- Communism counts its opportunities in terms of decades - not of weeks. Its means of aggression consist not only of nuclear weapons and missiles with enormous boosters, and not only of spies, agents and terrorists, but of great masses of men and women, deluded by a common ideology which inspires them with a false hope.
+- To the extent that laws are founded on morality and on logic, they can lead men's hearts and minds.
+- In government, our chief executives have been lawyers. The great majority of our cabinets and congresses are and have been men trained in the law. They have provided the leadership and the statecraft and the store of strength when it was needed.
+- It is one thing to open job opportunities. It is another to train people to fill them, or to persuade American enterprise to seek Negro as well as white applicants.
+- We develop the kind of citizens we deserve. If a large number of our children grow up into frustration and poverty, we must expect to pay the price.
+- Yesterday, we fought wars which destroyed cities. Today, we are concerned with avoiding a war which will destroy the earth. We can adapt atomic energy to produce electricity and move ships, but can we control its use in anger?
+- I am deeply impressed with the gravity and wisdom with which most federal judges approach the responsibility of sentencing. It is a difficult, soul-searching task at best.
+- If any man claims the Negro should be content... let him say he would willingly change the color of his skin and go to live in the Negro section of a large city. Then and only then has he a right to such a claim.
+- People say I am ruthless. I am not ruthless. And if I find the man who is calling me ruthless, I shall destroy him.
+- Yesterday, we sought telescopes good enough to see all the planets. Today, we seek vehicles good enough to reach them.
+- Everything that makes man's life worthwhile - family, work, education, a place to rear one's children and a place to rest one's head - all this depends on the decisions of government; all can be swept away by a government which does not heed the demands of its people, and I mean all of its people.
+- American books reflect our common heritage with many other nations and their influence upon our culture. The influences are endless, linking us with the rest of the world. Thus, they are good ambassadors for us.
+- One of the primary purposes of civilization - and certainly its primary strength - is the guarantee that family life can flourish in unity, peace, and order.
+- It certainly should not surprise us that a young person without any real stake in a legitimate occupation or career may get into trouble more easily. Such persons readily accept the idea that they have been unjustly deprived of money, status, and opportunity.
+- The right to vote is the easiest of all rights to grant.
+- When companies get together secretly to fix prices and attempt to eliminate competition, honest businessmen suffer. I think this is wrong.
+- We know that freedom has many dimensions. It is the right of the man who tills the land to own the land; the right of the workers to join together to seek better conditions of labor; the right of businessmen to use ingenuity and foresight to produce and distribute without arbitrary interference in a truly competitive economy.
+- The Gross National Product includes the destruction of the redwoods and the death of Lake Superior. It grows with the production of napalm and missiles and nuclear warheads... It includes... the broadcasting of television programs which glorify violence to sell goods to our children.
+- The Gross National Product measures neither our wit nor our courage, neither our wisdom nor our learning, neither our compassion nor our devotion to our country. It measures everything, in short, except that which makes life worthwhile, and it can tell us everything about America - except whether we are proud to be Americans.
+- Ultimately, Communism must be defeated by progressive political programs which wipe out the poverty, misery, and discontent on which it thrives.
+- Since the days of Greece and Rome, when the word 'citizen' was a title of honor, we have often seen more emphasis put on the rights of citizenship than on its responsibilities.
+- In my judgment, physical fitness is basic to all forms of excellence and to a strong, confident nation.
+- I like to be involved in politics. I like to be involved in government. I've been in politics all my life. I would like to remain in government. I don't think that's so sinister.
+- When historians consider the significance of the Berlin crises of the mid-20th century, I do not believe that they will record it as an incident in the encirclement of freedom. The true view, in my judgment, will be to see it rather as a major episode in the recession of communism.
+- When I was counsel for the Senate Rackets Committee, about 25% of the important leads which our committee developed came from newspapers. This increased my respect for those courageous newspapers which assisted us. It also caused me to look with wonderment at some of the newspapers that did not.
+- If freedom makes social progress possible, so social progress strengthens and enlarges freedom.
+- What is learned on the athletic field is not forgotten, nor are the lessons of character that are forged there ever lost. Consider the contributions in the field of public life, business, law, medicine, and the military of those who actively participated in athletics.
+- We will find neither national purpose nor personal satisfaction in a mere continuation of economic progress, in an endless amassing of worldly goods. We cannot measure national spirit by the Dow Jones Average, nor national achievement by the Gross National Product.
+- The ultimate relationship between justice and law will be an eternal subject for speculation and analysis. But it may be said that in a democratic society, law is the form which free men give to justice.
+- The tyranny of Communism is as old as the Pharaohs and the Pyramids - that the State stands above all men and their individual aspirations.
+- We in the United States believe in the protection of minorities; we recognize the contributions that they can make and the leadership that they can provide; and we do not believe that any people - whether majority or minority, or individual human beings - are 'expendable' in the cause of theory or of policy.
+- I have told friends and supporters who are urging me to run that I would not oppose President Johnson under any foreseeable circumstances.
+- What is objectionable, what is dangerous about extremists, is not that they are extreme, but that they are intolerant. The evil is not what they say about their cause, but what they say about their opponents.
+- One can find a squalid America as easily as a scenic America; a bitter, hopeless America as easily as the confident America of polyethylene wrapping, new cars, and camping trips in the summer.
+- Elections remind us not only of the rights but the responsibilities of citizenship in a democracy.
+- Let me make it clear that the Youth Employment Opportunities Act of 1961 is not primarily concerned with delinquency prevention. Rather, it is designed to help all types of young men or women who suffer deficiencies of training or opportunity which keep them unemployed.
+- Lack of education, old age, bad health or discrimination - these are causes of poverty, and the way to attack it is to go to the root.
+- Only those who dare to fail greatly can ever achieve greatly.
+- Each time a man stands up for an ideal, or acts to improve the lot of others, or strikes out against injustice, he sends forth a tiny ripple of hope, and crossing each other from a million different centers of energy and daring, those ripples build a current that can sweep down the mightiest walls of oppression and resistance.
+- No one needs to tell me about the importance of the free press in a democratic society or about the essential role a newspaper can play in its community.
+- Every society gets the kind of criminal it deserves. What is equally true is that every community gets the kind of law enforcement it insists on.
+- We know that we cannot live together without rules which tell us what is right and what is wrong, what is permitted and what is prohibited. We know that it is law which enables men to live together, that creates order out of chaos. We know that law is the glue that holds civilization together.
+- We must continue to prove to the world that we can provide a rising standard of living for all men without loss of civil rights or human dignity to any man.
+- In the cases that come before the Department of Justice involving a wide range of unlawful activities, we see repeated evidence of family and community failures.
+- President Kennedy has named two Negroes to District Judgeships and appointed Thurgood Marshall to the United States Court of Appeals. When I came to the Department of Justice, there were only ten Negroes employed as lawyers; not a single Negro served as a United States Attorney - or ever had in the history of the country. That has been changed.
+- President Kennedy's election was such an enlargement. It expanded religious freedom to include the highest office in the land. President Kennedy's administration was such an enlargement. It advanced the day when the bars of intolerance against all minority groups will be lifted, not only for the presidency, but for all aspects of our national life.
+- Where aspirations outstrip opportunities, law-abiding society becomes the victim. Attitudes of contempt toward the law are forged in this crucible and form the inner core of the beliefs of organized adult crime.
+- In the final analysis, poverty is a condition of helplessness - of inability to cope with the conditions of existence in our complex society.
+- The United States was born in revolution and nurtured by struggle. Throughout our history, the American people have befriended and supported all those who seek independence and a better way of life.
+- Our generation was born during the turmoil following the First World War. That war marked the dividing line - at least for the Western World - between the comfortable security of the 19th century and the instability and flux of our own time.
+- Some men see things as they are, and say why. I dream of things that never were, and say why not.

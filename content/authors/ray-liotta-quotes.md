@@ -1,0 +1,51 @@
++++
+author = "Ray Liotta"
+title = "Ray Liotta Quotes"
+quotes_len = "45"
+description = "the best 45 Ray Liotta Quotes"
++++
+- This is the profession I chose, and you really learn to save your money because you never know how it's going to go, but you still want to get out there and work.
+- When I read Copland, I really wanted Stallone's part.
+- I haven't seen about half the movies I've done. You know, you've got to make a living, but some I don't get a good vibe with.
+- I talk to my friends and, you know, they all seem to get relationships that aren't right. You kind of want someone who is not at your beck and call but loves the idea of being in a relationship and what that entails.
+- I think people like watching edgy things.
+- With any mannerisms or dialogue, you have to be careful you're not just serving yourself. What happens with improving is a lot of times, if you're not in the framework of the script, you're just making everything easier so it fits you.
+- What I really am is a homebody. I was a homebody even before I had a family. My days are filled with home stuff.
+- I feel I've done everything late in life. Got married late, and I didn't do my first movie until I was 31. But in this crazy business, you never know what's going to happen. Maybe after 20 years of making movies I'll become an overnight sensation.
+- You could just do independent movies, but I like bigger kind of studio movies, at least some of them.
+- Suddenly playing the charming bad guy was my thing.
+- Not like Chinese food, where you eat it and then you feel hungry an hour later.
+- You know, it was a small, independent movie and with Paramount becoming involved, it was obviously a good thing, but you can't put a round peg in a square hole.
+- As soon as I became proactive in producing my own stuff, I started getting other roles.
+- I was looking to become more proactive with my career because I wasn't crazy with some of the scripts I was getting - this was before Blow and Hannibal - so I decided to start my own production company.
+- People have all these preconceptions about me. Whereas if you look at the roles, Henry Hill was the nicest guy in 'Goodfellas!' I was a nice guy too in the comedy 'Heartbreakers.' And I was a really sweet father to Johnny Depp in 'Blow!'
+- Acting is playing pretend, playing a children's game at an adult level, but with children's rules. It's fun to play bad guys. I've never been in a fight in my life, so it's fun to play something that's different.
+- When I found out Cusack was involved, I liked that a lot.
+- Well, for Blow I had to age from 20 to 60, starting out in shape and then later putting on fat pads.
+- In college, I started out doing musicals and Shakespeare.
+- I didn't like some of the movies that were coming into me.
+- There are a lot of actors who will watch the monitors. They'll do a scene, and then the director will look back to see if he got whatever he wanted. I just find it odd to sit there and watch yourself.
+- I'm emotionally in tune with my feelings and what people mean to me, and I have no trouble saying it and relating to it.
+- I think I had a kind of pause for insight in my 20s when I wasn't in a relationship and my career wasn't going the way I wanted it to go. I had time for reflection then.
+- It would be nice to do a movie where I didn't have to choke the girl to get her.
+- My dad said, 'Go to college and take whatever you want.' So, I went to the University of Miami. When I got up to the line at registration, I saw that you had to take math and history. I said, 'There's no way I'm taking math and history.' And right next to it was the line for the drama department.
+- I know when I go to a movie I want to experience something, whether to laugh, to cry, to feel bad.
+- The Rat Pack was the piece that really kicked me out of that little funk that I was in and then Ted called me up and asked me if I wanted to be the dad in Blow.
+- I was on a soap opera before that for three years, where I was the nicest guy on earth.
+- I played pretend games as a kid, army, whatever, but I never wanted to be an actor.
+- I didn't start acting until I was in college, which was in the 70's.
+- I think that if you can achieve a balance, then you appease a lot of yourself and your career and what it takes to maintain in this business for a while.
+- Not all journalists are really journalists. They ask such stupid questions sometimes, especially the newer ones, and because... these people can't tell if you're joking around, you just can't have any sense of humour; you really can't.
+- So, you need to balance it out with bigger and smaller movies.
+- The first script I got was Narc and I really responded to it; it reminded me of a '70s type movie, I really liked the characters, I didn't anticipate the ending.
+- So I decided to form a production company with my wife and our partner Diane.
+- My wife read Narc as well and was really into it.
+- The independent-minded movies - it's always an uphill battle to get them made and seen. You do what you can, and go out there after and try to tell people about it, but at the end of the day, that's all you can do.
+- I think drug movies free the director to make intense films.
+- I love acting. It's an interesting challenge to make something that doesn't exist appear like it's happening, and to do it in a real way.
+- You don't do anything thinking that it's going to stick.
+- Today some actors get a little full of themselves about what they're doing.
+- Mafia guys are all just insecure people who want their money. They're like little seven-year old kids when they don't get their way. I knew guys like that growing up in New Jersey.
+- I've only been in one fight in my whole life... in 7th grade, yet everyone thinks I'm a maniac.
+- I just finished Narc, which was a really heavy duty, raw, independent.
+- I get up at six to work out. I've done it since school, it's always been part of my life. It's a good way to take the edge off. I like getting up early; I've got a daughter, I'm a single dad.

@@ -1,0 +1,103 @@
++++
+author = "Lizzie Armitstead"
+title = "Lizzie Armitstead Quotes"
+quotes_len = "97"
+description = "the best 97 Lizzie Armitstead Quotes"
++++
+- Most of my friends are non-cyclists. They are interested and proud of my achievements, but, equally, if I stopped tomorrow, they wouldn't say much about it!
+- There's been a lot of champions before me, and I'm sure there will be ahead of me.
+- I need to be fit and strong, and I don't want to carry any excess fat.
+- I'm excited to see the growth in women's cycling, and I think the Women's Tour has had a really positive impact on that change.
+- Cycling is a business.
+- I pay my taxes.
+- I've got a lot of silvers. Second seems to be something I end up being. I don't want to be the bridesmaid forever.
+- There's a lot of bunch finishes, which are hectic and kind of dangerous; you need a lot of luck to win those.
+- I'm not a victim, and I don't need to behave like one.
+- I'm quite un-traditional.
+- When you are on a climb, you always pick out people's words of encouragement, and it can push us on, without doubt.
+- It hurts me to consider anybody questioning my performances.
+- I'm quite a strong person, and I've become even stronger.
+- You can't expect a woman who's holding down a part-time job to train for the biggest race in the world. She has to have a minimum wage, and I think it's something that is pretty crazy that we don't have that.
+- In terms of being a famous person, it hasn't changed anything. It's not important for me.
+- I could have been banned. That's what I was most scared about. All the hard work being for nothing. It was basically my livelihood and my sport being taken away from me. It was everything.
+- As I get older, it's getting more frustrating because I'm starting to think about what I'm going to do after cycling, and I may be pushed to study alongside riding in order to prepare for retirement - all those things the professional blokes don't really have to think about.
+- For the rest of my life, I realise people are going to ask questions of me, but at the end of the day, I am a clean athlete, and I have worked hard.
+- I think about Rio every day. Every day in training, it's something that drives me forward. I want to be Olympic champion.
+- It's very special that the Olympics is in London. As a first Olympic experience, it's going to be pretty incredible.
+- As a female athlete, I think it's really important to stand up on a podium and represent females and what we're capable of, and I always try to make political statements with what I do rather than with headlines.
+- It's no big deal if I disappoint strangers.
+- I'm old-fashioned.
+- It's fantastic news that the Aviva Women's Tour will continue in 2016.
+- I will never cheat in any walk of life.
+- I am one of the best in the world, and it's a position I should get used to being in.
+- A family is something that I definitely want, but I'm 26, so I have plenty of time, and I try not to kind of confuse the two because, if I'm lucky enough, I want to make having a baby a personal decision rather than a career-defined one.
+- The harder the race, the better.
+- I'm one of the most tested athletes in the world.
+- As far as I'm concerned, as soon as you reach your goal, then that's the box ticked for me. I don't feel the need to repeat titles or repeat victories; as soon as I get the one, then I'm happy.
+- The UCI have to make the decision to put in rules into women's cycling that they have in men's cycling: you know, like a minimum budget to run a women's team and that sort of thing so that it becomes more professional.
+- I mean, for me, the reason I ride my bike and race is because I love doing it, not because I'm seeking recognition for it.
+- I've been successful because I've never been someone to shy away from taking responsibility.
+- I am proud, but I'm annoyed with myself for not believing in myself enough.
+- As a British rider, it's a privilege to be able to compete on home roads. The British public have really taken to cycling, and you can see that when the race goes through different towns: the community really gets behind it.
+- I don't particularly buy into all the nutrition fads and that sort of thing.
+- I am not a robot; I am a member of a family - my commitment to them comes over and above my commitment to cycling.
+- I have to make sure I get the right amount of protein and iron, and I take supplements for that. I think people would be surprised if they saw my diet, though; it's very normal.
+- I have a strong, inspiring, and professional group of women around me with Boels-Dolmans. We race and train incredibly hard as a team.
+- I never expected to compete at home in a UCI women's race - let alone as world champion.
+- It has been difficult to get back on the saddle, particularly after getting whiplash and concussion, but it's just about understanding that sometimes it's OK to say, 'I don't want to get back on my bike for week.'
+- When I have a family, I will be retired.
+- I remember if the telephone rang after 9 o'clock in the house, my mother would say, 'Who's ringing at this time?' We just wouldn't answer the phone.
+- I never gave up, and for that, I can be proud of myself.
+- The only thing that I can do - and the only thing that I've always done - is to ride my bike fast and get my head down and control the things I can control.
+- I used to think that in order to be lean, I had to under-eat.
+- It's fantastic to have the opportunity to race at home, so I wouldn't miss it.
+- A world championship medal on the road is something that I'm missing from my CV.
+- I can't feel sorry for myself.
+- Any woman in any career has to think about when they have children, if they want to have children, and how it's going to affect their career.
+- There are lots of things that could be done. We could get more help from the UCI, like forcing Pro-Tour teams to have a women's equivalent.
+- My focus has to be on my career.
+- I feel really lucky. There wasn't a doubt in my mind when Phil asked me to marry him.
+- I've never thought about it in training, 'If I do this, then maybe I can be on the SPOTY shortlist.'
+- It's not always about gold medals, I think. It has to be about development, and we are missing that in U.K. at the moment.
+- Integrity is something I strive for in every part of my life.
+- As long as my weight is healthy, then I eat what I want.
+- Cyclists need to obey the Highway Code, not run red lights, and not ride with iPods on, and motorists need to be more respectful and look out for cyclists.
+- I can only tell you that I am a clean athlete and an honest person.
+- I remember taking my stabilisers off my bike with my dad in the back garden. It was a small little bike, and it was called Poppy, had balloons on it, and was purple.
+- Outside the Olympics, there are massive discrepancies within all sports. But the positive side for me is that the Olympics are the biggest platform there is, and there's total equality across all sports.
+- I can't pick up the phone to everybody that doubts me and explain myself.
+- I have got lots of silver medals, from Delhi in 2010 and London in 2012, so it would be nice to pick up some golds, and the Commonwealth Games is a great place to start.
+- I'm 100 per cent motivated. I haven't done enough yet in cycling to be satisfied.
+- You've got all that 130 km. of being totally focused, and as soon as you cross the line, it takes a few seconds to realise what's happened.
+- There are a lot of people I look up to and respect, but there's nobody really specific I would call a hero.
+- I trust myself, the way I prepare. I feel like I know what I'm doing.
+- When I have children, it will be my choice, and I won't feel under any pressure.
+- My family will be disappointed only if I'm disappointed, and hopefully that won't be the case. I'm trying to view the Olympics like any other race and I think the London course will suit my style.
+- I don't look at my emails on the weekend or after 6 o'clock in the day.
+- I eat a lot more now than I ever used to. I have taken a real interest in nutrition and believe in the difference that makes when fueling your body correctly. That means never skipping a meal and making sure that my diet supports my training needs.
+- I need to learn to be happy and enjoy the achievement rather than already thinking about what I could have done better.
+- I have to be a leader now. I need to shoulder responsibility more than I used to. It's changed me, but I'm OK with that.
+- I'm a very goal-oriented person, so I look at the specific demands of a certain race and tailor my training towards that.
+- Crossing the line and being world champion, I've always dreamt about it, and now I've done it. It's quite a surreal feeling, but obviously very special.
+- I have never cheated anybody out of a victory, I have worked hard for every single race that I have won.
+- There is no pathway for female GB road cyclists, but at the same time, if you are wanting to be the best in the world, you have to forge your own pathway. It's not that things should be there on a plate for you. You have to work really hard, and that's what I've done, and I didn't let it stop me.
+- I will hold my head high in Rio and do my best for Great Britain.
+- I love being world champion.
+- The problem, as a female athlete, is that you don't want to come across as negative and moaning.
+- I'm suited to harsh conditions, I don't like racing in the heat.
+- I need to go out on a ride feeling full and feeling ready.
+- It's something that can get overwhelming and frustrating, the sexism I experience in my career. It's just obviously a big issue in women's sport, like salaries, media coverage, just general things that you have to cope with in your career.
+- Most women's races don't pay much at all.
+- It's really important for cycling and for women to be on a sporting stage which is in the mainstream and across the board, not just my own sport.
+- I won't try and combine training and a family.
+- At the end of the day, cycling is a business, so we have to be able to offer something to a sponsor, and without exposure, that's going to be difficult, but that's where the UCI perhaps has to be a little bit stronger.
+- I feel extremely guilty that I've had to put team-mates through extra media questions.
+- I'm not at the point of accepting it yet - but I will have to come to the point of accepting that people will doubt me forever.
+- I had to find my own path, and in some ways, it's been a good thing.
+- It's difficult to change things in a positive way.
+- Eating well is really important to me. That means having balanced meals, never missing a meal, never skipping a meal, having a balanced diet, and never doing anything extreme.
+- I am sorry for causing anyone to lose faith in sport.
+- I find weddings too procedural sometimes. I just want a big, fun party.
+- I like being part of the Great Britain setup. I like feeling I'm at a race that is important and the pressure that goes with it.
+- I never quit. The times when I have quit in the past because I couldn't face trying harder have stayed with me, and the guilt is not worth it.
+- The Rio experience for me is going to be completely different to London.

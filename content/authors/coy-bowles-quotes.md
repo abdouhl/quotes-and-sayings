@@ -1,0 +1,78 @@
++++
+author = "Coy Bowles"
+title = "Coy Bowles Quotes"
+quotes_len = "72"
+description = "the best 72 Coy Bowles Quotes"
++++
+- We can be whatever we want to be. We can be a country band if we need to be. We can be a rock band if we need to be.
+- We're able to play different genres and be very specific in sounding like we know what we're doing.
+- I've never been much to believe that my Creator will judge me or anyone at their final days. I don't really know if I believe in going to Heaven or Hell.
+- Sometimes I have a little social anxiety, and meeting people can be a challenge for me.
+- Stylistically, we do so many different things.
+- I got into writing short stories and blogs while on the road.
+- I try as hard as I can to push myself. I try to create as much as I can. I try to grow on a daily basis.
+- My dad is basically my best friend. I'm that dude's spitting image and couldn't be more proud of that. They just don't come any better than my dad.
+- I grew up in a really small town in Georgia, so the idea of knowing people who are actors or who are just involved in the Hollywood and movie scenes, that's far beyond anything I ever thought would happen in my life.
+- Pearl Jam's 'Alive' is the reason I started to play music.
+- If you never give up and you strive hard and focus on every move like a chess game, you will make it. I believe that wholeheartedly.
+- If you feel like you have no other option in life but to follow your musical path, then do it. If you are talented and focus all your energy on becoming better and furthering your career and never give up, something will happen. I'm not sure what will happen, but it is guaranteed that you will do more than if you didn't do all that.
+- I try to cross as many genres as possible with the same attitude. I want every song to be very clear.
+- We listen to so many different types of music, so it's easy for us to play a different genre or style and it be true to what we do.
+- My mother is very good at sewing and makes wonderful quilts.
+- I like music that not only has a pop melody to it but is also deeply about something.
+- I made a promise to be as creative as I could, even outside of music.
+- Writing children's books all started out as a way for me to give back and make a difference.
+- I've always been the type of person that thinks, 'If someone else can do it, so can I.'
+- I believe 99% of success is never giving up.
+- It's so hard to listen to an album you created and without remembering where you were when you wrote it or referencing the the recording experience.
+- I'm grateful for being able to explore different avenues of my writing, whether it be music or stories, and it have an audience.
+- The tour is like our bread and butter. You don't really get to experience the band unless you see us live.
+- It's always hard for me to put the pieces together when listening to a finished album that I was a part of writing and playing. There are so many memories wrapped up in each note and each song that it's hard not to constantly flash back to what made that musical event happen while listening.
+- There is an idea that at some point in your career, you 'make it.' I understand the theory of 'making it.' I don't exactly think that it's the best way to look at it.
+- You think you have the most amazing life by having your dreams come true as a musician and marrying the woman of your dreams. But then you add a lil' baby girl... to the mix, and it's like you've never really lived and loved until she was here.
+- I live a life of creating, sharing music with wonderful musicians that I love like family, and spreading a message through music that life is yours to live wide open, and do it your way with love.
+- You can be as creative as you want to and build all these cool projects, but ultimately, if they're not successful and you don't have the business structure in place, everything will flop.
+- My goal for children's books is to have them become tableside or bedside classics. To me, it would be awesome to write a book that every kid would end up reading at some point in their life because influencing kids in a positive way at such a young age is really cool.
+- The coolest thing for me to do was listen to Pearl Jam's 'Ten,' Nirvana's 'Nevermind,' or Soundgarden and play along to it and think about how awesome it would be to be in one of those bands and be up on stage. When I'd close my eyes at 13 and dream of being in Pearl Jam or one of those bands, it was exactly like how it is now with the band I'm in.
+- I basically am the only musician in my family. My aunt plays a little piano, but that's about it. My dad's mother painted and was actually good at it. I do not come from a long line of musicians, though.
+- We pride ourselves on being great songwriters.
+- If the people that love you are the people at your side on your last day, and there's not a soul in that room that has any bad words to say about you, well, I'd say Heaven awaits you, my friend.
+- I firmly believe if you start something, you should finish it.
+- I love coming back home and seeing old friends and family. I would say it keeps me grounded.
+- I've really learned a lot from Zac Brown over the years. He is someone that I consider to be one of my best friends, and besides my parents, he has taught me more than anyone else. Zac is, by nature, a giving and understanding person.
+- God Bless my mother and father for all the hard work they've done for our family.
+- You don't realize how beautiful an idea is until you do it with other people. There's this really shimmery, awesome thing when you start finishing a song - where the song just starts writing itself.
+- I can't think of anything more important than a kid being sick and making them laugh and making that whole experience a little easier.
+- When I try to be funny, it always makes me more nervous that I'm trying too hard, and then my brain that already thinks too much jumps into hyper drive, and I light-speed start talking 'Star Trek' to someone who's talking 'Star Wars.' Anyway, it doesn't work out usually when I 'try' to be funny.
+- Once you start getting into giving back, it gets addictive.
+- Songwriting is a big deal to me.
+- I've tried very hard to stay grounded with my family, my ol' buddies, nature, music, and creativity.
+- I grew up as an only child, so inherently, most of my life was centered around me. My parents taught me to play well with others and to share my toys, but I was still an only child who didn't have to share my parent's attention with siblings. As great as my childhood was, I always wanted brothers and sisters.
+- We never think about how many awards we've won. We just want to make the best music we can.
+- If they keep playing us on country radio and we get to keep doing cool stuff like playing with Willie Nelson, that's great.
+- Carlos Sosa, the saxophone player for Zac Brown Band, and I worked up two songs for 'When You're Feeling Sick.' They were a blast to work on. The songs are real upbeat and silly.
+- My father is a very skilled carpenter. He can do just about anything with his hands. He is very artistic with his carpentry.
+- It's kind of a Catch-22. The more successful you get, the less normal you get.
+- I'm a blues guy at heart, so silly music isn't generally what I do. I'm a I'll-cry-as-my-guitar-gently-weeps kind of guy.
+- I'm just grateful. I'm grateful for my family, my wife, and our health. I'm grateful to be in a band of brothers that I love so, so, so much. I'm grateful that this magical combination of dudes makes music that people like and moves them.
+- I love kids, and I think I would be a great dad. I had great parents, and my mother and father are my best friends, so I'd have good examples to lead from.
+- I was raised on nothing but love and support.
+- I can play in front of 30,000 people at Fenway and not be nervous at all. But I get really nervous in front of kids.
+- Life is short, so there is no reason why you shouldn't live it to the fullest expression of yourself.
+- One of my favorite guitar players and musicians is a guy named Jimmy Herring.
+- I never thought we were a country band in the first place. I think we've gotten ourselves into a place where we don't underestimate our listeners and what potential there is for the music they've heard all their lives.
+- You're part of the problem or the solution. Solution means, in my opinion, to be taking extra time and energy in trying to give back to the world.
+- I don't usually suggest going into something you cannot do, but sometimes you gotta jump in and land on your feet.
+- Duane Allman might be my favorite guitar player ever. I'd say I'm influenced by the Allman Brothers more than any other band. When I taught guitar lessons for a living, the students that were interested in soloing had to learn the intro to 'It's Not My Cross to Bear' first thing.
+- We try not to think that our listeners are one-track-minded people with the music they listen to.
+- My dad has seen and done a lot. He comes from the hippie era where music and living life to the fullest is more important than stability and playing by the rules.
+- My mom used to cut out articles from the 'Atlanta Journal Constitution' when I was in high school. She would either give them to me to read or she would post them on the fridge. These articles would usually be stories of someone inventing something, breaking records, or achieving some kind of success.
+- I taught guitar lessons for a long time for a living before I got on the road. I really enjoyed hanging out with kids, talking about music with them, and trying to influence them in a positive way.
+- The 'Will Powers' story is like my life to a certain degree.
+- Whether there's 100 people or 100,000, we bring our 'A' game every single time. We're full-speed on stage. We kick the audience's butt.
+- I learned real fast that you need to have a plan of action when changing diapers, or it can get dicey fast.
+- The recipe to our success is that you have a bunch of different guys who listen to a lot of different music.
+- I'm so grateful to have been raised on love and to be so in love with my wife.
+- A lot of times, people ask us about being a country band, and we say, 'Well, we're not really a country band.' And we're not knocking country, because we like it, but we don't want to be limited.
+- Just to be part of the history of the Hollywood Bowl - so many people have played there; at least, all of my heroes have.
+- We are all big Motown fans.

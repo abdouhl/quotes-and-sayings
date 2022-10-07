@@ -1,0 +1,15 @@
++++
+author = "Christina Perri"
+title = "Christina Perri Quotes"
+quotes_len = "9"
+description = "the best 9 Christina Perri Quotes"
++++
+- I was kind of an outcast in school 'cause I always kept to myself and was writing poetry and then going on tour with my brother band all the time, so kids didn't know what to make of me.
+- It felt very natural to me to write a Christmas song, but at the same time I had to really put all sorts of pressure aside and just let the creativity flow and see what came out.
+- You need to love yourself and be yourself one hundred percent before you can actually love someone else.
+- My earliest memories as a child are listening to Beatles records, and they are a big part of how I've learned to write pop songs.
+- Everything around me inspires and influences me. Mainly love - falling in it, losing it, loving it and hating it.
+- I'm a total protein shake junkie nerd. I get creative every morning - you never know what you're gonna get in my shake... fruit? Peanut butter? Ice-cream?
+- I took time off from school and traveled to Italy when I was 19, living with my extended family members. I must have slept in 30 different houses those months, taken in by people who'd never even met me.
+- Yes, my first memory of singing, in general, was of a Christmas song. And then listening to Christmas music was really the first music I was ever connected to.
+- Music has been my everything since day one. It's been my shoulder to cry on, my rock and my best friend.

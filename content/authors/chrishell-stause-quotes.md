@@ -1,0 +1,104 @@
++++
+author = "Chrishell Stause"
+title = "Chrishell Stause Quotes"
+quotes_len = "98"
+description = "the best 98 Chrishell Stause Quotes"
++++
+- I really love the cast and crew over at 'Days of our Lives,' and anytime I getting to pop in is always so much fun!
+- You have to be able to recognize those relationships where you have to realize the effort is not working. Let's just cut our losses and move on.
+- Sometimes people just want a fancy, cute dog.
+- Watching myself on screen doing a Viennese Waltz, I think, 'Ok, you're capable of doing more than you think.'
+- Give me soft, fluffy pancakes and I can get over anything.
+- I'm not trying to be somewhere I'm not wanted.
+- You know, you work on things with people if they're not perfect - no one is.
+- I love coffee. I definitely have coffee every day.
+- As long as something is fun and you're enjoying it and it's challenging you, then I'm there and I'm happy to do it.
+- Most theatre students have to fight for stage time.
+- I do a lot of styling on my hair, and my ends can look really sad.
+- When life throws not-so-serious curveballs, sometimes you need to embrace it, and laugh it off with the support of your friends, and let's be honest, pancakes always make everything better.
+- A home that does not have smart home capabilities is not as desirable when selling.
+- If a child has divorced parents, the best thing you can do is help add stability to their lives.
+- My favorite thing about daytime, and 'Days' in particular, is that the door is always open for characters to reappear no matter how they left.
+- We all know Cinderella had a rough start, so I really relate to her in many ways.
+- I don't know how to do blind dates.
+- I have taken the steps to freeze my eggs.
+- I use two concealer shades. I have vanilla and light beige, and I use vanilla on my under eyes - if I have a spray tan, I'll use the light beige instead, it just depends on how light or dark I am. Then I use one shade darker on my face.
+- It's not normal to meet somebody and then they become wildly famous or they become wildly rich or all these things.
+- My nerves sometimes hijack my body and I am no longer in the driver's seat.
+- I definitely relate to any kid who has lived without running water or electricity or having to be the smelly kid going to school because you don't have the resources. It's hard. I really relate to them and I want to help them as much as possible. It's a unique situation that you'll never forget where you came from.
+- I want to have fun and I love being successful and doing really well with work.
+- I think fashion should be fun! I love adding color and sparkle!
+- I only dance with my girlfriends when we're out.
+- It's not normal to meet somebody and then become wildly famous or become wildly rich and all these things. I don't, at the end of the day, think that those things matter.
+- I've gotta say, daytime fans are the best fans. Everyone always says that, and it's so true.
+- I had a shampoo once where it was like, Okay, it's a great shampoo, but I hate the smell. I had to stop using it.
+- You're gonna find a common theme among my favorite beauty products: I don't like those little sheer things. If I'm putting makeup on, I want it to do the job quickly.
+- One of my dreams growing up was to be in a soap.
+- Shoes don't need to break the bank to be amazing!
+- The thought of dancing in front of an audience terrifies me.
+- Dancing absolutely is therapeutic!
+- I always know how to look at the bright side because there's been a lot of dark.
+- Treating everything like it could be the last helps me remember to stay focused and give it everything I have.
+- Because of Murray State's size, I was able to receive more one-on-one time with my instructors and also more stage time. This isn't necessarily the case at larger institutions.
+- I've many times been paid far less than what I should have because being raised very poor, I had a mentality that I was just grateful to be there. I had to overcome that type of thinking.
+- Don't ever get too busy to listen and connect because if you let yourself get stuck in that cycle, what are you actually working for anyway?
+- What I love for breakfast is eggs. My favorite thing is scrambled egg whites with cheddar cheese and pepper.
+- If I can take something terrible and try and put a positive spin on it, or, or, you know, inspire somebody else that might be going through the same thing, that's a good thing.
+- Obviously, I don't really think my version of a Cha-Cha would actually qualify for a Cha-Cha.
+- Dancing With the Stars' was such a family, community environment. I will always look back on this experience as one of the most fun, exhilarating things I've ever done.
+- All My Children,' to me, was like a family... When I moved to New York I didn't know anyone, so these people became, like, my only friends and family for a long time 'cause we're working all the time.
+- I'm obsessed with peanut butter.
+- I always saw myself doing comedy, so when I got the job on 'All My Children' it was not my thing - I had to slowly get into it.
+- My awkward phase can be summed up in three words: Clear. Braces. College.
+- Cinderella was dreaming of a different life. That's what I was doing, watching soaps, wishing I could be one of those glamorous girls on TV. I auditioned, and I ended up booking the role. It changed my life.
+- Even on casual days, wear at least one thing that makes you happy.
+- Knowing that being open about my struggles can help people out there with their own lives gives me so much drive to continue to keep living out loud.
+- I've had to start over so many times in my life.
+- Of course, you want to look great, but you also need to feel great to pull off the look.
+- I was homeless a few times in my life and it was really hard growing up, but now I'm super grateful about everything.
+- Selling Sunset' is a huge time commitment, but I have some exciting ideas if I find myself free.
+- I absolutely love the connection I have with so many, whether it's about where I came from or struggles I have faced.
+- Growing up homeless many times, it's always ingrained in me this fear that maybe I won't have a roof over my head or maybe things are going to be taken away from me.
+- Make sure you aren't sacrificing function for fashion. A great shoe has both.
+- Once you know something wasn't right, whether it was your decision or not, now, you are where you're meant to be.
+- There are already too many dogs that don't have homes.
+- I try not to eat meat, but I'm not saying that I'm vegetarian or vegan. I love animals, so I try and eat with a conscience.
+- At the end of the day, there can't be one person fighting for a relationship. You have to have two people.
+- To kick someone when they're down is just something that you really should never do.
+- You work on it. You talk about it. You don't go out looking for greener grass; sometimes you have to water the grass that you have. And that's what marriage is. Sometimes it can be hard.
+- You have to decide what is constructive criticism and what is just mean, because there will be a little of both.
+- Technology is amazing, I will say.
+- I've had such a crazy life journey and in the process of finding my voice, I'm hopeful I can inspire others along the way as well.
+- There's something about my love life being on 'Selling Sunset' or being on 'Dancing With the Stars,' I'm kinda putting myself out there in a way.
+- My ex-husband, Justin, is remarried to someone I know from back in the day pretty well. And a lot of things made sense after finding that out. I wish them the best. I just, you know, it actually if anything, it felt good to know that. It felt like a little bit of closure.
+- I'm always networking, that's the name of the game.
+- I know that my parents are with me. My mom's name was Renee Stause, and my dad's name was Jeff Stause.
+- Sparkle never goes out of style.
+- It was an ongoing, long, treacherous struggle that we just had growing up. It's part of my story now and I think in owning it I can do a lot of good.
+- Everything happens for a reason. I'm grateful for the twists and the turns, as painful as they've been.
+- I hate things that work well but don't smell good.
+- I'm definitely a hopeless romantic, and I feel stupid even saying that out loud.
+- I've been on soaps.
+- I don't really know that there's a sign that someone is going to file for divorce with no face-to-face conversation.
+- I am thrilled to partner with DSW so I can show people how to get that designer look without the designer price tag.
+- I feel like anybody would be heartbroken to see how quickly or easily you are replaced; of course that's going to sting.
+- The one thing from my childhood I wish would be brought back is 'Married With Children,' a reboot with the original cast.
+- Dancing With the Stars' fans may not know this, but we only get to fully rehearse in full costume, including hair and makeup, once before the show.
+- I love hearing songs that you can't help but get up and dance to!
+- I remember the first time I was an extra on a soap I was screaming I was so excited.
+- I am so touched by people sharing their stories and how they relate to me, and I am insanely grateful.
+- I'm not a dancer. Never took a dance class.
+- I just think the key is really don't put something on the Internet if you're looking for some type of validation. Only put it on there if you feel good about it and you want to share it.
+- The biggest lesson I've learned about myself is just because you don't know how to do something, doesn't mean you can't. It just means you haven't learned how to yet.
+- Heartbreak is all the same.
+- My style icons are Victoria Beckham, Blake Lively and Zendaya.
+- I've learned that the key to getting your makeup to stay and to look soft and pretty, whether it's blush or eyeliner or lip or whatever, is to start with a cream product and then finish it and pop it with a powder.
+- There's a learning curve that comes with living your life on camera, but they want to tuck away and be unnoticed - as much as that's possible.
+- I almost did a show called 'Celebrity Splash.' It was a high diving competition show that only ran one season because of all the injuries. I can't even enter the water without holding my nose, but I was between jobs and the money was tempting.
+- Oprah is definitely a self-made woman and she came from being dirt poor, as did I.
+- Joining 'Dancing With the Stars,' you really don't know what you are in for or what to expect.
+- I love the idea of being able to be creative or be successful and have business and creative things and all of that and not have to choose one thing. I think it has really made me grow in so many aspects.
+- Some of my best memories are with my mom, dancing with her in the living room.
+- I think the key in life is to keep an open mind, so I will always try no matter what happens - in business and relationships, everything - because I don't ever want to be close-minded.
+- I don't think anyone ever gets married thinking that they'll get a divorce.
+- Having now been on three different soap operas was more than I could have hoped for. Then going on to doing a movie and being on prime time TV, to my own show on Netflix - I couldn't have dreamed of what this has snowballed into.

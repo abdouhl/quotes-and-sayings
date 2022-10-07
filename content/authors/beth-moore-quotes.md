@@ -1,0 +1,46 @@
++++
+author = "Beth Moore"
+title = "Beth Moore Quotes"
+quotes_len = "40"
+description = "the best 40 Beth Moore Quotes"
++++
+- Insecurity has been my lifelong thing.
+- I was crawling out of the bedroom window with my older sister when I should have still been playing with dolls.
+- My very addictive personality and all sorts of strongholds are a thing of the past for me. Yet at the root of every single one of those issues was insecurity, something I had battled since childhood.
+- I don't know how to explain it. A lot of Christians actually like other Christians in Houston. A lot of Christians even like non-Christians in Houston. And, on frequent occasions, a fair amount of non-Christians like us.
+- I am convinced now that virtually every destructive behavior and addiction I battled off and on for years was rooted in my (well-earned) insecurity.
+- Any of us in the public eye must remember: Never, ever believe your own press, and pray to develop a hypersensitive gag reflex regarding your own importance.
+- I don't know what kind of courage it took thousands of years ago, but I know how courageous women need to be today.
+- The Word of God is so much broader than people are giving it credit for. Look at Proverbs, a book written on how to live.
+- My parents were complicated people. They had a complicated relationship. My home was very, very complicated.
+- When you do fiction, it is your imagination you have put out there.
+- You have not quite lived in this ridiculously silly celebrity culture until you've been told one day how loved you are and the next day how hated you are - and sometimes by the same individual.
+- My home and my upbringing and just the problems in my family within my extended family were such that it truly was a mix of the good, bad, and the ugly.
+- I didn't have a fireworks moment for my salvation. I had a falling in love with Jesus in Sunday school when I was a very young child.
+- God's good. He can just pull a life out of a pit, can't He?
+- To possess dignity is to be worthy of respect. Worthy of high esteem. Absorb this: you are worthy of respect.
+- We Houstonians, generally speaking, are hearty. The weather's too hot for us not to be.
+- I was the worst teacher you have ever imagined - not that we did not have fun. We had a ton of fun. We just did not learn any scripture. I would think all week long what could I talk about on Sunday, and then I would scramble on Saturday to find some kind of scripture to go with it. This was my teaching.
+- I don't write for the money. I write because something in me is constantly compelled.
+- I was an emotional wreck even as a young child, fearful and tearful.
+- I've seen a lot of miracles, and I have experienced a lot of things with Jesus, but nothing I have ever experienced in my corporate community life with other believers can compare with just me and Him in my kitchen early in the morning before the sun comes up.
+- I ask women to check the feelings they have about themselves before they do something. If you're doing it out of a sense of desperation and need, don't do it.
+- I try as hard as I know how to keep my reader relating on a broad level so I don't lead her someplace where she thinks that's the only thing that could cause insecurity.
+- As an 18-year-old, I really sensed the call of God. What was interesting about that time was, I come from a very conservative part of the body of Christ, so there was really nothing for a woman to do.
+- God wants us to believe Him to be huge, even if we don't know what to believe Him for in a particular situation and circumstance. I can believe God to be God, to come and show Himself mighty and merciful in that situation, even if I don't really know biblically what I'm to ask Him for.
+- The history of New Orleans was always a fascination to me - such a blend of light and darkness and plague and pleasure and hedonism and fear and death. It's just a very, very intriguing city. I have this strange love relationship with it.
+- What I thought as a young adult is you act like you have it together whether or not you do because that is what church people do. That is not what God has called us to do.
+- We Houstonians are a spicy lot. We raise our babies with tongues of fire, mostly lit by chips and salsa. Our blood is as thick and warm as queso.
+- I want women to love Jesus! That is what I would give every single thing I have for, every earthly good I've got. That is the greatest desire of my heart.
+- I hope we have a whole lot of healthy men out there impacting their wives and daughters with a sense of value and dignity. They can have a huge impact. It takes a secure man to breed that sense of security in his family.
+- I have to have a daily, vibrant relationship with Jesus in order to survive that process toward healing.
+- I think that what women need to hear is that there is life after failure.
+- Sometimes you have to shove all the surface stuff to the side in order to see what's underneath.
+- I was the second-youngest child in a family that took up the better part of an entire pew at our Baptist church.
+- I've never known more Jesus-serving, Jesus-loving, people-loving, people-serving folks on earth than right here in my hometown of Houston, Texas.
+- I believe that children are, by nature, very forgiving. I don't think children expect their parents to be perfect. I think they demand that their parents be real.
+- As God took me through the journey that became the Bible study 'Breaking Free', He taught me to look for a common denominator among the things that triggered my destructive habits.
+- The upside of a downward spiral into despair and defeat in young adulthood is that pretty early on, I was forced to face not only the foolish things I had done but also the stark realization that there was likely no end to what I was capable of doing.
+- I've learned that anyone capable of adoring you is equally capable of abhorring you.
+- When someone does not want what God has to offer, He is not going to force it on them.
+- We've got to know the Word of God. That is our absolute stability. That is our offensive weapon against the kingdom of darkness.

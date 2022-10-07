@@ -1,0 +1,42 @@
++++
+author = "Rob Kardashian"
+title = "Rob Kardashian Quotes"
+quotes_len = "36"
+description = "the best 36 Rob Kardashian Quotes"
++++
+- I want to experience Dallas. It's a new city where I see new business opportunities.
+- I'm obsessed with neon sneakers.
+- I don't think people truly know what I have done or that I've actually had a regular job.
+- I think it's corny and cheesy for a dude to holler at a girl. That's just disrespectful in my mind. I may talk to girls, but I don't hang with girls; I don't date girls. I haven't really found anybody.
+- No one wants to see a boring tube sock.
+- I am working on a dress sock line of funky, colorful, cool designs.
+- I don't want to compare myself to anyone else, but there's Paul Smith, who I think does a great job. I feel like once I sort everything to the best quality, I'll be able to compete with them.
+- I don't have dance history or background.
+- I'm very nonchalant. I don't care about anything.
+- I don't like to use my last name. I don't like it attached to things because people think you can just stamp your name on something, and it's not organic or that you're just doing it for money.
+- Literally, my job is I make socks. That's all I do.
+- I'm very big on doing my own thing.
+- Thank God, I have the opportunity to do what I love, which is my family and work on a business and try and make it the best that it can be.
+- Not everybody even gets to live with their own family because they have to go to L.A. or New York or wherever to work and find a job and leave their family back home. But every day, I get to work with my family - if I want to.
+- I still love to eat, and my diet isn't perfect.
+- You can't be nervous when you know your steps.
+- We're a very close family. Nothing changes.
+- I've been surrounded by women my whole life, so obviously I love fashion... But I'd like to do my own thing and focus on what I love. If people accept it, they accept it. If they don't, they don't.
+- I'm not really a fan of sleep, to be honest with you. I work out at 9:30 or 10 o'clock at night, and sometimes I just keep going. I've never been a big sleeper.
+- I won state cross-country competitions several times during high school.
+- I'm a Pisces - emotional.
+- I don't like to get in front of people.
+- I feel like dress socks differentiate you in a different way - especially men in suits who just have the traditional business suit. The dress sock is the way to change it up in your mind and I like wearing my pants up higher so you see them.
+- Honestly, I don't remember the last time I had a dream. I don't really sleep often enough to be able to have any dreams.
+- There really aren't too many sock companies.
+- I feel like more than 80% of the world wouldn't get up in front of 40 million people and dance on national television, and if I have the confidence to do that then that's a step ahead in my life for me in terms of personal goals. I will gain a lot of confidence on all aspects right there.
+- I literally change my phone number 10 times a year and I don't ever save my contacts.
+- Arthur is my middle name; George is my dad's middle name.
+- In high school, I worked at Abercrombie & Fitch, and once I graduated from business school at USC, I started a company with my partner and had a nine-to-seven job.
+- I think I lie way too much to even know what I've lied about.
+- I sleep with my baby blanket, Kiki, that my nana made for me.
+- I just kind of wanted to do something where you don't just see 'Kardashian' everywhere.
+- I have only a couple friends, but I've known them since, like, you know, fourth grade or something. I've never changed anything about my little group of friends. I think if you're just smart, and you have the friends who care about you most, that's really all that matters.
+- I reorganize my closet nearly every week.
+- If I could be anyone, I'd choose the lead singer of Arcade Fire, Win Butler.
+- My favorite ice cream is Haagen-Dazs coffee.

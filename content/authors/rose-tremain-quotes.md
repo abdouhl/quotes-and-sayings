@@ -1,0 +1,22 @@
++++
+author = "Rose Tremain"
+title = "Rose Tremain Quotes"
+quotes_len = "16"
+description = "the best 16 Rose Tremain Quotes"
++++
+- I have likened writing a novel to going on a journey, with some notion of the destination I will arrive at, but not the whole picture - which emerges gradually as a series of revelations, as the journey goes along.
+- I think I'm drawn to writing about something which feels intense and important.
+- Any setting can potentially acquire this vividness. It slowly arrives during the period of research, until it is as immediate to me as my own real surroundings.
+- Perhaps, more importantly, I think that most human beings realise only a fraction of the true potential of their minds, so the spiritual or mystical, the things which remain mysterious or unexplained have always drawn me to include them in any scheme for a novel.
+- I can inhabit any character in a way that is difficult to do successfully in a contemporary novel.
+- Perhaps, all writers walk such a line. In general - as we all do in our dreams - I believe I put something of myself into all the characters in my novels, male as well as female.
+- The unfolding of a story is both as exciting and as difficult for each and every novel I've written, regardless of time and place.
+- Life is not a dress rehearsal.
+- At the moment, I'm toying with a new idea for a book, but fully engaged with writing screenplays, so the book idea - which needs empty space in my head - is barely formed yet.
+- When you've finished a piece of work you've had a kind of love affair with it.
+- I'm always amazed by writers who tell me they plan everything at the beginning. I feel their writing days must be very bland.
+- The process of rewriting is enjoyable, because you're not in that existential panic when you don't have a novel at all.
+- A novel usually takes me two years. A year to research and plan and dream. Then a year to write.
+- Life should be embraced like a lover.
+- I'm not very interested in charting a day-to-day familiar reality. I'm always looking for territory in which to explore the BIG subjects, the life-or-death stories.
+- So history is fertile territory for me and I think I could feel happy with any period of history, provided I had the right sources and the necessary time for the initial research.

@@ -1,0 +1,85 @@
++++
+author = "Leonard Cohen"
+title = "Leonard Cohen Quotes"
+quotes_len = "79"
+description = "the best 79 Leonard Cohen Quotes"
++++
+- Songs seem to take me a long time. I don't know why; they're not especially excellent for taking so long.
+- And most people have a woman in their heart, most men have a woman in their heart and most women have a man in their heart.
+- My two great heroes are W. B. Yeats and Federico García Lorca.
+- My sense of proprietorship has been so weak that actually I didn't pay attention and I lost the copyrights on a lot of the songs.
+- Music is the emotional life of most people.
+- I always thought that poetry is the verdict that others give to a certain kind of writing. So to call yourself a poet is a kind of dangerous description. It's for others; it's for others to use.
+- You can keep the body as well-oiled and receptive as possible, but whether you're actually going to be able to go for the long haul is really not your own choice.
+- I don't really understand that process called reincarnation but if there is such a thing I'd like to come back as my daughter's dog.
+- To every people the land is given on condition. Perceived or not, there is a Covenant, beyond the constitution, beyond sovereign guarantee, beyond the nation's sweetest dreams of itself.
+- I never had huge amounts of money when I was young. I had huge amounts of fame, and I always had the sense of labor and recompense. I always said I don't want to work for pay, but I want to get paid for my song.
+- I continually blacken pages and scribble away, so I always have a number of songs that are half-finished.
+- I am an old scholar, better-looking now than when I was young. That's what sitting on your ass does to your face.
+- I had girlfriends who really irritated me by their devotion to the Beatles. I didn't begrudge them their interest, and there were songs like 'Hey Jude' that I could appreciate. But they didn't seem to be essential to the kind of nourishment that I craved.
+- I never really liked poetry readings; I liked to read poetry by myself, but I liked singing, chanting my lyrics to this jazz group.
+- Let judges secretly despair of justice: their verdicts will be more acute. Let generals secretly despair of triumph; killing will be defamed. Let priests secretly despair of faith: their compassion will be true.
+- Some people care about their work lasting forever - I have little interest in it.
+- There is a crack in everything, that's how the light gets in.
+- Any startling piece of work has a subversive element in it, a delicious element often. Subversion is only disagreeable when it manifests in political or social activity.
+- All of my writing has guitars behind it, even the novels.
+- I didn't want to write for pay. I wanted to be paid for what I write.
+- Out of the thousands who are known or who want to be known as poets, maybe one or two are genuine and the rest are fakes, hanging around the sacred precincts, trying to look like the real thing.
+- This world is full of conflicts and full of things that cannot be reconciled. But there are moments when we can... reconcile and embrace the whole mess, and that's what I mean by 'Hallelujah.'
+- We used to play music for fun. Much more than now. Now nobody picks up a guitar unless they're paid for it.
+- When things get really bad, just raise your glass and stamp your feet and do a little jig. That's about all you can do.
+- The older I get, the surer I am that I'm not running the show.
+- At a certain point, if you still have your marbles and are not faced with serious financial challenges, you have a chance to put your house in order. It's a cliche, but it's underestimated as an analgesic on all levels. Putting your house in order, if you can do it, is one of the most comforting activities, and the benefits of it are incalculable.
+- As a young man, Yeats spoke to me in a way I could understand. Shakespeare I couldn't understand, but Yeats I could. It was his subject matter and also I really admired the way he put his personal life on the line.
+- I don't have any sense or urgency about any of my writing, actually. I don't think mankind will be damaged if I don't put out a new album or a new book.
+- We're always experiencing joy or sadness. But there are lots of people who've closed down. And there are times in one's life when one has to close down just to regroup.
+- My mind was always very cluttered, so I took great pains to simplify my environment, because if my environment were half as cluttered as my mind, I wouldn't be able to make it from room to room.
+- We're in a world where there's famine and hunger and people are dodging bullets and having their nails pulled out in dungeons so it's very hard for me to place any high value on the work that I do to write a song. Yeah, I work hard but compared to what?
+- There are writers who are great visionaries, who can depict huge movements - things like that. They're the great writers. I'm just the other kind.
+- There were times that I thought I was good looking.
+- The basic function of popular music is to create an environment for courting, lovemaking, and doing the dishes. It's useful because it addresses the heart in the midst of all these activities, and it will always be useful in this very important way.
+- I've got beautiful reviews for all my books, and I'm very well thought of in the tiny circles that know me, but I'm really starving.
+- As we make our way toward the finish line that some of us have already crossed, I never thought I'd get a Grammy Award. In fact, I was always touched by the modesty of their interest.
+- Success is survival.
+- Women stand for the objective world for a man. They stand for the thing that you're not and that's what you always reach for in a song.
+- The fact that my songs take a long time to write is no guarantee of their excellence.
+- Journalists, especially English journalists, were very cruel to me. They said I only knew three chords when I knew five!
+- My reputation as a ladies' man was a joke. It caused me to laugh bitterly through the 10,000 nights I spent alone.
+- I don't think you can write novels on the road. You need a certain stability.
+- I had the title poet, and maybe I was one for a while. Also, the title singer was kindly accorded me, even though I could barely carry a tune.
+- I've always been into self-dramatization. I intend to live forever.
+- Prayer is translation. A man translates himself into a child asking for all there is in a language he has barely mastered.
+- As I approach the end of my life, I have even less and less interest in examining what have got to be very superficial evaluations or opinions about the significance of one's life or one's work. I was never given to it when I was healthy, and I am less given to it now.
+- In dreams the truth is learned that all good works are done in the absence of a caress.
+- Children show scars like medals. Lovers use them as secrets to reveal. A scar is what happens when the word is made flesh.
+- There's always a group of songs that I'm working at. Some of them are 10 years old, and some of them are just a few weeks old. I'm always trying to adjust these songs to some position where I can bring them to completion.
+- Torah values are the ones that inform my life.
+- Poetry is just the evidence of life. If your life is burning well, poetry is just the ash.
+- I never had the sense that there was an end: that there was a retirement or that there was a jackpot.
+- When you stop thinking about yourself all the time, a certain sense of repose overtakes you.
+- A woman watches her body uneasily, as though it were an unreliable ally in the battle for love.
+- One of the reasons I'm on tour is to meet people. I consider it a reconnaissance. You know, I consider myself like in a military operation. I don't feel like a citizen.
+- Most of the time one is discouraged by the work, but now and again by some grace something stands out and invites you to work on it, to elaborate it or animate it in some way. It's a mysterious process.
+- This is the most challenging activity that humans get into, which is love. You know, where we have the sense that we can't live without love. That life has very little meaning without love.
+- If I knew where the good songs came from, I'd go there more often.
+- I can work on a verse for a very long time before realising it's not any good and then, and only then, can I discard it.
+- I like life on the road. It's a lot easier than civilian life. You kind of feel like you're in a motorcycle gang.
+- Act the way you'd like to be and soon you'll be the way you act.
+- The term clinical depression finds its way into too many conversations these days. One has a sense that a catastrophe has occurred in the psychic landscape.
+- I think that Bob Dylan knows this more than all of us: you don't write the songs anyhow. So if you're lucky, you can keep the vehicle healthy and responsive over the years. If you're lucky, your own intentions have very little to do with this.
+- I've never sold widely enough to be able to relax about money. I had two kids and their mother to support and my own life. So there was never an option of cutting out.
+- I don't consider myself a pessimist. I think of a pessimist as someone who is waiting for it to rain. And I feel soaked to the skin.
+- I have a deep tribal sense. I grew up in a synagogue that my ancestors built. I sat in the third row. My family was decent. They were good people; they were handshake people. So I never had a sense of rebellion.
+- I speak of a clinical depression that is the background of your entire life, a background of anguish and anxiety, a sense that nothing goes well, that pleasure is unavailable and all your strategies collapse.
+- I had a very messianic childhood.
+- I read with some amusement my reputation as a ladies' man. My friends are amused by that, too, because they know my life.
+- And I had not much of a voice. I didn't play that great guitar either.
+- I think the term poet is a very exalted term and should be applied to a man at the end of his work. When he looks back over the body of his work and he's written poetry then let the verdict be that he's a poet.
+- I was born in a suit.
+- I always felt I was scraping the bottom of the barrel trying to get a song together.
+- I always considered myself a minor writer. My province is small, and I try to explore it very, very thoroughly.
+- I can make a couple of good sandwiches: tuna salad and chopped egg salad. And Greek bean soup. I was a cook for my old Zen master for many years. So there were two or three dishes that he liked, you know. Teriyaki salmon, a few things.
+- The last refuge of the insomniac is a sense of superiority to the sleeping world.
+- I was 15 when I first became deeply touched by the rhythm and structure of words.
+- Well, for one thing, in the tradition of Zen that I've practiced, there is no prayerful worship and there is no affirmation of a deity.
+- There are some people who come to me for some illumination on their problems. I guess they feel I'm writing about some of the things they themselves are going through. But I don't usually have much help to give - there isn't much you can say to someone in the midst of their own crises.

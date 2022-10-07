@@ -1,0 +1,56 @@
++++
+author = "Lisa Madigan"
+title = "Lisa Madigan Quotes"
+quotes_len = "50"
+description = "the best 50 Lisa Madigan Quotes"
++++
+- As I travel across Illinois and talk with people, and as others reach out to my office desperate for help, I am becoming convinced that, despite their rhetoric, many lenders have no interest in actually helping their customers.
+- The creation of a consumer agency, structured similarly to the Office of the Comptroller of the Currency, levels the playing field. It gives consumers a powerful advocate at the federal level.
+- While I have supported marriage equality since my days as a state senator over a decade ago, I have since conducted an extensive legal analysis that has only emboldened my support as attorney general.
+- I initiated the State's investigation of Governor Blagojevich and have prosecuted public officials, including a sitting democratic state representative and democratic State's Attorney.
+- The party on Wall Street never ends - while the rest of us pick up their tab and suffer the hangover.
+- I enjoy a good fight, and always have, and really just said to myself, 'Look, at the end of my term, it'll be 16 years as attorney general, and I'm ready for new challenges. I'm ready to use my skills in a different way to continue to help people.'
+- A ban on same-sex marriage violates the state Constitution's equal protection clause.
+- While most of us are trying to be more frugal, the loss of a job, a divorce, or a medical emergency can quickly sink us deeply into debt.
+- I went to law school to help people.
+- Being attorney general has truly allowed me to be a voice for justice for the people of Illinois and oftentimes the country - and I love it.
+- The Attorney General must identify threats to Illinoisans' financial security and take action to protect people.
+- Your mortgage shouldn't have been treated as a wager - it should be a way to provide a home and financial stability for you and your family.
+- I've been able to bring billions of dollars back to our state that has so desperately needed it - billions of dollars in relief to homeowners and our communities and our pension systems that desperately need it.
+- The Attorney General is the state's chief consumer advocate, fighting to protect the financial security of all Illinoisans.
+- Demand to know the school's accreditation. Regional accreditation is preferable to national, particularly if you want to transfer credits. Check with the certifying association or potential employer in your field to ensure successful completion of the program will actually qualify you for that job.
+- I've repeatedly seen unscrupulous lenders use every con in the book to charm and lie to homeowners. Lenders actually paid brokers a premium to put people in higher-priced loans with toxic features, such as adjustable rates and prepayment penalties.
+- The explosive growth of the for-profit school industry has had disastrous effects on millions of Americans and our economy.
+- There were absolutely circumstances where Sallie Mae was working hand-in-hand with for-profit schools and other schools in offering and putting students into risky expensive subprime loans.
+- My husband helps take care of our kids.
+- In every community in Illinois, same-sex couples have chosen to join together and, in many instances, to raise families of their own. These couples are our relatives and friends, our neighbors, co-workers and parents of our children's classmates. They deserve the same rights and responsibilities that civil marriage offers straight couples.
+- Stalking is a crime that can paralyze an otherwise productive person with fear.
+- Foreclosure is nothing new. And it certainly will always be a fact of life for some.
+- My investigation found Sallie Mae put student borrowers into expensive subprime loans that it knew were going to fail.
+- We've done amazing things for the state. Some of them have had a national impact, but I'm going to be ready for some new challenges, and so I'm not going to seek a fifth term as attorney general.
+- Do not enter into an agreement you cannot afford. Take precautions to avoid institutional loans with double-digit interest rates.
+- I am inspired by Nelson Mandela. I was a volunteer teacher in South Africa during apartheid, where I witnessed his success liberating black South Africans.
+- If home ownership is the American dream, then foreclosure certainly is the American nightmare. It destroys more than credit. It destroys lives. And its effects are felt beyond the individual family that it devastates. It shakes our entire economy.
+- Navient/Sallie Mae treated student loan borrowers unfairly from start to finish.
+- Unlike public universities and private, not-for-profit colleges, for-profit schools are owned by revenue-seeking businesses often more intent on boosting their bottom line than educating their students. They use hard-sell tactics to recruit prospective students, and veterans have become particular targets.
+- It is never too late to correct our mistakes. And if we do not, we risk repeating them.
+- In 2011, when the General Assembly passed the law allowing civil unions, Illinois took an important step forward to recognize that gay and lesbian couples have the right to build lives together and create strong, loving families.
+- Consumers don't need to be forced to pay billions for so-called smart technology to know how to reduce their utility bills. We know to turn down the heat or air conditioning and shut off the lights.
+- The last thing our children need is less protection.
+- Even if you can afford the price of college, you cannot afford a worthless degree.
+- Higher education is meant to provide economic opportunity to Americans - not provide unscrupulous companies the opportunity to syphon off billions in federal taxpayer dollars unfairly.
+- I'm very lucky to have the support of my family.
+- Navient's actions have led to student borrowers needlessly carrying billions of dollars in debt, and the company must be held accountable.
+- Much of the blame for the Great Recession lies with abuses in the housing market - namely the creation of risky and unsustainable home loans that were packaged and sold as quality investments around the globe.
+- I've always wanted to be an advocate.
+- For many, the loan modification process has been a giant sham.
+- I feel strongly that the state would not be well-served by having a governor and speaker of the House from the same family and have never planned to run for governor if that would be the case. With Speaker Madigan planning to continue in office, I will not run for governor.
+- I've learned never to say never.
+- Investigating some of the largest subprime lenders - Wells Fargo, Countrywide, Ameriquest, Household Finance - I've seen how their terrible, toxic loans were closed by any means necessary and eventually packaged, sold as securities, and bet upon until they exploded and decimated our economy.
+- I often say that paying off your debt is like dieting. There are no miracle cures; it takes discipline and hard work.
+- The Department of Education's refusal to oversee and hold for-profit schools accountable is a government-made disaster, and American students and taxpayers should not have to pay for it.
+- Stalking is a serious crime with serious consequences.
+- Persons whose wagers depend upon how particular selected athletes perform in actual sporting events stand in no different stead than persons who wager on the outcome of any sporting event in which they are not participants.
+- Most of our children have access to Internet-accessible technology, yet most of us are actually not paying much attention to what they're doing online.
+- It probably can take me anywhere I want to be, but I have to be honest, being attorney general is a great job.
+- Hard work, careful planning, and realistic financial advice will be required by many to regain solvency.

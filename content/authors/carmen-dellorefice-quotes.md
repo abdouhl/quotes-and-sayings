@@ -1,0 +1,39 @@
++++
+author = "Carmen Dell'Orefice"
+title = "Carmen Dell'Orefice Quotes"
+quotes_len = "33"
+description = "the best 33 Carmen Dell'Orefice Quotes"
++++
+- I don't believe in funerals. I believe in celebrating life, and showing people, while they're alive, how much I care about them. And I don't believe in this business of burial. I'm an organ donor. Whether its my skin or my eyeballs, use whatever bits are intact and put the rest in the garbage.
+- My dream was to become a ballet dancer, but after a year in bed with rheumatic fever at 13, I had grown too tall, and had no muscle tone left. I tried a ballet class and couldn't even do a plie without falling over. It was my first death.
+- We have to program the mind of the public that age is not ugly. Age is just age. Wake up, American children, and stop listening to other people's voices. Know yourself, be true to yourself and make a contribution. It took me half my life to know myself. I listened to other people's opinions and took them as gospel.
+- I'm loath to do interviews. What comes out is generally not what I meant or thought I was saying or thought they were asking.
+- I was the Kate Moss of my day, atypical of what the public wanted, which was Brigitte Bardot. I was always tall, skinny and angular. But now, society has bought 55 years of my marketing 'Carmen,' and I'm considered beautiful. I hope that empowers older women.
+- There's always a boyfriend. Whatever else I have to give up on, I won't give up on love.
+- My life has been amazing. How many other ladies of 76 can say that the snapshot on their senior citizen's card was taken by Norman Parkinson?
+- I exercise every day. I don't get up and have a cup of coffee anymore, I get up and move to get blood to my brain.
+- A lot of people around me were really staggeringly rich, which I never have been. I walked in between the raindrops of real money, but I've stayed happy.
+- I respect Gloria Steinem enormously. But I never wanted to be in any kind of movement - and if you're over a certain age, you better keep your bra on because nothing's worse than saggy duds.
+- I'm a working woman of 80 trying to work out what the image I can project is. How I can do it with, you know, dignity.
+- We're all works of art in progress.
+- You know, Italian-Hungarian - no matter how linear and cool I look on the outside, I have all that energy trying to find its way through life.
+- The money I've earned has enabled me to keep my life in my own hands. I had a terrific body, and I got paid for using it.
+- Fashion is more about taste than money - you have to understand your body and tailor clothes to your needs; it's all about the fit. I do the alterations myself - I'm quite a seamstress - it's the influence of my Hungarian mother.
+- People shouldn't look at me and think life is one big piece of glamour. That's the marketing, the spin. Life is challenging. But I have courage, strength, and enough good health to see the positive.
+- As a model, I didn't have an identity; I was a chameleon, a silent actress. I was an amorphous thing. I wasn't full of personality, I was full of solitude and solemnity. I wasn't a cover-girl type.
+- I think America may be growing up and accepting the fact that the bulk of life exists beyond 50. Because demographically... the vast population is over 50.
+- I've grown up in the lap of the world.
+- I understood that synergistic dance between photographer and object - 'muse,' if you will, 'model,' whatever you call us. It's that silent language of communication, like being psychic with each other.
+- My mother was harsh and constantly told me I had jug ears and heaven knows what else. But she was devoted and a hard worker.
+- We were so poor that my mother would often leave me in a foster home until she could raise enough money to rent rooms for us.
+- I'm not giving in to anyone else's idea of how I ought to feel and look at 70. 'Retirement' is not a word I can even visualize. I retire when I go to bed!
+- Even with a computer, I can't get rid of all the papers in my life.
+- If your ceiling is falling down, don't you call someone in? I apply the same principle to myself.
+- Being on the cover of 'Vogue' at 15 meant nothing to me. I never really understood what it was they were looking at, what they saw in me.
+- I didn't marry to have children. I married to have a relationship, and I was blessed with one child. I was an only child, too - my mother was smarter than most women today; she just had me.
+- We are oceans apart. My mother had a very difficult life.
+- I hate a man who looks dirty.
+- When you understand how to do that dance, when the photographer says, 'Hold it, do it,' and you know you're getting it right, oh, the fun. It is fun.
+- I was the one who kept telling my second husband he should become a cinematographer. I paid for him to get his director's card, and he went on to make 'Godspell.'
+- I don't live for stuff and things, and if I had to live in a cardboard box, I would put curtains on it.
+- There's no way I would have got to see so much of the world, with my humble background, without modelling. We were penniless and hungry for most of my youth. I washed the sheets in the bathtub in my bedroom and hung them out of the window on the clothes line, which in winter was difficult as the sheets would freeze and get stuck to the line.

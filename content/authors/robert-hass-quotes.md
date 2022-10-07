@@ -1,0 +1,25 @@
++++
+author = "Robert Hass"
+title = "Robert Hass Quotes"
+quotes_len = "19"
+description = "the best 19 Robert Hass Quotes"
++++
+- When I was younger, I was so crazy about poetry that I didn't notice who was noticing. It seemed to me so tremendous and large.
+- All the new thinking is about loss, In this it resembles all the old thinking.
+- I teach a lecture course on American poetry to as many as 150 students. For a lot of them, it's their only elective, so this is their one shot. They'll take the Russian Novel or American Poetry, so I want to give them the high points, the inescapable poets.
+- There are moments when the body is as numinous as words, days that are the good flesh continuing. Such tenderness, those afternoons and evenings, saying blackberry, blackberry, blackberry.
+- As poet laureate, I was asked to be a spokesman for literature.
+- When I was in college, I lost my scholarship one year. I had enough money for tuition, but not room and board. So I camped in the hills.
+- I think that the job of poetry, its political job, is to refresh the idea of justice, which is going dead in us all the time.
+- You begin to see that all of these things are connected: The kind of cuts that mean less environmental protection are also the kind of cuts that mean less musical education for the schools and that also mean more overcrowded schools.
+- The Vietnam War and the Iraq war, in different ways, both made me feel like I could not not address them. I'm very doubtful about the usefulness of poetry to do that.
+- Not to make too much of a claim for poetry, but this is a question that goes to the moral heart of the business of any art: 'How do you see the world, and what right do you have to see the world in the way that you do?'
+- Take the time to write. You can do your life's work in half an hour a day.
+- The market doesn't make communities. Markets make networks of self-interested individuals, and they work as long as there's more than enough to go around.
+- I got interested in the question of literacy because writers are always moaning about why more people don't read books.
+- When I was in high school in the '50s you were supposed to be an Elvis Presley, a James Dean, a Marlon Brando or a Kingston Trio type in a button-down shirt headed for the fraternities at Stanford or Cal.
+- The first book that really knocked me out was the 'Brothers Karamazov.' I read it when I was a senior in high school.
+- I would say Gary Snyder, who is from my part of the world as a poet and environmental thinker, will be read just as Henry Thoreau as John Muir will continue to be read.
+- The Earth forgives the previous year every year.
+- Writing is an incessant process of discovery.
+- In California in the early Spring, There are pale yellow mornings, when the mist burns slowly into day, The air stings like Autumn, clarifies like pain - Well, I have dreamed this coast myself.

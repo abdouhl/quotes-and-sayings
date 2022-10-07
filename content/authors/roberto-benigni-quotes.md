@@ -1,0 +1,39 @@
++++
+author = "Roberto Benigni"
+title = "Roberto Benigni Quotes"
+quotes_len = "33"
+description = "the best 33 Roberto Benigni Quotes"
++++
+- Sometimes poetry, it is incomprehensible. But we need incomprehensible stuff! It is very healthy to talk about incomprehensible things! It is very healthy! We need it!
+- 'The Divine Comedy' is very sophisticated but also very popular.
+- My father was a farmer and my mother was a farmer, but, my childhood was very good. I am very grateful for my childhood, because it was full of gladness and good humanity.
+- Dante Alighieri is a universal poet, and great creators, they are writing for everybody always. Every single verse is very moving, and the beauty - if we don't understand, we just stay listening to the sound and it's like hearing music.
+- When I first saw a Fellini movie, I came out of the movie theatre and decided to become a lawyer! I thought to myself, it's impossible to make something so beautiful!
+- 'The Tiger And The Snow' is a beautiful movie. I am in love with this idea.
+- When I was a little boy, I was reading Dante and I was saying to myself 'Bravo, Dante, Bravo.' It's so beautiful, the music, the sound, the meaning. I felt like calling him by phone, like a friend.
+- I'm a storyteller: the crux of the matter is to reach beauty, poetry; it doesn't matter if that is comedy or tragedy. They're the same if you reach the beauty.
+- My mother brought me magicians and witches, because I was very ugly, really revolting. So she thought somebody had put a spell on me - this is the truth - so she made me drink some horrible terrifying potions, for year.
+- Fellini belongs to nature.
+- The exquisite truth is to believe in something that maybe you know is a fiction, but you believe in it willingly.
+- My previous movie before 'Life Is Beautiful' was the same; they didn't release it so much in United States.
+- It's me, it's my habit to perform live onstage every four, five years. In Italy, it's my habit.
+- When we talk to somebody and we want to be nice or polite or show our more beautiful side, we try to use the best words that we know. This is what poets are doing. They are cleaning the words, they are inventing the sentiments, they are giving us a way to communicate.
+- For me, Fellini was like a watermelon. It is there. A watermelon cannot die.
+- Stanley Kubrick is one of the geniuses of this century.
+- My mother and my father went to the cinema for the first time when I made my first movie in 1978.
+- The most important thing is to continue to be yourself. The day after the Oscars, you have to get on with your life. To be honest and true to yourself.
+- I remember in the circus learning that the clown was the prince, the high prince. I always thought that the high prince was the lion or the magician, but the clown is the most important.
+- It's a sign of mediocrity when you demonstrate gratitude with moderation.
+- In Italy, the country where fascism was born, we have a particular relation with the Holocaust, but as a turning point in history it belongs to everybody in the world. It is a part of humanity.
+- To be in front of an audience and pretending, and to lie, this is the principle of acting.
+- I grew up in Tuscany in a very poor family. My father was a farmer and my mother was a farmer, but, my childhood was very good. I am very grateful for my childhood, because it was full of gladness and good humanity.
+- Fellini and Bunuel changed my life for me, they are my favourites. If it is true that movies are dreams, both of them, Fellini and Bunuel were shooting in a dream way.
+- I think that sometimes only comedians can reach the peaks of tragedy.
+- I do not think the American peoples are idiots. They are a very playful and sensitive people! I know them!
+- The first movie I saw - and I don't know if it influenced me - was Ben Hur. We watched it outside in a corn field, and it ran backwards, so the first movie I ever saw was Ben Hur backwards.
+- I would like to thank my parents in Vergaio, a little village in Italy. They gave me the biggest gift: poverty.
+- I could have made a small film and kept all the money from 'Life is Beautiful'. Instead, I spent more money than I had on 'Pinocchio', a very risky film.
+- I am like a cartoon strip; I am like Donald Duck; everybody knows me in Italy.
+- My duty is to try to reach beauty. Cinema is emotion. When you laugh you cry.
+- Maybe sometimes I have been wrong with some movies. Anyway, I try to do my best.
+- Only comedians can talk about death, life, God and Virgin Mary. If I was a tragic actor, I couldn't allow myself. But with this accent I can do it. I can talk with death in person because I am a clown. Yes. And I am proud to be a clown - very much.

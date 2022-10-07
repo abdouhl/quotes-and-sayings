@@ -1,0 +1,64 @@
++++
+author = "Rodrigo Duterte"
+title = "Rodrigo Duterte Quotes"
+quotes_len = "58"
+description = "the best 58 Rodrigo Duterte Quotes"
++++
+- Relax. I am not the man I am portrayed to be by some.
+- Rich people are afraid to die.
+- Erosion of faith and trust in government - that is the real problem that confronts us.
+- Steel is needed everywhere.
+- I would rather die early than enter Malacanang.
+- I don't mind giving 5,000 pardons a day.
+- You cannot prevent me from talking. I am exercising my right to free speech.
+- I only want three children for every family. I'm a Christian, but I'm a realist, so we have to do something with our overpopulation. I will defy the opinion or the belief of the Church.
+- As a lawyer and a former prosecutor, I know the limits of the power and authority of the president. I know what is legal and what is not.
+- I am just an ordinary man.
+- I have this deep and abiding faith in God. But this does not mean that you have to have a religion or follow somebody.
+- Even money has a price.
+- Everyone gets sick, and everyone has to go.
+- It is really the angling in the media that I do not like. That is how media can be rotten.
+- You have to support the government, not to me personally; I do not want anyone cultivating loyalty to me. I don't like that.
+- I am a man of many flaws and contradictions.
+- I will flight for the people until my last breath.
+- Human rights must work to uplift human dignity.
+- Love of country, subordination of personal interests to the common good, concern and care for the helpless and the impoverished - these are among the lost and faded values that we seek to recover and revitalize as we commence our journey towards a better Philippines.
+- I don't want anyone controlling me.
+- No leader, however strong, can succeed at anything of national importance or significance unless he has the support and cooperation of the people he is tasked to lead and sworn to serve.
+- Fate has many faces.
+- I'm fine with gays. I have nothing against gays.
+- I wear cheap shoes. I don't even wear socks.
+- Let me be very clear: my friendship with my friends ends where the interest of the country begins.
+- I do not like the way oppressed Filipinos are being treated now. They are oppressed and have no one to turn to.
+- I need to control my mouth.
+- I have to build a new environment for the people. I will place them in ecozones and provide them assistance. I will build hospitals there. There will be economic activity.
+- I will retire with the reputation of Idi Amin.
+- Lawyers are for only what is right.
+- I am a lawyer and 22 years the mayor of Davao City. I served as congressman of the first district for one term, and I was vice mayor to my daughter, Inday.
+- My worry is how to protect the Filipino.
+- For the record, I believe in God, but I do not believe in religion, period.
+- Gamble until you die. I do not really care.
+- Whoever said I hated the media?
+- God does not discriminate against people, regardless of color, religion, social class, or gender and sexual preferences.
+- The state must protect the media. In a democracy, the role of media is very important. In the absence of a credible opposition party, you can rely on the media.
+- To all my political opponents, all and sundry, not only the presidential bets, I would like to offer my hand to friendship.
+- Sometimes, my mouth can get the better of me.
+- If you're a public official, your life is an open book.
+- I just want everybody to follow the law.
+- What you should worry about is how you suffer here on this planet. You do not worry about suffering after you make the exit.
+- I have to address the economic conditions of everybody, including, and perhaps first, those who are poor.
+- Destiny is not designed by mere mortals like us. It is crafted by God.
+- If you are an upright journalist, nothing will happen to you.
+- I have no cancer. I have four illnesses, but they are not fatal.
+- We have a society now where obedience to the law is really a choice, an option only.
+- From day one, I told people there are consequences for not abiding by the law.
+- Freedom of expression is very important.
+- For every profanity, there's a story behind it. People should go beyond my cussing.
+- The only reason there is peace and order in Davao is because of me.
+- I've always said that God will somehow enlighten me.
+- I've always hated oppression.
+- I really do not know. I really do not know how to solve the problem of the Philippines. I cannot be the savior of this republic.
+- I am well. Do not worry about my health.
+- I don't care if you will get angry with me, but I am not open to a compromise. Contractualization must go. It is anti-people.
+- Many are asking what my credentials are and what I can do for the Philippines. They are telling me that they heard I am a womanizer. That is true. That is very true.
+- I slap people in public, especially erring policemen. I can even challenge them to a duel. I am a gunfighter.

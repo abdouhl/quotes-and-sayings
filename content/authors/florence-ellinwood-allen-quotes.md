@@ -1,0 +1,15 @@
++++
+author = "Florence Ellinwood Allen"
+title = "Florence Ellinwood Allen Quotes"
+quotes_len = "9"
+description = "the best 9 Florence Ellinwood Allen Quotes"
++++
+- Each generation must recreate liberty for its own times.
+- It will take a long time for women's effect on politics to register so that we may properly appraise it.
+- You have had indeed a fair trial. It is a shocking thing when a judge of your high office is shown to have betrayed the truth and his honor, and I sentence you to the penitentiary.
+- Owing to the fact that leaders in the women's groups made a point of serving on the jury here whenever they were called, we have always had an unusually high type of women represented on the jury.
+- It's so worth-while being a judge, because, if I make good, I can help prove that a woman's place is as much on the bench, in City Council, or in Congress, as in the home.
+- Whether or not we establish freedom rests with ourselves.
+- You can hardly judge women's effect on politics merely from the action of individual women officeholders.
+- The nature of the Catilinarian conspiracy was bad and bloody.
+- The fact that the movement was carried on by women who, for the most part, had no money of their own and were totally inexperienced in organization, and that they won their fight in about two generations, makes a story often dramatic and always worth preserving.

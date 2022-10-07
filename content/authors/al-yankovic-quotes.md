@@ -1,0 +1,65 @@
++++
+author = "Al Yankovic"
+title = "Al Yankovic Quotes"
+quotes_len = "59"
+description = "the best 59 Al Yankovic Quotes"
++++
+- I like the guitar-driven music of Nirvana at its peak. At that point, I thought there was a lot of really exciting music coming out.
+- One of the hardest things I've had to deal with in my career is keeping my material topical even though I only release albums every three or four years.
+- There aren't that many superstars around anymore.
+- There are a lot of songs that would ostensibly be a good candidate for parody, yet I can't think of a clever enough idea.
+- By the time I'm in the studio recording my parody, 10,000 parodies of that song are on YouTube.
+- It's hard to really articulate what the parameters are that make one song parody-able and another song not, but if I can come up with a good enough idea for it, I go for it, and if not, then I have to move on.
+- One of my pet peeves is that sometimes the talents of my band get overlooked because, and it was the same problem that Frank Zappa had, with a lot of groups that use humor, people don't realize there's a lot of craft behind the comedy.
+- I suppose I had my rock star fantasies while I was singing into my hairbrush in the bathroom mirror, but I never really consciously said, 'OK, this is what I'm going to do for a living and I'm going to be Weird Al.'
+- As a kid, I certainly never thought I would get to spend my life doing something fun.
+- When I go to my live shows it's often a multigenerational audience, a family bonding experience.
+- I mean, I don't write for kids.
+- It becomes more important to me as time goes on to make every album the best thing I've ever done, so it's a lot of self-imposed pressure that also kind of slows me down a bit.
+- I know now that everything I write, I'm going to put out, and I'll have to live with it for the rest of my life.
+- Probably 90 percent of my albums have polka medleys.
+- In the '80s, I was putting out an album virtually every year, I think mostly based on fear - that if I didn't, people would soon forget about me.
+- My personal taste doesn't enter into it a lot when I make my decisions as to what to parody.
+- I mean, I hate to gloat, but I'm extremely satisfied with my position in life and the way things have worked out for me.
+- If I could find the right kind of property, get tied in with the right movie, I'd love to be involved, but I just find it hard to be motivated to do another screenplay right now.
+- It's hard to force creativity and humor.
+- I make charts of songs that are good candidates, good targets, so to speak. Then I try to come up with ideas for parodies. And 99% of those ideas are horrible.
+- Whenever I do a parody it's not meant to make you hate anybody's music really.
+- As much as people are griping about the Internet taking sales away from artists, it's been a huge promotional tool for me.
+- At this point I've got a bit of a track record. So people realize that when 'Weird Al' wants to go parody, it's not meant to make them look bad... it's meant to be a tribute.
+- I can't get too offended when somebody parodies me.
+- There are probably a few library fines I haven't paid yet, but I'm a pretty clean-cut guy overall.
+- A lot of artists have really been supportive over the years.
+- A lot of rap songs don't usually have a lot of melody per se.
+- I have a long-standing history of respecting artists' wishes.
+- How can you get bored if the audience is cheering and laughing at something you're doing?
+- When I was a kid, I thought I was going to be an architect, because when I was 12 years old I had a guidance counselor that convinced me that that was the best career choice for me.
+- If something is good enough, it can be out there and people will see it.
+- Like, I have had moments, which I think most people have, where you'll be watching TV, and it'll be interrupted by some tragic event, and you'll actually find yourself thinking, 'I don't want to hear about this train being derailed! What happened to 'The Flintstones?'
+- I don't think there are any new media I'd like to cover.
+- You still have Top 40 radio now, but it's 40 different stations. There aren't many hits that everybody knows, and there aren't many real superstars.
+- What kind of morons do you have working at newspapers in Austin that would base an entire review of an artist's performance on whether or not they had a good seat?
+- You don't need to be defined by your job.
+- I'm obviously not a rapper, and I don't have any claims to be one, really.
+- I don't really look at myself as the kind of person who craves attention, but I've never been to therapy so there's probably a lot of stuff about myself that I don't know.
+- I'm still a geek on the inside, that's the important thing.
+- I've done a movie and a TV series, and someday I'd like to do a successful movie and a successful TV series. That would be nice.
+- As it turns out, there is a thing called the Internet, and stuff does go out there whether the suits like it or not.
+- I'm watching the charts every week and hoping something will pop into my head.
+- I think that nerds, if you want to call them that, have only gotten more hip and assimilated into the culture.
+- People that were a little nerdy in high school would look up to me and know it gets better.
+- Pop culture's gotten much more disposable.
+- I'm very analytical, I'm very precise.
+- As my father used to tell me, the only true sign of success in life is being able to do for a living that which makes you happy.
+- People never ask people doing serious music, 'Do you ever think about doing funny music?'
+- Somebody will come up to me after a show and have me sign their arm, and the next time I see them my autograph has been permanently inscribed on their arm.
+- I've learned how to use my spam filter pretty effectively.
+- So that's why one of my rules of parody writing is that it's gotta be funny regardless of whether you know the source material. It has to work on its own merit.
+- So I'm one of the few celebrities that got to do a repeat performance on 'The Simpsons,' which I'm very flattered by.
+- The irony is of course that my career has lasted a whole lot longer than some of the people I've parodied over the years.
+- I was a huge fan of 'Mad' magazine when I was 11, 12, 13 years old. I'd scour used bookstores trying to find back issues, and I'd wait at the newsstand for a new issue to come out. My life revolved around it.
+- I did have a child, and I was reading a lot of picture books to her, but at the same time writing a children's book was something that I'd been wanting to do for many years, pretty much since the start of my career.
+- My hobbies just sort of gradually became my vocation.
+- I write and write and write, and then I edit it down to the parts that I think are amusing, or that help the storyline, or I'll write a notebook full of ideas of anecdotes or story points, and then I'll try and arrange them in a way that they would tell a semi-cohesive story.
+- You fake something until you're good at it.
+- Some people want to advertise their weirdness, and spread it out, that's not me.

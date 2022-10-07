@@ -1,0 +1,79 @@
++++
+author = "Cory Barlog"
+title = "Cory Barlog Quotes"
+quotes_len = "73"
+description = "the best 73 Cory Barlog Quotes"
++++
+- Certain games, I think it's great that they give you a continuing experience.
+- That feeling of being rewarded for your curiosity is huge. It's why I play games, this idea of truly existing in a world.
+- Working with George Miller was an education. It was eight college degrees in character development and directing all at once.
+- I don't really want to make casual games or games with no sort of story backbone or character backbone.
+- Staying in a hotel, I get zero interruptions and sleep all the way through the night. It's amazing.
+- Picking just one game above all is nearly impossible for me, but if I had to, it would be 'Metal Gear Solid.' I remember being completely blown away with the story, the mechanics and the overall presentation on my first playthrough.
+- My thing I always go back to is that sense of finishing 'Castlevania: Symphony of the Night,' and that castle flipping over, and just going, 'Oh my God, that was amazing! I have so much more to play!' It was astounding. I think I've always been chasing that. I think my entire career, I have been like, 'I want that kind of epiphany.'
+- I used to animate. I started in animation, and you'd end every day with at least one substantive contribution.
+- I wanted to experiment with more deliberate combat but I never wanted to lose that DNA of what 'God of War' is.
+- The dynamics of storytelling are very important. To just be serious and morose all the time would be not very enjoyable.
+- Competition doesn't drive me. It's not to say that competition is bad, it's not to say that competitive games are bad because I love that those that exist, but it's not my thing.
+- No one finds it interesting to look at the person who is perfect all the time. They have no flaws. Flaws are what open us up to another person to show that we are not having a veneer, a fake sort of exterior.
+- I'm not a competitive player at all, but I don't want competitive games to go away, because for some people that's why they play games, to compete.
+- I had this idea that I didn't want to have kids until my career was at the right point, until we have a house, until we have savings of at least this much ... None of that came true. It just happened.
+- But I think it shortsells any idea when you say there's a similar part to something else, like 'aw man, 'The Avengers' is ripping off 'Batman.' You've got people running around in outfits.' Of course, there are outfitted people and there's superhero stuff, but it's not just ripping off 'Batman.'
+- I would love for 'God of War II' to be considered the swan song of the PS2 but I really don't think this will be the last great game on the system.
+- There are some who expect every game to make a dramatic change the way that 'Resident Evil 4' did over its predecessors. And for that series I think the change was fantastic and completely necessary. I honestly think it should have happened much sooner than it did. But that kind of change is not necessary for every game.
+- At its root, 'God of War' was always the promise of adventure.
+- But that's a part of life; you're going through and nothing ever works out how you wanted. Nothing ever completed cleanly the way that you wanted. It is sloppy and messy, and when you think it's over, 'Oh great. We have a bit more to do.' There's always another bit of road ahead, even when you think you've gotten to the end.
+- We did so much work developing the character of Kratos, why would we throw all that out? We're sort of treating the first seven games like chapter one of this character's life.
+- Do not make decisions for your kid. It's not going to turn out well.
+- You have to have this straddling balance of realizing that games are incredibly complex. You can have an idea of where you want to go with something, the structure of something, but the actual moment to moment figuring all this out-it unravels over the course of, in 'God of War''s case, about five years.
+- God of War' was a 40-60 person team. It was a lot of very different, very passionate, very crazy people.
+- It is the adage of any creative thing; it looks terrible, it is an ugly baby, until the very last second.
+- Sometimes a crazy idea can make something special.
+- I don't want to work on any games that don't have some kind of story component because that is the draw for me.
+- I had a very specific idea of the personal nature of the story I wanted to tell, really changing the image and the perception of Kratos.
+- Despite what many say or think, the PS2 is here to stay. I know that Microsoft dropped the Xbox like a bad habit but PS2 still has more staying power.
+- Resident Evil 4' truly changed the way I look at making games.
+- I love movies.
+- Games change by the different creatives that get involved and say, 'I have this crazy idea.'
+- It's better to do something really really well and thorough, than I think to have a surface level version of a lot of different things.
+- I don't think I've ever worked on anything that wasn't way bigger than we expected. That's all the way back to working on fighting games at Paradox. Everything seems to balloon when more and more people get involved.
+- When you pitch a half-baked idea it's so easy for someone to pick it apart and hate on it.
+- The Wii is fun, but nothing feels all that accurate or precise. I don't want to play an action game with controls that sloppy.
+- Having a kid motivates you to really take stock of yourself and how much of yourself you want to be reflected back in the actions of your kid.
+- If something evokes a strong emotional reaction in me, I need to push myself in that direction.
+- We're growing into an entertainment medium as opposed to 'We make games. We make Mario jump.' We no longer have to focus so hard on the technical hurdles and can ask, as a player, why am I doing this? Why am I making these choices? Games that don't have that strong foundation stumble.
+- A game director, in my mind, is somebody who makes everybody on the team miserable for the duration of the project.
+- Kratos began life as an anti-hero at a time when anti-heroes in games were scarce.
+- I went to work with George Miller on game stuff, but to also learn every possible thing I could from somebody I admire so much.
+- I can't learn Swedish to save my life. I tried, but I'm not very good at it.
+- The thing I really liked about the early 'God Of War' games was the idea that from the menu screen it felt like you went right into the game.
+- My wife is Swedish, so I'm familiar with the Scandinavian kind of odd humor. It's very dark and very deadpan.
+- God of War 2,' for me, was great because we were experts at the platform. You know, it was at the end of the PS2's lifecycle and we knew everything about it.
+- At the end of 'God of War III,' after laying waste to Olympus, Kratos leaves and, for me, goes on this really long wandering pilgrimage.
+- Any sort of major change we want to make in our life is hard. Change is not easy and true change takes time and takes thousands, millions probably, of failures along that path and that's the interesting thing.
+- Puzzles are always a difficult thing, I don't think I've played any games where the puzzles are perfectly contextualised, unless the entire game is a puzzle game built upon that concept.
+- Gotta know the rules to break the rules.
+- Every creator has to follow what they believe. That's the message I would love for every single executive to get, to clearly understand, and every single producer out there.
+- The Resident Evil' series. Not only are they great games, but the creators' willingness to reinvent the game every so often is something I think positively affects our industry.
+- The vocabulary of film is camera cuts, it's how they communicate. But games are different. We don't really need to do that. We do it because it's a language that we're familiar with.
+- Superman' was created at a time when we needed some idealistic, perfect person to aspire to, which is why he is so flawless.
+- There's nothing new, even 'new' is inspired by something. We're all, either consciously or unconsciously, we're inspired.
+- Initially I took the job because I thought it would be really easy. I was like, I'll take the paycheck because I want to do my own movie. That didn't work out. In the first two weeks I fell in love with Kratos from an animation perspective; I'd never been able to do anything like this.
+- Find your own way into your story. Find your own way into your game.
+- Strength comes in so many forms. Not just the physical strength, but to understand the emotional strength. To have emotional vulnerability, to show that's not a weakness.
+- Whether you have a small team or a large team, you'll always have a percentage of people telling you to do the opposite of what you think you should be doing. Then you'll have a percentage of people telling you to do the opposite of what they're saying. It's a constant sea of doubtful voices. You have to navigate through that.
+- For me, human beings have a very difficult time changing. It's one of the hardest things to do.
+- So Kratos is always angry, and he spent a considerable amount of time after 'God of War' trying to be away from people and trying to figure out how to get control of that. So it is this kind of internal struggle for him at all times.
+- The Uncharted' series really pushed me as a developer. They managed to raise the bar with every single release and produce an action- packed thrill ride starring characters I wanted to hang out with, and mechanics I can easily pick up and play.
+- Drama comes from characters changing. If characters stay the same and nothing changes, there's really nothing to look at.
+- I enjoy flawed heroes that actually struggle, you know, with their own sort of path and are not really aware that they reach that level of being a hero.
+- I'm very - I love talking about games, I love talking about movies and TV shows and love what I do at work. But after work, I don't want to talk to anybody. I'm super private. I stay home.
+- I think the best thing you can do with a 'Superman' game is to kind of explore the psychology of what it would be like to be a person who slowly begins to realize that he can't save everybody.
+- As a writer, you understand how hard it is to build up backstory for characters, so you can have impactful moments. You have to build toward something and then pay it off.
+- God of War' is traditionally known for these cinematic, pull back cameras, which I think are fantastic.
+- And I could see - this franchise is very successful for Sony and I think it's awesome. I was big part of making that a success for them and I think it's great that they should continue doing it, but I don't want to make 'God of War IV' and 'God of War V' and 'God of War: The Expansion Pack' and 'God of War: The Role-Playing Kart Racing Game.'
+- Play the way you want to play. I want to give as much power back over to the player as possible. That's where games are leaning: give me the tools, let me do what I want to do with it. Let me solve the problem the way I want to solve it - experience the combat the way I want to experience it.
+- I think that's the beauty of the collaboration with a team. In the end, it never turns out how you imagine, it always is this amalgam of bringing in different perspectives.
+- Throughout my life, I've seen that everybody has had something to teach me and, strangely, it's always something relevant to what I'm going through at that point.
+- I want games to have their own identity.
+- I'm trying to be better for my son. And regretting every moment that I'm not spending with him.

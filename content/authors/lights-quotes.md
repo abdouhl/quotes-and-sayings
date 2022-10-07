@@ -1,0 +1,106 @@
++++
+author = "Lights"
+title = "Lights Quotes"
+quotes_len = "100"
+description = "the best 100 Lights Quotes"
++++
+- There are no rules. And there are no boundaries in terms of where your imagination can take you. That is so necessary for music.
+- Our down time at home consists of hikes and video games and trying to cook - because we are awful at it.
+- I can no longer listen to 'The Listening' because it's been done so many times now.
+- I started as a pretty quiet kid and have had to evolve into a performer.
+- I wish, to be honest, that there were more myths about me. I wish I was more of a mythical person, and that then I'd have myths to dispel.
+- Around when I was 11, I remember hearing U2's 'Still Haven't Found What I'm Looking For.' I remember hearing it and thinking that's what I want to be doing - making something that feels like that.
+- Pop music is actually a challenging genre. Not only do you have to be artistically expressive, but you also have to do that in a very strict format. I've always liked that challenge, but it's very easy to slip into something non-creative. You just have to stay inspired all the time.
+- I'm kind of obsessed with laser guns.
+- I loved comics for a long time, loved the medium, and I love where comics are going. It's on the forefront of social issues, and there's no production value limit, so you can create an entire world. As long as you can visualize it, you can make it a reality.
+- I've never been this massive artist, but I've always had this really wicked cool fanbase - people that really dive in, know every single B-side, and cosplay characters at our shows.
+- Nothing's handed to you on a silver platter. Everything takes work, no matter how many records you put out.
+- Games have fascinated me my whole life, starting with 'PacMan' on my uncle's PC. I moved up to classic Super Nintendo and then on to N64, and then XBox, DS and 'WoW.'
+- I'm not good at talking politics. I'm probably not well-versed enough to speak out, but I do have my opinions and my feelings and frustrations, especially with regards to the environment and sustainability and our lack of taking care of what we have.
+- I can't be like, 'This week I'm going to be a musician, and next week I'm going to be a mom.' It has to be a little bit of everything, every day, all of the time.
+- I think Warped Tour's bringing something special to me.
+- I'm more of a fan of combat games than first-person shooters.
+- When I had my baby, it really freed my mind. No matter how well you do or how unsuccessful you are, there's still somebody who thinks you're the best in the world.
+- I think there's this standard in our society that when we become a mother, we just become a mother, and that's all you are. That's an amazing thing, but I think you're doing your child a disservice by not following your dreams either. I work really hard to make sure that I'm chasing all the things I always dreamed of.
+- Learning how to center and control anger, fear, sadness, weakness and learning how to channel that into something smart, cerebralizing it, meditating on it and then moving into it with wisdom - that's important.
+- It's an added layer of duties and responsibilities, but it takes away from a lot of the arbitrary pressures that I've felt before. I just enjoy every moment more, and that's the beauty of being a mom.
+- I collect Wonder Woman - from comics to paraphernalia, and I even have a tattoo of her on my back.
+- I have my DS with me all the time on the road.
+- It is really hard to write something high-energy and upbeat on acoustic guitar.
+- For me, the biggest gauge for success in a project is people's reaction to it and what they're saying about it and if they're sharing it on social media.
+- I love going home to my family, hanging out, and playing video games.
+- You know, you can't give this unattainable superhero and expect people to identify with them. It's a cool story to read, but I never identified with Wonder Woman, until I read the story like, where she goes blind for a year and ends up in the underworld.
+- I got signed to a development deal when I was 15. That fell through after about a year when the company merged with another label. Then I got picked up by Sony publishing. So I was writing professionally from 16 to 18. Then I started making my own records.
+- I think a lot of the time, comic art is dismissed as... not art, and comic writing is dismissed as not literature.
+- Writing something about motherhood, I think that would be pretty cheesy.
+- I don't sweat the little stuff anymore. The little worries, I just don't have time for them anymore.
+- I would love to draw for 'Scarlet Witch,' it's a Marvel title.
+- It's hard to be a credible musician as a girl with a decent face. Which sucks. I'm always gonna push to make a record that represents what I like.
+- I used to have this little punk pop band, and I don't know why we did 'Behind Blue Eyes,' because it's not punk pop. But we did, it was our slow jam.
+- I'm very into superhero culture and stuff like that, so I always think on very epic terms.
+- It just burns my heart that there's such a massive discrepancy in the number of male producers in the industry, versus female producers.
+- Having toured a lot really influences some of the decisions you make in the studio - is this part anthemic enough for people to want to sing to it at a show? is this part dynamic enough? Is this drum beat 'arena' enough? You think about it a lot when you are creating, for sure.
+- I don't know what I did with time before I had a kid.
+- I was in bands all through my youth. Things started out more acoustic and then piano ballads. Then R&B followed by sappy pop music and then rock, punk and heavy metal.
+- I've been a fan of 'Wonder Woman' as long as I remember knowing who Wonder Woman was. And being able to draw or write 'Wonder Woman' would be amazing.
+- It's nice to pretend we could lead a normal life!
+- I used to play music at home, and now I'm playing for thousands of people.
+- You should write songs about what you feel, but you can't write in such a way like it's a diary entry. You should write it in a way that people understand in their lives.
+- There is something empowering about being a female warrior to me.
+- The way things are today, people need to talk about mental health and need to be open about it.
+- One of the ways that I discovered my confidence and my ability to overpower is becoming a mother. Suddenly, my world wasn't about myself anymore.
+- When I'm at home, I get what I need to get done during the day and reward myself with a little 'WoW' time at night. Some people read a book before they go to bed.
+- What puts me in the perspective of the power of a song is listening to it at full volume.
+- Being a performer and recording artist and playing 'World of Warcraft' - that's a pretty time-intensive combination.
+- I think people act on their emotions without thinking on them and one of our biggest faults as humans is our instinct to do that. I know I've done it. I'm trying to learn how to control that.
+- I think people end up connecting somehow when they have a lot in common.
+- Role models are important and if you see it you can be it.
+- It's a constant struggle in the comic community to be considered a book and to be considered art, but it's just as time-consuming as any other art, and it's just as powerful of a read as any book.
+- Not that I sound anything like her, but I grew up singing like Mariah Carey, and Celine Dion was definitely my favourite artist when I was 12.
+- Being a mom makes it harder to find time to write and it gets harder to find time to sit down and do a vocal, because there's a baby behind you crying.
+- I find that when you grow and evolve with music, the music understands you, and vice versa - whether or not the creator of that music knows.
+- After I had a kid, I value every minute of time that I have alone and I don't take it for granted anymore.
+- The comic hobbyists world is so passionate about the details and the lore and the more you get into that, the more interesting it is for you.
+- An upbeat song, for example, means one thing, but when you hear it with really vibey, mellow ambience around it, suddenly the same words may mean something else. Music is so powerful that way: It dictates and soundtracks our moods.
+- Love is so much more than gender: You fall in love with a person.
+- When I was younger it was a lot of quantity over quality. Just writing, writing, writing. Hundreds of songs. Now it's fewer songs. If I write 10 songs I believe 80 percent of them are good and gonna be used.
+- I really like my microwave.
+- I think one of the biggest lessons I continue to learn is having humility and being thankful for what you have because everything's a grind and it doesn't get easier.
+- I love getting online and looking at people's responses to things and communicating with everyone.
+- If you have a power - don't hide it.
+- I'm such a geek.
+- Music has always been a visual thing to me, so writing and drawing the 'Skin&Earth' comics, which tie cohesively with the music, was an obvious move for me as an artist.
+- It's important to exercise your artistic muscles for your mental health and for your fulfillment 'cause as an artist, you're a creator. Your fulfillment comes from finishing stuff and creating things that you're proud of.
+- I think we all struggle with mental health.
+- I have this fascination with space, but I also have a fascination with the Titanic.
+- I have more friends in 'World of Warcraft' than I do in real life!
+- I remember when I would write a song as a kid, I would also write out on paper what the drums would do, what the bass would do, and what the vocals would be doing.
+- I've been stung by a jellyfish.
+- You can't go with the intention of writing something inspirational. You just have to go with the right heart.
+- A word can change so much depending on how you say it, or how you sing it.
+- There are times where you don't think you can be one of those strong women. You're not one of the leaders right? But that doesn't mean you're not. And that doesn't mean you're not a trailblazer.
+- I've grown in a lot of ways - as a musician, as performer, as a songwriter.
+- Even into a spiritual level I believe that there are dimensions around us that we can't see and forces happening that we can't explain. It's too lame to not think that.
+- You can get a rut where you think you need to create something that sounds like a certain thing - especially with pop music.
+- The beauty of collabs is being able to genre-blend and try different things that you never would get to do.
+- As most people do, you have to learn your talent. It doesn't really just come.
+- I definitely identify with female leads more; I identify with real female leads, people who are flawed and have issues and make mistakes, so that the characters represent what I'm about.
+- I sleep in a bunk bed because my studio's under it. It's like a loft bed.
+- Young girls aren't marketed science-y stuff, or techy stuff, or even musical stuff.
+- That's literally been a longtime dream of mine: to create a comic and an accompanying concept record.
+- You need to enjoy what you're doing in order to do something good. You can't force it.
+- Now that I have a daughter, I notice what's marketed to young women.
+- We need to re-evaluate what we market to our kids.
+- I don't have musical theory or great chord knowledge, but what I have got me where I am.
+- Growing up, I was always blown away by 'Star Trek' and 'Barbarella' and 'Logan's Run.' The retro sci-fi thing.
+- It was so freeing to branch out and work with people like Josh Dun of 21 Pilots who played on 'Savage' and 'Almost Had Me.'
+- If I met the right girl, I could easily fall in love.
+- I've learned how to be confident and not be nervous in a paralyzing way, and I've learned that it's best not to close yourself off from people, you let people in.
+- I hate listening to things quietly. If I'm going to listen to something and fully enjoy it, I want the volume all the way up. That, for me, is a good immersive experience.
+- Getting to be a musician for ten years is very different from being a musician for a year. You get different stories, and have a different connection with the fans after ten years.
+- I'm a big fan of Grimes.
+- I can really identify with the content that I read in comics.
+- You have to learn how to deal with curve balls.
+- I think that as you evolve as a person and an artist, your creative process evolves and changes, too.
+- I've actually steered away from just calling them 'comics.' I just call them books.
+- Like everybody, you get nights where you feel completely depressed. You start thinking about all the bad things and think about the glass half empty - instead of half full. There's no explanation for it.

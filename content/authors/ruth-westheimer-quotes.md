@@ -1,0 +1,106 @@
++++
+author = "Ruth Westheimer"
+title = "Ruth Westheimer Quotes"
+quotes_len = "100"
+description = "the best 100 Ruth Westheimer Quotes"
++++
+- You walk into a restaurant these days, and what you see is everyone with their phone next to them. That is terrible. Instead of concentrating on the relationship, on the needs and activities and interests of the other person, they are constantly looking at their phone.
+- Luckily for me, I don't depend on seeing every patient who comes through my door to pay the rent, and so if someone is involved in an activity that I don't like, I just don't accept that person as a client.
+- I was an only child.
+- My father taught me to study, study, study hard and he sent me to a very good Jewish school even though it was not near the house.
+- I went on a kibbutz for two years. I then realized I have to study. I have to learn something.
+- I once went with my grandson to a county fair where you shoot a water pistol at the clown's mouth. We came home with twelve stuffed animals and a goldfish.
+- I have to be true to what I think because that's my whole career.
+- I have never, ever been embarrassed by saying, 'I don't know.' I think maybe that's part of that longevity of my career. Sometimes I have to say, 'I don't know but I'll find out. Call me next week.'
+- I'm a black-diamond skier and can dance the whole night - if I find a good partner!
+- I don't want people to be lonely. I would like them to find partners.
+- When the first armies were formed, combat took courage, which women share equally with men, and strength, which we do not. But though I am only 4 feet 7 inches tall, with a gun in my hand I am the equal of a soldier who's 6 feet 7 - perhaps even at a slight advantage, as I make a smaller target.
+- When I came to this country, people told me that if I wanted to teach and work here, I would have to take speech lessons to lose my accent. But it helped me greatly, because when people turned on the radio, they knew it was me.
+- In 1947 and '48, everybody in then-Palestine belonged to some group. I chose the group that was the forerunner of the Israel Defense Forces.
+- I do remember all of the songs of my childhood and they helped us to cope with being orphans. But the memories of my parents in my early childhood and the solid foundations of socialisation and strong values that they gave me never left me for one day.
+- I have in my bones, and in my blood, the knowledge that you have to help the people who are persecuted.
+- I am not an expert on that whole issue of gender.
+- It is good to be Dr. Ruth.
+- I don't let people call me before 9 A.M.
+- I lived, while 1 1/2 million Jewish children died. So I have an obligation to repair the world.
+- For many years, I didn't have a home.
+- I learned to assemble a rifle in the dark and was trained as a sniper so that I could hit the center of the target time after time. As it happened, I never did get into actual combat, but that didn't prevent my being severely wounded. I almost lost both my feet as a result of a bombing attack on Jerusalem.
+- I was one of the first ones to participate in fundraisers for AIDS.
+- I'm all for any place, any way, any media that can help people connect with somebody and not be lonely.
+- German Jews don't show their emotions in public.
+- I use humor to educate.
+- I was 50 when I had my first show, so I was never on television with a short skirt or decollete; I never tried to look or be younger.
+- Even top fashion models get critical about one certain part of their body that they do not like. So perfection is impossible.
+- It's good to be a widow in New York, because I can do something every night.
+- I think I was fortunate that even in the children's home I had a boyfriend. How important it was, as an orphan at the age of 12, to be caressed and to be kissed and to know that there is someone who really deeply cared about me.
+- I believe my soul isn't entirely German because my home is so disorderly.
+- I'm not a sex symbol, at least in the conventional sense.
+- Hugh Hefner was instrumental in my career, you know, by promoting the free-speech movement. People forget that about him.
+- I don't know how to play Canasta.
+- There are times when you should never give a cheater a second chance, but there also are exceptions.
+- A lesson taught with humor is a lesson retained.
+- Young and older people need to learn relationships take time and effort.
+- My mother was a very quiet woman and people say that she didn't get much of a chance to talk because my grandmother and I talked so much.
+- Because of my experience with the Holocaust, I don't like to lose friends.
+- I tell people with children still in the house to go out once a week and talk about anything but the children. Otherwise, once you are an empty nester you might have nothing to talk about.
+- I read the horoscope, and when I like it I smile and when I don't like it, I say, 'Dr. Ruth Westheimer, what's the matter with you?'
+- It is impossible to deny that people in power face more temptations than ordinary citizens.
+- A friendship has to be cultivated. A friendship you have to give time.
+- I'm a very lucky mother.
+- I'm never embarrassed to say, 'I don't know.'
+- If not for the Kindertransport, I would not be here today.
+- Now were it up to me, I would abolish all warfare.
+- I want to be like Madame de Stael.
+- Why should only rich men have young, beautiful women? Rich women should have young, beautiful men.
+- Before I became an orphan of the Holocaust my early family life was stable. I grew up as a German Jew in Frankfurt, and I was in a household with two loving parents and an adoring grandmother who spoiled me. My mother helped my father in their wholesale business and they went to synagogue every Friday.
+- I am not against people finding people to date on social media. That's the way it goes now.
+- I have the habit of always saying thank you to police and guards who watch us.
+- I may have been on the cover of People and gone on 'David Letterman' and 'Arsenio Hall' because they had young audiences I wanted to talk to. But at the same time, I always did serious books or taught seminars.
+- I don't believe in honesty at all costs.
+- I was already 50 when I started in television.
+- I'm not a type of grandmother sitting in a rocking chair. I'm a lot in the theater. I'm a lot at concerts. I'm a lot at friends.' I like to go out for dinner. I don't have to be home one night a week if I don't want to.
+- Many years ago, I went with my husband and daughter to Denmark. In those years, you could bring $400 worth of furniture without taxes. We had three people, we bought $1,200 worth of furniture.
+- If someone has gone through a lot of emotional pain, including the loss of loved ones, that person may try to build a shell around his or her feelings to protect him- or herself from the pain.
+- When some women literally throw themselves at you, it's easy to get confused and think that every woman is eager for your attentions.
+- I'm very lucky, because it's a combination of the German, the Hebrew, the Swiss, the French, and that accent helped because as soon as people heard it they knew it was me.
+- I hear you younger people saying how many friends they have on the Internet. That's nonsense. That's not friends, that's acquaintances. The word 'friendship' has lost its significance.
+- Never to forget the Holocaust was not only against Jews. It was mostly against Jews but it was also against homosexuals, gypsies and, let's not forget, people with disability.
+- Yes, for me Hanukkah is very sad. But the life force that's in me makes it a wonderful holiday, too.
+- My parents sent me to Switzerland on a Kindertransport.
+- At first I was against Internet dating because there are some inherent risks, but I've seen so many happy couples who've met on the Internet that I've changed my mind.
+- When I started the radio program in 1981, not many people were talking about sexuality. Not many people were talking about AIDS or HIV.
+- I'm old-fashioned and a square.
+- You see families at a restaurant and the kids are on the phone and the adults are on the phone. It's just a catastrophe.
+- My son told me to stop singing 'Happy Birthday' when he was 4.
+- People like me have to stay away from politics.
+- I love small things. I love them.
+- I worked at Columbia University's School of Public Health.
+- I love being Dr. Ruth, so I have never thought of retiring.
+- The early socialization of a child is crucial.
+- Planned Parenthood is a very important part of my professional life.
+- When you feel yourself being critical, whether it is of yourself or another person, stop yourself. Look for positive aspects to admire.
+- I got the Margaret Sanger award. I was kissed by President Obama.
+- When I was in Switzerland, I still had the fantasy I could have saved my parents and family if I'd stayed in Germany. All nonsense. If they had not made the sacrifice to send their only child to Switzerland, I wouldn't be alive.
+- I am a very good sniper, and I can put five bullets into that red circle and I know how to throw hand grenades.
+- Travel has always been one of the best ways to make new memories and reconnect with your loved ones.
+- Contraception has to be available for anybody who needs it.
+- I would never have dreamt that I would live in this country and that we would see swastikas painted at the door of a psychology professor at Columbia University.
+- The most important thing for my father was learning. Because nobody can take that away from you.
+- We just do not know what is normal.
+- I don't talk around issues.
+- I'm a Zionist who believes that every person has to have a country of their own.
+- Every person has to be respected.
+- Many of the girls who were in the orphanage with me became either nurses or social workers.
+- I certainly believe in equal rights.
+- I am fortunate.
+- I never talk about anything Hollywood or about politics. I will talk about how concerned I am about funding for Planned Parenthood, and how very sad it makes me when I see anything about children being separated from their parents.
+- It matters a great deal that I come from a Jewish background.
+- I don't have scientifically validated data, but once two people have found each other and found interest in each other, my hypothesis would be that the relationship has a good chance of being successful.
+- I'm a super good shot.
+- Every person deserves respect.
+- I went to an Orthodox Jewish children's home that became an orphanage.
+- I have some afflictions, like diabetes 2, but I take care. I sleep well.
+- There will always be issues where an abortion is necessary.
+- If Congress wants to get involved in the business of morality by allowing a moment of silence in our schools, I support that. But if our representatives in Washington are truly going to be moral leaders, then they have to do more than just tell us to pray for guidance.
+- I have nothing against the Internet meeting places, as long as people use them intelligently.
+- At the age of 16 I immigrated to Palestine from Europe, where I became a member of the Haganah, the main underground army of the Jews.

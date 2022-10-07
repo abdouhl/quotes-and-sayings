@@ -1,0 +1,46 @@
++++
+author = "R. J. Cutler"
+title = "R. J. Cutler Quotes"
+quotes_len = "40"
+description = "the best 40 R. J. Cutler Quotes"
++++
+- I'm very curious to know what it's like, death - I always say to my wife, 'I wonder if we'll have the 'New York Times' when we're dead.'
+- As a filmmaker, my approach is to come in not with preconceived notions, but with curiosity, and in that way, whether my subjects are James Carville or Anna Wintour or Dick Cheney, I am always surprised.
+- The presidency made John Adams an old man long before there was television. As early as the nation's first contested presidential election, with Adams and Jefferson running to succeed Washington, you had a brutal, ugly, vicious campaign that was divisive and as partisan as anything we're experiencing today.
+- Whatever storytelling muscles you've developed as a documentary filmmaker will be extremely helpful as a narrative filmmaker.
+- I work in the film business, where schmoozing is an art form, lunch hour lasts from 12:30 until 3, and every meeting takes an hour whether there's an hour's worth of business or not.
+- With 'If I Stay,' I want you to feel that the whole story is being told from a larger, spiritual point of view. So the beginning is very theatrical.
+- As with the subjects in all of my films, the incentive is left to the subject to determine on their own. I never ask someone why they say yes to me. After all, if you invited someone to join you for dinner, and they accepted your invitation, your next question wouldn't be, 'Why are you saying yes?'
+- There is a fundamental notion at the core of American identity that, in this country, any little boy or girl can grow up to be president.
+- Working on 'The War Room' was a thrill, not only because we were given such exquisite access to the nerve center of Bill Clinton's first presidential campaign, but for me personally, it was so exciting to be producing my first film and working with documentary filmmaking legends D.A. Pannebaker and Chris Hegedus, who were the film's directors.
+- The only thing documentary filmmakers have to work with, at least the way I make films, is trust. That's been true of everyone from James Carville and George Stephanopoulos to the kids in 'American High' to the soldiers in 'Military Diaries' to Anna Wintour to Dick Cheney.
+- Living in L.A. keeps me in my car a lot, and I'm constantly flipping back and forth between the following Sirius/XM Radio stations: NFL Radio, MLB Radio, POTUS, MSNBC, CNN, and Fox News.
+- No matter how much you've done before, you wonder if there will be a light at the end of this particular tunnel. It's the nature of the beast, and it's a part of what compels us. Every movie is a new lesson you learn making your way through it.
+- Throughout the day, I frequently use my iPhone to check 'Deadline Hollywood' and my Twitter feed, as well as the 'Daily Beast,' the 'New York Times,' 'Metsblog,' and 'Thejetsblog.'
+- I grew up on Long Island, and from as early as I can remember, as far back as first grade, I had two real passions - one of them was putting on plays, and the other was journalism. I was directing plays and editing school papers from first grade on, all the way through college.
+- We're having such a great time on 'Nashville' that building on the relationship seemed an obvious next step. Lionsgate is the perfect home for the kind of scripted television I want to produce and direct.
+- 'The September Issue' is really a film about Anna Wintour's relationship with long time 'Vogue' Creative Director Grace Coddington. The two of them have been working together for two decades, and the extraordinary symbiosis between them has left an indelible mark on the fashion industry.
+- On some level, you could say you wouldn't have 'In Style Magazine' at all had Anna Wintour not decided to put celebrities on the cover of 'Vogue' from her earliest years as Editor in Chief.
+- 'Taxicab Confessions' always cracks me up. And if you are in the mood for a good game show, I like 'Survivor' because it's well made.
+- If I had to name my favorite media personality, it would be a tie between Jon Stewart and Trey Parker/Matt Stone. Honest, wise, funny, and right. Sam Sifton was right up there when he was writing food criticism for the 'New York Times.'
+- We hope the stories of the 14 kids in 'American High' provide something for many people to relate to.
+- I will say this: I think 'Big Brother' is the biggest snooze known to mankind.
+- In both the world of fashion and politics, what's required to succeed is passion, dedication, and vision.
+- Reality television has borrowed so much from the world of politics, whether it's alliances or voting or the kind of strategizing that's done. Anything like that came from politics well before it came from reality television.
+- The great thing about 'American High' is that, every year, you can do a completely different environment.
+- I was watching 'The September Issue' in the back of a theater in New York, and I thought, 'I know I really can do this with actors.'
+- I first thought about doing a project about Anna Wintour and 'Vogue' when I read an article in 'New York Magazine' about the Metropolitan Museum Costume Institute Ball, the annual fundraising gala that Anna oversees. It created such a fascinating portrait that I couldn't help but be compelled.
+- Cheney refers to his vice presidency... as one of the most consequential vice presidencies in American history. And it clearly was.
+- If ever we deserved a candidate at this moment in our culture, that candidate is Donald Trump.
+- I'm big into not drawing conclusions for people. I think that's what makes for the most exciting, compelling films. I get bored when the politics of the filmmaker are the subject of the film that I see.
+- I always find myself gravitating toward stories of transformation, and one of those periods is teenage life. When teenagers are figuring out who they are and have one foot in childhood and the other in adulthood - I think that's a really mythic moment to tell stories about.
+- Belushi was one of my very first heroes. At a time when film, television, and music were undergoing tectonic shifts within American culture, he was at the center of it all. At that moment, he had the number one show on television, the number one film at the box office, and the number one record on the charts.
+- I think the biggest challenge we faced in making 'The September Issue' was the fact that people in the fashion world are very suspicious of cameras. They're used to a camera being the enemy, something that is prying and looking to catch you in a compromising position, something that's judging you.
+- Directing plays lacked the immediacy and connection to real world events that journalism offered; journalism lacked the drama, theatricality and subjective storytelling of theater. It wasn't until I had the idea of making a documentary film about the 1992 presidential campaign that these two passions came together in 'The War Room.'
+- I don't think it's a coincidence that 'The War Room' and 'A Perfect Candidate' are films that have been consistently shown and available for rental for 20 years. These are films that are more about the moment in which they were filmed: they also have a great deal to say about larger issues about who we are as a country.
+- For eight months, from January to August of 2007, I filmed with Anna Wintour and her team at 'Vogue' as they created the September 2007 issue of the magazine.
+- I believe a democracy needs men and women of conviction in its positions of leadership in order for us to succeed. That's the subject of 'A Perfect Candidate,' a film I made 20 years ago about Oliver North and Charles Robb.
+- I record the following shows on a daily basis and watch them when I have the time/inclination: 'The Daily Show,' Rachel Maddow, 'Hardball,' 'The Colbert Report,' 'The O'Reilly Factor,' David Letterman.
+- It's my approach as a filmmaker always to go in, not with a thesis or preconceived notion, but with curiosity and questions and inquiry. So in some way, I'm always surprised. I'm always finding paths of engagement.
+- Feature filmmaking is a very powerful medium. It has a hold on me now.
+- I discovered the theater when I was in the first grade.

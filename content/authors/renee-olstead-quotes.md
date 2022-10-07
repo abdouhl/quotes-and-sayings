@@ -1,0 +1,18 @@
++++
+author = "Renee Olstead"
+title = "Renee Olstead Quotes"
+quotes_len = "12"
+description = "the best 12 Renee Olstead Quotes"
++++
+- I encourage all of you to seek out teachers and mentors that challenge you to think for yourself and guide you to find your own voice.
+- Growing up in the entertainment industry, I've had a lot of people tell me I'm not good enough.
+- When I was young, I was teased mercilessly by my classmates for being a redhead. I wasn't particularly well coordinated either, which made me a bit of a liability in P.E.
+- The biggest ingredient in a best friend is someone whose actions you respect and who you can truly be yourself around.
+- When I was 12, I first made the decision to go vegetarian after a co-star's line 'I don't eat anything with a face' suddenly shocked me into reality.
+- Taking away from someone else will never make you any better.
+- Picking a best friend who stands up for what she believes in, is true to herself and allows you to be yourself without judgement of how 'cool' you are? Well, now you're picking a friend for life.
+- I just always loved to perform and I was lucky enough to be in front of the right people at the right time!
+- If you're picking your best friend based on what kind of clothes she wears or how popular she is, chances are you aren't going to stay in touch after graduation.
+- I want to speak up and tell you that mascara and clothes don't make you cool, neither do name-brand handbags, but being a leader can.
+- The more I read and watched about the meat industry, the more determined I became to keep meat out of my diet. The things I saw in slaughterhouse exposes made me feel sick and I refused to just ignore what I now knew.
+- For many years, I struggled with how I felt about myself. I hid and harbored very self-destructive eating issues, namely anorexia, which at its worst caused me to lose half of my hair and brought my weight down dramatically.

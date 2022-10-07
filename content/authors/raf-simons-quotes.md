@@ -1,0 +1,66 @@
++++
+author = "Raf Simons"
+title = "Raf Simons Quotes"
+quotes_len = "60"
+description = "the best 60 Raf Simons Quotes"
++++
+- I am somebody who focuses on a dialogue between generations - that's the drive of my work. I believe the young generation take the power; they'll take over at one point, but the older generation, they'll push it away only because of the fear. I'm the opposite; I'm curious.
+- As an industrial designer, you design the thing by yourself, and then it goes away from you, whereas fashion is in constant relation to the body and to psychology. It makes it more complicated, and it makes it more challenging.
+- I'm shy, but not on a one-to-one basis. Over the years, I have become acclimatised to a bit of publicity.
+- L.A. interests me, the whole band scene and relaxed carefree feel, but it does not mean you have to dress like a hippy.
+- My mother was a cleaning lady all her life.
+- Until I was eighteen, I did not know that you could study fashion design or art. I really didn't know. I already had my nose in the art world; I was already looking at things, but I didn't really get it that you could study that because my school was a very different environment.
+- My inspiration is endless; I can't define it. It is a constant flow and evolution. In general, I'm taking it from everywhere. People get nervous when they walk with me, as I'll see something and suddenly have to text it to myself.
+- My point of view is that if I love a certain kind of beauty, I want more of that beauty. I don't need 200 different beauties.
+- I was raised in a very happy nest by very happy people, and I like to think that those are enough ingredients to make me succeed at Dior.
+- I couldn't go now to a brand that had a niche attitude like... gothic. I couldn't do that. Well, I could do it, but I wouldn't find it interesting, challenging.
+- I fantasise about what the future could be in terms of aesthetic and psychology. It's the most difficult thing to do because you have to start from the past - your favourite architect, your favourite song - you take it all with you.
+- The Chanel woman? I don't even need to see; I smell her from round the corner.
+- The fashion world doesn't know the word 'stop,' so you have to make sure there are sublime moments every day.
+- There are people who, if they see something in couture that they perceive as ready-to-wear, they're in shock.
+- Antwerp literally was a trash hole, but fashion changed that. The designers there were extreme, and their work was hard to understand. But now, people from all over the world come to Antwerp to shop.
+- In fashion design, you can divide people into two groups. You have people who come with an aesthetic that is there forever, even if it evolves. Then you have people I call 'jumpers.' One season it can be this; the next season it's completely something else. I always knew I am more of a jumper.
+- I'm not so rock and roll. I'm more techno.
+- Fashion is such an octopus. You're connected to so many people: suppliers, pattern makers, production teams, marketing teams, vendors.
+- You cannot have adoration without being criticized.
+- One of the first things I picked up when I was very, very young out of a record store was work from Peter Saville - the early things he used to do for Factory Records.
+- Every weekend, I'm on the highway to Antwerp. I need to be there, to have the calm. It's a whole different life: I jump on my bike, and it's so small, I can be anywhere in a minute. I like to be at home when there's free time because when you're at a big company, you're constantly surrounded by 30 people.
+- Berlin is in a state of transition. There are lots of people who don't stay here. They pass through. They might not 'clean up,' but they mature. It is a city where people spend a significant time in their lives, and then they move on.
+- I'm not an isolated person. The more I connect to people, the more I have the feeling that things work.
+- I'm fascinated by the way Diane Arbus saw things. She came from this fashion background and then twisted it.
+- Dress codes and gestures and attitudes have always inspired me, as has youth culture in general, although now I question it more. If you analyze youth cultures over history, there has always been something strict about them - you have to be like this or like that.
+- I'm very scared sometimes that fashion might attack its own magic by the amount of exposure.
+- I never really have to sit at a desk thinking, 'What should I do now?' It doesn't work like that for me, and it never has. My thinking process is constant.
+- For me, Warhol made so much sense.
+- If I see a fashion show with literal influences, it doesn't make me think any more. It doesn't make me dream.
+- I see there is a lot of behaviour in men's fashion, which is systematic. It's a lot about all these kind of clothes that can be easily combined with each other, and it's less and less, I think, about making a fashion statement.
+- I find it fascinating to see the fact that women want to buy things that they see on men.
+- Fashion has a long interest in collaborative situations.
+- Fashion is so mass-produced now; I hope there will come a refocus on how people see couture. And I would also hope for a new focus on the craft.
+- Our society wants things to grow, and our society wants things to become bigger and bigger. Everything has to be put under the spotlight.
+- What I've been conscious of, from the beginning is that I can't be Jil Sander.
+- People who don't know me look at my world as something very hard-core, and I don't feel it that way. It's not what attracts me.
+- I like very much to put on fashion shows.
+- I don't have so many things in the fashion world that interest me. It's probably because I am so deeply into it. Often when you go very deep into something, you also discover what it's about, and you understand it better. With the art world, I still have a lot of curiosity.
+- My own brand will stand or fall because of me. Dior won't fall if I fall. It will also still stand if I'm not there. I'm coming in there, and it's like a - I don't know the English word - like a passage.
+- In the nineties, it was common to see people who expressed themselves through one designer - the Jil Sander woman, the Martin Margiela woman. You saw her on the street, and you knew who she was.
+- I am always attracted to the moments when a person who is associated with a certain message, image or sensibility evolves. I am very interested in how audiences respond to that maturation and absorb the evolution.
+- We all know and we all perceive Christian Dior in a very specific way.
+- I'm usually very attracted to things that I can't define. If something's too clear, it's very often not inspiring to me anymore.
+- I know this independence is what people like most about my brand.
+- The fashion thing is something I do, and yes, it is definitely also becoming a part of myself and my personality. It also doesn't really feel like a job, either: it's a dream or a passion or something.
+- I want to get away from couture just being done for a picture or for a single moment on the red carpet. I want to try and convince women that couture can be worn in the day and that there's a reality and relevance there, because that's what Mr. Christian Dior wanted.
+- My ideas for the next collection always happen a couple of months before the show. I have learned to shut up and not bother my assistants with it.
+- I'd like to see fashion slow down a bit. What freaks me out about fashion today is the speed - the speed of consuming, the speed of ideas. When fashion moves so fast, it takes away something I always loved, which is the idea that fashion should be slightly elusive. Hard to grasp, hard to find.
+- My whole life, I've always had to be surrounded by creative things. I find it relaxing to be in touch with creations by other people.
+- My dad only ever talked about two things: bicycles and Mercedes.
+- In my opinion, Christian Dior was never, ever theatre.
+- Somewhere, in some city in America, someone is wearing my clothes, and I'm happy with that.
+- My challenge is to find a beautiful balance: to make women beautiful, to make a woman dream to wear a beautiful outfit.
+- I was growing up in the New Wave period, but that wasn't allowed in school. I remember moments when they wouldn't let four people dressed in black stand together on the playground.
+- I'm a designer, and for me, things are always evolving, and such evolution is necessary.
+- We Belgians love when we can go to L.A. because the city is amazing and the climate is fantastic.
+- Computers let people avoid people, going out to explore. It's so different to just open a website instead of looking at a Picasso in a museum in Paris.
+- There's a very different kind of psychology going on in the fashion scene than in art. When artists connect to a system because they want to make a living, it's their own choice. In fashion, designers don't have that choice.
+- You can instantly spot a Chanel woman, so I want to develop the Dior woman.
+- Unlike fashion, art isn't applied. It doesn't have to serve anybody. It doesn't have to be there for any other reason than to give an impression of what the world is about.

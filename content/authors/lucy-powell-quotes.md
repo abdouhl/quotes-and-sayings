@@ -1,0 +1,66 @@
++++
+author = "Lucy Powell"
+title = "Lucy Powell Quotes"
+quotes_len = "60"
+description = "the best 60 Lucy Powell Quotes"
++++
+- Team GB's success at the Beijing Olympics can, in part, be said to have been made in Manchester. For example, all the cycling medal winners trained at Manchester's velodrome, the National Cycling Centre.
+- Even though I support the blue side of Manchester's football heritage, I don't really mind that wherever I go in the world it's not Manchester City that starts the conversation. 'Ah, yes, Manchester United,' is the response when I say where I come from. It's commonplace everywhere - in Europe, Africa, Asia and even the U.S.
+- In the current climate motorists have a long list of issues from which to choose to raise on the doorstep. Policies aimed at reducing emissions - like the changes to Vehicle Excise Duty or here in Manchester the proposals for congestion charges - are not without controversy.
+- Today the demands are for even higher standards in the quality of care, for greater flexibility and convenience in treatment times, and for more prevention through screening and health checks.
+- The impact of the downturn is starting to feel very real. House prices and the housing market have been taking the knock for some time and that's affecting people.
+- As the prospect of a Tory government gets nearer, many traditional Labour voters - some who switched away in recent times and many who stayed at home - seem more determined to prevent that happening.
+- Sixteen- and 17-year-olds pay taxes and can join the army, so surely they should in turn be given their right to vote.
+- People in south Manchester overwhelming want to be able to recycle more than they currently can - especially cardboard and plastics - and want more frequent and accessible collections, particularly for those living in flats.
+- The Tories seem unable to make any impact north of the border.
+- As the economy faces such difficulties, more tough questions need to be asked about what the Tories would do if elected. Their ideology of free markets and small government needs challenging. That has to be part of our job.
+- The era of industrial Britain, where a large section of our workforce provided cheap labour in factories and processing goods, is over.
+- Like many of my friends and colleagues, I can't get enough of Obama news; latest polling, speeches, visits, reaction of world leaders.
+- Although my seat is a contest between Labour and the Lib Dems, it could well make the difference between a Labour and a Tory government at the next election. In terms of international development, this choice is a very clear one.
+- It's not a matter of if economies around the world becoming low-carbon, but when and how: through struggle and strife or through advancement and progressive leadership. Larry Elliot described it today as the 'Green New Deal.' It's a leadership we in Britain can provide, and from which our economy can benefit.
+- I wish that Iraq had not happened - and that we had not lost touch with so many of our natural supporters. But this should have provided an opportunity for the Liberal Democrats as a party. Yet their protest gains are now diminishing.
+- Over the last 15 years or so, Manchester has undergone huge transformation - from a city in decline and on its knees to one that is growing, vibrant and confident.
+- Funding for sports (and the arts) are often the first things facing the chop in difficult times.
+- In these difficult times, when tough decisions are required, the differences between Labour and the Tories are becoming much clearer. One party believes in intervention to reduce social and economic costs and the other believes in market forces and letting things take their course.
+- I will take a short time out from being in Parliament when the baby is born but I'll still be doing my constituency work - just with another baby in tow.
+- It's become unfashionable to celebrate political achievement, and Labour achievement even less so. And it's positively uncouth to be proud of something that this Labour government is doing. So, slam me for saying so, but I'm really proud of the NHS.
+- At times unpopular measures are needed in order to change behaviour.
+- Globalisation means that for a high-wage, developed economy like Britain's to compete we need to focus our efforts on the highly skilled, added-value sectors such as advanced manufacturing, creative industries, engineering and even financial services.
+- I just hope that the democratic will of the Zimbabwean people prevails. If it does we must move quickly to help restore stability and prosperity.
+- We in the Labour party know better than most that opposition is the easy part. What's more difficult is governing and setting out an agenda for government.
+- Some argue that now isn't the time to push the green agenda - that all efforts should be on preventing a serious recession. That is a false choice. It fails to recognise that climate change and our carbon reliance is part of problem - high fuel prices and food shortages due to poor crop yields compound today's financial difficulties.
+- Events are moving so fast and what in one moment seems impossible, the next is happening. I'm sure historians will, in time, provide theories and analysis, but for now I think most of us simply want the tide stemmed.
+- In last year's local elections in Manchester a third of those who voted did so by post. It's not just that people are choosing to get postal votes, but having one makes it much more likely that they'll vote.
+- Fossil fuels, including oil, are running out and supplies are getting harder to find. If we do nothing, prices will continue to rise and our reliance on oil will come to an abrupt and tumultuous end, causing global economic and social turmoil.
+- In Scotland, the indication is that for the Westminster elections at least, Labour voters are satisfied with their government.
+- As a relatively young woman - I'm 33 - I hope to one day have a family and already have commitments. If and when I'm elected as an MP, I would face a choice: take my family with me to London each week or be apart for four, maybe five, nights a week.
+- For sure, the 'Obamania' that's fast taking hold reflects an incredible thirst for change in global politics and, dare I say, a wave of optimism that things can be different.
+- The cost of motoring is a massive issue at the moment, there's no question. The price of petrol goes up every time you go to the petrol station.
+- Doing nothing and shrinking spending may save us public money in the short term but could cost us a great deal more over time as the recession takes hold for much longer.
+- It's estimated that by 2030 there will be virtually no unskilled jobs in the British economy.
+- What the Lib Dems have failed to do is offer any meaningful agenda for government or for power.
+- The choice between a Labour government and a Tory one is sharpening minds.
+- In politics, the number of women in the cabinet has fallen and, if current poll trends continue and Labour loses a number of marginal seats, the number of female MPs is likely to drop significantly.
+- In an era when party fundraising is badly tainted, dinners are a really good way of raising cash for campaigning. Lots of people giving very small amounts of money through ticket sales and raffle prizes: yes, it's much harder work than big donations, but I think it's a more democratic and transparent way of fundraising.
+- Over the last 10 years a huge amount has been achieved in getting people into work. Measures such as the New Deal, tax credits, the minimum wage and improved childcare have brought about record numbers of people in work, a number that is still rising despite the global economic slowdown.
+- In the industrial revolution Britain led the world in advances that enabled mass production: trade exchanges, transportation, factory technology and new skills needed for the new industrialised world.
+- Being out and about talking to residents and representing their views is, in my view, as important to politics as the grandstanding that takes place in Westminster.
+- Connecting people to jobs and to each other is absolutely vital to a city's economy (and to the wider economy).
+- You're wrong if you think young people don't deserve the vote.
+- We need to dig deep and give people a reason to be optimistic just as Obama is doing in America. Because in the same way that outcome of the U.S. elections will change the course of events there and around the world, so too do politics here in Britain.
+- We in the Labour party owe it to the people we represent to make sure that we offer a choice at the next election between our Labour values and those of the Conservatives.
+- People rightly want our political leaders - on all sides - to concentrate on minimising the damage to jobs, living standards and our savings from the banking crisis.
+- Both the velodrome and the Commonwealth swimming pool are open to the public and are frequently used by local schools and the local community. Over the last six years young people have been inspired to take up swimming and cycling more seriously; some of them are now coming through as Olympic champions or hopefuls.
+- Indeed, when all parties campaign effectively the overall effect is to push up voting rates, as you see in tight marginal seats or close general elections. That must be good for democracy.
+- There's a loss of faith in the banking system that for so long has been the backbone of prosperity and growth.
+- For us political activists and candidates, the morning after any election is a mix of emotions - the personal and the immediate, the culmination of your own recent campaigning efforts; and the fortunes of your party and the success or otherwise of what you stand for and believe in.
+- The lack of available credit and loans is having a severe impact on small businesses in particular, but also their suppliers and the bigger companies too.
+- The Tories and the Lib Dems talk about social mobility, but, short of winning the lottery, the only way to guarantee young people from all backgrounds the opportunity to do better and to raise aspirations is through education.
+- I'm honoured to have been selected to be the Labour candidate for Manchester Central.
+- These are tough times and under this Tory-led government many people in Manchester are suffering and getting left behind. If elected I will use all my energy, skills, experience and knowledge to stand up for our communities and get things done for the better.
+- I have run a general election campaign pregnant and ran Ed Miliband's leadership campaign commuting to London with a new baby so I already have my system set up.
+- The Labour party has done more than any other to address gender inequalities, through legislation and other means, and to increase women's representation in politics, which has led to recent increases in the number of female politicians.
+- Surely, the best and most effective measure is to get the economy moving and shorten the period of recession or slowdown. That's the rationale for Gordon Brown's 'fiscal stimulus' and it sounds like a good one to me.
+- At its most basic the democratic contract is a simple one: the right to vote comes with a responsibility to society, through tax payments and citizenship.
+- The economic and social decline of Zimbabwe is shocking and appalling. Life there is unrecognisable from that of the recent past. Each day is a struggle for basic survival.
+- A global deal will only be possible if Britain plays its part, leading the way with other developed countries.

@@ -1,0 +1,61 @@
++++
+author = "Bill Burr"
+title = "Bill Burr Quotes"
+quotes_len = "55"
+description = "the best 55 Bill Burr Quotes"
++++
+- I like finding stuff that I suck at and trying to get better. So I'm taking classes, getting myself comfortable in an acting scene. You've got to work out those ticks. For instance, standing up used to be really hard for me. I act much better if I'm sitting down.
+- I don't take anything from the podcast and bring it to my act, because I feel like that's been burned, unless I feel like I can really develop it beyond two or three jumps beyond what I said on the podcast.
+- I've been guilty of being in the writers' room and going too dark; other people have gone too wacky and zany.
+- You have to understand how bad I wanted to be a comedian, how much I loved doing it. I still can't believe I get to do this for a living and have people come up and want to see me.
+- That's kind of my job in the writer's room. I'm always the guy going, like, 'People wouldn't say that there. They wouldn't say that.' Like, I hate when I watch sitcoms and something crazy happens, and people just kind of go, 'Huh?' and then they just go on.
+- People focus too much on whether there's a Democrat or a Republican in office. It's not like this guy Kim-Jong Un got into power the second Trump got into power. It's not like he wasn't a problem. It's not like we haven't had warmongers. It's not like corporations haven't been the main influence on what we're doing around the world.
+- My parents have a ridiculous work ethic; my dad just works, works, works, works, works. I think it would be hard to find a guy who's logged more hours than that guy.
+- Did you ever spell a word so bad that your spell check has absolutely no clue what you're trying to spell? What do you end up getting, you end up getting, like, a question mark. You got a million dollars of technology just looking back at you like, 'You got me, buddy. Which is pretty amazing because I have all the words.'
+- When I watch 'Breaking Bad,' my stomach is in knots.
+- I think some people really change when they become a dad. Like, I've changed in different ways. I - but, like, my comedy hasn't changed. And I've also seen people do that where you become this - you become a dad, and then all of a sudden, you're trying to be a role model.
+- As far as my mindset changing, I see myself having more empathy in my older age.
+- I gotta be honest with you. I'm kind of jealous of the way my dad gets to talk to my mom sometimes. Where are all those old-school women you can just take your day out on? When did they stop making those angels?
+- The Giants beating the undefeated Patriots, that's all a joke. The star of a reality show is going to run the country. The guy who decided if Bret Michaels or Cyndi Lauper would make a better CEO for a company that doesn't exist is going to be running stuff.
+- I still remember the first gig where I got people going, it was Rascals in New Jersey, and the place was packed. I was scared. People were expecting me to be funny. I gotta be honest, every time I walk into a club, it's that same fear.
+- I can't quite remember who I voted for president. It wasn't Trump or Hillary, though. I didn't like either one of them.
+- I used to think you had to live this miserable life and that that would make you funnier, but you don't. The misery will come. The misery will find you.
+- I was in NYC during 9/11; it happened on a Tuesday, I was on stage Thursday. It was a small crowd, but it took about 10 days and comedy clubs were packed.
+- I love making movies, and being in any that I can be in. I'd like to be in those giant movies, as the fifth or sixth lead, and have three or four killer scenes. You don't have the responsibility of the entire movie being on you. I like those roles. I'm shooting for the middle.
+- What happens is when you have a kid, you are a unique human being, so you are going to have a unique experience. No one can really tell you what youre going to feel.
+- The only time I get sick of making people laugh is when I'm in a non-writing-joke mode, and I just can't seem to come up with anything new that's funny. That's a tough place to be as a comedian.
+- There is a very difficult period in a comedian's career - it's that window of time where you're good enough to draw tickets but nobody knows you yet.
+- If I can sell out clubs and theaters and play dirtbags in movies, and get blown up in a car or get the crap beat out of me in a movie, that's good for me; I'm good.
+- They say you don't want to meet your heroes, but those two guys, you do want to meet them, because they do not disappoint. Walken has this amazing sense of humor, and Pacino is like just a sweetheart of a guy.
+- I don't think that hard about why people come out to my shows or trying to influence them or anything. I'm just happy that they show up.
+- Rich people never go to war. You ask a college kid to go to war, and he's like, 'Umm, I'm taking this sociology class, and I think war is, like, really stupid, and my roommate's, like, half Afghani, so it's going to cause some static.'
+- When I'm up there, I'm just thinking that I've got to make them laugh or they won't show up next time.
+- Stand up comedy is this thing you get to do, so you have to treat it with respect. You can't just be like, 'Alright, I got my hour down, people are coming to see me now. Now, I'm going to lean on the mike stand.' No, you gotta work even harder now. You got to top what you already did. Because they'll find someone else.
+- I have friends in this business who put pictures of their kids on Facebook. That's not something I would do.
+- Patrice O'Neal is the best comic I ever saw.
+- You probably need 1/10 of the world's population for us to continue to exist. There's just too many damn people. You have to somehow get us from 7 billion people to... I don't know what the magic number is, but I imagine at some point, that will happen. And I don't know about you, but I don't think I'm making the cut.
+- The first night you walk down to a comedy club, at least for me, I had my voice, and then I went on stage and I lost it.
+- My favorite kind of humor is basically, if it was happening to you, it wouldn't be funny, but to observe it, it's hilarious.
+- I think it's hilarious the way Obama is depicted post-presidency. He's always kayaking or playing jai alai like he's some retired athlete or something. Like he wasn't doing the exact same thing everybody else was doing.
+- My favorite part of podcasting is running my mouth for an hour. The only time I don't like it is when I'm off. Then that hour feels like a day and a half.
+- You know, it wasn't even that I'm a funny guy, I just loved stand-up comedy and I wanted to do it. It was one of the few things in my life that I knew I was going to be able to do, and I also felt as though I'd be able to do it the way I wanted to do it.
+- I've battled with that type of stuff, but what I've found is that by doing stand-up, I've actually learned about depression and how to combat it. I don't have clinical, but I've definitely had my bouts with it.
+- The word 'ranting' is kind of overused now. Literally, if you just talk about a subject for 30 seconds or more, even if you never raised your voice, if I just talk about it, it's called a rant.
+- You have to show up at 7 in the morning and be on like it's 9 at night. It's a skill. Some comics run from it, and they hate doing it, but the comics that are pros understand how important it is, and they get good at it.
+- A plumber doesn't change the way he plumbs when he has a kid. You're a comedian. This is your style.
+- Being a comedian is an incredible thing, but it can be scary sometimes.
+- Look how long it took to build the Freedom Tower, and we wanted that. It took 15 years.
+- Working on the Dave Chappelle show was amazing.
+- Podcasting is great. Total freedom.
+- Being a stand-up comic, this isn't a stepping-stone for me; it's what I do, and this is what I'm always going to do. And even if I do a TV show, the only reasons to do a TV show is to get more people to know me to come out to my stand-up shows.
+- Carnegie Hall is as good as they say it is. It's not like Stonehenge which looks great in books but then you go there and it's a pile of rocks next to a highway. There's actually a highway right next to it, but you don't see that in pictures.
+- I'm not going to lie. I am a psycho. Luckily, I get most of it out on stage.
+- For us, a lot of the cartoon and crazy stuff on 'F Is for Family' is tertiary characters; it happens on the television in the show. We try to keep whatever problem the Murphy family is dealing with rooted as much as we can in reality.
+- I think I just say what I'm thinking. And - you know, if people relate to it, they relate to it, but - I really - you know, if you really listen to me, I don't have my finger on any pulse.
+- I love doing radio, and I love doing stand-up, obviously.
+- I have this weird sort of Gemini thing where I can really be empathetic and a loving person. But if you piss me off, I can be one of the meanest, most sadistic people.
+- You start in bars and then restaurants, then you want to get into comedy clubs where you feature, then you headline, and once you sell out clubs you're into theaters. I've been able to get there, and it's cool to do that.
+- Everyone should just drive out to the Mojave Desert and just experience it, and it's a fun place to live.
+- If you do live shows long enough as a comedian, you can still hear that rhythm of laughing. It's ingrained in you, and it's not something you can really teach somebody. It comes from doing hours and hours and hours and years and decades on stage, performing in front of live crowds.
+- To me, 'rant' was ranting and raving. So to me, it's heightened. emotional flipping out, frothing at the mouth. Where I grew up, that was a rant. I don't consider what I'm doing ranting.
+- Like most comics, I tried to come up with a sitcom idea that was based around my life. And it didn't work out. But maybe because it didn't work out, that's why I ended up on 'Breaking Bad;' I don't know.

@@ -1,0 +1,26 @@
++++
+author = "Roland Barthes"
+title = "Roland Barthes Quotes"
+quotes_len = "20"
+description = "the best 20 Roland Barthes Quotes"
++++
+- What I claim is to live to the full the contradiction of my time, which may well make sarcasm the condition of truth.
+- A photograph is always invisible, it is not it that we see.
+- There is only one way left to escape the alienation of present day society: to retreat ahead of it.
+- I have tried to be as eclectic as I possibly can with my professional life, and so far it's been pretty fun.
+- Literature is without proofs. By which it must be understood that it cannot prove, not only what it says, but even that it is worth the trouble of saying it.
+- I call the discourse of power any discourse that engenders blame, hence guilt, in its recipient.
+- Myth is neither a lie nor a confession: it is an inflexion.
+- Language is a skin: I rub my language against the other. It is as if I had words instead of fingers, or fingers at the tip of my words. My language trembles with desire.
+- Through the mythology of Einstein, the world blissfully regained the image of knowledge reduced to a formula.
+- The skyscraper establishes the block, the block creates the street, the street offers itself to man.
+- What the public wants is the image of passion, not passion itself.
+- The photographic image... is a message without a code.
+- The politician being interviewed clearly takes a great deal of trouble to imagine an ending to his sentence: and if he stopped short? His entire policy would be jeopardized!
+- Language is legislation, speech is its code. We do not see the power which is in speech because we forget that all speech is a classification, and that all classifications are oppressive.
+- To eat steak rare... represents both a nature and a morality.
+- For the theatre one needs long arms; it is better to have them too long than too short. An artiste with short arms can never, never make a fine gesture.
+- Literature is the question minus the answer.
+- To try to write love is to confront the muck of language: that region of hysteria where language is both too much and too little, excessive and impoverished.
+- The bastard form of mass culture is humiliated repetition... always new books, new programs, new films, news items, but always the same meaning.
+- The New is not a fashion, it is a value.

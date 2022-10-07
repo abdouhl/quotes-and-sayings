@@ -1,0 +1,51 @@
++++
+author = "Ron Williams"
+title = "Ron Williams Quotes"
+quotes_len = "45"
+description = "the best 45 Ron Williams Quotes"
++++
+- The basic premise of insurance is the pooling of funds from many to cover the costs of some. There are complicated methods for how to do this, but one fact remains consistent: For insurance to work well, people need to be in and stay in the insurance pool.
+- When I retired from Aetna, I became part of the private equity world. It turned out to be a natural fit.
+- When I was a CEO, I thought I understood private equity. I didn't. And what I've learned since my retirement, and since becoming directly involved in the world of private equity, points the way to a new career path for thousands of talented senior executives - and a new engine for value creation.
+- We are a wealthy country. We also are the global engine of innovation in health care, whether it's the pharmaceutical industry or the creation of medical devices.
+- Younger participants in the exchanges and who purchase individual insurance paid more, and they just didn't see the value, and therefore, they did not come forward and sign up.
+- It's difficult to compete against a player that's also refereeing the game.
+- I think reasonable people could agree that, at some point, there's enough income that someone should be expected to participate in the health-care system.
+- There is no question in my mind that the health care system has to work.
+- We know a culture doesn't just happen; it is the result of what you do every day.
+- As a CEO, I had significant exposure to private equity, enough that I had in no way bought into the media's caricature: rapacious privateers who destroy companies.
+- What we need are different types of insurance, some of which have copays, some that have coinsurance, but they need to offer a better first layer of coverage.
+- One person uninsured is one person too many.
+- I think about culture and values as curbs on a highway. When the curbs are high enough, a vehicle can veer to the left or right, but the curbs keep the car on the road. It is the CEO's job to build those curbs as high as possible.
+- As CEO of Aetna, I was a buyer of portfolio companies rather than a participant in the value creation process. From the end of the assembly line, what happened in manufacturing wasn't visible to me.
+- The ACA's reliance on mandatory participation in exchanges as the only way to obtain a health insurance subsidy is fundamentally flawed.
+- We must find a way to cover those who are no longer healthy but need care.
+- In my experience, it is the leader - the CEO - who plays the crucial role in creating and 'owning' an organization's culture, setting the tone, and executing on that consistently.
+- For insurance solvency, ongoing plan participation is vital.
+- If an individual sticks up a bank and walks off with $25,000, there are consequences. If someone who really could have had an insurance policy consumes $25,000 worth of health care, everyone else pays for that.
+- King v. Burwell pointed at but did not directly challenge the ACA's most essential weakness: Government-mandated participation in health insurance exchanges as a precondition to receiving a subsidy is not the best or most effective means of achieving its goal of expanded access to health coverage.
+- I believe in the power of a positive, high-performance culture, which begins with strong ethical values at the core.
+- I've been on record since 2005 saying we need to find a way to eliminate the use of the pre-existing condition. The way to do that is really to get everyone in the insurance pool, and that way, we'll have people who need health services today, some who need it tomorrow, and some who won't need it for quite some time.
+- As consumers are being asked to pay more of the cost of healthcare services, they will increasingly demand more value and will also ask for more transparency and tools to determine the value they are receiving.
+- After much reflection, I have concluded that the federal individual mandate, which requires all Americans to purchase health insurance starting in 2014, will not be upheld.
+- I am not a lawyer or an expert on the Constitution. But as the chairman and CEO of a major health plan, I had a ringside seat to the entire health-care reform process.
+- In my career, there have been many things I am fortunate enough to be proud of. Yet one of the things I feel most strongly about is the culture we created during the ten years I was at Aetna, and its enduring impact.
+- The federal government should encourage rather than micromanage market reform in all 50 states. Since health care is local, private-sector innovation in conjunction with state-level reform of the individual and small-group markets is a better approach.
+- Much of a leader's responsibility in creating a positive, high-performance culture is setting the right tone and acting on it consistently. That day-to-day execution - the tenor and tone - really makes the difference. One deviation - one exasperating meeting - and the CEO legitimizes bad behavior.
+- I think the U.S. is conflicted. When it comes to our own health care, we all want the best - access to the latest and most important technology. At the same time, health care is typically purchased in an institutional setting. So we purchase it in the aggregate, but we consume it as individuals.
+- Having no choice doesn't result in innovation and performance improvement.
+- Deliver bad news early and personally.
+- I remain deeply interested in the transformation of the American healthcare system to improve quality and contain costs.
+- A positive, high-performance culture can quickly turn negative if the CEO is not rigorous in constantly articulating values and holding people accountable for both results and values.
+- Every institution is perfectly capable of forgetting what it has learned in three years.
+- We have a moral obligation to get healthcare to people who need it.
+- We confuse insurance with our moral obligation to provide health-care services to people. And what we try to do is finance our moral obligation through the insurance system, which punishes the people who are fiscally responsible to buy insurance.
+- I have seen the healthcare system from many angles, including as a patient.
+- In health care, you really need a balance of people who need health care today, tomorrow, and in the future.
+- I think if we're going to have a requirement that everyone have equal access to insurance, you really have to have a way to make certain that everyone is expected to participate.
+- The ACA - popularly known as 'Obamacare' - has been an important step forward toward an admirable goal: providing access to health insurance for all Americans. But like many reforms generated by the political process, the ACA is problematic.
+- Championing quality improvement and value in the health care system is a passion of mine, and I'm able to bring about change through private equity activities.
+- My belief is that a positive culture works best because people want to meet or exceed expectations, not demands.
+- There are several problems with the ACA's reliance on means-based inclusion criteria and mandatory participation in exchanges - the complexity of the exchange mechanism, and the potential for income-based subsidies to become a disincentive to earn if insurance rates escalate for those beyond the income threshold.
+- Every morning, I have high expectations, and then I confront the reality of what happens at 4 o'clock.
+- Many who know me or have worked for me are aware of my penchant for strategic planning. I consider it a critical component of the success of any organization and believe in the value of planning for a company's needs over multiple time horizons, as well as reviews against that plan at regular intervals.

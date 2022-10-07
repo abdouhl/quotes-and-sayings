@@ -1,0 +1,31 @@
++++
+author = "Cathleen Schine"
+title = "Cathleen Schine Quotes"
+quotes_len = "25"
+description = "the best 25 Cathleen Schine Quotes"
++++
+- I grew up reading books about heroic collies.
+- Anyone who has read a Trollope novel knows that women did not have to wait until 1960 to feel trapped.
+- 'Emma' is my favorite Jane Austen novel - one of my favorite novels period; a novel about intelligence outsmarting itself, about a complicated, nuanced, irresistible heroine who does everything wrong.
+- For women, World War II had offered an opportunity, and often the necessity, to get out of the house to work.
+- I do not go out to dinner or to the movies with the neighbors, as I do with my friends. I don't make dates with them. I don't have to.
+- In 'Pictures from an Institution,' Randall Jarrell was able to transcend the academic novel by simply ignoring it, writing a comedy with no plot at all beyond his own pleasure in language and humanity itself.
+- Alice Munro is not only revered, she is cherished, her stories handled lovingly, turned over and over, gazed at and studied and breathed in with something approaching awe. She has never, over the years, written the way any of her contemporaries have.
+- Stewardesses were a joke to many of us coming of age in the liberated Sixties. They were no joke in the women's movement that liberated us, however.
+- I was one of those children they used to call 'readers.'
+- 'Blue Nights' is a story of loss: simple, wrenching, inconsolable loss.
+- If you spend all your time reading books that you only pretend to understand, year after year, there isn't much room for anything else.
+- Michael Chabon has long moved easily between the playful, heartfelt realism of novels like 'The Mysteries of Pittsburgh' and 'Wonder Boys' and his playful, heartfelt, more fantastical novels like 'The Amazing Adventures of Kavalier & Clay' and 'The Yiddish Policemen's Union.'
+- In my stunted career as a scholar, I'd read promissory notes, papal bulls and guidelines for Inquisitorial interrogation. Dante, too. Boccaccio... But after 1400? Nihil.
+- A tenth of Dostoyevsky is plenty for a seventh grader, I think.
+- There are no moral lectures in 'Lookaway, Lookaway;' there aren't even any lessons. But there is passion. It is a work that hides its craft but never its beauty, that is ambitious but never pretentious, that does not sacrifice nuance for power or power for nuance.
+- I've been fortunate in that I never actually read any Jane Austen until I was thirty, thus sparing myself several decades of the unhappiness of having no new Jane Austen novels to read.
+- Nathaniel Rich wrote 'Odds Against Tomorrow' well before Hurricane Sandy and its surge crashed onto the isle of Manhattan, well before the streets were flooded and the subways drowned, only the Goldman Sachs building sparkling above the darkened avenues.
+- I do all my shopping on the Web. I do much of my research online. I have a blog, too. It is definitely a distraction. It is definitely a blessing. What blessing isn't a distraction, though?
+- 'What Was She Thinking? Notes on a Scandal' was thrilling in its light, deceptive tone, its subtle but irresistible momentum.
+- 'Use Me' is a wonderfully satisfying book.
+- I spend a lot, a lot, a lot of time on the Web.
+- One of my favorite passages in 'Leaves of Grass,' that breathless, exuberant poem so rich and full of innocence and joy and generosity and compassion, is 'Mannahatta.'
+- Good TV is not just TV about good behavior.
+- Everyone who moves to New York City has a book or movie or song that epitomizes the place for them. For me, it's 'The Cricket in Times Square', written by George Selden and illustrated by Garth Williams.
+- Women are in positions of power the most radical of activists could only dream of in 1960.

@@ -1,0 +1,103 @@
++++
+author = "Lionel Shriver"
+title = "Lionel Shriver Quotes"
+quotes_len = "97"
+description = "the best 97 Lionel Shriver Quotes"
++++
+- The daughter of an ordained minister, I had been forced to go to church since I was a toddler. I hated church and resented being forced to recite the Apostle's Creed, mumbling, 'I believe... ' when I didn't.
+- During the protracted tooth-and-nail tussle between Barack Obama and Hillary Clinton in the 2008 Democratic primaries, I was one of those fierce partisans desperate for the first black candidate with a serious shot at the White House to win the nomination.
+- A manuscript under way always gave me something to do; only while enduring the aimlessness between books was I truly glum.
+- For storytellers, financiers make ideal rogues. The easiest way to make characters unappealing is to make them rich - shorthand for spoiled, picky, superior, and cold-hearted.
+- Donald Trump wouldn't work on paper. Obnoxious, crass, boastful, and vulgar, with garish tastes and a Stepford wife - as a fictional character, he'd seem too crudely drawn. Even in a trashy airport thriller, readers wouldn't buy such a boor as president.
+- I'm not a religious person. Chances are that the universe neither treasures nor regrets us.
+- Perhaps scientists will eventually discover that we are all clockwork bunnies, and our experience of volition is an electro-chemical illusion.
+- As a child, I was always a sucker for anything in miniature, and it didn't have to be a dress: a desk, a Matchbox truck. Perhaps a childhood attraction to shrunken but compellingly realistic facsimiles is commonplace, if only because children themselves are compellingly realistic facsimiles of the giants who rule their world.
+- I am hopeful that the concept of 'cultural appropriation' is a passing fad: people with different backgrounds rubbing up against each other and exchanging ideas and practices is self-evidently one of the most productive, fascinating aspects of modern urban life.
+- I am bowled over by the massive number of remarkable people who face down the fact that no, they are not going to be film directors, famous artists, or billionaire entrepreneurs and still come out the other side as cheerful, decent, gracious human beings.
+- There was a point in the latter 1990s at which, suddenly, every sitcom and drama in sight had to have a gay or lesbian character or couple. That was good news as a voucher of the success of the gay rights movement, but it still grew a bit tiresome: 'Look at us! Our show is so hip, one of the characters is homosexual!'
+- At the keyboard, unrelenting anguish about hurting other people's feelings inhibits spontaneity and constipates creativity.
+- In the public mind, an investment banker is no longer conservative; he's a risk taker, a gambler in high stakes, not to mention a thief. These people are dangerous - deliciously so.
+- Set a good example as parents, since the most convincing argument that a girl can become a computer coder is that her mother is one.
+- What a good novelist does with a throwaway that serves no fictional purpose is throw it away.
+- As any traveller knows, heading elsewhere is one thing, getting back quite another.
+- Publishers like their authors to take advantage of publicity opportunities.
+- Authors are free to ignore their editors' advice. I often avail myself of this veto power - sometimes out of a pigheadedness for which I'll pay the price.
+- I guess I understand a public intellectual to be somebody who moves public discourse forward: someone who either says something new or says something that everybody knows to be true but is afraid to express.
+- Tory supporters are not spontaneously ashamed; they have been made to feel ashamed. British leftists fiercely believe they are right - in the sense of correct but also in the sense of just. Conservatives likewise believe they are right-as-in-correct. Yet Tories are less confident about whether their politics are right-as-in-just.
+- Though a fine writer, Scott Spencer will forever be associated with a cheesy, sentimental film starring the vapid box-office draw Brooke Shields.
+- A pre-nup is an insurance policy or, in brokerage terms, a short hedge - meant to mitigate a high-risk investment. It safeguards the love-struck from their own poor judgment of character.
+- A Trump presidency feels as if we've crawled between the covers of a really crummy book.
+- Dieting is odious and can require years of determination and sacrifice. I entirely understand the impulse to say, 'Screw it,' and have another piece of cake.
+- Oddly, for a book to do well merely because people like it is surprisingly rare.
+- While one can't always begrudge the wealth of people who have at least produced something of value, the rich of the financial world don't make anything but more money. They're not creative, aside from, perhaps, in accounting.
+- However unattractive, pre-nups are at least a way round a law that dictates simply because you love someone and share their bed, that person has a claim on everything you own.
+- Ever since Hiroshima, we've been faced with the depressing fact that you cannot un-invent something.
+- Over my lifetime, heavy usage has woefully eroded profanity's power.
+- The dumbest childhood vow I ever made was to finish every book I started.
+- We speak often of 'destroying the planet' when what we mean is destroying its habitability for humans.
+- The financial industry may not be synonymous with economics, but it does control a large enough sector of the global economy to sink us all, as was unnervingly demonstrated in 2008.
+- I can't be alone among fiction writers in regarding the world, so much weirder than anything we could make up, as beating us at our own game or in racking my brains over what could possibly constitute a contribution when novels pale before the newspaper.
+- Edith Wharton was a natural story-teller. As plots do in real life, hers flow directly from character. Her prose is so effortlessly elegant that you're rarely aware as they purl by that the sentences are so pretty. More concerned with what is put than how it is put, she also understood that you only say anything at all when you say it well.
+- Overly vigorous investigations of ominously ill-defined 'bullying' can themselves constitute a form of bullying.
+- I'm sometimes asked if I get bored with talking about 'Kevin,' and of course, the short answer is yes. Nevertheless, after a long slog in the literary trenches, I never take a single reader for granted and always remind myself that for new readers the unfolding story is fresh.
+- In the big picture, few of our careers live up to the dreams we nursed when we were young. In fact, one underside of success is that it's nearly always penultimate, and so every accomplishment merely raises the bar.
+- I read 'The Bell Jar' as an adolescent and, like most teenagers, had no problem identifying with a young woman who had everything going for her - looks, talent, opportunity, with her 'whole life ahead of her,' yadda, yadda, yadda - yet was spiraling into misery.
+- I do occasionally encounter a British business that delivers what and when, and for exactly the price, they promised. But commercial paragons in the U.K. are rare.
+- Weight having become politicised, anyone with a profile in the media who either subscribes to or departs from the template of tininess implicitly represents a constituency, whether they want to or not.
+- When we conceive of happiness as a static state, effectively a place toward which we are aimed but at which most of us will never feel we've quite arrived, then the vision becomes exclusionary.
+- February is for curmudgeons, whinge-bags, and misanthropes. You can't begrudge us one month of the year or blame us for being even crabbier, it's so short. There is nothing good about it, which is why it's so great.
+- Novelists are too often assumed to write veiled autobiography.
+- In my teens, I eyed my adulthood with trepidation, as if stalked by a stranger - one who would seize control as if by demonic possession and regard my fledgling incarnation with contempt.
+- Hungry for both fantasy and inspiration, readers crave protagonists who, after overcoming seemingly insurmountable obstacles, triumph at the end of the day.
+- In the perfect world, no one would need pre-nups. But all too often, a misty-eyed romancer at the altar transforms into a vengeful, avaricious fiscal predator when the marriage goes south.
+- In my country, we're sufficiently consumed by the concept of happiness that the right to its pursuit is enshrined in the Declaration of Independence. But what is happiness?
+- In economics, 'competitiveness' does not describe Barack Obama's insistence on not only being president of the U.S. but also beating his staff at bowling.
+- As individuals are best off believing they control their behaviour, the judiciary is best off imputing that control - barring powerful extenuating factors such as mental illness.
+- Conservative supporters might either have the courage of their convictions or, if truly ashamed, revise them, but they should at least refute the proposition that defending your own interests is only acceptable if you're broke.
+- Reality doesn't have to be plausible. Reality can be as preposterous as it pleases.
+- I might defend the reviewing trade, but a handful of haughty hired hands no longer having the last word on books is not a bad thing.
+- Ultimately, Hillary and Obama are on the same side.
+- I owe thanks to a thoughtful, sophisticated readership hungry for challenging subject matter, for honest portrayals of parenthood, and for fiction whose meaning is neither obvious nor morally pat.
+- Most books are three-thirds rubbish.
+- We probably give newspaper columnists too much weight.
+- I have buckets of sympathy for the obese, often subject to cruelty, ridicule, denunciation, and contempt.
+- Hypersensitivity has become a weapon.
+- In Shaker Heights, Ohio, one of America's first planned communities, order and harmony are prized.
+- Beauty is aspirational - an ideal that mortals approach but seldom attain.
+- Few Amazon punters will explore a book with the depth of an 800-word review.
+- As a woman, I'd be uneasy about being given the power to determine what is insulting to women in general.
+- We vainly fancy ourselves above the ugly informing and paranoia of the right-wing McCarthy era, but in the 21st century, the Left has fashioned a mirror image.
+- As a teenager, I ached to grow up even more than I dreaded to. I craved escape from my parents' impositions on what I believed.
+- Reading time is precious. Don't waste it. Reading bad books, or books that are wrong for a certain time in your life, can dangerously turn you off the activity altogether.
+- When my novels are packaged as exclusively for women, I'm not only cut off from a vital portion of my audience but clearly labelled as an author the literary establishment is free to dismiss.
+- The absence of doll babies in my toy chest didn't seriously influence my later decision not to become a mother; rather, I disdained Hasbro's Baby Alive wetting doll because I was already the kind of girl who would grow up to be childless by choice.
+- For pity's sake, if you don't take a shine to a novel, there are loads more in the world; read something else. Continue suffering, and it's not the author's fault. It's yours.
+- Clearly, freedom does not extend to the right to harm other people.
+- Awful film adaptations follow novelists for the rest of their lives. An atrocious movie of 'We Need to Talk About Kevin' could have stigmatised the book, aggrieved the novel's fans, and blighted my reputation forever.
+- Certainly, critics are not all created equal.
+- Ironically, heavier comedians, actors, and the characters they play are actually more sympathetic, and easier for audiences to identify with, than the svelte.
+- My agent had warned that, while a fine film would do my profile a world of good, a bad one wouldn't help me at all, and I suspected she was soft-pedalling the latter possibility. The effect of a truly execrable adaptation is worse than neutral. The stink rubs off.
+- I think Britain is a little better at bringing intellectuals into discourse than America, where I'm from. Though I would say, perhaps, that the U.K. prefers its intellectualism to be entertaining.
+- For the left-leaning, political identity is liable to be closely intertwined with personal identity. The left is collusive, if not presumptuous: should you get on well with leftists at a party, they will blithely assume that you share the same views on the invasion of Iraq, even if all you've talked about is the canapes.
+- Criminality being partially preordained may seem to let culprits off the hook. Yet it also makes the proclivity seem ineradicable and suggests that reform is unlikely: once a baddie, always a baddie.
+- Laws to protect 'public health' are potentially infinite, especially once they no longer have to be supported by any research whatsoever.
+- Trump is not charismatic. He is artless and politically clumsy and wears his egotism on his sleeve.
+- Writers who take on polarising issues are apt to step on a few toes.
+- Life's most underrated emotion is self-pity.
+- 'The Feminine Mystique' goads me to gratitude that, thanks to forerunners like Betty Friedan, I've had the opportunity to pursue a career.
+- By stereotyping my work's audience as self-involved and prissy, women-only packaging also insults my readers, who could all testify that trussing up my novels as sweet, girly, and soft is like stuffing a Rottweiler in a dress.
+- The sign that I don't like the book I'm reading is finding myself watching reruns of 'Come Dine With Me.'
+- I was terrified of growing up to become the anti-me, maturing into a woman whom I would not recognise and who wouldn't recognise her younger self.
+- A smaller waist is not the solution to all your problems.
+- In the era of Venus Williams, girliness and goo isn't the way to every woman's heart. Yet publishers presume that women only buy a book that looks soft and that appears to be all about women, even if it isn't. Yet women, unlike men, buy books by and about both sexes.
+- I was born after the heavy spade work of female emancipation was done.
+- When Truman Capote wrote from the perspective of condemned murderers from a lower economic class than his own, he had some gall. But writing fiction takes gall.
+- Formal declarations of mistrust, pre-nups are emotionally unfortunate. They overtly plan for failure, and thus involve a jarring cognitive dissonance.
+- The premiere of Lynne Ramsay's film of 'We Need To Talk About Kevin' at the Cannes film festival provides an apt juncture at which to celebrate the miraculous power - not of film but of fiction. Lo, I have created a monster.
+- Some of the best scenes in drama take almost no time - helping to illustrate that life-changing events in real life often occur in a split second, after which nothing is ever the same.
+- Letting ourselves down in some fashion is such an integral part of daily life that the paucity of literature on the subject is baffling.
+- Trump can't string a single grammatical sentence together, and at the podium, he is lumpen and awkward.
+- In grad school, I took a workshop with Scott Spencer, whose excellent novel 'Endless Love' had just been turned into a film. We students were in awe of his prestige. Yet Scott himself was chagrined; for good reason, he hated the movie.
+- Jonathan Lethem's 10th novel, 'The Blot,' is engaging, entertaining, and sharp for its first two-thirds. Then it goes to hell.
+- Happiness isn't a position. It's a trajectory.
+- Most women work not from yearning for fulfilment but yearning to pay the mortgage.

@@ -1,0 +1,81 @@
++++
+author = "Robert H. Schuller"
+title = "Robert H. Schuller Quotes"
+quotes_len = "75"
+description = "the best 75 Robert H. Schuller Quotes"
++++
+- The concept of the megachurch - some have attributed that to me. Whatever people want to buy, they can get it in the shopping center. It's one-stop shopping. Churches should be that way.
+- I built my church on Easter services, Christmas Eve services, and Norman Vincent Peale.
+- Jesus never called a human being a sinner.
+- If there exists no possibility of failure, then victory is meaningless.
+- Life is but a moment, death also is but another.
+- Always look at what you have left. Never look at what you have lost.
+- Better to do something imperfectly than to do nothing perfectly.
+- Goals are not only absolutely necessary to motivate us. They are essential to really keep us alive.
+- How we express ourselves in worship remains up in the air.
+- What great thing would you attempt if you knew you could not fail?
+- Anybody who succeeds is helping people. The secret to success is find a need and fill it; find a hurt and heal it; find a problem and solve it.
+- Some people are at the top of the ladder, some are in the middle, still more are at the bottom, and a whole lot more don't even know there is a ladder.
+- I have a reputation worldwide of being tolerant of all people and their views. I'm too well-educated to criticize a certain religion or group of people for what they believe in. It's called freedom.
+- High achievers spot rich opportunities swiftly, make big decisions quickly and move into action immediately. Follow these principles and you can make your dreams come true.
+- I want to build friendships. I want to come across as being a good illustration of what Jesus is like.
+- The Crystal Cathedral is not an attempt to be an architectural ego-statement. It's probably the ultimate spiritual and psychological statement that could be made in architectural terms.
+- Negative thinking is subtle and deceptive. It wears many faces and hides behind the mask of excuses. It is important to strip away the mask and discover the real, root emotion.
+- Anytime you get an idea, you need people to help you put it together. That is the beginning of an institution. When you create an institution, levels of authority and boundaries need to be established. If everybody owns it, nobody owns it. If everybody is responsible for it, nobody will be responsible.
+- What would you do if you knew you could not fail?
+- Never cut a tree down in the wintertime. Never make a negative decision in the low time. Never make your most important decisions when you are in your worst moods. Wait. Be patient. The storm will pass. The spring will come.
+- Let your hopes, not your hurts, shape your future.
+- There is a quiet place in Hawaii where, for over thirty years, I've gone to draw inspiration and write many of my books.
+- I was never close to Jerry Falwell because he had his ministry, I had mine. And we came from different theological training and from a different psychological education.
+- Press on. Obstacles are seldom the same size tomorrow as they are today.
+- It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.
+- If you're going to counsel people - and that's all my ministry is, it's a counseling ministry more than anything else - people have to believe that they can trust you and that they can listen to you, that you're going to try to help them and not just politically try to convert them to your views.
+- Every person is responsible for all the good within the scope of his abilities, and for no more, and none can tell whose sphere is the largest.
+- What appears to be the end of the road may simply be a bend in the road.
+- I'm very proud of all my children. They all have Christian families; they read the Bible; they pray; the kids go to Sunday school; they know the Ten Commandments by heart. That's my greatest honor, and I couldn't do anything to glorify God that could surpass that. That's very meaningful.
+- Our greatest lack is not money for any undertaking, but rather ideas, If the ideas are good, cash will somehow flow to where it is needed.
+- The Roman Catholic Church isn't going to change its theologies.
+- I have said to people I have six children, one son, four daughters, and a church.
+- When you can't solve the problem, manage it.
+- I think a good pastor is somebody who is honest and humble and has a really caring heart.
+- A mission is a place where you ask nonbelievers to come and find faith and hope and feel love.
+- Failure doesn't mean you are a failure it just means you haven't succeeded yet.
+- Problems are not stop signs, they are guidelines.
+- The hardest struggle of all is to be something different from what the average man is.
+- Twentieth century history of Christianity will name Oral Roberts as the voice that brought the Pentecostal movement to be taken seriously by mainline Christianity.
+- Goals must never be from your ego, but problems that cry for a solution.
+- The real minister's name that we honor is Jesus, not Schuller.
+- Today's accomplishments were yesterday's impossibilities.
+- Turn your scars into stars.
+- The only place where your dream becomes impossible is in your own thinking.
+- You never suffer from a money problem, you always suffer from an idea problem.
+- Tough times never last, but tough people do.
+- Spectacular achievement is always preceded by unspectacular preparation.
+- Again and again, the impossible problem is solved when we see that the problem is only a tough decision waiting to be made.
+- Never underestimate your problem or your ability to deal with it.
+- You can often measure a person by the size of his dream.
+- I tell people, 'I was born in a little house at the dead end of a dirt road that had no name and no number, and you can go anywhere from nowhere.'
+- Anyone can count the seeds in an apple, but only God can count the number of apples in a seed.
+- There are two views of interpreting the Bible in America: that every word is literally the truth without qualification, and then the other view is, it's called plenary inspiration, which holds that all religious truth taught in the Bible is true from God, but each word is not necessarily interpreted literally.
+- I think that there are cancers of the body, but I think they are what I would call cancer of the emotional system, too. These are the kind of diseases or illnesses or sicknesses of the emotional system that are as incurable as cancer.
+- Probably the one Bible passage that is read by Jews and Roman Catholics, Protestants, Islam, more than any other chapter is Psalm 23. And in Psalm 23 there is a verse that says, 'Surely, yea though I walk through the valley of the shadow of death, I will fear no evil.'
+- The truth of the matter is that you always know the right thing to do. The hard part is doing it.
+- I feel that heterosexual marriage is the more excellent way, and it surely is approved holy by the Holy Bible, and it holds so many more possibilities: the possibilities of having children of both the mother and father, the male and the female.
+- Most people who succeed in the face of seemingly impossible conditions are people who simply don't know how to quit.
+- When an opportunity comes, it holds possibilities. And when you move away from it or don't sense it or grasp it, you're really throwing away your future; you're throwing away your tomorrow.
+- I was called to start a mission, not a church. There is a difference.
+- God flourished my ministry and my career of creative thinking, communicating and writing back 50 years.
+- We all know that a church is not a building.
+- I love my son and am proud of my son.
+- A lack of resources may slow you down, but don't let it make you throw away a big idea. Give God five years, ten years, fifteen years, twenty years, twenty-five years, thirty years, forty years, or more. Give God all the time He needs to bring the resources to you!
+- I realized that every sermon I preached should be designed not to 'teach' or 'convert' people, but rather to encourage them, to give them a lift. I decided to adopt the spirit, style, strategy and substance of a 'therapist' in the pulpit.
+- I have had more honors than I've deserved and more rewards than I expected. It can be tempting just to say, 'Well, I'm going to retire.' But what would I do then? Sit in a chair and watch TV? Don't let fulfillment throw away your tomorrow.
+- God's delays are not God's denials.
+- I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.
+- My family and I would never receive royalties on the revenue that my materials brought into the church; materials that were created on our own personal time.
+- It takes guts to get out of the ruts.
+- You will suddenly realize that the reason you never changed before was because you didn't want to.
+- I believe that Christians believe in salvation by grace through faith in Jesus Christ, not by works. And we believe that if you're saved, Jesus becomes your savior. He makes a promise to you. You can trust his promises. You can bank on that word.
+- If you listen to your fears, you will die never knowing what a great person you might have been.
+- Winning starts with beginning.
+- Never bring the problem solving stage into the decision making stage. Otherwise, you surrender yourself to the problem rather than the solution.

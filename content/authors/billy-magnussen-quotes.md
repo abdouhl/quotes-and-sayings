@@ -1,0 +1,23 @@
++++
+author = "Billy Magnussen"
+title = "Billy Magnussen Quotes"
+quotes_len = "17"
+description = "the best 17 Billy Magnussen Quotes"
++++
+- I'm very fortunate to get paid for something I love doing.
+- I really think you can manifest your dreams. You can manifest your destiny. If you want something hard enough and you're willing to work for it, I think you can get it. I truly believe that.
+- That's the difference between working on film and working in a play. In a play, you work on it, and you live in it and develop it and make it happen.
+- Every role is the best role you've ever got. It's the only role you have.
+- I'm not a big TV watcher guy; I like being outside.
+- I want to be known for my performances and doing my craft well, not for funny stuff I post on Twitter or whatever.
+- I eat eight times a day. But it's what my intake is. I eat all the time, but it's good stuff. You want to eat that chocolate? You want to eat that dessert? Have that apple or vegetable instead.
+- I would totally, if Alan Cumming is tired of doing Cabaret, I'd be like, 'I'll do it tonight.' I would have such a good time doing that.
+- I actually did Shakespeare when I was at North Carolina School of the Arts. I studied with Gerald Freedman and Mary Irwin - it was fun; I enjoyed it.
+- I want to go base-jumping off Angel Falls and then canoeing down that river that goes east. That's what I really wanna do.
+- I was always into sports and a lot of physical activities. My dad was a kickboxer and a body builder. My mom was an aerobics teacher.
+- When I act, I feel like I am a color in someone else's painting - I can be the best blue that there is, but I'm still only part of their entire picture - but, with music, when I am performing with Reserved For Rondee, I am the painter, you know?
+- I have just gained a deeper and deeper respect for acting and the whole art of it because you're really trying to live a life and to do the best justification for it.
+- Doing the soaps, every day it's constant training. Dealing with camera angles, the other people - it's great training.
+- There's nothing better than hearing someone laugh.
+- I don't sing lead - I am not the lead singer - but I do sing some stuff sometimes.
+- When you really want a role, you just put your soul in it.

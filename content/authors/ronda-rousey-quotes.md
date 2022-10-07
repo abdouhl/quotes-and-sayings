@@ -1,0 +1,111 @@
++++
+author = "Ronda Rousey"
+title = "Ronda Rousey Quotes"
+quotes_len = "105"
+description = "the best 105 Ronda Rousey Quotes"
++++
+- I love feeling like I'm inhabiting the body of a ninja, like I could rob a liquor store with my bare hands if I wanted to.
+- Look at my face. Does it look like I can take a good hit?
+- I make fractals. They're like mathematical pictures. My stepdad is actually a rocket scientist, so in his free time, he gave me a fractal program for fun. He showed me how to use it when I was about nine or 10, and I made thousands of fractals.
+- I'm a terrible singer, but I'm not shy about it. I'm shy about dancing.
+- If there's a camera on me or off me, it's roughly the same, just a lot less energy.
+- I'm a big crier. I never cry when something is painful, but I cry if things are frustrating. Like if I'm trying to do something, and I mess up over and over. If I'm playing a video game, and I can't beat a level that I've tried 10 times, I'll cry. When I was a kid, I think I cried for every practice from 2003 to the middle of 2006.
+- You go through every single inch of the emotional spectrum on fight week. You're the most stressed out you've ever been, you're the most pressured you've ever been, you're the happiest you've ever been - it's hard. It's exhausting.
+- I was in a weight-cutting sport, in judo, so I had to be a certain weight on a deadline. It kind of pushed me into having a really unhealthy relationship with food in my teens. I felt like if I wasn't exactly on weight, I wasn't good-looking.
+- I always say you have to be willing to get your heart broken.
+- Most people get scared away from having an opinion. It's not so much my opinions everybody relates to, it's that I don't care about being punished for it.
+- Fighting is not a man's thing, it is a human thing.
+- Somehow, people act like I have no competition, but the thing is, the competition is so good that it forces me to be better than I even thought was possible.
+- After I defended my title the first time when I beat Sarah Kaufman, I went back to my room, and my friend ordered all these trays of hot wings. They came into the room, and the little hotel sheet thing was draped over it, and I go to open it up, and it's breaded and boneless. I cried.
+- I'm a huge fan of wrestling, and I would like to see the position of women in the sport continue to improve, so if I can be a part of it, great.
+- Judo was one of those sports where they give you guidelines but then try to tell you to develop your own style.
+- I don't shy away from any questions. I'm not scared of any question. I'll give you an answer. A lot of people are scared of having actual opinions out there. People are so scared of criticism... I'm not scared of people disliking me.
+- Buffalo wings and cider is all I need.
+- Kids don't like what they don't understand, and judo was always my social outlet. I always felt really socially awkward, and I couldn't speak very well when I was younger. When I was doing judo, it was something that I could understand and someplace where I felt that I belonged and fit in.
+- The bigger my chest is, the more it gets in the way. It just creates space. It makes me much more efficient if I don't have so much in the way between me and my opponent.
+- The Olympics is a once-in-a-lifetime thing. I was lucky enough to go twice, but most people only get one chance. And in judo you can train your whole life and it'll come down to a split second: You can lose everything or win anything.
+- I love waking up to Sunday morning pancakes. The whole process of making them, just out in the kitchen together making pancakes on a Sunday morning; that's an experience every girl should have.
+- I have a candle permanently on my Jacuzzi because I love me some candles.
+- I'm very anti-domestic violence.
+- People can say I am a terrible role model because I swear all the time or that I fight people. Look, I don't want little girls to have the same ambitions as me. I want them to know that it is O.K. to be ambitious. I want them to know that it is O.K. to say whatever it is that is on their mind.
+- I am pretty much gluten-free; I barely ever eat bread, and the only dairy I eat is Greek yogurt and goat cheese.
+- I spent the whole first year of my career just on my legs. If you have good legs under you, then you can punch. Anybody can stand and throw their hands and look like an idiot. If you actually want to learn how to punch, you have to work on being balanced on your legs and feeling your legs under you. Feel the ground.
+- I was just a little three-year-old kid, and I loved Hulk Hogan. And when you're a three-year-old kid, you don't list off the reasons. I was just drawn to him. He was always my favorite, even in the video games and everything like that. He was the one that I always remembered and liked the most.
+- I don't lift weights at all. Every muscle on my body is for an actual task; there is no muscle that I train for show. If I want to be able to do a certain move or action, I train really hard until I can. And with all of that training comes muscle definition, so it's really an afterthought.
+- At the end of the day, I can't curl up with people's opinions.
+- See, for some reason, I feel like it's a victory if I wake up one minute before the alarm. It's like I'm in a contest with myself, with my foot kicking around until it wakes up the rest of my body. It's the stupidest thing. But it makes me feel like I've already won something.
+- Being an athlete, you try to get protein.
+- Confidence is the number one thing I find attractive.
+- People say this all the time and everyone, like, nods their head and is like, 'Oh yeah, totally,' but no one ever does it, including myself. I can do better at it, is just drinking a lot of water, like a gallon and a half, two gallons a day, like, straight water all day.
+- That's the thing I'm worst at: resting. I have to be forced to do it. Sometimes I think of loopholes. 'Oh, I'm just going for a walk, up a dune that's 45 degrees, but I'm walking, so it's not a workout.'
+- I had a certificate that said, 'Doctor of Mixology, Harvard University,' that I actually got from Harvard University. A friend of mine was a research assistant over there and it was one of those student or university perks and she brought me in on that. So I am a doctorate from Harvard and it only took me one afternoon.
+- My first injury ever was a broken toe, and my mother made me run laps around the mat for the rest of the night. She said she wanted me to know that even if I was hurt, I was still fine.
+- I'm the champion because I'm the best in every area.
+- I fight with pizazz. It's a different sound from everyone else. It's the sound of pizazz.
+- I had to learn to take my time in MMA, and I was just able to keep a clear head.
+- Mine's going to be the best book tour that ever happened!
+- I've separated my shoulder and my collarbone; I've messed up my knee a million times. I've broken my foot in several places. I've broken my toe a bunch, broken my nose a couple of times, and had a bunch of other annoying little injuries, like turf toe and arthritis and tendonitis. It's part of the game.
+- I have to be out there to sell these fights; it's not because I really enjoy getting made up and going to work every day. It's cool, it's an awesome job, but it's still a job. I'm doing it because it helps me make a living and not because I'm so extremely vain that I want to see my face everywhere.
+- I'm the champion for a reason.
+- There's no way to recover after tarnishing an undefeated record.
+- I only have so much ring time that my body can endure. I've had four surgeries on my knees, arthritis in my neck, separated my shoulders, broken my nose. I'm just gonna hope that science advances faster than I can deteriorate. Because what am I gonna do? Put a perfect body into the ground? What's the point of that?
+- For me, MMA is like speed chess. It's like I'm herding a person into a certain position. Say my endgame is an arm bar. I'm not gonna actually take you and put you there. What I'm going to do is convince you that it's a good idea to move in the direction I want you to go.
+- The whole 'bad girl' thing allows me to mess up sometimes. And I have freedom to say more of what I want to.
+- People say to me all the time, 'You have no fear.' I tell them, 'No, that's not true. I'm scared all the time. You have to have fear in order to have courage. I'm a courageous person because I'm a scared person.'
+- Where is women's sports prominently displayed with the men? Tennis is the only thing I can think of.
+- I respect Georges St. Pierre as a businessman and an athlete. I don't have anything against him personally. But he's not the kind of fighter I like watching.
+- My life is so active, and I'm fighting the whole day that I don't have any aggressiveness or any energy outside of fighting. I'm the most chill couch potato you could ever meet.
+- I was painfully shy for a long time. I mean, that's something I really had to work my way out of. And I really think it was because, after the 2008 Olympics, I spent a whole year bartending. It was the one thing that really forced me to be just not so scared to start conversations with strangers.
+- The style I have in judo is very unique... One big advantage a judo player has is they have very good posture and - like, wrestlers, they show when they're about to do a take-down... which judo players don't, and so I kind of incorporate the boxing style with a judo grip and finishing that way.
+- If I could have had everything exactly the way I wanted, this is how I would have written it down. Win all my fights in the first round, then go to the UFC and headline a show, and have it as a pay-per-view and at home. People's dreams don't come true like that.
+- I just like when a guy dresses for comfort, to be honest. If he takes longer to get ready than I do, that's a deal breaker.
+- At home, I watch fights and documentaries - that's it. If it's not about the birth and death of stars, 'Frozen Planet,' or someone getting punched in the face, I'm probably not watching it.
+- I love Canadians. They are the coolest, nicest, most patriotic people, and they will support their countrymen no matter what, and I think that's commendable.
+- It's not my responsibility to make everything I say idiot-proof.
+- I had a lot of trouble speaking as a kid. I didn't really speak in coherent sentences until I was, like, 6 years old. There was a long time where everybody was very worried, because my sisters were so advanced for their age, and I would barely talk.
+- If I can represent that body type of women that isn't represented so much in media, then I'd be happy to do that.
+- I'm selling a product, and I have to be out there; I don't have the option not to be.
+- What I'm really looking to do is retire undefeated; I'm not sure when the right time to retire will be, but I know that I'm not done yet. Something still feels unfinished, and that's why I'm going to keep going.
+- I wasn't allowed to throw big hooks and overhand rights until I'd been striking for three years. It's so you don't rely on those things from the very beginning. If your footwork sucks, and you can only stand in one place and throw your hands all crazy while the other person is running around, you're never going to be able to hit them.
+- I don't feel the need to be the hot chick every second of the day. I like to be able to surprise people when I turn it on. I want it to be like the movie 'She's All That' when they unveil her.
+- I'm really encouraged by the progress I've seen with what they're doing with the women in WWE, but I feel like there's a lot more than can be done.
+- Some girls sit around and watch 'Gossip Girl' together. Me and my girlfriends watch 'Raw' and 'SmackDown.'
+- The best way to take a punch is to look at it. Honestly. Someone could hit you with the hardest punch that they have, but as long as you see it, it's not going to knock you out. It's the punches that you don't see that knock you out. So you could get tapped with a small punch, but if you don't see it, you're out.
+- There's something so zen-like and grateful of just ripping a hot wing apart and getting it all over your face, and everyone's happy. I love that atmosphere.
+- I wear sunglasses almost all the time outside - not because I think I'm really, really cool, but because of the rays.
+- To be honest, in 2012, I was against both candidates, and so I just picked any third party because I thought if more people voted for third parties then they'd have to take third parties seriously.
+- Every chick I try to intimidate in a different way. You have to think about their personality. You have to think about what would get under that particular person's skin the most.
+- People call me a whole lot of things, but above anything else, I'm a fighter, and it's going to be hard to accept an identity without that.
+- I'm voting for Bernie Sanders because he doesn't take any corporate money.
+- I go mainly by the Dolce diet. It is a little hard to describe: it's not really a diet but more of a lifestyle. I eat throughout the day; I have three meals and two snacks, and it changes according to what I need at the time.
+- I think that going on any reality show is not good for your mental health because you behave differently when you are being watched, and you constantly have an extra bit of awareness of what's going on all the time.
+- I'm the biggest draw in the sport, and I'm a woman.
+- I think it's hilarious if people say that my body looks masculine.
+- I'm kind of like a middle mix between a warrior diet and a Paleo diet, so I only eat once a day and it's at night - so kind of like interval fasting. But I eat until I'm full, I eat as much as I want, and I really don't eat anything that you couldn't find, you know, 10,000 years ago.
+- I was always pushed to do that much more, and in the long run that made me more of an MMA fighter. My mom always told me that if I let it go to the judges, I'd lost. There was no way I was going to win a decision, so I had to find ways to finish the fight fast.
+- It took a lot of time to develop a healthier relationship with food and with my weight.
+- I wasn't always the most fashionable, and I would come to school with cauliflower ear and ringworm. I got made fun of a lot. People called me 'Miss Man' and 'Guns,' and people directed a lot of karate jokes at me. I wish that I was at school now that MMA and martial arts is cool, but back when I was in school, people associated it with nerdy stuff.
+- I like quoting 'Lord of the Rings': 'My list of allies grows thin! My list of enemies grows long!'
+- I don't think politicians should be allowed to take money for their campaigns from outside interests.
+- I never really liked weightlifting because there is no problem solving, whereas when I am fighting, I am trying to solve a problem, so I don't think about being tired. I box, wrestle, do jujitsu, run up sand dunes; every single day is something different so that I am mentally engaged. That's what makes me want to train longer.
+- When women say that going on publications directed at men is somehow demeaning, I don't think that's true. I think that's one really effective way to change the societal standard women are held to.
+- Reality TV is set up to make people entertaining. A good person with values and principles is not good television.
+- I might make an investment and lose some money, but that's something I can recover from.
+- Believe me, there's nothing I would like to do more than disappear for a while.
+- I like to be part of the change I want to see in the world. Not being afraid of criticism is actually a big advantage.
+- Bartending took the romanticism out of drinking.
+- A lot of people, once they become champion, they relax, kind of sit in the position and try to enjoy it. But I feel like everything I've ever worked for could be lost at any moment. I work harder and harder and harder, because I want to be farther ahead with every fight, and not worrying about these girls catching up to me.
+- I just want to tailgate, drink beer, and hang out in the middle of nowhere in a pick-up truck. That's my ideal date.
+- A lot of my best clothes I buy at photo shoots because I don't have time to shop.
+- I'm unbelievably ticklish. When I was a little kid, my sisters would hold me down and tickle me until I peed my pants.
+- At 150 pounds, I feel like I'm at my healthiest and my strongest and my most beautiful.
+- Even if they don't know it, everyone has the instinct to survive.
+- When I looked at the state of women's MMA, what I saw was that it was missing rivalries or anything theatrical about it. Everybody was trying to be Miss America, unwilling to go under any kind of criticism, and taking the safe answers. I thought I needed to do whatever I could to get attention.
+- I lost a lot of judo matches because of points fighters. It was extremely frustrating for me.
+- I go to bed every night thinking about all the possible ways that I can succeed.
+- There are so many ridiculous arguments that MMA is somehow anti-woman.
+- In MMA it's a lot less intimidating because it's not like you get one shot at a title every four years. You get a title shot every couple of months... With the Olympics, you don't always have this, so there is so much more pressure involved.
+- When I was in school, martial arts made you a dork, and I became self-conscious that I was too masculine. I was a 16-year-old girl with ringworm and cauliflower ears. People made fun of my arms and called me 'Miss Man.' It wasn't until I got older that I realized: These people are idiots. I'm fabulous.
+- I'm scared of failure so much more than any of the other girls I compete against that I work so much harder than they possibly could. I'm totally down with spiders and frogs and heights and snakes - everything; I'm cool with it.
+- Nobody's easy until after you beat them.
+- I grew up as an athlete doing judo, so I didn't really have a conventional, feminine body type.

@@ -1,0 +1,106 @@
++++
+author = "Amyra Dastur"
+title = "Amyra Dastur Quotes"
+quotes_len = "100"
+description = "the best 100 Amyra Dastur Quotes"
++++
+- I love different exercises. If your body gets used to one particular type of exercise, it won't be good. I keep changing my exercise and that way, I have been fit.
+- You will have some people, who think you are are not a good actor because you are pretty. There will be people, who can see past your appearance and take you seriously.
+- I love my gymnastics and a flexible body, so I indulge in a lot of yoga from that aspect.
+- My mother has lived abroad and I've grown up hearing her talk, so probably that's where I get this accent from.
+- My mother quit her job in advertising in order to raise us and she really allowed and encouraged us to be ourselves.
+- Whenever I feel like the hustle of Mumbai is suffocating me, I just hop on a plane and jet off to Goa for three to four nights.
+- When you are in a different city, you must relish the local food and I always like to try the authentic taste and flavours of a city.
+- A film unit is like a family, you not just work together but laugh, cry and fight also.
+- Aishwarya has been a huge inspiration and I aspire to be like her.
+- I always wanted to be an actor and started modelling for various commercials when I was 16 and when I was in Class XII, got 'Issaq' through auditioning.
+- I believe it's good to eat what makes you happy every once in a while. That's my key to staying healthy.
+- My dad's side of the family was very poor while growing up, but my dadi raised three kids, got my dad through medical school, sent my uncle to America where he wanted to work and helped my aunt become an accountant, because that's what she wanted to do.
+- Only you can take care of yourself and only you can push yourself to do better and work harder and make someone believe in your talent.
+- I strongly believe in 'if it catches my eye, it's something I'd buy.'
+- With platforms like Netflix, things are evolving as they are making content-driven films and series.
+- I've loved Lucknow for its feel, its people and the food.
+- Bascially, I want to do movies wherein even the girl's character actually has a part. If you want me to do glamorous roles, that's fine. But you have to make sure the character is good.
+- I started modelling at the age of 16 and always aspired to be an actor. But my family only agreed to it on the condition that I would not let my studies suffer because of my work.
+- The first time I visited Jaipur was during a school trip, when I was 14 years old.
+- I was the only one in my family who was absolutely focused on acting since I was a kid.
+- I was mesmerised by South cinema and the kind of work is done out here.
+- You will not find me repeating a character or carrying similar mannerism in different films.
+- I want to be taken seriously as an actress.
+- I'm glad I did South films because I feel they have moulded me. They are really loud and are in a different language, so it's not easy.
+- Follow your heart. Make sure whatever you wear makes you feel sexy and confident.
+- I was named after my paternal grandmother, my dadi. She died before I was born, which is why my parents named me Amy.
+- Of course, I always try to integrate my life on social media but I would be the last person to post a random picture just to get likes and just so that I can create some social media feed. For me, a post should have some meaning.
+- While growing up, I have had women around me, be it my mother or aunt, who have individually shown me how to be strong.
+- When I first began learning yoga, I found it really hard because I couldn't clear my mind for the meditative part of it, but then after a few weeks it became easier and I could see how it began to change my body. I became more flexible and more relaxed and at peace with my environment. I love yoga and I encourage all my friends to practise it.
+- I have worked really hard to reach where I am - I worked hard on my Hindi and diction because I am a Parsi and Hindi is not my strong point, and I've also learnt Tamil and Telugu because I want to get my lines right. I want to be known as a performer.
+- What aren't the pressures of being an actress? Don't get me wrong, I love my job. It has been my one and only dream but it's scary. There's a certain lifestyle and image one has to live up to or face the criticism which is quite harsh and cruel.
+- I will always choose quality over quantity.
+- From my early days in modelling to every new commitment, is like a first job for me every time.
+- I haven't even grown up on Hindi films because my Hindi is bad; I am a Parsi and we speak English or Gujarati at home.
+- Raju Gadu' is a situational comedy where I play a fun and bubbly character. She's a proper Andhra girl who's modern but loves donning desi looks.
+- Having lived in a big city like Mumbai, I feel it gives you another personality in a way.
+- I'm an introvert and a shy person.
+- Apart from films I've been shooting a lot of ads and signing on with a lot of brands as their primary endorser.
+- I am not really into mediation etc. but I am more interested in physical benefits of yoga. I love the fact that it helps me keep a control on my body and muscles.
+- Yes, I do know Gymnastics, etc. I also do Yoga.
+- I really respect Telugu cinema and the fact that people out here have a totally different style of working and are at par with Bollywood. Sometimes, they beat Bollywood with the kind of films they make.
+- I'm not dating Prateik; he is just a good acquaintance.
+- I wanted to work in Tollywood ever since I did the Tamil film 'Anegan' with Dhanush in 2015.
+- Acting is about reacting, and it's not easy to do that when you don't have a good co-star.
+- I am a full Parsi born and brought up in South Mumbai.
+- I'm having a tough time coping in showbiz. I'm absolutely terrified of it. Each time you walk out, somebody wants to click a picture.
+- I have a younger brother, who's a year younger than me and we are thick as thieves.
+- At the end of the day nepotism has been there it's always going to be there don't expect it to change.
+- Mumbai can eat you up or teach you how to survive because it is a tricky city. I guess living in cities like Mumbai or Delhi makes you slightly more street-smart and alert.
+- I am obsessed with silver jewellery, so I visited the Johri Bazar, which is famous for it and bought a lot of silver rings, earrings and pendants.
+- I love fitness and I guess I could be called a fitness freak.
+- I haven't faced a casting couch in the South or Bollywood. But yes, I have faced my share of harassment in both industries. I don't have the guts to name them because they are powerful people - men and women who made sure I felt helpless.
+- I am a family-oriented person.
+- Be it gym or yoga, I love it all. I start my day with it and it has to be at least for an hour and a half each morning. Even when I am holidaying, I stick to this regime.
+- Goa is always leisure for me; it's become my home away from home.
+- The only thing that drives me is those different sort of roles which allow me to experiment.
+- Drink lots of water - at least 2 litres a day.
+- When I worked with Chinese crew for the first time, including production unit, spot boys etc, everyone was so affectionate, sweet and kind.
+- Luckily for me, I get a lot of acting-oriented scripts.
+- I've always believed that staying healthy and fit have to do with keeping your body clean from the inside.
+- My mum was an advertising professional till she had me and my dad is a surgeon and is the director of Bhatia Hospital.
+- My family keeps me grounded.
+- I pick up what is offered to me. And if somebody is not offering me the right role and right film then I am not going to choose.
+- I love anything that's mythical, and fantasy is one of my favourite genres.
+- When I came back to Mumbai after boarding school, I was 16 and I picked up weight training and yoga. This is when I also started dance classes and Pilates and then I started doing different workouts every month. I am now proficient in kick boxing, gymnastics, classical dance as well as yoga.
+- When you are a pan-Indian actress, you are doing films in different languages and invariably, you end up not signing films in one language or the other for a brief period.
+- The fact that I did a Tamil film is going to help me a lot in learning Telugu.
+- I eat whatever I want. I don't follow any diet. The reason I workout is so that I can eat. If it's a bikini shoot, of course you should not eat a pizza a day before. Otherwise I am not a dieting kind of a person. If I am hungry, I make sure I eat.
+- My life wouldn't end if there was no fashion. But being stylish has never hurt anyone either.
+- I really love Vidya Balan and Priyanka Chopra and want to do films like them.
+- I want to do commercial films as well as off-beat movies.
+- I love travelling and finding new places to go to.
+- I want to do one or two commercial films, but also want to do off-beat movies.
+- I never really wanted to act for fame.
+- I had to decide between doing 'Issaq' and continuing school and I chose 'Issaq.'
+- For me a great date will be going on jet skiing or other adventure sport.
+- For me, it has always been about acting and I will do films which are content-driven.
+- I was brutally bullied in school. I had short hair and buck teeth and kids would call out to me in the most nasty ways possible.
+- I have had an actor squeeze himself up against me during a shot in a song and whisper in my ear that he was so glad that I was in the film with him. When I threw him off me and refused to speak to him again, he made my experience miserable.
+- Even though I'm a competitive girl, I don't see competition in this industry because every actor and actress has a unique personality that they bring to their films, which is why they get the parts they get.
+- Family means a lot to me as I come from a big one myself.
+- I'm a total beach bum.
+- When dancing for mass numbers, you can throw your hands and legs anywhere, but contemporary dance is a whole different ball game. Every move has to be pointed, graceful and must look elegant. It's not easy trust me, but is a lot of fun nevertheless.
+- If someone says anything mean to me I just kind of brush it off.
+- It is so hard to be patient and wait for the right script to come your way.
+- I am a rebellious North Indian girl and I was not sure if I would have said yes to a film like 'Rajma Chawal' if it would not be from South as it allows me to challenge myself.
+- There is always a new experience on every set, a new mistake you make. It is a learning experience.
+- When I am not working, I love travelling, especially solo trips where I can pack my bag and go somewhere and explore new food, culture, and people.
+- I'm a big fan of RGV and I adore Amala Akkineni.
+- I only entered the industry when I was 16. I really didn't have much of a struggle to land myself a role in a film.
+- I define success a little differently. My dream from day one was to act and stand on my own two feet. I'm literally living my dream after struggling really hard to get here and that in itself is success to me.
+- I am not at all a romantic person, I hate flowers and candles... rather find it irritating.
+- I never ever thought I would do an international project.
+- I am not somebody who feels comfortable socialising at parties where many film stars gather and endlessly chat, because I am quite introverted.
+- I never really thought I would be a Bollywood actress. However, I am a drama queen at home, so I guess Bollywood was bound to happen someday or the other.
+- Good scripts are difficult to come by in the industry, especially if you are an outsider.
+- I am very happy with the films that I am getting.
+- My family is really excited to see me in 'Made In China' because Boman Irani is there in the film and I am a Parsi so, my family and I are really looking forward for the release of the film.
+- If your first film does badly, there's no guarantee of the second film.
+- Getting that debut film is definitely harder than someone who has got a known last name. I mean some star kids don't even audition.

@@ -1,0 +1,38 @@
++++
+author = "Ranjeet"
+title = "Ranjeet Quotes"
+quotes_len = "32"
+description = "the best 32 Ranjeet Quotes"
++++
+- I can say I've been a loyal husband. Marriage is based on trust.
+- My earnings were through evil portrayals.
+- I did not have a godfather.
+- I wasn't good-looking like the heroes. But I had a good physique having been a goalkeeper. I was like a panther.
+- I was born in in Amritsar, the eldest of the four siblings.
+- I'm a vegetarian but not a pandit.
+- I have lived life on my own terms.
+- I was recommended for the role in 'Sharmeelee' by Sunil Dutt who admired my performance in 'Sawan Bhadon' and 'Reshma Aur Shera.' 'Sharmeelee' was a movie I did at a time when my career base was just building and back then I never expected it to become such a rage.
+- Out of the 450-500 films that I've done, I have probably watched 10 of them.
+- Work is work for me. I can do any work in the field of acting. Be it films, television or theatre, I am willing to do anything.
+- As I hail from a conservative family, watching films was never encouraged in our house.
+- We can't make the public vote for a candidate. And I would never want to campaign for any political party.
+- Because of my negative image, people used to hate me. I remember an incident while shooting for 'Zamaanat.' I was bitten twice by a cobra and the crew went to call a lady doctor whose clinic was close to the sets. She just refused to attend to me!
+- My father Dwarakaprasad Bedi had an electrical accessories factory in Delhi.
+- Since most heroes are doing villainous roles these days, that thrill is lost. Earlier, there used to be a hero, a heroine, a villain and such. The villain's entry would generate a lot of curiosity among the audience back then.
+- No one knows the future. I may attend someone's party today who may become an underworld don tomorrow, so how can I be blamed?
+- In the '70s and '80s, there was a definite set of roles in a film. There would be a hero, a heroine and a villain.
+- I was constantly being approached to play the anti-hero on the screen and I continued with it.
+- I accept nearly every role I am offered, this is why I have done so many negative roles.
+- I don't like going out or attending award ceremonies.
+- Thankfully, TV has given me another platform to showcase my versatility.
+- Sunil Dutt asked me, rather pushed me, to join politics.
+- I can say that I have lived very gracefully.
+- During the mid-1980s, I felt my work was getting monotonous. I was shooting continuously, sometimes for 25, 30 films at a time.
+- TV artistes are far more professional and dedicated compared to film actors.
+- I like Ranchi's pleasant weather, more so because I am fond of the rainy season. Wherever I go, my visit ushers in the monsoons.
+- It might sound unconvincing when an actor like me who has done 500 films says that television is more competitive than movies, but that is the plain truth.
+- From the very beginning of my career, I never planned anything. I did whatever came to me. Not that I never did positive roles but people loved me more as a villain. That's how I got this negative image.
+- Movies are the biggest entertainer in India.
+- As an actor, I should justify the role given to me. So, as a villain, my job was to make people hate me.
+- Every woman is possessive though she may not show it.
+- Growing up, I played soccer and wanted to be a sportsman.

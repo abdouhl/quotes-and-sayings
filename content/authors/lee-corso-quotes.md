@@ -1,0 +1,106 @@
++++
+author = "Lee Corso"
+title = "Lee Corso Quotes"
+quotes_len = "100"
+description = "the best 100 Lee Corso Quotes"
++++
+- I love Pistol Pete and the pistols. Man, I just love to do that. I put on that Pistol Pete head and shoot those guns, that's fun.
+- Some athletes aren't small, they're just short.
+- I wanted to end my career as a pro coach and if possible, in Florida.
+- I look at films every day. I study. I coach.
+- I have a soft spot for Iowa.
+- I don't appreciate people taking shots and joking at my expense, when I don't do that to anybody else.
+- There's a certain amount of pleasure in being able to create something and watch it grow.
+- Coaching's not a job, it's a privilege.
+- 1958 was my first year as a defensive backfield coach at Florida State. I remember one thing about that game: It was so cold. It was freezing.
+- You have to build upon good performances to establish a sound football program.
+- I'll never forget beating Steve Spurrier and Tampa Bay.
+- The Florida Gator head is long and funny looking. It scrapes my nose. Every time I put that thing on I get scraped and blood comes down my face.
+- You don't beat football teams. You outrecruit them.
+- People say, 'Burt Reynolds is so good-looking.'... I used to set him up for bait. I'd send him to the student union, and he'd come back with a beautiful girl and an ugly one. But his ugly girls were better than anything I'd get on my own. With his looks and my car, we'd kill 'em in Tallahassee.
+- I promised my wife 27 years ago when I left Florida State that I'd bring her back to Florida. I'm a little late, but better late than never.
+- Randy Moss was a fad. People were looking for some way to vote against Peyton Manning.
+- Since Mark Richt took his offense from Florida State to Georgia, Florida State has been floundering. They have no identity. They have a bunch of plays, but they have no system and no philosophy.
+- When you have a lousy football team, you learn to be funny.
+- I wouldn't coach football now for nothing, and it's because of social media. That just bothers the heck out of me. People blast ya and you don't put their name down.
+- The bigger, stronger, faster and meaner my players are, the better I coach.
+- Pass a lot, use some reverses and toss in a gadget play once in a while for the TV audience. None of that detracts from winning.
+- To be a contender in the Big Ten a squad must have a solid player at every position.
+- People are doing too much e-mail. The basic thing is eyeball-to-eyeball. Business relationships are made to be personal. The more people get away from it, the more they are going to lose that personal relationship. That's what I learned - to develop personal relationships with people.
+- I'm like an old vaudeville act. They'll have to pull me off the stage with a hook.
+- There is a rule that says there is no age limit in college football. You could be 45 years old, and if you've never been in college and are good enough to play, you can play.
+- It'll be up to ESPN when I leave. And when ESPN says they're going to move in another direction, I'll say, 'Thank you very much. It's been a great run.' Because it has.
+- I absolutely loved working with the players at Navy. There are no better young men to coach than those you find at a service academy. I really enjoyed going to work every day because I loved being around those midshipmen.
+- You can't criticize a coach until he fails to win with players he recruited.
+- Business is nothing more than relationships. It's the secret.
+- I judge a man by the way he treats people who don't count. Woody Hayes was nice to a lot of people he couldn't ever use.
+- The one thing I was really good at was being spontaneous. I was quick-witted. I lost that with my stroke.
+- Speed has always been there in college football.
+- In life, passion is the secret to success.
+- With a woman around, there's a tendency to eliminate vulgarity and profanity and create a more businesslike attitude.
+- Bo Schembechler will go down in history as the greatest football coach. He knows the game, he works hard. And he's not a crook.
+- The thrill of winning or losing, or getting on the field and coaching on Saturday afternoons, that's all great. But it's the association with the players, and that's lifelong. That is the one thing you miss and you can't substitute for it.
+- I'll tell you, people remember every single pick I make against their team, they really do. There's just so much passion in college football, I wouldn't have it any other way.
+- The Florida Gator head - It's not only heavy, it's kind of awkward in the front. It had that long beak. I put it on, and it rubbed the top of my head raw.
+- People are moving to Florida all the time, lots of times because the economy got tough in the North and they moved south to find jobs. Everybody who comes has two kids - and one of them is usually a football player.
+- Basically I'm an entertainer and I use football as my vehicle.
+- Remember one thing about ESPN: People can be critical of them sometimes for being a large corporation but nine years ago I had a stroke and I couldn't talk. That's the way I made my living. ESPN could've dumped me very easy, but they didn't. They helped me and presented me an opportunity to get back on the air.
+- I've always said that the games in November are the ones you remember.
+- I represent college football and have been doing it for 26 years. It's a great thrill.
+- I mean there's a hell of a difference between the Big Ten and the ACC when it comes to quality football.
+- Everybody asks me, 'Lee when did you know it was time to retire?' I said, 'when they quit asking me to coach.' After the Orlando Renegades, not many people were busting down my doors to coach, so why not do something else.
+- You got to have a gimmick in this got-to-have-a-gimmick world.
+- Why is Barry Switzer not in the Hall of Fame? I have no idea. He's done everything humanly possible to be in.
+- I was almost as famous at Indiana for my television shows as I was my coaching. That's kind of embarrassing when you think about it.
+- I've never had any regrets about anything. I live every day like it's gonna be my last one.
+- I don't have anything against long hair. I've known some crew-cut bums.
+- Teams just don't go into Autzen Stadium and win very often.
+- The USFL appealed to me, because it was different.
+- That's one thing with stroke victims, you've got to have a goal and you cannot accept anything but that goal.
+- When I rest, I can talk. When I don't rest, I can't talk.
+- There is no question that Notre Dame has the best, biggest and finest name in college football.
+- Humor is not a sign of weakness. In fact, humor can be your greatest asset in the face of tragedy.
+- Bill Murray made the headlines by throwing me down and stomped me on the set with Clemson.
+- I reflect on my 30 years at ESPN and continue to count my blessings each time I walk on the 'College Gameday' set.
+- The one thing that saved me is that in 17 years of coaching I never had an NCAA investigator talk to one of my players. I lost games, but I lost the right way.
+- I have nothing against the Razorbacks. In fact, they are one of my favorite teams because they play so hard for Houston Nutt.
+- The Heisman is often a career award. Chris Weinke, Michael Vick, Eric Crouch and Drew Brees have all had a more than one great year.
+- Many came to the USFL after being cut by NFL teams or failing to even make a roster, some were Canadian league players who wanted to make a step up, and every one of them wanted to prove he was good enough to make the NFL.
+- The problem with just wanting to punt it deep and out of bounds every time is that most punters can't do that. Most guys shank and pull their kicks when they try that, so you have to get a guy who punts the ball high and gets hang time.
+- Television was almost a natural for me.
+- Donnie Thomas is simply a superlative linebacker with everything it takes to be an all-American.
+- As bad as some of the teams in the NFL seem to be, they all have way more talent than any college.
+- A woman has a different type of sensitivity than a man. Their perspective of right and wrong is different and their perspective of life is different. They're more idealistic. They have greater faith in people than men and they can add that to an all-male organization.
+- Don't ever underestimate Mike Gundy throwing the ball with his quarterbacks.
+- You don't beat football teams like Nebraska with a trick play. They're too well-coached, too well-disciplined.
+- I found out people want excitement. Fans don't want to see a lot of running. Even if a team wins it's boring. The total concept of the game must be entertainment.
+- It hurts me not to be able to communicate like I used to. I used to be pretty good at coming back, you know, quick one-liners.
+- I have great admiration for Woody Hayes.
+- Words don't go from the brain to the lips in time. That's what a stroke does to you... and that hurts me.
+- I'm not a conformist.
+- I've given the idea a lot of thought and I believe it is a sound, logical course of action to hire a woman. The woman I hire won't be on the field blowing a whistle. She'll be in charge of academic counseling for the players and will do some recruiting.
+- You better not kick a field goal if you have a lousy defense.
+- It takes at least three years of quality and successful season play before a team can garner preseason respect.
+- I have such respect for the guys at ESPN.
+- I always stand on the visiting team's sidelines because there aren't as many people.
+- The key to winning in major programs is how you play on the road.
+- The more games you win the warmer it gets in December.
+- But even the people who don't like my opinions must admit that I always have a reason behind what I say.
+- Drew Henson could go down as the greatest quarterback in the history of Michigan football.
+- I love college football. I've been involved with college football since 1953. That's a long time as a player, coach and 30 years in television.
+- Fisher DeBerry always puts together a great team.
+- The fans keep me energized, and being surrounded by such a talented and dynamic 'GameDay' crew is the best medicine for this old coach.
+- I'm going to pick the team I believe will win, regardless of where we are.
+- Tough times were when I didn't have a job and nobody called me.
+- I had gotten a master's degree in administration supervision with it in mind that I would some day be a professor, then get a doctorate degree and move up and eventually be president of a university.
+- If you lose you better at least be entertaining while you do it or people will turn you off.
+- I recruit defensive players first. That's where most games are won. Then you've got to get the offensive linemen.
+- My involvement with the USFL began in the broadcast booth before I ever coached a game in the league.
+- I never even thought about it, but I think if I had to be known for something it would be that I tried to treat everyone right and nice.
+- It's just boring to see a team punt the ball and have the returner fair-catch the ball all the time.
+- I don't think guys in TV should stay when it's time to leave.
+- This job is like stealing. I travel first class in a nice plane. I have a driver waiting for me. I go in a room and have room service. I have a meeting. Then I go to the best game of the weekend and talk football - and they pay me.
+- And I love the Oregon Duck. He's my favorite mascot.
+- I always felt the true test of a man's character is how he treats people he can't use.
+- You can't buy the loyalty that ESPN has showed to me.
+- Darryl Hill was a fantastic player.

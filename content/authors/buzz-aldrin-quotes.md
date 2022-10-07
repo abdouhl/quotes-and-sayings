@@ -1,0 +1,206 @@
++++
+author = "Buzz Aldrin"
+title = "Buzz Aldrin Quotes"
+quotes_len = "200"
+description = "the best 200 Buzz Aldrin Quotes"
++++
+- I was the first Navy, Marine or Air Force person who had been an astronaut to return back to the Air Force. I had certain expectations about what would be a reasonable and desirable position to be assigned to after my years of service.
+- I am excited to think that the development of commercial capabilities to send humans into low Earth orbit will likely result in so many more Earthlings being able to experience the transformative power of space flight.
+- Most people never believed in the real possibility of going to the moon, and neither did I until I was in my twenties.
+- A family needs to work as a team, supporting each other's individual aims and aspirations.
+- Globalisation means many other countries are asserting themselves and trying to take over leadership. Please don't ask Americans to let others assume the leadership of human exploration. We can do wonderful science on the Moon, and wonderful commercial things. Then we can pack up and move on to Mars.
+- Can you imagine, in 2030, taking a space cruise on the very ship that carried the first human beings to Mars? I can't believe that people wouldn't line up for that possibility.
+- We need the next generation to be motivated and to push technological boundaries, to seek out new innovations.
+- A hybrid human-robot mission to investigate an asteroid affords a realistic opportunity to demonstrate new technological capabilities for future deep-space travel and to test spacecraft for long-duration spaceflight.
+- Everyone who's been in space would, I'm sure, welcome the opportunity for a return to the exhilarating experiences there.
+- I'm convinced that sending people to Mars is so expensive that if you go once and bring the people back and then go again and bring the people back, we're eventually going to run out of money. But what if we send people the first time and they don't come back? What if they stay there?
+- Exploring Mars is a far different venture from Apollo expeditions to the moon; it necessitates leaving our home planet on lengthy missions with a constrained return capability.
+- My Sunday mornings are spent in a recovery meeting in Pacific Palisades.
+- I'm urging NASA to foster the development of what I call 'runway landers.' No, that's not the name of a high stakes gambler from Vegas. It's a type of spacecraft that flies to orbit like the retiring Shuttles but then glides to a landing like an airplane on a runway. Just like the Shuttles do.
+- The beauty of Hawaii probably surpasses other places. I like the Big Island and the two mountains, Mauna Loa and Mauna Kea, where you can look out at the stars.
+- Heavy lifting doesn't need to be heavy spending if we do the job right.
+- I suggest that going to Mars means permanence on the planet - a mission by which we are building up a confidence level to become a two-planet species.
+- My own American Dream was to serve my country as best I could and make a difference in America - and in the world.
+- I know: If you're looking down at Earth, you're looking through an atmosphere that has a bit of haze in many places and not just occasional clouds.
+- The way I see it, what is going to come out of the moon activities is a respect for U.S. leadership.
+- Do we really need these big, gigantic, heavy rockets? What if we launch a rocket that's empty, and its sole purpose is to act as a source of fuel on the Moon? Who should build that? Well, I think the U.S. should build that.
+- 'Anthony and the Magic Picture Frame' tells it like it really was in America's early space program - the adventure, the risks, and the rewards.
+- To move forward, what's required is a unified space agenda based on exploration, science, development, commerce, and security.
+- My favourite thing to do on this planet is to scuba dive.
+- The life expectancy of people going to Mars may be decreased by the higher level of radiation that they receive.
+- NASA's been one of the most successful public investments in motivating students to do well and achieve all they can achieve, and it's sad that we are turning the program in a direction where it will reduce the amount of motivation it provides to young people.
+- I do celebrity ski races all over the world.
+- Being first outside the spacecraft would bring much more responsibility, and I really wasn't looking for that.
+- Everyone should take their hats off to Neil Armstrong. He is a humble guy who doesn't wave his own flag.
+- To send humans back to the moon would not be advancing. It would be more than 50 years after the first moon landing when we got there, and we'd probably be welcomed by the Chinese. But we should return to the moon without astronauts and build, with robots, an international lunar base, so that we know how to build a base on Mars robotically.
+- When the time comes to start building deep space transports and refueling rocket tankers, it will be the commercial industry that steps up, not another government-owned, government-managed enterprise.
+- What's aero braking? That's a way to use the gravity and upper atmosphere of Earth to sling shot a ship out either deeper into space, or slow it down to be 'captured' by Earth's gravity.
+- We could have human intelligence in orbit around Mars, building things there.
+- The pilgrims on the Mayflower landed at Plymouth Rock. To my knowledge, they didn't wait around for a return trip to Europe. You settle some place with a purpose. If you don't want to do that, stay home. You avoid an awful lot of risks by not venturing outward.
+- As someone who flew two space capsules and twice landed in the ocean, I can attest from personal experience how much logistics work is needed to get you home.
+- Kids, help your parents if they don't know how to use a smartphone.
+- Pascal Lee is a true pioneer of Mars exploration.
+- I wrote 'Reaching for the Moon' because I wanted to tell kids that all of us have a moon, a dream, that we can strive for. Even if you don't attain it, you can at least reach for it.
+- We can't start over and develop a Saturn 5-type vehicle from scratch.
+- I really hate to be put in the position of trying to justify something, a decision that was made. I'm a military guy: when a decision is made, I go along with it, whatever the manufactured controversy and criticism.
+- I'm in favor of changing the destination of humans. There are a lot of manned missions that can be done, but not in the direction of the moon.
+- I want to reach a new generation. That's why I am Twittering now. I have a BlackBerry, an iPhone and a Mac.
+- To me, money is a commodity that a person must have to function, not a goal in itself.
+- I realize that my life is not the common ordinary person.
+- I don't go through life verbalizing what I feel.
+- It was interesting to think that the very first liquid ever poured on the Moon, and the first food eaten there, were communion elements.
+- NASA needs to focus on the things that are really important and that we do not know how to do. The agency is a pioneering force, and that is where its competitive advantage lies.
+- With his deeds, not only words, President Obama has revitalized our struggling space program.
+- One of the major problems with long-term deep space human flight is the requirement for radiation shielding.
+- In space, you don't get that much noise. Noise doesn't propagate in a vacuum.
+- Bringing an asteroid back to Earth? What's that have to do with space exploration? If we were moving outward from there, and an asteroid is a good stopping point, then fine. But now it's turned into a whole planetary defense exercise at the cost of our outward exploration.
+- The big companies are the private industry. But they're faced with a short-term need to show a profit in short-term.
+- Trips to Mars, the Moon, even orbit, will require that we provide astrotourists with as many comforts from home as possible, including paying each other.
+- Because of his military service, Dad was buried in Arlington National Cemetery.
+- Anything we can do in the near future that begins to stimulate the interest of people - seeing somebody down the street have an opportunity to go into space - buoys up the whole neighborhood.
+- America's can-do spirit cast a warm glow across nations and cultures, generating more goodwill and support for our country's ideals and causes than had otherwise been possible.
+- I didn't start skiing until I was 50. My wife Lois taught me how to ski. I'm proficiently conservative.
+- For the future, primarily, we must educate people in science, engineering, technology and math.
+- Absolutely the United States should lead in space, for the survival of the United States. It's inspiring for the next generation. If we lose leadership, then we'll be using Chinese capability to inspire Americans.
+- Timing has always been a key element in my life. I have been blessed to have been in the right place at the right time.
+- In Mars, we've been given a wonderful set of moons... where we can send continuous numbers of people.
+- I'm sure that there are places in the deserts in Australia that could be similar to where we might want to go on Mars.
+- The first footfalls on Mars will mark a historic milestone, an enterprise that requires human tenacity matched with technology to anchor ourselves on another world.
+- It's real easy to manufacture what you think the people want to hear. But that's not very honest.
+- The purpose of going to Mars is for humans to first begin to occupy, permanently, another planet in the solar system. The astronauts or pilgrims, whatever you might call them, are going to be very historically unique human beings.
+- There are always door openings. And gradually, it accumulates. The opportunities open up in front of you.
+- I am Buzz Lightyear!
+- America can take man to the moon, and America can take men to Mars - and beyond.
+- Save the taxpayer's money by canceling the Ares 1 and V.
+- Walking around on the moon was significantly easier than we'd thought it would be. There weren't any balance problems, so you weren't tumbling over.
+- Certainly, I've never wanted to live on past achievements.
+- Tang sucks.
+- I have no intention of selling any more of the historical Apollo 11 items in my possession for the remainder of my life. I intend to pass a portion of these items on to my children and to loan the most important items for permanent display in suitable museums around the country.
+- My first biography written in '73 was not 'Journey To The Moon.' It was 'Return To Earth.' Because for me, that was the more difficult task - disappointment.
+- Exploring and colonizing Mars can bring us new scientific understanding of climate change, of how planet-wide processes can make a warm and wet world into a barren landscape. By exploring and understanding Mars, we may gain key insights into the past and future of our own world.
+- All the Chinese have to do is fly around the Moon and back, and they'll appear to have won the return to the Moon with humans. They could put one person on the surface of the Moon for one day and he'd be a national hero.
+- As a student, I wrote English reports on science fiction.
+- Computers allow us to squeeze the most out of everything, whether it's Google looking up things, so I guess that tends to make us a little lazy about reading books and doing things the hard way to understand how those things work.
+- I inherited depression from my mother's side of the family.
+- American greatness was elevated significantly after Sputnik.
+- There's a historical milestone in the fact that our Apollo 11 landing on the moon took place a mere 66 years after the Wright Brothers' first flight.
+- The decision to go to the moon is now appreciated and associated with President Kennedy's speech, but somebody else had told him it was a good idea. It turned out to be a good commitment, but it was a unique situation.
+- If we go back to the moon, we're guaranteed second, maybe third place because while we are spending all that money, Russia has its eye on Mars. Landing people on the moon will be terribly consuming of resources we don't have. It sounds great - 'Let's go back. This time we're going to stay.' I don't know why you would want to stay on the moon.
+- Extraordinary observations require extraordinary evidence.
+- I've led a life of such structured discipline and always had a goal in mind of knowing what I was doing, from West Point to the Air Force combat, MIT, looking for new things to study and get involved in. And then I got into the space program, and how disciplined can you get?
+- The much-hyped Ares 1-X was much ado about nothing.
+- I failed music when I was a teenager.
+- There should be an international lunar base. That is certainly doable.
+- I want to keep on the move, keep stimulated and challenged.
+- Nobody cares about the bronze or silver medals.
+- The moon I see now is the same moon I saw before. Except that before, when I looked at it, it was in anticipation of what it would be like when I got there. That's behind me now.
+- Going back to the moon is not visionary in restoring space leadership for America. Like its Apollo predecessor, it will prove to be a dead end littered with broken spacecraft, broken dreams and broken policies.
+- The best way to study Mars is with two hands, eyes and ears of a geologist, first at a moon orbiting Mars... and then on the surface.
+- Mars has a bit of air pressure; maybe we can build up that atmosphere to be a bit more accommodating to humans.
+- Space architectures capable of supporting a permanent human presence on Mars are extraordinarily complex, with many different interdependent systems.
+- Retain the vision for space exploration. If we turn our backs on the vision again, we're going to have to live in a secondary position in human space flight for the rest of the century.
+- You need propellants to accelerate toward Mars, then to decelerate at Mars, again to re-accelerate from Mars to Earth, and finally to decelerate back at Earth. Accordingly, the mass of these required propellants, in short, drives our need for innovative launch vehicles.
+- Going to Mars would evolve humankind into a two-planet species.
+- I remember it was hard to believe that I was taking a step onto the lunar surface.
+- Any observations from the Moon or a sense of realising this or that about the greater meaning of things wasn't as influential for me as the experience of coming back and dealing with being a person who's been to the Moon.
+- We should've asked China to be a portion of the space station. We should've worked out ways that we can... just give away the technology that we have that puts things up into space, with cooperation up above the atmosphere that's needed to help each other.
+- Landing in the ocean and waiting for the Navy to come alongside and haul you out of the drink is what space capsules require. And after the capsule is recovered, it would take weeks for the ship to return to port.
+- Instead of planning the retirement of the Space Shuttle program, America should be preparing the shuttles for their next step in space: evolving, not shutting them down and laying off thousands of people.
+- There's no doubt who was a leader in space after the Apollo Program. Nobody came close to us. And our education system, in science, technology, engineering and math, was at the top of the world. It's no longer there. We're descending rather rapidly.
+- Monumental achievements by humanity should be done by major organizations as much together as possible.
+- When I was a little kid, we only knew about our nine planets. Since then, we've downgraded Pluto but have discovered that other solar systems and stars are common. So life is probably quite prevalent.
+- Nobody ever asks who was the seventh person on the Moon. The only thing they know is who's number one and who's number two. Does anybody know who the last man was?
+- I want people to go into space, to orbit around the world a few times, even to stay there for 24 hours and then come back to where they took off. And I also want people with a low income to be able to do that, not only rich people.
+- I think there would be no shortage of applicants to the government astronaut corps to be settlers on the planet Mars. And I think this would be very inspiring.
+- I still say, 'Shoot for the moon; you might get there.'
+- I think we need to move to the moons of Mars and learn how to control robots that are on the surface. It's not the impatient way of getting there, but Mars has been there a long time.
+- As we reflect back upon the tragic loss of Challenger and her brave crew of heroes who were aboard that fateful day, I am reminded that they truly represented the best of us, as they climbed aloft on a plume of propellant gasses, reaching for the stars, to inspire us who were Earthbound.
+- I don't watch 'American Idol,' but I wouldn't call it 'undignified.'
+- I am definitely not rich.
+- By refocusing our space program on Mars for America's future, we can restore the sense of wonder and adventure in space exploration that we knew in the summer of 1969. We won the moon race; now it's time for us to live and work on Mars, first on its moons and then on its surface.
+- Growing up, I was fascinated with Buck Rogers' airplanes. As I began to mature in World War II, it became jets and rocket planes. But it was always in the air.
+- Mars, we know, was once wet and warm. Was it home to life? And what can living and learning to work on its rust-colored surface teach us about the future of our own planet, Earth? Answering those mysteries may hold the key to our future.
+- You can tell I'm not too bashful about some of my feelings.
+- The biggest benefit of Apollo was the inspiration it gave to a growing generation to get into science and aerospace.
+- There were about six years when there was not one American who went into space. We shouldn't do that again.
+- Let's not spend resources that we don't need to be sending astronauts back to the moon. Let's not spend expensive resources on bringing people who have reached Mars back again. Prepare them to become a growing colony.
+- Mars is much closer to the characteristics of Earth. It has a fall, winter, summer and spring. North Pole, South Pole, mountains and lots of ice. No one is going to live on Venus; no one is going to live on Jupiter.
+- Astronauts are not superhuman. They lead ordinary lives and have varied personalities.
+- You are not going to change the minds of people who are looking for attention.
+- Whenever I gaze up at the moon, I feel like I'm on a time machine. I am back to that precious pinpoint of time, standing on the foreboding - yet beautiful - Sea of Tranquility. I could see our shining blue planet Earth poised in the darkness of space.
+- I think it's inevitable that there will be Earthlings establishing a presence on Mars. And I would say that it would certainly take place by 2050 or shortly thereafter.
+- When you're in a spacecraft, you need to know what things you can touch and what things you shouldn't touch!
+- Just as Mars - a desert planet - gives us insights into global climate change on Earth, the promise awaits for bringing back to life portions of the Red Planet through the application of Earth Science to its similar chemistry, possibly reawakening its life-bearing potential.
+- There are many people talking about access to space and, 'How can we make that cheaper? How can we turn that into a Southwest Airlines versus the big airlines?'
+- Mars is there, waiting to be reached.
+- My expertise is the space program and what it should be in the future based on my experience of looking at the transitions that we've made between pre-Sputnik days and getting to the moon.
+- By venturing into space, we improve life for everyone here on Earth - scientific advances and innovations that come from this kind of research create products we use in our daily lives.
+- Like actors and writers who are on and off again in terms of employment, I had a very unstructured life.
+- We must still think of ourselves as pioneers to understand the importance of space.
+- Sending a couple of guys to the Moon and bringing them back safely? That's a stunt! That's not historic.
+- When we get there, if we don't find any life on Mars, from that point on there will be life on Mars because we'll bring it there, whether it's germs and leftover urine bags, whatever it is.
+- I think humans will reach Mars, and I would like to see it happen in my lifetime.
+- I understand that Detroit was a pretty rough place to grow up in the '70s and '80s.
+- When we can demonstrate that we can take off horizontally and put something into orbit, then we can begin to talk about increasing the amount of payload. But to say, 'I'm going to do that and put people into orbit' is a real leap.
+- Every couple of years, we could dispatch people from Earth to Mars.
+- Having walked on the Moon, I know something about what we need to explore, really explore, in space.
+- I've been to the Titanic in a yellow submarine and the North Pole in a Russian nuclear ice breaker.
+- The way I see it, commercial interests should manage a lunar base while NASA gets on with the really important task of flying to Mars.
+- I think the climate has been changing for billions of years.
+- Us reaching the moon convinced Gorbachev and other leaders that the Soviet Union couldn't compete with the U.S., so they revised their agenda. But people have short memories.
+- There's a need for accepting responsibility - for a person's life and making choices that are not just ones for immediate short-term comfort. You need to make an investment, and the investment is in health and education.
+- You can never tell when a commercial space venture will suddenly become viable.
+- I grew up in New Jersey and never went up the Statue of Liberty.
+- As we begin to have landings on the moon, we can alternate those with vertical launch of similar crew modules on similar launch vehicles for vertical-launch tourism in space, if you want to call it that... adventure travel.
+- Before deciding what to do about national space policy, Obama set up an outside review panel of space experts, headed up by my friend Norm Augustine, former head of Lockheed Martin and a former government official.
+- I think the people who experienced the Apollo missions came away from that experience wondering to themselves, 'When can we get a chance to experience spaceflight?' I've heard that many, many times: that people got into a new career field hoping that they would be able to experience spaceflight.
+- It's time to open the space frontier to citizen explorers.
+- My first inclination is to be a bit skeptical about the claims that human-produced carbon dioxide is the direct contributor to global warming.
+- During the divorce process, I lived alone and tended to get extremely down on myself.
+- The guys who walk on Mars are going to be historic.
+- Mars is far more attractive as an outpost colony for earthlings than the moon is.
+- Somebody would think I was trying to get favored treatment because my ancestors had the name Moon. And that's a joke.
+- Look at what Silicon Valley has done - the advance of computers.
+- The society of life on Mars, or the challenge of making Mars more livable, will have significant benefits on our attempts to modify and change in some ways the environment here on Earth.
+- I was motivated to improve the U.S. strategy of going back to the moon in 1985. That's a long time ago. Going back to the moon would be a great achievement for tourism adventure flights.
+- Over the years, I think I've matured in my spiritual evolution and development to understand a bit more than the narrow religious thinking - to move beyond that through a sort of perfection of the grandiose nature of the universe, and how perfect it is it in its sense and how satisfied we should all be in our place in that.
+- Russia perhaps is still entertaining the possibility that the moons of Mars might have access to ice or water.
+- A mind concerned about danger is a clouded mind. It's paralyzing.
+- What are you going to do with astronauts who first reach the surface of Mars and then turn around and rocket back home-ward? What are they going to do, write their memoirs? Would they go again? Having them repeat the voyage, in my view, is dim-witted. Why don't they stay there on Mars?
+- I came to dedicate my life to opening space to the average person and crafting designs for new spaceships that could take us far from home. But since Apollo ended, such travels were only in our collective memory.
+- Mars has been flown by, orbited, smacked into, radar inspected, and rocketed onto, as well as bounced upon, rolled over, shoveled, drilled into, baked, and even laser blasted.
+- I think both the space shuttle program and the International Space Station program have not really lived up to their expectations.
+- Some things just can't be described. And stepping onto the moon was one of them.
+- Astronauts working for the government will always need to be either pilots or mission specialists. Those who want to be pilots should have military experience - ideally, a test pilot background.
+- I think the American Dream used to be achieving one's goals in your field of choice - and from that, all other things would follow. Now, I think the dream has morphed into the pursuit of money: Accumulate enough of it, and the rest will follow.
+- Does it make sense for the U.S. to expend hundreds of billions of dollars to mount a new Apollo-style program to return to the moon? Or have we blazed that trail? Shouldn't we help other nations achieve this goal with their own resources but with our help?
+- Fighter pilots have ice in their veins. They don't have emotions. They think, anticipate. They know that fear and other concerns cloud your mind from what's going on and what you should be involved in.
+- Space travel for everyone is the next frontier in the human experience.
+- If you want poets in space, you'll have to wait.
+- I am not sure about Bill Nelson. I haven't heard him say, 'Let's junk the NASA plan to send humans to the moon.' He's not about to say that. That would not be very popular.
+- I feel we need to remind the world about the Apollo missions and that we can still do impossible things.
+- Who put their foot in the Missouri River first: Lewis or Clark? Who cares!
+- People communicate in Twittering ways. I've learned how to do that.
+- Space tourism is a logical outgrowth of the adventure tourist market.
+- We can continue to try and clean up the gutters all over the world and spend all of our resources looking at just the dirty spots and trying to make them clean. Or we can lift our eyes up and look into the skies and move forward in an evolutionary way.
+- The leader of an Earth organization who makes a commitment to history - of humans living on Earth, to begin permanent settlement/occupation of not the moon, but of another planet - this leader will have a legacy for history that will supersede Columbus, Genghis Khan or almost any recognized leader.
+- Maybe it was the challenge of flight, the opportunity to fly, the competition of summer camp and the inspiration and discipline of West Point. I think all of those things helped me to develop a dedication and inspired me to get ahead.
+- People come up to me and say, 'It's too bad the space program got canceled.' This is not the case, and yet that is what most of the public thinks has happened.
+- Human rights problems will always exist for years to come, but maybe they'll lessen somewhat.
+- I don't think we're going to build a 50-person spacecraft or a 100-person spacecraft.
+- I shot down two airplanes in Korea, so I wasn't a slouch.
+- When you go to Mars, you need to have made the decision that you're there permanently. The more people we have there, the more it can become a sustaining environment. Except for very rare exceptions, the people who go to Mars shouldn't be coming back. Once you get on the surface, you're there.
+- Ray Bradbury is one who is contributing to the understanding of the imagination and the curiosity of the human race.
+- If we can conquer space, we can conquer childhood hunger.
+- There may be aliens in our Milky Way galaxy, and there are billions of other galaxies. The probability is almost certain that there is life somewhere in space.
+- Not everyone will understand this need for America to lead the world in space.
+- We need to begin thinking about building permanence on the Red Planet, not just have voyagers do some experiments, plant a flag and claim success. Having them go there, repeat this, in my view, is dim-witted. Why not stay there?
+- I'm not in favor of just taking short-term isolated situations and depleting our resources to keep our climate just the way it is today.
+- Space is not just going up and coming back down again. Space is getting into orbit and being there, living there, establishing a presence, a permanence.
+- My father's an early aviator, and my first flight was with him at age two. Now, despite the fact that I got sick on the flight, I still enjoyed it, I believe.
+- I grew up in a country that I thought was special. And it was.
+- Is the destiny of the human species to sit back and play with our mouse and computer and imagine, fantasize?
+- When President Kennedy took office, I was in the midst of my education.
+- There's no guarantee that the United States will be around 200 years from now.
+- Armstrong described the lunar surface as 'beautiful.' I thought to myself, 'It's not really beautiful. It's magnificent that we're here, but what a desolate place we are visiting.'
+- Unfortunately, kids are led to believe things are easier to achieve than they really are.

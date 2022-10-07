@@ -1,0 +1,36 @@
++++
+author = "Rulon Gardner"
+title = "Rulon Gardner Quotes"
+quotes_len = "30"
+description = "the best 30 Rulon Gardner Quotes"
++++
+- There's no comparison to competition. You can't tell yourself truly where you're at unless you compete in competition.
+- As the youngest of nine on a dairy farm, life was never easy. We'd get up and milk, haul hay, change the pipe, then go to school, wrestling practice, and come home and milk all over again.
+- Even when on 'The Biggest Loser', I was out doing back handsprings on the show, throwing dummies on the mat.
+- I'm a wrestler with nine toes. I'm a wrestler who has been through a lot of battles. I get to do a lot of motivational speaking, and people are blown away and say, 'You never quit. You keep coming back.'
+- That's why I kept wrestling - I'm too dumb to realize I can't win, so I keep wrestling until I ultimately succeed. I'm pretty dang stubborn.
+- If a steer is more than four or five months old, he's too big to wrestle.
+- People say, 'You're overweight'; they question your heart and character. It's a challenge again, proving to myself and to other people that I'm still here, I still have what it takes.
+- I can't tell what's going on with my feet. They don't say, 'Hey, I'm losing balance.' They give me almost zero feedback.
+- I can freestyle for a while, but I'm not an Olympic swimmer who can go two or three miles.
+- People in my life have either supported me or doubted me. The only people I hear are the doubters. So, for me, I look at life, and I don't feel like I have anything to prove, but I have an opportunity.
+- I don't have all this money people think Olympic athletes have.
+- People consider me a hero, but I turn around and look at the military people overseas. They're the freaking heroes. They're the ones putting their lives on the line for America.
+- Being on 'The Biggest Loser,' that's where my fire turned back on. It was time to go out there and take care of business. The old dog has the scent to hunt again, and for me, this dog wants to run again and go with the big guys.
+- You just try to make the best decisions you can. You just take life as it comes to you and do your best.
+- For me, back in Sydney, it was just being there and going out and beating Alexander Karelin, 13-time world champion and Olympic gold medalist. It was everything for me.
+- I look at what I have as compared to what I don't have. I have this, I have this, I have this. Thank God for it, and let's move on.
+- Olympic athletes are a different breed. We're not dealing with million-dollar contracts. We don't do the sport for those deals. We do the sport because we love the challenge, the battle. We love to be an American.
+- Wrestling pushes me, makes me accountable. It makes me who I am. I never felt I was just a normal person. Then I felt too normal, lazy, sedentary.
+- 'The Biggest Loser' was only a steppingstone to my comeback, to my ultimate success. It was a vehicle to give me my life back. It was a vehicle to give me my health.
+- I'm trying to make better choices, and for me, this is kind of a rebirth. If I make the Olympic team? Great. If not, look at myself after eight years and ballooning up almost 200 pounds and getting on 'The Biggest Loser.' You know what? I get my life back again, and that's what truly mattered to me.
+- When I started out on 'The Biggest Loser,' for me it was kind of embarrassing to be on national TV and go from this wrestling icon, this Olympic gold medalist, to being on 'The Biggest Loser.'
+- Everything is work on the farm.
+- America's seen me go from Olympic glory to 'Biggest Loser'. I want to go back to Olympic glory again. It's kind of the American way, rebuilding yourself and remodeling yourself and making yourself more of who you are.
+- The first time I ever beat my brother was the end of my junior year. At the end of the match, he tried to throw me, and I took him to his back and pinned him. Instead of simply losing, he bit me in the chest.
+- My favorite part of Wyoming is as soon as I hit the border. I'm home, where life is good.
+- I act young, I look old, and I'm crazy to be wrestling.
+- Some people think I have a death wish. I don't have one. I just make mistakes. Bad things happen to good people.
+- Ultimately, I didn't look at 'The Biggest Loser' as being my defining moment. I wasn't there to compete and win the money. I wasn't there to win 'The Biggest Loser.' I was there for my health.
+- Wrestling is just an extension of who I am.
+- Some people are just naturally good. I always found ways to become good.

@@ -1,0 +1,23 @@
++++
+author = "Cyril Cusack"
+title = "Cyril Cusack Quotes"
+quotes_len = "17"
+description = "the best 17 Cyril Cusack Quotes"
++++
+- Religion promotes the divine discontent within oneself, so that one tries to make oneself a better person and draw oneself closer to God.
+- I am basically a religious man.
+- I am a nationalist... my native soil is the theatre.
+- I love the theatre and theatre people.
+- They say 6 million people see you when you act in a film; it may only be 600 in a play. But the effect on the 600 may be truer and more lasting.
+- I have tried to explore the little talent I have for writing.
+- I was rather a fat little boy.
+- I have been on my own all my life except during those touring days.
+- In my younger years my dedication may have expressed itself egotistically.
+- Simple stories... emerge as lovely films or television pieces.
+- Acting is the most brotherly and sisterly profession in the world.
+- To maintain one's individuality, integrity, and true personality in the theatre is a big task.
+- The actor has a constant problem of personal identity.
+- The relationship with a live audience seems to me to count for more.
+- Theatre has no national identity. It is something for the world, whether it is Irish, English, or French.
+- One's performance is often heightened by the brilliance and generosity of other actors.
+- If you asked me for my New Year Resolution, it would be to find out who I am.

@@ -1,0 +1,98 @@
++++
+author = "Cyd Charisse"
+title = "Cyd Charisse Quotes"
+quotes_len = "92"
+description = "the best 92 Cyd Charisse Quotes"
++++
+- I was christened Tula Ellice Finklea.
+- I dance every day and my legs are in good shape.
+- I danced with the Ballet Russe in Paris when I was 16 and did not need a companion.
+- You can't have bad eating habits without paying for them.
+- I suppose I'm considered a little old fashioned, but I still believe the most flattering skirt length is just skimming the middle of the knee.
+- I was in so many Esther Williams pictures with Ricardo Montalban and I always was his girl no matter what the story.
+- I joined the Ballets Russes when I was 14, and my name was changed twice. I was known as Marie Istomina, then as Felia Siderova. When I went to Hollywood and made my first movie, 'Mission to Moscow,' in 1943, I became Lily Norwood.
+- I'll stay with movies as long as they keep me in Hollywood.
+- I know the one-week stands and the moving from city to city wears a lot of people down. But I find it exciting that's where the audiences are.
+- You never realize that good things are going to be over some day.
+- I like to work. It gets boring sitting around.
+- If you worry about taking risks, don't do it.
+- I simply hate the sight of a suitcase.
+- When I'm working on a picture, I get up at 6 o'clock in the morning, report to the sound stage for rehearsals at 8, then appear before the camera from 9 to 6. I dread going to lunch, because during that hour my muscles get cold and I have to warm them up again. Standing still is the most miserable thing a dancer has to do.
+- I never considered going into motion pictures.
+- The music changed. We had Irving Berlin and Gershwin and Lerner and Loewe and Cole Porter. Great music. Now we have 'Rent.'
+- The Roman goddess Diana, you know, is usually shown with a bow and arrow. Every first-year Latin student knows that. I still remember the first simple sentence I learned in Latin 'Diana sagittas por tas... Diana carries the arrows.' That helped get me interested in archery as a teenager and I'm still into it a lot.
+- You never know what's around the corner.
+- Oh, I'm insane about shrimp curry!
+- Have you ever noticed how a cat stretches after a nap? We can learn from watching animals.
+- I was a dancer, not an actress.
+- Ballet is a closed world and very rigid; MGM was a fairyland. You'd walk down the lot, seeing all these fabulous movies being made with the greatest talent in the world sitting there. It was a dream to walk through that lot.
+- I had no delusions about myself. I couldn't act - I had never acted. So how could I be a movie star?
+- For a while every commercial was a dancing one. Remember when girls were dancing around salt and coffee cans?
+- Sometimes it's a bit hard for a person to get the rhythm of music from the ear to the feet, but that's a matter of coordination.
+- What makes a star or a movie into a legend? I don't know. For instance, when Robert Taylor and I made 'Party Girl' in 1958, nobody was particularly excited about it. Now, it's considered by thousands to be a classic. There are 'Party Girl' cults.
+- Well, I don't like hats, never wear 'em.
+- I like warm weather but not this sticky, humid heat of New York.
+- When you dance you need an awful lot of energy. Off stage, you learn to conserve.
+- Being shy personally and performing are two different things.
+- Beverly Hills is just a small community.
+- Whenever they do leg pictures, I'm it!
+- Most dancers have a young body. This is part discipline and part desire, because just sitting around makes one feel sluggish.
+- Whenever an actress marries a nonprofessional with the promise she can carry on her career, either the marriage ends or the career does. Only actors understand the demands of professional lives and make allowance for them.
+- The happy marriages never get any publicity. It's just the bad ones that you read about.
+- People who think they're making a fool of themselves on the dance floor usually do.
+- He was a wonderful gentleman, elegant, with great humility. All the wonderful things you can say about a person, you have to say about Fred Astaire.
+- If I don't go through a daily routine to keep muscles stretched, you've no idea what tortures I go through when I make anothor dancing picture.
+- I had a mild case of polio as a child. Not enough to cripple me, but it was polio. I still have an atrophy on the right side of my back.
+- Making a movie is like sprinting. Nightclub work is a long-distance event. You have to pace yourself and sustain it for a long period.
+- If I have any strength as a dancer, I got it all from Nijinska. Her barre was tough, and there were very difficult combinations.
+- I'm not a luncheon personality so I skip it.
+- Tap was against everything I had learned to do. I was pulled up as a ballet dancer, and I wasn't used to pounding the floor with bent knees.
+- I think that in all my dancing I play a role,' she told The Times that year. 'To me, that's what dancing is about. It's not just steps.
+- I always thought those old drab clothes from 'Silk Stockings' were the worst things I wore.
+- I never know which camera is on me when I'm dancing and the director picks the shot he likes but it usually isn't the best shot for showing the steps I want the audience to see.
+- I know there are pros and cons about the studio system.
+- Everything has come to me without my having to look for it. I signed with Metro because someone thought I had talent, and it was the same thing with the ballet.
+- I get really attached to dogs.
+- I believe in exercise for everybody: it makes you feel so much better, it keeps your muscles toned and your body supple.
+- Fred Astaire was special, and such a marvelous human being.
+- I was in a ballet company, and I auditioned for Bob Alton, a top choreographer at MGM. He sent me to see Arthur Freed, who offered me a seven-year contract.
+- It really isn't important how you get your exercise, but it does matter that you keep it up. If you let go, you'll find it very hard to get started again.
+- When I dance, people are watching for a slight mistake. I don't want them to see any.
+- There is no point working off pounds with exercise, if you are going to eat them back on again.
+- It's impossible to make dancing really effective on TV. The screen is too small, and the cameras can't move fast enough to get the right angles.
+- My husband, my children and my home were the greatest concern to me.
+- Claude Rains is my favorite actor. He's so utterly polished and competent, no matter what he does.
+- If I'm not working, I like to attend a dancing class. At least that keeps you in condition. Then, if you get a call for a dancing part, you don't have to go through two weeks of misery getting back in shape.
+- If I had to give up either acting or dancing, I'd choose to keep dancing.
+- I eat a big breakfast and then go off to an hour and a half of strong ballet class.
+- M-G-M knew how to build stars. We used to do constant publicity stills. You were the Easter bunny one time and a Christmas tree the next. When I went to Japan, they knew who I was. Now you have a great actress and a year later, they ask, 'What happened to her?'
+- I was this tiny, frail little girl, I needed to build up muscle, and I fell in love with dancing from the first lesson.
+- All I ever wanted to do was dance.
+- There was a technique to making a musical. It took a long time for the studios to learn it, and it was very complicated.
+- I have never been extroverted.
+- When you have control of muscles through balance, exercises not only streamline your figure, but you acquire a command and grace which contributes to your posture and to the way you wear your clothes.
+- It would be impossible to make a comparison between Fred Astaire and Gene Kelly. Their personalities are entirely different.
+- I was born in Amarillo. And my brother, who was a year older than I, had trouble saying the word 'Sister,' it came out 'Sid.' So I was called Sid.
+- Dancing is like ditchdigging, it's so strenuous. A laborer doesn't work any harder.
+- TV has made dancing less important. It used to be a real treat to go to the movies and see Fred Astaire dance. But now you see dancing every time you turn on the set. You see lines of girls on the variety shows - even girls dancing around a big box of cleaning powder for commercials.
+- Most dancers are very quiet.
+- Unless you have the right legs, these mini-skirts are ungainly and uncomfortable. They're just a fad.
+- My favorite occupation at home is sitting by the pool in swim suit, soaking in the sun, cooling off by an occasional sip of my water.
+- I spent some time in Paris when I made 'Black Tights.' The working people were great but I didn't like the attitude of merchants who raised prices when they learned you were an American.
+- During the day when I have a strenuous rehearsal, I may take a teaspoon of honey in a glass of juice for quick energy.
+- The first thing I did was 'Ziegfeld Follies,' a small bit en pointe with Fred Astaire.
+- Everybody can learn to dance. If they can walk, they can dance.
+- The censors were always there when I was on the set.
+- Most men, even egotistic actors, always shy away from dancing with me. Other dancers report the same trouble. They probably figure that I would be mentally comparing them with Fred Astaire or Gene Kelly. So I go to parties and usually just sit - unless George Burns is there - and then I have a ball.
+- I'm a dancer and when I walk off stage there isn't a dry spot on me. This means my hair has to be put up again between shows. I have to make up and dress all over again.
+- Anything is easy after doing night clubs. It's the two shows a night that get you.
+- I've done about everything in show business except to play on Broadway. I always hoped that I would one day. It's the World Series of show business. If anybody tells you they're not intimidated, they're lying.
+- Who can copy Garbo?
+- To make a man happy, treat him like a dog - plenty of affection and a loose leash.
+- Once you have your appetite well under control, start to acquire your dream figure with exercise.
+- Well, I swim quite a bit, and ride horseback. That's supposed to be bad for dancers, but I don't care - I like it. And then I collect dolls. I have them from lots of foreign countries.
+- I've always worked very hard. I think dancers always do.
+- You know, I don't think anyone ever knew anyone like Marilyn, really. I've never known another girl like Marilyn Monroe.
+- Archery is simply marvelous for firming up the arms, neck, back, the chest, and the abdominal muscles.
+- A lot of people resented MGM because it could be very paternalistic but for me, the experience was very good.
+- When I am dancing I go into training. I eat a good strong breakfast. You have so much more energy if you start your day well fortified.

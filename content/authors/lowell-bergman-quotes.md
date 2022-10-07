@@ -1,0 +1,18 @@
++++
+author = "Lowell Bergman"
+title = "Lowell Bergman Quotes"
+quotes_len = "12"
+description = "the best 12 Lowell Bergman Quotes"
++++
+- There has always been tension between reporters and the administration, particularly when it comes to war in the modern era. You can go to Kennedy or Johnson and see that they weren't happy with David Halberstam or Morley Safer.
+- My role, or anyone's role in network news, is to make the person on camera look good. You don't do that, you don't work there.
+- Ever since Woodward and Bernstein, there's sort of been an epidemic of confidential sources in Washington, in particular where people will actually - when you call them up on the phone, they'll say, 'This is off the record,' or, 'This is on background,' or they don't even wait for you to say anything.
+- When you have an attorney giving you advice, it would be nice to know what their financial relationship is to the advice.
+- What has been adjudicated and established in the wake of Vietnam and the Civil Rights movement is the ability of the press to basically write or broadcast almost anything about the government. There's very few restrictions in that way.
+- You can have all the information you want in the world. If you don't have the people raising questions and looking beneath the surface, and people being paid to do this, you're not going to find the answers.
+- Terrorism gets people's attention.
+- You can't expect that because you find a story and report it out that your newspaper and broadcasting company is going to want to publish and broadcast it - and you're going to be a hero.
+- I have quite a bit of experience reporting on corporate behavior, both doing it with independent operations in early in my career, in the underground press, to magazines like 'Rolling Stone,' to regional newspapers and television, and television news programs, to papers like the 'New York Times' and public television.
+- I tell my students that if you have enough preparation, you can handle the big interviews. You won't be intimidated.
+- The fact that wealthy people or people from privileged backgrounds may wind up in a violent terrorist organization is not new.
+- You know, when people talk about filmmaking and the techniques of filmmaking, we use them all the time in network television news in order to make our stories simpler, tighter and more understandable to the general public.

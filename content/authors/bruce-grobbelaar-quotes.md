@@ -1,0 +1,89 @@
++++
+author = "Bruce Grobbelaar"
+title = "Bruce Grobbelaar Quotes"
+quotes_len = "83"
+description = "the best 83 Bruce Grobbelaar Quotes"
++++
+- I'm in the gym every morning.
+- I have been called a clown in football - but if I don't go onto the field with a laugh and smile, I shouldn't be doing it.
+- People think that because I was at Liverpool for such a long time - in a period where the club was very successful - that it was bliss all the way.
+- If you ever look at my history of coaching in South Africa, no team has ever gone down. And I'm talking about places in the league. They've always gone up.
+- The fans called me Jungleman. They said this young guy's not white. He's black in a white man's skin.
+- People ask me why I can still smile on the pitch when we're losing. I tell them that if you lose your smile and stop being happy, you should find yourself a plot in the graveyard.
+- Petr Cech is one of the finest goalkeepers I have seen and he has proved that in the Premier League.
+- I would never do anything to let my fans down.
+- Ray Clemence was the best in the world at having nothing to do for 89 minutes and then in the 90th minute making a great save.
+- I've seen a life many, many footballers had never seen.
+- I dream of going to coach in Europe and England once I have done my apprenticeship here in Africa.
+- Liverpool is a family, it is not a club, you don't come in and out of this club without it leaving a mark.
+- Growing up in Africa teaches you to become patient.
+- Liverpool had African players from the '50s and '60s. There were goalkeepers in the early days from South Africa. Then in 1981 there was a guy who came to Anfield. They say 'who is this guy' and it is me; I am African.
+- The Britons bankrupted me. I came to their country with £10 in my pocket and they gave me £1 back. But in between I had one hell of a ride.
+- When you go out on to that field it's going to be war. Sportsmanship is playing to the best of your abilities and then, afterwards, shaking your opponent's hand.
+- I still have dreams about Hillsborough. Well, nightmares, anyway.
+- I've likened Mignolet to worse than Dracula because at least Dracula comes out of his coffin now and then. He seems to stay on his line and that's it.
+- We were taught in school that there was a fundamental difference between black people and white people - that we were superior.
+- An injured Gerrard is still better than many fully-fit players.
+- Going through my time as a coach in Zimbabwe and in South Africa, I know for a fact if there is anything dodgy in a game, look at the three people in black. They are the catalyst.
+- I had to learn some hard lessons in my early days because I was a bit of a showman, a kind of Jekyl and Hyde character.
+- I'll argue with the owners all day long when they do not allow the players to get the best.
+- If a goalkeeper can save you 15-20 points a season, his value is high. It's like a striker scoring 20 goals a season.
+- If players' hearts aren't in it, they can jump in the Mersey as far as I'm concerned.
+- Any goalkeeper that's going to play for Liverpool is going to be looked at and scrutinised - every shot, everything about it is going to be scrutinised.
+- For Premier League games, you get people coming from all over, paying big money to get into the games as part of a weekend away.
+- Rotation should be natural and changes should be made only when there are injuries and suspensions.
+- Greed is the worst thing.
+- Over the years, I am very lucky that I didn't submerge into a form of depression, because football saved my life really.
+- Roma must have been mad to sell Mo Salah. Either that or they really needed the money.
+- Alisson is undoubtedly one of the best goalkeepers in the world and he deserves to be put on that pedestal. Him and Manuel Neuer are probably the best two when it comes to angles - those two are the very best in the world at getting their angles right, they don't have to dive because they aren't out of position.
+- I've had a lot of things thrown at me. A lot of coins that had been sharpened, billiard balls, and I had a dart thrown at my back at Burnley. And potatoes with razor blades.
+- Cash is king in Africa.
+- In this day and age, in modern goalkeeping, if you come out and you catch the ball and you get smacked, you're going to get the foul.
+- Any team that lets in 50 goals should never be in second position in the first place.
+- Looking back and knowing what I do, I believe the people who started the initial surge at Heysel were not Liverpool fans.
+- In the Eighties I was brash. I said things and it upset a lot of people.
+- If you can make the players better, that's what I'm about.
+- I played behind Phil Thompson and Alan Hansen, and they were both brilliant centre-halves.
+- Since myself and a few others like Pepe Reina, we haven't had a goalkeeper who has commanded his area as well as Alisson.
+- I joined the Rhodesian army in 1975, having trained for six weeks outside Bulawayo.
+- I will never apologise for laughing at life and enjoying football.
+- You can't put your arm around the referee! That's ungentlemanly conduct.
+- You can't worry about the game you've just played, because you can't do anything about it. And the next time you go onto the field, don't do what you did in the last game!
+- I mentioned that Mignolet is bad at coming for crosses and as soon as that went into the newspapers, he got better.
+- Alisson arrives at Liverpool with much more experience than De Gea had when he first went to United so I don't think there will be anyone out there who doesn't feel Alisson shouldn't be here.
+- I like to be in big open spaces with high skies.
+- On the European nights, the corporate fans from overseas can't get tickets. It's mainly local fans. That's why the atmosphere is so great and the passion is so strong.
+- If war teaches you anything, it is an appreciation of being alive.
+- I've always said Reina has the best distribution out of the continental 'keepers. His kicking out and throwing is absolutely superb. He might actually score from a kick one day, either out of his hands or he'll come 35 yards out and have a go at goal.
+- Liverpool manager Bob Paisley signed me from Crewe in 1981. We were the champions in my first season and I went on to win many honours.
+- Just because you've made a mistake... everybody makes mistakes. It's how you come out of it.
+- Mohamed Salah, well if you go to Egypt he is a god there.
+- The surname Grobbelaar is roughly translated in English from original Dutch as 'clumsy,' so I think I was struggling from the start to rid myself of the clown tag that plagued me throughout my career.
+- On a given day, if you go into town to a little quiet pub or restaurant you might be sitting next to Jurgen Klopp - that's the type of person he is. You might see him out. He is one for the people.
+- I enjoyed 13 successful seasons at Anfield, becoming the most decorated goalkeeper in league history. But I believe the match-fixing scandal arose because the press did not like this person they perceived as arrogant and who had a reputation for clowning around in games. Goalkeepers aren't supposed to do that.
+- I can only say sorry for the past. I can't change it.
+- Governments cannot interfere in football matters - Fifa suspends countries for that.
+- If you're going to do a spaghetti legs routine where else but in Rome to do it. The home of spaghetti!
+- Life is too short to sit around doing nothing.
+- Jurgen Klopp was very astute in seeing Keita's ability and potential to develop.
+- When I left the army, I left for good.
+- When Jurgen Klopp came to Liverpool I was ecstatic. I knew his pedigree and what he did at Borussia Dortmund. What a job he did there.
+- You know, the one thing you never lose as a sportsman is your competitiveness.
+- I coached five clubs in South Africa and I was successful with them.
+- If you asked all the goalkeepers in my era, they will tell you that they were worth a lot more than the price they were bought.
+- Souness could do everything.
+- I broke Steve McMahon's nose twice in one night.
+- I'm happy to be alive and to play any sport and, really, I wouldn't mind working for a living and playing at weekends.
+- When I used to play, the manager would tell us that you are as good as your last performance. That made all the players more hungry to finish strong.
+- Losing a game is not a tragedy after experiencing border raids and having to eat beetles because you are out of rations.
+- Anyone who comes out of Brazil at a young age and comes over to Europe has got to have a big heart and a big personality.
+- With Keita, he will hunt you down, get the ball, then 'either get in the box and score or he has the same type of 'passing range Philippe Coutinho had in the final delivery.
+- If Alisson stays at Liverpool long enough he could break all the records that myself and Ray Clemence achieved.
+- You're as good as your last game, and that's how you get over it in any walk of life.
+- Jurgen Klopp is Shankly reincarnated in a German body, because he gets the people.
+- I don't talk to scum.
+- I had a couple of agents, but then I went on my own. I thought I could negotiate my own deals and it was probably my biggest mistake.
+- It can be daunting playing in front of the Kop.
+- The biggest memory I have is the 1984 European Cup final against Roma and my 'spaghetti legs' routine during the penalty shoot-out that won us the trophy. People said I was being disrespectful to their players, but I was just testing their concentration under pressure. I guess they failed that test.
+- There was a tradition of keepers at Anfield to play as a sweeper, going back to Tommy Lawrence under Bill Shankly.
+- If you can stay alive and enjoy life, that's the whole heart and soul of life. That's why I played with a smile on my face all these years.

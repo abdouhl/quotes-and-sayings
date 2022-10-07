@@ -1,0 +1,19 @@
++++
+author = "Rashid Al-Ghannushi"
+title = "Rashid Al-Ghannushi Quotes"
+quotes_len = "13"
+description = "the best 13 Rashid Al-Ghannushi Quotes"
++++
+- I believe democracy will succeed in Tunisia, but I also believe that it will succeed in the other Arab Spring countries.
+- Under Tunisian law, a woman can divorce her husband. Total equality.
+- I hope that with the success of the transition to democracy in Tunisia that we will export to Egypt a working democratic model.
+- We in Tunisia have no problem with respecting other people's religion, and we have a long tradition of that.
+- Al-Nahda is a movement; it is not just a small party.
+- Tunisia will continue to be a source of influence, not through its size but through the ideas and the models that it represents.
+- There are common denominators that unite all members of al-Nahda: There is no one in al-Nahda who doubts about Islam There is no one in al-Nahda that believes in extremist views of Islam.
+- In our modern age - in the age of free information - I don't think there is any place for dictatorships.
+- Just like in medicine, when the normal medicine no longer works, one resorts to surgery. And the revolutions is like the surgery: It's painful, and it's the last resort for nations.
+- No one in al-Nahda believes that jihad is a way to impose Islam on the world. But we believe that jihad is self-control, is social and political struggle, and even military jihad is only a way to defend oneself in the case of aggression.
+- French laicite is probably aggressive and antagonistic to the religion, but there are other models of secularism in the world where there could be reconciliation between religion and secularism.
+- I dream of a free, democratic, peaceful Tunisia, a country that can protect its developing identity.
+- There is no one in al-Nahda that is 'violence is a means of change or to keep power.' Everyone in al-Nahda believes that democracy is the only way to reach power and to stay in power.

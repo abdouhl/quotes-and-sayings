@@ -1,0 +1,66 @@
++++
+author = "Ricky Schroder"
+title = "Ricky Schroder Quotes"
+quotes_len = "60"
+description = "the best 60 Ricky Schroder Quotes"
++++
+- I love being on set, because I've basically grown up on a set. And now I love to contribute as a director and help steer the ship, if you will.
+- I did a lot of gasoline commercials - Hess, Texaco. I was part of the family in the car, the little brat in the back.
+- 'Rick' never really fit. I tried for 18 years to make it work, and no one wanted to call me Rick. It should always have been Ricky. That's what it always should have been, so I'm going back to it.
+- I really enjoy the writing process because I can do it from my house. I can create these characters and take them in the different directions that I want to take them. You have a lot of freedom as a writer.
+- I play a lot of chess. I probably played 200 games while we were making 'Andromeda.'
+- I became a country music fan in 1990 when I moved to Colorado. It was my first exposure to it because I'm from a city. I've been a fan of country music ever since.
+- When I turned 18, my agent was like, 'You should change from Ricky to Rick.' So I thought it was a good idea. Rick never really fit. I tried for 18 years to make it work, and no one wanted to call me Rick. It should always have been Ricky. That's what it always should have been, so I'm going back to it.
+- I love horror. I love 'The Shining,' 'Friday the 13th,' 'Halloween,' all those kinds of things. I love zombies, especially '28 Days Later' and '28 Weeks Later,' where the zombies are going faster than the George Romero ones. I love being scared; there's something that's awesome about your heart rate going up like that.
+- It's difficult being a child actor. I don't think everything beautiful has to be exploited. Some things can be beautiful and left beautiful.
+- I don't wilt easily, and a director can't either. He's the captain of the ship and he's got to be in total control. He also has to have respect for the people he's working for. From being an actor and being on a set my whole life, I'm very comfortable there. And I'm not afraid.
+- I feel like I'm a fighter. I've fought my whole life to get to where I'm at. I like fight movies. When someone gets knocked down, I like to root for him to succeed.
+- I met the Queen, the Pope, and we went all over Europe and Asia. I just wish I was older when I did all this. Then I could appreciate it more.
+- A horrible script 99 percent of the time means a horrible movie. But if you start with a good script, odds are you're going to have a good movie.
+- I didn't take the reins of my career until I was about 21, and I've been in charge since then.
+- I've had a very fortunate career and I've loved every moment of it.
+- I have a real eclectic taste for work, for movies, for characters and jobs.
+- 'Silver Spoons' was great memories - absolutely the best.
+- There were always moments where I'd say, 'What else can I do with my life?' But when I was 30 years old and discovered I could write - I wrote 'Black Cloud' in six weeks - it opened up a whole new world for me.
+- I was very outgoing, and a good-looking kid. I started doing all the catalogs. I made 60 commercials by the time I was 6. I must have been a natural, because I never took an acting lesson.
+- I'm really into sci-fi. The reason I'm an actor is because of 'Star Wars' - I saw that and I knew that's what I wanted to do. But most of the projects I'm offered as an actor are straightforward dramas, so I haven't really been given a chance to do that kind of role.
+- Finding the discipline, the motivation, the focus, the passion to sit down in front of a blank piece of paper or a blank computer screen every day and then to make it come alive with characters and with plot is incredibly exciting and at the same time terrifying and frustrating, and sometimes it comes easy and sometimes it comes really hard.
+- I have a great family myself so I know if you don't have a family you've got nothing. Nothing else can take the place of the family - not girlfriends or a career.
+- I have a career I am proud of as a child actor. I'm not running away from it or embarassed with anything I did.
+- Westerns are fun. I wish more of them would be made. When you're out there on a set, carrying a gun, riding a horse, you kind of get lost in that make believe world.
+- I have fond memories of my childhood. I spent five wonderful years on a popular TV show, but I didn't have a normal childhood. I was tutored for grades 4-11.
+- You always hear about people going through miscarriages and you never understand what one is like unless you go through it.
+- Trying to understand women is a tall order period.
+- There have been times I almost got a persecution complex. I felt like people wouldn't let me grow up. They always saw me as a smiling kid or goofy teenager, no matter how much I'd changed.
+- I worked with creative people who were very demanding of me, and they helped me reach performances that I never could have gotten on my own without being pushed and having trust in them. And so I know the best way to get the best performance of an actor, and that's not to coddle them or to baby them. It's to help them; it's to push them.
+- In the John Wayne movies, the Indians were savages that were trying to scalp you. That culture has really suffered because of the stereotype you see in those westerns.
+- I'm absolutely an optimist. It's the only way to get through life.
+- I don't have an iPod. I mean, I have a couple. Doesn't everyone? But I don't use it. I need to because I go to the gym now, and I'm tired of listening to morning radio. I want some music! I do have a video iPod, but I don't use it either.
+- I've found joy, peace and perspective. Those are very good things to have.
+- I spent my whole childhood wishing I were older and now I'm spending my adulthood wishing I were younger.
+- I think one of the things that saved me is that I never put all my eggs in one basket.
+- I always thought I had a problem socially, because I was pulled out of school so early. I had a tough time talking to other kids and being comfortable with them.
+- I weren't an actor, I'd be a wildlife biologist or forest ranger.
+- I think that if there's some innovative entrepreneurs out there who can help teach people how they can cost-effectively help themselves and their planet, I think everybody would be for it. That's going to be the challenge - figuring a way to get the marketplace and commerce to teach us consumers another way.
+- If the Indian people want stories written about themselves, how they want them told, they are going to have to make them, they're going to have to finance them. If you let Hollywood do it, Hollywood is going to get it wrong most of the time.
+- I have been a huge nerd to my kids. I haven't done the cool movies that they like. With '24,' I gained a lot of respect. '24' is now, it's hip, it's their generation.
+- There are always moments of despair when you get close to jobs and lose them at the last second. It feels like getting punched in the stomach. You feel like, 'Why do I do this?' Then you go to bed, get up the next day and forget about it.
+- I feel cheesy when I see 'Silver Spoons.' Some of it was funny, but some of it was just cheese! My kids love it, but I look at it and cringe.
+- I didn't choose 'Silver Spoons'. I think my mom and agent chose it because at that time there was a lack of patience on some of the people that were in charge of my career. I think there was a big offer on the table, and I think they took it.
+- I didn't grow up around wild horses, no. But I've appreciated their beauty and their power ever since I can remember.
+- I never cared about money because I never needed money, you know what I mean? When I was 12 to 17 I never saw any of the money, so the money never motivated me.
+- Nashville feels like a big little town to me. It's got lots of culture and lots of interesting things to do and lots of interesting people. At the same time, it feels very small and tight-knit and very close. Everyone feels like they know each other.
+- Directing, I just feel comfortable. I know what I want. I know what I want from my crew. I lead by example. I have limitless energy as a director.
+- I don't know why it is, but sometimes I feel like I'm 60. It's like I've been around for a long time. I felt that way even when I was 8.
+- I never thought I was good enough actually to write.
+- Working on 'NYPD Blue' and '24', those two series, I did full runs on those. It's great work, but everything has to align. The producers have to want you; the network has to want you; there has to be great writing; and it's not as easy as it may appear to the outsiders to make all those things align.
+- There are going to be peaks and valleys in everything - in your marriage, in your job, in your life. So just enjoy the peaks and ride out the valleys. Just try not to do anything too rash.
+- I was married at 20 and had a baby by 21. I had to grow up fast. Luckily there were people who believed in me and there were always jobs when I needed one.
+- I always knew I was going to be a family man.
+- My daughter's wanted to be an actress since she was six years old, but I didn't want her to go through the same experiences as I did as a child actor.
+- I don't like doing movies that are meaningless or unrealistic. I like things with a lot of reality to them. I'm a pretty serious kind of person myself. Things affect me.
+- I was never really comfortable doing comedy. Though it was good the first couple of years, there were problems, and it became a stifling experience. I was happy it ended.
+- I always had a separate life than just my work. I built my own family. I have my own hobbies and interests. I have a ranch with livestock and horses. I didn't always get my self-esteem and identity from acting. I never worked unless I wanted to. I never did anything just to do it, just for the paycheck. I always did things that I liked.
+- I demand excellence from the people I work with.
+- My career was full of struggles and dreams, disappointments and peaks and valleys. But there was no Twitter, no Facebook or TMZ. Young actors could make mistakes and not become the focus of tabloids.
+- I was never really comfortable doing comedy.

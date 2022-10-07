@@ -1,0 +1,22 @@
++++
+author = "Luke Harding"
+title = "Luke Harding Quotes"
+quotes_len = "16"
+description = "the best 16 Luke Harding Quotes"
++++
+- I first visited Kurdistan in 2003. I arrived in the town of Sulaimaniyah, courtesy of smugglers who drove me across the border from Iran. Sulaimaniyah was a small, charming provincial Kurdish town.
+- Two decades after communism and the alleged end of the Cold War, Russia is still a cash economy. The preferred currency is dollars, though euros are also acceptable.
+- Strict shopping laws mean that most German shops close on Saturday afternoons, reopening only on Monday when everybody is back at work.
+- When I first began visiting West Germany in the early 1980s, I was startled by the contrast between Birmingham, where I went to school, and affluent Cologne. My host family, the lovely Schumachers, always had an opulent array of grapes on the table; they were better dressed than anyone I knew in Britain.
+- I left Kurdistan in April 2003 with the peshmerga, following their excited advance as Saddam's forces crumbled. First Kirkuk, then Mosul - where looters broke into the city museum and seized its Parthian sculptures - then Tikrit. I reported from Baghdad in month-long stints until the end of 2004.
+- Taking your clothes off in front of strangers is something of a hobby in Germany, among both men and women, especially in the former communist East, where it was one of the few freedoms allowed.
+- My four years in Russia end, then, in dramatic fashion: with a textbook Soviet-style expulsion. I am the first western staff correspondent to suffer this fate since the end of the Cold War. I'm stunned. But my expulsion is not, I reflect, a surprise. It's something I have always accepted as a real, if far-fetched, possibility.
+- Germany's hierarchical reverence for seniority may have something to do with the fact that everything here happens relatively late. Germans start school at six, graduate in their late 20s, and get their first proper jobs in their 30s. Adolescence can go on a long time. It is rare for anyone to achieve responsibility before their 50s.
+- Notionally a left-wing movement, the Anti-Germans were born after the collapse of the Berlin wall. While most Germans rejoiced at the end of the Cold War, the Anti-Germans feared that a united Germany might lead to a fourth Reich - and a return of anti-Semitism.
+- There is a long dishonourable tradition of western intellectuals who have been duped by Moscow. The list includes Bernard Shaw, the Webbs, H. G. Wells, and Andre Gide.
+- By August 2008, we had left Voikovskaya and moved into a wooden dacha in the artists' colony of Sokol in north-west Moscow. The house was a haven amid the madness of the city: lily of the valley grew near our front gate, Virginia creeper decked the green picket fence.
+- Under the Assads, Kurds were forbidden from learning their own language at school, or even from speaking it in the military. The result is a generation of Syrian Kurds, many now in late middle age, who can't write their own language.
+- On 30 June 2010, the FSB broke into my office again. They unplugged the Internet, opened the window and left the phone off the hook, placing it next to my laptop. The message was clear: we are still here.
+- My journalistic mission was straightforward: to await the U.S. invasion of Iraq. Nobody knew quite when this would be. But the diplomacy - the meetings in the U.N. security council, the allegations about weapons of mass destruction, the martial language of Tony Blair and George W. Bush - all suggested a war was brewing.
+- Snowden was extremely good at digital self-defense. When he was employed by the C.I.A. and N.S.A., one of his jobs was to teach U.S. national security officials and C.I.A. employees how to protect their data in high-threat digital environments.
+- The FSB's invisible presence continued; the agency became an intangible part of my Moscow life - sometimes loudly, sometimes quietly, with someone in a back room clearly turning the volume of minor persecution up and down.

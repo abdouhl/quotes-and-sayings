@@ -1,0 +1,106 @@
++++
+author = "Antonio Rodrigo Nogueira"
+title = "Antonio Rodrigo Nogueira Quotes"
+quotes_len = "100"
+description = "the best 100 Antonio Rodrigo Nogueira Quotes"
++++
+- I'm used to big guys and I've never had a problem with the real big guys.
+- I can say that in our gym, 'Toquinho' has never hurt anyone. He is a good person, excellent company and a man with a great character. I believe that he has never thought of doing anything evil to any opponent because this isn't his conduct.
+- If you watch closely a highlight of my fights, you will see armbars and everything. But if you really watch, what you'll see most of all is me getting back up. The power of getting back up. And to try again. It's all about overcoming.
+- When you're fighting five rounds, I know I gotta move a lot.
+- I show I have heart.
+- In my last fight I couldn't explode as much. Sometimes I had a chance to throw the guy, to close the distance, and I missed that distance because of my hips.
+- The UFC is a very serious business, it's not the WWE. Guys break their arms and get knocked out in there.
+- For sure, when you don't have a fight, you don't have the pressure. Without the pressure, your mind is more open to learning. I learned a lot of good things.
+- I have 16 metal screws in my right arm, from the elbow to the shoulder, and they are extremely painful at the beginning of a training camp and also when the temperature changes. I also had a surgery on my left arm and two on my hips. Those four surgeries were pivotal in my decision to retire.
+- I love the training routine but I have to be 100 percent to fight.
+- I've always been a fan of Anderson's. Back when he was in Meca, I met his dad, and we talked. He always treated me very well.
+- It's a dream come true, fighting where I live, in my home.
+- Conor McGregor knows how to control distance well, but Anderson does it like nobody else.
+- Borrachinha' boxes better Vettori. Vettori throws good strikes, he's fast, has rhythm, good heart and good submissions, he fights well in all areas, but I don't see him taking 'Borrachinha' down. 'Borrachinha' is more skilled than him in wrestling and hits harder with his hands.
+- I've always had a passion to follow the development of new athletes and that's what I intend to continue doing.
+- I do work every day, man.
+- I never expect to get submitted, but that is the game.
+- My BJJ works very well.
+- I have no prejudice against the gays, but I wouldn't train with someone who's gay.
+- One year in the hospital will make you strong. It made me strong.
+- The people who are at home watching want to see the fourth and fifth round.
+- I appreciate the fans in each country and what they do for us.
+- I have a lot of respect for Fedor Emelianenko, who beat me two times.
+- I started my surgery career early, at 11 years old when I was hit by the truck.
+- The guys who keep coming into the gym keep me young.
+- I love to work with athletes.
+- Guys who are my friends, guys who I visit their homes, I don't feel like fighting those guys.
+- I want to help further the spread of MMA around the world and give my contribution to the emergence and development of young talent.
+- I used to ride horses and I remember one day I was working with a horse and we were having it jump, you know? There was a competition and so we were doing a test run and the horse fell on top of my body. I was a kid, like 7 years old. It took them a long time to take the horse off of my body after it had fallen.
+- When you wake up in the morning and have good training and learn something, have good adrenaline and you're going to face some good guys in the gym, that keeps you warm.
+- I'm hungry, but I have a good team around me. Good coaches and good sparring partners.
+- For those who believed in me or not, because I knew there'd be people in there who didn't believe in me but would cheer for me.
+- I like to be the underdog.
+- People ask me what's the most important moment for me, and it's not fighting, winning or losing, it's the daily training. I'm addicted to this.
+- It was two fights: the fight itself, and the fight to be able to see. That's one of the reasons why I stopped fighting.
+- I love to be around the fighters, training. That's my favorite thing.
+- I hope I set an example to motivate people, to motivate the new fighters, motivate the guy who doesn't got to the gym who doesn't train martial arts because he has a knee injury or some little things.
+- Fighting Frank Mir is something I'd love to do. I'm motivated to fight him.
+- Nobody talked a lot in Japan, but I always had a good relationship with everyone. I always liked to talk with Anderson. He has always been very respectful because he's a student of the martial arts.
+- I was at a birthday party and a truck backed up and the wheels ran over my chest. I lost part of my lung and my liver.
+- I had many fights in Pride, many battles there.
+- I want to be among the best heavyweights in the UFC.
+- My last three fights weren't good, really.
+- Every single fighter in the UFC dreams to be the champ.
+- Oh man, I had staph for over a year.
+- Cain Velasquez attacks more, and throws more punches and kicks. It's hard to fight against him. He's very athletic, you can see that from his fights with 'Cigano,' but Werdum trains hard and is a great fighter.
+- I like the ground game a lot.
+- I always keep training like an athlete. It's a lifestyle. I love that.
+- It's always great to fight in Brazil, especially northeast Brazil. There are a lot of tough people here. It's a tough part of the country, to fight here is amazing for me.
+- Anderson knows how to play the trash talking game.
+- I've improved a lot of things. I've improved a lot of my hands.
+- When I was younger, I went to wrestling camps. We'd fly in wrestling guys from the U.S. to Brazil.
+- I'm honored to face such a great fighter as Randy Couture.
+- The American fans, they follow the sport very much. They know the news. The know the guys who are coming up.
+- I love to talk to Demian Maia.
+- Eleven months off, I don't like that. It makes you get out of shape.
+- We are very proud to step in the Octagon.
+- They're both southpaws, Anderson is good with counters and McGregor is good at straight punches.
+- In five rounds, the guy who is better prepared is going to win the fight, so I like the idea of a five-round fight.
+- Derek Brunson is aggressive, knows how to close the distance, but couldn't do anything against Anderson.
+- I went through three surgeries on my hip and knees.
+- Everything that happens inside the cage is very quick and the fighter acts more by reflex than by reasoning.
+- I've had a couple great moments in my career, I beat Cro Cop, I won the Pride belt.
+- Ortiz, Wanderlei and Fedor were top fighters for a reason.
+- There are many promotions in Russia, and they are taking Brazilians to fight there. We need to do something about the Brazilian market, make it stronger to produce new fighters. We need new talents competing here, not there. They have no other option but fight outside of Brazil because there are few options here.
+- They have a clinic in Kansas where they work with stem cells. What they do is they remove some cells from fat out of your back and then inject them in your joints. I did it on my elbows, my hips and knees, it stimulates cartilage growth.
+- I'm a perfectionist. You have to perform at your best.
+- I went to the UFC and won the UFC title.
+- I was in a coma for a long time and in and out of the hospital for a year. For sure, when I'm in a fight and having a hard time, I think back to that time because that was the worst. No matter how bad things are, my attitude is that it's nothing compared to what happened then. Thank God I survived it.
+- I don't think I need to prove to anyone how good my jiu-jitsu is.
+- I was born with natural talent and started fighting when I was 4 years old in judo.
+- I have done a total of 22 surgeries; I'm all broken.
+- I implanted an intraocular contact lens, and if you poke me in the eye really hard it moves. Imagine how many punches I took... I had to put it back in place all the time.
+- When people ask me what I like to do the most, I tell them it's training, to perfect an armbar or whatever, I like to wake up and have a goal.
+- Sometimes I let my opponent hit me. Not because I like it. To get him tired.
+- When I get hurt, I fix it and go back fighting.
+- Nothing compares to when you are in coma and you hear voices and think you are dying. Then you come out of the coma and hear more voices saying you will not walk, not play sports, not be normal. And all the time your mind is fighting back saying, you will be strong, you will fight.
+- If I'm not showing well or I'm not motivated, there is no way I can be fighting anymore.
+- You know what, if I had to do it all again, I would do the same things as before. I would meet the same people, make a lot of friends, bring a lot of happiness to my country. I get to travel all over the world, doing seminars. I have thousands of students in the Nogueira gyms.
+- In Japan the fight is very cultural. The fans are very quiet the day of the fight. I was in a stadium fighting with 87,000 people and I could hear my sister talking to me. That's different than America.
+- I started fighting in 1999, and was at the top 3 of the division until 2008. It's an entire life.
+- I'm excited to fight in Abu Dhabi and to compete against Roy Nelson because he's a dangerous opponent and demands a lot of respect and hard training to beat. He's a knockout artist and really well-rounded, so you need to be well trained to fight someone like him.
+- As a fighter you got to be 100 percent.
+- Fighting in the cage brings much more adrenaline than fighting in the ring. When you step inside the Octagon and they close the door, that's really a high adrenaline feeling because they enclose you and one guy in the cage.
+- The Japanese people treated me very well. They appreciated how I considered the martial arts, the jiu-jitsu and judo. There's some good points and bad points to fight there. The distance was too far from where I used to live in Brazil. It was a 27-hour flight.
+- In Miami, you can walk in the street and see people. It's like Brazil.
+- Always I try one submission. If it doesn't work, the second one works.
+- Struve has great jiu-jitsu and I must avoid that. But when I'm in his guard, I can't be defensive, I have to go for kimuras, americanas and all of that.
+- Bad fights happen, you know?
+- I know I won't fight forever.
+- In training, I'm always being tested. I believe that if I'm training well, I will fight well.
+- I like submitting guys, but if I see an opportunity for a KO, I won't let it go.
+- Distance is everything, in a fight. When you lose your distance, you lose your timing.
+- I've had a chance to fight for a couple titles in my life. That's what keeps me motivated.
+- I've been working for the UFC since I stopped fighting. It's been very exciting, looking at all the new guys, all the young talents in Brazil and trying to help them out, promote themselves and get them into the UFC.
+- Of course I miss fighting. That was my life.
+- A lot of guys came in after me and they quit before me. I've seen that a lot. That's motivation. That's teamwork, I don't do that myself.
+- I know the limits of my body.
+- I love to inspire people to train.
+- I want to fight Top 10 guys.

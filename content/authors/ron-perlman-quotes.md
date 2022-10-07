@@ -1,0 +1,65 @@
++++
+author = "Ron Perlman"
+title = "Ron Perlman Quotes"
+quotes_len = "59"
+description = "the best 59 Ron Perlman Quotes"
++++
+- I've never worked with a tail, that I can remember. But there's so much I can't remember.
+- I've had biker clubs reach out to me whenever they knew I was in their city.
+- It's really disgusting what Hollywood can do to a guy.
+- I'm fully aware that things that resonate and become real hits are the exception to the rule, so much so that I've wired myself for failure.
+- I feel as though my criteria are based more on how challenging the role is, it doesn't have to fit into any particular profile, is it something that I've never done before, and is it something that I feel like I can really feel challenged and therefore fully engaged in, and that's when the work gets to be the most fun.
+- I'm thankful to be breathing, on this side of the grass. Whatever comes, comes.
+- I'm just trying to make up for lost times, and I have total awareness that when the work is coming it doesn't mean it's going to continue to come, so I'm taking advantage of this phenomenal period that I'm in now, to its fullest.
+- Let me put it this way: I definitely need to understand the villains I play. The best cause pain to anesthetize themselves against their own pain.
+- I think now that I'm in the autumn of my life, and I'm getting a chance of having an overview and looking at the shape of how things happen, when things happen, why things happen, I think it was fitting that I spent most of my early career doing mask work, because I just don't think I was that comfortable in my own skin.
+- Somebody who doesn't care if they live or die is the most dangerous human being on earth.
+- I love great animation.
+- I say yes to almost anything that comes my way.
+- So much of my aesthetic was formed by my dad.
+- Well, I don't have an agenda.
+- You know, I don't read the blogs, or go on the internet, and I really just don't know what people are saying because... well I guess I'm afraid to.
+- I never direct myself, because I don't like working with me. I would punch me in the mouth if I had to take my direction.
+- I actually think it's harder to play vulnerability, because you're having to delve deeper into portions of your own psyche, what it is that makes you human.
+- Almost all of your life is lived by the seat of your pants, one unexpected event crashing into another, with no pattern or reason, and then you finally reach a point, around my age, where you spend more time than ever looking back. Why did this happen? Look where that led? You see the shape of things.
+- Distortions control my self-image, like they do for a lot of us. It's irrational.
+- I don't think that I've had a career like anyone else's, but there are hosts and hosts of actors whose careers I admire.
+- If something strikes me as insane and unjust, I cannot tolerate that.
+- I do voicework all the time.
+- Every job has a unique situational circumstance.
+- I'm kind of one of these guys who wants to play everything once before it's all over.
+- I think there are a lot of technocrats in the business who would much rather work with just wheels and gears and machinery. Those things interest them more than humanity and I wish them the best of luck.
+- I've been a professional actor for almost 40 years.
+- I just think that there are those people that their resolve is strengthened by what it is that's keeping them down, and there are some people that will buckle under it. You never know which one is which until you get into the eighth or ninth round of the fight.
+- Some of the great characters that I've played had to be transformational.
+- Every time you get on a stage or in front of a camera, the whole exercise is about imagination. You're constantly depicting something that doesn't exist, and trying to find the reality of it. Once you settle on that premise, everything else is a matter of degrees.
+- Season 4 can be deadly for a show that's been a hit show.
+- You back a big cat into a corner and somebody is going to get bloody.
+- 1% of the population has all the money and the other 99% have nothing.
+- The luxury of television is that you get more than one shot at who you think the guy is that you're playing.
+- My self-confidence didn't come from my appearance, it came from other things that I did. But certainly not my appearance.
+- I'm very happy.
+- I've certainly been very blessed with opportunity.
+- Fearless people are interesting to watch.
+- There are always great deals of humanity in the characters that have been offered to me.
+- You draw on your own childhood every time you tee it up as an actor.
+- I'm continuing to do research into biker culture.
+- Really, I was such a late bloomer, I really didn't learn how to be me until I was in my late '40s, which is when I started playing roles that were closer to me.
+- I will not do a role that I don't think I can do, that I'm not interested in, where there's no humanity, that doesn't have any kind of handle for me at all because I know I'll just stink the joint up.
+- I think in the early part of my career, the roles were so disparate that it never gave anybody an opportunity to understand my essence and what I would be good at doing, as opposed to what I would not be good at doing, so these little moments of beautiful things that were happening to me were consistent, but very few and very far between.
+- I've been busy and not busy, and busy is better. I've been busy, but I went through a lot of periods where it was lean for a lot of times.
+- Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.
+- I've never been pigeonholed and I've experienced so many different kinds of skin - what man will do and won't do, what you should do and shouldn't do. This is what's exciting about being an actor; where philosophy majors sit in classrooms or write books about human behavior, we're actually acting them out in front of cameras.
+- I lost 90 pounds and my blood pressure went down to a normal level and the salt in my urine disappeared. And that was when I had to make the transition from fat character actor to thin character actor.
+- I'm a city boy.
+- I don't ever want to be comfortable with anything I'm doing.
+- The great thing about arriving at this age is that I don't even care about my career anymore.
+- Living off the grid and being kind of an outlaw brings a dangerous reality.
+- Yeah, it's nice to get paid for therapy rather than having to pay $240 an hour for it.
+- The thing that's cool about the recording booth is that it's so perfunctory, so cut-to-the-chase.
+- Well, I love acting, and I love acting quick.
+- I live in a bubble.
+- I like to believe that everyone is born with the same skill set, and that it is the influences that one comes upon.
+- You can change the circumstances but you can never change man's inner nature.
+- I couldn't make it on the swimming team in high school. In fact, I got thrown off the swimming team and was forced to audition for the school play because they had at the audition about 35 girls show up and no boys, so my swimming coach suggested that I might be able to do the drama department more good than I was doing the swimming team.
+- In the early '90s, when those little art films started coming out, we were introduced to Quentin Tarantino and guys like that, and independent cinema was something that everyone wanted to be a part of.

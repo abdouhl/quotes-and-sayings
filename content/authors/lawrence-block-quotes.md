@@ -1,0 +1,16 @@
++++
+author = "Lawrence Block"
+title = "Lawrence Block Quotes"
+quotes_len = "10"
+description = "the best 10 Lawrence Block Quotes"
++++
+- I never know what I'm going to write next, and when I think I do I usually turn out to be mistaken.
+- I really don't write much anymore, and I'm not uncomfortable with that. I've tried writing and the sentences come out fine, but I write a few pages and I don't want to go on.
+- Why on earth should I care whether people read me with their eyes or their ears?
+- I can't persuade myself that one of the problems facing the planet today might be a shortage of books by me.
+- When you get older, keeping the private stuff private seems less important.
+- I've always essentially been a New Yorker.
+- Asking me why I did or didn't do anything is generally pointless. How do I know? And asking me what I'll do in the future is even less rewarding.
+- New York is an ugly city, a dirty city... But there is one thing about it. Once you have lived in New York and it has become your home, no place else is good enough.
+- I don't plan an awful lot in life just as I don't plan an awful lot in my fiction.
+- To say I drank my way into marriage isn't much of an exaggeration, and it's none at all to say I drank my way out of it.

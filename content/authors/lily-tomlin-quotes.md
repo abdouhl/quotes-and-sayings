@@ -1,0 +1,56 @@
++++
+author = "Lily Tomlin"
+title = "Lily Tomlin Quotes"
+quotes_len = "50"
+description = "the best 50 Lily Tomlin Quotes"
++++
+- No matter how cynical you become, it's never enough to keep up.
+- Sometimes I worry about being a success in a mediocre world.
+- Things are going to get a lot worse before they get worse.
+- I mean yes to act out something or take chances in the performance is one thing. But in terms of a camera, whatever's captured is captured so that's a little more daunting.
+- We're all in this alone.
+- You don't really need to get married, but marriage is awfully nice. Everybody I know who got married, they say it really makes a difference. They feel very, very happy about it.
+- Why is it that when we talk to God we're said to be praying but when God talks to us we're schizophrenic?
+- The trouble with the rat race is that even if you win, you're still a rat.
+- Many times I sit back and say, 'I can't believe that this is my life!' Other times, I feel self-satisfied. I mean, there's a lot to be proud and thankful for but, nonetheless, it's just a life!
+- The road to success is always under construction.
+- When I was 9 or 10, I had a ten-cent business: I would walk your dog for a dime, go to the store for a dime, empty your garbage for a dime - and then I could use the money to buy tricks at the magic store.
+- I personally think we developed language because of our deep need to complain.
+- I always wondered why somebody doesn't do something about that. Then I realized I was somebody.
+- What if it's boring - or if it's not boring, it might be too revealing, or worse, it might be too revealing and still be boring.
+- I guess if people couldn't profit from war I don't think there would be war.
+- If I had known what it would be like to have it all - I might have been willing to settle for less.
+- I always wanted to be somebody, but now I realize I should have been more specific.
+- If you read a lot of books you are considered well read. But if you watch a lot of TV, you're not considered well viewed.
+- If love is the answer, could you please rephrase the question?
+- Creating characters is just another way to express a type and put that type to use.
+- Instead of working for the survival of the fittest, we should be working for the survival of the wittiest - then we can all die laughing.
+- Man invented language to satisfy his deep need to complain.
+- If truth is beauty, how come no one has their hair done in the library?
+- What I appreciate is acknowledging to the audience that I think they have brains.
+- I was always drawn to more the social-expression-of-culture types.
+- Reality is nothing but a collective hunch.
+- The best mind-altering drug is the truth.
+- I grew up in a time when women didn't really do comedy. You had to be homely, overweight, an old maid, all that. You had to play a stereotype, because very attractive women were not supposed to be funny - because it's powerful; it's a threat.
+- I think my politics are just inclined to be empathetic and humanistic. I grew up with so many different kinds of people with different politics, different religion, no religion, no politics, education, no education, and I was infatuated with all of them.
+- I've always wanted to be somebody, but I see now I should have been more specific.
+- I never officially came out in any kind of really public way. I just always lived very simply and openly, but the press has never made a big fuss about me or said anything to me.
+- Reality is the leading cause of stress among those in touch with it.
+- It's my belief we developed language because of our deep inner need to complain.
+- Sometimes I feel like a figment of my own imagination.
+- Remember we're all in this alone.
+- I especially love 'Web Therapy' and I did 'Eastbound and Down' too. I had a lot of fun doing that.
+- There's so much plastic in this culture that vinyl leopard skin is becoming an endangered synthetic.
+- If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed.
+- You know being relevant or coming up with something interesting, funny to say about what's current is just as hard as it might ever be depending on the serendipity of it all.
+- Ninety eight percent of the adults in this country are decent, hardworking, honest Americans. It's the other lousy two percent that get all the publicity. But then, we elected them.
+- But there are too many people that make so much money at the cost of lives of other humans and for no reason but to make the money.
+- Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed.
+- I like a teacher who gives you something to take home to think about besides homework.
+- I guess that's one of the reasons that you do it - work all the time - because it's sort of a high to find something that really works.
+- I worry that the person who thought up Muzak may be thinking up something else.
+- What is reality, anyway? Just a collective hunch.
+- We don't care. We don't have to. We're the phone company.
+- Why isn't there a special name for the tops of your feet?
+- For fast-acting relief try slowing down.
+- We are all in this together, by ourselves.

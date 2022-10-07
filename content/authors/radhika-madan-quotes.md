@@ -1,0 +1,30 @@
++++
+author = "Radhika Madan"
+title = "Radhika Madan Quotes"
+quotes_len = "24"
+description = "the best 24 Radhika Madan Quotes"
++++
+- I don't want to play the same character again and again, because I'd get bored. If I get bored, so will the audience.
+- I can't believe I am in the same frame as Irrfan Khan and Kareena Kapoor Khan. It didn't hit me that I am shooting with them.
+- I love being by myself, I really enjoy my own company.
+- I will play different characters and do whatever excites me. I won't stick to one medium and as they say, never say never.
+- I don't like dressing up. If it were up to me, I'd step out in my shorts and ganji and chappals. The maximum I'd wear are my white shirt and my blue shorts and my shades and I'd step out.
+- I have realised that we are running after things that are so temporary and fleeting - be it fame or money or anything like that.
+- As an actor, I feel my job is to perform with utmost honesty and then it is just the film's fate. Of course, you want as many people as possible to watch your film, but there are too many factors and circumstances that come in between.
+- I was a dance instructor and during a musical show Ekta Ma'am had spotted me. I got a call from her then and without any audition, I was directly called for the screen test.
+- I don't want to put myself in any bracket. I will do whatever makes me jump out of my bed. I want to surprise myself and the audience.
+- People are appreciating my work and I am being offered a lot of things.
+- I auditioned for 'Angreji Medium', and that's how I got it in my kitty. I cannot reveal a lot of things but it wasn't a script that was just offered to me. I had to audition for it.
+- I love to go out. I can go out shopping with myself. I love to do things alone. I spend a lot of time with myself.
+- When I was in eighth standard, I have been dancing since then. I love to dance. Dance has been my life all this while. Then I became a dance instructor. I have learnt jazz, hip-hop, ballet and many other forms.
+- I am not one of those girls who will sit on my bed and crib that nothing is happening with my life and things are not working.
+- I am an actor. Let me act, let me audition. Let me show what I can do. You need to surprise yourself every time and that will surprise the audience or casting person.
+- I wanted to be a star. I wanted to become a dancing star but didn't think I would become an actor.
+- I hate wearing make-up, I hate doing my hair. With events and everything, you dress up so much that you get exhausted. So, whenever I go to Delhi, I'm in my dad's oversized shirt and torn shorts.
+- Even I had a lull period in between when I was sitting at my home without work for a year and a half. There was a time when I did not know whether my film will be made or not. I had no clue back then, but I did not sit and complain.
+- I remember I was shivering before I met her. I think that really hit me, that I was meeting Kareena Kapoor!
+- I am learning something new everyday, be it learning piano or enrolling myself for online courses, reading, writing or doing yoga.
+- I love auditioning because I also get the confidence that I can play the character and the producer is aware of what I can do.
+- I have realied where my priorities are where do I want to keep it on my health or being with my loved ones.
+- I have fun while shooting the film, and after that I am done.
+- When things are happening they don't hit me at that point of time. The downside is that I don't get to celebrate the moment, the upside is I don't get intimidated and I can perform.

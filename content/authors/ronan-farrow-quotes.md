@@ -1,0 +1,40 @@
++++
+author = "Ronan Farrow"
+title = "Ronan Farrow Quotes"
+quotes_len = "34"
+description = "the best 34 Ronan Farrow Quotes"
++++
+- Certainly in my own body of reporting, I was very acutely aware of the risk of any mischaracterized journalism and the need for anything I put out to be absolutely bulletproof.
+- Hillary Clinton had scheduled an interview while I was at the height of the Weinstein reporting, and her folks got in touch and said, 'We hear you're working on a big story,' sounded very concerned, and tried to cancel the interview.
+- Ninety percent of all people under 30 are in developing countries, and that means that this new access to tech, which is such a positive thing... is also a ticking time bomb of frustration... You get this clear mismatch of opportunity and expectation.
+- I grew up in a family that had young people adopted from all over the world.
+- I don't think that anyone in the pages of 'War on Peace' is arguing that diplomacy is the replacement for military power. But, correctly, the job of the military is to think tactically.
+- A simple leather jacket... has gotten me through cocktail parties in New York and cold nights in Afghanistan.
+- My idea of a night out is actually a night in - in pajamas, with a good book or playing 'Mario Kart.' It's not that glamorous.
+- I grew up in a family where you could never be the center of attention.
+- Woody Allen - legally, ethically, personally - was absolutely a father in our family.
+- I had aquariums of bullfrogs and mudpuppies. My poor mom had to deal with me incubating chicken eggs in my bedroom.
+- Hillary Clinton respects good ideas wherever they come from. That's something I haven't seen in a lot of powerful people.
+- LGBT people are some of the bravest and most potent change agents and leaders I have encountered, and the most forceful defenders of the vulnerable and voiceless, because they know what it's like to be there.
+- Not to psychologize, but it's hard growing up in a family of 14 to ever feel like you're the center of the universe, or that you're that special or different. Because when it comes down to it, you're still fighting for food at the dinner table.
+- He's my father married to my sister. That makes me his son and his brother-in-law. That is such a moral transgression... I cannot see him. I cannot have a relationship with my father and be morally consistent. I lived with all these adopted children, so they are my family. To say Soon-Yi was not my sister is an insult to all adopted children.
+- When Harvey Weinstein threatened to sue me, it was like the scene in 'Harry Potter' where an invitation to Hogwarts is coming in through every window and fireplace and every opening in the house.
+- I don't think most people are aware of the exotic and extreme tools at the disposal of the most powerful and wealthy men of America when they are bent at silencing accusations against them.
+- You're not hearing people like Madeleine Albright argue that the budget of the State Department should be as large as the Defense Department. The Pentagon is going to be larger by its nature. It's going to have more people.
+- I had siblings from South Asia, from East Asia, from depressed communities around America, and you know, we'd have long conversations.
+- My earliest memory is nursing and struggling to see the colored lights making up the map of the world, the famous backdrop for Larry King's TV show. There's an 'I-want-to-do-all-things-at-once' kind of theme to it.
+- When you're under a microscope from an early age, you realize that people aren't always going to like you. And that's OK. And you're going to fail publicly, and that's OK, too.
+- Our culture has kind of let the concept of the Renaissance Man die out. We don't really tell the kids that it's okay to bounce around the world, work odd jobs, and do six different things.
+- I can say whatever I want. I will be nothing but unfiltered with my audience.
+- Purchasing a story in order to bury it is a practice that many in the tabloid industry call 'catch and kill.'
+- I spent a long time reporting on trans issues, and I know in the course of that reporting I saw how deeply adversity runs.
+- I know full well how important women are in diplomacy and development. I grew up with seven sisters.
+- The United States is undergoing a transformation in how it relates to the rest of the world. We are becoming a nation that has no more negotiators and peacemakers, that shoots first and asks questions later.
+- It's incumbent on good public servants to maintain their voices and originality of thinking.
+- I have a brother who's a schoolteacher, a sister who's a graphic artist, a brother who is a lawyer. I have a brother who's a carpenter.
+- You eat a lot of goat stomach when you're in North Africa. You eat whatever's put in front of you. I am a big proponent of that.
+- Pope Francis has stressed humility and austerity - a far cry, according to many, from the predecessor's bling and Ferragamo shoes - those were pretty entertaining. And he's translating all of that into a policy agenda.
+- I've got to say, I'm a Rand Paul fan.
+- For every young person I meet, I learn an idea.
+- Harvey Weinstein reveals how the most powerful men in this country have tendrils in to every kind of institution.
+- Being under the microscope meant I was never given any slack. I still managed to screw up plenty in life, mind you, but in the things I really cared about - the legal work, or the stories I was telling as a writer, or the office I built in government - I wasn't left a lot of margin for error. It's kept me driven.

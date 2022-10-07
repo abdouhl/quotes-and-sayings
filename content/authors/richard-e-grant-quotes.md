@@ -1,0 +1,54 @@
++++
+author = "Richard E. Grant"
+title = "Richard E. Grant Quotes"
+quotes_len = "48"
+description = "the best 48 Richard E. Grant Quotes"
++++
+- When I meet a couple, I'm always interested to know if they have been together for a long time, or how loyal they are, because I know that will impact on how much I'm prepared to trust them.
+- The Christmas tree goes up on December 1. I love it.
+- I would love to play your common, everyday guy, but I never get cast as that.
+- You feel your game's raised by working with the best people.
+- I place an enormous premium on loyalty. If someone betrays me, I can forgive them rationally, but emotionally I have found it impossible to do so.
+- Every time I try to plan something or assume that something's going to happen, it never works out like that.
+- I'm a hoarder.
+- I've been on the 'Logan' movie set, which is a 300-strong crew of basically men. They had arms thicker than my thighs stuck together.
+- I wrestle every opportunity with gusto.
+- If somebody crosses me, or if I love them, then it's pretty unequivocal; there's not much grey.
+- The fashion world is much more ephemeral than the film industry and moves at a faster pace, and it's got even more frenetic since the Nineties; more paparazzi hanging about and it seems to me there are even more fashion magazines.
+- I watch TV all the time. Everything.
+- Even 31 sounds quite old to me, because my brain is probably still in a state of adolescent delinquency.
+- It always depresses me when people moan about how commercial Christmas is. I love everything about it. The tradition of having this great big feast, slap bang in the middle of winter, is an essential thing to look forward to at the end of the year.
+- Nothing is fixed or foolproof; I have no delusion about that.
+- Lena Dunham is an extraordinary woman.
+- Time and time again I was told that I would never make the film on time and never make it on budget. That kind of criticism tends to turn me into a great big motor of efficiency.
+- Actors always think that others are getting more work than them. In my case, they usually are.
+- I was brought up to appreciate the here and now, and, knowing this is your only life, to view death as an inevitable and reassuring end.
+- Always have an answer - even if you change your mind five minutes later.
+- Ensure that your script is watertight. If it's not on the page, it will never magically appear on the screen.
+- My father died prematurely at the age of 52 when I was 24, and it is a recurring regret that he never lived to see me succeed beyond university and drama.
+- Smell is the shortest synaptic leap in the brain to our memory, and I'm amazed that people don't sniff everything.
+- When I came to England, the first director I met was Charles Sturridge, who told me, 'You speak like somebody out of the 1950s.'
+- Never give up. You only get one life. Go for it!
+- I've kept a diary since I was 11. It's a way of taking stock, almost meditative, trying to make sense of stuff because life is chaotic.
+- I've been an actor for so long, and a moviegoer ever since I can remember, because the country that I grew up in didn't have television.
+- I am drawn to writing and directing as it is most like the feeling I had when I was a teenager with my puppet theatre. You are more in control of everything and involved in every aspect of production, so more challenged and fulfilled.
+- I don't think it's the case that 'posh actors' get more work than others.
+- Anthony Hopkins says you just keep acting. Do it all the time and eventually it will happen. He got his break, after all, by taking a role nobody else wanted. A cannibal!
+- Because I grew up in Africa, I always see people and try to understand characters as what kind of animal they'd be.
+- I am a very judgmental person. Of myself and other people. I recognise it's a great fault, but I have no power over that.
+- I've been led by my nose all my life and tried to make perfume by boiling sugar water in jam jars and stuffing them full of gardenia and rose petals when I was growing up in Swaziland.
+- I would still like to go to the moon before I die.
+- I went to a school called Waterford Kamhlaba, and 'Kamhlaba' is what the king of Swaziland called the school because... in siSwati, it means 'all the world in one.'
+- My father was an alcoholic. I come from a family of them, so it's genetic luck or malfunction that I've ended up with no enzyme that processes it. I literally can't drink.
+- The movies are something that I've been obsessed with, and I've subscribed to movie magazines all my life, since I was a child.
+- I always panic on the first day of work. You can do all the Stanislavsky-backstory homework, but when that moment arrives and you are in the clothes, hair, and makeup of somebody else, and you're saying the words created by somebody else - I never know how to do it. It's a complete mystery to me.
+- I think I have a romantic idea of life; I certainly have a romantic outlook. I think. I hope.
+- Well, it's true that I've never been solitary, although I spend a lot of time alone. I've never felt lonely or been shy.
+- Proving yourself in a field where the casualty rate is so notoriously high is an ongoing challenge.
+- The ease and pleasure of a long marriage is like gold dust. You feel fed and sustained and that you're intimately known.
+- You can measure success by the number of friends who have remained loyal to you, and you to them.
+- Everything I dared dream of has come to fruition. Which is not to say that I don't grumble with the best of them, but the wobbles have been way outweighed by the wonders.
+- You have to have some connection, empathy, or chemistry with the person you're playing and playing with.
+- I like fixing things.
+- My parents were divorced when I was 11, and it made such a profound impression on my life that I suppose I thought that by not getting married, you could avoid your life being carved in two.
+- Unless you are an enormous name, you never stop auditioning.

@@ -1,0 +1,101 @@
++++
+author = "Rupert Friend"
+title = "Rupert Friend Quotes"
+quotes_len = "95"
+description = "the best 95 Rupert Friend Quotes"
++++
+- The more I'm committed to finding a way to genuinely be immersed in someone else's life, the more enjoyment there is in it. I've never been interested in smoke and mirrors and cutting corners. I'd rather just do it for real.
+- I have to be absolutely drawn to the project. If you're ashamed or bored by it at the beginning, it's going to be a pretty nightmarish thing.
+- I find it easier to approach things from a critical angle that otherwise may seem daunting because I'm used to being scared.
+- Eating cold tuna fish out of a tin on a porch while two people are in love across a lake - I think that's desperately lonely.
+- I've never got a part in the same way twice. I've never prepared the same way. I've never experienced the filming the process the same way.
+- Han Solo is more interesting than Superman because he's flawed. Superman's flaw is kryptonite, and that's it. He can make time go backwards, for God's sake, but with Han Solo or Indiana Jones, there's a bit of humanity there.
+- I've never been to war, and I would never presume to fully understand the horrors that that kind of experience can impart.
+- One of the things I noticed in my career that gave me a lot of happiness early on was realising we don't have any control.
+- I find it quite unsettling if I'm doing the same thing that I did yesterday.
+- I don't have a publicist. I don't go to events or self-promote, or endorse things, or whatever it is people are meant to do in that world.
+- Everybody has many people inside of them. I think we tend to present the one we feel is most appropriate at first in order to gain acceptance or achieve what we want.
+- This industry is too bonkers to understand. Every single part is completely different.
+- I find the English flag - the cross - quite frightening; it has very bad symbolism for me. Not just football hooligans but supremacists and the BNP.
+- I am a very sporadic watcher of television. I don't watch a lot of it.
+- You fire blanks, but the guns eject real brass, hot cartridges. They're, like, 400 degrees.
+- All I would say is that when I've been very down or having kind of a tough time in my life, certain films or pieces of music or books have changed that. They've taken me out of a dark place and put me into a more positive one. And I think that if we can do that for people, then it's certainly worth doing.
+- What theatre people love about theatre - and I totally understand it, I just don't share it - is that they feel they mint something afresh every night. Because I would rather do something until I've done it and then know it's done. New day, next thing!
+- Even if it's a bit blunt, I really appreciate somebody being straight with you.
+- It's great to sit and talk about the films and the people I work with, rather than where I buy my socks or whatever.
+- I grew up in the countryside in the middle of nowhere in England and got out as soon as I could!
+- I get bored quickly. Always have. Short attention span.
+- I believe that if you can discover something of the truth of a person, then you will start to understand, and to understand is to move towards, if not like, then at least an empathy of some kind.
+- It's all very brilliant to build bridges and buildings, but long after we're gone, it will be the natural things in this world which will still be here.
+- I don't love plays. I don't love doing the same thing, every night, for 100 nights in a row.
+- Intrigue is so much more effective. I don't like to be over-prescriptive of an audience. The same with a book or with art - people shouldn't read too much before they explore.
+- My father started his own business, and before that was a freelance lecturer, and my friends are artists and musicians; they don't have real jobs - none of us have real jobs.
+- I'm always interested in what we're not being shown. So if you're playing ostensibly a quote-unquote 'baddie,' what are their good sides, and vice versa.
+- I never want to overstay my welcome for any character. I would rather people are excited by the ideas a character generates in them rather than feeling bored and wishing he would just go away.
+- The accent in England can change literally from street to street, and people have this sort of feudal tribalism whereby you can identify somebody's provenance by their voice.
+- One of my uncles took me to my first movie in a cinema - 'Indiana Jones and the Last Crusade.'
+- I like Scottish people because they feel very true. They're always level and straight. They get a reputation for being hardened because of it, but I find them to be scrupulously honest people.
+- I'm a big fan of imagination. I think it's the strongest tool we have, and there are some things that you just can't practice.
+- My auditions for drama school were miserable, but one thing I had on my side, although I had no experience or skill or training, was that I wanted to learn everything.
+- Becoming that guy who does one thing is not very interesting. I'm lucky and proud to have been involved in period films and action films.
+- I really admire artists who take the time to recharge their batteries and not continually call on it. I think you can spot tired and jaded artists quite quickly.
+- I'm not intelligent enough to be a doctor, and kind of hands down you can't argue with the worth of that. But I don't really have an opinion about the worth of making art.
+- Sport is not my thing.
+- I'm studying Krav Maga, which is an Israeli form of self defense. It's very deadly and without rules.
+- I can only go places because I know that I can go away from them, if that makes sense. I like the gypsy lifestyle that filming affords.
+- 'On the Road' completely changed the way I looked at what you could do with your life.
+- I think you can decide how much of yourself you're willing to make public.
+- We have characters in Western television shows who are in full health with shiny hair and shiny teeth, and they go about their lives having minor problems.
+- It's an imaginative thing we do; it's about immersing oneself in one's imagination. If you're a novelist, you do it with pen and paper. We do it with our bodies.
+- I'll tell you, there's no goodies and baddies in the world, there's just people with intentions that sometimes clash.
+- If I make a film about now, the minute it was done, it wouldn't be about now; it'd be about then.
+- Some are in it for the money, which is fine. Some of them are in it to be a movie star; that's another reason. Some actors - and this I never understand - will only play likeable characters. And if they're not likeable, they change them to be heroic.
+- I love learning things, whether it's a language or Philippine knife-fighting or the Viennese waltz.
+- I would say that being open to new things is kind of vital in this line of work, if not all lines of work, and being prepared to embrace the challenge of the new thing is something I want in my life until the day it's over.
+- 'We' is a difficult word for me. I don't know if I feel 'we' about anything.
+- Edinburgh is so cultural and such a beautiful place to walk around.
+- Seeing, say, 'My Left Foot,' and 'The Last of the Mohicans.' How is that the same person? Or people like Johnny Depp, who can play Jack Sparrow and Edward Scissorhands. I am so interested in the transformation, in not knowing anything about them and watching somebody create a character. I'm not really interested in personalities.
+- I've never thought it was a good idea to act back-to-back.
+- I was bullied a lot... doing anything overly well was punished by the kids.
+- I guess the reason I wanted to be an actor was that it felt like it would offer something different all the time.
+- I'm a dual citizen in a way. I live in the States and have a green card, so my connection to British politics is almost nonexistent.
+- I'm a terrible dancer.
+- I was quite solitary for 'Hitman.' I was quite apart. He struck me as a very sad individual. There was a mournful quality there.
+- I don't think you can decide how famous or not you become.
+- I believe in allowing an audience the opportunity to make up their own mind.
+- I really enjoy the fact that the very boring, normal person that I am isn't kind of interesting to anyone. It's fine by me.
+- The old saying, 'An army marches on its stomach' has never been more true than in film and television. If it's good, cheerful, and exciting and full of great yummy things, then everyone does really well. If it's the opposite, it's very disappointing.
+- I've never really thought about settling down anywhere. I like to keep moving.
+- I'm a bit of a technophobe.
+- The most contemporary film I can think of is your standard romantic comedy, but the minute you make them, they already look so aged.
+- The one thing I couldn't imagine is stopping still.
+- Wood is weirdly a big passion of mine. I really love it, all the way from trees to a finished table. The fact that it was alive and that each piece is different.
+- Growing up in England, you're sort of spoiled, in a way. You sort of take it for granted that within a half-hour's drive, you could be walking around a stately home from the 1700s. It's not very hard to do - in California, you've got to take a flight!
+- I think that what drives most of us as human beings is the want for something. You might have a hope, or a big dream, or a goal that you haven't yet achieved.
+- There are some great actors I don't want to meet because I don't want to know how they did it. I don't want to know anything about their personal life, and the illusion, or whatever it is, the shape-shiftery magic stuff that they do, which is my joy.
+- I'm not a big fan of people telling each other what to do, I'll say that.
+- My great grandparents are Scottish, and I have this very tenuous connection which I try and bump up whenever I can, because I'd much rather be Scottish than English.
+- I only do the press for the work. I don't have a publicist. I don't go to events or self-promote or endorse things or whatever it is people are meant to do in that world.
+- My grandfather, who is English, was a member of a gentleman's club called the Caledonian, which you can only be a member of if you have Scottish lineage.
+- It might look like some incredibly complicated map to get from English period films to American action anti-heroes, but it really is just about not having a plan.
+- I think that the process of trying to become somebody else, and obviously the director/actor relationship in trying to do that, is such a weird, undefinable thing.
+- I've never got on with recipes. Free yourself - throw them out!
+- I've been a big blagger all my life.
+- I wasn't interested in football. It made me different. I wore glasses, had bad hair, a funny name, you name it.
+- I went to a drama club when I was little, but it was more of an excuse to flirt with girls than anything else. We never put on plays.
+- The Blue Ridge Mountains are an incredible place.
+- I don't really use the Internet or the newspapers to find out about people.
+- If you are going to have any chance of replicating life, you need to live it.
+- I don't think the idea of working in Hollywood really exists anymore. I think you work in films, and where the film is shot is where it's shot. The studio system doesn't really exist.
+- I find dipping one's toe into all of these people's lives is one of the major exciting points of being an actor. This dilettantism.
+- There are two qualities that I've noticed in good directors: One is that they have their vision very strongly in place; and two is that they listen to everyone's opinion and still remember their vision.
+- I really love living in cities where the people living above, below and next to you are from totally different worlds to you.
+- I don't do glamorous things.
+- I was asked by this British band called Kairos 4Tet to write lyrics for them. And I wrote lyrics for them. The album is called 'Everything We Hold,' and you can hear my lyrics.
+- People say I have a scary face. I find that to be a mixed compliment.
+- I think saying you're bad at something is rather wonderful because then it doesn't matter anymore.
+- When I come home, all I do is cook. I love cooking, so I go to markets, buy food, cook it for friends. I love doing that.
+- Everybody has many people inside of them; I think we tend to present the one we feel is most appropriate at first, in order to gain acceptance or achieve what we want. It gets really interesting when this technique fails, and other levels are revealed.
+- That routine thing is not comforting to me. It's the opposite to that.
+- I'm only really interested in taking a part if it's nothing like me.
+- I got the 'I don't want the normal job' bug. At home, we have countless career advisors who would tell us to work in department stores and stay below the bar and not overreach our grasp. I didn't believe any of them.

@@ -1,0 +1,38 @@
++++
+author = "Ron Moody"
+title = "Ron Moody Quotes"
+quotes_len = "32"
+description = "the best 32 Ron Moody Quotes"
++++
+- My training was that you fill in the canvas where it needs colour and polishing. You start with the words on the first night and keep adding bits of business.
+- I felt very insecure about whether I was up to recreating my stage 'Fagin' in front of a camera.
+- I've no regrets. You take responsibility for your actions.
+- Pressure makes people react in different ways. Some people plunge in, and others take the way out.
+- I'd been collecting eccentric moves since I was a kid and didn't even know that the dance step I improvised in 'Be Back Soon' was called a 'pas de basque.'
+- I always write 'Fight' on the mirrors - that goes way back to the times when you had to fight apathy.
+- The world is always reinventing itself, and so should you. I used to say, 'I haven't started yet.' Sadly, most people don't develop their potential.
+- I love getting up in the morning with nothing else to do except write.
+- I grew up with music hall and revue and was used to filling in the little gaps here and there to get bigger audience reaction.
+- I never thought about settling down. I was obsessed with my career - I was blinkered. I finally met a woman who was worthy of me. Then we settled down and had many children.
+- My father and my uncle used to be amateur monologuists because their generation grew up with Henry Irving and the like, and they had that style of delivery, of declamation: 'The Belllllls!' What we call 'ham' now, larger than life.
+- I was a stage-struck child from about 5 years onward.
+- If we destroy the biosphere, then mankind will die. We all waste our time worrying about stupid wars and petty jealousy and greed, and all the time, we're sitting on a time bomb.
+- The day after the Oscars, I flew back to London to film a television play for Anglia. It was a big mistake because you never really get acknowledged for wanting to work in England, as I did.
+- I went to the London School of Economics to study sociology and psychology on a serviceman's grant.
+- Playing Fagin in the play and film was a small miracle.
+- I was offered Fagin-type roles, but I wanted to do new things. I could have worked in America, but there was a recession in the British film industry, and I wanted to work in England. I've no regrets.
+- My portrayal of Fagin was all to do with my experience in comedy and revue.
+- For me, making the show work was getting belly laughs - like most variety artists. But the straight actor believes you fix your performance in rehearsal and that's it.
+- Fate destined me to play Fagin. It was the part of a lifetime, and I was the only actor to be in the stage production and in the film.
+- Working on a film, you don't get time to develop rivalries, but the theatre is like a little village, and the differences between me, Lionel and Georgia grew.
+- My proudest moment was the number 'Reviewing the Situation.' I suspect that, because I gave my all to the role and because I was working with such a fine team of people, it inhibited my future career.
+- I think I'm a straight actor who occasionally does musicals; most people think I'm an eccentric comedian. It's amazing how many years you can spend in this business just sorting out something as simple and basic as that.
+- I've worked with the old dames and knights - Edith Evans, Ralph Richardson - they're the most incredibly humble, kindly people because they are so big that they don't need to be unpleasant.
+- I would have liked to have been a professor of sociology.
+- Now I can see I was at fault for not being more considerate, but when we were doing the show I didn't think it was my job to be considerate to other people.
+- Fate destined me to play 'Fagin.' It was the part of a lifetime.
+- I'd wanted to be an actor from the age of five.
+- I'll never forget seeing 'Guys and Dolls' over and over. I used to sit up in the coliseum watching this magnificent musical. Brilliant.
+- I watch people constantly.
+- Summer of 1967 was one of the happiest times of my life.
+- I don't think a professional agent or theatre manager would say my career had gone as well as perhaps it should have after that first 'Oliver!' success, but then again I was never really intending to have a career in the professional theatre in the first place.

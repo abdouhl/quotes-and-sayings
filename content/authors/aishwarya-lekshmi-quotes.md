@@ -1,0 +1,37 @@
++++
+author = "Aishwarya Lekshmi"
+title = "Aishwarya Lekshmi Quotes"
+quotes_len = "31"
+description = "the best 31 Aishwarya Lekshmi Quotes"
++++
+- After 'Njandukalude...' I had gone for an acting course in Mumbai as I felt the need to improve my acting skills.
+- When I came into movies or acted in 'Njandukalude Natil Oridavela' and 'Mayaanadhi,' little did I expect such a huge response from the crowd. All I expected was to work with good filmmakers.
+- I have been putting the effort. I went for the acting course, watched a lot of movies and started reading about films. I think that has created a sub-conscious impact.
+- As part of modeling, I have acted in the advertisement films of popular brands. Then I got some offers from films.
+- I feel happy to play strong women because, as an audience member, I feel such characters inspire women when they are down.
+- Anyone who has watched 'Premam' in theaters would understand the camaraderie between the members on and off the screen and that's what translated to that brilliance.
+- I won't call it pressure but I want to come out with a better movie every time. That kind of enthusiasm is what makes an artiste aim for more.
+- After the complex characters in 'Mayaanadhi' and 'Varathan,' my characters in 'Vijay Superum Pournamiyum' and 'Argentina Fans Kaattoorkkadavu' were bubbly ones.
+- I used to model while I was studying medicine.
+- Dad used to accompany me to the sets. Soon, he realized there is nothing to worry about and now I am on my own.
+- A feminist is a person who wants equal things for men and women, and I definitely believe in that. This doesn't mean I will degrade anyone. In our house, I want my mother and father to have equal importance and that's the only way to bring up a socially responsible child.
+- I need to find out what kind of an actor I am and work on soft skills like dancing, singing and more.
+- One need not be a Mother Teresa, but being kind and well-behaved with those around us can win people's hearts.
+- I don't know how much I have improved as an actor. I think that is a constant process that should happen subconsciously.
+- I am a person who is usually chilled and I wanted to try out different roles to know if I could do it.
+- I want to be remembered by the characters I do.
+- 'Maya Nadhi' is the best thing that has happened to me.
+- I don't want to be a bad performer in a good film.
+- The set of 'Mayaanadhi' had a positive vibe. The shooting was during the rainy season. There were interruptions; some days we could shoot only one shot. But, we were happy in whatever we did.
+- 'Maya Nadhi' came soon after 'Njandu.' I auditioned twice, before being chosen. The shoot is so much fun and is a big training ground for a debutante like me.
+- I really wanted to work with Aashiq Abu, as I have loved all his films.
+- Though I had not been offered a truckload of projects post the release of 'Mayaanadhi,' the handful that came to me had brilliant female characters that were driving forces of the story.
+- It is not like I want all my films to run for more than 100 days. But I can't stand it when my movie is criticized.
+- I feel, other than physical attributes, which can be subjective, being good at your work makes anyone desirable. Being honest and kind with fellow beings is also appealing.
+- I can easily gel with people.
+- A career as an actor was never there in my wildest dreams and here I am getting such good roles and doing films that are so appreciated.
+- I come from a very conservative background.
+- I can't do method acting. I feel there is a different energy that comes when an actor is spontaneous.
+- I am taking 2020 a bit slow... sometimes you need to restructure and re-strategise as an artiste for things to work well.
+- Both my parents wanted me to excel academically, like every other parent. They wanted me to pursue my higher studies.
+- I don't want to spoil the good name 'Mayaanadhi' has brought me. I am careful about selecting my next project and it's actually quite scary.

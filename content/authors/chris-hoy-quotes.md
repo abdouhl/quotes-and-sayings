@@ -1,0 +1,105 @@
++++
+author = "Chris Hoy"
+title = "Chris Hoy Quotes"
+quotes_len = "99"
+description = "the best 99 Chris Hoy Quotes"
++++
+- To win like that, in Scottish kit, in the U.K., beating the Olympic champion, hearing Scotland the Brave on the podium, I was very emotional.
+- The road which can be quite an allure when you are young.
+- I just hope I can inspire young people and get more people into cycling.
+- If you stop and think about it before you compete, you would freeze. If you think about the millions of people watching, the expectation, the consequences of winning, of losing, it's a massive moment in your life.
+- The P2 is the best car I have driven so far. Once you get your head round it, it's fun to drive, it's responsive, it does what you ask but you have to treat it with respect or it will bite you.
+- I certainly had no natural ability as a cyclist!
+- I used to build ramps in my back garden. It was more about having a bit of fun than racing.
+- For me, the most important consideration is to choose attire that is functional, but looks stylish too. That means going for colors that are understated and use smart fabrics.
+- It is an important competition and I certainly rate my gold medals at the Commonwealth Games right up there with my world titles and my Olympic titles.
+- The Tour de France is a different kettle of fish to what I do, but it doesn't matter what you do - if you're on two wheels you do the best you can and do it clean.
+- Scottish people don't take themselves too seriously. I think you have to be like that when you're from a place where the weather is bad.
+- In the 84 days after Beijing I had, on average, three things a day and one day off. I didn't sleep in the same bed for more than two nights in a row. It sounds a bit pathetic but it was exhausting - it was like really intensive training with no rest days.
+- The bottom line is that most cycling kit exists for a reason. The padded shorts, for example, might look silly, but if you are riding for any length of time on a small, thin saddle you are going to feel it.
+- It doesn't matter what your target is, write down your goal and then plan how you are going to achieve it.
+- You know how hard you work. You know what you put into it. You want to win more than anything else. So the disappointment at the end is not because of anything other than being frustrated with yourself.
+- I was six when I saw 'ET.' It changed my life. I wasn't interested in cycling at all before.
+- If you considered the risks of everything in life you wouldn't leave your house. But I am a father and a husband. I don't do these things for the hell of it. At the same time you accept the risks and acknowledge that there is a risk, that there could be a big crash or worse.
+- Cycling is low-impact, which is why people cycle into their 70s or 80s, but track cycling means hard gym work and crashes.
+- Cycling taught me to recognize that mental health is on a sliding scale. Some days you are up and some days you are down.
+- Of course I don't expect people to call me Sir Chris. That'd be embarrassing.
+- I made a comment saying that it was 'mad' that I'm getting a knighthood for riding a bike but I meant mad as in unbelievable.
+- My big travel bugbear is Manchester Airport because getting through Terminal Three, as I have to do quite a lot, is a nightmare.
+- The biggest challenge is trying to be in two, or even three, places at once.
+- I'm a bit of a neat freak.
+- I've just made the most of what I've got, and the mental side of it is half the battle.
+- Someone like Jessica Ennis-Hill having her first baby then bouncing back to become world champion in the space of the year. I maybe wouldn't have appreciated just how big an achievement that was until I had my own child. It's an incredible thing.
+- We all have limitations in different forms. It could be financial, health-wise, work, family, whatever - there are things on the surface that limit what you can do.
+- I've said numerous times how proud I am to be Scottish and how proud I have been to compete for Britain, too, and I don't think these two things necessarily have to be mutually exclusive.
+- I'm writing kid's books, I'm doing endurance racing with Le Mans and designing bikes. I've also got my own range of cycling clothing.
+- I loved going to our winter training camps in Perth, Western Australia, when I was competing as a cyclist.
+- I'm a bit rubbish at everything apart from cycling.
+- I'd love to see Will Ferrell play me in a spoof track cycling movie.
+- As the lead rider in the team you always have to keep your eyes on the team you're pursuing - it's called the pursuit for good reason.
+- In terms of actual day-to-day training; a normal training day would begin with a gym session for about two hours, focusing on strength; so heavy weights on the lower body, with the main exercise being free weight squatting, with between one and ten repetitions depending on the time of year and the aim of the session.
+- Well, having a pint is not going to stop you from winning a gold medal, but for me the question was 'is this going to help me win a gold medal?' if the answer was no, I'd cut it.
+- Getting fit and eating well doesn't always seem easy. But at the end of day when you start to see a difference, you will feel a sense of achievement and accomplishment.
+- You don't know how your body is going to shape up. It's whether you can maintain the performance - or improve it - without getting injured. That's the battle every athlete faces and the older you get the harder it becomes.
+- I really don't know how athletes manage to do it, having kids while they're still competing and being able to stay at the top of their game.
+- There are days when we will all feel a bit down but that doesn't mean you have bad mental health. Recognizing this and being able to chat to others about your feelings is key.
+- Thai food became one of my favorite types of food, it's so delicious, and when you finish a meal it's a double whammy; it tasted great and was pretty healthy.
+- I've been to Florida, Texas and California in the States, but New York is the place I really want to visit.
+- The Commonwealth Games have their critics, though I suspect that they are generally people who haven't experienced them.
+- As a sports person there is definitely a responsibility to be a good role model.
+- Usually in the evenings, I go for a one-hour road session for a gentle recovery road ride. It's a really steady stint with the main focus being to loosen the body down.
+- As an elite athlete, I trained to win. Training was at times brutal - it has to be when you want to represent your country and to be the world's best.
+- My wife Sarra was instrumental to my success. When I was training, she took care of everything. She would make me dinner and always understood when I had to go to bed early or couldn't walk around the shops.
+- You do sometimes wish there were a few more hours in the day to squeeze a bit more in.
+- The closer you get to competition the volume of training you actually do is less, so as to allow your body to rest and recover between sessions.
+- I know when I'm on good form there's no one in the world I can't beat.
+- I've become Olympic champion six times and I've never taken a performance-enhancing drug in my life, but I was lucky in that I never even had the choice. I never had pressure and I never had a person come to me saying, 'You should do this.'
+- Of all the sportsmen I've ever met, cyclists are the nicest.
+- My dad got an old bike for five pounds, re-sprayed it, made it look like a BMX and put big handlebars on it. I loved it.
+- If I smell a burger stand I get nervous. It takes me back to BMX tracks as a kid.
+- I could always see as a kid that I was good at short sprints, running, throwing things far, jumping... anything that required a burst of power.
+- If I don't do anything for two or three days in a row, I feel really grumpy. My mood changes.
+- Decent cycling clothing today is designed with reflective strips or subtle detailing that is visible under streetlights or in car headlights. You'll find that you can be seen just as well as you would in a builder's fluorescent vest.
+- I have had an amazing life traveling the world and competing, doing what I love.
+- It might seem ludicrously simple, but the obvious answer to what to wear on your bike is whatever that helps you enjoy cycling.
+- Most riders, experienced riders, if they go down in a crash and don't get up straight away then they know something is wrong.
+- For Le Mans, you still have to keep fit, it's endurance. It's a different type of fitness. You want to actually fit in the car - the seats are ridiculously small.
+- My advice is before a big ride, eat a meal 2 hours or so before, to allow you to digest and process it, and without being crude, try to get to the toilet before.
+- I'm not saying having one pint will stop you from winning but you don't want to finish a race disappointed with your performance and then remember that beer you had one day.
+- I discovered in Melbourne how wonderful it is to be part of a successful team, when good morale spreads throughout the squad, among athletes and coaches and infects you like a virus - but one that you want to catch.
+- Certainly for me the Commonwealth Games were fantastic to compete in and I genuinely have so many great memories of the three I went to.
+- Investment is crucial but it's just the start. You look at some of the nations that have massive budgets but don't perform, then there are smaller nations who don't have massive budgets and can still get a reasonable medal count.
+- The Manchester games in 2002 was the breakthrough for me because I won my first individual Gold medal and that gave me the confidence to maybe think I could be a world beater.
+- I might only have half an hour when I get home after a long day, and the last thing I want to do is exercise. But you feel if you don't do that, tomorrow you're going to miss it again.
+- I'm lucky not to have suffered any severe problems with my mental health but there have been lows, like when Callum was born prematurely and had to spend so much time in hospital.
+- The uptake of people getting involved in cycling is partly down to the big success the team has had in the Tour de France, the Olympics and the World Championships.
+- I've been involved in cycling all my life and at a high level for 20 years. It consumes your every waking minute whether you are aware of it or not: your last training session, your next session, what you are eating next. It is a passion.
+- The biggest thing I noticed growing up when I was doing BMX racing or playing rugby through to secondary school level, was seeing the parents who were so desperate to see their kids do well that they were almost living their lives through their kids and putting huge pressure on them to the point they weren't enjoying it.
+- Athletes are some of the most insecure people on the planet.
+- It sounds so innocuous but the difference between 99 percent and 100 percent is huge. You can finish at 99 percent and you'll be hurting but if you push a tiny bit more - and that's the bit that makes the difference to your training - your legs just grind to a halt. It's like your engine is seizing up.
+- I'm still like that kid who loves being involved in bikes.
+- You are always pushing, pushing, pushing but it is when you do that that your body can break down.
+- As a former track cyclist I know only too well the risk of crashing. You don't dwell on it when you are competing but there are lots of moments when you are close to serious accidents.
+- Kuala Lumpur was my first ever multi-sports games. I didn't do very well but the experience and enjoyment I had of those games really made me realize how much work I had to do and inspired me to work harder for the Sydney Olympics.
+- Whether you are aware of it or not, if you eat right then you are giving yourself the best chance of defending against illness.
+- But coming back from injury, is like starting to exercise for the first time. You can't get stuck in straight away because you might do yourself a mischief; you have to be sensible.
+- I've done the 24-hour race in Le Mans, which was a dream come true.
+- Having a fall, breaking your wrist, that could be the week before the Olympics. That is why sport is always exciting.
+- I am sure in the long run cycling will continue to grow and flourish - not just in the U.K. but all around the world.
+- My predictable stable routine completely changed once I retired. I went from a regimented and vigorous daily training program to a routine where every day was different.
+- I would love to be able to fly.
+- After the Olympics I was going to a lot of functions and found that if I was eating badly my energy levels dropped.
+- Mum was a nurse and worked night shifts, but cooked all our evening meals and breakfasts.
+- I used to row as a junior for Scotland but I was never massive, I was always tall and rangey.
+- Every organization has a responsibility to stamp out bullying and discrimination. From what I read and understand through various conversations, British Cycling recognize they've fallen short in a number of areas.
+- What I learned from my parents is just to be a source of unconditional love for my children.
+- Focusing on the long-term goal can be disheartening when you're so far away from it, so it's vital to have ongoing targets on a daily, weekly and monthly basis.
+- I particularly remember the smell of burgers and bratwurst drifting across Cottbus Velodrome in Germany.
+- Those lactate sessions were the worst. I'd be in a lab on a turbo trainer and I'd do four 30-second efforts at 100 percent effort.
+- If you don't have a massage therapist on hand, then a foam roller can do the work instead.
+- All the support and opportunity started and then Le Mans became the pipe dream, the thing to aim for, the end of the rainbow.
+- Whatever sport I played - rugby, rowing - there were always naturally talented people who were better than me.
+- I was trying to break world records in cycling.
+- A lot of my training focused not just on the exercise but my diet.
+- If you adapt your diet and exercise regime gradually you can keep it up long term. Often people begin with a big push and burn out quickly. Don't suddenly go mad a week before your holiday. Start early and build up slowly: you'll feel the benefits much more.
+- As a sprinter, body weight was never an issue for me, not like the long distance riders who have to be so careful.

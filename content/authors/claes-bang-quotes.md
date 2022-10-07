@@ -1,0 +1,20 @@
++++
+author = "Claes Bang"
+title = "Claes Bang Quotes"
+quotes_len = "14"
+description = "the best 14 Claes Bang Quotes"
++++
+- I love to work anywhere, but because there is so much attention after 'The Square' my three agents wanted me to quit the play when I did it. I refused as I thought it was an interesting and brilliant play, and I didn't just want to run straight off to Hollywood.
+- All those glorious years for Danish television and I spent them going, 'Hello! I'm over here!'
+- I've done a lot of television over the last years, and you know, with some television productions, if you can do with just one take, you can move on and do something else.
+- I'm going to do a sequel to 'The Girl with the Dragon Tattoo' and this one is called 'The Girl in the Spider's Web', which is an American production. It's a clean slate: new cast, new director and everything and they're skipping from book one to book four.
+- I'm actually called Bang, a quite common name in Denmark where I'm from, so it's not like me trying to come up with a very stupid name for people to remember me or something.
+- As an actor, that's what you want; you want people to be aware that you are there, so that they can actually use you in their films and in their plays.
+- I was super happy when I went to Cannes Film Festival - I got a full sponsorship from my favourite Danish brand, Mads Norgaard.
+- Everybody said that a film that funny can't win because normally your Cannes winner will be something more serious. It's not very often that a film that's bordering on comedy has won in Cannes.
+- My favourite actor in the world is Richard Burton. I just think he just had everything. I probably couldn't play him, because he's got this insane quality that's like a wild animal and still sort of frail, fragile. But he's my idol.
+- I've been an actor for 30 years. I'm not going to run from a great theater production to do two days on an HBO series or something.
+- But I would love to work with David Lynch, if I could. He's my hero.
+- I started off in a high school musical.
+- I just didn't want people to think, Here's this idiot Danish actor who made up this name to get attention. It's really quite common here, and I've had it all my life.
+- If you like your job, I suppose you enjoy working hard.

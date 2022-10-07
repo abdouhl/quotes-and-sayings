@@ -1,0 +1,16 @@
++++
+author = "Cathie Wood"
+title = "Cathie Wood Quotes"
+quotes_len = "10"
+description = "the best 10 Cathie Wood Quotes"
++++
+- Any trend that generates a lot of excitement encounters scepticism due to the bad experiences - internet and housing crashes - of the past 20 years.
+- Unlike traditional asset management firms, our analysts do not follow sectors. They follow technologies - the 14 different technologies that I mentioned, involved in these five major innovation platforms.
+- Coming out of college, many of our analysts are steeped in genomic research.
+- Corrections are good, they keep us all humble.
+- We described the coronavirus crisis as more of a shock to the system as opposed to a full-blown recession which would spiral into a depression as the economy shut down.
+- We're seeing the yield curve steepen, that means long rates are going up but short rates are not because the Fed is holding them down and this is usually good for financial stocks.
+- The strongest bull markets I've been in are built on walls of worry.
+- Our confidence in Tesla has grown as we've done research on what ride-sharing potentially could add. It could limit the risks significantly, it's a much more profitable business than electric vehicles.
+- A correction is a great time to determine what are our high conviction names.
+- Well in terms of our companies, we are very involved in the innovation space. We are not afraid as an investor, we're not afraid of dilution, if we, if we think they're doing it for the right reason.

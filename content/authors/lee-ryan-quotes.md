@@ -1,0 +1,43 @@
++++
+author = "Lee Ryan"
+title = "Lee Ryan Quotes"
+quotes_len = "37"
+description = "the best 37 Lee Ryan Quotes"
++++
+- I've been kicked out of a few parties, but it's fun when you get kicked out.
+- I still have imaginary friends who I talk to in my head.
+- I'm a well-travelled person.
+- To be honest everything goes over my head a bit.
+- I always look at everyone when we're on the street and think, 'We're like sheep or ants.'
+- Sexuality doesn't need to be defended or justified.
+- I haven't shaved my private parts, but I dyed them once for a laugh! They looked more ginger, though!
+- I think about dying a lot, every time I fall asleep on a train or a plane I expect to wake up to a crash!
+- My perfect girl would be pretty mad, but one you can have a conversation with. No one can be too mad for me, the madder the better. I love a crazy chick!
+- I don't think the end of the world is the end of the world.
+- I did a lot of stage plays and musicals, and my first proper acting job was on 'Holby City' when I was 15.
+- If you go on the Internet and type in 'Lee Ryan one liners,' I think I'm on par with Gandhi.
+- I'm an expert at kissing girls necks, they love it. Girls say I'm quite sensitive, but I'm hyperactive too.
+- I've learnt a lot over the years, but I'm still quite outspoken. And no matter how much media training you put me through, I don't think I could be anything but.
+- I have to have aftershave in my car. I actually have Gucci aftershave in the glove box that is just for the car, to make it smell nice.
+- If I fancy a girl, I'll tell her. I'll say: 'You're fit.'
+- There is something really mysterious about lions. They could rip you apart if they wanted to, but at the same time they look so cuddly. Can you imagine what humans look like to animals? They must think we're so weird.
+- I believe I'm from somewhere else, and I was put on this plain for a purpose. I've met other star children, too. We're like spirits who move from world to world.
+- I've got a funny way of looking at things. It's because I'm dyslexic, and I was diagnosed with ADD when I was younger. And I'm left-handed as well.
+- I reckon, if I was a girl, I'd fancy Johnny Depp - he's pretty cool. I wish I looked like Johnny Depp.
+- If I was a super hero, I'd want to be the man of peace so that I could click my fingers and the world would be at peace.
+- I try to be kind to people, to treat them with respect. And I'm proud of that.
+- I'm a bordering genius.
+- Some of the things I've said, I don't even agree with.
+- I miss the outspoken pop stars like Lily Allen.
+- I'll do what I've got to do in my own career and my own life. For my own happiness. I'm not gonna be bent over a barrel and told what to do.
+- Before singing, I was acting. I was always more into acting than singing. It was the first thing I always wanted to do.
+- People think I'm crazy, but I'm not bothered what anyone thinks.
+- When I was 6, I saw a commercial that Jessica Simpson was in, and that was the first time I felt my little heart flutter.
+- The claims that I am gay don't faze me. I don't care if people think I'm gay; why would I care? I would be proud.
+- I'm not good with words, and I get mixed up.
+- Everyone at 'EastEnders' has been so welcoming.
+- We know there's no use in getting miserable, so we go out on the town instead!
+- I was in the top 10 rock n' roll artists - up there with Sid Vicious. I always had that edge.
+- I wish that I'd written John Lennon's 'Imagine.'
+- I was brought up with psychics and tarot cards. My mum was always told I was going to be in a boy band and be famous as a singer.
+- I have a rude thought every three seconds!

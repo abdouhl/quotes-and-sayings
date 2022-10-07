@@ -1,0 +1,16 @@
++++
+author = "Brooks Atkinson"
+title = "Brooks Atkinson Quotes"
+quotes_len = "10"
+description = "the best 10 Brooks Atkinson Quotes"
++++
+- Drop the last year into the silent limbo of the past. Let it go, for it was imperfect, and thank God that it can go.
+- People everywhere enjoy believing things that they know are not true. It spares them the ordeal of thinking for themselves and taking responsibility for what they know.
+- Don't be condescending to unskilled labor. Try it for a half a day first.
+- It seems not to have been written. It is the quintessence of life. It is the basic truth.
+- There is no joy so great as that of reporting that a good play has come to town.
+- It takes most men five years to recover from a college education, and to learn that poetry is as vital to thinking as knowledge.
+- The most fatal illusion is the narrow point of view. Since life is growth and motion, a fixed point of view kills anybody who has one.
+- In every age 'the good old days' were a myth. No one ever thought they were good at the time. For every age has consisted of crises that seemed intolerable to the people who lived through them.
+- After each war there is a little less democracy to save.
+- Good plays drive bad playgoers crazy.

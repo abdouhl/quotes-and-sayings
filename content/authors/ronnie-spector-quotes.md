@@ -1,0 +1,32 @@
++++
+author = "Ronnie Spector"
+title = "Ronnie Spector Quotes"
+quotes_len = "26"
+description = "the best 26 Ronnie Spector Quotes"
++++
+- I love Ruth Brown, not just her singing, but Ruth Brown has more girl power than anyone, because she fought hard against people who ripped her off and then helped other artists through the Rhythm and Blues Foundation.
+- Today, they're just up there for the money, just packaged and be gone.
+- I just want to get on stage and sing and be happy.
+- I love my songs, let's not get crazy here.
+- Most of the groups I worked with 30 years ago are either dead or dead broke. And it's a shame.
+- When I do a concert and people put their hands in the air, they're doing it on their own.
+- I think Behind the Music is good for people like Leif Garrett and Motley Crue.
+- So don't get me wrong, I love my songs, and I still love hearing them. That's history, baby.
+- I used to cry myself to sleep every night. I missed singing so much. And performing. Man, I missed it so much.
+- The people need to feel the music.
+- From that first meeting, I totally loved working with Joey, it was a real collaboration.
+- Back 20 years ago, I was recording with Bruce Springsteen, and his producer called me and said I had to be in the studio the next day to finish the sessions, and I couldn't. I had to be in court, in California. All this took like 10 years out of my life.
+- But I don't really like to discuss Phil anymore.
+- No one has their own identity like the Ronettes did back in the day.
+- Kill Rock Stars allowed me to put out a real genuine rock 'n' roll record.
+- But, you know, the Stones were my opening act in the Sixties. I loved those British guys, the way they just stood there and shook their hair.
+- We had the skirts with the slits up the side, sort of tough, sort of Spanish Harlem cool, but sweet too.
+- My honeymoon night was spent on the floor in the bathroom with my mother.
+- I have three adopted children with Phil, and for years I was fighting in court with him over being able to see my kids. I was always going back and forth to California, going to court, and I was never able to get a project going.
+- Well, first of all, they're all about the music and all I care about in my professional career is the music.
+- I mean, Janet Jackson? She's like Michael Jackson with hair.
+- I see the Ricky Martin thing, and everything is like, just packaged for this moment. Where are they going to be 10 years, 20 years from now?
+- I never tried to kill myself or anything.
+- Every act I see, their whole act is choreographed. I'm sick of seeing these dancers. The only reason they have them is they don't have enough talent to get people dancing themselves.
+- I love the fact that 35 years later, I still hear my songs on the radio.
+- Stage performing is a dying art form.

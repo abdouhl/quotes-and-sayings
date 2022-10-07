@@ -1,0 +1,104 @@
++++
+author = "Christopher Buckley"
+title = "Christopher Buckley Quotes"
+quotes_len = "98"
+description = "the best 98 Christopher Buckley Quotes"
++++
+- Whatever you thought of his politics, Ronald Reagan was a great man, a courageous man. He took an assassin's bullet and joked to the doctors as they desperately worked to save his life.
+- Cindy McCain has emerged as a definite hottie. I think that sometimes happens to women in their early fifties.
+- Writing's all I know. Frankly, I've never been able to do anything else.
+- Necessity is the mother of bipartisanship.
+- You live vicariously through your characters.
+- Short of taking monastic vows or trekking into the Kalahari, a freighter passage might just offer what our relentlessly connected age has made difficult, if not impossible: splendid isolation.
+- Try, if you will, to imagine Dwight Eisenhower or JFK or Lyndon Johnson or, for that matter, Ronald Reagan chin-wagging with Jack Paar or Johnny Carson. Richard Nixon did, famously, go on 'Laugh In' in 1968, but as a candidate; and to his credit, he rued the day and hated every second of it.
+- I was an only child who had every advantage, every blessing, absolutely.
+- I can say this, now that my own beloved and irreplaceable parents are gone: George and Barbara Bush are parents anyone would kill to have.
+- I'll let Democrats defend spending our grandchildren broke on entitlements.
+- How many Republicans does it take to change a light bulb? Three. One to mix the martinis, one to change the light bulb, and one to reminisce about how good the old one was.
+- I certainly wish I were as good-looking as Aaron Eckhart.
+- Her parents, Austin Taylor and Kathleen Taylor, were big deals in Vancouver - they were civic leaders, and he raced horses in the Kentucky Derby - and my mother grew up a debutante. And when she and my dad were married, there were about a thousand guests at that reception.
+- I want Tom Clancy, the Maryland novelist, to write the story of the rest of my life.
+- I try to refrain from the alarmist statement, really I do. It's bad for the liver and worries the dog, who has plenty enough to worry about as it is.
+- I once spoke to 9,000 people, but they managed to fit them all into a structure that resembled a Zeppelin hangar, so it was a contained space in which whatever laughter I generated could ricochet and hang around for a bit, encouraging others to join in.
+- A new idea is like carbonated liquid in a bottle. You just sort of shake it until the cork pops, then you write and write.
+- I'm accused of, and perhaps rightly so, of not being mean enough. I've been taken to task in many a book review; a good satirist has to, you know, has to kill.
+- My instincts are conservative, but my inclinations are also libertarian.
+- The ideological distance between Jim Webb and Bertrand Russell can be measured in light years. An author who reaches both of them exerts something like universal appeal.
+- I am a small-government conservative who clings tenaciously and old-fashionedly to the idea that one ought to have balanced budgets.
+- I worked at the White House in the early Reagan administration at a time when the deficit rocket really started to take off.
+- We live - on a spinning planet in a world of spin.
+- You can't tell what's aboard a container ship. We carried every kind of cargo, all of it on view: a police car, penicillin, Johnnie Walker Red, toilets, handguns, lumber, Ping-Pong balls, and IBM data cards.
+- Catch-22's admirers cross boundaries - ideological, generational, geographical.
+- I have known John McCain personally since 1982. I wrote a well-received speech for him.
+- I think people assumed because of my last name that I was a real right-winger. And if you cared to look at my writing, you would be hard pressed to deduce that I'm an ideological right-winger.
+- Mum's serial misbehavior over the years had driven me, despairing, to write her scolding - occasionally scalding letters.
+- In a 24/7 news cycle, with all the shrieking, howling voices and rapid-response and instant spinning and Soviet-style disinformation-mongering, a good idea has a shelf life of about, um, six seconds.
+- The laws have become so straight-jacketing that presidents and their aides dare not keep journals or diaries, lest they be subpoenaed by avid special prosecutors.
+- As for the financial world - I've been working in the Forbes building for eight years. You soak up a little bit of ambient stuff about all this - I know what a gold straddle is, what the Lombard rate is.
+- Every election, a presidential candidate inevitably proposes a new cabinet agency. The idea is that this is the only way to solve a particular problem. Just create more government.
+- Myself, I'm a post-ideological conservative.
+- My wife and I spent the winter in Worcestershire. This allowed me to tell everyone back home in the States, 'We are wintering in Worcestershire.' This may be a sentence that has never actually been uttered in human history, even by people who spend all their winters in Worcestershire.
+- It's axiomatic that all husbands are impossible. But I also think it's axiomatic that women are slightly impossible.
+- I can clear a dinner table in less than 60 seconds, moaning like a dockyard Elijah about the deficit and the inevitable reckoning.
+- Really, what's not to love in John McCain, satire-wise? As if he had not already been good enough to us, then came his nomination of Sarah Palin. Here, truly, was a gift from the gods of satire.
+- Coming to terms with Donald Trump as the Republican nominee is like being told you have Stage 1 or Stage 2 cancer. You know you'll probably survive, but one way or the other, there's going to be a lot of throwing up.
+- Catch-22's first readers were largely of the generation that went through World War II. For them, it provided a startlingly fresh take, a much-needed, much-delayed laugh at the terror and madness they endured.
+- I live on a train. I know - what a sad thing to admit. I am the New-Age Willy Loman. But there it is.
+- Lobbyists didn't descend from a spaceship. They evolved organically from the way we do business.
+- I just write what comes along. I don't have a detailed master plan.
+- I cast my first vote on my father's lap in 1960, for Richard Nixon, in the voting booth. I was 8.
+- I'd worked at the White House for two years, and I'd read a bunch of White House memoirs because everybody who works at the White House, even for five minutes, writes a memoir usually not less than 600 pages long - and never without the word 'power' in the title.
+- In public relations, you live with the reality that not every disaster can be made to look like a misunderstood triumph.
+- President Obama came to office proclaiming that he aims to solve problems, not hand them on to our children. Most presidents say that sort of thing.
+- I grew up in the GOP sandbox. My dad took me, age 7, to meet Herbert Hoover, in his apartment at the Waldorf Towers. He gave me a silver dollar. Being a young Republican, I spent it on comic books.
+- The cliche in American politics is that one week is an eternity.
+- The first novel I wrote, 'The White House Mess,' was a comic novel. It came out in 1986. It was a parody in the form of a White House memoir.
+- If you're a speech writer for a president, you don't really see all that much of him because there's so many layers between you and him. But with a vice president, it's different.
+- I'm not a particularly cerebral writer. I unabashedly go for the belly.
+- When the going gets tough in Washington, presidents appoint 'blue ribbon' commissions.
+- American voters tend to make their decisions based on a variety of vectors. Professional political satirists employ rather more scientific criteria. Namely: who will provide us with better material over the next four years?
+- Sometimes when you tell a story, you reach a little bit too far just to make the story a better one.
+- The tradition of putting candles on Christmas trees actually began in Germany. The person who came up with the idea is thought to have been Martin Luther, father of the Reformation.
+- I had some adventures at the White House, but hardly enough to fill a full memoir.
+- At the senior prom for my Catholic boarding school, I was feeling manly, so I shaved, even though I didn't need to. Being inexperienced, I managed to slice a quarter-inch gash into my lower chin a half hour before I picked up my date.
+- My father would have been impressed by Barack Obama's mind and style and grace of manner, as well as by - I'm certain - his abilities as a writer.
+- The Republican Party once could lay claim to the mantle of being the fiscally responsible, or 'Daddy,' Party.
+- If the question is, 'Do I wish I made thirty million dollars a year,' the answer is, 'You bet.' If the question is, 'Do I wish I could write like Tom Clancy,' the answer must remain, 'No.'
+- I love Washington. I have an affection for the place. For a satirist, I think it's sort of Disneyland. I mean, you know, there's always some inspiration in the morning's headlines.
+- I don't think I ever once heard Mum utter a religious or spiritual sentiment, a considerable feat considering that she was married for 57 years to one of the most prominent Catholics in the country.
+- My mother spent a month in a Swiss hospital after a terrible ski accident.
+- I remember dawn coming up over the Strait of Malacca; ragamuffin kids on the dock in Sumatra laughing as they pelted us with bananas; collecting dead flying fish off the deck and bringing them to our sweet, fat, toothless Danish cook to fry up for breakfast.
+- I had worked for George Bush as a speechwriter, and I read a lot of White House memoirs. They all have two themes: 'It Wasn't My Fault' and 'It Would Have Been Much Worse if I Hadn't Been There.'
+- I spent, whether consciously or unconsciously, most of my career trying to be something other than William F. Buckley's son.
+- The thought of Sarah Palin as president gives me acid reflux.
+- With real estate, it's location, location, location. In public speaking, it's acoustics, acoustics, acoustics.
+- It's always tricky, meeting an author you've admired.
+- If I were to win the Nobel Prize in Literature - which I think it's fairly safe to say is not going to happen - I would still expect the headline on my obituary to read: 'Christopher Buckley, son of William F. Buckley, Jr., is dead at 78.'
+- I'm a Republican, but I find Nancy Pelosi very attractive.
+- Joe Scarborough was one of 74 Republicans elected to the Congress in 1994 in response to the missteps of the early Clinton era. He was the first Republican elected to Congress from his northern Florida district since the 1870s and handily won re-election three times.
+- I am post-Catholic.
+- I think I got a lot of my 'funny' DNA from my mother, who had a glorious sense of the ridiculous.
+- I voted for Barack Obama largely on the basis of his temperament, which I thought superior. He is only 47 years old, but to me seemed older than that: a man of precocious aspect and judgment.
+- I haven't left the Republican Party. It left me.
+- I love Oscar Wilde, still the wittiest writer of anyone, dead or living.
+- I've lived in Washington since 1981 and have been a faithful reader of 'The Washington Post' ever since.
+- As you know, divorce is still not allowed in the Catholic Church. But here insert a large 'however' - she is liberal in the granting of annulments.
+- I was an only child with a lot of time to kill. I suspect a lot of writers are only children, or only children become writers because it's a way of being alone.
+- I am not a political thinker. I'm not even much of a thinker. I'm a hack novelist.
+- Pop was a devout Roman Catholic; I'm a lapsed Catholic. I'm not the village atheist, but I exert my right not to believe, and I doubt I would have been very public about that were he still alive, simply just so as not to hurt his feelings.
+- My dad's one true quest in life was for the Platonic ideal of peanut butter. And I remember one day he announced, with a look of utter transfiguration on his face, that he had found paradise on Earth in a jar with a yellow cap. And it was called Red Wing.
+- I'd been told, or warned, that when you paint one room, not only will it look nice, but it will also make the room next to it look as if raccoons have been living in it for the past decade.
+- Fiction, for me, is sort of a protracted way of saying all the things I wished I said the night before.
+- It's odd to think of yourself as an orphan at 55.
+- We make our public servants jump through quite a few hoops, you know. We get hysterical if they accept a $50 lunch from a lobbyist. We get hysterical if they accept a ride on some corporate jet.
+- I remember standing in the crow's nest as we entered the misty Panama Canal, and the strange sensation as the 4,000-ton ship rose higher and higher inside the lock.
+- I think my identity as a 'conservative' is entirely inherited. People see the name Buckley, and they think 'conservative.'
+- The needs of the nation are not necessarily convergent with the needs of the deadline satirist.
+- I have been on the receiving end of many blessings in my life, few as great as having known George and Barbara Bush.
+- It was a mistake to think that my views would have been taken on their own terms. It was a mistake to think that my last name wouldn't be a factor.
+- I believe with my sage and epigrammatic friend P. J. O'Rourke that a government big enough to give you everything you want is also big enough to take it all away.
+- There was a glamorous Nick-and-Nora element to my parents. If you remove one from the other, you're left with neither. But parents are parents.
+- Newt Gingrich has certainly seen his own empire rise - and fall.
+- I hope when I'm on my deathbed, people forgive me, because there is a lot to forgive.
+- Not much ever really comes of commissions, really. The last one that really came up with something truly concrete was the Warren Commission, and for all its good work, most Americans persist in believing that Oswald was working in tandem with the CIA, FBI, Lyndon Johnson, and the John Birch Society.
+- George H. W. Bush may be a World War II hero and New England Yankee blue blood, but he has the tear ducts of a Sicilian grandmother.

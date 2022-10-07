@@ -1,0 +1,24 @@
++++
+author = "Lee Hazlewood"
+title = "Lee Hazlewood Quotes"
+quotes_len = "18"
+description = "the best 18 Lee Hazlewood Quotes"
++++
+- The thing I hated about it was that you live in your trailer all the time and then they call you and you do maybe two dozen lines. Then they do that for three hours and you wait and wait and wait, and I don't like waiting.
+- People think I'm crazy because I travel too much, but I haven't been doing any of that lately because I got a little sick this year and I've tried to take care of it.
+- So I became a producer because I knew one of the reasons was they didn't do them the way I thought was right.
+- I used to not stutter any. Oh, I did when I was a kid, I stuttered, I had a bad stutter until I was probably between the second and third grade and a guy got rid of it for me.
+- If it was Europe, I just picked a country that I hadn't been to, but I didn't try to check up on what was going on in the country or anything like that. I just went and had a good time and met a lot of very nice people who are still my friends.
+- I tell ya, I could have got some more jobs if I'd tried, but I went to Sweden instead.
+- I think for writers who write that kind of stuff, they want to make changes. Look at Kris Kristofferson and Dylan. I mean, whole generations come along liking that stuff and that's great.
+- There's nothing worse, I guess, than being black in an all-white church or being southern and being a liberal.
+- You see I have to be in the clinic every Thursday and it's in Phoenix so I have to fly down or drive down. It has to be every Thursday for this damn stuff they're giving me.
+- When we did that kind of stuff our only rule was... Well, we didn't have any rules, really, but my rule, because I was the drinker of the group, was not at any time of the day before the night we're working.
+- Nobody heard records of you playing whatever the melody was on those low strings. It worked out good, you know, about 25 or 26 million records later. I guess it worked out alright.
+- Well, you'll find the most boring part of it is the waiting, at least if it's in films anyway. Television's a lot faster, but the product... I don't think it's as good as a film.
+- So anyway, I really enjoyed the European audiences.
+- I always liked circuses, so I would have enjoyed that.
+- The movie wasn't a hit, although it did well in Europe for some reason.
+- Sweden was very nice. I did a lot of television. I wrote, directed and was in a lot of television there.
+- I just did one movie and there was no career for me, anyway.
+- Oh no, I'm not a historian or anything like that.

@@ -1,0 +1,49 @@
++++
+author = "Lapo Elkann"
+title = "Lapo Elkann Quotes"
+quotes_len = "43"
+description = "the best 43 Lapo Elkann Quotes"
++++
+- My company Independent Ideas worked with Gucci on a special edition Fiat 500.
+- I do not follow the rules of fashion, and I don't like to be considered a man of the world of fashion. I like to call it the 'style industry' because we try to work on taste.
+- I like my country, but I don't think like an Italian. It's a complex, complicated difficult country to make things happen in.
+- I would say that Juventus is a myth not only in Italy, because it's the most loved team in Italy, but also around the world. And it has been in my family since birth.
+- A pocket square must always - always - be white and a bit wild. If it is too prepared, it is tacky.
+- I like listening to music and driving. How do you say... It's the only way I can 'chillax.'
+- Italy's assets are her style, her beauty, her creativity, her passion, her energy, her technology; and these will be core brand values of all our cars. Fiat as a company has a long way to go and a steep road ahead.
+- I am lucky because I can - and I like to - mix the beautiful Caraceni jackets I inherited from my grandfather with a pair of Tsubi jeans or wear a favorite pin-striped suit from him for more formal occasions. I'm crazy about pinstripes and vintage fifties fabrics.
+- London is like a girlfriend I loved, then really fell out with.
+- I have never let down Italy, and I never will. I love my country, and I owe a lot to my country, and in that sense, whatever I can and will be able to do for my country, I will do.
+- I drive girls crazy because I might call them 20 times in one day and then the next day not once.
+- I've missed a lot of trains in my life, and another one always comes.
+- If you stop for lunch elsewhere in the world, you tend to eat a sandwich, and a bad one. Italy is unique for the style of life. I think everyone envies it a bit.
+- Just because you're born in a privileged family and have money doesn't mean you're happy. Happiness you can't buy. Happiness is something you need to work for.
+- Fashion is something which is non-lasting; it's ephemeral.
+- I'd say Juventus has a story as legendary as the Yankees.
+- I love Winston Churchill. I love the wisdom he had, the sagacity. I like people who are independent-minded. People who aren't part of clans or systems, who are talented and free, and able to do things without being corrupted by the system.
+- I love Winston Churchill; I think he had the grace of coming and the grace of leaving - when things were hard he was there, and when it was time to leave, he left.
+- I'm a freestyle creative entrepreneur. Not a businessman. I like to create ventures in which creativity stands at the centre.
+- I need to make things mine. It annoys me to buy something that is imposed on me. When I have a suit made, I go to the Sicilian tailor Alessandro Martorana in Turin. I like shorter jacket sleeves and often fold the cuffs up. It's more modern that way.
+- I love Italy and I say I am from Italy wherever I go.
+- I'm inspired every day by the great captains of industry and enlightened entrepreneurs like my great-great-grandfather and founder of Fiat, Giovanni Agnelli, who personally knew all his workers and gave so much to this country, or Adriano Olivetti, unique and innovative in every way.
+- The Cinquecento was an engine of motivation at Fiat. It refurbished the image of the entire company. It's a symbol for the company, but it's more than that. It's a global Italian symbol, as Mini is a global British symbol and the Beetle is a global German symbol.
+- I have many weaknesses, but I have one strength. When I do something, I do it 300 percent. I'm not a middle man.
+- Even when it comes to zippers and buttons, Italy reigns supreme. The luxury market is ours, as demonstrated by the voracity with which various foreign conglomerates are buying up the jewels of our manufacturing sector.
+- I've lived in London, Paris, Rio de Janeiro, New York, and Turin. But New York is my favorite city. It has so much energy, so much toughness.
+- I don't have an MBA, and I didn't go to Yale. I'm not an academic person and wasn't a good student. Instead, I've been taught by some of the most inspiring people in the world.
+- I love challenges, and I believe that the challenge of quality cinema should not be underestimated as an important part of the Italian cultural offer.
+- Real luxury is customization.
+- I've learned that if one is arrogant and if something bad happens to him, people won't want him to succeed. They will make more of an effort to bring him down.
+- I have the Italian flag embroidered onto all my dress-shirt cuffs. I am very proud to be Italian.
+- I try cars; I try them all. Cars need to be sexy, because we're not talking about biscuits here.
+- 'Made in Italy' is from the tycoons of the '80s, not me. It is people who represent an Italy which I don't belong to and I don't feel a part of.
+- I am in love with cars; I love anything that moves.
+- I am an obsessive personality. And if you are an obsessive personality, you need to be aware of it and be able to drive it with success. There are moments in your life when you are driving it well, but you shift and you shift badly and you hurt yourself.
+- My office in Milan is in an old factory. I have all my companies here, including Italia Independent and Independent Ideas.
+- The value of 'Made in Italy' must necessarily be up-to-date. This is the philosophy that Italia Independent has embraced. We decided from the outset to do away with stereotypes and attune ourselves to the extreme pace, to the incessant metamorphoses of the globalized world.
+- I am Jewish, Italian, American, Catholic.
+- London is the financial capital of Europe, a great platform to America and Asia. I love the fact that in British culture you can be whoever you want, and people don't even look at you. I don't feel that in Paris or Milan.
+- Tiles, the best furniture, fabrics, bath fixtures, bronze - just leaf through any design magazine and you immediately understand they're all 'Made in Italy.' We have the premier opera house in the world, La Scala, and behind the Nobel given to CERN is the research of many Italians.
+- You can learn from everyone, the president or the cleaner. You need teachers in life, but they're not always school teachers or professors. You learn from ordinary people. You learn from travel, from just walking down the street.
+- In America, if you succeed, you don't have to apologize. In Italy, success is envied, and envy is the worst, worst, worst thing in the world. It's easy for me to say because I have had more than many others, but at the end of the day, I have never envied anyone. I wish to no one that they waste their time envying anyone else.
+- Tailor Made will help Ferrari's clients tailor their cars in a very personal, specific way. It's a bespoke service, like visiting Huntsman or Anderson & Sheppard or whoever your favourite Savile Row tailor is.

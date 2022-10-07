@@ -1,0 +1,31 @@
++++
+author = "Burton Richter"
+title = "Burton Richter Quotes"
+quotes_len = "25"
+description = "the best 25 Burton Richter Quotes"
++++
+- Politics is a lot tougher than physics.
+- I was born on 22 March 1931 in New York, the elder child of Abraham and Fanny Richter.
+- Total failure isn't something I want to spend a lot of time envisioning. I'm pretty sure I'll recognize it if it comes.
+- What struck me first on reading the Ten Hoeve-Jacobson paper was how small the consequences of the radiation release from the Fukushima reactor accident are projected to be compared to the devastation wrought by the giant earthquake and tsunami.
+- What I found was that I thoroughly enjoyed the plumbing of experiment.
+- During my years at the synchrotron laboratory, I had become interested in the theory of quantum electrodynamics and had decided that what I would most like to do after completing my dissertation work was to probe the short-distance behavior of the electromagnetic interaction.
+- In 1948 I entered the Massachusetts Institute of Technology, undecided between studies of chemistry and physics, but my first year convinced me that physics was more interesting to me.
+- During my first year as a graduate student, we worked on a measurement of the isotope shift and hyperfine structure of mercury isotopes.
+- Is the sky falling? No. It's maybe drooping a bit.
+- What lots of people have been trying to do ever since is find what's beyond the current Standard Model. So far, it has stood impervious to all attacks.
+- Iran wants to join the group of countries that want to know about the biggest things, like space.
+- While a lab director can get done the things that he regards as important, he has the more important job of bringing out the best ideas of the broader scientific community. I learned this early in my career while I was leading the construction of the SPEAR facility.
+- Theorists can create all sorts of theories which go beyond the Standard Model. But there's not one bit of experimental evidence to point out which way you should go.
+- I've become interested in the impact of climate change on the world and the future of energy needs for the developing world.
+- What we're really after is trying to understand what's in the mind of God.
+- For nuclear power to have a future, we'll either need more Yucca Mountains or a way to decrease the stuff we put there.
+- I got no thrill from solving an integral equation, but I did get a thrill from building an exotic piece of equipment that worked.
+- So now, if we don't fund the physical sciences, where will the Next Big Thing come from?
+- In 1960, I married Laurose Becker. We have two children: Elizabeth, born in 1961, and Matthew, born in 1963.
+- While a lab Director can get done the things that he regards as important, he has the more important job of bringing out the best ideas of the broader scientific community.
+- The reason why Three Mile Island makes such a big impact is because of a Jane Fonda movie called 'The China Syndrome.'
+- The sun doesn't shine at night, and wind power is highly variable. To meet our emissions goals, we're going to have to grasp every arrow in the quiver, and nuclear is one of those arrows.
+- Since stepping down as laboratory director in 1999, I have devoted an increasing fraction of my time to international issues. I am involved with energy, environment, and sustainability issues, particularly as they involve new energy sources free of greenhouse gases.
+- As accelerators reach higher and higher energies, we may need a new Standard Model, or, at least, today's may need to be modified, but that's the way science operates.
+- Modern science is fast-moving, and no laboratory can exist for long with a program based on old facilities. Innovation and renewal are required to keep a laboratory on the frontiers of science.

@@ -1,0 +1,14 @@
++++
+author = "Lisa Ann Walter"
+title = "Lisa Ann Walter Quotes"
+quotes_len = "8"
+description = "the best 8 Lisa Ann Walter Quotes"
++++
+- I will never be able to fix myself enough to the point I like myself, so I just jumped to the point where I said, 'I like myself as I am.'
+- I danced growing up. I had two friends of mine that, actually, one of them wound up dancing with Alvin Ailey.
+- If wearing the Spanx helps you get looks, and you feel that energy and response, and you're rocking your body with confidence, that's still how you'll feel about yourself when you get home and take the Spanx off... If your attitude improves from the Spanx, wear the Spanx!
+- We all hate on ourselves way too much, and there are so many people who think they have to look like those women on TV. That's so unreasonable. Everybody is supposed to be a different size. And if I can just be confident in myself, then I'll look better. It's quantum physics!
+- When my marriage broke up... I had just put on 45 pounds for my 'Shall We Dance?' character. I had to eat 10,000 calories a day just to put on weight while training with Tony Dovolani. I basically stayed in bed for a six-month rotation of depression naps. Dance helped me lose the weight.
+- I've been in television for a little bit, and when people are attracted to what you've created, you get very excited because of the numbers. The business side is very exciting.
+- There are temptations around you all the time. The trick is to work your way through anxiety or your tiredness or whatever, and not let yourself get so hungry that you're going and stopping for the burgers, and you don't view it as reward. You're doing better for yourself is eating better food.
+- Basically, in our society, you can never fix anything enough. The minute you get your head above water about one thing, they let you know that 12 other things about you suck. It's like playing 'Self-Esteem Whack-A-Mole.'

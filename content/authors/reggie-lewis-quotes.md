@@ -1,0 +1,20 @@
++++
+author = "Reggie Lewis"
+title = "Reggie Lewis Quotes"
+quotes_len = "14"
+description = "the best 14 Reggie Lewis Quotes"
++++
+- Around here, though, people don't treat me any differently. That's to be expected. I don't mind at all, being in the shadow of three Hall of Famers. I just want to learn all I can from them.
+- You have to step up when your number is called.
+- Scoring a lot of points is great when you win, but when you lose it doesn't matter.
+- I don't want the All-Star Game to be a one-time thing.
+- I think around the league, I'm getting more respect. And that's great.
+- Everybody else is calling this 'Reggie's Team' and that's fine with me. It's just another challenge I have to face, and I look forward to it.
+- For me, that's natural. The instinct to score comes naturally and if you have it, you've got to go to it.
+- Basically, I'm more confident in my whole game.
+- I want to be back every year. If I don't go, I want it to be because someone else just was having a great season. I want it to at least be a close call.
+- I worked a lot on my ball-handling and outside shooting during the off season.
+- If I'm the weak link or whatever, I guess that means I've got something to prove. I've always had something to prove.
+- I've never been scared of contact. Now I get to bring it, that's what I love to do, so I'm going to bring it.
+- I never really looked at myself as a scorer, but if the shot is there, I'm certainly going to take it.
+- The Knicks left me open a lot of times the last time we played them, and I was just making sure I took the shots that were there.

@@ -1,0 +1,31 @@
++++
+author = "Logan Lerman"
+title = "Logan Lerman Quotes"
+quotes_len = "25"
+description = "the best 25 Logan Lerman Quotes"
++++
+- The idea of working with David Fincher or Paul Thomas Anderson or Wes Anderson or Scorsese or Spielberg or any of the guys I really idolize is a dream for me.
+- I'd say people that really inspired me at first were like, Dustin Hoffman, Jim Carrey... serious Jim Carrey though.
+- I just love being in the U.K.
+- I grew up going to school and high school and then shooting a movie for a few months. It's an odd way to grow up and is kind of forced maturity.
+- 'The Goonies' is classic. That's, like, the movie I bring with me if I go out of town for a long time, because it just makes me think of the best times I've seen it with my friends growing up. Dude, everybody knows that movie, everybody watches that film. Best family film ever made.
+- I'm always in the theater seeing everything, good or bad.
+- When I was five I thought auditions were a great way to get out of school!
+- Berlin is my favourite city.
+- I got into acting to get my foot in the door for film-making.
+- I've definitely had the experience where I was pursuing someone for a long time that I just obviously did not connect with, so I was always, kind of altering myself for her, But then you realize it's just not worth it. What's the point?
+- I don't get the jitters and I don't get nervous, because I build that comfort on set for myself. Sometimes if I'm gonna do something really crazy, it helps me to yell or look like an idiot on set, so that when I'm about to do a scene, I've already embarrassed myself. I find ways to work around getting the jitters.
+- I don't really look around and say, 'I've made it.' I just look around and think how fortunate I am to work with the people I'm working with.
+- I really started acting when I was 12 when I was doing this television show called 'Jack & Bobby.'
+- I appreciate film actors who respect the film making process.
+- I'm just trying to find a good project. Work with a good director, someone I really admire. Find a good role.
+- When I'm back at home it's just reality. I kind of separate myself from Hollywood.
+- My whole family is in orthotics and prosthetics, so I grew up having to check for scoliosis every week. 'Come over. Let me feel your spine.'
+- For me, being able to be vulnerable is difficult, but it's just something that I feel comfortable doing. I need to fully understand why, the thought-process behind the character and I have to believe it. That comes from a lot of preparation.
+- I just want to make sure I'm contributing good films to movie history rather than being famous just to be famous.
+- There really isn't a dream role, but there's a dream situation where I could work with a director that I idolize. So, the idea of working with David Fincher or Paul Thomas Anderson or Wes Anderson or Scorsese or Spielberg or any of the guys I really idolize is a dream for me.
+- I love movie sets. It's another home for me. Movie theaters and movie sets - they're just the best places to be. I love them.
+- I want to be a good actor more than anything - someone you can respect.
+- Growing up, I had a very normal relationship with my brother and sister. But, over time, they became my best friends, and now I hang out with them all the time. I'm very close with them.
+- I'm doing 'The Perks of Being a Wallflower'... It was a book I read when I was younger, and it just changed my life, and I just wanted to be a part of it.
+- I did a commercial when I was, like, 5 or 6 years old for... what was it called?... Cabbage Patch Kids! That was the first thing I ever did. Little bit embarrassing.

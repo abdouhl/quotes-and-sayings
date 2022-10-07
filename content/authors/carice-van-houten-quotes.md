@@ -1,0 +1,49 @@
++++
+author = "Carice Van Houten"
+title = "Carice Van Houten Quotes"
+quotes_len = "43"
+description = "the best 43 Carice Van Houten Quotes"
++++
+- Don't get me wrong: I would not say no to an Oscar!
+- On my own, I have very bad posture; I'm clunky.
+- Most directors that I've worked with - I've worked with before, especially in Holland - and they know that I'm somebody who talks and asks, and talks, and talks, and talks and questions and turns things around. I'm like a little cat, walking around my little nest until I find my place.
+- I tend to really duck down and make myself smaller than I already am.
+- I'm a singer and working on my second album. I write and produce. There is so much more that satisfies me. So there's not just this one ambition to become an American movie star. Because I will never become an American movie star.
+- I'm a workaholic.
+- Playing evil is just not interesting. I don't think anyone who does evil stuff thinks they're doing evil stuff. That's the scary part.
+- It's quite absurd to act against a smoke creature that is not there.
+- I don't know how to play evil.
+- My grandparents met each other in amateur theatre. My uncle is an actor.
+- I speak French, German, English, and Dutch, and I can say a few words in Spanish - none of these languages have anything to do with Valyrian.
+- It's great to play somebody's wife, but not all the time. There's so many other stories to tell.
+- I never believe in going to America with my show reel and knocking on every agent's door. I couldn't even do it. I'm way too insecure and too proud.
+- American actresses have more problems than I do; I'm lucky to be able to play what I want for a smaller audience, because I have my own country to do that in.
+- I don't believe you can get into somebody's character but more that somebody comes in you. You just use yourself. In everything I play, I feel like it is me. I just say different things on different times and look different.
+- I don't do method acting. If I play a farmer, I'm not gonna spend 3 weeks on a chicken farm. That's a bit too much for me.
+- For a while, I thought that I was only going to be cast in Second World War films.
+- I like to play a strong woman, but a strong woman can also be very fragile and vulnerable at the same time.
+- I can't say I'm having trouble with my husband or that I have a stubborn child.
+- I've never really considered packing my suitcase and heading to Hollywood.
+- I do this acting thing mostly for myself. I like to make a connection and communicate with the audience to make myself feel less lonely. I also do it to develop my own character, so sometimes I do it to just be away in a certain area that I've never been to. But mostly, the story has to do something for me.
+- My father is a silent cinema freak, so he took me to 1925 silent films that took forever, like 5-hour movies, but I've seen a lot of that stuff since I was young. And then I saw the film 'Annie,' and I just wanted to be Annie; I just wanted to be that orphan kid and wanted to sing and dance.
+- I have some wigs at home just for fun. Throughout my years, my hair has been treated in a not very nice way, so I have to be careful.
+- If I go to Hollywood, I will have to start all over again - which is fine and makes me humble.
+- I'm completely the opposite of what I play on 'Game of Thrones.'
+- I think it's cool people love to hate me.
+- My mother and my sister are big Jon Snow fans.
+- I have a love-hate relationship with Twitter. There are moments I feel like 99 percent of the people who write stuff are the sweetest people, and then one crazy guy or girl spoils the whole thing.
+- In the streets, they're very nice. On Twitter, there are people who love to hate me. Sometimes people get mean. I tend to answer like, 'Careful now, know who you're dealing with...' They're like, 'I'm sorry! Don't send the Lord of Light after me!' It's fun to play with that.
+- I think I'm a very intuitive actress.
+- Whenever you have to do a photo shoot with a woman, there is this weird competition. They need to prove something. They need to play games - maybe unconsciously - but women are so sensitive, and people call me more masculine sometimes.
+- I come from Holland, and there's a lot of nudity in film there.
+- There doesn't seem to be a religion in 'Game of Thrones' that's totally peaceful... we haven't seen any Buddhists.
+- I personally don't like to rehearse so much. I really sort of trust my instinct.
+- I have a very musical family from my Scottish roots.
+- When I started acting, there were parts in English that I thought I just had to try it out and go to another country. I did a film in Ireland. It was my first film abroad.
+- I'm cold in summer. I'm the coldest person ever! It's very ironic I'm never cold in the scripts. Every time I'm shooting, if you don't see a part of me, there are hot water bottles there.
+- Dining with a married couple can be uncomfortable.
+- I'm not at all a hero. I'm a wussy.
+- I pick up on other people's discomfort.
+- The khaleesi seems the most fair.
+- In my own country, I play light comedies and funny parts.
+- It's not so easy to forgive.

@@ -1,0 +1,27 @@
++++
+author = "Bing Gordon"
+title = "Bing Gordon Quotes"
+quotes_len = "21"
+description = "the best 21 Bing Gordon Quotes"
++++
+- I believe in books. I believe more in 'cross-media' - how characters are adapting across mediums.
+- If you don't measure yourself by achievement, how are you going to set achievement levels for other people?
+- Even as an 18-year-old, I had to grow comfortable with my leadership style, which is that I was really impatient with under-motivated people - extremely impatient, to the point where I was counterproductive as a manager of underproductive people. And that hasn't really changed. If people need to be motivated, I'm no good.
+- The 1980s was a time of the great recession of interactive entertainment. When Atari fell in 1982, until Nintendo launched its console, video games were an outcast for five years.
+- The first time I had a secretary, I was sheepish about being demanding or even asking questions.
+- I ran the high school newspaper and was in student government. I played sports my whole life but was never picked as captain.
+- Smart people tend to enjoy thinking about a lot of things at once. I'd say entrepreneurs should be serial monogamists; do one thing at a time until you make sufficient progress and then move on.
+- Secrecy is the foundation of politics.
+- When we started EA in 1982, our goal was to make games as big a media as visual entertainment or movies. That was how big we dreamed at the time.
+- If you're living off credit-card advances and ramen noodles, a buyout offer might be too hard to resist. And you'll be even smarter the second time around.
+- For missionary entrepreneurs, the dream outcome is to build an 'Internet treasure' - a brand that defines a generation, proves that we are better than our parents, and becomes something we couldn't live without.
+- The Internet Treasure companies tend to go public rather than get acquired, although there are clear exceptions, like Instagram, YouTube, Skype and PayPal.
+- Somehow, the company must stay true to the founding vision while avoiding the pitfalls of rapid growth - and perhaps survive the hiring of a previously successful executive who doesn't work out.
+- One skill of a great entrepreneur is to get a whole complicated discussion and then say, 'We're going to do this one and we're only going to do this one'. Managers are good at prioritizing. Entrepreneurs know what is the one thing.
+- In any business that grows big on one business model, transitions can throw everything in the air.
+- As you grow up, you become more comfortable with your own peccadilloes, and I'm bad with people who aren't self-motivated. And now, when I see them coming, I run the other way.
+- The world of digital media is being transformed. A bunch of new businesses can be reinvented, thanks to social graphs, the mobile internet, and the new shopping habits of the young. Those are going to create a whole generation of cool new companies.
+- In my world, I read resumes upside down, so I start with personal interests. So if somebody doesn't have believable, interesting interests, they're not going to work in a creative business.
+- Once you find out that someone likes a certain game on Facebook, now you know what kind of virtual gift you can get them. You can send them a little decoration. Social games give you goals where you can help and reward your friends.
+- It's very difficult for people who don't play video games to understand their power simply by watching, and it's very difficult for people who aren't close to technology to understand how rapidly it can change whatever it touches.
+- I'm a huge believer in learning anything from multiple points of view.

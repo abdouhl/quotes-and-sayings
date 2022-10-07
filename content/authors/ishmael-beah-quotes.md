@@ -1,0 +1,30 @@
++++
+author = "Ishmael Beah"
+title = "Ishmael Beah Quotes"
+quotes_len = "24"
+description = "the best 24 Ishmael Beah Quotes"
++++
+- I grew up in Sierra Leone, in a small village where as a boy my imagination was sparked by the oral tradition of storytelling. At a very young age I learned the importance of telling stories - I saw that stories are the most potent way of seeing anything we encounter in our lives, and how we can deal with living.
+- For many observers, a child who has known nothing but war, a child for whom the Kalashnikov is the only way to make a living and for whom the bush is the most welcoming community, is a child lost forever for peace and development. I contest this view. For the sake of these children, it is essential to prove that another life is possible.
+- I guess what I'd like to say is that people in Sierra Leone are human beings, just like Americans. They want to send their kids to school; they want to live in peace; they want to have their basic rights of life just like everyone else. I think we all owe an obligation to support people who want to do that.
+- The thing that really gets to me is that countries are in the news only when things get out of hand. That's when it's newsworthy. When the war ends, it's not newsworthy anymore; no one wants to think about it. Actually, the aftermath is the most important part. It's when people have to rebuild.
+- There's so much focus and interest about what happens during war, but very little about what happens when people return to homes and communities that have been destroyed. There's a renewal that happens, but it's a very difficult one.
+- Shakespeare is absolutely big in Africa. I guess he's big everywhere. Growing up, Shakespeare was the thing. You'd learn monologues and you'd recite them. And just like hip-hop, it made you feel like you knew how to speak English really well. You had a mastery of the English language to some extent.
+- Whenever I speak at the United Nations, UNICEF or elsewhere to raise awareness of the continual and rampant recruitment of children in wars around the world, I come to realize that I still do not fully understand how I could have possibly survived the civil war in my country, Sierra Leone.
+- I had gone to a talent show - I was interested in American hip-hop music - with my older brother, to another town, and my town was attacked. I went from having an entire family to the next minute not having anything. It was very painful.
+- As a child soldier, your rights are constantly violated.
+- We all find joy and radiance and a reason to move on even in the most dire of circumstances. Even in chaos and madness, there's still a beauty that comes from just the vibrancy of another human spirit.
+- After I wrote my memoir, 'A Long Way Gone,' I was a bit exhausted. I didn't want to write another memoir; I felt that it might not be sane for one to speak about himself for many, many, many years in a row. At the same time, I felt the story of 'Radiance of Tomorrow' pulling at me because of the first book.
+- My mother tongue, Mende, is very expressive, very figurative, and when I write, I always struggle to find the English equivalent of things that I really want to say in Mende. For example, in Mende, you wouldn't say 'night came suddenly'; you would say 'the sky rolled over and changed its sides.'
+- The places I come from have such rich languages, such a variety of expression. In Sierra Leone we have about fifteen languages and three dialects. I grew up speaking about seven of them.
+- I grew up as a Muslim. I went to an Islamic elementary school. Most of my community was Muslim, so I grew up praying five times a day.
+- I was one of those children forced into fighting at the age of 13, in my country Sierra Leone, a war that claimed the lives of my mother, father and two brothers. I know too well the emotional, psychological and physical burden that comes with being exposed to violence as a child or at any age for that matter.
+- I believe in having a more open mind and including others who don't share your faith and having dialogue with them. And just having a pure heart and being a good person can bring you closer to God. Because once you believe in one particular religion fully and not others, that requires you to start disliking people who don't share your views.
+- What happens in the context of war is that, in order for you to make a child into a killer, you destroy everything that they know, which is what happened to me and my town. My family was killed, all of my family, so I had nothing.
+- I had a very simple, unremarkable and happy life. And I grew up in a very small town. And so my life was made up of, you know, in the morning going to the river to fetch water - no tap water, and no electricity - and, you know, bathing in the river, and then going to school, and playing soccer afterwards.
+- A lot of people, when they say 'forgive and forget,' they think you completely wash your brain out and forget everything. That is not the concept. What I think is you forgive and you forget so you can transform your experiences, not necessarily forget them but transform them, so that they don't haunt you or handicap you or kill you.
+- I believe that there is a God, and coming from an African tradition, I believe also that there are gods.
+- In early 1993, when I was 12, I was separated from my family as the Sierra Leone civil war, which began two years earlier, came into my life.
+- We all have that capacity to lose our humanity when circumstances force us to do so. It's not specific to people who live in Africa or Latin America or Asia. And equally, we are capable of regaining ourselves.
+- It's exhausting writing nonfiction, particularly when it's personal. It's tiring, always speaking about things that are not necessarily fun retelling.
+- As a kid in Africa, you were so connected to nature itself because you went farming, watched the moon out at night, observed how the sky was different, and how the birds chanted different songs in the evening and the morning.

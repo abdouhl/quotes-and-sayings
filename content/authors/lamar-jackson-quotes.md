@@ -1,0 +1,85 @@
++++
+author = "Lamar Jackson"
+title = "Lamar Jackson Quotes"
+quotes_len = "79"
+description = "the best 79 Lamar Jackson Quotes"
++++
+- I've been working very hard for a long time.
+- I just keep myself focused and try to prepare each week for our games.
+- I'm mobile.
+- If I have to run, I'll do it, but I'd rather just sit back and pass it.
+- I want to be great.
+- I'd rather throw than run.
+- I like throwing touchdowns instead of running them.
+- Even in high school, I was balanced. It's just that my run plays were dynamic.
+- Nine times out of 10, I'm trying to score if I do decide to run.
+- You just have to stay humble.
+- I hate losing. I hate that feeling.
+- If I miss a pass at practice, I'm ticked off.
+- I love to put the ball in other people's hands.
+- You can have all the stats in the world, but if you're losing, you're probably not going to get talked about. Probably will, but not in a good way.
+- It's OK, but I'm trying to win the Super Bowl and take it one game at a time. I'm not worried about MVP, you know? If it comes, it comes.
+- My teammates have my back; I have theirs.
+- I'm strictly a quarterback.
+- To the Heisman voters, I'm truly honored and humbled to be the 2016 Heisman Trophy winner.
+- You just go in and play with confidence and try to come out with a victory. That's the goal.
+- Knowing my mistakes and being able to go back to fix them - that helps me out a lot.
+- I can lead my team.
+- I used to play with all the older guys. I never played with, really, my age group when I was younger.
+- There's always room for improvement.
+- I like my chances over anyone one-on-one.
+- I just want to go wherever they want me at.
+- I don't mind sitting behind Tom Brady. That is the GOAT himself.
+- I always try and be perfect in practice.
+- I feel like I'm a field general when I'm out there.
+- Like I said before, I'm trying to win at the end of the day.
+- Baltimore loves the players and we appreciate it. We love them back.
+- I feel like my hand will be a little too high on the football sometimes and that will make the ball go out of whack sometimes.
+- No teams have asked me to play wide receiver.
+- Sometimes, you just have to take what the defense gives you.
+- I want to win games. I want to win Super Bowls.
+- I can hit any target on the field.
+- I came from a high school where I didn't have a playbook or anything like that. Coach would draw it up and get the headset on, and we'd go after it.
+- Getting in my head and talking trash, that's not going to work.
+- Nine times out of 10, if you win the game, it starts with the turnover battle.
+- I love to score.
+- I focus on myself and my teammates. I don't really care about what other people have going on, to be honest.
+- I hate running. Only if I have to, but my job is to get the ball to the receivers, the tight ends, running backs.
+- I hope people know I can throw now.
+- I just got to do what I have to do to make it possible, and that's to win the Super Bowl. When it comes, the doubters gon' still be there so it really don't matter.
+- I want to learn a lot.
+- On one-on-one, I'm either trying to get the first down or trying to score.
+- I'm not a ball hog at all. It may look like it, but I'm not.
+- I don't wear socks with loafers!
+- My concern is on winning.
+- Every quarterback's goofy. Every player out here is goofy. Don't think they're all serious.
+- If you win the Super Bowl, you're the G.O.A.T to me.
+- I just love winning.
+- Michael Vick is my favorite player.
+- Be happy. God gave you a breath to breathe every day. You don't need to be mad about nothin'.
+- It's all about winning. That's what it's all about.
+- I stand in the mirror, look at the plays and try to say them to myself to get ready for the next day.
+- You've got to do it in practice first.
+- Sometimes, they do a great job covering everyone downfield, so you just have to checkdown and hit a tight end to convert. That's just how we play ball.
+- I'm trying to win the Super Bowl. That's a team award and that's what I want.
+- Michael Vick can pass.
+- I know I can throw.
+- I've faced adversity throughout my whole life.
+- I'm just trying to win. That's all that matters.
+- People look at my legs and they see I can make big plays, but they don't really see my arm, and I make big plays with my arm.
+- That's what my job is; just get the ball to my guys.
+- I noticed a lot of dual-threat quarterbacks in the shotgun or in the pistol, a lot of them don't last forever. I want to be in the pocket.
+- I'm cool, man.
+- I usually eat cereal every morning.
+- I'm a quarterback at the end of the day. I want to prove that each and every day I go out and practice.
+- If you're winning Super Bowls, things like gold jackets can follow.
+- I want to leave a great legacy behind, not just be a quarterback drafted in the first round who doesn't produce.
+- You need guys who can run and throw.
+- I play football. It's about winning games. It's not about who can talk trash the most.
+- I have to put my team in a good situation.
+- I love the game with a passion.
+- I'm still growing each and every day. I'm trying to become a better person, a better player and an all-time better QB.
+- I already said it when I got drafted: I wanted to bring a Super Bowl to Baltimore.
+- There is a chip on my shoulder, both shoulders, yes sir.
+- I love the game of football.
+- I love putting a chip on my shoulder. It's just more motivation to go out there and show my ability.

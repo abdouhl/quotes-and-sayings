@@ -1,0 +1,111 @@
++++
+author = "Chris Evans"
+title = "Chris Evans Quotes"
+quotes_len = "105"
+description = "the best 105 Chris Evans Quotes"
++++
+- Acting is a trial-and-error business. Every actor has a few movies on their resume that they're not terribly proud of, but that's how you learn.
+- What if I couldn't handle people's opinions of me? I know that shouldn't dictate a person's degree of peace or happiness in life, but the problem is, I chose a business saturated in judgment.
+- If women feel they are able to go from partner to partner without feeling emotionally invested and ultimately hurt, they should go for it.
+- If I read the right script, if that script needs $5 million, if that script needs $50 million, I don't care. If I read a project that's beautiful, that I really want to make, whatever it needs, it needs.
+- I'm not trying to steal the show. I tend to shy away from - I don't want to say the spotlight - how about responsibility? It's just very daunting. These movies are very intimidating. 'Captain America.' This is the stuff I struggle with.
+- Growing up, I really liked 'Star Wars.' Han Solo would've been really cool to meet. But my stuff was real low-brow. I was watching 'Bugs Bunny.'
+- I always say that the times in my life when I've been happiest are the times when I've seen, like, a sunset.
+- I like pursuing new endeavors. That's part of the reason I wanted to direct. I like to create things. I'm a Gemini. I'm always looking for something new.
+- I'm a romantic. I like romantic movies.
+- I love having a shaved head. I'd rather not deal with hair if I don't have to. I like not thinking about it. A shaved head and letting my beard go requires the least amount of anything.
+- For a long time all I wanted for Christmas were books about outdoor survival. I was convinced that the woods were calling me. I camped a lot, I took classes. At 18, I told myself if I don't live in the woods by myself by the time I'm 25, I have failed.
+- I've been able to make films over the past 10 years but still maintain my anonymity.
+- You know, the reward for 'Captain America' is amazing. It's always fun to see a giant spectacle film and see the fun stuff - the special effects.
+- Any time you make a movie where you're living in a certain head space for an extended period of time, it's tough not to take a little piece home with you.
+- The Internet is a big place where a lot of people can voice their opinions, and my mother chooses to pick fights with random people from all over the world who don't have the nicest things to say about me.
+- I can handle the craziness some of the time, maybe most of the time. But I know I can't handle it all of the time.
+- What do I geek out about? What am I? Hmmm. I love movies. I watch movies. I like big, sweeping epics, like Ed Zwick stuff: 'The Last Samurai,' 'Legends of the Fall,' 'Blood Diamond,' 'Glory.'
+- If you're strutting around Beverly Hills and hitting up these big industry parties every night when you're not making movies, then it's going to eventually consume you. But for me, I live most of my life in Boston. I do things no different from the way my buddies back home do them, except when I go to work, I go to a film set.
+- I am just enjoying my youth but I want to settle down eventually.
+- There was a little less pressure to be fit on 'The Avengers' than 'Captain America.' I had just finished 'Captain America,' so I was already built. Plus, 'Captain America' has that one scene dramatic scene where my transformation is revealed. 'The Avengers' has not one shirtless scene.
+- Every guy I know has some sort of freak injury in their body.
+- I was dumped at my senior prom - I was 18 and in love. We danced all night, then she got back together with her ex. It broke my heart.
+- I'm a big fan of working out on my own. I put my headphones on and I'm pretty good at self-motivating. At the end of the day, I enjoy it. Once I'm there and once I get going, I tend to love it, and I feel good.
+- With the second 'Captain America,' we really pushed the envelope in terms of what this guy is capable of, which I was excited to see. Because in the first 'Captain America,' he's just strong. In 'Avengers,' it was still, in my opinion, a little bit 'punch, punch, kick, kick.'
+- There was one film that I really wanted. This was a long time ago; it was a film called 'Fracture.' Ryan Gosling ended up doing it with Anthony Hopkins. It wasn't a giant box-office success, but I really enjoyed the script, and I enjoyed the character. I got pretty close and was kind of disappointed it didn't go my way.
+- The comic book world is so dangerous, you know what I mean? You say one thing and people - they're ravenous - they are very opinionated fans. But they're great fans.
+- I weep at everything.
+- I really love the sound of my dog snoring.
+- I love acting. It's my playground; it lets me explore. But my happiness in this world, my level of peace, is never going to be dictated by acting. My goal in life is to detach from the egoic mind.
+- There's, you know, there's an ideology behind Ultron that makes him more unique that just a bad guy. He doesn't wanna just kill the Avengers. He doesn't wanna just destroy the world. He has these monologues and these beautiful speeches that kind of embody a certain mentality about what's wrong with humanity.
+- I have a pretty fast metabolism, so I don't really have to worry about getting pudgy. What I try to do when I'm working out is taking in a lot of heavy protein - clean chicken, clean meats.
+- Everything that Marvel does, it's a chess move. Nothing is by accident.
+- As an actor, acting is like playing a sport. You do this thing that's intangible, and while it's happening, it's great. But then when it's done, there's really no tangible product. Someone else is capturing it and turning it into something tangible.
+- With 'Captain America,' you might have three lines of dialogue the whole day. And there are just a million angles and a million set-ups, and it's tedious.
+- I've read a hundred fantastic scripts that didn't pan out as films, and I completely put that on the directors. I've also read some mediocre scripts that have ended up being amazing, and I credit that to the directors. They're the storytellers. If you don't have a good storyteller, you really have nothing.
+- I had no idea there were so many ways you could burn yourself out.
+- My 20s was a time for self-exploration and, okay, a little self-indulgence.
+- With physical prep work, you know if you go to the gym, you will get size. There's no chance it won't happen. The emotional prep work is a variable. You could step onto the set one day and have a disconnect with your thoughts and feelings and have a rough day acting because you can't quite tap into what you need.
+- Men and women aren't too dissimilar.
+- If you want to be around in 10 years you've got to do something to differentiate yourself from the pack.
+- I really like women who get emotional about babies and puppies. I've met some incredibly cool women who are tough, but the woman you marry should have a really soft side.
+- When you do one movie at a time, if one goes crazy and becomes successful, your life changes. But you can step back and catch your breath.
+- Nothing is worse than a beautiful girl fishing for compliments by saying how gross she is. On the flip side, I find genuine humility and modesty attractive.
+- I've managed to do movies and still keep a lifestyle where I can go to ballgames, go to a grocery store like everybody else.
+- I like wet hair and sweatpants. I like sneakers and ponytails.
+- I wish you could see some of the girls I have genuinely had crushes on in my life. They're not the girls you would assume.
+- I feel like my style's always been influenced by 'less is more.' The coolest styles are kind of simple and classic, like a white T-shirt and jeans. Maybe you have a cool belt and cool shoes, but everything else you keep simple.
+- I'm much more starstruck by athletes than I am by actors, and I think I saw Kobe Bryant at a basketball party, and I just kind of froze. He's monstrous.
+- It seems like the studios are either making giant blockbusters, or really super-small indies. And the mid-level films I grew up on, like 'Back to the Future' and all those John Hughes movies, the studios aren't doing. It's hard to get them on their feet.
+- I don't keep a journal.
+- I always say I should do more yoga. Or do yoga - more would mean I do some. I've done none. But I always want to do yoga because I'm getting old. Nerves are getting pinched every other day, and I really just gotta get more limber.
+- I didn't realize - you think you are doing a movie but then you realize it's a Columbia Pictures movie so it's probably going to have some publicity. Then you see a billboard and it's like, 'God! I'm on a billboard!' It doesn't hit all at once, it kind of unravels itself and it's still unraveling.
+- I like girls who aren't so la-di-da. L.A. is so la-di-da.
+- I don't know any form of art or entertainment that can affect people the way movies can. I know it sounds ridiculous, but they can change your world. They can change your views.
+- I really like people who have the gift of the gab. I like characters that are very eloquent, articulate and confident in what they're saying. Especially coming off 'Captain America,' who's very internal and intimate, I'd love to play someone who wears their emotions on their sleeves, potentially to a fault.
+- The past is the past, but if you're overanalyzing or trying to repeat it, you're gonna get stuck. I just had a wonderful youth, and I loved everything about it, so I really try and hang on to it.
+- If you're walking down the street and you smell a scent, it can take you right back to a memorable time in your life, whether it's a moment with an ex-girlfriend or a childhood event.
+- What did people do prior to cell phones? Read a book? If I'm stuck in a car, and I don't have my phone, I'm like, 'What am I doing?' Car rides used to be one of my favorite things.
+- Everybody goes and sees 'Fantastic Four,' but nobody sees 'Sunshine.' I'd have a different career if people saw that.
+- My worst hairstyle was a bowl cut parted down the middle. It was the '90s. It was what you did. I had that from 4th grade until freshman year in high school. I'm glad the pictures exist. I had great hair back then.
+- At the end of the day, you're handing your performance over. If a director says after a take, 'You know what, try it just really angry. Just get furious'... you're like, 'Well, I don't know if I want to give you that because I don't know if I trust what you're going to do with it.'
+- I like the feeling of making things. It's very very rewarding. And filmmaking is that type of experience, where you're forced to collaborate with so many people. You're involved in the beginning to end, you're involved with so many elements, and when it's done, you're like, 'I made this movie.'
+- I had eel at a sushi bar once; it's disgusting. I thought it was chicken. It looked like chicken. It was brown and looked delicious, and I was like, 'That looks safe.' It wasn't.
+- I really try to spend as little time as possible on grooming. I think if you have a good moisturizer and a solid razor to clean up the beard, you're golden.
+- I decided to make 'Captain America' because I realized I wasn't doing the film because it terrified me. You can't make decisions based on fear.
+- If I do cardio I'll disappear.
+- I'm not that great with press sometimes.
+- All my good movies, nobody sees.
+- For the youth, the indignation of most things will just surge as each birthday passes.
+- My mum fought for feminism in her day so instilled in me the importance of equality. She taught me so much about women.
+- Look at pictures of me growing up. It wasn't always the way it is now. It was a bumpy road for me.
+- I think diamonds represent luxury, indulgence, and class. So any time you can incorporate a gift that is synonymous with all those attributes, you know the other person will love it. I would challenge someone to find something that better represents Valentine's Day more than diamonds!
+- Just the life of doing what I do, being in the public eye, it's a stressful environment... You feel strange, self-aware, very foolish. Your third eye clicks on, just to try to maintain a healthy sense of perspective, and you think, 'What am I doing here? I'm just making a movie, and people want all these things from me.'
+- My family is certainly very vocal. They're very Italian. A lot of our holidays end with people screaming at each other across the room. And everyone's very opinionated and intelligent. A lot of my aunts and uncles are wildly educated, and their opinions reflect that. We're all very liberal.
+- The point is that when I see a sunset or a waterfall or something, for a split second it's so great, because for a little bit I'm out of my brain, and it's got nothing to do with me. I'm not trying to figure it out, you know what I mean? And I wonder if I can somehow find a way to maintain that mind stillness.
+- If I'm acting at all, it's going to be under Marvel contract, or I'm going to be directing. I can't see myself pursuing acting strictly outside of what I'm contractually obligated to do.
+- I weep at everything. I love things so much - I just never want to dilute that.
+- Our house was like a hotel. It was a loony-tunes household. If you got arrested in high school, everyone knew: 'Call Mrs. Evans; she'll bail you out.'
+- My mum told me that the best thing you could give a woman was attention.
+- The trick is, when you try a good pair of jeans on, you may not think they're that great, but you wear them two months, and they become your favorite jeans. They're tricky. You gotta let them live.
+- Fame is a funny thing. I like doing normal things. I like going to fairs. I like going to ball games. I like going to Disney World or a big field on the Fourth of July and having picnics with friends. The problem is you're either worried you're going to be recognized, or you're thankful you're not. It's always there.
+- I think that, in the beginning, you think, 'I want to be the biggest movie star in the world.' And then, with the more movies you make, you are like, 'I don't know if I want to be that anymore. I think what I am looking for is something different.' I like acting, but a lot of times, stardom comes with a lot of strings attached.
+- I love getting to be in 'The Avengers.' You just breathe a little bit. It's not all about you. It's so nice to have other people bearing the burden of responsibility.
+- I'm a pretty decent tap dancer. I enjoy all types of dancing, actually.
+- I've been lucky enough - well, maybe unlucky enough - to have had a lot of friends who have had their ups and downs. And for an actor, that's good. Life experience in any regard is good. So I've seen a lot and I've had my own experiences.
+- But my happiness in this world - my level of peace - is never going to be dictated by acting.
+- I hung out with the jocks. It doesn't mean I necessarily was one. I was just kind of there.
+- I always wanted to see why Captain America was on this team of Avengers. He's got to have a reason - he can't just be really fast and punch really hard.
+- I love acting. It's my playground, it let's me explore. But my happiness in this world - my level of peace - is never going to be dictated by acting.
+- You want to strike that happy medium: the balance of being able to find creative satisfaction in your profession, be able to afford a roof over your head, but still have the freedom to live a relatively normal life.
+- The majority of the world is empty space. Empty space, empty space, empty space. All that we see in the world, the life, the animals, plants, people - it's all empty space. That's amazing!
+- I am single and not looking to be in a relationship.
+- If your goal is to be the biggest movie star in the world, a 10-movie contract is gold. It was never my goal. Up until now, I made movies - and I have a nice house, a nice car. I'm fortunate, happy and grateful. Life is good.
+- I like human stories. I like stories about situations we can relate to. I like movies like 'Ordinary People' or 'Terms of Endearment.' Mothers and daughters, fathers and sons, boyfriends, girlfriends. The stories to me that are worth telling are almost simple ones, but very relatable.
+- I like girls who are self-deprecating. I like girls who make fun of themselves. If you can't poke fun at yourself, what are you? I just want someone with a good soul. That's about it. The rest I'm really flexible on.
+- Anyone who's had a tattoo knows once you get your first one, as you're walking out the door, you're planning the next.
+- I hate myself in interviews. All of a sudden, you stop and you're like, 'Chris, how dare you?' I don't live in Darfur. I have both legs. But you can't walk around all the time being like, 'I'm so grateful I'm not in Darfur.'
+- The funny thing about directing is that you have your own opinions, but it's a collaboration. Directing is a group effort. Even though you might think something works, the smartest thing you can do as a director is try and weigh the opinions of the people around you.
+- When I found out I had to take off my shirt in 'Teen' movie, I panicked and hit the gym. I was like, 'It's going to be on film, documented, for my children to see. I can't be 140 pounds. I need to put on a little bit of muscle.'
+- I'll say initially acting was my first love, and that's what I pursued. But then, so far as even my first day on a film set, and just watching how things were set up, I just said, 'I think I want to be in charge.' I am very much type-A. I am a bit of a control freak.
+- I swear to God, if you saw me when I am by myself in the woods, I'm a lunatic. I sing, I dance.
+- I am sure every movie I've made, even as an actor, had multiple test screenings. And I am sure there have been horrible things written about me. But I never have to see them!
+- I emote. I love things so much.
+- I like 'Notting Hill.' If you can do a movie that's simple, but do it well, there's room for that.
+- If making movies was easier, there'd be a lot more good movies. So you kind of learn that if it's just a good script, or if it's just a good producer, that's not always enough. You need an entire team of creative people coming together.

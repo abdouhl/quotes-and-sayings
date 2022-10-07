@@ -1,0 +1,17 @@
++++
+author = "Rick Bright"
+title = "Rick Bright Quotes"
+quotes_len = "11"
+description = "the best 11 Rick Bright Quotes"
++++
+- We have offshored a lot of our industry for critical supplies, critical health care supplies, and critical medicines to save money.
+- Containment doesn't work. Containment does buy time. It could slow. It very well could slow the spread. But while you're slowing the spread, you better be doing something in parallel to be prepared for when that virus breaks out.
+- Well, I have been trained my entire life to recognize these outbreaks and recognize viruses. I have a Ph.D. in virology.
+- If we fail to develop a national coordinated response, based in science, I fear the pandemic will get far worse and be prolonged, causing unprecedented illness and fatalities. Without better planning, 2020 could be the darkest winter in modern history.
+- I am not disgruntled. I am frustrated at a lack of leadership. I am frustrated at a lack of urgency to get a head start on developing lifesaving tools for Americans. I'm frustrated at our inability to be heard as scientists. Those things frustrate me.
+- While I am prepared to look at all options and to think 'outside the box' for effective treatments, I rightly resisted efforts to provide an unproven drug on demand to the American public.
+- My professional background has prepared me for a moment like this - to confront and defeat a deadly virus that threatens Americans and people around the globe.
+- Rushing blindly towards unproven drugs can be disastrous and result in countless more deaths.
+- I have spent my entire career in vaccine development, in the government with CDC and BARDA and also in the biotechnology industry.
+- Specifically, and contrary to misguided directives, I limited the broad use of chloroquine and hydroxychloroquine, promoted by the Administration as a panacea, but which clearly lack scientific merit.
+- I am very grateful for the bipartisan support from Congress and their confidence in my leadership of BARDA as reflected in the generous appropriation to BARDA in the CARES 3 Act.

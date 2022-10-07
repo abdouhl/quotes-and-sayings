@@ -1,0 +1,19 @@
++++
+author = "Chris Patten"
+title = "Chris Patten Quotes"
+quotes_len = "13"
+description = "the best 13 Chris Patten Quotes"
++++
+- In democracy everyone has the right to be represented, even the jerks.
+- I think that if politics is just about getting your backside on important seats, then it's a pretty worthless endeavor.
+- I suppose I've always carried what is regarded as a bit of unnecessary baggage in Britain. I've always carried the charge that I am an intellectual in politics.
+- In a democracy everybody has a right to be represented, including the jerks.
+- But the ability to articulate what you are doing, to be clear about it, and to stick to it is, I think, the essence of political leadership.
+- I don't think that capitalism should be unbridled, if by 'unbridled' you mean unregulated.
+- Green politics at its worst amounts to a sort of Zen fascism; less extreme, it denounces growth and seeks to stop the world so that we can all get off.
+- It is almost always wrong that the time isn't ripe to decide something. That is always said of difficult problems.
+- Undoubtedly, at the moment, the major cause of CO2 emission is what happens in developed countries.
+- So, what I say to people is that politics has got to be about principle and values above all. Of course, there are times when you have to make accommodations.
+- It is a sort of great Victorian truth that actually, trying to do the right thing is pretty good for you and pretty good for business as well, by and large.
+- I believe in trying to get a balance between individual freedom on the one hand and social responsibility on the other.
+- I think that what most surprises anybody who goes into politics from even a modestly cerebral background is the vulgarity of much of the cut and thrust of politics.

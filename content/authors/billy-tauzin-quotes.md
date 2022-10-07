@@ -1,0 +1,18 @@
++++
+author = "Billy Tauzin"
+title = "Billy Tauzin Quotes"
+quotes_len = "12"
+description = "the best 12 Billy Tauzin Quotes"
++++
+- I think we lost a great deal of sympathy and support with the way in which the crisis was handled, most importantly I think when we appeared to be grasping for too much at one time instead of identifying our priorities in a much more responsible fashion.
+- You probably have to have redundant levee systems with canals in between them, like the Dutch have, to make sure that incoming water is channeled off to areas where you deal with it rather than have it drown you.
+- Invite the best and brightest to compete for a grand prize to come up with designs, including new zoning, building codes and so forth, for New Orleans that could make it safe from water, and let the state and city pick the plan that works best for Louisiana.
+- I think the industry finally gets it. They've lost the connection with the American public, and they've got to rebuild the trust with the American public.
+- Venice, Italy, survives 365 days out of every year in water; New Orleans can survive a few days of water if it has to.
+- The immediate, highest priority need, in my humble opinion, is that we build quickly the interim structures that can channel water away from population and businesses in the New Orleans area.
+- New Orleans has to learn to live with water rather than in fear of water, and we need a master plan that shows us how to do this. It's so critical that we send a signal to everyone in the country that we're serious about rebuilding New Orleans.
+- The timing was terrible, and having one disaster after another didn't help. I think the pictures on television of the way in which the disaster was handled also helped to turn off the public and Congress.
+- The question is what I wanted to do with the new life God has given me. This is the mission I want to take on.
+- Some 70 percent of Americans donated to Katrina victims.
+- I was treated with a miracle drug, just like Lance Armstrong.
+- And if citizens of New Orleans who are really contemplating coming back heard that we're really intent upon making the place secure again - regardless of whether the levees held or not - then I think a rebuilding process would really take shape.

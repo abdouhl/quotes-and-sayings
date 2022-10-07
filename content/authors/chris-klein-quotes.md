@@ -1,0 +1,18 @@
++++
+author = "Chris Klein"
+title = "Chris Klein Quotes"
+quotes_len = "12"
+description = "the best 12 Chris Klein Quotes"
++++
+- Actually, I always dreamed about getting a gold medal in the 100-meter freestyle in Olympic swimming. I always thought that would be the epic award in sports to get.
+- Every opportunity that comes your way, you can't take lightly. You have to take it very, very seriously, because the opportunities are limited. If you want to keep working, you can't be such an elitist, to say no, that's not good enough, not big enough, not smart enough, whatever.
+- Well, acting has been a dream of mine since I can remember; being in the movies and acting, having those experiences.
+- There are a million roles I haven't played yet that I would love to play!
+- When I started in the late nineties, it was all about young Hollywood. There were jobs for all of us if you were 18 to 21, were slightly good looking, or could be funny.
+- You know, I consistently change in my own life so the roles I'm suitable for also change, and that's a really nice thing about this profession.
+- I love being an actor, and that's really the bottom line - in any medium, in any genre - and I want to do it.
+- Well, there's nothing better than putting your feet up on a Sunday afternoon and grabbing a good book.
+- I've been a huge fan of the cable network FX for a very, very long time. I think their brand of comedy is incredible. For me, as an audience member, that's a go-to channel.
+- 'Election' made zero money at the box office, but it started my career.
+- There's a certain thought process about actors that they are in Hollywood and they sit around pools and get suntans and just get offered jobs.
+- For me, I've always been one that reads a script and has been ready, wiling and able to go out and fight for parts.

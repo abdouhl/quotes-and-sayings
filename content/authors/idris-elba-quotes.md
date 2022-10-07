@@ -1,0 +1,81 @@
++++
+author = "Idris Elba"
+title = "Idris Elba Quotes"
+quotes_len = "75"
+description = "the best 75 Idris Elba Quotes"
++++
+- I did green screen for the first time! I wouldn't like to do a whole movie of green screen, though. You kind of forget the plot a little - like being in a Broadway play and doing it over and over and forgetting your line halfway through.
+- I'm not interested in making all-black films - I come from a very diverse culture; I want to work with every type of person. I work a lot with women executives because they seem to be a lot more open minded about that and a lot more progressive in that way.
+- When I look at my body of work, I've played a lot of characters who are morally conflicted - 'I'm right, no I'm wrong, I don't know what to do!' I want to play more characters who don't care as much, and who aren't as measured. They are what they are, no apologies.
+- It was deeply important for me to understand where Mandela came from. Because we know where he was going, and that's a famous story, but who was he? Where did he come from? What was his upbringing?
+- White actors still get way more money in Hollywood. It's been that way for a very long time. I hope it'll change, but it's a matter of forcing that change.
+- I was always a real athletic kid. Then when I got older, I just figured it was part of life to keep training.
+- I was cast in 'Thor' and I'm cast as a Nordic god. If you know anything about the Nords, they don't look like me but there you go. I think that's a sign of the times for the future. I think we will see multi-level casting. I think we will see that, and I think that's good.
+- The only thing I change mainly is my sneakers. I love sneakers. But everything's sort of black or jeans. Jeans, always.
+- Every single film I've done, it's about the character.
+- I'm a little sheepish about it. Whenever I meet fans and they're like, 'Oh, you're so sexy,' I just don't get that. There's no way one man can be universally sexy.
+- I'm an ambitious person. I never consider myself in competition with anyone, and I'm not saying that from an arrogant standpoint, it's just that my journey started so, so long ago, and I'm still on it and I won't stand still.
+- The adrenaline feeling of jumping out of cliffs and bikes and all of that is very specific to the film. In 'Pac Rim' I'm not doing that so much. There isn't that touch stonework for me in it, but there is a lot of action.
+- I was really ambitious, so I was innovative. I was one of the first DJs to do live calls, 'cause I found this phone device that would pick up other people's voices.
+- Because I was big, I didn't have to listen to anyone doubting me. I was just considered good at football or whatever, there were no questions about it.
+- I lived in America for a long time before I started working as an actor. Some actors show up on set and have never done an American accent before, so they rely on a slew of technical mechanisms. Part of what makes an accent is understanding why people speak that way - you have to understand the culture.
+- Not obsessed with particularly Nike, but sneakers in general. I love them.
+- You know, film is the ultimate goal in an actor's career. I mean, I still love TV. I have my feet firmly stamped in it. But my opportunities have been bigger and better.
+- It's actually quite criminal how 'The Wire' was systematically ignored.
+- I think 'The Wire' really is relatable. It reflects an ongoing issue across America, about inaccuracies in major cities between rich and the poor and some of the things that go on behind the red tape of council and government bodies.
+- The less I talk about being black, the better.
+- I get criticized for taking roles in films like 'Ghost Rider 2', but if you look at my resume, dude, I've mixed it up as much as I can.
+- Africans, we hold on to our youths and whip them into shape.
+- If you are going to call a film a 'black film' then you have to make a film that represents everyone that's black, which is almost impossible. That is why white films are not called white films, they are just called 'films.'
+- Sean Connery wasn't the Scottish James Bond and Daniel Craig wasn't the blue-eyed James Bond. So if I played him, I don't want to be called the black James Bond.
+- It could be Grammy night, Oscar night, whatever - I don't feel the pressure to be there.
+- There's the argument that you can relate to someone who's completely unrelatable. In the way that a director shows you his imagination on a film, then I get to show you my imagination in a big dumb character.
+- If I was gonna go to jail, I don't want to go to jail for stealing a bottle of water. I'll steal that $20 million. At least then it was worth it.
+- I tend to stay away from the comics.
+- I try to fit in workouts whenever I can.
+- I've been DJing mostly, and most DJs end up producing. That's just me.
+- There's a fast-track if you can do the networking. For some personalities it works, but for mine it doesn't.
+- I want to go to Sierra Leone with something - whether it's some sort of contribution to healthcare, or to the entertainment industry. My cousin is a nurse; we are talking about opening a clinic.
+- I'd rather a young black actor read about success as opposed to how tough it was. I get these roles because I can act and that's it. Hopefully that's it.
+- It's weird because my parents don't really understand my business. I get fan mail all day long, but if a piece happens to get to their house, they're like, 'Oh, my God, you've got a fan! You have to write them back. You have to do it!'
+- I still sing on bits and pieces. Singing's something that I love to do, but it's not something that I pursue as a career.
+- I'm rebelling against being handed a career, like, 'You're the next this; you're the next that.' I'm not the next anything, I'm the first me. I can't be myself, I can't just be Idris Elba. But that's just the nature of the business.
+- In some countries, no one knows who Idris Elba is.
+- There has been a big debate about it: can a black man play a Nordic character?
+- The role of my agent has just been to get me in the room. If I can get in the room - say the character is just a charming man who lives next door - then I'll walk in there and be as charming as I can and they will think to themselves, 'I don't see why we can't cast him.'
+- It's really funny because the same people who loved me as Stringer Bell were the same people that were watching 'Daddy's Little Girls' literally in tears.
+- I've never had to explain 'Prometheus' to people, ever. Most people get it.
+- Twenty or 30 years from now, I'm going to be on a beach in Jamaica.
+- Every leading lady I work with, I'll see if I can get a song out of them and put it on an album.
+- I don't have a place that I call home at the moment because there's no point. I mean, I'm a traveling circus for a while. It's weird. Like, if I wanted to go home, there's nowhere to go. I just go to a hotel. But I've kind of gotten used to it.
+- I did a rendition of 'Billie Jean' which is on my Soundcloud. I put it on Twitter, and it got about 3000 hits that day.
+- If you go to Africa and you're white, you're probably not going to get that much work either. But the fact is that there is a longer history of black integration in the U.S. I don't have any resentment about this: I did the maths, calculated it against my ambition and decided to leave England.
+- The English are good at bad guys - the James Bond-style villain, cunning, slow-burning. The Americans are much more obvious about it.
+- I was into Spider Man when I was a kid and that was the only comic I've ever read.
+- The long and short of it is that I am now in a position in England to green light movies, and that's really excellent - not high-budget movies, but movies none the less.
+- I was on a well-beaten path of actors - what we all call 'the Law and Order route'. I spent two years of auditioning for everything... and then 'The Wire' came up.
+- Television has shied away from being too dark, because so much has happened to us recently here in the West, and people are sort of wanting to see more uplifting sorts of things.
+- What really excites me in a project is when it goes in a way you haven't been before.
+- I love to play different roles. That's just the kind of actor I am.
+- People expect me to be that guy. But I'm more east London boy than east Baltimore.
+- The one album I can't live without is called 'Cumbolo' by a band called Culture. Every song on their album is deep, but there's one in particular called 'This Train.' I have a tattoo of the lyrics on my left arm.
+- You watch yourself age and it's hard to feel like a sex symbol.
+- I've always had ambition, and the acting was successful and put my name on the map, but it was never the plan to stop there.
+- Whether it's music or acting, that creativity all comes from the same source.
+- I'm tactile, very tactile. A woman who has really nice, looked-after skin is such a turn-on for me. It's always sexy.
+- I would never be fearful of any character.
+- I have one of these bodies. When I was younger, I could never put weight on, and now that I'm a little older, there's a natural sort of chubbiness coming. But honestly, if I work out for a week, it drops off in no time.
+- Are there differences between black actors' opportunities and white actors' opportunities? Yes, there are. It's been said.
+- Now there are certain things you have to prepare - like dialect and special skills. But in the moment, interaction between two characters on the page doesn't need - for me, I don't need to prepare that.
+- Yeah, I know, any time you hear an actor say, 'I do music', you cringe. But I want to be gradual with my music. I want to earn my stripes.
+- I love bikes. I used to own one, but I fell off it when I was younger and that was the end of my bike riding days until now.
+- I don't get recognised that much yet in London, but when I do I get a real sense of achievement.
+- I knew that if I wanted to be all I could be, I would have to go to the U.S. It took three years to get the accent right.
+- I think there's a tendency for actors like myself, and I don't mean to generalize myself, but I've played 'men's men,' if you will, characters that are simmering rage and calculated. There's a trend not to play anything that is opposed to that.
+- I've always been DJing; it's just I'm making more of a push for it, making it more public.
+- Bond? It is a bit like saying, 'Do you want to play Superman?' Anyone would dream of it. It's one of the most coveted roles in film. I'd be honoured. But I don't know if it will actually happen. I'm just happy with the idea of being associated with it. It's nice there's a lot of good will.
+- In 'Pacific Rim' I had to have a haircut I wouldn't usually rock. However, the moustache I had in the film - that might have to come out again. It was a good moustache. Good times.
+- I wasn't bad at school, but I was never a bookworm.
+- As an actor, you're trained to do the right thing, be politically correct, say your lines, say the right thing about the people you're working with.
+- When I was a kid, I thought it was tough.
+- Apparently, Daniel Craig said I'd be a great Bond. Daniel, why did you say that? Dropped me right in it! What an honor it would be, but also, what an indication of change.

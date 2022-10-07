@@ -1,0 +1,33 @@
++++
+author = "Ben Hardy"
+title = "Ben Hardy Quotes"
+quotes_len = "27"
+description = "the best 27 Ben Hardy Quotes"
++++
+- I just wanted to get out there and do different roles and try new things.
+- For a while, I didn't want to leave the house. Eventually, I just got sick of being indoors. Now I take steps not to be noticed when I don't want to be. For instance, I live near Westfield shopping centre, so I won't go there at the weekend.
+- There's one scene where I took my t-shirt off. I was wearing a t-shirt and a hoodie, and I took my hoodie off and took my t-shirt off to give to the girl because she got her top dirty or something. It was like, why don't I just give her my hoodie - that makes no sense whatsoever! I just took off another layer just to take my top off.
+- I have got a lot of respect for Arsene Wenger but, reluctantly, I am in the 'Wenger Out' campaign.
+- Working on 'X Men,' I got to do a lot of flying and fighting, which was good fun.
+- It's great to be up for 'Best Newcomer' and 'Sexiest Male.'
+- On stage, you rehearse for five weeks, and it goes out to 300 people. In 'EastEnders,' you get ten minutes to rehearse, and seven million people watch it!
+- It's crazy. I couldn't believe it going from 'EastEnders' to 'X-Men.' I was just looking to leave and get any job, so when I actually got the job, I was in dreamland.
+- I don't regret being topless in certain things, but there were some things in 'EastEnders' where there was no reason for me to be topless.
+- I didn't actually grow up in London.
+- It's been great; the whole experience was surreal to me. To go from 'EastEnders' to 'X-Men' was like a dream. I could never have thought when I left 'EastEnders' that I would get this good a gig and so soon.
+- I love theater. I really want to go back to it.
+- Working with Mrs. Clarke at The Gryphon School is when I really began to think of acting as a potential career.
+- When my family first found out about my part in 'EastEnders' they were happy for me and very supportive.
+- I don't really know how my family and friends will react to seeing me on screen in a cinema. I'm sure it'll be an odd experience for them, just like I'm sure it will be for me.
+- L.A. is big, although Hollywood's not as glamorous as I thought; it's kind of grungy.
+- You're always aware that only eight per cent of actors are in work at one time, so you've got to be thankful for the job you've got and do the best you can.
+- I have so many man crushes - 'my brother' Tom Hardy, Ryan Gosling, Bradley Cooper - if he's here today, I might get a bit squealish.
+- I'm chuffed to be getting gritty stuff.
+- As far as I know, the original 'X-Men' actors will remain in the franchise.
+- I'm really excited to be joining the fantastic cast of 'EastEnders' - a show which my family have watched for years.
+- I try not to be topless any more because I don't want that to be my thing.
+- It's hard to imagine you've got these massive wings in your back. You have to think about how it's going to affect your posture, affect the way you move, just, like, the sheer weight of them.
+- I remember watching 'EastEnders' as a kid with my mum, and even my dad would be gripped by the odd episode. So to think I would be part of the show was a strange feeling at first.
+- I don't really think of myself as a heartthrob.
+- If you express yourself too much. you're overacting; if you underplay it too much, it can come across as wooden.
+- I'd love to play a lead in the theatre.

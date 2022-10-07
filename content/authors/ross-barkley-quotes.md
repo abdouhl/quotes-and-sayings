@@ -1,0 +1,106 @@
++++
+author = "Ross Barkley"
+title = "Ross Barkley Quotes"
+quotes_len = "100"
+description = "the best 100 Ross Barkley Quotes"
++++
+- I've had to push myself and I've really matured.
+- I believe in my ability and I believe that through hard work things will pay off and be good for me.
+- It was when I came back from Leeds that things started to change. I went from being a kid to having to man up and going into a man's game.
+- If I do well at Chelsea, then the national team will take care of itself.
+- I achieved my dream of playing for Everton, from a young age I always dreamed of scoring for Everton.
+- You can take a bit of criticism from your manager now and then, but you have to react to it which I have done.
+- I never thought I would not play for my country.
+- Compared to when I was 18, 19 or 20, I would say my diet is the big difference. It is much better.
+- As a youngster as I was a centre-half, I liked being on the ball and coming out from the back. I took chances so I got put in midfield and then I was playing all over the pitch so adjusted wherever I needed to play.
+- We have to improve at club level - and at the international level, there is a lot of room for improvement.
+- It's all about success, winning trophies.
+- I believe I can hit the 20 goals a season mark.
+- I have got a lot of confidence in my ability now, and I feel like I am going in the right direction and this shows in my performances on the pitch. As a person I feel a lot more confident.
+- You play football to enjoy the game and the manager wants to be happy on the sidelines watching unbelievable football.
+- I'm a striker. I feel I can have my greatest impact there because I'm free to roam around the pitch, take players on, have shots and create chances.
+- You have to work hard and your chances will come.
+- My mum has always kept my feet on the ground and told me that if I carry on working hard it will pay off. I used to say 'If I play for Everton one day' and she would always say 'No, when you play for Everton.'
+- It's Chelsea and you will always have competition for places here.
+- At Chelsea I knew I'd improve a lot quicker around better players, world-class players.
+- When I broke into the Everton side under Roberto Martinez, I was playing in the No. 10 role, and I had never played there before, so I was getting used to that role as a first-team player.
+- You have to go through bad days to get to the great days you have in your career.
+- You can always be more professional.
+- In my mind I always think positive.
+- I'll keep improving with more games.
+- I played a lot of games at a young age and I feel like I'm an older player in the side now. I communicate a lot more on the pitch and in the training room now.
+- In my living room I always used to tell my mum 'one day I'll score for Everton' and when that happened it was unbelievable for me.
+- We all go through difficult spells.
+- My first tattoo was when I was 14. I was a bit young, like. I was a big lad so they didn't question my age at the time.
+- It was hard for me to leave because Everton were my boyhood club. I supported them from when I was a young kid.
+- I feel I'm a player who entertains and gets people on the edge of their seats, as well as trying to be a game-changer who can win a game for the team.
+- I want to continue to improve season after season, which I think I've done.
+- I am thankful for everyone at the club that helped me, the fans, the coaches that I have had, the staff that have helped with injuries, I am really grateful to everyone at Everton. It was like a family to me.
+- Some players are more fortunate than others to have coaches who are more focused on improvement.
+- I know how important it is to take different tactics from different managers on board.
+- I'm the type of player who takes risks, so every now and then I'm going to give the ball away. I just have to learn not to do it in silly areas of the pitch.
+- Mum used to have my sister to look after, so I had to make my own way to training. I would get a bus to town and another one to Netherton. It would take about an hour.
+- Everton means the world to me.
+- It's about getting the right balance and knowing on the pitch when is the right time to take risks.
+- I'd like Everton to be known as the better team in Liverpool.
+- As a kid, I looked up to Gazza, and to Wayne Rooney because he came through at Everton. Zidane has been one of my favourite players and I was always watching videos of him.
+- I believe in myself and I know what I can do.
+- I understand now the different games and the different approaches that you need to take at different times, with different styles of play.
+- When you get your chance, you just have to be ready and believe that chances will come, that you are going to step forward and produce.
+- When I was younger I just used to get the ball and take on all the players because I was bigger and stronger. You cannot do that in the Premier League. You are playing against men.
+- The Premier League's the most competitive in the world.
+- We can all improve.
+- We are not in the game to accept where we are at.
+- I've got a defensive responsibility as well as trying to get goals and assists. I'm trying to do that.
+- I don't feel pressure.
+- My approach to games is much better and I am going into games with the right preparation and I am more relaxed, rather than thinking about things too much.
+- It's a goal to get myself in the squad for the World Cup.
+- With each individual, everybody takes instructions in a different way.
+- My aim is to be a winner.
+- I've matured, I understand the game much more, which can be natural as you grow up.
+- I want to get to a level where I am regarded as one of the best and coming to a club like Chelsea gives me the right platform to improve.
+- I'm not scared when I'm on the pitch.
+- I love Everton and all I think about is playing for Everton.
+- When you first come back from a long-term injury, you're just trying to get your body in order and trying to get back into the training and match routine.
+- Coming to Chelsea was a big challenge for me.
+- You want to be playing off the cuff sometimes to take chances and make something happen.
+- Partying? I don't really think about that.
+- Day-to-day training with world-class players, there is no better feeling than that.
+- Each individual has their own pre-match ritual and pick off the menu. But I usually have a bit of pesto - either spaghetti or penne. On game-day I'll add a bit of meat to it and maybe some greens.
+- As a player you can't be too worried if you take a risk and whether it's not going to come off.
+- I signed as an 11-year-old for Everton. I broke into the Under-18s at the age of 14, then the reserves at 15, then I was in the first-team squad at 16.
+- You need to cut a few things out if you want to be the best you can be.
+- When you have got a new manager you have got to impress and get used to what he wants really quickly.
+- Chelsea are always competing to win things and that was my thought to push myself and reach a new level.
+- When I was at Everton, I went through a lot of up and down spells, lacking in confidence.
+- I'm Ross Barkley and I've got to create a better version of the player I am and show what I can do, not try to be like someone else. That's part of what I hope I can achieve here, to make people aware of who I am as a player and show everyone what I can do.
+- They've got a good atmosphere and it's always a tough game at the Stadium of Light.
+- Now and again there are a few cookies going around the training ground. If we have played a game I can afford to have one.
+- Everybody develops at different rates.
+- On derby day it's not down to form, it's on the day, who's prepared for the game and who wants to battle.
+- I have got to a level where I feel I needed to make the jump to Chelsea and push myself and get myself to a better level and playing with world-class players here is only going to help.
+- Every manager has their own way of approaching games.
+- Mum has been the biggest influence on me.
+- You've seen players at Everton who have been built up but haven't made the grade.
+- It was a big decision to leave Everton and it took me a lot of time to think over.
+- Bad days don't always stay.
+- When you go through the youth system you're always going in to do analysis work, looking at every way of improving and your coaches are always on top of you.
+- I've added a bit more composure on the ball and defensively got a bit cuter and improved in one-on-ones.
+- I want to be regarded as a world-class midfielder.
+- I used to be really fussy, I just used to eat chicken or steak. I didn't really eat fish, but I eat a lot of it now.
+- You don't want to play in your shell.
+- I feel like I am ready to understand every aspect of the game.
+- Hopefully I will continue to thrive.
+- To be given a fresh start at a new club like Chelsea, it's unbelievable for me.
+- Chelsea is a massive club, you aim to win the Premier League or are challenging for trophies with the aim to win everything.
+- As a young lad it's been your dream to play football and you get injuries and you've got to respond well to them and work really hard, because it's your dream to be on the pitch.
+- I have had expectations on me from a young age and I have dealt with them.
+- I am obsessed with improving.
+- If things aren't going well there's always going to be pressure that comes with it.
+- I was always a good cook from my mum showing me when I was a young lad, but hiring a chef helped me to understand food better.
+- I was very young when I got my tattoos. I was 16 when I got my full sleeve - I rushed into it.
+- You can never stop learning in football and I'm always trying to take little things on board that other players do.
+- I just focus on getting better every day, putting things right in training and then hopefully what I'm doing right in training I'm doing to show in games as well.
+- I looked up to Rooney and he had played for Everton when he was 16 and I wanted to do the same.
+- I have turned 25, come into my own and focused on improving at day-to-day level.
+- It's not me feeling pressure, it's just me putting pressure on myself if I don't do my best, and I know I can do better.

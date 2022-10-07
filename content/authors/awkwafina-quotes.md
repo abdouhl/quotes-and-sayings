@@ -1,0 +1,51 @@
++++
+author = "Awkwafina"
+title = "Awkwafina Quotes"
+quotes_len = "45"
+description = "the best 45 Awkwafina Quotes"
++++
+- I started with me as Awkwafina reciting 'Othello' monologues, and I'd send those to my friends. It started like that, and then it went into more music-y stuff.
+- My grandma was very traditional, but she herself is a rebel of that culture.
+- I was always that kid. When I got ice cream, I put it in my eye. When I got my license, I got pulled over so many times for playing 'Les Mis' too loud.
+- They're not going to have a homeless person on a poster representing New York.
+- I have lived in this city my whole life and have seen the way gentrification has changed it. I'm not necessarily against transplants, as 75 percent of my good friends, roommate, and boyfriend are not native New Yorkers.
+- I'm not trying to unite Asian people with my music.
+- I think there are barriers, but I think for me specifically, my barrier is being rejected from the kind of hip-hop elitists that think I'm not appropriating it, but just not serious about it. They think I'm a Lonely Island, Weird Al, you know - like a parody rapper. So that alienates me from a lot of things.
+- Let's take Taylor Swift. She lives in a huge beautiful apartment; she gets limo-ed everywhere. She's not seeing what it means to live in New York.
+- I was working a corporate job, but I really wanted to do music.
+- I think that's why I was able to do well in the beginning: because it was such a foreign thing. People frame it in a negative way, like, 'For Asian-Americans there's no one out there, so that must be really bad for you.' No, I benefited from it.
+- I think people always want to hear that there are barriers that exist for us. But the more I started to realize artists that are kind of like me in my lane, like, if they were white or African-American, they often had trouble because it wasn't the quality of their music: they just didn't stick out.
+- I grew up two train stops from where A Tribe Called Quest grew up, and one stop from Nas.
+- I legitimately wanted to know if Mayor Bloomberg was going to ban large margaritas that I cry over while on a date alone at Dallas BBQ as a part of his controversial soda ban.
+- I think it's important for people to understand that as a woman, I can only rap about the parts I have.
+- My grandmother can never really teach me anything because she skips steps.
+- I grew up thinking Margaret Cho and Lucy Liu were my idols because that's it.
+- I think rap in general allows you to be more lyrically expressive. It's a lot easier to state your identity, as opposed to with a guitar making all these weird metaphors.
+- 'Welcome To New York' is one of those songs that, with just one single radio play, will make at least 10 New Yorkers move to Marfa, Texas.
+- I feel that its important for me to be out there and to represent the face. At the same time, for me as an individual, I think the Asian-American face can be crowded with the American identity.
+- You can't really label me as a musician, a comedian, or a rapper - you know, it's different.
+- I started by producing, and the rapping came second to that, because I wanted to fill out the beat.
+- I think the people get that I'm just kind of an anomaly in a certain way.
+- I like to rap about things that are funny but mostly things that are relatable. I remember there was this one song with Ja Rule, and I forgot, exactly, but it was with Ashanti, and there's a line in it that was like, 'She hit me up on AIM.' But that wasn't the actual line; it was something else, but I was like, 'Oh my God, he uses AIM!'
+- My every birthday wish was, 'I want to someday be on TV.'
+- I'm torn between wanting to connect with what I grew up with and what's available, living in Brooklyn. I don't have a grimy supermarket that decapitates frogs' heads nearby.
+- I studied my craft at the same place as Nicki Minaj.
+- When I was 15, I talked to Liam Neeson because I was the only one of my friends ballsy enough to engage him.
+- I can't tell if I want to be a rapper who's funny because I kind of enjoy just doing really stupid songs about nothing. But I want to have a career that's long-lasting, and I don't think people want to listen to a straight-up comedy rapper all the time.
+- When I went to college, it became more of a hobby, and that's when I think I got the realest music education. It wasn't something that I had to do. It wasn't an obligation.
+- It's not nice to say it - I know female musicians, but not so many rappers. I can't think of one I idolize, which is sad, but I'm hoping that will change.
+- I like to make songs that are based on concepts.
+- I used to chop up C-Span soundbites or interviews with politicians like John Kerry or Bill Clinton into a radio-esque show hosted by Awkwafina and her producer, Mookie. I would pitch down my vocals to have male guests and would send them to a small circle of friends after they were done.
+- I guess, like, I've always listened to rap, and I remember I specifically started listening to, like, pop-rap when I was, like, 11, you know, like Shaggy. I love Shaggy. And then I discovered, like, underground rap when I got to high school, and really, that's when it kind of blossomed. I don't feel like my love for rap blossomed off of Shaggy.
+- If women dabble in rap but they're not rappers, to get from dabbling to doing it is really difficult, confidence-wise.
+- Eventually, I started to actually enjoy rapping.
+- Other female rappers are overly sexual, have no wit, and their lyrics are so generic. I want to change the game to make rap that shows I'm not a normal female rapper - it's not about how rich I am, how much sex I have, or how many boyfriends I have. That's just not me.
+- I remember watching Margaret Cho with my grandmother on TV. She was my hero, not only because she was funny, but because she showed me that it's okay to be yourself, that it's okay to be a brash yellow girl and to be a strong and brave woman.
+- Rap was started by black people and, thus, is at the foundation of black culture. So people cannot always wrap their minds around someone like me being inspired by it. But if you listen to the things we're saying, they're authentically us.
+- If you don't address race, then people are like, 'Why don't you talk about the elephant in the room?' But you have to do it right. It can't be gimmicky.
+- I am American. If you drop me in Seoul, I don't think I'm going to thrive there.
+- I really like gross Chinese things.
+- My mom passed away when I was 4 years old, and she came from a very conservative Korean background. I feel like my life would've been incredibly different had she still been alive.
+- I was physically addicted to 'Tony Hawk's American Wasteland' for PS2.
+- It's definitely a privilege to be able to do what you love to do; it's not something that everyone gets to do, so I feel really good about that.
+- More than anything, I'm an American kid, and my music reflects that more so than being an Asian-American. I think it's important but also something that can detrimental to your career if celebrated too much.

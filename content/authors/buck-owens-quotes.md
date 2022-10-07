@@ -1,0 +1,27 @@
++++
+author = "Buck Owens"
+title = "Buck Owens Quotes"
+quotes_len = "21"
+description = "the best 21 Buck Owens Quotes"
++++
+- I found a sound that people really liked - I found this basic concept and all I did was change the lyrics and the melody a little bit. My songs, if you listen to them, they're quite a lot alike, like Chuck Berry.
+- I enjoyed the Hee Haw people, but from 1980 on I didn't enjoy it and thought about leavin', and thought, hell, it's an easy job and pays wonderful. I kinda just prostituted myself for their money.
+- I am who I am, I am what I am, I do what I do and I ain't never gonna do it any different. I don't care who likes it and who don't.
+- I'd like just to be remembered as a guy that came along and did his music, did his best and showed up on time, clean and ready to do the job, wrote a few songs, and had a hell of a time.
+- The last 16 years of my daddy's life, he got to work for me, and that made him his own boss and he like that.
+- But most distinctly, I remember always saying to myself that when I get big, I'm not going to go to bed hungry, I'm not going to wear hand-me-down clothes.
+- That was where my dream began to take hold, of not havin' to pick cotton and potatoes, and not havin' to be uncomfortable, too hot or too cold. That in itself had driven me to try to find some better way of life.
+- And I said, 'Why not? It's the truth! Why can't I say I'm a Beatles fan?' I used to get criticized for that.
+- You get up about 2-3 o'clock in the morning and get through about 7 or 8 and 12 hours later you start all over. That's the worst kind of work a person can do. You have to do these two shifts to get one day.
+- I'm in an absolute frenzy towards doing as many things as I can that I want to do today. The rest can wait till tomorrow, next week, if I'm around we'll take a look.
+- We were sharecroppers - we were a little bit of everything. We farmed and tried to make something.
+- I never expected to record again. I knew I had done everything I ever wanted to do. I was satisfied. But... all the time I'm watching the country music horizon. And I'm sayin' 'Lord, is there anybody gonna come?'
+- I didn't say I wasn't gonna do rockabilly. I just said I ain't gonna sing no song that ain't a country song. I won't be known as anything but a country singer.
+- We used to get one room and we'd park the vehicle outside, everybody would all take showers and we'd steal towels because we knew we wasn't gonna have enough towels for all five of us to shower.
+- I'm from the Bob Wills and the Little Richard school of music. Bob Wills did what the hell he thought, Little Richard did what he thought, and those were my big influences.
+- If you want me in the Hall of Fame put me in because of some contributions that I have made to country music.
+- I got to realizing that I wanted to record, I wanted to experiment. And doing those same old songs the same old way - I said, 'I think it's time for me to have some fun.'
+- I was always very grateful to 'em and am grateful to 'em now. I went back a couple of years ago and did their 20th anniversary show. But the longer I stayed on Hee Haw, the worse things got for me musically.
+- My mother told me on several different occasions that she was livin' her dream vicariously through me. She once said that I was getting' to do all the things that she would have wanted to have done.
+- The road had the lonely times, but I kept myself busy.
+- Lady Limelight is a jealous lady. She wants all of your attention. You don't have any time to think of anything else but Lady Limelight, because pretty soon that light will be shinning on somebody else. So you better do it while you can.

@@ -1,0 +1,103 @@
++++
+author = "Carmella"
+title = "Carmella Quotes"
+quotes_len = "97"
+description = "the best 97 Carmella Quotes"
++++
+- I was a dancer and didn't ever think I could become a female wrestler, but here I am and doing it.
+- To get up to 'SmackDown Live' and have my first match on live TV, I was so nervous.
+- It's just been such an amazing experience from the day I started on 'Smackdown.'
+- I'm on 'WrestleMania!' I don't care if I'm on the Kickoff show; it was just such a great opportunity to be a part of 'WrestleMania.' It was my very first 'WrestleMania,' and a lot of people say, 'Oh, but you're on the Kickoff.' It doesn't matter: you're still a part of 'WrestleMania.'
+- If the fans are making a noise and reacting, then you're doing a good job.
+- Being a manager for Enzo and Cass in NXT was great. I got a lot of experience with doing that.
+- I want to be NXT Women's Champion.
+- It's OK if you fail a few times. Just keep getting back up until you nail it.
+- I feel like I have this really cool journey that I get to show all these different sides to Carmella.
+- I just feel so lucky and fortunate to be a part of all these 'first-evers.' Now it's getting to a point where we don't even have to say the 'first-ever' or anything like that because it's just become the norm. Before, it was, 'Oh my gosh, the women are the main event of 'Smackdown' tonight.' And now it's, 'The women are the main event.'
+- When I first got my ring name as Carmella, I knew I was just going to do whatever I could to create this over-ridiculous, over-the-top character that would just help me get my face, and I don't even know what I'm trying to say, but just get me out there and just show, like, 'OK, wow, we need to pay attention to this girl because she has something.'
+- I love fashion, and I try to incorporate that.
+- I have had way more opportunity on 'Smackdown Live' than I ever did at NXT.
+- One thing that I'm super fortunate of - I grew up in a house where it was all about health and fitness. My dad was a wrestler; he was a boxer. He's always been into working out, and so I was the only kid in the first grade that got carrot sticks at school instead of chips.
+- Charlotte Flair - she took my title from me. I did beat her twice; however, she beat me and took my title from me, unfortunately. But I'm gonna get it back.
+- Everyone has been talking about me. Whether they love me, whether they hate me, whether they love to hate me, I don't really care; they're talking about me.
+- My name is Carmella, and I'm the moonwalking, trash-talking princess of Staten Island.
+- I want to make history and be the first-ever SmackDown Women's Champion, and whatever I have to do to make that happen, I'm going to do it.
+- I love interacting with the fans and being a positive role model for little girls.
+- My name will always go down in history as the first Miss Money in the Bank. It's so cool!
+- To be honest, I came up with the Carmella character completely on my own.
+- I think, every single time I step into the ring, I try and be better than the last.
+- I like doing my own thing, and I like being partnered with somebody.
+- I, in my real life, wish I could be like Carmella a little bit more.
+- In the NFL, you're part of a team. You work together to win. Being a WWE Superstar is all about me. No team. I'm special.
+- I've done wrestling, and I've done dance, and I would say they're both equally hard on the body.
+- The 'Mella Is Money' is something I just started saying. And now it's a thing.
+- For me, it's not an option to not be in shape and to not work out. I just always try to make time for it and strength train four or five days a week, and I'm always eating clean, so - don't get me wrong, though - I love a good pizza and some wings every now and then.
+- It's just surreal that I was the first Ms. Money in the Bank.
+- I just love the Carmella character. It's so over the top. It's so extra. She's not afraid to be herself and say what's on her mind, and I think a lot of people can relate to that.
+- I'm game to make a fool of myself.
+- Any opportunity I get, I want to make the most of it, and I'm not afraid to look like an idiot.
+- When you're genuinely having fun and enjoying yourself, people can feel that, and they want to have a good time with you.
+- I have a background in dance, so I danced my entire life, since I was three years old.
+- I wouldn't have traded my career path for anything.
+- I love the feeling of being in front of a live crowd and performing and just kind of letting loose and getting the crowd involved, and I got to perform at the Superbowl and at the Staples Center, you know, at the Lakers game, which was amazing.
+- I love the small-town vibe.
+- My dad did some work for WWE in the early '90s, so I grew up watching and being in and around it. I never, ever thought it was something that I could do.
+- I never like to do anything little. Everything I do, I need it to be big and above and beyond.
+- To me, it was so exciting that after just a short time of being on my own in NXT, I proved that I could do this on my own, and I got drafted to 'SmackDown Live.'
+- I didn't come from wrestling, and I never wrestled outside of WWE. So I'm kind of a homegrown talent. I learned everything from the performance center and NXT.
+- Bayley's my best friend. We've been friends since NXT. It sucks because she's on 'Raw' and I'm on 'SmackDown,' but we still talk every single day, and we're really good friends.
+- I think you can look good and still be a champion and still fight and still be the best at what I do.
+- I feel it's important to show different sides of my character, and I never take myself too seriously.
+- I didn't think I could become a wrestler, and I did it.
+- I really want to show women that it is OK to have a career and put that - not necessarily first, but to put it out there. You can do it all. Is it going to be hard? Yes. Is it going to be worth it? Of course.
+- I can joke around and say I look and do the best, but honestly, I just feel like, whatever situation I'm in, I want to do the best at it and keep improving.
+- A lot of the fans don't necessarily get to see what I can do, because they've seen me as the hype girl for Cass & Enzo.
+- I just feel it's important to do what's right and not necessarily what is right for you but right for everybody.
+- I come from a big Italian family, and I grew up around wrestling.
+- I want people to know that I'm getting where I'm going or how I'm getting there - by myself, through my hard work, and nothing more.
+- I love to be talky and tell everyone how good I am.
+- I feel very fortunate to be the face of the women's division on 'Smackdown Live' and defend that championship any opportunity that I get.
+- I was obsessed with Miss Elizabeth when I was a little girl.
+- Asuka is a force to be reckoned with. She made a statement from the moment she debuted in NXT.
+- It's really exciting to be a part of the Women's Division here in NXT.
+- My body isn't made to be thrown on or get hit with ladders.
+- I'm honored to be a part of 'Total Divas' and show the world who Carmella is, not only on 'SmackDown Live' but in real life.
+- There were a hundred people in my graduating class. I wouldn't have changed it for the world.
+- I was 4 years old and wanted to be the scariest witch anyone had ever seen. My mom painted my face green, darkened my eyebrows, and put a mole on my nose so I could fully look the part.
+- Something I took away from Kurt Angle's Hall of Fame speech was never be afraid to make a fool of yourself, and don't take yourself too seriously. I really let that sink in and ran with it.
+- The sky is honestly the limit, so I'm excited to see what the future holds.
+- When you sign up for a reality show, you have to put your personal life out there.
+- Nowadays, women are looked at as equal to the men when it comes to competing, and I think that's a really cool message to send to little girls and show them that whatever they want to do, they can set their mind to it and make it happen.
+- It's always fun to play the bad guy, that's for sure.
+- For sure, J-Lo is the best.
+- Growing up, of course I was the coolest girl in the 3rd grade because I told everyone that my dad was a wrestler, and I would bring in these wrestling magazines of him, and every Saturday morning, he would be body slamming me on my bed.
+- Anytime you're partnered with a guy in wrestling, it's exciting and different. Having James Ellsworth by my side for a while, that got people talking.
+- After starting off in NXT and then getting here to 'SmackDown Live,' all I ever wanted to do was to create history and be a part of the women's revolution.
+- I'm very confident in my ability to learn, but every time I'm in the ring, I can't believe the things I can do and that I've learned.
+- It's cool to show different sides of myself and my character. I feel like not that many people get to do that.
+- It just brings a different element to the table when you're wrestling with a guy as a partner because you don't know what's going to happen. When you have just a regular women's match or regular men's match you know they're going to fight. When there's a little bit of a mixture, you never know what's going to happen, and I think it's a lot of fun.
+- There are obviously a lot of negative connotations that go along with being a Diva. But to me, being a Diva is someone who takes care of herself, that looks fabulous, is always on point with her fashion, and doesn't care what anybody thinks.
+- It's so fun because the Carmella you see on 'SmackDown Live' is so different to me. It's great to be able to portray this character in a way that I never would in real life.
+- I just love sneakers. When I first started wrestling, I was wrestling in boots, and I felt like I was trying too hard to play a wrestler. I just wanted to be myself. So when I started wearing sneakers, I felt so much better.
+- The most important lesson is to never get comfortable; always come up with new ideas; learn something new; try something new.
+- I depended a lot on being an over-the-top, ridiculous, obnoxious, Staten Island Princess. That's what I did, and I guess the rest is history.
+- People say that wrestling is not ballet. But as a former ballerina, I'd like to see some of these men put on a pair of tights and go do what a dancer does. Because it's a lot! It's definitely difficult.
+- I was in NXT for about a little over two years, and then I was drafted to 'SmackDown Live,' and now I can say I'm the first-ever Miss Money in the Bank.
+- I want to make history and just show people that if you have determination and if you want to work hard enough and want something, you can make it happen.
+- I was a dancer for over 20 years.
+- I would love to see The IIconics become the first women tag team champions.
+- My dad was a wrestler back in the early '90s, so it just brought everything full circle with my dad's background and my love of performing and entertainment, and now here I am in the WWE.
+- Gosh, the fans always have something to say. They're never happy with anything.
+- Everything I do is over the top. When I do something, I want everyone to be talking about it.
+- I won Money in the Bank twice, and then I cashed it in to become Champion. I was Champion. No one can ever take that away from me.
+- I'm the Princess of Staten Island. You gotta go big or go home, baby!
+- There's nothing wrong with being a Diva. If it's because I take care of myself and look good, then I don't think there's anything wrong with that.
+- I know my role as a bad guy is to get everyone to hate me.
+- If I try to act cool and do things that get a positive reaction, then I'm not doing anything for the person I'm in the ring with.
+- If I could have any tag team partner, I would choose Big E.
+- When I was in NXT, I never wrestled on a TakeOver. I didn't have too many high-profile matches: I probably wrestled about 10 matches in total on NXT TV, including the one championship match against Bayley, which was so much fun and my favorite match in NXT.
+- I love performing, and I was a dancer and then worked in the NFL and NBA, and I loved being in front of the crowd.
+- I beat Charlotte Flair. And now, it's time to party.
+- Summertime in New York is always a lot of fun, and I can't wait for my second 'SummerSlam.'
+- When I was living in L.A., first of all, I had actually tried out or submitted to be on 'Tough Enough' when I was living in L.A. and then I ended up getting, like, a few call backs, but because I had just moved out there for the Lakers, I just felt like I couldn't have done both.
+- Never think you're too good for a role, and never take yourself too seriously.

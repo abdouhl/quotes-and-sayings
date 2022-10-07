@@ -1,0 +1,25 @@
++++
+author = "Les Baxter"
+title = "Les Baxter Quotes"
+quotes_len = "19"
+description = "the best 19 Les Baxter Quotes"
++++
+- I don't think the record company is aware of it. Because they just bury my albums and don't release them.
+- I aim my arrangements at what will fit and colorfully frame the song in the best way possible.
+- In a sense, a hit belongs to the person who made it popular, but if a tune is good enough to attain tremendous success, then it certainly deserves more than one version, one treatment, one approach.
+- When I want 30 musicians in the orchestra, I get 30.
+- I've been down there 6 times and there's nothing like Brazilian percussion.
+- I've never believed in cheapening music by going according to what some people think is public taste.
+- Any good music must be an innovation.
+- I'm not an intellectual composer.
+- I was working all the time I was in college. I was working so much that I could hardly do my college work.
+- I love doing concert music.
+- That was when the Spanish came in and conquered the Aztecs. I thought that was a clever thing.
+- I don't know what the problem with Capitol is. Some one's got to wake 'em up. Prod 'em a little bit.
+- I write emotional music.
+- Regardless of who originally made it popular, any hit song becomes a challenge to the ingenuity and imagination of other musicians and performers.
+- I did the Broadway album unfortunately in a year when there were no hits.
+- Under my contract with Capitol, I have complete freedom to do just about anything I want in my own way.
+- I don't try to make 15 musicians sound like two each.
+- You know, they wanted to do a Broadway album and every show was kind of a bomb. There was no music at all.
+- Well, that's the secret of commerciality, a simple style and you stick with it.

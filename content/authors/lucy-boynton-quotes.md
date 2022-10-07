@@ -1,0 +1,68 @@
++++
+author = "Lucy Boynton"
+title = "Lucy Boynton Quotes"
+quotes_len = "62"
+description = "the best 62 Lucy Boynton Quotes"
++++
+- There is something daunting about getting a role you didn't formally audition for, another weight of needing to prove yourself.
+- I really enjoy being busy and feeling completely immersed in work, knowing I'm working as hard as I can.
+- If you're creating your character, you can have full ownership of the emotional range they go through. You can make bolder choices.
+- My skin's rather difficult to fix, and I'm incredibly sensitive.
+- The pressure to look good is intense. It is hard to be immune to that and the self-consciousness that comes with it.
+- When you're playing someone that's real, there is that hanging weight of how will they feel when they see this: will I make them feel exposed in some way, and how do I absolutely avoid doing that while playing this as accurately and empathetically as I possibly can?
+- My skin gets really dry and stressed from all the traveling I do, so I've had to find reliable products to help that.
+- I've been every hair color under the sun for different projects.
+- I never wanted to take off the pink gown I wore to the 'Gypsy' premiere. It was a magical dress for a magical moment.
+- I've always been really terrible with horror films. I scare really easily and can't stand all the violence and gore.
+- I think 'Ballet Shoes' was a very pivotal role for me. I was about 14 then, and it was an incredible cast: Eileen Atkins, Victoria Wood, Emilia Fox, Harriet Walters. All these incredible women.
+- The people I look up to most are actresses such as Kate Winslet and Amy Schumer, who have never been size zero and are judged on their bodies of work, not their bodies.
+- Being part of the Queen story and knowing what Freddie Mercury went through before he died of AIDS has really shown me how far we've come in fighting this disease.
+- My dream would be to be like Tina Weymouth from Talking Heads. Her style and everything about her, she's just the coolest human being.
+- I've been working for, like, 10 years now, which is a very strange thing to say when you're 23.
+- It was strange, especially because all of the projects I did when I was young, I was always the youngest on set or the only child, so I spent my formative years hanging out with 24-year-olds when I was 13.
+- I don't think I've done anything quite like 'Gypsy' before. Especially the honest way that it is written.
+- Because I started at such a young age, I went in with a 'take what comes, do what I'm told' approach.
+- I want to be an actress when I grow up. Actually, I don't want to wait until I'm grown up. I want to be a child actress. I want to be an actress before I'm 13.
+- Oh, my God, I would be the most uncool band member, ever.
+- I've been acting for a long time - I started when I was 12.
+- I want to act every second of every day.
+- Anything that Osgood Perkins writes, you can sign me up!
+- I realized on my first day on set of 'Miss Potter' that there wasn't going to be anything else that could make me as happy or feel as fulfilled as acting does.
+- I don't really have a specific formula I follow to find the right script or role. It's always just very instinctive.
+- I find that I'm quite experimental. I'm drawn to the brighter and weirder things.
+- It's impossible not to be aware of the Ryan Murphy empire, but he is so kind and funny, and you feel in such safe hands every day.
+- 'Gypsy' follows a New York therapist, played by Naomi Watts. It explores the boundaries between patient and doctor - she kind of starts to play puppeteer with her clients.
+- Acting has influenced my approach to beauty in both practical and fun ways as well as influencing my style. I do like to be more adventurous - for some reason, I feel safer in that.
+- It was strange doing that transition from teenager to more adult roles, but I think it just makes it more exciting.
+- My parents always traveled a lot with their job, so it became embedded in my nature quite early on that I would crave that constant change and traveling.
+- There were years in between of going to auditions pretty much every day and getting nothing.
+- When it's a real person, you want to be as honest as you can and approach it in a similar way as you would any other character, but with that restriction and wanting to respect the boundaries of that person and not be intrusive in any way.
+- I'm a very private person.
+- All of our family holidays were always work trips for my parents, so my sister and I would sit somewhere or find a kids' club while my parents would be interviewing people.
+- I'm quite tentative when it comes to biopics because they cross a line into intrusiveness or exposing someone who isn't alive or around to draw a line or defend themselves.
+- As long as you feel good in something, it doesn't matter what other people think. You just have to own it. You'll never regret wearing something you really love.
+- As soon as we stop trying to put boxes and labels to every relationship and dynamic, we'll be so much more liberated and at peace.
+- People keep referring to 'Sing Street' as a musical, but I really never felt it was that. I can't really define it as a musical.
+- I was born in New York and moved to London with my family when I was five. I did have an American accent for a couple of months, and then it went a way.
+- 'Sing Street' was the first time I'd worked so collaboratively.
+- When you're younger, you have a perfect plan for your life: I thought I would be engaged at 24, married at 26, have my first child at 28 and my second at 30. But as you get closer to each age, you realise it's unfeasible.
+- An all-girls school, when you have 800 girls from the age of 11 to 18, you would think, should be a prime opportunity to really inject a sense of confidence and power. And instead, we were very much taught in relation to men, in terms of what the brother school would think of us.
+- I never went to drama school, but I was really lucky in that both my junior school and secondary school had brilliant drama departments.
+- I tend to look very different with every role that I do, so I don't know if anybody remembers me or recognizes me at all, including people that I've worked with and know really well.
+- Nic Hoult is just such a brilliant actor.
+- I think that's a place where we are, as a society, finally starting to get to now: where your sexuality doesn't have to define you - and you don't have to define it.
+- If you stop trying to restrict yourself by defining yourself and love in other people's terms, it's the most liberating thing.
+- Paul McCartney has always been the love of my life.
+- It's exciting not knowing what tomorrow, or the next month, or the next year holds.
+- I am so honoured to be supporting the Elton John AIDS Foundation and their mission making London and our global cities AIDS-free.
+- Good horror is about so much more than slashing: it's a way of examining grief and loss of self.
+- I've always liked higher necklines, and Mia Farrow is my ultimate inspiration. The baby-doll dresses with big Peter Pan collars that she wore in 'Rosemary's Baby' were iconic. I've been drawn to similar looks ever since.
+- I thrive on that nomadic lifestyle.
+- Being able to disappear into every film that I do really works in my favor.
+- We were always told not to wear skirts that were too short, because what will the male teachers think of you? Or, when we started sharing classes with boys in sixth form, what will they think of you if you are wearing a miniskirt to lessons?
+- For the red carpet, I like a platform heel, but for everyday, it's mostly Converse high-tops or booties with black tights.
+- I think it makes such a huge difference when the director has acting experience as well because it just means that he not only has a view of the film as a whole and the intentions of the scene in terms of the audience, he also has an actor's instinct of how to communicate something to us.
+- I remember watching that scene in 'My Girl' where Anna Chlumsky cries at a funeral. I would cry with her and be like, 'Yeah, I think I could do that. I could do a funeral scene.'
+- Comedy kind of terrifies me. I feel pretty intimidated.
+- My absolute favorite film is Hal Ashby's 'Harold and Maude.'
+- When you love someone absolutely and want them to be their truest self - even though that means losing them in some capacity - that is the most important thing.

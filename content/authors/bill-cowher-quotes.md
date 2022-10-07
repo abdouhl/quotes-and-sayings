@@ -1,0 +1,106 @@
++++
+author = "Bill Cowher"
+title = "Bill Cowher Quotes"
+quotes_len = "100"
+description = "the best 100 Bill Cowher Quotes"
++++
+- Let me tell you something: I'm a simple person who lives a simple life.
+- It is a lot easier to kick off a turf field than it is off a grass field.
+- Nobody remembers that you lost a Super Bowl, they remember who won a Super Bowl.
+- Confidence is a fragile thing.
+- Football is a total team sport.
+- When I was coaching, I wasn't worried about what I was making. I was worried about winning a championship.
+- I see a lot of myself in a young Mike Vrabel. He is very competitive. He is very respectful of the game, but he looks at each opportunity as an opportunity to prove something that people don't think you can do, and he'll create that narrative.
+- When you become a head coach, you've played the game; you've coached the game. You have a great understanding of what happens at every level.
+- You realize how hard it is to get there, but don't lose sight that the goal is to win a championship.
+- I have always had great respect for those who served. In my time, we had the draft.
+- In all honesty, I hope I don't coach again.
+- I've been very blessed to be surrounded by some very special people.
+- Joe Flacco and Ben Roethlisberger are big guys with strong arms.
+- Going back to being a head coach entails a full-time commitment to that job and I would not go into it for any amount of money and do it halfway. It would be a total commitment, not part-time.
+- I think a guy like Saquon Barkley is a very special back, and where the was drafted was very appropriate.
+- I enjoy the balance I have in my life.
+- I am not going to go back into coaching, just to go back into coaching. It has to be the right situation. And I don't know what the right situation consists of.
+- I like to dabble in a lot of things.
+- The one thing you have to be careful of is trying to do what other teams and players are doing when you don't have the people to do it yourself.
+- To be recognized for making the contributions I did, along with the others who are part of the Hall of Honor, it really is humbling. Particularly when you grow up in Pittsburgh and know what the Steelers mean to the city. To me, as a little boy growing up watching the Steelers, this means a lot to me. It's special.
+- If I'm Colin Kaepernick I have to prove myself. I would say, 'I would love the opportunity to show that I am a championship-winning quarterback again, and I understand that I am not going to be handed anything and that I would love the opportunity to come back.' If he said that it would open the ears of a lot of teams.
+- The biggest thing as a head coach, you want to make sure you exhaust every option.
+- I've always wanted to walk into a hotel, sit at a piano and play 'Piano Man.'
+- It's an offensive league. All the rules cater to the offense.
+- I'm very comfortable at CBS.
+- I really enjoy my job at CBS.
+- You can always go back, to coaching. You can't go back to spending time with your family.
+- I coached Derrick Thomas for the first three years of his career. He was a special player.
+- I like the ability to wake up and say, 'Well, now what are we going to do?'
+- I think the bottom line is wins and losses. That is probably the most important stat to look at.
+- I wanted to be my'self and I wanted the play'ers to take pride in ev'ery'thing they did. We rep'resent the Pitts'burgh Steel'ers but we also rep'resent the city of Pitts'burgh. You're a leader and a role model, whether you want to be or not.
+- Don't get me wrong; I miss the live elements of coaching.
+- Balance is really important.
+- I had the best job in the NFL.
+- I've probably watched more basketball games than anything.
+- The one thing that you can't ever take away are the relationships, the experiences that you have, particularly at the high school level.
+- There comes a time in your life - I'm healthy and happy, and I've been fortunate - you've got to prioritize things.
+- When you talk about tradition, and organizations, the Steelers are one of the best in the NFL.
+- Just thinking about the Pittsburgh franchise and Dan Rooney when he hired me, my first goal was just not to get fired before my 20th high school reunion.
+- I am a member of the Heads Up Football Advisory Committee, have participated in a Heads Up Football clinic, and strongly endorse the program. It's a better, safer way to play the game.
+- I think coaches are very much guilty of trying to implement players into their schemes as opposed as trying to fit schemes into players. That's the thing that can separate good coaches from bad.
+- Need always plays into your decisions more as the draft unfolds.
+- When you do something all of your life, it's still ingrained in you.
+- Heads Up Football is a comprehensive youth and high school football membership program developed by U.S.A. Football and supported by the NFL and other leaders in sport and medicine to advance player safety.
+- I was blessed to play a small role in the Steelers tradition.
+- The ozone is breaking down more and more each year; that's a fact. That being said, we have to be more conscious of the sun and what it can do to your skin.
+- A guy like Saquon Barkley is really a three-down player. You see the size, the speed, the quickness, the elusiveness, the power. He's a unique individual.
+- I want kids to continue to enjoy our game and benefit from the rewards of playing the ultimate team sport. That's why it's important for young players, parents, and coaches to know about U.S.A. Football's Head Up Football program.
+- We're trying to give a young man life lessons - sacrifice, commitment, teamwork, self-confidence, self-esteem. That's what this sport does for kids.
+- I've lived a blessed life.
+- We all understand football is entertainment. And people like high-scoring games. But you still have to play defense to win championships.
+- I miss the combative back and forth, strategic elements of the game on Sunday. Making the adjustments, and what you've prepared for all week all of a sudden isn't there.
+- The goal is to hit your stride, stay in the hunt and be playing your best football in December.
+- I've had a couple of people - prominent coaches - walk into an office, shut the door and say, 'What's it like, not coaching?' They're scared. They're scared not to have that. And I'll tell them, 'You know, it's different. You're not going to replace coaching. But there's some normality that's out there, and that's also kind of refreshing.'
+- Le'Veon Bell, as we have seen through the years when healthy, is such a dynamic player not just out of the backfield, but as a receiver.
+- A lot of times losing a game is not taking care of the football, foolish penalties.
+- I'm a New Yorker. I never thought I'd say that.
+- I find most video games too complicated to play.
+- I just love the Buffalo market. Say what you want about their fans, it'll be December and they've been out of the playoffs for a month. But if there's a December game with snow, there's still going to be 72,000 people in those stands. One of the most passionate, loyal groups of fans in the National Football League, bar none.
+- You go back to fundamentals when things start to go awry.
+- Football is the total team game.
+- It isn't just about winning the championship and I don't think you should be defined by that.
+- I'm from Pennsylvania, and that love for the simplicity of life never left me.
+- Keith Butler is a very good football coach.
+- Dan Rooney was my boss, my father, my friend, my mentor.
+- It's hard to throw the football when you have some instability at quarterback or if you don't have the weapons around you.
+- I was blessed to have followed a legendary coach in Chuck Noll.
+- I had some great players, great coaches, the best organization in football.
+- We won a lot of games, we brought play'off games to the city of Pitts'burgh, we won play'off games.
+- As a quarterback, you have to have a short memory. Don't lose your confidence, and stay within yourself. Don't try to do too much.
+- When you think about a Hall of Fame player, you think about someone who impacted the game, someone you had to game plan for.
+- All the projects that coaches go through in the offseason are based on the success other teams had in every area whether it's offense, defense or special teams. What they do is see if they can incorporate anything they see with the people they have.
+- If I ever want to get back into coaching I should be calling teams they shouldn't be calling me. That's when you know you really want to do it.
+- To be taught to coach by Marty Schottenheimer, to be able to go to an organization like the Steelers. I came there at 34, probably brash, ready to set my niche.
+- Every year the identity of a team changes to some degree.
+- The captain tag is something that players vote on, head coaches they give their title to. It requires a player that you think exemplifies leadership.
+- I don't think running backs have ever been under-valued.
+- You don't just forget things overnight.
+- The draft is like game day on a 3rd-and-5. You have a lot of plays you can choose from. You go with your gut, pick and play and hope it works.
+- No one loves football more than me.
+- There are parts of coaching that I miss.
+- I think when you do anything at a high level, it's very difficult to just stop and do nothing.
+- To give back something to the game of football has been a part of my life.
+- The one thing you don't want to do is get to a point where losing becomes a habit.
+- My family has made a lot of sacrifices for me, and I'm looking forward to being there for them.
+- You're not going to see me on the sidelines. I enjoy it, I miss it, but not enough to get back.
+- Anything I can do to help inspire and thank our troops in anyway will be a tremendous honor for me.
+- Men are naive to their bodies. They don't pay attention to their skin like women do.
+- I'm not looking to double my money with one golden opportunity.
+- The captain tag is something that every head coach in this league takes seriously.
+- You still have to be able to throw the ball and play good defense to win a championship.
+- Kaye was such a loving and compassionate person and she was the foundation of our family. Kaye was always at my side throughout my career as a player, coach, NFL analyst and, most importantly, as a parent to our three daughters Meagan, Lauren and Lindsay. They will miss their mother dearly.
+- What the Jets did with Mark Sanchez, they took a rookie quarterback and went pretty far with him.
+- There's so much more involved with the game than just sitting there, looking at the numbers and saying, 'OK, these are my percentages, then I'm going to do it this way,' because that one time it doesn't work could cost your team a football game, and that's the thing a head coach has to live with, not the professor.
+- Stealing someone's signals was a part of the game and everybody attempted to do that. We had people that always tried to steal signals.
+- Antonio Brown is, if not the best receiver in the league, one of the best.
+- As a kid you were proud to say you were from Pittsburgh.
+- Tom Coughlin has done a great job and is an excellent coach.
+- I never brought my job to my house, I never brought my house to the job.
+- There's been a lot talk about football and safety issues. My big thing is the benefits far outweigh the risks.

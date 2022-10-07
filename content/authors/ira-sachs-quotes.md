@@ -1,0 +1,68 @@
++++
+author = "Ira Sachs"
+title = "Ira Sachs Quotes"
+quotes_len = "62"
+description = "the best 62 Ira Sachs Quotes"
++++
+- You can understand why good publicists go on to run distribution companies: because the creativity involved is complex and nuanced.
+- I always hope that people feel less alone when they see a movie that I make. That some part of the story played out on the big screen will resonate for individuals in the audience in a way that gives them comfort.
+- For gay people, we learned about our lives in secrecy and a lot of fear.
+- Without community events like NewFest, I don't think we'd have a queer cinema in America.
+- I have been very influenced by the director Maurice Pialat, who I continue to be in conversation and conflict with and get inspiration from.
+- What's interesting to me is the distinction between my old life and my present life.
+- Capturing intimacy is pretty much the only thing I'm interested in. That's what excites me and what I find beautiful in movies personally - that almost obscene sense that we shouldn't be this close to these people. I find that very inviting and meaningful as an audience member.
+- My films might have been queer - because I was - but they were not gay.
+- I grew up thinking there was something called 'independent film,' which I wouldn't necessarily have had access to if there wasn't Sundance.
+- One of the biggest things that happens to many people when they have kids is that you suddenly realize that you're not going to last forever. You know there is another generation who are the heroes of their own stories, and that is humbling.
+- Every film is hard to fund.
+- For me, every film is actually a form of documentary.
+- There's a lot of things lost in the Digital Age.
+- All of my films have been autobiographical - it's all I've got to go on.
+- As a gay person, my life has been marginalized.
+- 'How to Survive a Plague' is history-telling at its best. It's a film I'll show my two children, now toddlers, when they are old enough to understand. It's a movie that I cannot forget.
+- Why do people stay in relationships that are tough from almost the very beginning?
+- I've been hiding crucial events in my life since I was 13.
+- I like a film that makes the audience feel like they are in the middle of life as it is moving, and in a way, they are catching up. They are thrown into things.
+- I could not - and I still cannot - see a sustainable career as a filmmaker in which I focus fully on our gay stories.
+- It's easy to make a film, but it's hard to make a career of being a filmmaker.
+- I realize I have strength as an artist and professional by embracing my difference instead of what makes me the same.
+- Most simply but profoundly, I chose to live an honest life, which I think as a gay person is not a given.
+- I've always been interested in how the individual comes to know and accept him or herself, which I think has been hard for me.
+- I started making movies in the early '90s, a few years after I discovered 'the cinema' during a three month stay in Paris during which I watched 100s of films.
+- By 15, I was lucky enough to find the theater.
+- I don't think I'd ever start making a film until I had both the intimacy with the subject and the distance to make it live in a certain way.
+- I think there's a fear of difference in American cinema.
+- A lot of what I think I do as a director is try to give everything over to the actor. So I disappear.
+- Seeing the road show of 'A Chorus Line' in 1977 at the Orpheum Theater in downtown Memphis was a life-changing event for me: there were gay people, on the stage, and they all lived in New York.
+- Intimacy is something to be cherished, and intimacy is not something to be afraid of.
+- I conveniently was not accepted to film school, which I applied to in 1987, and so I decided I would become a filmmaker instead of a student.
+- As I've gotten less righteous, less pedagogic, I have become more loving of the artificiality, the art form, the imitation of life in film.
+- You can be aware of the passing of time without being nostalgic.
+- New York grabbed me too hard, as did adulthood.
+- Music Box has proven itself in a few short years to be a cutting edge distributor with a sophisticated understanding of both the market and cinema.
+- Secrets make for good drama, and revealing the hidden truths and contradictions of life is, for me, one of the most exciting aspects of making movies.
+- Suspense films are often based on communication problems, and that affects all of the plot points. It almost gives it kind of a fable feeling.
+- My father moved out to Park City in in the mid-'70s and lived in a Winnebago behind a hippie joint called Utah Coal & Lumber that was one of only two or three restaurants at that time. Park City was a sleepy little mining town, with not a condo in sight.
+- Being an artist is in part an act of rupture.
+- By 1988, I was living in New York myself.
+- I always think of my films within the context of where aesthetics meet economics. That's the nature of making art - not being naive about what is possible and getting what you need to tell the story you want to tell.
+- I'm not interested in a film about deceit anymore. I think I was always invested in deceit on some level. But it no longer compels me the way it did for so many years.
+- Fighting bitterness can be a full-time job.
+- Everything encourages you not to tell stories of gay lives. There is no economy yet for that kind of cinema.
+- I came to N.Y.C. in 1988 and got very involved with Act Up. I also started making movies, including two very gay shorts, 'Vaudeville' and 'Lady.' It was the height of the AIDS epidemic, and New York City was both dying and very alive at the same time.
+- I grew up in the 1960s in Memphis, and my father was a member of the American Civil Liberties Union. I was born three years before Martin Luther King was killed, and I think that history of civil action was something that I had in my blood.
+- All history is defined by shifting modes of reality and time and how things change. That's what I love about cinema. It changes in the moment.
+- Every time you make a film, you create a world. You make decisions about sets and costumes, and you create a universe connected to reality, but not reality itself.
+- As independent filmmakers, we are actually deeply dependent on each other. The Spirit Awards are a public expression of those bonds, the intricate set of relationships and histories that we filmmakers depend on to make our most personal work.
+- I've made four films about the destructive nature of relationships, of secrets and lies, and I think I'm no longer interested in that subject - which is a wonderful relief.
+- Everyone wants to belong, and everyone needs to belong in order to make a career on some level.
+- I don't rehearse with my actors... the first rehearsal is the first time we turn the camera on... Sydney Pollack never rehearsed his actors, and I found out that's allowed... so you film reactions; you don't create them.
+- Movies are romantic fantasies.
+- You can only begin to share life well when you think well of yourself.
+- What I loved about 'Goodfellas' is that it's a film about bad behavior - but told with great energy and without judgment - but it doesn't actually shy away from the consequences of that behavior in the characters' lives, which I think is similar in 'Keep the Lights On.'
+- I've been close to two or three couples, gay and straight, who have been together for 45 years.
+- I remember being a teenager and seeing Seymour Cassel across a crowded room and being incredibly star struck, and not having the courage to say, 'Hello.'
+- I think it's interesting: What is the generational effect of the experience of being a gay person in America? For my generation, it was very difficult.
+- I find the stuff that is exciting to me are the films coming out of Taiwan and Iran and France. So I have the feeling I'm not making the films that American distributors want to make.
+- As a filmmaker, you realize that places have character based on their history as much as a face does or an actor does.
+- I got into filmmaking in order to tell very personal stories, and in this day and age, the opportunity seems all the more precious.

@@ -1,0 +1,19 @@
++++
+author = "Lubna Olayan"
+title = "Lubna Olayan Quotes"
+quotes_len = "13"
+description = "the best 13 Lubna Olayan Quotes"
++++
+- If you have a dream, don't let anything stand in your way.
+- How is our society going to progress if 50 percent of the population is not allowed to contribute?
+- I never dwell on what I've personally achieved.
+- I think that Saudi women are very powerful. And I think that Saudi men are the greatest support to Saudi women.
+- I'm all for diversity - but diversity for deserving people.
+- I think that driving is the least important issue. We as women have a lot more things to tackle before we get to the issue of driving, such as the opportunity to work in any field we choose.
+- If we want Saudi Arabia to progress, we have no choice but to embrace change.
+- Education is the basis of creative thought: the ability to go beyond asking why to why not.
+- The more challenges you face in life, the more of life you experience - this lived experience gives one the 'influence' to impact others' lives.
+- In Saudi society, women are extremely respected. I never had an issue with that at all.
+- True leadership knows not to go to extremes but knows how to confront and appreciate challenges.
+- Saudi men have sisters, mothers, and wives, and in my working experience, I have had tremendous support from Saudi men. I really don't think that Saudi women are oppressed or abused.
+- Nothing beats hard work.

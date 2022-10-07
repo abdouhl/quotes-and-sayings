@@ -1,0 +1,41 @@
++++
+author = "Bill Haslam"
+title = "Bill Haslam Quotes"
+quotes_len = "35"
+description = "the best 35 Bill Haslam Quotes"
++++
+- Lawyers don't serve everyone... Lawyers right now can say, 'I'm not the person to help you on that issue; I don't agree with what you're trying to do;' and they can turn down that person, and they can go somewhere else.
+- The nation is trying to catch up with a rapidly changing world.
+- I don't know how you talk about the founding of America, and what became of the United States, without talking about religious doctrine.
+- My job as governor is different from the legislators. They represent their districts. I have to represent all 6.6 million Tennesseans and come to the best decisions I can.
+- We need to have people who are talking about, 'Here's exactly what I would do differently.' That's what's important as we go vote.
+- We have a lot of entitlement programs in this country, and we've seen how much they cost us on the back end when people don't have the education they need. I say let's make this investment on the front end. I think it'll be better for the individual and better for our state in the long term.
+- Almost every business is regulated by the state. So if you're going to say, 'If you own any business, you shouldn't run for public office,' I don't think that's what we want.
+- Let's bear down on what we can do together: keeping Tennessee a state with a strong financial condition, helping Tennessee be the number one location in the Southeast for higher-quality jobs. And making certain that all Tennesseans, regardless of their circumstances, have an opportunity for higher-quality education.
+- Obviously, we have a political season in the United States, and there's always different winds that blow on that.
+- Tennessee obviously has a proud history of military service, but unfortunately, that also means that we have lost a lot of people serving the country who are Tennesseans.
+- David Gregory is known by and respected by many for his years of service to the Tennessee Board of Regents and in many roles in state government.
+- Doing something about infrastructure is something I would like to see while I'm governor.
+- When people talk about conservative government, that's it in a nutshell. We're using taxpayers' money like we would use our own. We're holding in the reins during good times so we're prepared during bad times.
+- We have to be about finding long-term solutions to our biggest challenges.
+- Governors sometimes have a hard time jumping up on a table and yelling the loudest because they've actually been there. They realize it's difficult to govern in a split environment.
+- I want to emphasize that character in our leaders does matter.
+- If we are recognizing the Bible as a sacred text, then we are violating the Constitution of the United States and the Constitution of the State of Tennessee by designating it as the official state book.
+- As somebody who thinks Tennessee history is important, I want to make certain that's still a part of the curriculum. I think that's critical for the people growing up in our school system.
+- To say that because of someone's heritage or their ethnicity that they are unable to provide fair judgement is just wrong. It's just not how the judicial system works in our country and not how it ever can work.
+- In general, everybody should admit the world is changing really fast, and it's hard for the conversations to keep up. I mean, it's hard to remember now, but when Barack Obama ran for president, he was against gay marriage.
+- My job is to get the very best people we can.
+- Good legislation should bring clarity and not confusion.
+- I actually went out and tried to hire the very best Cabinet officers that I could, understanding they can make help make the hard calls for the budget position that we're in.
+- At the end of the day, I think the most conservative principle there is, is giving people a dollar worth of value for a dollar worth of tax paid.
+- At the end of the day, I'm certainly hopeful they can leave some time to focus on Tennessee history. But we understand the struggle when it comes to curriculum time and what you just physically don't have time for.
+- I have commissioners who had very good jobs, making good salaries, and gave up something to work for the state.
+- Do I disagree that we need to ban all Muslims from entering the country? Yes, I disagree with that strongly.
+- Men and women motivated by faith have every right and obligation to bring their belief and commitment to the public debate. However, that is very different from the governmental establishment of religion that our founders warned against and our constitution prohibits.
+- Although Senate Bill 1556 has received attention for its perceived focus, my job is to look at the actual substance of the legislation.
+- If we believe that the Bible is the inspired Word of God, then we shouldn't be recognizing it only as a book of historical and economic significance.
+- I personally wonder... regardless of whether you're a religious person or not, everybody comes into every conversation with a particular worldview and things that you believe are right or wrong. The question is can you counsel from a totally non-value-based position?
+- If we abandon our values by completely shutting our doors to those who seek the freedom we enjoy or mistreating our neighbors who made it here after enduring unimaginable hardships, the terrorists win.
+- I think people are tired of just, this kind of continuous conflict. They want to see principled problem-solving.
+- I join a lot of others who say, as someone who is a first time candidate, you have to realize that words matter, and the things you say have a lot broader impact, and I join those who are thinking that we hope that now that Trump is the Republican nominee there's a shift toward a more thoughtful approach to how and what you communicate.
+- I'm going to do my very best to ensure that our jobs are all market-competitive.

@@ -1,0 +1,15 @@
++++
+author = "Beji Caid Essebsi"
+title = "Beji Caid Essebsi Quotes"
+quotes_len = "9"
+description = "the best 9 Beji Caid Essebsi Quotes"
++++
+- To fight extremism, we will need to pursue a two-pronged strategy: both 'hard,' through stricter control of our borders and a more robust and technologically advanced security response, and 'soft,' based on better intelligence-gathering, working to return our mosques to their spiritual function and barring entry to foreign preachers.
+- When you are a politician, it means to work for the benefit of the country, not to stay home. In politics, it ends only when one dies.
+- The Tunisian people will not bow. We will stay united against terrorism until we wipe out this phenomenon.
+- We respect every religion. Everyone is free to practice his religion freely... In the Tunisian parliament, we have even Jews.
+- The future begins today! What is important is what we do today and tomorrow for Tunisia and all its children. We must work hand in hand.
+- I've always maintained there is no incompatibility between Islam and democracy. The Europeans in general confuse Islam and Islamism. Islamism is a political movement that instrumentalises the religion to get to power, which has nothing to do with religion. Islam here in Tunisia is a religion of openness, of tolerance.
+- The democratic process is always vulnerable and threatened by terrorists, by parties that do not believe in democracy.
+- There is no future for Tunisia without consensus among political parties and members of civil society.
+- There is no dignity without work. You can't tell someone who has nothing to eat to stay patient.

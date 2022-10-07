@@ -1,0 +1,25 @@
++++
+author = "F. W. De Klerk"
+title = "F. W. De Klerk Quotes"
+quotes_len = "19"
+description = "the best 19 F. W. De Klerk Quotes"
++++
+- It was fortunate in looking back for South Africa and its entire people that Mandela and I found it possible to work together even though big strains developed between us from time to time.
+- The government that came into power after the April 1994 elections was going to need a budget. It was drafted by our finance minister, Derek Keys, and he convinced them of the necessity to stay within the free-market principles that had been in force in South Africa for decades.
+- It was an honour for me to have been able to work with Mr. Mandela in the process that led to the adoption of the interim constitution and our first democratic elections in April 1994.
+- I played an integral part in helpings formulating that new vision... that we must abandon apartheid and accept one united South Africa with equal rights for all, with all forms of discrimination to be scrapped from the statute book.
+- I felt a sense of fulfillment that an action plan, which I'd laid on the table on the 2nd of February 1990, had been fulfilled, had been properly implemented within the time frame which I envisaged.
+- For many years, I supported the concept of separate states.
+- When I first met Mandela, we did not discuss anything of substance; we just felt each other out. He spent a long time expressing his admiration for the Boer generals and how ingenious they were during the Anglo-Boer war.
+- What I haven't apologised for is the original concept of seeking to bring justice to all South Africans through the concept of nation states.
+- President Mandela was not a hands-on president at any time.
+- You cannot say we are a healthy, dynamic democracy when one party wins almost two-thirds of the vote.
+- I believe that first impressions are very important.
+- I have made the most profound apology in front of the Truth Commission and on other occasions about the injustices which were wrought by apartheid.
+- The relationship between me and President Mandela right at the beginning was not a very well-established relationship. It was based on two meetings.
+- The question that we must ask is whether we are making progress toward the goal of universal peace. Or are we caught up on a treadmill of history, turning forever on the axle of mindless aggression and self-destruction?
+- In our quest for peace, we should constantly ask ourselves what we should do to create conditions in which peace can prosper.
+- Above all, we owe it to the children of the world to stop the conflicts and to create new horizons for them.
+- When I talk about the end of apartheid, I prefer not to claim the honor that I have ended it.
+- My predecessor, P. W. Botha, had an inner circle, and I did not like it. I preferred decisions to evolve out of cabinet discussions. That way, we achieved real co-ownership of our policies.
+- The ANC party from time to time comes with legislation which, if accepted and if not nullified by the constitution of court, would have the effect of undermining the constitution and eroding its values.

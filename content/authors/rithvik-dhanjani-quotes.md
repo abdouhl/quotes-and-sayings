@@ -1,0 +1,80 @@
++++
+author = "Rithvik Dhanjani"
+title = "Rithvik Dhanjani Quotes"
+quotes_len = "74"
+description = "the best 74 Rithvik Dhanjani Quotes"
++++
+- As an actor, I feel there isn't much to explore on TV. So, if I get better work as a host, why wouldn't I do it?
+- Love is not just about love for your girlfriend, boyfriend, husband, or wife. Love, for me, is the love for my work, family, and even friends. The emotion is very strong. It comes with a lot of responsibilities.
+- In a fantasy show, you can't be random with creative ideas. So that is a drawback for our industry. Since it is daily, with fantasy shows, you need to stick to the script. If you don't, it will become saas-bahu show.
+- I really love all my fans and would never want anything wrong happening to them.
+- I believe you can make your better half feel special on any given day and turn it in Valentine's Day.
+- I had this one dear friend in college who was a chain smoker. His smoking habits led him to major health problems. That's the time I remember telling him to let go. And after a point, he did listen to me and gave up smoking.
+- I think I have balanced hosting and acting pretty well.
+- I don't follow brands religiously, but there are certain brands I feel comfortable wearing, like H&M and Zara.
+- One of the major things in any dance-based reality show is how smartly you can impress the audience and keep your cool throughout the show.
+- If you want to evolve and reinvent yourself, you will need to observe people and explore a lot.
+- I love being an anchor, as it gives you a chance to be yourself.
+- I'm extremely delighted to host the special show 'Dussehra - Jeet Sachchai Kee', which will celebrate the spirit of good over evil. The show will be filled with a heavy dose of entertainment as renowned celebrities from across popular television shows will be joining in the celebrations and saluting the spirit of righteousness.
+- My name is not really a common one, but people always tend to mix it up, which is quite embarrassing! As there have been incidents where I would be all ready to go on stage for my performance, and the host would say, 'Ladies and gentlemen please welcome Mr Rithik.' And, I would have to remind them that it isn't Rithik but Rithvik!
+- I choose my work based on what is offered to me. If I see if my role can change the way the show will shape up, I come on board. If me being there in a show will make no difference, then I won't bother being part of it. I am inclined to do things that I haven't done before.
+- 'Bigg Boss' is one show that I can never be a part of. I am very restless as a person, so keeping me locked won't be a good idea.
+- I adopted a pet because I have been wanting one for the longest time. In fact, I am really close to Ravi Dubey's dog Moyo.
+- I would not want to be a part sass-bahu sagas. These are not realistic, and it gets tough for me to relate to my role.
+- I believe that a web series allows actors the freedom to express their views.
+- 'Yeh Hai Aashiqui - Siyappa Ishq Ka' has become a part of who I am. I will be narrating the stories, and as a narrator, I get to experience each story up close and personal and go through the same range of emotions as the characters.
+- I'd rather say that had the going not been tough, perhaps it wouldn't have been as enjoyable.
+- I am a very bad cook.
+- Love is everything for me. It's the way of life. It's the way of expressing and way of breathing for me.
+- If it is a fantasy fiction, and you want to portray a story of a vampire, you have to keep the essence of the story same. But if you have to have five episodes a week, where do we get so much content from?
+- As a person, I am not really someone who would intervene and tell you to do the right thing.
+- I never chose something just for the money.
+- Weight training keeps you fit and helps build your strength.
+- There are many dreams which I never wanna wake up from. Actually, I don't like waking up, full stop. So no matter what the dream is, I just don't wanna wake up and get out of bed.
+- There is no formula for winning any show. One just has to be at ease and mentally stable.
+- Popularity matters a lot, as at the end of the day, the love of your audiences can make you win.
+- It was fun to dance in heels, and personally, I love dancing.
+- I feel that people who think it's okay to barely eat are wrong. There has to be a good balance of diet, food, and workout for your body to stay in good shape, always!
+- I've been always clear that I wouldn't do TV soaps just for the sake of doing them. I would rather wait and work on projects which enable me to make an impact.
+- Be it 'Dare 2 Dance,' 'Man vs. Job,' or 'I Can Do That,' I have always taken up projects that is innovative. I want to try out different things, as that gets me going.
+- I am all for TV, but I want to be part of shows that stand out.
+- 'I Can Do That' has been the most challenging show of my life, and the result has been overwhelming. It is good to know I will be in the history as the first winner of the season of the show.
+- Doing 'YHA' felt as if I was shooting for a film because it was a love story with a definite ending and good script.
+- Judges have their own point of view, and we have to respect them for that. Rather than feeling bad, we respect our judges and their opinions.
+- The feeling of actually being with someone you love at that moment is completely different than a video afterwards.
+- I never thought I would end up wearing heels someday.
+- Cross fit, callisthenics, and weight training are a regular part of my workout regime. It's helped me a lot with my stamina, agility, and movement.
+- I would not really be a part of something that doesn't interest me.
+- Be it 'Jhalak,' 'Dance India Dance' or 'Nach Baliye,' I give all the credit to Ekta Kapoor as, just because of her, I am here. She has an eye to identify the real talent. Instead, I would say she knows how to make things work for her. She is not simply called the queen of Indian Television: she is the tigress of TV, I would say.
+- Even when I interact or meet my fans during events, I let them know of my actual Twitter handle so that they are not taken advantage of by anybody online pretending to be me.
+- When I came to Mumbai from Dubai to become an actor, I used to entertain people at parties by showing some card tricks.
+- I believe now the industry has seen a different side of me. They have seen me in advertisements, they have seen me act, and now they have seen me as an all-rounder, complete with my dancing ability.
+- I feel these shows allow you to be yourself, this is why I like to be part of them. Also, reality shows have a much bigger reach and provide a bigger platform for an actor.
+- I have hosted many shows in the past. Anchoring is something I really enjoy; hence, when I was offered to host the show 'Super Dancer,' I was excited to take it up.
+- I never have such luxury of leisure time. But whenever I get some time, I catch up on watching movies, keep going to theatre to watch plays, gigs of my actor friends.
+- I'm excited to be part of the world's biggest dance show. What attracted me towards the show, apart from its global popularity, was the format of street versus stage.
+- I love to drown myself in work. I pray to God to keep me busy and let me do good work.
+- Social media has helped bridge the gap between actors and fans. We are blessed to get so much love, good wishes, and support from people across the world.
+- 'Aye Zindagi' is a show which is about stories inspired by real-life incidents. You might be able to relate to these stories, as it can be about anyone around you.
+- I am a workaholic and can do four things at a time.
+- Fashion, for me, is comfort. It is the most important thing for me.
+- If you are a good actor, then all you have to do is give your best shot every time when you are in front of the camera regardless of who else is around you.
+- The only pressure you put on yourself is the one you want to. No one else can pressurise you.
+- I follow an extremely strict diet counting my calorie intake, keeping in mind a very balanced ratio of proteins, carbs, and fats.
+- There are some disheartening days where I don't get to eat my favourite sweets, but my diet has to be followed.
+- It's important for fans to follow only verified accounts of actors. For instance, I am not on Facebook, but I know that many people are running accounts on my name, claiming to be me. Young girls end up liking such dubious pages and get swayed by the activities that happen there.
+- I personally adore the festival of Dussehra, as its a celebration of our culture and mythological legacy. I celebrate, almost, all my festivals with Life OK, be it Holi or Diwali or Dussehra. It's like a festive home for me.
+- Dancing has always helped in keeping my fitness levels high. When I was in school and college, I used to dance a lot. It helped me stay healthy.
+- I love the fact that people love my work, and they love me as who I am. I think I am pretty blessed, and I am glad I am in this position, and I am really happy about that.
+- As an actor, you should always keep your trump card hidden from your audience. I want the audience to keep expecting more and more from me. I want to do 'different' work - good and memorable roles - so that audience appreciate me more. That's why I love to surprise my audience with something they never expect me to do.
+- Maintaining a relationship is easy when you both are in same profession because you understand the work pattern.
+- I have proved myself as a complete package, so people can be more confident about investing in me, and I do expect a little more trust from the industry members.
+- I share my personal experiences of what is right according to me in a particular situation.
+- I am on the lookout for smart scripts and stories where my role has weightage.
+- I don't think anyone can even come close to the beauty of Madhuri Dixit.
+- Our fans wanted us to be together way before we even realised that we had feelings for each other. Our fans helped us win a dance reality show, and so we decided to share our love with those who have made us who we are.
+- I've been on 'Jhalak Dikhhla Jaa,' and I know it does wonders for your career.
+- I like to learn from everyone I perform with. I have learnt a lot from Paritosh Tripathi, my co-anchor on 'Super Dancer,' and also my good friend Ravi Dubey.
+- I'd like to be part of out-of-the-box films like 'Shahid.' I see myself being part of realistic cinema.
+- I bought a trench coat from Dubai worth 495 dirham.
+- Even when I was in Dubai, I used to host small birthday parties, events, and lots more to make money of my own to fulfil my wish to become an actor. I didn't take any money from my parents to fulfil my dream.

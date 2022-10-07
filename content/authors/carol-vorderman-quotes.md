@@ -1,0 +1,46 @@
++++
+author = "Carol Vorderman"
+title = "Carol Vorderman Quotes"
+quotes_len = "40"
+description = "the best 40 Carol Vorderman Quotes"
++++
+- The first couple of days on the detox diet aren't pleasant.
+- My bottom is so big it's got its own gravitational field.
+- My father was having an affair with a 16-year-old when Mum was pregnant with me. She found out when I was three weeks old and left, not surprisingly.
+- I drive a tiny Toyota iQ. I'm quite frugal and often cut my own hair.
+- We all have, in my family, what we call the 'Vorderman bottom' - a sticky out, bigger-than-normal, signature, of the rear variety. It's been a family joke all our lives - even my lovely brother has one. I know the lines to all the good singalong big bum songs.
+- My commitment is to my kids and my mum and I'm having a whale of a time.
+- There was a great strain in our family because my father didn't want anything to do with me. He was happy to see my brother and sister, but not me. I don't know why. Maybe it was shame. I don't know. But he never wanted anything to do with me. That rejection was terribly hurtful and it went on for years.
+- I'm terrible as I never take my make-up off at night, which I know is really dreadful. Whenever I'm out partying I just can't be bothered and now I am on 'Loose Women' that tends to be all the time. I hope next year holds even more parties for me.
+- I cannot do the piece-of-talking-meat thing, the 'Here's your money, wear a pretty dress and take the cheque.' I'm not made that way. I have to be as good as I can be at whatever I do.
+- The photoshoot glitz and TV studio make-up isn't the real me. I spend most days at home in Bristol in jeans and a T-shirt running around after the kids or shopping in the Co-op.
+- Next year, I hope there will be even more parties, lots of holidays and just having a good time, really. Plus wing-walking, air shows and learning to fly, as they are all things I want to do. I won't be restricted by age.
+- I'd be happy to stay single now because I've always been in relationships. For the first time ever I can do what I want, when I want, with who I want, without answering to anyone.
+- Everything has to be organised for kids in London - you can't just walk three roads to see a friend.
+- I'm a bit frightened of the idea of a full facelift because, when you look in the mirror, you want to look like yourself.
+- After 30 years of television, I want to play more than I used to.
+- I do need my independence. I have to have that.
+- My first marriage was totally unsuitable and shouldn't have happened. It was a whirlwind, rebound thing. I was 23 or 24 - a baby.
+- I'm very pleased how my children have turned out.
+- Since I turned 50, I've had the best year of my life and I now throw as much effort into the social side of my life as I do work - more so now than ever before.
+- Most people have the wrong idea about me because I've been very private.
+- One day Mum saved up for this exciting new thing - a frozen chicken. She cooked it on the Sunday and we all sat around waiting for it, but there was a terrible smell from the kitchen. She didn't realise that the giblets were in a plastic bag inside it. We just ate vegetables and she cried and cried.
+- For now I'm building up stories for the retirement home!
+- The divorce is a regret of mine and my mum thinks that we should have stayed together. He's now remarried so there's no chance of us getting back together.
+- I would put belly laughing at the top of my highlights list. They always say that laughter is the best medicine.
+- I was away a lot on 'Countdown' when the children were young and I couldn't have done it without Mum's help. Because she was at home running all of that, I never had to worry about them.
+- I've never once heard my mum shout and she's 83 now. She's incredible. She's very, very happy, slightly eccentric but loves laughing, which I do too.
+- Turning 50 changed me and I'm far more accepting of myself. I'm not thin, but I am a size 10. I go in at the middle and very much out at the bottom and top. And now I think, 'Well, that's how I am.'
+- Change is one of my favourite words.
+- There are machines that can get rid of your cellulite, so I want to do that. And my friend has just had a machine that has worked on her neck and tightened the elasticity of the skin. You just need a day off work afterwards, so I'm thinking, why not?
+- Once you have children it's love without bounds. You would die for them in an instant, without question. How can you better that?
+- I loved doing 'Countdown.' I now consider that I was very, very lucky - not just because it was such a wonderful show to do, but because it lasted for so long.
+- I would never say never to marrying again but for the time being I'm having a great time.
+- More than 55,000 men from Bomber Command lost their lives, of whom 38,000 were British. That's one in 10 of all the British servicemen lost in the Second World War. It beggars belief that there has not been some recognition for what they gave until now.
+- If you're from a poor background, you have to work even harder. But that's what makes you who you are.
+- It really was hand-to-mouth and you can say, 'Poor little me, how dreadful, what a deprived childhood', but I didn't feel that way at all. It's all about the attitude at home.
+- I can't be bothered to go to the gym, though. I honestly just can't be bothered - it's the most boring thing on Earth. I have tried and every six months I go 'right, I'm going to the gym'. Then I do it for two weeks and get so bored by it.
+- When I get tired, I start eating things that I wouldn't normally crave, like biscuits, because they'll give me a bit of energy to keep going.
+- I think it's really hard for teenage girls in London to just gently... have a life. Everything has to be organised for kids in London - you can't just walk three roads to see a friend.
+- How you look has become ridiculously disproportionate to what you do. Critics are more harsh on female presenters.
+- Ruby Wax has basically ruined my career. You'll see when you watch the programme. I get more intimate with Ruby than I've ever been with another woman.

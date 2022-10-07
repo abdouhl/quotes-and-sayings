@@ -1,0 +1,73 @@
++++
+author = "Chris Chibnall"
+title = "Chris Chibnall Quotes"
+quotes_len = "67"
+description = "the best 67 Chris Chibnall Quotes"
++++
+- I think when you're writing anything you should never be thinking about hardcore genre fans.
+- There is very much a sense of different versions of storytelling within our 'Camelot' - who tells those stories, who creates them, who shifts them.
+- I think sometimes actors who have predominately done comedy get a little typecast by some people.
+- Every writer has compressed time and procedure, and used clarifying dialogue. That's not a scandal: it's a legitimate dramatic technique.
+- I think my job is to deliver the best, most cinematic, rich, exciting, surprising and emotional version of 'Camelot.'
+- Normally the lightbulb moments only happen after 16-hour days, lots of cups of tea and a bit of weeping.
+- In a wider sense, I'm terrified about my kids coming down to breakfast and saying, 'Trump said this and they've voted him president?' How do you explain to your children how to behave as a man in this world?
+- It is a fact of broadcasting that you've got to get the big audiences for the channel that you're on.
+- If ever there was a character that was never defined by gender, it's the Doctor. The Doctor is gender fluid in that sense.
+- There's something very interesting about world leaders promising hope and then carrying through on that.
+- The mood of the country is set by its leaders and they are failing us by not setting a compassionate moral tone in a complex time.
+- I don't think any of the journalists in 'Broadchurch' are villainous. I think they're all trying to do their jobs under difficult circumstances.
+- The great thing about 'Camelot' is that it is an adult drama.
+- Honestly, I could talk to you for seven hours and not run out of great things to say about David Tennant.
+- I think you always need to take new, big risks from a storytelling point of view.
+- It's a 'Doctor Who' budget. A BBC budget, although a very good one. But you know you can't do dinosaurs endlessly for 45 minutes, so there has to be a big 'other' story going on.
+- Broadchurch' has been a life-changing experience for me, but all good stories come to an end.
+- I think women were gradually becoming more independent - the feminist movement of the Sixties didn't just spring out of nowhere.
+- My embarrassing confession is that my father is a 'Camelot: The Musical' obsessive. So as a child, when we were going to visit relatives on the weekend, whenever we were driving back on these three-hour drives, he would be playing the musical soundtrack on repeat, on the cassette in our car, to the extent that we begged him never to play it again.
+- If we lose the BBC it would be a disaster for the entire country. I genuinely believe that.
+- What I didn't want to come in with is 'Camelot' in all its pomp and glory. Instead we're looking at how you build a society, how you build a world that people believe in, and how hard it is.
+- There's nobody you can't love once you know their story. I believe that to be, in the majority, true.
+- The extraordinary thing in all the versions of 'Camelot' and the Arthurian legend is that it's all about the romance and the passion. It's all about great ideals compromised by falling in love with the wrong person.
+- There have been so many different versions of the legend and of 'Camelot,' so what I wanted to do was strip it all back, and go back to the beginning and tell the story of Arthur, from the beginning of the relationship between Merlin and Arthur.
+- As if we didn't have enough fabulous actresses, it's a thrill to be joined by Wales's finest, Eve Myles. Having worked together on 'Torchwood,' it's a joy to be able to welcome her to 'Broadchurch.'
+- In an ideal world, 'Doctor Who' makes the whole nation eight years old, with that excitement and engagement and wide-eyedness.
+- I think you can tell different types of stories within a 'Doctor Who' two-parter.
+- Broadchurch' has always been about the impact of crime, on all those affected.
+- Drama is not a literal portrayal of events. It's a depiction, it's impressionistic.
+- We didn't want 'Camelot' to become a period drama.
+- Born And Bred' is pure escapism, and where we film is one of the most beautiful places in the country.
+- That kind of 'Lord of the Flies' brutality of being 11, it's a tough time. You're trying to figure out who you are, and who your friends are, and what your alliances are, and kids fall out all the time.
+- Growing up as a Brit, Arthur and Merlin and Camelot, and just the idea of it, is embedded in the culture and in your soul, growing up. King Arthur is alongside Robin Hood, as those great British folk tales, myths and icons.
+- So actually, for me, 'Doctor Who,' you want it to be the show with all the emotions and all the feels, really, and that you've had a good emotional workout, from laughter to tears to fear and excitement.
+- As a programme-maker you've got a responsibility to examine your choices and how they play in the wider world.
+- Broadchurch' is shot through with the fear of being a parent: what's the most horrific loss you can imagine and how could you go on living afterwards?
+- Torchwood''s never going to be as heavy an effects show as 'Doctor Who.'
+- I think you want to be writing about the world that we live in.
+- I think 'Doctor Who' is the greatest idea television has ever had, and our job is to convince the rest of the world.
+- The tradition, particularly in old-school British detective things, is everybody's in the drawing room or the library, and they're all gathered, and the detective walks around and tells them where they were that night, and you see the flashbacks.
+- At every point in 'Broadchurch' you're continually told and pulled back into the emotional cost.
+- Doctor Who' is the best show to write for, because of the actors and the scale of imagination that it demands.
+- I love a 'Doctor Who' cliffhanger.
+- Broadchurch' was all about shades of grey, both in characters and storytelling, and I wanted to see that through to the end.
+- The north-west coast of America is that mixture of beauty and savagery, which I felt was very similar to the Dorset coast.
+- Often as a writer, you get your first draft out, and then you look and think, 'Now, what have I got here.' You're really just throwing mud at the wall and then going, 'Oh, there's a pattern there.'
+- I'm not on social media.
+- But I think whenever you're bringing in a new Doctor, you have to set it up in a really great way because it's an entry point for a whole audience. Because the audience of 'Doctor Who' is everyone from eight to 108, life is continually creating new viewers.
+- If you can do something exciting and unusual, you might as well give it a go.
+- The papers feed the public interest but then the public interest demands more in the press and speculation can look like fact.
+- You should always think about the mainstream audience first and foremost, because frankly they are the people who are going to get the show recommissioned. There are not enough genre fans to support shows.
+- You do your best to tell your own story, in the most specific way, and then you hope that that travels well, when it's done with heart and honesty.
+- That's what I love about 'Doctor Who' - it takes you back to being the age you were when you first saw it.
+- I'm incredibly grateful and humbled by the response 'Broadchurch' got.
+- I love 'Doctor Who' as a big, popular, mainstream, accessible show.
+- Doctor Who' is such a broad show. It's got the whole universe to explore.
+- One of your jobs as a writer is to cut out the noise. All you have is your instincts and your process.
+- The range of 'Doctor Who' is, I would argue, bigger than the range of any other television program or movie franchise.
+- Having made other shows, the thing with 'Doctor Who' is that you're doing everything, all at once.
+- Everybody loves great actors.
+- I mean, I'm always happy to be compared with Scorsese!
+- Some scenes take days and weeks, and some scenes take an hour.
+- I've come from theatre and you have different productions of a text in theatre. It's not unusual.
+- I don't ever want to be gratuitous, for the sake of being gratuitous, but when it serves the stories and the characters, it's nice to be able to do that, realistically and with credibility. You don't want to do it for the sake of it, or shoe-horn it in. But, it's a good tool to have in the toolbox.
+- Often what happens with the writing is that you know where you want to start and you know where you want to end, but the journey is never quite what you predict because the characters take on a life on their own.
+- I have no issue with my boys looking up to women.
+- My goal is always to leave you slightly wanting more.

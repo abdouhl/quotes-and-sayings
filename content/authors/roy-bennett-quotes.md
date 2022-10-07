@@ -1,0 +1,18 @@
++++
+author = "Roy Bennett"
+title = "Roy Bennett Quotes"
+quotes_len = "12"
+description = "the best 12 Roy Bennett Quotes"
++++
+- There is no rule of law in Zimbabwe; there's selective application of the rule of law. Patrick Chinamasa, who is the minister of justice, destroyed the independent judiciary.
+- I was a senior leader within the Movement for Democratic Change. I had a farm that was under the Zimbabwean Investment Center, which gave it special protection, because I had an external partner through the export processing zone.
+- I have been persecuted since I joined politics, and I have been living in persecution since then.
+- The spirit of forgiveness should prevail, and there should be tolerance and understanding among all political parties for us to move forward.
+- I could be rearrested at any time; there could be attempts of my life. I have no idea. You are dealing with totally unpredictable people and a nation where the rule of law means nothing.
+- When you enter into a struggle, and you genuinely believe in what you are doing, and you live under injustice, and you live under a regime that is dictatorial and oppresses people, there have to be sacrifices.
+- The multi-party agreement, known as the Global Political Agreement (GPA), created the Government of National Unity (GNU) that has acted as Zimbabwe's governing institution since 2009.
+- For decades, Robert Mugabe has thumbed his nose at the world. The long-time dictator has ruled Zimbabwe with an iron fist, repeatedly insulted foreign dignitaries, ignored regional and international agreements to which he was a signatory, and isolated the country from any legitimate international economic or political engagement.
+- There is absolutely no doubt that Robert Mugabe and ZANU-PF have lost the popular support of the people of Zimbabwe. And the more they become intransigent, the more they become vicious and try to repress people, the more it turns people against them, and the less chance they have of ever holding onto power.
+- In the late 1990s, Mugabe's misguided policies sent our economy and agricultural productivity, our country's lifeblood, plummeting into the abyss. To make up for the financial shortfall, his regime attempted to print its way out of the mess, immediately resulting in inconceivable hyperinflation, topping out at 231 million percent.
+- I have forgiven those who were persecuting me.
+- Robert Mugabe is not representative of who we are, what we stand for, or how we want to be viewed by the rest of world. We are peace-loving people, respectful of foreign representatives, who want the country to be a prosperous, productive. and responsible member of the global community.

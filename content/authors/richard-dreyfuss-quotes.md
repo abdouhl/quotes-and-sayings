@@ -1,0 +1,49 @@
++++
+author = "Richard Dreyfuss"
+title = "Richard Dreyfuss Quotes"
+quotes_len = "43"
+description = "the best 43 Richard Dreyfuss Quotes"
++++
+- There is one solution to all of our problems: Teaching our kids clarity of thought and political representation in democracy. That's it.
+- 'Jaws,' first time I saw it, I forgot I was in it. True. Totally forgot, and got as scared as everybody else, and it's a great movie.
+- The rules are all wrong today. The mandate of the media really does pre-date the founding of the United States.
+- I took the part in 'Mr. Holland's Opus' because no one had ever asked me to play 'a life' before. I get to age through 30 years. The idea really challenged me.
+- John Kennedy really did extend the reach of the American people and said, like Lincoln said in a way, that our reach is farther than our grasp - and we should aim high.
+- In my experience, it's usually up to the actor how a character is portrayed.
+- I spoke so much about being a manic-depressive. I want to bring everyone back to my earliest memories of this companion of mine. Some people call this companion I have an ailment, or worse a terrible nightmare from which some people cannot awaken. I know that I have nothing to be ashamed of. I have nothing that should garner a stigma.
+- Politics has become beyond acceptable when it comes to humanity. People are just frozen in falsehood.
+- 'Jaws' has turned into one of those films that when you see it on TV, you turn it on, and you can't turn it off. So, in that regard, I've seen it a million times. It's the only film I'm aware of that could be released now for the first time and have the same impact that it did then. You can't say that about a lot of movies.
+- We didn't get along, me and Bill Murray. But I've got to give it to him: I don't like him, but he makes me laugh even now. I'm also jealous that he's a better golfer than I am.
+- The bad guy always gets the best scene and the best lines in the film, and they usually get the most days off.
+- If I wasn't an actor, I'd be a teacher, a history teacher. After all, teaching is very much like performing. A teacher is an actor, in a way. It takes a great deal to get, and hold, a class.
+- In a way, J.F.K. was the high point of the American dream. In order to go to the moon and back, all we did was say we could - and we did.
+- Happiness has a bad rap. People say it shouldn't be your goal in life. Oh, yes it should.
+- It must be remembered that the Bush White House has a separate talent for character assassination that must not be confused with a talent for governance.
+- Civility is not not saying negative or harsh things. It is not the absence of critical analysis. It is the manner in which we are sharing this territorial freedom of political discussion. If our discourse is yelled and screamed and interrupted and patronized, that's uncivil.
+- I think I'm turning into a libertarian. I'm not part of the gaggle of Hollywood liberals. I gaggle for no one, and I'm not a liberal. I'm libo-conservo-rado-middle-of-the-roado.
+- I'm nothing if not honest.
+- Power never turns power down, ever, unless institutionally demanded.
+- I lived by the motto, 'If you don't flirt, you die.' And flirt I did. I flirted with all women, be they actresses, producers, or 80-year-old grandmothers. I even flirted with those who were out of bounds, like the wives of some of my best friends, which especially revolts me.
+- We, all of us, are awakening to the reality that how men have behaved toward women for eons is not OK. The rules are changing invisibly underneath our feet. I am playing catch up. Maybe we all are.
+- I have more fun and more grand and glorious moments of my life than anyone I've never known. I know that some people call that manic-depress, and that other people call that being touched by God. I just call myself lucky.
+- The happiest I ever been was when I was a struggling actor. I've had big houses and small houses. I always had work available for most of my career. When I actually had to find jobs to make money, that's when I was happy.
+- Let's give some substance to patriotism. It may take a generation.
+- I really think that living is the process of going from complete certainty to complete ignorance.
+- Television is hypnotic, and it hides among the furniture of your living room. It doesn't reveal itself, but it distorts everything.
+- When you Google me, you'll find a lot of people don't like Richard Dreyfuss. Because I'm cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there's 100 percent support for that.
+- I never had a role that I set out for. I always wanted to have a body of work that I'm proud of. Save for two projects, which will never pass my lips, I'm happy with what I've done.
+- It is an obvious and blatant stupidity beyond my ability to articulate how dumb it is for us not to teach our children how to run the government.
+- We mistake politics for legislative debate. You can be passionate without being personal.
+- I love the ideals of my country. But I hate that we've been so denied any real knowledge of the world and don't have the education to think clearly, so we vote against our economic interest and believe in our most shallow first thoughts of fear and hatred.
+- We need to get back to reasoning and thinking things through. The future generation is being brought up in greed and without a true understanding of civics. There is no more emphasis on knowledge and time. As a society we need to process ideas and understand what certain principles are based upon.
+- I didn't understand 3-D in the fifties and I can't say I get it now either. I just don't see what the big deal is.
+- You've got to protect the system of secular faith in the Constitution and the Bill of Rights and Enlightenment values. That way, you can protect all religions.
+- Kerry is an adult - he thinks things through. He learns from the present as well as the past. To George Bush, thinking things through is for sissies.
+- Trump is an intemperate, mean-spirited, lying bully. If a man like that asked you for permission to marry your daughter, what would your answer be? If it's no, I think it's obvious we shouldn't give him the most powerful office on the face of the Earth.
+- Civics is not only how to run the country before it's your turn to run the country; it is, in fact, the study of power, practical political power. And you must start that process at an age level when kids' brains are still open and malleable.
+- I decided at age 9, but I was reinforced at age 13 when a teacher told me I had talent. I can't say she really motivated me because I already knew. I knew I had talent. I went to the Jewish community theater and got in plays there. Then I went for the movies.'
+- I think I have the finest body of work of any American actor.
+- I don't know what its like for most actors, but really clearly for myself acting has always been the fulfilment of personal fantasies. It isn't just art, its about being a person I've always wanted to be, or being in a situation, or being a hero.
+- Isn't it funny that God takes you and puts you through the unendurable, and then, at the moment you have just begun to understand it and have some wisdom, it ends?
+- I knew I was a manic depressive when I was 13 or 14, and I loved it. I always told people what I had, and I was always cresting on a manic wave. I used it, willingly and happily, and it was an extraordinary experience. When I got hit with the depressive side - Boom! - yes, it was horrible and unendurable, but that's part of the story.
+- I have withdrawn from partisan politics. I am a constitutionalist who believes that the Constitution and the Bill of Rights must be central and the parties must be peripheral.

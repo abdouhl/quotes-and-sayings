@@ -1,0 +1,57 @@
++++
+author = "Lee Iacocca"
+title = "Lee Iacocca Quotes"
+quotes_len = "51"
+description = "the best 51 Lee Iacocca Quotes"
++++
+- The speed of the boss is the speed of the team.
+- If you want to make good use of your time, you've got to know what's most important and then give it all you've got.
+- I have always found that if I move with seventy-five percent or more of the facts that I usually never regret it. It's the guys who wait to have everything perfect that drive you crazy.
+- I guess that's one achievement I'm really proud of. Saving Chrysler was more than jobs, more than shareholder value. Saving Chrysler was a good idea for the whole country.
+- There is no substitute for accurate knowledge. Know yourself, know your business, know your men.
+- You can have brilliant ideas, but if you can't get them across, your ideas won't get you anywhere.
+- We are continually faced by great opportunities brilliantly disguised as insoluble problems.
+- We've got to pause and ask ourselves: How much clean air do we need?
+- Apply yourself. Get all the education you can, but then, by God, do something. Don't just stand there, make it happen.
+- To succeed today, you have to set priorities, decide what you stand for.
+- One of the things the government can't do is run anything. The only things our government runs are the post office and the railroads, and both of them are bankrupt.
+- A guy named Charlie Beacham was my first mentor at Ford. He taught me the importance of the dealers, and he rubbed my nose in the retail business.
+- People want economy and they will pay any price to get it.
+- In a completely rational society, the best of us would be teachers and the rest of us would have to settle for something else.
+- The affections are like lightning: you cannot tell where they will strike till they have fallen.
+- The most successful businessman is the man who holds onto the old just as long as it is good, and grabs the new just as soon as it is better.
+- It was emotional when Chrysler sold out to the Germans.
+- No matter what you've done for yourself or for humanity, if you can't look back on having given love and attention to your own family, what have you really accomplished?
+- I guess I invented extended warranties, because that's all we had to sell at Chrysler in those days.
+- In the end, all business operations can be reduced to three words: people, product, and profits.
+- So what do we do? Anything. Something. So long as we just don't sit there. If we screw it up, start over. Try something else. If we wait until we've satisfied all the uncertainties, it may be too late.
+- I always go back to Harry Truman: Should we drop an atomic bomb to save 100,000 lives? That's a hell of a decision to make. Did he make that decision by himself? No, he had advisers.
+- I was at Ford for 32 years. I went to Chrysler in 1978, four or five months after I got canned by Henry Ford.
+- I hire people brighter than me and then I get out of their way.
+- My father always used to say that when you die, if you've got five real friends, then you've had a great life.
+- The trick is to make sure you don't die waiting for prosperity to come.
+- There are times when even the best manager is like the little boy with the big dog, waiting to see where the dog wants to go so he can take him there.
+- Trouble shared is trouble halved.
+- I've always found that the speed of the boss is the speed of the team.
+- Chrysler builds great cars.
+- I forgot to shake hands and be friendly. It was an important lesson about leadership.
+- If a guy is over 25 percent jerk, he's in trouble. And Henry was 95 percent.
+- We at Chrysler borrow money the old-fashioned way. We pay it back.
+- The kind of people I look for to fill top management spots are the eager beavers, the mavericks. These are the guys who try to do more than they're expected to do - they always reach.
+- In a corporation, there can only be one guy in the end: the CEO.
+- Motivation is everything. You can do the work of two people, but you can't be two people. Instead, you have to inspire the next guy down the line and get him to inspire his people.
+- Chrysler invented rebates, I'm sorry to say. I didn't have anything to do with that. A lot of flaky deals were made in order to give the customer enough cash for a down payment.
+- The greatest discovery of my generation is that human beings can alter their lives by altering their attitudes of mind.
+- Every business and every product has risks. You can't get around it.
+- What is wrong with changing your mind because the facts changed? But you have to be able to say why you changed your mind and how the facts changed.
+- Start with good people, lay out the rules, communicate with your employees, motivate them and reward them. If you do all those things effectively, you can't miss.
+- Talk to people in their own language. If you do it well, they'll say, 'God, he said exactly what I was thinking.' And when they begin to respect you, they'll follow you to the death.
+- I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.
+- The discipline of writing something down is the first step toward making it happen.
+- Decisiveness is the one word that makes a good manager.
+- Management is nothing more than motivating other people.
+- The one word that makes a good manager - decisiveness.
+- In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive.
+- The ability to concentrate and to use time well is everything.
+- The only rock I know that stays steady, the only institution I know that works, is the family.
+- Any supervisor worth his salt would rather deal with people who attempt too much than with those who try too little.

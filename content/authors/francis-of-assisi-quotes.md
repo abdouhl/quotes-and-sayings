@@ -1,0 +1,39 @@
++++
+author = "Francis Of Assisi"
+title = "Francis Of Assisi Quotes"
+quotes_len = "33"
+description = "the best 33 Francis Of Assisi Quotes"
++++
+- No one is to be called an enemy, all are your benefactors, and no one does you harm. You have no enemy except yourselves.
+- It is not fitting, when one is in God's service, to have a gloomy face or a chilling look.
+- Lord, grant that I might not so much seek to be loved as to love.
+- Woe to those who die in mortal sin!
+- Holy wisdom confounds Satan and all his wickednesses.
+- If God can work through me, he can work through anyone.
+- Where there is injury let me sow pardon.
+- We must not be wise and prudent according to the flesh. Rather, we must be simple, humble and pure.
+- Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.
+- Praised be You, my Lord, through our Sister, Mother Earth, who sustains and governs us, producing varied fruits with coloured flowers and herbs.
+- While you are proclaiming peace with your lips, be careful to have it even more fully in your heart.
+- Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.
+- Praised be You, my Lord, through Sister Moon and the stars; in the heavens, you have made them bright, precious and fair.
+- Where there is charity and wisdom, there is neither fear nor ignorance.
+- Men lose all the material things they leave behind them in this world, but they carry with them the reward of their charity and the alms they give. For these, they will receive from the Lord the reward and recompense they deserve.
+- We should never desire to be over others. Instead, we ought to be servants who are submissive to every human being for God's sake.
+- Grant me the treasure of sublime poverty: permit the distinctive sign of our order to be that it does not possess anything of its own beneath the sun, for the glory of your name, and that it have no other patrimony than begging.
+- Praised be You, my Lord, through Brother Fire, through whom You light the night, and he is beautiful and playful and robust and strong.
+- Above all the grace and the gifts that Christ gives to his beloved is that of overcoming self.
+- Praised be You, my Lord, with all Your creatures, especially Sir Brother Sun, Who is the day through whom You give us light. And he is beautiful and radiant with great splendour; of You, Most High, he bears the likeness.
+- The Father willed that his blessed and glorious Son, whom he gave to us and who was born for us, should through his own blood offer himself as a sacrificial victim on the altar of the cross. This was to be done not for himself through whom all things were made, but for our sins.
+- Great and glorious God, and Thou Lord Jesus, I pray you shed abroad your light in the darkness of my mind. Be found of me, Lord, so that in all things I may act only in accordance with Thy holy will.
+- Holy poverty confounds cupidity and avarice and the cares of this world.
+- It is no use walking anywhere to preach unless our walking is our preaching.
+- If a superior give any order to one who is under him which is against that man's conscience, although he do not obey it yet he shall not be dismissed.
+- Holy charity confounds all diabolical and fleshly temptations and all fleshly fears.
+- For it is in giving that we receive.
+- I am the herald of the Great King.
+- A single sunbeam is enough to drive away many shadows.
+- If you have men who will exclude any of God's creatures from the shelter of compassion and pity, you will have men who will deal likewise with their fellow men.
+- Holy humility confounds pride and all the men of this world and all things that are in the world.
+- Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh.
+- It is in pardoning that we are pardoned.

@@ -1,0 +1,31 @@
++++
+author = "Isabelle Huppert"
+title = "Isabelle Huppert Quotes"
+quotes_len = "25"
+description = "the best 25 Isabelle Huppert Quotes"
++++
+- But theatre is always a difficult experience.
+- But it wasn't just a technical approach towards the piano, studying the music for this film was also a way of approaching the soul of the film, because the film is really about the soul of Schubert and the soul of Bach.
+- It really helps you to go through difficult situations by just thinking about it as being a big amount of work which you have to solve how to do. For example, I don't feel very inspired when I act, I just act. That's it.
+- Acting is a way of living out one's insanity.
+- Before I do a play I say that I hope it's going to be for as short a time as possible but, once you do it, it is a paradoxical pleasure. One evening out of two there are five minutes of a miracle and for those five minutes you want to do it again and again. It's like a drug.
+- Firstly I did it in this huge theatre in Avignon, then to smaller places, then bigger places. You have to change the volume of the voice, give more or less. The way you have to relate to space makes it like sculpture.
+- When you come to do the film, it is not the time to wonder why you do it. It's just how to do it.
+- I don't know if you ever say to yourself that you want to be an actress. It eventually becomes a social function - you are an actress and you make a living out of it, but at the beginning it's more a matter of how to survive, or how to exist in a certain way.
+- For an actress there is no greater gift than having a camera in front of you, listening to the most beautiful music in the world and just being looked at!
+- Going through this musical experience really helped us to understand the core of the film.
+- My mom's a Catholic, and my dad's a Jew, and they didn't want anything to do with anything.
+- I never wondered whether I should be a stage actress or a movie actress.
+- Once you have made the decision to do the film, once you have identified the desire and all the deep and personal, intimate, artistic reasons why you want to do the film, then it's more a matter of how to do things.
+- For a long time I have compared cinema to music, I think cinema has a lot to do with the rhythm of music.
+- Yes, he wanted me to do Funny Games before, which I didn't want to do because the film was very theoretical - the way people experience violence on screen. There was very little space for fiction, it was more like a sacrifice for the actors than anything else.
+- I think being an actress is more how to cope with the fact that you can't do anything else than to express a talent. It's a way of being untalented for anything.
+- Perhaps Europeans are a bit more skeptic whereas Americans are more believers.
+- Even for the most difficult scenes, and there are difficult scenes in the film, and because Michael Haneke is such a great film-maker - I think a great film-maker is not only being inspired, but how to do it, how to make it as real as possible, knowing that it's not real.
+- I like to take these unusual characters and then make them as normal as possible, because we all know that the tragedy and the abnormal always hides itself behind the normal.
+- But someone like Claude Chabrol tries to make a connection between the society in which we live and the social reasons which make monsters out of some people.
+- In a very complex way, things have improved in the dramatic field. Before you had the good and the bad and you couldn't mingle them. Now it's more ambiguous.
+- The Greeks already understood that there was more interest in portraying an unusual character than a usual character - that is the purpose of films and theatre.
+- I did a film very quickly, and then a lot of work for television, and then I did stage work.
+- But on the whole, nothing requires unbearable energy for me, it's just a normal thing.
+- For me, making films is like being on vacation, it's a nice walk. But theatre is like mountaineering. You never know whether you're going to fall off or make it to the top.

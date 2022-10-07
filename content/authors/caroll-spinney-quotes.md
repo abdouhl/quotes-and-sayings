@@ -1,0 +1,26 @@
++++
+author = "Caroll Spinney"
+title = "Caroll Spinney Quotes"
+quotes_len = "20"
+description = "the best 20 Caroll Spinney Quotes"
++++
+- Oscar is the exact opposite of how I think you should behave. I just think of it as a negative view of the positive mind I have. Big Bird is sweet and nice and also sympathetic, as kids can identify with him even though he looks like such a bizarre character - great 8 feet 2 inches, a beak 18 inches long.
+- Most people don't hold a job for 45 years. They pass on or want to retire. I don't want to retire. My real goal is to do 50 years on 'Sesame Street,' and I only got 4-and-a-half years to go.
+- I have a strong memory of my early childhood. I can remember life before I was two. I remember being toilet-trained like it was last week - and it wasn't last week.
+- When I was eight, I bought my first puppet. It was a monkey, and I paid five cents for it. I collected some scrap wood and built myself a puppet theatre. I made 32 cents with my first show, which I thought was pretty good, and that's when I knew I would be a puppeteer when I grew up.
+- I see no reason to quit. I can't imagine walking away from being Big Bird. I mean, that's an awfully good job that there's not too many of them. So I just want to keep doing it till I can't do it anymore.
+- Frankly, I think if I won the lottery and won a billion dollars, I'd still want to continue doing this job. I love expressing myself through it. I've gotten to really love acting. And I've gotten to know Big Bird from the inside out so thoroughly it's like playing my kid. I can't imagine deliberately stopping.
+- I've learned to say, 'I'm a friend of Big Bird. He even taught me how to sound like him.'
+- I know I don't own Big Bird, but I own his soul, I feel.
+- Big Bird went through his very human kind of struggles as a child. No other children's character has been that complete and detailed.
+- When he first started - Jim Henson, who created Bid Bird and Oscar - he said Big Bird was just a big, goofy guy. And it was - a script came along and I said, 'I think Big Bird would be much more useful to the show if he were a child learning all the things we were teaching in the show.' And so he didn't know the alphabet, even, for instance.
+- The other puppeteers are really good, often when they are singing together, they go left, right, left... But if they are all moving to the left, I'm moving to the right. Big Bird and Oscar, that's okay, because they are individuals anyway.
+- When I got to New York, I had no place to sleep. The pay from 'Sesame Street' wasn't enough to rent an apartment. I was staying on people's couches. I stayed in the dressing room until they found out. I stayed with Jim Henson and his family for a week, and I wanted to do that permanently. I didn't dare ask, though.
+- I was suffering a divorce, and I was very unhappy because my children were very young. It hit me when a woman, a fan, was chatting with me. She was pleased to meet Big Bird because her children liked him and liked the show, but she didn't know that my face was streamed with tears.
+- I've played Big Bird for over half my life, and now I'm in my 80s. It does feel older than 79. Someone said it's just a number, and I said, 'No, I genuinely feel older.'
+- You can exaggerate with puppets. You're not trying to look like real people. The way the Muppets are designed is really appealing. Puppets are best if they're exaggerated creatures.
+- I found out animation is incredibly boring. You draw and draw and draw, and it's only a few seconds done in a week.
+- I was called such names as a kid. Being the smallest boy in the class with a name like Caroll. I remember going home and saying to my mom, 'What were you thinking?'
+- I think there's an awful lot of me in Big Bird, but Oscar is pretty much - I think I know how he thinks because he thinks exactly the opposite of what I think is a good way to be.
+- I was asked to be on 'The Colbert Report' last year as Big Bird and Oscar. But when we got there, we discovered they wanted both characters on at the same time. Stephen Colbert didn't know one man plays them both. We called Joey Mazzarino, our head writer, who's a very good puppeteer as well. He agreed to zip over and do Oscar.
+- Big Bird is based on what I learned as a child.

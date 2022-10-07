@@ -1,0 +1,16 @@
++++
+author = "Anthony Lapaglia"
+title = "Anthony Lapaglia Quotes"
+quotes_len = "10"
+description = "the best 10 Anthony Lapaglia Quotes"
++++
+- A lot of people think I'm that guy in 'Betsy's Wedding', but I'm not. What it is for me is that, on some level, I connect with the character emotionally.
+- And when you started looking into Roger East, it was almost like he had disappeared from history.
+- For the most part, the American film market has become very corporatised, even independent film to a degree, and because of the corporate management mentality, they want to take the safe way.
+- I can't find my car keys in the morning. Trying to get out of my house is a nightmare. 'Where's my wallet? Where are my keys? I have to go find a missing person.'
+- So I built my entire career in the United States and that's why it feels like I'm an American actor.
+- Steve Martin is one of the most intelligent, well-read human beings that I've ever come across. He is equally as funny off screen as he is on. But he also has a very intellectual side, and he's a really nice human being. We actually become good friends.
+- The whole question of God and what God is, and whether it's a blond guy with a beard, I don't know... I don't know that. Do I believe that there's something greater at work than the sum of humanity? Yeah, I think so.
+- I like the Baldwin boys a great deal. Alec is super-smart, super-articulate, almost too smart to be an actor.
+- I had a vocal coach. It's a sad thing, but I had to hire someone so that I could get my Australian accent back.
+- My accent's become a weird hybrid.

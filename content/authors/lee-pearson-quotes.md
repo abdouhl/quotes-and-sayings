@@ -1,0 +1,36 @@
++++
+author = "Lee Pearson"
+title = "Lee Pearson Quotes"
+quotes_len = "30"
+description = "the best 30 Lee Pearson Quotes"
++++
+- I'm a gay disabled man who has become very successful. I don't get up in the morning and think I'm inspirational; I just get up thinking that I love horses.
+- My motivation is paying the mortgage. No joke. Honestly. I still suffer with nerves and think, 'Why am I putting myself through this torture?' It's not actually the love of winning - it's that building of a partnership with a horse. Just riding horses every day keeps me going. And that threat of losing the mortgage.
+- I understand when people think dressage is boring. But while your standard horse is like driving a Fiesta, our horses are like driving Formula One cars. I can't breathe without the horse reacting. You are training another being to become really responsive and athletic and powerful.
+- Before taking up dressage, I'd distanced myself from the Paralympics because I hadn't wanted to be defined by my disability. Then when I grew up and got an office job, things started to change. I'm actually allergic to horses, but I'm even more allergic to paperwork!
+- Paralympics has always had to push the media into it being about sport and not focusing on the disability.
+- My great grandfather had been the neighbourhood 'horse whisperer,' so I've probably loved horses since I was an embryo. Whenever I watched cowboy films as a small child, I wasn't watching the hunky cowboys - which I'd probably do now - I was watching the horses. Even now, I love sitting in the field just watching the way they move.
+- My life's been surreal from start to finish.
+- I feel lucky that I found my talent, not unlucky that I was born with a disability. When I'm on a horse, I'm more worried about what the riding hat is doing to my hair than what my bent legs and arms are doing. What riding has given me is respect.
+- I couldn't pedal a bike as a child, so I had a donkey instead. I loved the power and freedom it had.
+- I'm just a genetic freak, but it has never stopped me from doing whatever I want to.
+- Whether I'm riding a horse or driving a car, I'm feeling them, judging what they're doing, trying to work out what I can take them up to.
+- The Paralympic Games actually turned my whole mentality around about disability. When you're in the Paralympic athletes' village and there are 4,000 disabled people, you stop seeing disability. Totally.
+- I've thought about adopting, but I'm a bit paranoid that because I'm gay and disabled I'd be put straight off the list. My mother thinks that I would jump the queue because they like minorities adopting. I have great genes, though, and I would like to pass them on.
+- I'm not really into the fame thing. I've met so many celebrities now, and everybody's just the same. I'm a bit of a family bird.
+- I think it's phenomenal and expected that Paralympians will take on able bodied people more and more. In dressage, it happens all the time. But there are very few adaptions, and they are never allowed to give you an advantage.
+- When people chat to me about my childhood and getting into horses, they're like, 'Was it like the birds sang and the sun came out? Was it an amazing experience?' I'm like, 'No, it was rubbish. I was frightened. I was pretty unbalanced, and most ponies took advantage of me.'
+- When I pull my white Range Rover into disabled parking bays, the abuse that I get until I actually get out on my crutches is phenomenal, because people presume that you couldn't possibly be disabled and reverse a white Range Rover into that parking space.
+- I've got a quad bike, which I've raced against neighbours. You could give me a go-kart with a lawnmower engine - I'd still have fun. I like jet skis, speedboats, all the boys' toys.
+- I don't just love riding; I love horses. I was in the field at my yard watching them gallop around and play the other day. That's what keeps me going, and sometimes it has to be something more than just winning.
+- I've dominated past competitions, but I've sweated blood and tears for every medal. I take nothing for granted, and I'm fully focused on doing my best.
+- I always say I'm one of the most normal abnormal people you'll ever meet. I get embarrassed about how many medals I've won, and I get angry when people presume that because you're gay you've got to wear pink and stilettos and camp it up, or that if you're disabled you should act like a victim and not have a life.
+- If you try singling me out to my mother, she'll be down your throat. She has three sons, and she's equally proud of us all.
+- You know that the world is a better place when people can come up to a severely disabled person and say: 'Well done. You are an inspiration.'
+- I had a donkey called Sally that I used to call my BMX bike. As a child, I wasn't a very good horse rider: I thought falling off was normal, and I would just get back on again. I didn't realise you weren't meant to fall off.
+- For me, Paralympic sport isn't about being the best human being. It's about being the best human being with that particular level of disability.
+- I just love the development of horses, getting into their brains, making them more athletic and powerful, responsive, and I'm rubbish at everything else.
+- I'm afraid to say I was Mr. Popular at school. I went out with all the girls in my year - I quite liked girls back then - and even dated ones in the year above.
+- If you don't like something, change it. My parents expected me to stay in my office job as an administrator at the Co-op because I'm disabled, but I said no and changed my whole life.
+- I've stayed in the best hotels in the world, but you could put me in prison, and I'd still have fun.
+- I joke that the Olympics is the warm-up to the Paralympics.

@@ -1,0 +1,37 @@
++++
+author = "Ric Flair"
+title = "Ric Flair Quotes"
+quotes_len = "31"
+description = "the best 31 Ric Flair Quotes"
++++
+- I bleed like nobody else.
+- You gotta have a pocket square, I think.
+- I tell everyone in the world that I have always been the best father I could be and that I was the worst husband. Wooo!
+- Without your health, you've got nothing going on. I thank God every day for good health.
+- I spent more money on one robe than guys spend in five years.
+- I'm every woman's dream and every man's nightmare.
+- If you don't like it, learn to love it!
+- My problem is that I think everybody needs to work as hard as I worked when I was in my prime.
+- Space Mountain may be the oldest ride in the park, but it has the longest line.
+- All the women want to be with me, all the men want to be like me.
+- I'm Ric Flair! The Stylin', profilin', limousine riding, jet flying, kiss-stealing, wheelin' n' dealin' son of a gun!
+- I had my first 'Survivor Series' in 1991 and I was fortunate enough to be an instrumental part of the shows I was on.
+- I have had the greatest wrestling career in the history of pro wrestling.
+- The guy who could be me, but he knows when to draw the line, is John Cena. John Cena can rock 'n' roll, let me tell you.
+- First of all, Vince McMahon doesn't argue - he tells you!
+- To be the man, you gotta beat the man!
+- I can take more punishment than anyone in the business.
+- I feel great. I had a blood clot. It was a bad deal. But when I look at my friends with hip replacements, knee replacements, shoulder replacements, neck surgeries, back surgeries, I'll take the blood clot.
+- I was really good at being a bad guy; I like that role. Not being bad to people - just talking bad.
+- I was really good at being a bad guy.
+- Richard Fliehr does not make any money.
+- If you have notoriety, you can dress any way you want to dress. That's the way it is. I just like to get dressed up. I think that they go hand in hand - notoriety and people lookin at ya. If they look at ya, either you look like a million dollars, or you don't. A guy can have a phenomenal body, but if the suit doesn't fit him, forget it.
+- For me, it's about camaraderie. My whole life is like, if something's going on, nothing ever preceded fun. I always put my friends and the fun and the business ahead of everything.
+- None of this was written to hurt anybody's feelings.
+- Do I feel like I'm 65? No. I feel like I'm 15. That's my problem. I'm trying as hard as I can to act like I'm 65, but it's very difficult.
+- When somebody has convinced you that you're not worth anything to anybody anymore, and they spend a lot of time doing it, you start believing it yourself.
+- Miami was always a town that was kind to me as a wrestler. It's a great wrestling town, and it's a great town, period. There's so much to do in Miami.
+- It's much more casual than it was, but my clothes and my ring attire - I thought up half of what I brought to the show.
+- In order to be the man, you have to beat the man.
+- I do close to 30 minutes in cardio at a very high rate. I raise the level of intensity. I do a level 18 on the elliptical at four miles an hour for 20 minutes. That's 360 calories. I want to see someone else try that. The resistance factor at 18 is brutal. No one goes to 20.
+- Nobody has wrestled everybody in the business like I have, especially not Bret Hart.

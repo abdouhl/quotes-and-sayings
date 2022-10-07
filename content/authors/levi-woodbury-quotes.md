@@ -1,0 +1,11 @@
++++
+author = "Levi Woodbury"
+title = "Levi Woodbury Quotes"
+quotes_len = "5"
+description = "the best 5 Levi Woodbury Quotes"
++++
+- Laws fixed, certain, and uniform, are said to be the distinguishing traits of civilized from savage communities. In these last, seldom are any laws, unless it be the arbitrary and uncertain will of the strongest.
+- Juries must, of necessity, be governed, in reaching many results through inferences from other facts, by certain laws of nature and human reason. They are often obliged to infer one thing from another, and this, whether that other be a fact direct or circumstantial.
+- The very idea of the law in a constitutional republic involves the requisite that it be a rule, a guide, uniform, fixed and equal, for all, till changed by the same high political power which made it. This is what entitles it to its sovereign weight.
+- Presumptions of guilt or innocence may sometimes be strengthened or weakened by the place of birth and kind of education and associates a man has grown up with, and good character may at times interpose, and justly save, under suspicion, one who is accused of crime on slight circumstances.
+- It is essential to the pure and peaceful administration of justice that all its officers keep carefully within the boundaries of their constitutional powers. Auxiliary to this, but not secondary in importance, is a due knowledge of the leading subjects for their inquiry and decision.

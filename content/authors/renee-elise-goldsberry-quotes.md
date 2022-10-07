@@ -1,0 +1,48 @@
++++
+author = "Renee Elise Goldsberry"
+title = "Renee Elise Goldsberry Quotes"
+quotes_len = "42"
+description = "the best 42 Renee Elise Goldsberry Quotes"
++++
+- I always felt like, 'I hope Oprah teaches a class to everybody when they get super famous about how to use, responsibly, that blessing.'
+- I don't wear fragrance. The most fragrant I smell is probably from a St. Ives Body Wash. It's not that I don't like it. I just don't necessarily feel like I need to add a fragrance to myself.
+- I've never been a stalker fan. I've always been a fan from afar.
+- I was madly in love with Michael Jackson.
+- I'm still learning every night, with every opportunity to write something, to sing something, to perform any work. Every opportunity to do these things brings me further along the journey, and the best part is, no matter how far along I go, I have so much more to learn.
+- I think the genre of musical theatre, when it started, the pop songwriters of the time were writing the music. I think sometimes when we write musicals now, we keep writing in that same style, as though that's the musical theatre genre... We have to figure out how to tell stories with the music that we listen to now, or we'll lose our audience.
+- I'm aware of the fact that people that are watching to see what I do next - It's challenging to make the best decisions, and I don't always get it right.
+- I used to say if there was anything I would really want to have as I kind of get older in my career, it would be wonderful to have relevance to somebody in some way so that I could continue to work on some level.
+- I wish, mainly, that I could have a job and work all the time and also not have to leave my kids. If there was a way to clone myself and be at every parent-teacher meeting and be there to put my kids to bed every single night and also star on Broadway, that's what I would do.
+- I won my husband. I won my kids. I've won a lot of really great jobs. I've won a lot of friendships. I've been nominated for lots of different kinds of awards.
+- 'Hamilton' is a story about America, and the most beautiful thing about it is... it's told by such a diverse cast with a such diverse styles of music. We have the opportunity to reclaim a history that some of us don't necessarily think is our own.
+- My path to motherhood was challenging, to say the least, and I always feel like I'm living a 'Sliding Doors' version of my life.
+- I love the opportunity to tell stories that people should know. I think it puts what we do as actors on the level of nurses and doctors. It takes us out of this idea of entertainment into an act of service.
+- You may leave a show, but you never leave that family.
+- I think you have to chase your life even harder than you chase your career.
+- I was so involved in the regular joy of school that I didn't do any plays. On a dare, I auditioned for 'South Pacific' my junior year. I showed up at the last minute to the audition and ended up getting cast as the lead. I haven't turned back since then.
+- The first few times I was asked to audition for the part of Angelica Schuyler in 'Hamilton,' I turned it down. I was convinced I was too over-the-hill to play a Nicki Minaj-type rapper. When I finally showed up, the role was waiting for me. But I almost missed it.
+- For the first time in my life, in my mid-20s, I started to question things. Had I been deceived? I thought I had been destined for something great - to be Whitney Houston or Jennifer Holliday or Phylicia Rashad. I started to realize that a lot of people think that, and it doesn't happen for almost everyone.
+- When I first became a mother, I didn't want my son to have any extra exposure to what I did. I had this theory that if he wanted to do what I do for a living, it should be organic and come from him, not from the fact that this was just what he saw all the time.
+- I'm trying to look natural and not painted. I'm typically fighting hair and makeup teams because I'm always saying, 'Can I wear less? Can I look natural and fresh?'
+- I've done acupuncture, and I believe in it. That's the first place I go if I'm having any particular pain anywhere.
+- Economics really pervert every possible good thing that comes, whether it's food or a cure or a new technological advancement; anything like that is always stopped by who has access to it.
+- One hundred percent, all your Shakespeare training serves you in the work in musical theater today: specifically in modern musical theater, our soliloquies, and now what we call rap. It's the reason it's so easy to learn, because it's verse; it's rhyme! It just sticks in the soul very easily.
+- We are all good at things - a varied assortment of things - and we all desperately need to find out what those things are for our self-esteem. If there is anything young people need, it is confidence and an identity and a purpose.
+- My kids make me laugh every single day - especially when they're their most precocious. My son said to me the other day, 'Why are you so dramatic?' And I just thought, 'Really? You know that word? And also, you've already noticed how dramatic I am?' That just really made me laugh.
+- It's a trippy and really magical experience when people like Michelle Obama are looking at you saying, 'Great job,' when all you want to do is say, 'Great job,' to the First Lady of our country.
+- It doesn't matter how late you get home or how wired you are, you still wake up early with your kids. That's the most important thing you do in a day, whether or not you're in a hit Broadway show.
+- I feel like my whole career has been a blessing. In particular, the opportunity to be a part of 'Hamilton' was life-changing.
+- There's a new Mozart, a new Miles Davis, a new Misty Copeland, a new Matisse potentially languishing in a math class somewhere. If we fail to introduce them to art, we fail humanity.
+- My greatest wish for my children is that they fulfill their purpose. I know that all children - and, in particular, mine - are here for a reason.
+- As a child, I loved to sing. When I was 8, my mother sent my brother and me to a summer music theater program in Texas. We did 'Guys and Dolls' at the camp, and I was so depressed when it was over. That's when I realized that this was what I wanted to do for the rest of my life.
+- I always often say, when I was a kid, I wasn't just playing with baby dolls. I was standing in the mirror with brush in my hand as a microphone singing songs.
+- When you get to live your dream, with singing and dancing and acting and playing these wonderful stories, you really have already won, and you always have to remember that.
+- I've written a couple raps in my day, in my own music career, that people don't know a lot about.
+- I find Shakespeare surprisingly sexual. A lot of his language - a lot - has that kind of sexual innuendo that is at once everywhere but also kinda lost because we have our own innuendo now, our own language.
+- Sleep is the apple a day, really, for singers.
+- My first experience with the arts must have been the sound of my mother singing to me when I was in the womb. The sound of my father singing to me when he held me. The sound of The Temptations records that they played.
+- This #MeToo world, it's not new. None of us believe it's new. It's exciting that we find ourselves with a hashtag and a movement, but in general, none of these stories are new; it's just there's an audience now, and everybody's interested in trying to be responsible about this.
+- My job is not to get an award. My job is to illuminate people about something that they should know.
+- I had spinal surgery to correct scoliosis when I was 16 years old. The only thing that scared me about the procedure was that it would make me two inches taller. At the time, I had a crush on a boy who was about my height - and I was worried that if I were taller than him, it would never happen!
+- I've always wanted a family. I've always wanted children. I've always wanted to be a superstar.
+- I don't do lip balm. I believe hydration really comes from the inside out, so I try to drink a lot of water. I have children who are always asking for Vaseline on their lips, but I'm saying we need to drink more water.

@@ -1,0 +1,47 @@
++++
+author = "Bill Keller"
+title = "Bill Keller Quotes"
+quotes_len = "41"
+description = "the best 41 Bill Keller Quotes"
++++
+- I think there's been a decline in the public's access to what's being done with their tax dollars, what's being done in their name. I hope that that will be repaired.
+- Twitter and Facebook are brilliant tools, the journalistic uses of which are still being plumbed. They are great for disseminating interesting material. They are useful for gathering information, including from places that are inaccessible.
+- Anyone with an Internet service provider can be a pundit or whatever they want.
+- Whether or not Twitter makes you stupid, it certainly makes some smart people sound stupid.
+- My view of social media is that it is a set of tools, not a religion.
+- Buying an aggregator and calling it a content play is a little like a company's announcing plans to improve its cash position by hiring a counterfeiter.
+- There is a long history of newspapers being doomed. They were doomed by radio. They were doomed by television. They were probably doomed by the telegraph way back when.
+- Since September 11 2001, editors in America have faced some excruciating choices, as the attempt to wage a war against a new kind of enemy sometimes strained the boundaries of our laws and values.
+- Liberation movements - prizing ends over means - are not always particular about their friends or scrupulous about their transactions.
+- Liberation movements - operating surreptitiously and conspiratorially - thrive on discipline and suspicion, and punish deviation or dissent.
+- I don't think fairness means that you give equal time to every point of view no matter how marginal. You weigh the sides, you do some truth-testing, you apply judgment to them.
+- There's a lot of stuff they don't teach you in the mythical editors' school. They don't teach you that you're going to have to spend a lot of your life in crisis management.
+- People crave trustworthy information about the world we live in. Some people want it because it is essential to the way they make a living. Some want it because they regard being well-informed as a condition of good citizenship. Some want it because they want something to exchange over dinner tables and water coolers.
+- There is something decidedly faux about the camaraderie of Facebook, something illusory about the connectedness of Twitter.
+- One of the most important disciplines in journalism is to challenge your working premises.
+- I don't have dating tips.
+- Beating up on the so-called elite media has a nice populist ring to it.
+- My dad was an engineer, and he became the CEO of Chevron. His was an engineer's mind-set: Everything's kind of a problem; how do you approach the problem?
+- The queen of aggregation is, of course, Arianna Huffington, who has discovered that if you take celebrity gossip, adorable kitten videos, posts from unpaid bloggers and news reports from other publications, array them on your Web site and add a left-wing soundtrack, millions of people will come.
+- I have nothing against conservative people putting out conservative commentary or doing conservative broadcasting, or liberal people doing liberal broadcasting, or conservative blogs or liberal blogs.
+- There's no question that sources sometimes have interests aside from the truth when they talk to reporters. That's why reporters have to very aggressively report against their own theses and against their initial information.
+- Everything is accessible to everyone all the time, and I think there are wondrous things to treasure with what the Internet has made available to journalists. But I think it's also had some effects that are less pleasant. It has chipped away at a sense of privacy and secrecy.
+- The curse of a journalist is that he always has more questions than answers.
+- You don't want to go around willy-nilly suing news organizations. That's probably self-defeating.
+- I make a joke that I'm the Internet curmudgeon, but 'wary' is a good way to put it.
+- I don't think that there is absolute freedom of the press. We operate under laws - against libel, for instance. The idea that there is some absolute press freedom is kind of a myth.
+- Julian Assange, the WikiLeaks founder, has on several occasions talked about transparency as an absolute principle. I don't personally believe that.
+- I think there's a misconception that I'm opposed to social media.
+- Choosing my favorite moment in journalism would be like picking a favorite among my children. I can't pick one favorite.
+- The most obvious drawback of social media is that they are aggressive distractions.
+- I'm a Capricorn, actually.
+- The Democrats generally recoil from the subject of entitlements.
+- I do care if religious doctrine becomes an excuse to exclude my fellow citizens from the rights and protections our country promises.
+- If a candidate for president said he believed that space aliens dwell among us, would that affect your willingness to vote for him? Personally, I might not disqualify him out of hand; one out of three Americans believe we have had Visitors and, hey, who knows? But I would certainly want to ask a few questions.
+- In fact, I spent 25 years as a reporter, swearing I would never become an editor. Sitting at a desk, watching other people go out and find the story, and then fussing with other people's words - I just didn't get the appeal of that.
+- My feeling about the Internet or anything else is that the more it tends to become a cult, the more I want to call it into question.
+- Every technology, including the printing press, comes at some price.
+- For all of the woes besetting our business, I believe with all my heart that newspapers - whether they are distributed to your doorstep, your laptop, your iPhone or a chip implanted in your cerebral cortex - will be around for a long time.
+- I don't think anyone at Fox believes they are producing even-handed, impartial coverage.
+- Every time my TweetDeck shoots a new tweet to my desktop, I experience a little dopamine spritz that takes me away from... from... wait, what was I saying?
+- I think if you're a regular viewer of Fox News, you're among the most cynical people on planet Earth. I cannot think of a more cynical slogan than 'Fair and Balanced.'

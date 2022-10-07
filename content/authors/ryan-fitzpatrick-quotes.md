@@ -1,0 +1,106 @@
++++
+author = "Ryan Fitzpatrick"
+title = "Ryan Fitzpatrick Quotes"
+quotes_len = "100"
+description = "the best 100 Ryan Fitzpatrick Quotes"
++++
+- Any time I see Kansas City on the schedule, especially when it's an away game, you start to think about the experience of playing in Arrowhead and how difficult it is to come in and play with the noise and how great those fans are.
+- I like Backgammon.
+- It's hard when you let people down.
+- I wouldn't trade my experience for anybody's.
+- I feel like the luckiest guy in the world sometimes, getting to go outside and play football with my friends.
+- All I want to do is go out there and win.
+- I knew I had a long way to go with my mechanics.
+- I've never been fast, but I can move well enough to do what I need to do.
+- I've been through a lot. I've had so many ups and downs in my career. I think a lot of it is you just have to be the same guy every day.
+- I think, fortunately and unfortunately, I've got a lot of experience in playing for teams that have been in this situation where we lost a few games and we've got to stay the course, we've got to right the ship, and we've got to do all of that stuff.
+- The Fitzpatrick home is happy when we're winning.
+- Whenever Tua gets his chance, I'm going to be his biggest cheerleader.
+- I'm just trying to be the best version of me that I can be.
+- You never know what's going to happen in the NFL. That's probably the thing I've learned most - expect the unexpected and go from there.
+- Football is not a game about numbers. It's about wins and trying to go out and play better than the other team.
+- I find the game mentally challenging and really enjoy the chess match that occurs every week between the offense and the opposing defense.
+- I want to bring energy. I want my play to be infectious to other guys.
+- I try to be the same guy every day, no matter the situation, no matter the adversity.
+- I think rather than further the stereotypes of me going into the league and being 'the Harvard guy,' I shattered those when I was a rookie and I couldn't call a play in the huddle.
+- I have zero ego.
+- At Harvard, I grew up a lot in terms of being able to deal with different types of people because where I grew up in Arizona, it's predominately white and predominantly Mormon families, so there's not a whole lot of diversity.
+- Any way that I can help the Harvard football program and Harvard is great.
+- I know myself so well. So I know if I'm not confident in the play, it's not going to be a good play.
+- I've had so many ups and downs in my career. When it's going good, you learn to enjoy the ride.
+- It really all started in Buffalo, when it was cold, I wanted to see if I could grow facial hair and lo and behold it just kept growing.
+- I've not had a career like Brady or Rodgers with all the Super Bowls and the incredible things they've done. But for me, the adversity made me who I am.
+- I was a third string guy for a couple of years.
+- All I can do is play as hard as I can play, make as many plays as I can make and try to help my team win football games.
+- It always helps when you're working out with other people, especially your teammates.
+- My career has been so different than most guys. I've kind of bounced around and always, one way or another, ended up in the starting lineup. So I would say my career has been very unique.
+- I'm trying to do the best I can every day.
+- I play because I love the game.
+- Football is something so ingrained in me, something I love doing and definitely something I want to do.
+- I've never been to playoffs.
+- Just in terms of the demeanor and the approach and just making sure that I'm consistent in the way I do things - that is the biggest thing for me.
+- There were guys who helped me out when I was young.
+- I don't see myself being able to stay away from football.
+- I've got to take advantage of every day.
+- I just go out there and throw. That's what I've done my whole life.
+- I just have to continue to prepare and try to be the best guy I can be every Sunday, whether that's coming off a good game or a bad game.
+- I have horrible style.
+- One thing that I've learned about myself is I have to trust what I see. And that maybe sounds silly, but there's things that I feel or see during a game that, you know, I used to explain it as I have an angel on one shoulder that's telling me to run the play and the devil on the other shoulder that's telling me really what I should do.
+- I have something to prove every year.
+- Coming to Harvard was an eye-opening experience because there's so much diversity on campus.
+- I enjoy playing, especially when you're having success, when you're driving the ball down the field scoring touchdowns.
+- I'm as competitive as they come.
+- I've been called every name in the book.
+- Competition definitely brings out the best in you.
+- There are so many high-highs and there are so many low-lows in this game.
+- For us as players, revenue sharing, getting a larger percentage of the pie, is important, but also the overall growth of that pie is important.
+- Absolutely I'd be happy with my career.
+- There's a lot of things you can't learn unless you actually experience it.
+- I've been a lot of places and worked with a lot of different guys. High draft picks. Low draft picks.
+- I never imagined even playing in the NFL. It seemed like a pipe dream.
+- I would much rather pass up on some of that guaranteed money... and bet on myself and just see what happens.
+- My wife is also from Harvard and we do have some family in the Cambridge area so we try to make it back at least once a year. We really enjoyed our time out there.
+- I would have loved to stay in Buffalo and all that.
+- There are so many things that I've just continued to get better at in my game.
+- You've just got to continue to prepare in the film room, continue to prepare running the game plan and doing everything on the practice field and hope that it translates.
+- I'm very proud of the fact I went to Harvard and I loved my four years there.
+- Constantly getting knocked down and picking myself back up, the relationships I've been able to form with all the different people in the different cities, I wouldn't trade it for anything.
+- Harvard has plenty of people that are way more important than football players.
+- For all the ladies out there, I'm taken. I'm sorry.
+- Knowing who I am as a player and working on my deficiencies, communication is something I try to pride myself on.
+- If the play-caller has confidence in you, you can feel it on the headset. You can feel it by the way he's calling plays.
+- I really enjoy helping younger guys out, because this league is about playing it forward a little bit.
+- The two things that make you a good head coach in this league are if you can get the players to respect you and if you can come across with a clear, consistent message.
+- What a humbling experience, being an NFL quarterback.
+- For me, always being ready and knowing that when I have my opportunity, I have to go out there and do my best. My whole career has been like that. I try to do my best in putting my focus in what I can control.
+- I wasn't born this super, superior athlete.
+- It's not an easy game.
+- I've been called worse than a Harvard kid.
+- I want to be in the playoffs.
+- I've seen a lot of things and I've experienced a lot of things.
+- I'm getting better as a quarterback. A lot of that is an understanding of the game, of myself, of who I'm playing against.
+- I feel like I have been a quick study in terms of picking up the different offensive schemes I have been exposed to. I think I offer a dependability and dedication that is very important to being successful.
+- I play because I love the relationships.
+- That's why you play the game. You play the game for your teammates, who really want to play with and for you.
+- I feel like I've gotten better every year.
+- I'm not gonna throw a Ryan Leaf bullet, but I've got a good enough arm, where I think it'll turn some heads and keep them interested.
+- You feel pressure when other people's expectations are higher than your own.
+- The biggest thing in this game - to last - is to have belief in yourself. Because when the owner stops believing in you and the GM stops believing in you and the coaches stop believing in you, sometimes all you have is yourself.
+- Unfortunately, football's hard and you're going to have bad games sometimes.
+- I like KenKen.
+- I have enjoyed every single step of the journey that I've been on.
+- That's one of the things with a championship-caliber team, is how it deals with injuries.
+- You've gotta come to work - regardless if you're 6-2 or 2-6 - and put your work in, just try to have the same spirit and go about your business the same way every day.
+- I've had a different career than a lot of different quarterbacks, but this has been a career that I've loved and a position that I like being in.
+- My normal is craziness - moving around and jumping from team to team and having to get used to different guys in a short period of time.
+- I've had to work hard my whole life to gain what I have, and that's why I have such a fun time doing those things that nobody likes. Like squatting or hang cleans or getting up in the morning, because I think that I realize in the end what it's going to do for me and what it has done for me in the past.
+- I feel like I keep progressing.
+- As you get older, life gets more complicated.
+- Whenever I go to a new team the jabs about being a Harvard guy are always more prevalent. This is mainly because people don't know much about me other than being the Harvard guy that did well on his Wonderlic test. The more time I spend with people, the less the Harvard stuff comes up.
+- When I got drafted, I just wanted a jersey. Once they gave me the jerseys, like, I was just hoping that they kept me on the team.
+- When you play quarterback and the offense doesn't play well, a lot of that is because of the quarterback. You're going to receive the criticism.
+- I'm the Harvard guy everywhere, every day. There are worse things to be called, worse things to be known by I guess.
+- That's what I've always tried to do. I've always tried to prepare the same. I've always just tried to keep the same routine throughout the season and go out there and try to be consistent on Sundays.
+- Squats and hang cleans. I love them. You can just feel yourself getting bigger and better.
+- I don't think the day that I was drafted that I expected to be the starting quarterback for the Rams as a seventh-round pick.
+- I have a unique perspective just from the career that I've had.

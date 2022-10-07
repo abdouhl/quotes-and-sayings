@@ -1,0 +1,62 @@
++++
+author = "Francis Collins"
+title = "Francis Collins Quotes"
+quotes_len = "56"
+description = "the best 56 Francis Collins Quotes"
++++
+- Scientists must venture outside their comfort zones to show the public how cool - and how important - their work really is.
+- When does life begin? When does the soul enter? That's a religious question. Science is not going to be able to help with that.
+- I took care of young adults with cystic fibrosis when I was in my residency training and found this to be a disease that was desperately in need of some explanation.
+- For delightfully quirky descriptions of bizarre neurological syndromes that teach us a lot about how the brain works, there is no match for Oliver Sacks.
+- Successful weight management really means a permanent change in lifestyle - and success in this arena provides that person with a great opportunity to model that behavior for friends and family.
+- Cancer is a disease of the genome. And that's what happens. You make mistakes in a cell somewhere in your body that causes it to start to grow when it should've stopped, and that's cancer. And those mistakes are mistakes of DNA.
+- It is interesting that the U.S. has this very strong proportion of the population that rejects scientific conclusions about the age of the Earth and about evolutionary relationships between species, including humans.
+- Growing up, I was vaguely aware of things that went on in church, because I was in the boys' choir at the local Episcopal church. But I got the clear message that I was supposed to learn music there, and not pay too much attention to the rest of it, and I followed those instructions very carefully.
+- I'm always feeling like I'm lacking wisdom. This reassurance that one can ask God for that and it will happen is certainly reassuring to me.
+- God gave us free will, and we may choose to exercise it in ways that end up hurting other people.
+- I'm a serious Christian. I take my faith seriously. I try to practice it every day of the week, not just on Sunday.
+- Sometimes you develop a passion for something because of some personal experience.
+- I finished up my graduate degree in quantum mechanics, but underwent a bit of a personal crisis, recognizing that I didn't want to do that for the rest of my life. It was too abstract, too far removed from human concerns.
+- Nobody gets argued all the way into becoming a believer on the sheer basis of logic and reason. That requires a leap of faith.
+- I believe God did intend, in giving us intelligence, to give us the opportunity to investigate and appreciate the wonders of His creation. He is not threatened by our scientific adventures.
+- If you are in support of in vitro fertilization, then you have to recognize that human embryos are being created in excess of what can be used safely to reimplant for a pregnancy. So they're going to end up being discarded.
+- The shelves of many evangelicals are full of books that point out the flaws in evolution, discuss it only as a theory, and almost imply that there's a conspiracy here to avoid the fact that evolution is actually flawed. All of those books, unfortunately, are based upon conclusions that no reasonable biologist would now accept.
+- I've never heard God speak out loud to me. That's not an experience I have had.
+- As a Christian, but also as a scientist responsible for overseeing the Human Genome Project, one of my concerns has been the limits on applications of our understanding of the genome. Should there be limits? I think there should. I think the public has expressed their concern about ways this information might be misused.
+- God is an awesome mathematician and physicist.
+- I don't have a problem with the concept that miracles might occasionally occur at moments of great significance, where there is a message being transmitted to us by God Almighty. But as a scientist, I set my standards for miracles very high.
+- Patenting tends to get people's juices flowing when you put the word 'gene' and the word 'patent' in the same sentence. And understandably so. This is stuff we're carrying around - all of us - inside all of our cells. Should somebody be able to lay claim to it?
+- For me, in my Christian belief, prayer is not an opportunity to manipulate God into doing what you want him to. Prayer is an opportunity to have a conversation with God to try to get in tune with what his will is.
+- The word 'living' has so many connotations that I'm almost reluctant to try to define it scientifically because it sounds as if I'm then downgrading all the other significances of that word.
+- The brain is the most complicated organ in the universe. We have learned a lot about other human organs. We know how the heart pumps and how the kidney does what it does. To a certain degree, we have read the letters of the human genome. But the brain has 100 billion neurons. Each one of those has about 10,000 connections.
+- I trained initially as a physical chemist, and then, after becoming interested in biology, I went to medical school and learned how to be a physician. So, I'm a physician scientist.
+- Faith is reason plus revelation, and the revelation part requires one to think with the spirit as well as with the mind. You have to hear the music, not just read the notes on the page.
+- A virus is not just DNA; a virus is also packaged up, covered over with a series of proteins in a nice, elegant, well-compacted form.
+- My own area of expertise is the genetics of human disease. I was fortunate to be part of the team that found the genes for cystic fibrosis, and Huntington's disease and neurofibromatosis.
+- What faith has not been used by demagogues as a club over somebody's head?
+- Proponents of intelligent design don't accept that some of the very complex nanomachines that we have inside ourselves could have come about solely on the basis of natural selection.
+- A cardinal principle that we must not stray from - no exceptions - is that your genetic information is your business in terms of who sees it. Nobody should be gaining access to that information without your explicit permission, and nobody should be requiring you to take a genetic test unless you decide that that's what you want to do.
+- Genes are effectively one-dimensional. If you write down the sequence of A, C, G and T, that's kind of what you need to know about that gene. But proteins are three-dimensional. They have to be because we are three-dimensional, and we're made of those proteins. Otherwise we'd all sort of be linear, unimaginably weird creatures.
+- A technological advance of a major sort almost always is overestimated in the short run for its consequences - and underestimated in the long run.
+- Many people struggle with losing weight and then regaining it. But there is no convincing evidence that the effort to lose weight actually promotes more weight gain in the long run.
+- If I'm walking down the riverbank, and a man is drowning, even if I don't know how to swim very well, I feel this urge that the right thing to do is to try to save that person. Evolution would tell me exactly the opposite: preserve your DNA. Who cares about the guy who's drowning?
+- In my own experience as a physician, I have not seen a miraculous healing, and I don't expect to see one.
+- If God is real, and I believe he is, then he is outside of nature. He is, therefore, not limited by the laws of nature in the way that we are.
+- If you are looking for a needle in a haystack, and somebody has already cataloged all the straw in the haystack, when you get to that needle you will recognize it's different than what was supposed to be there based on all that computerized haystack information that had been predetermined for you.
+- I think there are people who's lives have been saved because of the study of the genome.
+- I became an atheist because, as a graduate student studying quantum physics, life seemed to be reducible to second-order differential equations. Mathematics, chemistry and physics had it all. And I didn't see any need to go beyond that.
+- It's interesting when you read the life of Christ how much of his time he spent healing the sick. There must have been a reason for that - he was modelling for us what it is we are intended to do by following his path.
+- Research is so unpredictable. There are periods when nothing works and all your experiments are a disaster and all your hypotheses are wrong.
+- I believe in the literal rising of the body of Christ. It's the cornerstone of my Christian faith.
+- I'm aware there are certain products that are being advertised - food products - with 'no chemicals whatsoever.' Well, that would be pretty hard to arrange, since everything around us is made up of atoms and molecules - chemicals - including ourselves.
+- The best diet is the one that can be sustained over the long term, combined with other healthful lifestyle behaviors.
+- People who are in a position of finding out that they're at risk for some illness, whether it's breast cancer, or heart disease, are afraid to get that information - even though it might be useful to them - because of fears that they'll lose their health insurance or their job.
+- As a scientist, you're not supposed to make decisions without the data.
+- I actually do not believe that there are any collisions between what I believe as a Christian, and what I know and have learned about as a scientist. I think there's a broad perception that that's the case, and that's what scares many scientists away from a serious consideration of faith.
+- I'm a pretty informal guy. I ride a Harley.
+- Science's domain is the natural. If you want to understand the natural world and be sure you're not misleading yourself, science is the way to do it.
+- So much of what we are currently seeing as far as human suffering and misery comes from diseases that should have been preventable but were not.
+- I think history would say that medical research has, throughout many changes of parties, remained as one of the shining lights of bipartisan agreement, that people are concerned about health for themselves, for their families, for their constituents.
+- One must dig deeply into opposing points of view in order to know whether your own position remains defensible. Iron sharpens iron.
+- We give our kids vaccinations. That's a biological enhancement that's considered not just acceptable but actually admirable.
+- I'm enormously interested to see where neuroscience can take us in understanding these complexities of the human brain and how it works, but I do think there may be limits in terms of what science can tell us about what does good and evil mean anyway, and what are those concepts about?

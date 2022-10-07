@@ -1,0 +1,56 @@
++++
+author = "Cherie Blair"
+title = "Cherie Blair Quotes"
+quotes_len = "50"
+description = "the best 50 Cherie Blair Quotes"
++++
+- As a Catholic, I am proud of the social mission of the church and its concerns for the poor and dispossessed, but I still personally would support women priests.
+- Many of the big decisions over progression, promotion and future career trajectory are taken when people are in their late twenties and thirties, putting women at a huge disadvantage because this is the very time they are most likely to be having a break to have children.
+- I strongly support not just citizenship classes but also teaching children how the law works and the many ways it affects their lives.
+- Our experience shows - and survey after survey reveals - institutions are run better, communities are healthier when women are involved in solving the challenges of our society. Equal representation does not just lead to good democracy: it is democracy.
+- I don't know anybody who thinks they have it all... I count myself extremely lucky to have a fantastic family and the career I always wanted.
+- In my youngest days, the nuns at my grammar school drummed into us that we were in this world to make it a better place - not just for ourselves, but for other people, too. So from the very beginning, I've been driven by this idea that we have to make a difference, and it's one of the reasons I went into law in the first place.
+- My advice to organizations I work with is always to be proactive rather than simply reactive when it comes to human rights issues. After all, the important process of improving company policies and practices must be carried out without having to be prompted by a labour strike, factory collapse or other crisis.
+- Britain is still seen as a beacon for decency, for democracy, for vigorous judges upholding the rule of law and, dare I say it, a free press. I respect the press in theory, but when you see some of the things it writes about you, it's not exactly a happy relationship.
+- For many women, becoming a widow does not just mean the heartache of losing a husband, but often losing everything else as well.
+- You hear these yummy mummies talk about being the best possible mother, and they put all their effort into their children. I also want to be the best possible mother, but I know that my job as a mother includes bringing my children up so, actually, they can live without me.
+- The longest journeys start with the smallest steps.
+- Like everyone, I am formed by my background, and mine was - well, we didn't have a lot of money. I didn't live in a cardboard box, but I did live in a place where, at the end of the week, the money was gone.
+- I suppose the first big shift in my life was when, at the age of 8, my father left my mother, leaving her alone with two daughters to bring up. That taught me the importance of women being financially independent. You never know what might happen.
+- Yes, people need food and education. But one of the cornerstones of any society is a well-functioning legal system.
+- I think it is what you do with your wealth that is important. I don't believe in accumulating money for money's sake. It's one of the reasons I want to do more about helping women.
+- Like every mother, it's my children; that's the first thing that makes me really proud. For my own part, it would be when I became a Queen's Counsel in 1995. I was the 76th woman ever to become a Queen's Counsel, so it was still a pretty rare thing.
+- Indeed, in a world of the BlackBerry, remote access and Wi-Fi hotspots on every street corner, it feels particularly outdated that much of our working culture is still dominated by the need to be at our desk for long hours of the day.
+- I don't want to give this impression that I grew up in Liverpool in a cardboard box in abject poverty, but that didn't mean there weren't anxieties in my childhood about money.
+- When I was 14, I told all the girls in my class that I wanted to be the first woman prime minister. Someone else beat me to that!
+- We need to empower all women, both financially and socially, to give them the tools to support themselves and their families. We need to start seeing them as contributors to society, as assets, not as objects of pity or, even worse, objects of shame.
+- I am really lucky with my skin. It comes from my mum. Fashion tip from Cherie: drink lots of water.
+- Women tend to judge other women harshly. We should be kinder to each other, accept that we're all different and can make different choices. Not go for some kind of stereotypical idea that we're perfect. Frankly, I'm not perfect.
+- I am not Superwoman. The reality of my daily life is that I'm juggling a lot of balls in the air trying to be a good wife and mother, trying to be the prime-ministerial consort at home and abroad, barrister and charity worker, and sometimes one of the balls gets dropped.
+- I think anyone doing an interview is to some extent on show. And therefore, we always want to put on our best face.
+- Torture produces unreliable evidence and therefore doesn't achieve and protect anybody. Torture corrupts those who are doing the torturing.
+- People say that human rights is a Western construct foisted on others. But that's not true. Equality, dignity, respect and justice are as much an integral part of the Islamic tradition.
+- Sometimes it's easier to attack the spouse than it is to attack the politician.
+- Sometimes I have to pinch myself to think: have I really come this far? Because it is quite different, where I find myself today, from where I started off, in the streets of Waterloo, in the suburbs of Liverpool - that's for sure.
+- I think the problem is, exceptional women will always succeed. But there are plenty of less-exceptional men who succeed. Until we get the less-exceptional women succeeding equally, we do not have full equality.
+- I really am not going to get involved in a discussion about the legal position of the Iraq war. I am not the person to do that because I am not sufficiently impartial as a lawyer about this, because it's a matter that is of interest to the person that I am closest to in the world.
+- Since I'm not a fashion model, there's a limit to how nice I can make myself. I don't regard myself as an ugly person, but I don't think of myself as someone who would choose to be a model. I'm somebody who might be, I'd like to think, a role model for people who want to become lawyers.
+- Here we are, worrying about whether we're thin enough or whether our bottom looks too big in this pair of trousers or even whether or not I should wear a hat - does it really matter in comparison to the important things that are going on in the world?
+- I feel very strongly about contraception even though I know people say that, as a good Catholic girl, I shouldn't. But I disagree because I think one of the keys to women's progression in the 20th century is being able to control their fertility.
+- Understanding how your business affects human rights and using that knowledge to shape appropriate policies and practices is crucial to achieving what should be the goal of all corporations - sustainable growth.
+- Do I have any advice for someone new to No. 10? Never open the door in your nightie. And that everybody has to adjust to it in a way that's right for their family.
+- It's not good enough to believe women matter if they only matter in the U.K. They have to matter everywhere. As long as there's an idea that women don't matter in the world, then all women are diminished.
+- I'm an incurable optimist, and I'm a great believer in never looking back. Life is too short, and new challenges are exciting.
+- I've learned when to speak out. You do have to learn when to bide your time and when to speak out, and I don't always get it right.
+- I think, when I was a young lawyer starting out, I was so determined to prove that I was as good as the men and that I could be given the same opportunities as the men, and it wouldn't make any difference at all that I was a woman. But actually, looking back on it now, I did do things that I wouldn't recommend to other women at all.
+- My foundation is absolutely about the women we work with, and they are contributing every day to their families, to their communities, and to the economy of their countries. All we are doing is enabling them to be the best that they can be.
+- If I want to make political decisions, I should stand for election. If I want to do something in the legal field, that's different; that is my - they are my qualifications, but you know, the politicians are the ones who stand up there and are answerable to the people.
+- The thing I want to see before I die is women achieving full equality in the world. I'm very passionate about injustice against women and there's too much of it in the world. In so many parts of the world, women are not regarded as worthy or equal to men. In parts of the world, women are bought and sold.
+- My own foundation concentrates on women's economic empowerment on the basis that if women have their own money and are able to support themselves, they can make choices about what happens to them in their lives, about whether they have education, whether they get married, and what happens to their children.
+- I was so intent as a young lawyer on beating the men at their own game that I didn't take any real maternity leave with my three younger children. It is only looking back that I realise I wasn't beating the system but reinforcing it.
+- Someone with 4As at A-level from Eton may look good on paper and come across as very smooth, but push a bit more, and often you get the impression they have learned to pass exams rather than think for themselves.
+- I think I'm one of life's copers. And picking myself up and dusting myself off and starting all over again is one of my mottoes, actually.
+- If we're going to truly solve the problems of the world, we've got to share our information whenever we can and strategically include one another in or efforts.
+- I have no problem with saying I am a socialist or with saying I'm a feminist. That's how I was when I was 15, and you know, I haven't grown out of it and probably never will.
+- You can't please people who don't really know you and, you know, I do think that one of the things I do want to do is please the people who matter to me and please the people that do know me.
+- I have never been ashamed of calling myself a feminist, and I believe passionately in women's rights.

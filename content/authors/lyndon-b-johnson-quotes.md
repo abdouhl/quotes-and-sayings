@@ -1,0 +1,99 @@
++++
+author = "Lyndon B. Johnson"
+title = "Lyndon B. Johnson Quotes"
+quotes_len = "93"
+description = "the best 93 Lyndon B. Johnson Quotes"
++++
+- Every President wants to do right.
+- I am a freeman, an American, a United States Senator, and a Democrat, in that order.
+- I report to you that our country is challenged at home and abroad: that it is our will that is being tried and not our strength; our sense of purpose and not our ability to achieve a better America.
+- The last thing I wanted to do was to be a wartime President.
+- We have the opportunity to move not only toward the rich society and the powerful society, but upward to the Great Society.
+- Jerry Ford is so dumb he can't fart and chew gum at the same time.
+- I feel like I just grabbed a big juicy worm with a right sharp hook in the middle of it.
+- John F. Kennedy was the victim of the hate that was a part of our country. It is a disease that occupies the minds of the few but brings danger to the many.
+- A man can take a little bourbon without getting drunk, but if you hold his mouth open and pour in a quart, he's going to get sick on it.
+- Education is not a problem. Education is an opportunity.
+- Jack was out kissing babies while I was out passing bills. Someone had to tend the store.
+- Whoever won't fight when the President calls him, deserves to be kicked back in his hole and kept there.
+- Whether we are New Dealer, Old Dealer, Liberty Leaguer or Red, whether we agree or not, we still have the right to think and speak how we feel.
+- I'd rather give my life than be afraid to give it.
+- The fifth freedom is freedom from ignorance.
+- Just like the Alamo, somebody damn well needed to go to their aid. Well, by God, I'm going to Viet Nam's aid!
+- If one morning I walked on top of the water across the Potomac River, the headline that afternoon would read: 'President Can't Swim.'
+- We are not about to send American boys 9 or 10 thousand miles away from home to do what Asian boys ought to be doing for themselves.
+- I will do my best. That is all I can do. I ask for your help - and God's.
+- Every man has a right to a Saturday night bath.
+- I want to make a policy statement. I am unabashedly in favor of women.
+- There is but one way for a president to deal with Congress, and that is continuously, incessantly, and without interruption. If it is really going to work, the relationship has got to be almost incestuous.
+- A man without a vote is man without protection.
+- It is important that the United States remain a two-party system. I'm a fellow who likes small parties and the Republican Party can't be too small to suit me.
+- What convinces is conviction. Believe in the argument you're advancing. If you don't you're as good as dead. The other person will sense that something isn't there, and no chain of reasoning, no matter how logical or elegant or brilliant, will win your case for you.
+- You might say that Lyndon Johnson is a cross between a Baptist preacher and a cowboy.
+- Presidents quickly realize that while a single act might destroy the world they live in, no one single decision can make life suddenly better or can turn history around for the good.
+- We must open the doors of opportunity. But we must also equip our people to walk through those doors.
+- When things haven't gone well for you, call in a secretary or a staff man and chew him out. You will sleep better and they will appreciate the attention.
+- No member of our generation who wasn't a Communist or a dropout in the thirties is worth a damn.
+- The presidency has made every man who occupied it, no matter how small, bigger than he was; and no matter how big, not big enough for its demands.
+- Doing what's right isn't the problem. It is knowing what's right.
+- We have entered an age in which education is not just a luxury permitting some men an advantage over others. It has become a necessity without which a person is defenseless in this complex, industrialized society. We have truly entered the century of the educated man.
+- You do not examine legislation in the light of the benefits it will convey if properly administered, but in the light of the wrongs it would do and the harms it would cause if improperly administered.
+- I believe the destiny of your generation - and your nation - is a rendezvous with excellence.
+- Our purpose in Vietnam is to prevent the success of aggression. It is not conquest, it is not empire, it is not foreign bases, it is not domination. It is, simply put, just to prevent the forceful conquest of South Vietnam by North Vietnam.
+- I believe we can continue the Great Society while we fight in Vietnam.
+- I am concerned about the whole man. I am concerned about what the people, using their government as an instrument and a tool, can do toward building the whole man, which will mean a better society and a better world.
+- The men who have guided the destiny of the United States have found the strength for their tasks by going to their knees. This private unity of public men and their God is an enduring source of reassurance for the people of America.
+- I don't believe I'll ever get credit for anything I do in foreign affairs, no matter how successful it is, because I didn't go to Harvard.
+- There are no favorites in my office. I treat them all with the same general inconsideration.
+- You aren't learning anything when you're talking.
+- The CIA is made up of boys whose families sent them to Princeton but wouldn't let them into the family brokerage business.
+- What we won when all of our people united must not be lost in suspicion and distrust and selfishness and politics. Accordingly, I shall not seek, and I will not accept, the nomination of my party for another term as president.
+- Our numbers have increased in Vietnam because the aggression of others has increased in Vietnam. There is not, and there will not be, a mindless escalation.
+- Until justice is blind to color, until education is unaware of race, until opportunity is unconcerned with the color of men's skins, emancipation will be a proclamation but not a fact.
+- There are no problems we cannot solve together, and very few that we can solve by ourselves.
+- I seldom think of politics more than eighteen hours a day.
+- When I was a boy we didn't wake up with Vietnam and have Cyprus for lunch and the Congo for dinner.
+- The fact that a man is a newspaper reporter is evidence of some flaw of character.
+- I am making a collection of the things my opponents have found me to be and, when this election is over, I am going to open a museum and put them on display.
+- I once told Nixon that the Presidency is like being a jackass caught in a hail storm. You've got to just stand there and take it.
+- Only two things are necessary to keep one's wife happy. One is to let her think she is having her own way, and the other is to let her have it.
+- I'm the only president you've got.
+- The noblest search is the search for excellence.
+- This is not Johnson's war. This is America's war. If I drop dead tomorrow, this war will still be with you.
+- When the burdens of the presidency seem unusually heavy, I always remind myself it could be worse. I could be a mayor.
+- Being president is like being a jackass in a hailstorm. There's nothing to do but to stand there and take it.
+- Greater love hath no man than to attend the Episcopal Church with his wife.
+- Poverty must not be a bar to learning and learning must offer an escape from poverty.
+- The atomic bomb certainly is the most powerful of all weapons, but it is conclusively powerful and effective only in the hands of the nation which controls the sky.
+- You've got to work things out in the cloakroom, and when you've got them worked out, you can debate a little before you vote.
+- The moon and other celestial bodies should be free for exploration and use by all countries. No country should be permitted to advance a claim of sovereignty.
+- Freedom is not enough.
+- The separation of church and state is a source of strength, but the conscience of our nation does not call for separation between men of state and faith in the Supreme Being.
+- Peace is a journey of a thousand miles and it must be taken one step at a time.
+- A President's hardest task is not to do what is right, but to know what is right.
+- This is a moment that I deeply wish my parents could have lived to share. My father would have enjoyed what you have so generously said of me-and my mother would have believed it.
+- We have talked long enough in this country about equal rights. It is time now to write the next chapter - and to write it in the books of law.
+- In our home there was always prayer - aloud, proud and unapologetic.
+- They call upon us to supply American boys to do the job that Asian boys should do.
+- It may be, it just may be, that life as we know it with its humanity is more unique than many have thought.
+- One lesson you better learn if you want to be in politics is that you never go out on a golf course and beat the President.
+- There are plenty of recommendations on how to get out of trouble cheaply and fast. Most of them come down to this: Deny your responsibility.
+- I'm tired. I'm tired of feeling rejected by the American people. I'm tired of waking up in the middle of the night worrying about the war.
+- If the American people don't love me, their descendants will.
+- Yesterday is not ours to recover, but tomorrow is ours to win or lose.
+- Our society is illuminated by the spiritual insights of the Hebrew prophets. America and Israel have a common love of human freedom, and they have a common faith in a democratic way of life.
+- If two men agree on everything, you may be sure that one of them is doing the thinking.
+- When I was young, poverty was so common that we didn't know it had a name.
+- If future generations are to remember us more with gratitude than sorrow, we must achieve more than just the miracles of technology. We must also leave them a glimpse of the world as it was created, not just as it looked when we got through with it.
+- The guns and the bombs, the rockets and the warships, are all symbols of human failure.
+- To conclude that women are unfitted to the task of our historic society seems to me the equivalent of closing male eyes to female facts.
+- While you're saving your face, you're losing your ass.
+- This administration here and now declares unconditional war on poverty.
+- I have learned that only two things are necessary to keep one's wife happy. First, let her think she's having her own way. And second, let her have it.
+- Our most tragic error may have been our inability to establish a rapport and a confidence with the press and television with the communication media. I don't think the press has understood me.
+- The Russians feared Ike. They didn't fear me.
+- We live in a world that has narrowed into a neighborhood before it has broadened into a brotherhood.
+- It is the genius of our Constitution that under its shelter of enduring institutions and rooted principles there is ample room for the rich fertility of American political invention.
+- It is always a strain when people are being killed. I don't think anybody has held this job who hasn't felt personally responsible for those being killed.
+- The vote is the most powerful instrument ever devised by man for breaking down injustice and destroying the terrible walls which imprison men because they are different from other men.
+- We did not choose to be the guardians of the gate, but there is no one else.

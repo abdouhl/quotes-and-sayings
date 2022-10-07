@@ -1,0 +1,26 @@
++++
+author = "R. D. Laing"
+title = "R. D. Laing Quotes"
+quotes_len = "20"
+description = "the best 20 R. D. Laing Quotes"
++++
+- The range of what we think and do is limited by what we fail to notice. And because we fail to notice that we fail to notice, there is little we can do to change; until we notice how failing to notice shapes our thoughts and deeds.
+- We live in a moment of history where change is so speeded up that we begin to see the present only when it is already disappearing.
+- Alienation as our present destiny is achieved only by outrageous violence perpetrated by human beings on human beings.
+- Insanity - a perfectly rational adjustment to an insane world.
+- The experience and behavior that gets labeled schizophrenic is a special strategy that a person invents in order to live in an unlivable situation.
+- Madness need not be all breakdown. It may also be break-through. It is potential liberation and renewal as well as enslavement and existential death.
+- True guilt is guilt at the obligation one owes to oneself to be oneself. False guilt is guilt felt at not being what other people feel one ought to be or assume that one is.
+- Whether life is worth living depends on whether there is love in life.
+- Rule A: Don't. Rule A1: Rule A doesn't exist. Rule A2: Do not discuss the existence or non-existence of Rules A, A1 or A2.
+- We are all murderers and prostitutes - no matter to what culture, society, class, nation one belongs, no matter how normal, moral, or mature, one takes oneself to be.
+- Creative people who can't help but explore other mental territories are at greater risk, just as someone who climbs a mountain is more at risk than someone who just walks along a village lane.
+- Schizophrenia cannot be understood without understanding despair.
+- Children do not give up their innate imagination, curiosity, dreaminess easily. You have to love them to get them to do that.
+- There is a great deal of pain in life and perhaps the only pain that can be avoided is the pain that comes from trying to avoid pain.
+- Life is a sexually transmitted disease and the mortality rate is one hundred percent.
+- We are all in a post-hypnotic trance induced in early infancy.
+- If I don't know I don't know, I think I know. If I don't know I know, I think I don't know.
+- We are effectively destroying ourselves by violence masquerading as love.
+- There is no such condition as 'schizophrenia', but the label is a social fact and the social fact a political event.
+- Freud was a hero. He descended to the Underworld and met there stark terrors. He carried with him his theory as a Medusa's head which turned these terrors to stone.

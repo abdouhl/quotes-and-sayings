@@ -1,0 +1,88 @@
++++
+author = "Lynn Good"
+title = "Lynn Good Quotes"
+quotes_len = "82"
+description = "the best 82 Lynn Good Quotes"
++++
+- I went to work in accounting at Arthur Andersen. At one point, it was the creme de la creme. I wanted to work there because it looked like the hardest thing I could find, and I loved being on a steep learning curve. I progressed quickly, and two years out of college, I was managing a small team of people.
+- As you think about developing people through their careers, you're looking for that transition from being the smartest person in the room - and caring so much about that - to being the most effective.
+- I am deeply honored by the trust the board has placed in me to lead Duke Energy. I have a high degree of confidence in the strength of our company's leadership and dedicated employees.
+- There are no coal plants on the drawing board for Duke, which leaves us with gas, renewables, and nuclear.
+- As we continue to move to a lower-carbon future, we will also continue to work constructively with states to identify customer solutions that preserve the reliability and affordability that our communities expect.
+- You were in the midst of a chaotic, unfair, didn't-know-how-it-was-going-to-end story, and the only thing you could do was... keep moving.
+- We should be building more nuclear today.
+- I become the face of the company, and that's a responsibility.
+- You're well-spoken, or you're very analytical, or you're a great team-builder, or you're great with relationships... Playing to your strengths is always something good to build on because you're trying to develop a foundation to keep growing, as a professional and as a leader.
+- The enthusiasm around carbon capture and sequestration was probably greater before the shale-gas discovery and the low prices were so prevalent.
+- I don't see any new coal.
+- I am honored to be named chairman of Duke Energy's board and privileged to lead our company forward for our customers, employees, and shareholders.
+- Our highest priorities are safe operations and the well-being of the people and communities we serve.
+- The regulations keep on coming. And we are trying to make decisions that we will be happy with for decades.
+- There's nothing about Lynn Good at age 30 or age 35 that would have said, 'I am setting my sights on being a CEO.'
+- I will work to ensure Duke Energy is positioned to continue its track record of outstanding customer service and operational and financial excellence.
+- If you can, anticipate that life is going to be full of detours.
+- We are setting a new standard for coal ash management and implementing smart, sustainable solutions for all of our ash basins.
+- Nuclear is an important part of the heritage of Duke. We operate the largest regulated nuclear fleet in the U.S. We love the diversity of the generation.
+- My father was a World War II Marine who became a high school principal. He always had a heart for students who maybe were underprivileged or had difficulty of some sort.
+- 2013 was a year of great accomplishment for Duke: our first full year as a combined company.
+- We don't believe carbon capture is a proven, scalable, commercially available technology.
+- We support regional generation, particularly for nuclear. It's just a large investment. We think it's something a community comes around to make those investments work, and South Carolina is very committed to nuclear generation.
+- I had never seen a computer when I went to college.
+- All options to produce, transmit, and store electricity should be considered, driven by clear price signals and constructive government policy.
+- The way we grow is, we make investments. We've been building a natural-gas platform within Duke that started with the pipelines.
+- I love nuclear.
+- When you are in a situation or a crisis, you need to define, what is the unique role that I can play?
+- I don't see a sea change by 2020, but I see migration in the direction of modernization and more flexibility in the generating system going forward.
+- An investor in Duke Energy is expecting a dividend payment. That's roughly 70 to 75 percent of the earnings I produce. The business that goes with that level of dividend is a business that has more predictability, more stability.
+- Fracking has been a real technological change that has caused great innovation in our business, and we've had the benefit of very low gas prices for our customers as a result of that.
+- I don't think of myself as a powerful woman.
+- Natural gas is an important part of delivering energy, whether you're producing power or other solutions for customers.
+- I hope nuclear becomes a part of the conversation, at the right time when we recognize the importance of that resource. I hope we can work that out as a country and figure out how we are going to put nuclear in the mix.
+- If I were to share with you the number of attacks that come into the Duke network every day, you would be astounded. And it's not from people working out of their garage; it's from nation-states that are trying to penetrate systems.
+- We are accountable for what happened at Dan River and have learned from this event.
+- What we are investing in, from a generation standpoint, are renewables and natural gas.
+- If you feel like there is going to be an emotional reaction that won't be helpful to resolve the situation, anger or other things, disarm the situation in some way, and you can use different techniques to do that.
+- I believe that nuclear needs to be a part of the solution if the U.S. really wants to be aggressive about reducing carbon.
+- Building new nuclear is something that is going to take a lot of commitment, not only from our company but from the communities we serve. It is a five-to-seven-year journey to build one, and they are expensive.
+- People who love what they do get after it every day.
+- I think about trust and confidence as something that you earn every day, and we will keep at it, earning it every day.
+- Effectiveness comes from those qualitative things that give you the ability to network, communicate, and lead people toward an outcome they can't see.
+- Anytime we make additional investment in a coal plant, we are really challenging whether that investment is economic.
+- You see more women in the CFO ranks. It's an evolution.
+- If we are not more efficient, we put ourselves in a position where prices need to rise or profits deteriorate in a way that makes us less attractive to investors.
+- We see natural gas as an important part of the electricity generation mix for many decades to come.
+- Leaders play a unique role in periods of crisis and chaos. Because if you don't, you're not going to harness the power of all the people behind you.
+- I'll be the first one to tell you I burn coal... That fossil generation and the nuclear generation, frankly, is necessary in order for me to provide power.
+- I get energized around a plan - what's it going to be like in three months? Six months? You're not going to let it defeat you. You got to keep going.
+- Over the long term, we should develop and implement new technologies to capture and store coal's carbon emissions. We also must make our electric grid more resilient.
+- Leadership is a journey - you never arrive.
+- It's important to keep your long term perspective and communicate well both externally and internally.
+- Utilities fall in love with their assets, and that's a danger we need to avoid.
+- Always play to your strengths, whether your strengths are gender-based or just natural aptitude.
+- There is growing demand for renewable energy.
+- Our customers are at the center of everything we do.
+- More than 40 percent of the electricity we generated in the Carolinas in 2015 was from carbon-free sources.
+- I respect passionate views.
+- You move an organization when they understand where you want them to go.
+- If we're going to be serious about decarbonizing the bulk-power system, nuclear has to be part of the conversation.
+- Reliable and competitively priced electricity is fundamental to growing our economy and creating jobs. Our customers expect nothing less.
+- If you keep an open mind, you can learn so much from the people around you.
+- There weren't many women ahead of me.
+- I find, at times, people underestimate me. That's really an asset.
+- At a certain career level, it's no longer about whether you are the smartest subject-matter expert in the room.
+- When I was growing up, we had a widow living next door to us. So the habit was that if we went to the grocery store, we called her first. If we cut our yard, we cut her yard, no questions asked.
+- It was exciting putting hundreds of millions of dollars to work buying and building wind farms in Texas.
+- The closing of ash basins is really part of decommissioning a coal plant.
+- Through Duke Energy's strong balance sheet and electric generation expertise, and Piedmont's understanding of natural gas markets and proficient operations, the combined company will be well-positioned for a future that may require additional natural gas infrastructure and services to meet the needs of our customers.
+- If we just isolate distributed solar all by itself, it does not work without the utility around it. And so the utility needs to be paid for the services it provides.
+- Our nation's power plant fleet must include a mix of solar, wind, hydro, natural gas and nuclear plants.
+- As we look ahead, we see increasing opportunities for Duke in natural gas - not just for producing electricity, but in providing gas for our customers. We have been investing in renewables as well throughout the U.S.
+- I don't believe you can absolutely have it all.
+- I can be incredibly focused, and I can appear impatient. So I've learned to slow down, get to know people, and provide more context. There's nothing wrong with getting to the point pretty quickly, but it's also helpful to give people an opportunity to talk about their work.
+- On two occasions, utility executives I'd never met had looked at me and said, 'I thought you'd be bigger!' In a way, I took that as a compliment!
+- When you're in a crisis, there's really no playbook.
+- M&A is always an opportunistic tool to grow a company.
+- I think we'll still be operating coal in 2030. Whether we will be in 2040, I think, is a question, or in 2050.
+- I actually had someone say to me, 'Lynn, you're going to have very good days, and you're going to have very bad days. But It's rare that things are as good as they look, and it's rare that things are as bad as they seem.' So having perspective, and challenging perspective, is important to making good decisions.
+- Volatility is not something that is a great fit for Duke if you look at the level of dividend we pay.
+- For 2015, Duke Energy's employees safety record received the top rank among large utilities as recognize by EEI.

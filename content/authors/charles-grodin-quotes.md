@@ -1,0 +1,17 @@
++++
+author = "Charles Grodin"
+title = "Charles Grodin Quotes"
+quotes_len = "11"
+description = "the best 11 Charles Grodin Quotes"
++++
+- I don't accept what people say. I took something to be copied recently, to be enlarged and blown up, and they said it couldn't be done, and I went somewhere five minutes away, and they did it.
+- I would rather people take me as straightforward and not have to wonder if I'm kidding or not. Because what I have to say, and what I'm interested in doing and communicating, is worthwhile enough that I don't want to muck it up with people being confused about where I'm really coming from.
+- I started in movies in 1963, and the first big one was 'Rosemary's Baby' in 1967. While you don't notice it right away, it finally dawns on you that 80% of the time, you're doing nothing.
+- Good acting is thinking in front of the camera. I just do that and apply a sense of humor to it. You have to trust the audience to get it.
+- With me, personal relationships are like my religion. I care that deeply about them. I am the complete opposite of a manipulative smoothie.
+- I enjoy comedic things. People don't understand it's the hardest thing to do. We have a ratio of 25-to-1 between good dramatic actors and people who are considered good comic actors.
+- I do everything from home. I broadcast commentaries for CBS News Radio every day - from home, on a disk that I mail in. I write a weekly op-ed piece for the 'New York Daily News,' and any books or plays or movies that I'm crazy enough to write, I do that from home.
+- I wouldn't even dare read the Torah, let alone attempt a witty observation on the Torah.
+- I don't miss acting. I don't even see movies. I don't see plays. I don't watch television.
+- I never mean to be disrespectful, and I don't mean to be a wise guy.
+- I don't want to have anything to do with the government. And yet if we don't have any regulations, there goes civilization, there goes security, and there goes protecting you against what people are going to sell you.

@@ -1,0 +1,22 @@
++++
+author = "Caio Fonseca"
+title = "Caio Fonseca Quotes"
+quotes_len = "16"
+description = "the best 16 Caio Fonseca Quotes"
++++
+- If you come every day or every month to my studio, you won't see that much change, but if you come once a year, you'll see big new categories opened up.
+- I've been playing piano my whole life, but I'd never tried to understand how compositions are made, really. Try to imagine if you'd loved paintings your whole life but had never painted one. My aspiration now is just to understand.
+- So many paintings have hidden meanings or need wall texts, but my work is not in that category.
+- Most people draw from the mind, not the eye. They draw the idea of a table or a face, not what's in front of them. We don't actually see the line of the jaw as a line and we don't see an eye as a perfectly outlined almond shape.
+- My 20s were spent in a room, alone, mixing paints and figuring it all out.
+- I'm not such an artist type that I can't handle the real world. I read the financial pages, because most people don't talk about art.
+- My uniform is sweatpants, so crusted over with dried paint that they're as hard as a table. I wear T-shirts that are also covered in paint, and Crocs.
+- The world of painting has nothing to do with the art world.
+- When I have a creative block, I take walks. I like to see what shapes stick out - so many legs rushing by at once, it can seem abstract. I don't need to see great art to get stirred up. Music does that for me more easily.
+- It's not until the very last phase that you know how good the works are going to be.
+- My forms are not abstractions of things in the real world. They're also not symbols. I would say that my job is to invent these forms and to put them together in a way that keeps your interest, to give the forms a quirky identity so you can engage with them, so you realize there's an inner intelligence or logic.
+- All my siblings became artists. One's a novelist, my brother is a painter, my sister was a costume designer.
+- I'm not particularly interested in painting, per se. I'm interested in a painting that has that mysterious life to it. Anything that doesn't partake of that magic is halfway dead - it returns to its physical elements, it's just paint and canvas.
+- I think I was very lucky to have grown up with an artist's studio in the house. It was a kind of life that was possible. Yeah, it made it kind of harder because the standards were higher, but there was no pressure.
+- Most days, I practice piano in the mornings and I spend the rest of the day painting.
+- Painting is something that requires a lot of time - it's not just one good idea out of art school.

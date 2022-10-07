@@ -1,0 +1,22 @@
++++
+author = "Britt Baker"
+title = "Britt Baker Quotes"
+quotes_len = "16"
+description = "the best 16 Britt Baker Quotes"
++++
+- I went to school for eight years to be a dentist. Sorry if the person in the fifth row doesn't like it and thinks I should be a bag guy because people hate the dentist. People might not like the dentist, but they do like people who chase their dreams.
+- It's the pressure of live TV. I also have the added stress of keeping my dental career in check because I am going to be out of the office on Wednesdays and flying back home on Thursdays.
+- I am Dr. Britt Baker, DMD, and I'm a professional wrestler. I don't mean to brag or boast, but I love the recognition for it.
+- You have to wake up, go to the office, do any after office paperwork, you have to go to the gym, you have to train and train, you eat, you get a little bit of sleep and then you do it again.
+- I have no ill will towards WWE, my boyfriend works there.
+- There is nothing worse than being in the middle, where fans just don't care. So I hope more than anything that they form an opinion of me one way or the other because I don't want to be the person they don't care about. They can boo me, they can cheer me, as long as there's some kind of reaction.
+- If you would have asked me three or four years ago when I started wrestling whether I would have worked for any other company than WWE in the long-term, I would have told you no.
+- They say the best wrestling gimmicks are a heightened version of yourself and that's me!
+- Wrestling kept me sane during dental school. That was the hardest time of my life, and I don't know how I would have made it without the distractions of wrestling to keep me afloat.
+- I have an agreement with the dental office I work for that we'll be closed on Wednesdays.
+- I'm really thrown into the deep end because I've never been on live TV.
+- I've never wrestled Kylie Rae, I've never wrestled Nyla Rose. I'm more familiar with Kylie Rae, I know her, she was my room-mate in Japan. I was in the match where she broke her collar bone in Japan, I was her tag partner.
+- I'd rather it to just be not so much men's wrestling and women's wrestling but that we're all on the same playing field.
+- I'm absolutely scared and I absolutely have reservations, but sometimes you need to find that deep down in you to bring out the best performance of yourself, to bring out the best version of yourself, but yep I'm nervous and I'm scared.
+- When I wake up in the morning, I know I have to do this, this, this and this. It has to get done and that's what you do.
+- Instead of diving further back to the fandom as a child, more recently when I was training as an independent wrestler, that is really when women's wrestling took to the forefront and really started this upward rise.

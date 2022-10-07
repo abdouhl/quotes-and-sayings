@@ -1,0 +1,106 @@
++++
+author = "Richard Ashcroft"
+title = "Richard Ashcroft Quotes"
+quotes_len = "100"
+description = "the best 100 Richard Ashcroft Quotes"
++++
+- If this world hasn't made you semi-mad, then you ain't living in it.
+- Without music and creativity, I'd need other forms of therapy. But for me, the life process is the process of healing yourself. 'Break the Night' is about offering hope to people, about breaking through the darkness.
+- There's always one character, I think, in every town who's the obsessive who steals money to go and buy records.
+- Some people have a God because they need faith, and that's fair enough.
+- I love my cracked eyes.
+- You look at the Blur comeback, it was so smooth - so smooth - compared to The Verve.
+- I don't believe in a new-age movement; I'm not a hippy.
+- We never had a stylist, so I always wore my own clothes.
+- If you judge people by what they've done in the past, you're wrong.
+- I don't ever want to get to the point where I don't think about death! You've got to swim in it, learn from it - embrace it!
+- Of course, fatherhood fundamentally changes a lot of your life, but it enriches you, too.
+- There's a track called 'Why Not Nothing' about how the world's turning so conservative and so religious at the same time. I think it's up to the songwriters to give another side to the coin, and my music does that.
+- Glasgow Barrowlands is the greatest concert venue in the world.
+- Not many people come out of a big band as the lead singer/songwriter and making a record, and all of a sudden we're all happily sailing at the same pace as we were before.
+- Obviously, aging has a certain amount of mellowing process because there's certain things you realise you were doing when you were younger that were plain ridiculous, stupid.
+- Creativity, for me, is almost like therapy; my songs take you into the underbelly of my mind, and there's some dark stuff in there.
+- I have never had a bad review off a good-looking person.
+- Even if you're not releasing songs, the act of creativity is important. That's the part I love, when you're in the moment. The rest of it I'm not particularly interested in at all.
+- We'd lie on the floor, turn the lights out, put two speakers on either side of our ears, and try to blow our minds with music. I know that I want to make a record that does that yet a record that, if it was played on the radio at twelve in the afternoon, the guy making the wall - the guy cleaning the motorway - he's got a melody to hang on.
+- I wouldn't trade what Coldplay have achieved for any of my songs.
+- With 'Break The Night,' each verse is saying, 'Nothing's going right today; nothing ever does.' It's about that kind of repetition, it's that kind of mantra you can get in your mind when you're depressed or down, when it's become like a hamster on a wheel - it's very difficult to break.
+- Music is power.
+- We're the most talented musical island ever.
+- The greatest footballers take the sport into the world of art, of performance.
+- I want to entertain and inspire.
+- I've got a letter from the Dalai Lama at home.
+- Pop music might seem banal and simple to some people, but it's what it expresses that counts.
+- The most sacred thing you can get is time. That's all people want on their death bed; that's what it's all about.
+- I'm a naturally gifted left-footed footballer.
+- I don't want to be responsible for messing up someone. I don't want to be responsible for that, because the things that happened in The Verve, it was heavy stuff. It was real. It wasn't just frivolous nonsense, you know what I mean? There was real people's lives.
+- 80% of everything I've experienced since the Verve has been depressing.
+- If you start shaping everything you do trying to be in step with whatever is going on in the world, you're often out of step by the time people hear it. It's a bit like fashion.
+- Technology means the kind of music you can make on your own if you've got an imagination is amazing. It's crazy that I can sit with a Mac and a keyboard and a mic and create a symphony.
+- It's difficult to be the spokesperson for something that internally is falling apart. That's a tremendous amount of pressure to put on one person, to be the guy who gives all the quotes, all the interviews.
+- I don't think I have enough German blood in me to get into the royal family.
+- Life is about unforgettable and transcendent moments, isn't it? The point of music is to get the moment.
+- Rock n' roll is like a religion.
+- The music industry wants safe rock stars, people who are totally homogenised.
+- I love sportsmen's spirit, their ability to come back and override negativity. Michael Owen has been written off so many times, but he will always prove the doubters wrong.
+- George Best was my idol. I got a chance to meet him once.
+- The Richard Ashcroft of 1992 would have struggled to imagine the path my life has taken - he would be amazed at the changes in my song writing.
+- I strongly disagree that you can't have a happy family life and a child as well as rock n' roll.
+- I've got a talent, and people enjoy my songs, people love my songs; why stop?
+- What happened in the '70s was albums and concerts began making a hell of a lot more money, and then the suits got involved.
+- I was always going to be vulnerable when I left the Verve. It was a hardening experience for me. People saw me stripped down and decided to have their shot. I suppose they wanted to take me down a peg.
+- I'm a strong person, but every man has his limits.
+- I lost a good friend a few years ago, and it happened quite suddenly. Any event like that leaves you with questions. Would a phone call have made a difference? Did the person know that you were there for them?
+- If you really, truly believe in something, you're on fire, and your tongue rolls at the same pace.
+- I'd definitely say I'm a depressive, someone who suffers from depression.
+- I've never written a 'Revolver' or a 'Pet Sounds.'
+- The mad thing is, most of my life, when I'm not in a dark mood, it's been humour that's got me through. The only way to get through this business is by laughing.
+- Hearing 'This Is How It Feels' on the radio was an amazing feeling, like starting again. But I believe that, in the end, my name will be bigger then the Verve because of all those great tunes and the power of what I stand for.
+- I'm very interested in Darwinism and how that affects us on a day-to-day level. But I also have a deep interest in theology and the spiritual.
+- Criticism is beyond your control and is a collective group of people deciding things about you that may or may not be true. Some critics look for more when there's no need to. They have a dotto-dot picture of me they are intent on filling in.
+- We all have our daily prescription of yoga, football, religion, or whatever gets us through that day. My thing is music. It's the only thing that gives me a sense of calm and balance. It's the thing I know I'm good at.
+- You know, rock n' roll's an old carcass: it's one big cliche. It's so difficult to do anything that has any sense of freshness or vitality or meaning. But that's what I'm trying to do, to give it new meaning.
+- I'm never happy with any record, never truly been happy.
+- Other kids would be playing with their Action Man, and I was questioning life and society.
+- A classic song is timeless. You'll never outlive a classic song. I'll never put The Beatles 'In My Life' on one day and say, 'That doesnt move me any more.'
+- The mainstream consumed our culture.
+- I probably suffered from a narcissistic disorder in some way.
+- Don't expect me to be some indie schmindie embarrassed about my success.
+- I don't like being told what to do.
+- You can radically change a person's life with a tune. I don't think people truly understand or appreciate how powerful that is.
+- Really, I listen to more hip hop probably than most other things. That's where I get a lot of my influence from because it's so eclectic. So that's what I love.
+- You have to build yourself up a bit. You have to believe in yourself, because not that many other people will, you know?
+- If the way I see the world is mad, then fantastic.
+- My job is to make grown men cry, to blow people's minds and elevate them, make them transcend and unlock emotions that have been repressed by life, their job, situation - that's what I do.
+- If Sinatra had packed in his style because there were a load of counterfeit Sinatras about, he would have stopped singing in 1956 or whatever.
+- They called me 'Mr. Average' in school.
+- I think I was born to be a songwriter.
+- You can find the greatest sound of all time, and someone's going to squash it down to a tiny little earphone anyway or play it through the computer, and that is a big thing people have to think about now.
+- I'm totally up for experimental music. I'm up for music that they don't play on the radio, and I take in all of it. But my thing, the thing that comes most natural to me, is making the stuff that has a melody; it has a soul to it, yet it's head music.
+- 'Bitter Sweet Symphony' is one of the biggest hip-hop records of all time once you actually analyse it.
+- I've had tons of incredible conversations with people who say they got married or buried relatives to my songs.
+- Ed Sheeran? I don't like the fact he gets a lot of stick. I like the fact he works hard, and God knows how much money he pays to the tax man each year.
+- At The Verve's first-ever gig, I said that we were gonna blow this local band off the stage. It was only in the local Wigan paper, and they rang me to ask why I was being so aggressive. I just went, 'Hey man, it's like boxing. I'm just trying to sell a ticket.'
+- The Grime guys have kind of rewritten the blueprint for people as far as creativity, songwriting, ownership, doing your own videos... So they're sending out a real positive message I think to people, that you can do it yourself in a punk way, and you can still potentially be successful and get to people.
+- I am a family man, and I have children.
+- Sometimes, you're before your time with ideas, and you have to accept that you can't know.
+- I'm not driven by fame or success. I'm quite a shy, introverted person, and I could easily melt away into the background.
+- I am so lucky that I have been part of and written songs that will always resonate no matter how old they get.
+- I've always felt like an outsider in this industry, but that sense of community - that sense of belonging with your fans - it's an amazing feeling, and it's really inspiring.
+- When I read about Gram Parsons' dream of this Cosmic American Music when I was in my late teens, that stuck with me: that idea, that ambition, to draw off the roots of music but take it somewhere fresh.
+- There's lots of people I'd love to work with.
+- I'm not one of those freaks who can't see anything past 1977.
+- It doesn't matter how fashion or politics changes; you'll never change a classic song.
+- 'Bitter Sweet Symphony' is one of the greatest pieces of modern art created by anyone. I'm not blowing my own trumpet here.
+- When you go onstage, the process of getting you from the dressing room to the stage is all about ego.
+- Just because something's kinda indie and whatever and only a few people know it, it doesn't give it more authenticity over Rihanna's 'Work' work work.
+- If I was a painter, I would have hundreds of finished and unfinished canvases in my studio waiting for people to see, and it is the same with my music. I've got so many pieces of music and songs waiting to be heard.
+- People do get out of my way when I'm walking to the shops.
+- I'm very lucky that I can walk on the stage before anyone in the world. And that's the thing: you've got to be pretty confident to go on after me. You've got to have the artillery, as I call it. And the artillery is your songs.
+- My thing is, I've yet to meet a well person. The spectrum is unbelievably wide, the triggers for depression and manic depression.
+- People wanted me to become this cliched Keith Richards, Iggy Pop character. I wasn't expected to marry a beautiful wife and have kids.
+- Ultimately, if someone's paying hard-earned money to see me play live, they don't want a rant about what's happening on the other side of the world. They don't want to know which way they should vote.
+- I think I've learned a lot on the vocal side of things.
+- I've got kids now; it changes you radically.
+- Life's about ego. So for someone to talk about my ego, as they are writing their piece about my ego, I'm wondering what they're doing with their ego?
+- As a musician, I don't wanna put out political soundbites.

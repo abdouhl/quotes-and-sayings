@@ -1,0 +1,23 @@
++++
+author = "Lorene Scafaria"
+title = "Lorene Scafaria Quotes"
+quotes_len = "17"
+description = "the best 17 Lorene Scafaria Quotes"
++++
+- I'm a person that thinks time is very precious and our only commodity... It's so upsetting when I feel like something has wasted my time.
+- I'm from Jersey, so I have a love of T.G.I. Friday's and chain restaurants in general. When you go to a Friday's, it seems like everyone's on ecstasy and way too happy anyway.
+- For me, modern technology has ruined romance and movies - nobody can run to the airplane gate anymore.
+- It's really hard as a screenwriter, you feel like you have a vision and then you turn it over to a director and you have to let it go.
+- Routine is part of coping.
+- I think when you take forever off the table, it does something really interesting to what you think is important. There's something a little freeing about it.
+- Most of my nightmares that jolt me awake either involve the cosmos or something completely out of human control. In reality, I worry more about nuclear war, or war in general.
+- I think, as a woman, you do sort of have to work twice as hard, but I don't feel as if I wasn't given opportunities.
+- I've been obsessed with doomsday for a long time - the idea that different cultures respond to it differently, and religions will change people's outlook on it.
+- I escaped to New York, and then L.A., but when I dream of home, I still dream of my old house in Holmdel.
+- I liked to think I had written 'scripts' when I was in high school, but looking back at them, they were about thirty pages of wannabe-Mamet dialogue with a staple through them.
+- The best thing you can give me is your time. The easiest way to get me angry is to waste my time.
+- No texting. What happens then? Good old-fashioned letters.
+- In the '90s there were these great end of the world movies like 'Armageddon' and 'Deep Impact'... I always liked the idea of what people on the ground are doing, not so much the people who are trying to stop the world from ending.
+- No I don't really write thinking about specific actors because it can get in the way a little bit.
+- What do they call it, Y.O.L.A., you only live once? I think people are sort of gravitating towards that.
+- Work harder than everybody. Read scripts, watch movies. Help other writers, it makes you better. And probably move to L.A.

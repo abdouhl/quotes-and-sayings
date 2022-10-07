@@ -1,0 +1,26 @@
++++
+author = "Colin Salmon"
+title = "Colin Salmon Quotes"
+quotes_len = "20"
+description = "the best 20 Colin Salmon Quotes"
++++
+- I take a four-pin extension lead, so I can jack one plug in the wall, and I've got four plugs there for me. With all our phones and different gadgets, I think everyone should carry one. It's become a crucial part of my travel kit.
+- The Loden in Vancouver, where I stayed when I was filming 'The Arrow,' is a family-run hotel with a fantastic restaurant, great facilities, and brilliant people.
+- I am a father, and sometimes I want to stay close to home. By varying the workplace, it gives me space to breathe. I enjoy theatre because it reminds me I'm mortal, and it's terrifying when it goes wrong but the most thrilling experience when it flies.
+- I grew up on a council estate in Luton, and as a child, I was very much into the brass-band tradition. I was basically a Salvation Army boy. My English granddad bought me a cornet when I was five years old.
+- In Britain I love spending time at the St. James's, the Jumeirah Carlton Tower on Cadogan Place, and the Mayfair Hotel. We've got some spectacular hotels tucked away in London, but because I live there, I don't get to spend as much time in them as I probably would like to.
+- I can't take 24-hour news. Life is what it is, and we can handle it, but when you're getting it pushed down your throat, it's too much.
+- I started to watch 'Play for Today' and plays like 'Cathy Come Home,' and Kenneth Branagh's 'Billy' trilogy in the 1980s, which took us into the world of the Belfast family. As a kid in Luton, how was I ever going to know that world otherwise?
+- I believe I can do it, but one of the reasons I don't really get into the debate is people keep talking about a black James Bond: how a black man should play him.
+- We've got to protect the nursery schools. I'm chair of governors in a nursery school in my area. If we lost the provision, I'd be worried about the socialising skills of children.
+- Keeping a consistent band going is a bit like getting the Aston Martin out the garage - you have to run it every now and then!
+- I love 'Babette's Feast' because of the message in it - an artist will never be poor, and you can melt the coldest heart with love and passion.
+- Botswana has an incredible future if it can wrestle the HIV scenario to the ground.
+- I'm a trumpet player, so I always carry a pocket trumpet in case there's an opportunity to jam with the locals. I was in Guadeloupe last year filming 'Death in Paradise,' and I played all over the island and had the best time.
+- It's fantastic that 'Strictly' is beating 'The X Factor' for many reasons - but one of the main reasons is I think it's a fantastic piece of variety television. It is live, varied TV whereby we are really hanging ourselves out by the seam of our pants.
+- 'Bond' was like Christmas: can't wait for it to come around. Being in the films brought me to a global audience, and I have had the opportunity to meet incredible people.
+- 'The Bank Job' was great fun to work on. Roger Donaldson is a top director, and working on HD was a new experience. It picks up every detail, which is a blessing and a curse if you think about it.
+- I'm a trumpet player, and I sing jazz.
+- I played myself in an Aziz Ansari comedy, and that was funny to see how they saw me... flowing scarves and a flourish of pink! Eek!
+- We need to demystify - get out and speak to strangers on the street.
+- I liked 'Z Cars' - just hearing the music got me going! 'Coronation Street' was massive in our house. My mum used to say Ena Sharples reminded her of Gran, which she wouldn't have been happy to hear!

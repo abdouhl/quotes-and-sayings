@@ -1,0 +1,14 @@
++++
+author = "Frankie Muniz"
+title = "Frankie Muniz Quotes"
+quotes_len = "8"
+description = "the best 8 Frankie Muniz Quotes"
++++
+- I wanna do movies that in ten years time people will respect me for, as an actor. So if I do take two years off or three years off, the next movie I have that comes out you want people to go 'ooh, that's Frankie Muniz's new movie, it's gonna be a good movie cause he's in it.'
+- There was a scene cut out of 'Big Fat Liar' (2002) where I had to wear a dress. This may sound kind of weird, but I really enjoyed shooting that scene.
+- Some kids are always getting into trouble or doing stuff, and I stay away from those types. I know I am no better than anyone else in this world. I'm just an actor, that's nothing special. But I'm not into anything bad. Just blackjack.
+- I am keeping with tradition today. After I learned of my Golden Globe nomination, I went to the dentist, so today, let's make it the orthodontist.
+- I'm just an actor, that's nothing special.
+- I know I am no better than anyone else in this world.
+- Yeah, I like cars and basketball. But you know what I like more? Bananas.
+- Acting classes, I guess, are good and I would like to maybe sometime take one. But I would feel like I was learning someone else's technique. I like mine.

@@ -1,0 +1,45 @@
++++
+author = "Cindy Margolis"
+title = "Cindy Margolis Quotes"
+quotes_len = "39"
+description = "the best 39 Cindy Margolis Quotes"
++++
+- Gotham Games called me, and I could not be more thrilled. I've been waiting to be in a video game forever, so when they called there was no hesitation.
+- My bed is actually two king beds put together.
+- My favorite meal is turkey and mashed potatoes. I love Thanksgiving, it's just my favorite. I can have Thanksgiving all year round.
+- You have to surround yourself with really good people and have a very thick skin.
+- We have so many kids in America to be adopted, but it's expensive. All these families that want children aren't able to because of the financial aspect, and that, to me, is just the most disgusting thing ever.
+- I think in vitro is a miracle and it has given me my precious little baby boy.
+- Makeup artists are always giving me their stuff. My favorite thing is free stuff. I'll take anything.
+- The more I learn and read about the 10th Muse i realize what a great fan base and cult following she has. I'm going to try to live up to the fantastic image of the 10th Muse!
+- The world of modeling can be hard; just as cruel as it is glamorous.
+- I made my career off posing in swimsuits and doing all the swimsuit issues and posters, but I will tell you that that little bit of material on an itsy-bitsy bikini - taking that off was very nerve-racking the first time.
+- I really did put up all my wedding pictures on my website. And I swear to you, my wedding pictures got downloaded just as much as my bikini pictures.
+- I love room service!
+- Back in '96, I was on 'The Price Is Right' pointing at refrigerators, and 'Extra,' the TV show, came down. They were the first entertainment entity that put people up on the Internet, so they put my picture up, and America Online called the next day and said I got a zillion or whatever downloads. I didn't know what a download was!
+- I know I play into that image out there, but I try to say it is a fantasy. I look at my own pictures and wish I could look like that. There are probably five people in this whole entire world who actually look like that.
+- I've done over 125 posters and I have worked with some of the best photographers in the world. They made me America's Number one Pin Up.
+- My pictures are airbrushed.
+- Being on the cover of a magazine with my son is the best thing ever. It took me 18 years to get my first cover, he gets one at 8 months.
+- I've lived my life in a way that I feel would be an example to young women and I've always given my best in everything I've tried.
+- I think that's the great thing, ya' know, that women can do anything that they want now.
+- Infertility is this huge emotional roller coaster. If you want in your heart more than anything to have a baby, it's the hardest thing you will ever go through physically, emotionally, and financially.
+- There's no such thing as an overnight success. It took me a long to get there.
+- A good photographer can make you look incredible, even when you're not feeling very sexy.
+- It just kills me when these girls look at magazines and wish they could look like that. I try to tell them, 'Nobody looks like that. Everything's airbrushed.'
+- I do have the 'girl next door' image.
+- I am spoiled, it's true. I don't even know how to use that thing in the kitchen with the burners.
+- Having inner beauty is something you develop on your own, and I like to think I have that.
+- You have to believe in yourself, that you're gonna succeed.
+- Here in America we so are for family values, yet insurance companies do not cover all fertility procedures.
+- I have been blessed in my career and I was able to afford the extra procedures and everything to have my children. Does that make me a better mother than someone who cannot afford it? No, of course not.
+- I hope every woman out there who wants to be a mother and is suffering with infertility, will explore all the options and know that if you choose the science route, it is okay.
+- Sometimes I see myself in the mirror, and it's 'Oh, God!' But the minute you stick out your butt a little bit and suck it in, you go from a 6 to a 10.
+- So many celebrity websites you go to are so sterile that you know they just pay somebody to do it and there's not even an ounce of them in it.
+- To me, bigger is better.
+- I married the man of my dreams in 1998.
+- You should see me without makeup.
+- There's always someone following your next step.
+- Being a mother is the most amazing thing that has ever happened to me in my life.
+- When you're modeling you're actually acting for the camera and the photographer. It's more fun, too because there are no lines to memorize.
+- I was really stuck in the whole Farah Fawcett hairdo long after it was past being in fashion.

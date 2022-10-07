@@ -1,0 +1,31 @@
++++
+author = "Bret Easton Ellis"
+title = "Bret Easton Ellis Quotes"
+quotes_len = "25"
+description = "the best 25 Bret Easton Ellis Quotes"
++++
+- I don't know why I write what I write.
+- I do not feel I have a legacy to protect.
+- Everyone I know who is successful has issues with their father, regardless of whether it was sports or business or entertainment.
+- I just sort of write the book I feel like writing given the emotional place I am in my life at the time.
+- Hope E. L .James doesn't think I'm being a prankster. I really want to adapt her novels for the screen. Christian Grey is a writer's dream.
+- I feel like I'm not smart enough to answer the questions I'm asked.
+- I had no idea that 'Less Than Zero' was going to be read by anyone outside of Los Angeles, and it's - believe me, as the writer of the book I'm somewhat amused and intrigued by the idea that 25 years later it's still out and people are still reading it.
+- Unless you're the director on the movie, or putting up the money for the movie, you really don't have a lot of control.
+- I totally relate to Tom Cruise. He's not crazy, it's just the litany of the mid-life crisis.
+- Completely committed to adapting 'Fifty Shades of Grey'. This is not a joke. Christian Grey and Ana: potentially great cinematic characters.
+- Every book for me is an exorcism in some way or another, working through my feelings at the time.
+- Writing a novel is not method acting and I find it easy to step out of it at cocktail hour.
+- All of my books come from pain.
+- I went to college in Vermont, and then stayed in the East Coast.
+- Exploitation is a harsh word, I know that, but on a certain level, to me that is the central Hollywood story.
+- I'd rather let the fiction speak for itself and I don't want to write fiction that tells people how to feel, and I don't want to be judgmental in the fiction.
+- Regardless of the business aspect of things, is there a reason that there isn't a female Hitchcock or a female Scorsese or a female Spielberg? I don't know. I think it's a medium that really is built for the male gaze and for a male sensibility.
+- I think basically most men are misogynistic.
+- Are you as much of a criminal if you don't act when there's a crime taking place in front of you as you are one of the participants? That was something that I was thinking about a lot because there are many moments in 'Less Than Zero' where horrific things happen and Clay could do something about them, but his passivity stops him.
+- Why would I care what other people are thinking? I don't care what an audience thinks of me.
+- It's the rare book that's able to transport you in a way that a movie does.
+- No one is drawn to writing about being happy or feelings of joy.
+- I think my sensibility is very literary; all my books were built as books, and I wasn't thinking about them being movies.
+- If I want to write a movie, I'll write a screenplay, but if I have an idea for a book, it's something that I think can only be done novelistically.
+- I have no problems or issues with screenwriting in general.

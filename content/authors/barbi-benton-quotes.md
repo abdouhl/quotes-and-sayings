@@ -1,0 +1,84 @@
++++
+author = "Barbi Benton"
+title = "Barbi Benton Quotes"
+quotes_len = "78"
+description = "the best 78 Barbi Benton Quotes"
++++
+- Frankly my parents didn't like him. They objected to the things he stood for. Besides, daddy and Hef are the same age.
+- I'm very career-minded.
+- I want to keep my roots in Hollywood.
+- I want to get past the Playboy image and really develop myself as an actress, a dancer and a singer.
+- I think Jane Fonda is to be admired for her stands.
+- Hef was very protective of the women who went to the Mansion.
+- My real name is Barbara Klein and I'm from Sacramento.
+- People recognized us together and our names were synonymous. Whenever you heard Barbi Benton, you think of Hugh Hefner. And I loved that. I was his girlfriend and he was my boyfriend.
+- It's a hindrance in trying to get a serious acting role. The minute a producer has a script and my name comes up, they immediately think of 'Playboy,' 'Hee Haw,' 'Fantasy Island' and 'Love Boat.'
+- Actually, diamonds are a very common stone. I prefer emeralds.
+- Nobody thought I could do anything with a singing career... except my singing teachers, who were accustomed to hearing voices that could be transformed into something.
+- You can't let fashion tell you what to do. If it doesn't look good on you you're better off without it.
+- At 35 women are at the bottom level of middle age but we can look like we are absolutely in our prime. Even if you're badly out of shape, you can put yourself in good shape in two years, maximum.
+- 'Playboy Magazine' has been a devil's advocate for me. Because of the image and type-casting, it's harder to convince people that I can sing. Yet, I probably wouldn't have had the chance, had it not been for Playboy.
+- With Hef it was a relationship. It's the world that made a big thing out of it.
+- I'm no libber. I like it when a man looks at me and treats me like a woman. I do think though, that women should get equal pay to a man doing the same thing.
+- I considered Hef a one-woman man.
+- The 'Playboy' affiliation will probably stick for the rest of my life to some extent.
+- My singing teacher said it would take three years before I could sing well enough to be accepted as a professional. They were wrong. It took me five years.
+- I love clothes and jewelry. I'm the fashion lady type.
+- After three months of singing, Hef heard me practicing once. He tried to convince me to quit singing lessons because there was no chance of being good at it. Of course, I cried a lot when he said that, but it was my money that I was investing in lessons so I continued partly out of spite and partly because I really wanted to do it.
+- I would never fall in love with a ditch-digger.
+- It's not that I don't have talent. I've had four gold albums in Scandinavia and they never heard of me as anything but a singer.
+- But I'd like to be taken seriously as a singer.
+- If it were up to me, I wouldn't have security. But Hef thinks I'm naive. He feels I'm vulnerable to kidnapping.
+- One never knows when the angels are coming to get you, but everybody has to go.
+- Most of all, I want to be known as Barbi Benton, the singer, not as Hugh Hefner's girlfriend.
+- Hef is boring to cook for. He likes a total of four main dishes: fried chicken, pot roast, pork roast and pork chop sandwich!
+- Of course, I'm not exactly the girl next door.
+- I know that part of my success on stage is due to the fact that I've kept myself together.
+- I've lost a lot of fat and that's through weight lifting.
+- Let's face it, sightseeing can be a bore at times.
+- When I first came to Southern California I enrolled at UCLA in pre-med. My fathers a doctor. But the sight of blood turns me off, so I began doing television commercials.
+- I like to perform in front of an audience.
+- I like low-cut clothing because I am a believer that one should emphasize their best points.
+- I think everyone should be creative in some way, otherwise you have no self-respect. That's why I believe in women working.
+- Circus lions are mean. They don't know anything about affection training.
+- What I don't like is the way people automatically think I am a kept woman, that he pays my expenses. This puts me in a rage. I've always paid my own way, even while living in his mansion. I've kept an apartment of my own. In fact, I not only buy my own clothes, but many of Hef's, too - he just hates to shop.
+- It took me five years to learn how to sing.
+- I have this problem where I'm never satisfied with what I do.
+- People automatically assume that if I get anywhere it's because of my association with X, Y or Z, or because I'm pretty.
+- Bill Cosby was one of the first people I met at the Mansion, shortly after I met Hef in 1968.
+- I buy unknown, lower-name brand jeans. I don't care about the name brands, if I look good in the jeans I don't care who made them.
+- Joining 'Hee Haw' was one of of the best moves I ever made. Until then I had no television exposure except the talk shows.
+- I was also dating someone from UCLA and also I had another suitor, Jimmy Caan. So it was between my college boyfriend, Jimmy Caan and Hef. And Hef won. Within a few months, we were exclusive.
+- When he died, he took a big piece of me with him. I'm sure that every time I do something, I'll think about having done it with Hef.
+- There are some things I like that Hef likes, too. For example, Colonel Sanders' chicken is a standby. I've never been able to figure out how to recreate the combination of herbs they use to flavor the crust.
+- I look at the feminine body as a piece of art.
+- I don't wish to sound chauvinistic, but I feel the female body is beautiful to look at, more so than a male's.
+- One thing I love is that I don't have a lot of people running around Hollywood saying 'I've had her,' because guys love to talk, especially about celebrities.
+- I'd like to be known as something more than a girl who goes to lunch with her girl friends and goes shopping.
+- When I was growing up, we were in a high income bracket, one of the highest. I was one of the first in high school to get a car. And I didn't have to wait for it to be a graduation present, either. We've probably got one of the nicest houses in Sacramento.
+- Hef has always been attracted to younger women. He loves to see the world through the eyes of someone seeing it for the first time.
+- I honestly think that Hef had a lot to do with women making more money and getting better jobs. He's had a huge impact on the entire world, and I think that's for the better.
+- I'm not really the star of 'Sugar.' I'm co-starring with two other girls, Marianne Black and Didi Carr. We play roommates in the series and we sing together professionally.
+- As for those who condemn Hef, he's done a great deal for women's lib and sexual liberation as well.
+- What I really want is to create a name based on my own accomplishments.
+- When I first started to sing, people automatically asked what Barbi Benton was doing behind a microphone, and I'm determined to show them there is talent here.
+- I like nice things. I've always had nice things.
+- I will never be Barbra Streisand, but I have done an awful lot more than what I was sent out to be.
+- When we first dated, I would not go home with Hef, so the only way that he could see me was by taking me out. We went out quite a bit.
+- I'd like to play Vegas as a head-liner.
+- If you're 19 and you don't look good, it's nature's fault. If you're 35 and you don't look good, it's your own fault.
+- My young face keeps me in the running for youthful roles. If my face is going to look 22 then so should my body.
+- I take every lesson in the book: singing, acting, guitar, piano, jazz, organ and tap-dancing.
+- There came a time when I had to decide between show business and devoting my full time to medical training. I chose show business.
+- When I first met Hef, I didn't like him at all. I thought he was too old.
+- People are surprised that I can walk and talk.
+- The best thing is one hour of aerobics and one hour of anaerobics.
+- I was studying pre-med at UCLA when I decided show business was for me, and the best way to make it was in music. I had just one problem. I was tone deaf.
+- People, whatever their profession is, have a right to fight for the right causes.
+- In 'Sugar' I'll be singing in every episode and I'll be acting and doing comedy. It's ideal for me if it works.
+- I do two things every single day - I go running and then I do weight lifting.
+- I made quite a lot of money in commercials and I decided when I got out of school to take singing lessons so I could get into singing commercials, too.
+- The new age disc jockeys and program directors have accepted me as a new age artist, along with Shadowfax and the rest, and they're playing my songs.
+- I'm looking for personal credibility as an entertainer.
+- When I first met Hef, I was a co-ed at UCLA.
+- Anybody that was famous found their way to the Playboy Mansion. It was exciting for me. But I didn't know half of them!

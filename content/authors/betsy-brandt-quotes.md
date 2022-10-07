@@ -1,0 +1,45 @@
++++
+author = "Betsy Brandt"
+title = "Betsy Brandt Quotes"
+quotes_len = "39"
+description = "the best 39 Betsy Brandt Quotes"
++++
+- I try to be in bed by 11. Sometimes I watch a 'West Wing' rerun. That relaxes me.
+- Compared to the other work I've done on TV, 'Breaking Bad' was funny. In the beginning, I described it as a dark comedy.
+- For me, I think you make a choice what kind of actor you want to be, and then it's kind of the material you choose.
+- The great thing with comedy is that I don't memorize ahead of time like I did on 'Breaking Bad.' With 'Breaking Bad,' I wanted to know those words inside and out, really have my lines down so I could say them verbatim. But with comedy, you keep it a lot more loose.
+- I was lucky enough to be on a show like 'Breaking Bad' for 5 seasons; it changes how you look at other projects that come up.
+- My house in my real life is a no-purple zone.
+- After 'Breaking Bad,' I couldn't see myself liking anything nearly as much.
+- After you leave a show - any show, but for me especially after 'Breaking Bad' - you hope for a job to help soften the blow now that you don't have this amazing job anymore, and you hope that it's good.
+- My son is pre-K and my daughter is in elementary school. So they don't watch the show. But my son knows that I'm on it - he says that 'Breaking Bad' is his favorite show even though he's never seen it. It's really great that he says that, because it makes me look like mother of the year.
+- I will say, 'The Michael J. Fox Show' is funnier than 'Breaking Bad' - not that 'Breaking Bad' isn't funny, but this is funnier and slightly less violent.
+- It'd be great to do some other TV. 'Breaking Bad' is definitely my home, but I'd love to have a nice hiatus gig, like a recurring role. Or to do a good film. I'd like to do a Woody Allen movie. I really didn't have a plan, and that's okay with me.
+- When I read both pilots for 'Breaking Bad' and the 'Michael J. Fox Show,' I turned to my husband in real life, and I'm like, 'That is an amazing script.'
+- Listen, I'm always going to defend my character, even when she's doing something that I don't approve of, because that's what you have to do to love them and play them.
+- Hank Schrader is a really good guy - and so is Dean Norris.
+- I don't wear a lot of makeup, but I live by Benefit's They're Real! mascara. I wear it on the red carpet because it doesn't smudge - and I always smudge!
+- For me, I need to be able to show up on set and fart around and goof around. If I can have that, when I'm not acting, then when I'm acting I can go however deep and dark and bad I need to. I developed that more with 'Breaking Bad' because I've never worked on anything as dark for as long.
+- Honestly, one of the reasons I wanted to do a comedy next was that I just kept thinking, 'I don't want to chase the next 'Breaking Bad,' because honestly, there may never be one.' I couldn't imagine any other drama comparing. And I just wanted to laugh.
+- I feel 'Breaking Bad' - maybe everybody says this about their show - I feel like this show is so special that I don't 'know' that I necessarily really know what it's like to do a regular show.
+- I would watch 'All In The Family' with my babysitter.
+- I love opening night, and I love doing plays. But one of my favorite parts about doing a play or working on a new play is rehearsal.
+- I used to have a pet crawfish, so my friend made a mold of its claws and bronzed a key chain for me out of it.
+- You look at anything, and you're like, 'Is this as good as 'Breaking Bad?'' It took a while for me to stop comparing every project that comes my way to that. That's one of the reasons I wanted to do 'Life in Pieces.' I just want something that's a 180. I just wanna do something completely different.
+- I can tell you, we had a lot of fun at 'Breaking Bad.' You have to.
+- That undeniable love for your child... that's something I totally get. And the bumps in the road, too. Like, any parent that thinks they have a perfect relationship with their child is a liar, or they're just not present.
+- I'm not anymore because I haven't kept up with my certification, but I was a certified actor combatant in rapier, dagger, hand-to-hand, and quarterstaff.
+- I'd never done a sitcom until the 'Michael J. Fox Show.' I'd never even guest starred in one until then. So it was definitely a learning curve, which is what I wanted. I wanted to do something new, to challenge myself.
+- For 'Breaking Bad,' it was like, that's one of the best pilots, probably the best pilot I have ever read.
+- I like 'Mad Men,' and I think 'The Killing' is pretty great too. I like 'Brothers & Sisters.'
+- If I can keep it light in between scenes, then that helps me dig down further than if I try and stay at that constant place all day. That's just me. Every actor's got their thing. But that's what I do.
+- In high school, a teacher's friend in the police department asked me to go into a bar and flash a fake ID saying I was 21 even though I wasn't. They were assuming the bar wasn't carding people. Anyway, she forgot to ask for it back. I used it all freshman year in college.
+- I'd like to be on the next 'Six Feet Under,' whatever that is.
+- Before I had kids, my bag was clean. In case I need to occupy them, I like to have Hot Wheels cars, See's lollipops, and a deck of cards.
+- My earliest memories would be 'Little House On The Prairie.' I also really liked watching 'Three's Company.'
+- I got my Equity card playing Helena in 'A Midsummer Night's Dream,' and I think that's the first job I got that was an offer.
+- The great thing about being in this business is that you meet people, and I met Sally Struthers.
+- I like to do Italian food on Sunday nights. We'll either go somewhere, and the whole family will go, or we'll stay in our apartment and watch a movie and enjoy one of the huge perks of living in New York City, which is that you can have anything delivered.
+- Sunday I try to make up for some sleep I lost the week before and bank some for the next week.
+- Everybody - even huge movie stars - have downs. That's just how it is. The work ebbs and flows. My manager and I were saying, 'Let's remember that in 2013 we were soooo busy.' So whenever it is that we're not, maybe it'll come back again. Maybe it won't. But you've gotta love the ride.
+- I believe gelato is meant to be treated as medicine and taken daily as a prescription.

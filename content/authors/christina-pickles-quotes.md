@@ -1,0 +1,28 @@
++++
+author = "Christina Pickles"
+title = "Christina Pickles Quotes"
+quotes_len = "22"
+description = "the best 22 Christina Pickles Quotes"
++++
+- Everything begins and ends with the writing.
+- For less powerful actors to reject work is just a waste of time and money - pointless.
+- When you're old you have to be funny.
+- Any family that doesn't fight really needs therapy.
+- At the beginning of 'Friends,' Matt LeBlanc was anxious. Every time he did something, he would look for approval to the director, the producers or the writers if they were around. There would be a look of: 'Am I doing this right?'
+- I've done so many pilots I thought were good that didn't work, and so many that I thought were bad that did work.
+- I don't know why. But I've always thought a large, metropolitan hospital was a very valiant thing.
+- I knew Jennifer Aniston would be a huge success from the moment I saw her in rehearsals.
+- And there are a lot of people like that, who feel loneliness and despair but cover it up.
+- I'd like to do a sitcom.
+- I think toward the end of my run as an Emmy nominee, I started to dress better. At the beginning I was overdressed and uncomfortable.
+- I actually didn't learn about acting until I moved to America, eventually met Bert Knapp and studied with him.
+- I will not have my face lifted.
+- I'd like to get away from diseases of the week.
+- I actually have an absolute respect for nurses and hospitals.
+- I really felt home in New York and still do. It's never lost interest for me.
+- I have no trouble saying, as the copy reads, about how caring nurses are, because it's true.
+- I grew up in England, and people there are pretty difficult. They never say what they mean, and when they do it comes out harsh.
+- I am interviewed a lot about 'Friends' and people always want me to say nasty things or 'what was this person like.' And I can't because they were all wonderful.
+- I've always just sort of bashed ahead with my life and hoped that it would all eventually make some sense.
+- I've been hopping around in sitcom land. I did an episode of 'Roseanne,' 'Family 'Ties' and 'Who's the Boss.'
+- I just love the different rhythm of comedy after having been in a disease-of-the-week kind of show.

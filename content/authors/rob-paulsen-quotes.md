@@ -1,0 +1,17 @@
++++
+author = "Rob Paulsen"
+title = "Rob Paulsen Quotes"
+quotes_len = "11"
+description = "the best 11 Rob Paulsen Quotes"
++++
+- I love to improvise when it's appropriate and encouraged by a producer.
+- Just because there are celebrities in a movie, it doesn't mean anything. I don't think The Ant Bully did all that well the first week at the box office. Compare the movies that have a lot of celebrities with the Jimmy Neutron movie, which had no celebrity voices and grossed almost one hundred million dollars.
+- It's a treat to portray a complex character. Besides... where else could I find a job where emotional outbursts and odd exclamations like 'Egad!', 'Narf!', 'Poit!', 'Splonk!' and 'Zort!' are allowed?
+- The greatest thing is nobody cares that I'm fifty years old. They only care what I sound like.
+- I'm a golf nut!
+- I'm getting paid to do what I got in trouble for in the 7th grade. I absolutely love what I do and thank my lucky stars for twenty-five years of full-time employment in this business.
+- I'm one of those fortunate actors who gets to work pretty much every day. I've had a run of good fortune and work with some terrific people who have hired me.
+- I absolutely love what I do and thank my lucky stars for twenty-five years of full-time employment in this business.
+- The best voice actors all have a live performance background. And are competent, fearless, incredibly creative actors.
+- The nuances and organic characteristics of a character become second nature if I'm doing my job well.
+- One of the greatest things about my job is that I can enjoy all the successes of a show, but can still go out in public, not like say, Michael Jordan.

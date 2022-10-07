@@ -1,0 +1,99 @@
++++
+author = "Ice Cube"
+title = "Ice Cube Quotes"
+quotes_len = "93"
+description = "the best 93 Ice Cube Quotes"
++++
+- If you think about stuff that happened when you were young, it stays with you forever.
+- I think, to me, reality is better than being fake.
+- I go light on breakfast. Sometimes it's a yogurt, but a lot of times it's leftovers from one of my wife's dinners.
+- I'm just an entertainer, man. I don't like to pigeonhole myself to anything. I love to do it all.
+- But with rap music - not just N.W.A. - but rap music in general, seeing these artists wearing these team logos all the time started bringing a synergy and energy about having to rep your city, your team, everywhere and all the time.
+- 'Boyz-n-the-Hood' was actually supposed to be written for Eazy's group. He had a group out in New York called Home Boys Only, called HBO. One of them looked like LL Cool J. Eazy wanted to write a song for them, a street song, like what we were doing on the mix tapes. So when I wrote it, it was too West Coast for them.
+- When I did 'Boyz N The Hood', I never thought how we grew up in South Central was interesting enough for a movie.
+- I do what I do. You like it, great. You don't, go listen to somebody else. I'm stickin' with the people who stuck with me.
+- The moral is that a career can be gone in an instant. And all you have in this world are the people you love.
+- There's never really been a real hood Christmas movie.
+- I've got a basketball signed by all the greats from Julius Irving to Oscar Robinson. It was at an All Star game I got them all to sign it. So that ain't going nowhere. I'm going to die with that in my casket.
+- I have a really beautiful life right now, so there is no reason to be hostile. I'm a husband, a father and a man who tries to do the right thing in life and in my work.
+- There's a lot of potential that goes unused in places like South Central L.A., a lot of brilliant, smart people who just don't have that chance to show it.
+- I definitely support cop acting more than cops, but all of them ain't bad, just some of them.
+- We're in this entertainment business really to give the audience what they want.
+- Early in my career, people wanted to hear music about protest, about trying to change things.
+- It never gets old. Working with somebody like Kevin Hart is rejuvenating in a lot of ways. He's such a pro. He's so good.
+- I still enjoy doing music. I'm not going to stop doing it, and doing it the way that I feel it should be done.
+- You like a woman, she's got kids, it's a package. You can't just go in one-sided.
+- Quincy Jones' autobiography 'Q' is very good. Because he's a master at music, he's one of our greatest composers, and its good for him to have a book and tell the good ole days when he was with Duke Ellington, Count Basie, Sarah Vaughan and Ray Charles.
+- I really appreciate family. I really can't imagine life without them!
+- When people see the Cubevision logo, they should know it's something good, something worth checking out.
+- Gangsta to us didn't have anything to do with Al Capone and stuff like that. It's just about living your life the way you want to live it. And you're not going to let nothing stop you.
+- I've done movies for certain reasons; I did 'Anaconda' because the black man lives. Simple. The black man isn't dead in the first three pages, like Jurassic Park. It's like, 'The black man kills the snake with a Latino girl? Damn! I got to do this.'
+- Even though I have a nice house, nice family, the rest of my generation is still in South Central L.A. My cousins, my brothers, my sisters, they don't wanna move out. They don't want to and they don't have the means to sustain it. That's where my heart is and that's what I think about all the time.
+- If it was all about me, I'd do a whole lot of pop records, make a whole lot of money, just rake in the dough. But it's never been all about me. It's all about being a voice for the voiceless. People who can't speak for themselves, who don't have a mic, don't have a say.
+- Twerking has to end. Not for the ones that look good doing it, but for all the ones that you feel, 'You don't have enough to twerk back there. Your twerkin' look like jerkin.'
+- My thing is, I know kids cuss, they do their thing, but I tell my kids, 'Don't do it in earshot of any adults, or you're in trouble.'
+- There's a lot of talent in South Central L.A., in Compton and Long Beach and Watts, and the city north of Pico pretty much sits back and waits for that talent to emerge and then steps in.
+- I love any time you can enlighten people to mistakes, that's how I started my career.
+- Rap is always evolving. It's easy for the old school to hate the new school, but it's a music that got a little stifled I think, by the Internet a little bit.
+- I'm not actually from Compton - I'm from South Central Los Angeles, and my father still lives in the same house I grew up in, so I'm there all the time.
+- Don't get a movie confused with real life. I'm a well-rounded human being like everyone else.
+- I never was in the Nation of Islam... I mean, what I call myself is a natural Muslim, 'cause it's just me and God.
+- Snoop Dog is the Phil Jackson of youth football coaches. He ain't going to accept nothing but a winner.
+- Some people have a taboo about doing advertising in the States. You know, where they kind of make their bread and butter. But to me, that's crazy.
+- Doing it your own way, not having to go exactly by the book to be successful.
+- Obama reminds me of the black kid at a white school that don't nobody want to play with.
+- It's not like I'm the first man ever to do this, y'know? You gotta go back to Nat King Cole, Bing Crosby and Sammy Davis Jr. Those are people who've done music well and movies well, and y'know, Frank Sinatra and Elvis and all these dudes have made the transition. I don't know about Elvis, 'bout doin' 'em good, y'know? It's nothin' new.
+- Anything that got to do with a pig, I ain't eatin'.
+- Our records, if you have a dark sense of humor, were funny, but our records weren't about comedy. They were about protests, fantasy, confrontation and all that.
+- Ice Cube is the piece of me that I give away to the public.
+- I've been caught in parachute pants. And on my high school yearbook, they used the wrong picture. They were supposed to use the picture of me with a nice suit on. They used me with my collar flipped up, in a fuchsia and white striped shirt. I blame Prince and Michael Jackson in the Eighties for that.
+- I was ready to get out of the box and play something a little different than what everybody has seen.
+- South Central is just who I am. Even though I have a nice house, nice family, the rest of my generation is still in South Central L.A. My cousins, my brothers, my sisters, they don't wanna move out.
+- I'm not the type of actor who is trying to do a whole bunch of different stuff, you know what I mean?
+- I make a mean cup of coffee, if you give me the right ingredients.
+- I have great people, smart people that are around me and we love the challenge. I guess it's like climbing a mountain or building a building. It's a challenge but you love every challenge that it brings or presents itself.
+- I remember wishing there was snow in L.A. And how jealous we used to get of those Christmas specials with kids playing in the snow.
+- Sometimes when you're relegated to your neighborhood, you forget that there's more important things than your neighborhood going on out in the world.
+- For me rappers and dancers are poets and artists and often times the most interesting performances are given by them.
+- I never get tired of 'It Was A Good Day' references or jokes or anything like that. It's just, you know, keeping my biggest hit alive. Nothing wrong with that.
+- I'm trying to cut down a little on eating, on sodium, keep my blood pressure down, which is tough. Because I love food! I do, but it's unfair how everything that's bad for you tastes so good, and all the good stuff, veggies and green things, doesn't match up.
+- Don't worry about being a star, worry about doing good work, and all that will come to you.
+- When I was in N.W.A. and didn't get paid all the money I was owed, that's when the business side of showbiz hit me.
+- What I learned from architectural drafting is that everything has to have a plan to work. You just can't wing it. I can't get all the materials I need for a house and just start building. Whether it's a career, family, life - you have to plan it out.
+- I love music. It's freedom, a way to deal with pent-up frustration.
+- I think the worst thing you can do about a situation is nothing.
+- Sports without music is just a game. Music makes it entertaining.
+- I believe how you measure a good movie is how many times you can see it. With comedies, I like to be a producer, because comedies can get corny and go off track real fast. I'm always the 'less is more' guy when it comes to a scene. So I'ma be the one who will keep it grounded.
+- I never was in the Nation of Islam... I mean, what I call myself is a natural Muslim, 'cause it's just me and God. You know, going to the mosque, the ritual and the tradition, it's just not in me to do. So I don't do it.
+- The thing is with hip-hop, it has its waves and the waves crash against the beach and the new waves come in. So to stay relevant you have to roll with that.
+- I used to game a lot, you know, back in the day. My gaming time done got so short that my skills ain't where they need to be to be online, you know what I'm saying? I just got that Xbox One. I gotta get my skills back, up the par to call myself a gamer.
+- You don't wanna mess up what you've done. It's like Jordan coming back: You're scared to mess up the legacy.
+- My son, O'Shea. He looks like me, and he can rhyme.
+- I think I'm unique to the game 'cause of my versatility.
+- Young people are dying for no reason all over the world that don't know why. It's ugly, everywhere.
+- Truth is the ultimate power. When the truth comes around, all the lies have to run and hide.
+- Music is where I have the most creative freedom, but I love producing. To me, that's kind of where all the action is. You get a chance to have your hands in every aspect of a film. From picking a director, sometimes picking a writer, to the actors, the wardrobe, set design, editing, music, and marketing.
+- I did 'Are We There Yet?' because I wanted to do a movie for my fans' kids. Black kids don't really see movies on this budget for them, starring them. And there's so many white kids that love that movie.
+- I think rap music is brought up, gangster rap in particular, as well as video games, every other thing they try to hang the ills of society on as a scapegoat.
+- I'm a B-boy at heart. I still like rhyming. It's just the radio game is like Chinese arithmetic. It's hard to know what nuts to crack. But I still love music, been dropping music. Never stopped, really.
+- South Central is just who I am.
+- I am only 33, I've got a lot to do. This is the first half of my career. I'm looking forward to the future and I'm proud about the past.
+- Music has done a lot to enhance the emotions of sports. It's played in arenas. Whenever there is footage cut together they're always using music. And it goes together, you know.
+- It's funny how people who ain't never been down there can think that America is so fair and that we should be alright. It's funny that the people who have their foot on our neck are telling us, 'Get up. What's wrong with you?'
+- I wake up at 5:30, 6 in the morning, but don't head into the office right away. I like to hang out with my wife, talk about things, get some coffee, you know.
+- My son Darrel could recite 'Straight Outta Compton' at two years old. He loved it! You can expose your kids to anything as long as you sit there and explain it to them.
+- Rap is just somebody getting something off his chest. That's all it is.
+- With film, I have to be a team player; it's a whole different thing. I can't just be a one-man show. I have to learn how to use people to the best of their ability and motivate them to be as passionate about the project as I am.
+- I was a very interested arts student, I was always into that part of school and when I got into high school I went into architectural drafting. It gave me an understanding of how to build things and it's really helped me put things in perspective. With my music and my movies, to me it's all art.
+- The silver and black may have another home, but the Raiders will always belong to the people of Los Angeles.
+- I don't get nothing but love. In every ghetto all over the world. Nothing but love. They respect that I came outta there and I'm doing it the right way. You can't do nothing but respect that.
+- I think reading is important in any form. I think a person who's trying to learn to like reading should start off reading about a topic they are interested in, or a person they are interested in.
+- I'm not really into the political game as far as paying politicians and stuff like that, I'm not into that. You do your job, and I'll do mine.
+- I used to love to draw. I didn't want to go to art class because I felt that would be too corny when I was young, but architectural drafting was the cool thing to do because there was more precision. It taught me a lot about building and structures and doorways and frames and windowsills.
+- My worst ever car was a green Datsun B210, back when they called it 'Datsun' - now it's 'Nissan.' Very unsexy, unattractive. Girls hated the car. I was embarrassed to even be in it... but it was my transportation.
+- Can't step from one movie set to the next. Only Samuel L. Jackson can do that. All us mere mortals can't do that!
+- I been all around the world and I haven't found a city that I'd rather be from or rather come back to than Los Angeles.
+- The best thing I've done with my money is buy a house for my family. You wake up to a house you love and you feel like somebody.
+- Sports without music, it's nothing but a game. Music adds the emotion.
+- I have a lot of milestones that I'm proud of when it comes to music, 'Amerikkka's Most Wanted,' I'm extremely proud of that. Just because of what I had to go through to get that music produced, that album produced.
+- My grandmother worked at one of those Bel-Air mansions, and we would go - not too often, but every now and then - to pick her up. Hollywood was probably 12 miles from my house, but it might as well have been a million miles away. The only time I saw that world was on TV. Until I started making records.

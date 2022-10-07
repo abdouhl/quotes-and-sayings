@@ -1,0 +1,75 @@
++++
+author = "Chris Borland"
+title = "Chris Borland Quotes"
+quotes_len = "69"
+description = "the best 69 Chris Borland Quotes"
++++
+- If you turn on the film, I can play.
+- I never thought my choice to leave the NFL would lead to 'Face the Nation.' When I first thought of quitting, I cringed at the notion of becoming a football safety advocate. I was making a personal decision; I never set out to influence others.
+- Dementia pugilistica was discovered in 1928... And we still have boxing. Football will continue.
+- I think the one thing I can say is not to play through concussions. I think that's unwise.
+- Folks who blithely disregard the benefits of football likely haven't played or are being intellectually dishonest. The game, perhaps more than any other, requires absolute dedication and teamwork. Yes, I ultimately quit, and if I ever have a son, he won't play, but I'll always cherish the lessons I learned from football.
+- I loved football. I'm so glad I played. But I didn't think it was wise for me to play longer.
+- The act of riding a bicycle isn't causing brain trauma. Yeah, you could fall, but that's if something goes wrong. Everything could go right in football, and it's still dangerous.
+- I just want to live a long healthy life, and I don't want to have any neurological diseases or die younger than I would otherwise.
+- Obviously, football and soccer seem to clash a lot, but soccer was great for me. It's a game that you play with triangles. You make a pass thinking that the person you pass the ball to is going to make the next pass.
+- The idea that just the basis of the game, repetitive hits, could bring on a cascade of issues later in life, that was - it changed the game for me.
+- Obviously, not the biggest guy in stature. Straight-line speed wasn't my forte either. But I play very fast because I know the game. I take proper angles and know all my assignments.
+- The host of 'Face The Nation,' Bob Schieffer, was an important figure in my childhood years. Every Sunday in the fall, he occupied my family's time after church and before the NFL pregame shows.
+- I think it actually is easier for players to abstain from watching than it is for people who haven't experienced it. I know a wide variety of former players that don't really follow football any more. They've kind of had that cathartic experience. They know what it is.
+- Sports are my passion. They have been since I was a kid. So I think I'll be involved in sports in some capacity no matter what I do.
+- I loved playing in the Big Ten, where it's three yards and a cloud of dust.
+- People think that athletes have it great, and we do in a lot of regard, but universities make a hell of a lot of money off of players. You don't get a free education: you work full-time year round for five years for an education you could pay for three times over if you just got your market value.
+- I walked away from pro football and a $2.9 million contract with the San Francisco 49ers because I didn't want to develop CTE.
+- I just honestly want to do what's best for my health.
+- The 49ers drafted me assuming I wanted to play more than one year. At the time, I did, too. Things changed. They didn't deserve to be undercut. And I didn't want that to happen.
+- I've got a wide variety of interests.
+- I'm more athletic than people think.
+- I enjoyed playing, and I've got a full and happy life now, so it's not like I'm looking back longingly at my time in football.
+- I don't dislike football. I love football.
+- A piece of my heart will always be in football, but my mind ended it.
+- Sometimes men and women have trouble with just being vulnerable.
+- I don't do interviews without a collared shirt.
+- I don't really trust the NFL.
+- It would be ill-advised to compare war and a sport, but I don't think the brain knows the difference. With post-traumatic stress and traumatic brain injuries in blasts with veterans, we see a very similar and somewhat unique issue with repetitive brain injuries in football.
+- The reality is that it's just the nature of the game. It's the nature of playing offensive line, defensive line, and linebackers, where your responsibilities as a player involve those little hits that are going to accumulate. You can't take that out of the game.
+- I just don't want to get in a situation where I'm negotiating my health for money.
+- One thing that's important to understand is that it's believed that the pathology of CTE doesn't have to do with concussion so much as it has to do with the accumulation of sub-concussive hits. So every hit matters. If you're subject to 800 or 1,200 of these every year, it accumulates. It's like erosion.
+- I just thought to myself, 'What am I doing? Is this how I'm going to live my adult life, banging my head, especially with what I've learned and know about the dangers?'
+- I'm involved in so many cool and interesting and redeeming things. I'm enjoying every day.
+- My experience over my five years at Wisconsin and my one year in the NFL was that there were times where I couldn't play the game safely. There are positive measures we can take... but on a lead play, on a power play, there's violence.
+- There are Hall of Famers at 5'11'' and 5'9''.
+- You can't be in the locker room reading 'League of Denial.'
+- I guess I compete in everything I do, but it's always good to get out and be active and find an outlet for all of that pent-up aggression you had as an athlete.
+- I think I'd be a good pass-catching fullback.
+- My height might be a disadvantage in some parts of my game, but it is a big advantage in rushing the passer.
+- I think flag football is a great alternative, and it's a great game in its own right. It's a wonderful alternative. You can develop all of the skills and athleticism and glean the lessons you can from contact football through playing flag.
+- Some of my best tackles were the most dangerous!
+- Punishment for doing your job well is an unparalleled professional pressure.
+- If you gave me an hour in the day between '09 and '14, I could have told you exactly where I was and what I was doing.
+- Pat Tillman is a hero of mine.
+- I can't predict the future of football. I don't think it'll go the way of boxing because it's a team sport. It's built into our education systems, the flagship for a lot of universities' fundraising campaigns. So no, I don't think it'll go away.
+- Football is inherently dangerous, and that will never change.
+- I wanted to fulfill my dream of playing in the NFL.
+- I would never call myself anti-football. I think I'm pro-information, pro-people making informed individual choices, pro-health, so for that reason, personally, I'm apathetic towards football. But at the same time, I think we can retain some civility, and I understand why people support and love it.
+- I think, in the eyes of a lot of circles, especially within football, I'm the soft guy. But I'm fine with being the soft, healthy guy.
+- I don't consider football fun. It's not like a water park or a baseball game.
+- The men and women that are hired to take care of players' health, their salaries are paid by the team. Before games, you would see team docs and trainers, and they're every bit as as excited to, say, beat the Raiders as you are; their emotions are tied up in it.
+- A generation of men really built the NFL and gave guys like me a shot, and a lot of these guys are left out in the cold by the league and forgotten.
+- During the course of a 16-game season, everybody, in the end, is injured. It's almost as if pieces just get broken off, and you give up pieces or an appendage every year.
+- I couldn't really justify playing for money, and I think what I wanted to achieve put me at too great a risk, so I just decided on another profession.
+- One healthy thing I'd like for players to know, whether they're active or former, is you likely can't replicate the thrill of playing before 100,000 people and big hits and making that much money. We can get ourselves into trouble trying to.
+- As far as what it takes to play football, I've got all it requires.
+- In places where people read hardcover books and eat sushi, they're not signing a five-year-old up to tackle another five-year-old.
+- If I was a marginal guy or a practice squad player or a career-long special teamer, you take a hell of a lot less hits in those roles.
+- I've thought about what I could accomplish in football, but when you read about Mike Webster and Dave Duerson and Ray Easterling, you read all these stories, and to be the type of player I want to be in football, I think I'd have to take on some risks that, as a person, I don't want to take on.
+- I think it's unfair to punish players for inherent faults in the game.
+- I never played the game for money and attention. I love football, and I've had a blast.
+- About 10 percent of the time, I miss 3 to 5 percent of the game. I look back, and I'm happy that I played. I'm not wistful. You miss big games. I miss the locker room camaraderie. Sometimes I miss the lifestyle.
+- I was a history undergrad, and there's some things I could do in academics or business.
+- I think I'm connected to this issue in some capacity, football and brain damage. So carving out a way to address it tactfully is important to me no matter what I go on to do.
+- Dehumanizing sounds so extreme, but when you're fighting for a football at the bottom of the pile, it is kind of dehumanizing.
+- My breadth of football experience, my injury history, and my all-or-nothing goal to become one of the best linebackers in the NFL, combined with all I'd been learning about the game's neurological effects on the brain, convinced me I'd be wise in choosing another career.
+- Football's extremely important to me. iIt's my passion.
+- Football is an elective. It's a game. It's make-believe. And to think that people have brain damage from some made-up game.
+- I think I did a good job of compartmentalizing my life. It's crazy to say it, but even if football was this dangerous thing, it was a place where I could focus all my energy. I'm sure it's not the healthiest thing to direct stress from football into football, but that's basically what I did.

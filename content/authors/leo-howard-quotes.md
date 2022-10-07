@@ -1,0 +1,15 @@
++++
+author = "Leo Howard"
+title = "Leo Howard Quotes"
+quotes_len = "9"
+description = "the best 9 Leo Howard Quotes"
++++
+- I love performing, and I love being in front of people. I love the pressure you get and the pleasure performing brings.
+- If you're OK with being clumsy, it's funny. But if you are super embarrassed, people are going to laugh at you.
+- It was fantastic playing Conan; it was such an experience to go out of the country and be this barbaric human savage child for a month or so. It was a blast and definitely a great experience.
+- I would be nowhere without martial arts. It's a passion.
+- Being confident is the key to life. Don't be afraid to be you! I'm super different from a lot of kids my age with style and personality, and I'm OK with it. And if you are OK with it, everyone else will be, too. Just be yourself.
+- Bruce Lee only played himself. Chuck Norris is a martial artist that does acting. I want to be an actor that does martial arts.
+- I was bullied in first grade, and it's definitely not fun. But always tell somebody instead of holding it in. Communicate with people and just say, 'Hey, I'm being bullied. I need help.'
+- I've done all kinds of martial arts. I have my blackbelt in Shorei Ru. I'm doing Wu Shu. I do all kinds of different martial arts.
+- Don't give in to all the cliques and popularity. It means nothing. I know super popular guys, and guess what? They're just normal people, too.

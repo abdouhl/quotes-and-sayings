@@ -1,0 +1,36 @@
++++
+author = "Chaka Fattah"
+title = "Chaka Fattah Quotes"
+quotes_len = "30"
+description = "the best 30 Chaka Fattah Quotes"
++++
+- When Bill Clinton was in town, he sent over a balanced budget.
+- African American children can't be educationally disadvantaged for 12 years and then experience a miracle cure when it comes time for admission into college.
+- But the point you need to know is that no president at war cut taxes $1.5 trillion, like Bush did.
+- I will work with my colleagues on both sides of the aisle to preserve the Social Security promise that provides secure retirement benefits for all, especially those who are most at risk such as widows, orphans, and people with disabilities when the need arises.
+- But if they want to really think about the fiscal future of this country, then think about how we have moved from hundreds of billions of surpluses to hundreds of billions of deficits.
+- Currently, more than 4.7 million African Americans receive Social Security benefits, and nearly 8 million people with disabilities depend on Social Security for their daily sustenance.
+- Now, so, if you want to blame someone for wasteful spending, the Republicans are in the majority.
+- Democracy derailed is democracy denied.
+- The Americans are optimistic by their nature. And they are hopeful.
+- We have major fiscal problems on our hand.
+- The Republican Party is in charge. They've been charge of the Congress and spending for 10 years.
+- Because when we think about the real facts: 44 million Americans without health insurance, millions without jobs, a 50-year high on mortgage foreclosures, an historic high the third year in a row on personal bankruptcies.
+- The threat of terrorism is not stronger than the will of the American people.
+- This program that the Republican majority has taken us toward as a country is leading us to fiscal bankruptcy.
+- The President's proposed privatization plan would jeopardize that security by cutting guaranteed benefits for future retirees and endangering the benefits of current retirees, people with disabilities, and children who have lost a parent.
+- There are no problems that exist in the District that have been solved elsewhere in the country. Whatever problems exist in this city exist other places.
+- The U.S. and Europe may have more breakthroughs in neuroscience, but you have to put that in perspective. The U.S. has 350 million people, and there are 28 countries in the European Union. Israel is third behind these countries in its neuroscience developments, but per capita, it is way ahead of everyone.
+- To see, once again, that African American students are more likely to have a limited math curriculum and an underpaid novice teacher is disheartening and should be a call to action for policymakers and educators.
+- Fifty million Americans have dementia and other brain illnesses. To gather together the minds that exist and see how we can tackle these ailments together, that is the work that is in front of us: to have a map of the human brain, an understanding of the roadways, and an understanding of the traffic on the roadways.
+- African American students have less access to algebra and more access to seclusion and restraint than do their white peers. The significant disparity in educational resources has caused this problem of disparate discipline and disparate academic outcomes.
+- There's not an appropriations bill in the last 10 years that the-that Democrats passed in the Congress. We haven't spent any money of your taxes in the last decade.
+- Our economic future rests on the extent to which all students, especially those who represent America's growing majority, have access to rigorous, college-preparatory classes and excellent teachers.
+- I've seen with my own eyes what the effects of Israeli neuroscience research is. It was in my congressional district in Philadelphia that ReWalk, the Israeli company that makes the exoskeleton suit that enables paraplegics to walk, carried out their trials.
+- The education cuts in the President's budget are both irresponsible and morally unjustifiable.
+- Now we are raising the debt limit 3 times, up to $8 trillion, so that our children and our grandchildren will have to pay for the cost of our expenditures.
+- While Social Security faces some long-term challenges, the system is not in crisis.
+- I don't know what this definition of affirmative action is for some.
+- Without Social Security, poverty rates for African American seniors would more than double.
+- Philadelphians continue to benefit every day from the flow of federal dollars to improve our infrastructure and create jobs.
+- Bush has never sent over a balanced budget.

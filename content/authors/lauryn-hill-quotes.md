@@ -1,0 +1,47 @@
++++
+author = "Lauryn Hill"
+title = "Lauryn Hill Quotes"
+quotes_len = "41"
+description = "the best 41 Lauryn Hill Quotes"
++++
+- We can't plan life. All we can do is be available for it.
+- This life is a process of learning.
+- Being young and female in America, you watch a lot of T.V., and you grow up on false images of what love truly is. We think the man with the best rap will protect and save us, about it's not usually that way. Then you learn love is something deeper and purer in form.
+- Real religion is no religion at all.
+- From the first time someone says, Who do you think you are? we learn how to repress.
+- Since those who believe they need a hero/celebrity outnumber the actual heroes/celebrities, people feel safe and comfortably justified in numbers, committing egregious crimes in the name of the greater social ego. Ironically diminishing their own true hero-celebrity nature in the process.
+- Everything we do should be a result of our gratitude for what God has done for us.
+- The danger I faced was not accepted as reasonable grounds for deferring my tax payments, as authorities, who despite being told all of this, still chose to pursue action against me, as opposed to finding an alternative solution.
+- I don't know anybody that's not emotionally unstable or schizophrenic.
+- We call ourselves creators and we just copy.
+- When I was working, and when I was making substantial amounts of money, I always filed and paid my taxes. This only stopped, when it was necessary to withdraw from society, in order to guarantee the safety and well-being of myself and my family.
+- You don't know how much artists go through to make it look so easy. It's all in the practice.
+- I believe God will make a way.
+- I do support artists standing by their beliefs and walking with integrity. We have to find a better way to commercially exploit music while giving artists their proper respect. This cannot be done while taking their contributions for granted or trying to control the scope of their growth and power through threats and fear tactics.
+- I think what people are attracted to about me, if anything, is my passion. People got exposed to my passion through music and song first.
+- I tried to manipulate and control people, and I harbored resentment. I wanted to be forgiven, but I wouldn't forgive others.
+- When I have a creative insight, there is a high. I think back in the day, I made music as much as I did because it made me feel so good. I think you could argue that there is a creative addiction - but, you know, the healthy kind.
+- Be honest, brutally honest. That is what's going to maintain relationships.
+- That strong mother doesn't tell her cub, Son, stay weak so the wolves can get you. She says, Toughen up, this is reality we are living in.
+- Reality is easy. It's deception that's the hard work.
+- We don't want people to have expectations of us, but then we have expectations of everybody else.
+- I need to be surrounded by people as passionate and as dedicated as I am.
+- People need to understand that the Lauryn Hill they were exposed to in the beginning was all that was allowed in that arena at the time. I had to step away for the sake of the machine. I was being way too compromised. I felt uncomfortable having to smile in someone's face when I really didn't like them or know them well enough to like.
+- I wouldn't even hold my kids sometimes because I didn't want them to spit up on me when I was dressed for an awards show.
+- I never did anything I'm really ashamed of.
+- The less I have, the freer I am to do whatever I want to do.
+- Let optimists rule the world.
+- We have to make sure the music and the message and the words and all the elements come through in our songs and every time we appear in public.
+- I have a couple of all-time favorites: Donny Hathaway and Roberta Flack, Marvin Gaye and Tammi Terrell.
+- Over-commercialization and its resulting restrictions and limitations can be very damaging and distorting to the inherent nature of the individual. I did not deliberately abandon my fans, nor did I deliberately abandon any responsibilities.
+- With The Fugees initially, and even with 'Miseducation', it was very hip-hop - always a singing over beats. I don't think people have really heard me sing out. So if I do record again, perhaps it will have an expanded context. Where people can hear a bit more.
+- I had to confront my fears and master my every demonic thought about inferiority, insecurity, or the fear of being black, young, and gifted in this Western culture.
+- I got into direct confrontation with everybody I love.
+- I'm trying to open up my range and really sing more. With The Fugees initially, and even with 'Miseducation,' it was very hip-hop - always a singing over beats. I don't think people have really heard me sing out. So if I do record again, perhaps it will have an expanded context. Where people can hear a bit more.
+- As musicians and artists, it's important we have an environment - and I guess when I say environment, I really mean the industry, that really nurtures these gifts. Oftentimes, the machine can overlook the need to take care of the people who produce the sounds that have a lot to do with the health and well-being of society.
+- Hip-Hop isn't just music, it is also a spiritual movement of the blacks! You can't just call Hip-Hop a trend!
+- Nobody's going to force me to do something against my will. What do I owe anybody that I should submit my will to them?
+- What was freely given to me, I freely give.
+- I don't need anybody to market or promote me. If people don't want to hear this music, then it's not for them. You cannot please everybody.
+- To those supporters who were told that I abandoned them, that is untrue. I abandoned greed, corruption, and compromise, never you, and never the artistic gifts and abilities that sustained me.
+- When you're young and everything dramatic is exciting, you start to believe that hype that, in order to be an artist, you have to suffer. I've graduated from that school.

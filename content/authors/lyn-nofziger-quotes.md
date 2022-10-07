@@ -1,0 +1,25 @@
++++
+author = "Lyn Nofziger"
+title = "Lyn Nofziger Quotes"
+quotes_len = "19"
+description = "the best 19 Lyn Nofziger Quotes"
++++
+- Most politicians - those people who live, eat and breathe politics - like to sit around and talk about politics and tell political war stories. Reagan didn't do that. His war stories were movie war stories and Hollywood war stories. He loved that.
+- The best thing going for us is Al Gore. I cannot conceive how the American people could elect him. On the other hand, I couldn't conceive how they could elect a Jimmy Carter or Bill Clinton - especially Clinton in '96.
+- I sometimes lie awake at night trying to think of something funny that Richard Nixon said.
+- He and Reagan were not at all alike, because Reagan is an optimist and Dick Nixon wasn't. Yet in some ways they were alike. Neither really liked to talk on the telephone, for instance. And, in a lot of respects, both of them were very much loners.
+- That foreign trade should be fair rather than free.
+- I'm not a social friend of the Reagans. That's by their choice and by mine. They don't drink enough.
+- These things I believe: that government should butt out.
+- I don't like government, it's just that simple.
+- A better educated electorate might change the reason many persons vote.
+- That guns do more than protect us from criminals; more importantly, they protect us from the ongoing threat of government.
+- I think the American people have become more reliant upon government and less reliant upon themselves and that they now tend to put security ahead of freedom, but I think freedom is the most important aspect of our lives.
+- The executive branch has grown too strong, the judicial branch too arrogant and the legislative branch too stupid.
+- I cannot show remorse because I do not believe I am guilty.
+- Several things about Reagan are unusual in a public man. He was not a typical politician at all, but a private man in public life.
+- Freedom is our most precious commodity and if we are not eternally vigilant, government will take it all away. Individual freedom demands individual responsibility.
+- Government should work to insure the rights of the individual, not plot to take them away.
+- One of the things that bothers me most is the growing belief in the country that security is more important than freedom. It ain't.
+- That government is not a necessary good but an unavoidable evil.
+- The reason this country continues its drift toward socialism and big nanny government is because too many people vote in the expectation of getting something for nothing, not because they have a concern for what is good for the country.

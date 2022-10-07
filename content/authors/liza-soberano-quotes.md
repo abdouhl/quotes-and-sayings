@@ -1,0 +1,67 @@
++++
+author = "Liza Soberano"
+title = "Liza Soberano Quotes"
+quotes_len = "61"
+description = "the best 61 Liza Soberano Quotes"
++++
+- When I dream, I don't just dream for myself. As long as you have that love and these dreams that you want to reach for the people you love dearly, you stay inspired.
+- I'm not really big on gifts. I like giving back on my birthday.
+- Maybe it could be my talent, maybe it could be my heart, but what I want in life is to make a name for myself and to represent what I'm really about.
+- I take selfies just so I know what I look like before I go on cam.
+- One of the common conditions on both sides of my families is diabetes.
+- That's the best gift you can give to your parents - a diploma.
+- I need to build my stamina, so I go to the gym regularly.
+- The most difficult part of portraying 'Darna' would probably be the timing when you do stunts. You have to look strong but you can't be too strong because you don't want to hurt the person you are doing the scene with.
+- I think I'm a pretty brave girl, but I wouldn't say I'm fearless.
+- I want people who visit my Instagram account to realize how hard I've worked for everything I have now.
+- My most memorable role would have to be Agnes Calay of 'Forevermore,' probably because it was my first lead role.
+- Quen kind of taught me what love is and what love should feel like and be like.
+- When I'm reading a book, I don't notice the passing of time.
+- If I were to do a solo movie, I'd like to try another genre so that people can see another side of me, since I've been doing mostly rom-coms and drama.
+- I'm afraid to miss out on the important events in my families' lives or that something might happen to them or myself, and I won't be there for them.
+- I think me, as a person, I'm starting to become more comfortable with myself as an actress, and I'm also gaining a bit more confidence to speak up because before when I have problems, I just keep them to myself.
+- You don't get into a relationship just for the sake of having a boyfriend. Of course, you have hopes and dreams that your first relationship will be your last.
+- I'm not afraid of cockroaches.
+- I can't control everybody's mind.
+- I'm too honest for my own good.
+- I continued school August of 2018. I went back but I shifted my course because in 2017, I was taking up business management and then I stopped because I realized I wasn't passionate about it.
+- I am not the type who'd enter the best schools just to prove myself.
+- I love the no makeup-look because it's very natural.
+- I don't like overdoing my makeup, especially with the face powder.
+- I love to take pictures of my food.
+- I wanna try doing a movie similar to 'The Walking Dead,' an action-horror, or something similar to 'Lara Croft.'
+- I like taking pictures of other people more than I like to take pictures of myself.
+- I don't have a favorite 'Darna' actress because all of them did well. All had their own perspective on how to play the role.
+- I love being in disguise whenever I go to the mall.
+- I like my coffee sweet and creamy, that's why I drink Great Taste White.
+- My grandfather, Daddy Jeff, made me promise to him that even though I'm already an actress, I'd still finish school.
+- For cardio, I run every Sunday.
+- I really wanted to do 'Darna.' I invested so much time, so much effort.
+- Throughout the years, I've grown up in front of the limelight as a model and an actress and I believe makeup plays an important part in building the confidence to feel beautiful.
+- For me, Quen is the perfect guy, he's someone who is always there and who will always be there for me.
+- It's been in my nature to always be nurturing.
+- I think it's very important that I don't lose my circle of friends and the people who helped me get to where I am now.
+- I guess it became easier for me to accept negative comments about my work, my profession - anything work-related because like I said I take them as positive criticisms.
+- I guess, it's a father's dream for his daughter to be known around the world.
+- I have to work hard to show people that I'm more than what they see physically; that I'm talented, and that I care and have empathy for people.
+- What legacy can I leave behind to everybody that they will remember me?
+- Narratives are very important to me.
+- We read this article that discussed the shape of our hearts. It said that God shaped the heart that way in order for us to find our other half - the other part that would complete the shape. Quen completes me.
+- I would like to do a horror film with zombies!
+- I used to be hated by people.
+- I love arts and crafts. They used to be my favorite in school.
+- At the end of the day, I make sure to remove my makeup. I also drink a lot of water and use a good soap.
+- All I want is to live a happy, healthy and contented life.
+- Of course when you look back from all the pandemics that have happened in the world, they were really scary.
+- To be honest, I've never told anybody they have bad breath. When I do recognize that, I try not to breathe when they come near.
+- I always make sure I moisturize a lot, especially around the eye area.
+- I don't have enough time to actually prepare, to actually commit to being a beauty queen.
+- Even if you have so many people saying, 'Yes, this is for you! This is your path!' unless you feel it... It needs to be your own passion, it needs to be your own will.
+- I like to be surprised! But it's always hard to surprise me.
+- I am all about self-improvement and becoming the best version of myself, it could be in my career, my finance, or just life in general.
+- I don't want to say I'm closing the doors to this possibility completely. It's just that I'm very passionate about my acting and being a beauty queen takes time. I'd have to prepare physically. I'd have to perfect my walk. And since I'm no beauty queen, this requires a lot of training.
+- People always say that I'm just a beautiful face. So immediately, I knew what I wanted. I wanted to be recognized to be more than that.
+- I'm not good at answering questions. I always get myself into trouble.
+- Never expect anything, but plan for everything.
+- Of course, there are things I'm afraid of, but I'm not afraid of insects.
+- I don't think it's a sin to be friends with your ex.

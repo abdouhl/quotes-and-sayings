@@ -1,0 +1,97 @@
++++
+author = "Rachel Sklar"
+title = "Rachel Sklar Quotes"
+quotes_len = "91"
+description = "the best 91 Rachel Sklar Quotes"
++++
+- I feel lucky every day. But I can also trace that luck back to decisions I have made. Frequently, those decisions have been to pay my own way to somewhere I want to be and something I want to do.
+- A strong and enthusiastic niche audience can push a topic into mainstream consciousness with speed and force.
+- To be honest, I've been a passionate advocate for the value of tech to help us connect to people in real and emotional ways - and stick up for myself when people say, 'Sklar! Stop tweeting!'
+- Groupon's model: Getting the group discount rate first, finding the group second. The daily deal goes out and, if a minimum number of people sign up, they can all share in the group rate. Vendor gets customers, customers get a discount, Groupon gets a cut.
+- What does 'work' mean in this 21st, ultra-wired century, with its exploding new industries, low barriers to entry and endless possibilities? Is technology making our lives more flexible - or our days more endless?
+- My specialty was baked potatoes with cheese melted over broccoli. I was also very good at melting cheese on bread.
+- Seeing how easy it has been to use Twitter for good has exposed the double-edged sword of how easy it could be to co-opt.
+- I have to say, I worry about Twitter. Not that it will survive - they don't need my blessing for that - but that it will stay the kind of open, community-enhancing-and-enabling site that made it flourish at the outset.
+- Twitter is all about user experience - the fact that it is so easy, so clean, so unencumbered has won it so many users and fans, for so many different reasons.
+- Of course the shrieking desire for the scoop can get really strong, but so is the desire to safeguard connections and keep everyone happy.
+- Twitter is an amazing public tool with an incredible capacity for public good.
+- Is there anything about the JonBenet Ramsey case that isn't weird and disturbing?
+- As an expectant mom who is currently self-employed, I'm amazed at just how tied to the workplace maternity benefits are.
+- You actually can be passionate about things like making rational decisions based on a thorough airing of the facts, a reasonable and informed debate, a respect for the Constitution that includes, um, knowing about it.
+- As a matter of personal philosophy, I have generally said, 'Why not?' far more often than either 'Why?' or 'Not.'
+- Women as a raw demographic unit exercise incredible power across every element of American life.
+- Emily Gannett is tireless. I know this because I have traded emails with her at 2 A.M. only to later wake blearily to a chipper morning missive sent south of 6 A.M. before her morning run.
+- What's more important to 'SNL': comedy or buzz? To the writers, players and guest hosts, it's probably the former; to Lorne Michaels and the suits at NBC, it's ultimately probably the latter.
+- I use iTunes for downloading music, but I always decline when prompted to update this or that new version.
+- Myself, I really like the iPad mounted as a frame, with a happy slideshow cycling through.
+- I didn't go to law school to become a lawyer, per se - let's just say I was leaning in to some strong suggestions from my parents - but my nebulous goals of someday becoming a writer were just that, nebulous.
+- For video clips, you can always assume that there is a creative component since you are literally dealing with production values.
+- I've gone out on limbs, flung far, and Forrest-Gumped my way into the center of the action.
+- Not only do I not drive, I don't have my driver's license; there's a story there, but the upshot is that I spent my high school years an ardent environmentalist and workout junkie who wanted to save the environment, burn calories, and have my boyfriends drive me around.
+- Twitter may have a cute-sounding name, but it exists, it generates a ton of content, it implicates all types of people, and it has nuances that are important to get right. Hopefully, its careless rendering by sloppy journalists won't lead to the dumbification of America.
+- 'The Crumbling of America' should be required viewing for local and national government, not to mention the local and national media who should be keeping their feet to the fire on guarding against disaster.
+- I am a pop culture person. And car people have clearly contributed to pop culture, which is how I knew about purple French tail lights and 30-inch fins without exactly knowing what they were.
+- On the Internet, everybody has an opinion about everything, but if you're smart, you know when to keep your mouth shut.
+- Put simply, the doctrine of 'Fair Use' applies to content republished from copyrightable material and how much of that content is, literally, fair to use.
+- What's surprised me most about the demands of blogging - the relentlessness of it. 24-hour news cycle, every media imaginable right here in New York, totally fair game.
+- Less than two weeks before my 34th birthday, I bought pots. Most people were amazed that I did not previously own pots, but that was before I explained that I had never used my oven, and used my stovetop for my dishrack.
+- Groupon, as you probably are by now aware, is exactly what it sounds like: a daily-deal site offering group discounts. Maybe you've seen that done before, but certainly not like Groupon, which has executed with an energetic sales force and engaging copywriters, many culled from the Chicago comedy scene.
+- It is a pet peeve of mine when people throw around arguments citing 'Fair Use' and yet fail to actually explain what a fair use argument actually is.
+- On NBC, MSNBC and Hulu, you can size and cut clips to whatever length you want. Do online clips affect the TV market? I'm guessing not really.
+- While I know that Twitter is doing just fine with or without my 140-character contributions, I also know that people are fickle, and when using something becomes too annoying, they stop.
+- The road system that we've come to depend on, the road system that we built our wealth on and our power on, is falling apart.
+- We live in a world now where everything is tweeted and Instagrammed and tagged and now, God help us, Vined. Calling out grievances over Twitter has become an industry norm.
+- Law school and summer camp are the two experiences that inform pretty much all I do.
+- My weekends are oases of time and space, where I am able to draw a breath and dive into the stuff I couldn't get to that week - the great article I bookmarked, the friend whose emails I kept dropping, the blog post I'd meant to write on a subject that wasn't timely but was still important.
+- Stuart Blumberg is suddenly an authority on the modern - or, dare we say, post-modern - family, thanks to the critically-acclaimed debut of his new film, 'The Kids Are All Right.'
+- I downloaded a Ricky Gervais podcast once at the persistent urging of a friend and found it funny but distracting - if I'm online, I'm surfing, which means I'm distracted from the podcast. So it's a form that doesn't really work for me.
+- If you don't know Tom Lehrer, you should - in addition to being a classical pianist, mathematician, songwriter, satirist, researcher at Los Alamos and, he claims, inventor of the Jell-O shot, he is just delightfully funny and graceful.
+- I'm a Canadian who can't vote, so far be it from me to speak for what Americans want. But, I am also a close observer of politics and media in this country, and the intersection of both - and how both intersect, and overlap with, each other.
+- I don't fault my former law firm for running their business like a business or expecting their new hire to be worth the obscene rate she was billed out at, but fun it was not.
+- I love the way they look. I love the way they feel. I love saying the word again and again: Jeggings! Jeggings! Jeggings!
+- The comedian can put the punchline out there, but it's the audience that receives it - and has to get it.
+- I have jeggings to wear and worlds to conquer.
+- If there's one thing that 2009 showed us, it's that everything is happening everywhere, across multiple platforms, each one making waves that end up crashing against each other and commingling into one giant media sea.
+- What I do want is to be transparent about where I am and how I got here. I don't like the cone of silence - it didn't do me any favors in my 20s or 30s, and I don't see it doing much for other women, either.
+- Twitter is an astounding platform for information, but it's a total blank slate - which means it's an astounding platform for disinformation, too.
+- When I go a stretch without tweeting, I will occasionally get an email from my mom, checking in. I always find this amusing but also gratifying: Thanks to Twitter, I can keep in touch with my parents and let them in on what I'm doing in a way that even the regular phone calls of a doting daughter can't do.
+- I wrote small stories here and there, then bigger ones. Some were even written for money. I signed up for a writing class and snuck my first assignment on a yellow legal pad in a partner's office while he read through my memo.
+- In September 2005, I was three things: the media blogger for 'FishbowlNY,' a maniacal Daily Show fan, and the only person to smuggle a tape recorder and camera into a big Magazine Publishers of America event featuring Jon Stewart interviewing five hotshot magazine editors in an unbelievable bloodbath.
+- If you care about the news and write what you want to read - not just what you think Google search wants to read - there are people out there who want to read it.
+- I am not an 'unplug' person. I like being plugged in.
+- Flip through the channels, and there is no denying it: The world of cable news - and their network chat-show brethren - is very, very white.
+- My first introduction to New Orleans was from the air, flying high over the city with a view of the land - and water - below.
+- 'Sesame Street' is awesome - not only because they teach, edify and entertain kids but because they savvily make it possible to do so with parental engagement, because the show is loaded with references for Mom and Dad.
+- I totally consider Fishbowl my full time job - I have to say I freaking love doing this blog. I just enjoy the medium so much; I love the fact that it requires me to read amazing stuff by hilarious and talented people and forces me to know what's going on in the world.
+- For single women, admitting that you want kids when you're still unattached can feel like exposing a vulnerability. It did to me.
+- There will always be women who say, 'She doesn't represent me.' In retrospect, these things are gifts, because it forces me to step up and defend what I'm doing.
+- I'm Jewish, but not overly religious, and have certainly never formally observed the Fourth Commandment, other than via the tradition of wearing white on Friday nights at summer camp, which never seemed to dovetail with the fact that Fridays were also the night for grape juice.
+- Oddly, a search for 'jeggings' in my email inbox shows that my first exposure to the phenomenon came from - wait for it - Mike Allen of 'Politico,' who helpfully explained the concept on December 20, 2009.
+- In 2014, having children is complicated and daunting and fraught - as much as it's always been, but now we're talking about it. And the more we talk about it, the more of us will realize that we're not going through it alone. Far from it.
+- Craig Newmark looks like the kind of guy who would help you move your apartment, sell your furniture, get a job, or help you find that cute girl you saw on the subway.
+- Good advice is just watch what you say on Facebook, on Twitter, on social networks because being sued is not fun. Filing a lawsuit is not fun. And being fired and having to do all of those things is not fun. So just avoid it.
+- 'Single' is usually applied to women as though they are a problem to be fixed.
+- Reporters do decide what is news, but they don't invent it, even if they sometimes become part of the story by risking their lives in a danger zone, as in the case of ABC's Bob Woodruff and Doug Vogt.
+- In university, in a vain attempt to stave off the frosh fifteen, I used to melt fat-free cheese over broccoli, onions and cauliflower in the cafeteria microwave. That earned me few friends.
+- What bothered me most about chick lit, frankly, was how the term was used to dismiss a huge chunk of the bookstore as silly, girlish prattle.
+- I read 'The Shining' before I ever saw the movie, when I was maybe 12.
+- There's a tendency, when the offspring of a famous person does something notable, to define them by their more-famous parent.
+- I took a job at a white-shoe NYC law firm, with an office, business cards, and a fat starter paycheck.
+- Here's the thing: 'The Hurt Locker' was an amazing, important film. But did I enjoy it? Of course not. It was very tough to watch and, while gripping, not exactly what you'd call a happy place.
+- I suspect I am like most people on the Internet in that I sign up for all sorts of sites and frequently use the same passwords.
+- I don't feel like I have to apologize for being a technophile, ever. Technology is awesome and lets me do so much. Nor do I feel like I have to apologize for loving my work.
+- I am pro-choice, but I don't consider that inconsistent at all with pro-life - there's no way that having an abortion, ever, is an easy decision, and it more often errs on the side of absolutely wrenching, not to mention physically debilitating.
+- I started as kind of an outsider - freelancer working from home, building contacts from the ground up etc. - so I didn't have too many relationships holding me back.
+- New York apartments are notoriously small, and my cute little studio is no exception - space is at a premium, which is one of the reasons that I only have a mini-fridge. Great for leftovers, cheese, and chilling Diet Coke.
+- The best jokes resonate because they uncover ridiculousness in our daily lives, reveal the silliness - and sometimes sadness - of things we see every day.
+- Flying over New Orleans on our approach, I got it. There was no view of land without water - water in the great looming form of Lake Pontchartrain, water cutting through in tributaries, water flowing beside a long stretch of highway, water just - everywhere.
+- I not only work online through my various projects, but I am an avid user of online technologies to connect and engage with friends as well.
+- I'm constantly maxing out my Gmail account, and that is hard to do.
+- If anyone was going to write the definitive account of what the 2008 election meant for women, it would be Rebecca Traister.
+- I am attached to my Blackberry. Sometimes, when I'm holding it, my other hand goes to my pocket automatically in search of it.
+- Jessica Jackley has a gift for making people want to fork over their cash. To total strangers. Far, far away.
+- Good Lord - if I couldn't multitask, I don't know what I'd do.
+- I love technology, and man, is it helpful. But it also means you're always on. Always findable. Always available to 'just take five minutes' to answer an email, tweet a link for someone, check in quickly on FourSquare.
+- I find the term 'workaholic' to be distasteful because it reminds me of the harried-looking lawyers I recall chained to their desks through nights and weekends during my lawyer days years ago.
+- Groupon is a great concept packaged in a superb name, but the concept of group discounts is not new.
+- I don't mind other guys seeing movies I want to see and then writing about them. That's fine, especially when it's the New Yorker's Anthony Lane, because he knows this stuff pretty well.

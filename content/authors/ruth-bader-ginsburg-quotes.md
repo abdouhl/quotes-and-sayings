@@ -1,0 +1,135 @@
++++
+author = "Ruth Bader Ginsburg"
+title = "Ruth Bader Ginsburg Quotes"
+quotes_len = "129"
+description = "the best 129 Ruth Bader Ginsburg Quotes"
++++
+- An operatic voice is like no other.
+- Not a law firm in the entire city of New York bid for my employment as a lawyer when I earned my degree.
+- I was a super once - an extra - in 'Die Fledermaus,' and was seated within three feet of Placido Domingo. I had never heard a voice of that beauty so close up. It felt as if an electric shock were running through me.
+- It's a facet of the gay rights movement that people don't think about enough. Why suddenly marriage equality? Because it wasn't until 1981 that the court struck down Louisiana's 'head and master rule,' that the husband was head and master of the house.
+- My mother was a powerful influence. She made me toe the line. If I didn't have a perfect report card, she showed her disappointment.
+- After the pancreatic cancer, at first I went to N.I.H. every three months, then every four months, then every six months.
+- You would have a huge statelessness problem if you don't consider a child born abroad a U.S. citizen.
+- I'm a very strong believer in listening and learning from others.
+- I certainly respect the belief of the Hobby Lobby owners. On the other hand, they have no constitutional right to foist that belief on the hundreds and hundreds of women who work for them who don't share that belief.
+- Arizona presents no specific reason for excepting capital defendants from the constitutional protections extended to defendants generally, and none is readily apparent.
+- I do a variety of weight-lifting, elliptical glider, stretching exercises, push-ups.
+- Anybody who has been discriminated against, who comes from a group that's been discriminated against, knows what it's like.
+- Frankly, I had thought that at the time Roe was decided, there was concern about population growth and particularly growth in populations that we don't want to have too many of.
+- You can't have it all, all at once. Who - man or woman - has it all, all at once? Over my lifespan, I think I have had it all. But in different periods of time, things were rough. And if you have a caring life partner, you help the other person when that person needs it.
+- America is known as a country that welcomes people to its shores. All kinds of people. The image of the Statue of Liberty with Emma Lazarus' famous poem. She lifts her lamp and welcomes people to the golden shore, where they will not experience prejudice because of the color of their skin, the religious faith that they follow.
+- She never envisioned a legal career for me, but she did think it was very important that I be able to support myself, and I think she would be pleased to see what has become of me.
+- You can disagree without being disagreeable.
+- Whatever final judgment awaits 'Bush v. Gore' in the annals of history, I am certain that the good work and good faith of the U.S. federal judiciary as a whole will continue to sustain public confidence at a level never beyond repair.
+- I think unconscious bias is one of the hardest things to get at.
+- Remember that before 'Roe v. Wade' was decided, there were four states that allowed abortion in the first trimester if that's what the woman sought: New York, Hawaii, California, Alaska. Other states were shifting. And people were fighting over this issue in state legislatures.
+- I'm sure I've changed my mind about something. Inevitably, when we grow up - as we get more experience and wiser. Well, I've changed my mind about some food that I didn't like when I was young.
+- I don't see that my majority opinions are going to be undone.
+- The label 'liberal' or 'conservative,' any - every time I hear that, I think of the great Gilbert and Sullivan song from 'Iolanthe.' It goes, 'Every gal and every boy that's born alive is either a little liberal or else a little conservative.' What do those labels mean? It depends on whose ox is being gored.
+- Dissents speak to a future age.
+- There are some women I definitely would not want to succeed me... but a man like David Souter, that would be great.
+- My mother told me to be a lady. And for her, that meant be your own person, be independent.
+- I can't imagine what this place would be - I can't imagine what the country would be - with Donald Trump as our president.
+- On the whole, we think of our consumers - other judges, lawyers, the public. The law that the Supreme Court establishes is the law that they must live by, so all things considered, it's better to have it clearer than confusing.
+- One aspect of appellate judging is we have to give reasons for all of our decisions. And when you sit down and try to write it out, sometimes you find that your first judgment wasn't the right one.
+- I don't think that a Justice should have uppermost in her mind, 'A Democratic president appointed me, so I must leave to be sure that another Democratic president can appoint my successor.'
+- I do hope that some of my dissents will one day be the law.
+- The notion that it is improper to look beyond the borders of the United States in grappling with hard questions has a certain kinship to the view that the U.S. Constitution is a document essentially frozen in time as of the date of its ratification.
+- So that's the dissenter's hope: that they are writing not for today but for tomorrow.
+- My mother graduated from high school at 15 and went to work to support the family because the eldest son went to college.
+- When I graduated from law school in 1959, there wasn't a single woman on any federal bench. It wouldn't be a realistic ambition for a woman to want to become a federal judge. It wasn't realistic until Jimmy Carter became our president.
+- My biographers... would like to have my time at the court almost complete before they finish the book. We decided... to flip the order.
+- Who will take responsibility for raising the next generation?
+- People who have been hardworking, tax paying, those people ought to be given an opportunity to be on a track that leads towards citizenship, and if that happened, then they wouldn't be prey to the employers who say, 'We want you because we know that you work for a salary we could not lawfully pay anyone else.'
+- We've come a long way from the days where there was state-enforced segregation. But we still have a way to go.
+- When police or prosecutors conceal significant exculpatory or impeaching material, we hold, it is ordinarily incumbent on the state to set the record straight.
+- In 2015, an opera opened about me and Justice Antonin Scalia. It's called 'Scalia/Ginsburg.' The composer, Derrick Wang, has degrees in music from Harvard and Yale. Enrolled in law school, he was reading dueling opinions by me and Justice Scalia and decided he could compose an appealing comic opera from them.
+- I was a proponent of the ERA.
+- I would not like to be the only woman on the court.
+- I've had two cancer bouts in my years on the Court, and the first one, Justice O'Connor told me, 'Now, you do the chemotherapy on Friday because you'll get over it during the weekend and you can be back in court on Monday.'
+- In the course of a marriage, one accommodates the other.
+- My mother told me two things constantly. One was to be a lady and the other was to be independent, and the law was something most unusual for those times because for most girls growing up in the '40s, the most important degree was not your B.A. but your M.R.S.
+- If I had any talent that God could give me, I would be a great diva.
+- I think the notion that we have all the democracy that money can buy strays so far from what our democracy is supposed to be.
+- I think Mozart's operas 'The Marriage of Figaro' and 'Don Giovanni' are the two most perfect ever written. The music is magical.
+- Eight, as you know, is not a good number for a multi-member court.
+- At Columbia Law School, my professor of constitutional law and federal courts, Gerald Gunther, was determined to place me in a federal court clerkship, despite what was then viewed as a grave impediment: On graduation, I was the mother of a 4-year-old child.
+- It's hard not to have a big year at the Supreme Court.
+- I do a variety of weight-lifting, elliptical glider, stretching exercises, push-ups. And I do the Canadian Air Force exercises almost every day.
+- In truth, I did enjoy the benefits of a Harvard connection.
+- The court generally moves in small steps rather than in one giant step.
+- Reproductive choice has to be straightened out. There will never be a woman of means without choice anymore. That just seems to me so obvious. The states that changed their abortion laws before Roe are not going to change back. So we have a policy that only affects poor women, and it can never be otherwise.
+- I try to teach through my opinions, through my speeches, how wrong it is to judge people on the basis of what they look like, color of their skin, whether they're men or women.
+- I will do this job as long as I feel that I can do it full steam.
+- Our goal in the '70s was to end the closed door era. There were so many things that were off limits to women: policing, firefighting, mining, piloting planes.
+- The worst times were the years I was alone. The image to the public entering the courtroom was eight men, of a certain size, and then this little woman sitting to the side. That was not a good image for the public to see.
+- I get very little sleep when the court is sitting.
+- If you just needed the skills to pass the bar, two years would be enough. But if you think of law as a learned profession, then a third year is an opportunity for, on the one hand, public service and practice experience, but on the other, also to take courses that round out the law that you didn't have time to do.
+- The women of my generation and my daughter's generation, they were very active in moving along the social change that would result in equal citizenship stature for men and women.
+- I was a proponent of the ERA. The women of my generation and my daughter's generation, they were very active in moving along the social change that would result in equal citizenship stature for men and women.
+- I think a law clerk told me about this tumblr and also explained to me what Notorious RBG was a parody on. And now my grandchildren love it, and I try to keep abreast of the latest that's on the tumblr.
+- I think members of the legislature, people who have to run for office, know the connection between money and influence on what laws get passed.
+- Justice Scalia and I served together on the D.C. Circuit. So his votes are not surprising to me. What I like about him is that he's very funny and very smart.
+- I always thought that there was nothing an antifeminist would want more than to have women only in women's organizations, in their own little corner empathizing with each other and not touching a man's world.
+- Undocumented aliens unfortunately are not protected by the law, and they are tremendously subjected to exploitation. The result is that they would be willing to work for a wage that no person who is welcome in our shores would take.
+- My law school class in the late 1950s numbered over 500. That class included less than 10 women.
+- All respect for the office of the presidency aside, I assumed that the obvious and unadulterated decline of freedom and constitutional sovereignty, not to mention the efforts to curb the power of judicial review, spoke for itself.
+- All I can say is I am sensitive to discrimination on any basis because I have experienced that upset.
+- The emphasis must be not on the right to abortion but on the right to privacy and reproductive control.
+- The state controlling a woman would mean denying her full autonomy and full equality.
+- It is not like I have gone crazy, I just don't want to take any chances. You never know what could happen.
+- Judges should avoid commenting on a candidate for public office.
+- Fight for the things that you care about, but do it in a way that will lead others to join you.
+- I really concentrate on what's on my plate at the moment and do the very best I can.
+- I was part of Jazzercise class. It was an aerobics routine accompanied by loud music, sounding quite awful to me. Jazzercise was popular in the '80s and '90s.
+- My resume showed membership on both the Harvard and Columbia Law Reviews, a credit impressive abroad where it was not generally known that Law Reviews were student-operated publications.
+- Ever since my colorectal cancer in 1999, I have been followed by the N.I.H. That was very lucky for me because they detected my pancreatic cancer at a very early stage.
+- When a thoughtless or unkind word is spoken, best tune out.
+- The entering class I joined in 1956 included just nine women, up from five in the then second-year class, and only one African American. All professors, in those now-ancient days, were of the same race and sex.
+- Women will only have true equality when men share with them the responsibility of bringing up the next generation.
+- Collegiality is crucial to the success of our mission. We could not do the job the Constitution assigns to us if we didn't - to use one of Justice Antonin Scalia's favorite expressions - 'Get over it!'
+- 'Whole Women's Health' made it very clear that poor women were no longer going to be left out.
+- How fortunate I was to be alive and a lawyer when, for the first time in United States history, it became possible to urge, successfully, before legislatures and courts, the equal-citizenship stature of women and men as a fundamental constitutional principle.
+- A gender line... helps to keep women not on a pedestal, but in a cage.
+- The Democrats do fine in presidential elections; their problem is they can't get out the vote in the midterm elections.
+- Reacting in anger or annoyance will not advance one's ability to persuade.
+- There are some singers that know exactly when to go, and others hang on much too long and that is the same, that is the same with judges.
+- I think some of my colleagues' spicier lines are distracting. They draw attention away from what the justice is trying to say.
+- People who think you could wave a magic wand and the legacy of the past will be over are blind.
+- If there was one decision I would overrule, it would be 'Citizens United.' I think the notion that we have all the democracy that money can buy strays so far from what our democracy is supposed to be.
+- The experience I don't want to see repeated occurred in 'Bush v. Gore.' The Court divided five to four. There were four separate dissents, and that confused the press. In fact, some of the reporters announced that the decision was seven-two. There was no time to get together.
+- Throwing out preclearance when it has worked and is continuing to work to stop discriminatory changes is like throwing away your umbrella in a rainstorm because you are not getting wet.
+- We had to go on and do the work of the court and we did.
+- I said on the equality side of it, that it is essential to a woman's equality with man that she be the decision-maker, that her choice be controlling.
+- The Sixth Amendment secures to persons charged with crime the right to be tried by an impartial jury reflecting a fair cross-section of the community.
+- When I was growing up, there were no women in orchestras. Auditioners thought they could tell the difference between a woman playing and a man. Some intelligent person devised a simple solution: Drop a curtain between the auditioners and the people trying out. And, lo and behold, women began to get jobs in symphony orchestras.
+- The concern was that if a woman was doing gender equality, her chances of making it to tenure in the law school were diminished. It was considered frivolous.
+- I always ask my law clerks, in addition to reading all the briefs, including all the amici briefs, that if there's a good law review article, they should bring it to me.
+- I am fearful, or suspicious, of generalizations... They cannot guide me reliably in making decisions about particular individuals.
+- We still have many neighborhoods that are racially identified. We still have many schools that even though the days of state-enforced segregation are gone, segregation because of geographical boundaries remains.
+- It is not women's liberation, it is women's and men's liberation.
+- We have the oldest written constitution still in force in the world, and it starts out with three words, 'We, the people.'
+- At my advanced age - I'm now an octogenarian - I'm constantly amazed by the number of people who want to take my picture.
+- A judge sworn to decide impartially can offer no forecasts, no hints, for that would show not only disregard for the specifics of the particular case, it would display disdain for the entire judicial process.
+- In the '50s, too many women, even though they were very smart, they tried to make the man feel that he was brainier. It was a sad thing.
+- If you want to influence people, you want them to accept your suggestions, you don't say, 'You don't know how to use the English language,' or 'How could you make that argument?' It will be welcomed much more if you have a gentle touch than if you are aggressive.
+- It won't happen. It would be an impossible dream. But I'd love to see 'Citizens United' overruled.
+- I was the first tenured woman at Columbia. That was 1972; every law school was looking for its woman. Why? Because Stan Pottinger, who was then head of the office for civil rights of the Department of Health, Education and Welfare, was enforcing the Nixon government contract program.
+- You can't have it all all at once. Over my lifespan, I think I have had it all, but in given periods in time, things were rough. And if you have a caring life partner, you help the other person when that person needs it.
+- I was tremendously fortunate to be alive and a lawyer, working at a university so I had more flexible hours, when the women's movement was coming alive and when it became possible to argue successfully for a view of the equal protection clause that included women.
+- We will never see a day when women of means are not able to get a safe abortion in this country.
+- Contraceptive protection is something every woman must have access to, to control her own destiny.
+- There's nothing in the Constitution that says the President stops being President in his last year.
+- I think daughters can change the perception of their fathers.
+- I think we understand that for the Court to work well, we have to not only respect but genuinely like each other.
+- Most states in the union where the death penalty is theoretically on the books don't have executions.
+- I thought 'Heller' was a very bad decision.
+- Feminism... I think the simplest explanation, and one that captures the idea, is a song that Marlo Thomas sang, 'Free to be You and Me.'
+- Each part of my life provided respite from the other and gave me a sense of proportion that classmates trained only on law studies lacked.
+- At Cornell University, my professor of European literature, Vladimir Nabokov, changed the way I read and the way I write. Words could paint pictures, I learned from him. Choosing the right word, and the right word order, he illustrated, could make an enormous difference in conveying an image or an idea.
+- If you're going to change things, you have to be with the people who hold the levers.
+- It's not simply to say, 'My colleagues are wrong, and I would do it this way,' but the greatest dissents do become court opinions.
+- I would not look to the U.S. Constitution if I were drafting a constitution in 2012.
+- Religious organizations exist to foster the interests of persons subscribing to the same religious faith. Not so of for-profit corporations. Workers who sustain the operations of those corporations commonly are not drawn from one religious community.
+- Marty was an extraordinary person. Of all the boys I had dated, he was the only one who really cared that I had a brain. And he was always - well, making me feel that I was better than I thought I was.

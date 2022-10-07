@@ -1,0 +1,80 @@
++++
+author = "Luis Suarez"
+title = "Luis Suarez Quotes"
+quotes_len = "74"
+description = "the best 74 Luis Suarez Quotes"
++++
+- I have always preferred to keep things to myself rather than sharing them with anyone, but I am learning that if you let it go, you feel better for it. Don't keep it all bottled up inside; don't take it all on alone.
+- I'm not going to another club to hurt Liverpool.
+- It disturbs me that Liverpool are not in the Champions League and fighting for the Premier League.
+- Sometimes English football takes pride in having the lowest yellow-card count in Europe, but of course it will have if you can take someone's leg off and still not be booked.
+- When I was a kid, there were some people around me who were a bad influence. When I met my girlfriend Sofia, who is now my wife, I think it all changed. She was very important for me, because she steered me back on to the path I wanted to be on.
+- After my 10-match ban in 2013 for biting Branislav Ivanovic, I had questioned the double standards and how the fact that no one actually gets hurt is never taken into consideration.
+- Obviously, being a forward, I would like to score more goals. But while the team does well, there is no problem.
+- I understand why biting is seen so badly.
+- At clubs like Liverpool, great players come and go.
+- Of course I would like to play with Cristiano Ronaldo - he is a great player.
+- I think all the bad things I have been through are in the past. I believe I am on the right path now, dealing with the people who can help me, the right kind of people.
+- Of course I don't like the fact that my wife goes to the supermarket and there are photographers. But I realise that the press attention is the same wherever you go.
+- Coaches have told me I can help the team much more if I don't talk, if I don't moan.
+- I'm used to being the main goal scorer, but I also always like to help.
+- On the pitch, I argue, I shout, I talk rubbish and generally do anything I can to get ahead.
+- When I was playing for Nacional in Montevideo, the players who lived outside the city would be given money by the club to get there and back on the bus.
+- 'Negro' can refer to anyone with dark hair as well as dark skin, and I've been used to the word being used in Spanish in this way all my life.
+- I am obviously a striker who likes to score a lot of goals and have done that in every team I have been with.
+- Everyone has different ways of defending themselves.
+- Nobody in England knows the real Luis Suarez.
+- On the field, sometimes passion overwhelms you, and you do things you regret afterward.
+- I never imagined playing in El Clasico. I used to watch the games and look at photos, and I used to say how incredible to play in it was.
+- When I say, 'I'm sorry,' it's because I regret something.
+- I don't read the papers or watch TV.
+- I wanted my children to be able to see me play at the World Cup.
+- When I was a kid, I got sent off for head-butting a referee: I ran 50m to argue a decision, I was shown a red card, and I head-butted him. I'm really not proud of that.
+- There are only three million people in Uruguay, but there is such hunger for glory: you'll do anything to make it; you have that extra desire to run, to suffer. I can't explain our success, but I think that's a reason.
+- I much prefer being told off by Brendan Rodgers than by my wife. Brendan is more careful than my wife with what he says.
+- All I can say is that I have arrived with the desire to be a success at Barca, that I am hungry to win titles.
+- I normally try to be tranquil on the pitch.
+- When you feel you've done something wrong, you should apologise for it.
+- My first season at Liverpool had good moments but also bad ones. We played three tournaments and we played two finals, and that was good.
+- There are people who criticise me, and that's normal because of the way I am on the pitch. I get angry, I get tense.
+- I will give my soul every game.
+- My wife says that if people reach conclusions as to what I am like based on what they see from me on the pitch they would say I am a guy who is always annoyed, always in a bad mood, they'd say what must it be like to live with me. There are two of me, two different people.
+- Every player would love to get to the absolute top, and Real Madrid is it.
+- I need to be playing in the Champions League.
+- My record shows that I'm not the kind of player who wants to change clubs every season, and I would have no problem playing in England for many more years.
+- Put 'Luis Suarez' into an Internet search engine, and up comes the word 'racist.' It's a stain that is there for ever. And it is one that I feel I do not deserve.
+- I have been hit from all sides, and I'm only human. They have ended up talking about the way I look, and it hurts. I have a family, and they suffer, too. It has gone over the limit, and I am tired of it. I have a wife and child, too, and I am not prepared to go on putting up with it English journalists.
+- Injuries are not only a physical question, which is the most important thing, of course, but also a question of your mind. If you're thinking: 'I'm not going to make it', 'I can't cope', 'it hurts', 'it's never going to get better', then it won't.
+- It's especially important for my little girl to see her papa at work.
+- I had a really hard time growing up; we were a large family, and we didn't have much money at home.
+- I've been booed in Holland and in Uruguay - as a professional footballer, you need to have thick skin and just get used to it.
+- I've been obsessed by football since I was young.
+- I've scored many goals that I've liked, but I think the best memory I have is the one against Korea in the 2010 World Cup.
+- Liverpool will always be special for me: my daughter was born here.
+- Every soccer player can be on the edge, at the limit, be the bad guy. We have to get used to it. Sometimes I am one of those.
+- If you score 20 goals one season, then you have to promise yourself that in the following season you will get 25.
+- I still sleep soundly every night. I'm not worried about everything people say.
+- If you don't speak Spanish, then don't accuse me of insulting you in that language, let alone insulting you ten times.
+- I think Liverpool have a long history with many great players. I hope one day to be up there with those great players. I'll try my best to write some history here.
+- It's important for the team not to be relying on one player.
+- It is always a bit hypocritical when a defender who spends the whole game kicking you complains of being kicked.
+- I have a very strange way of playing football.
+- A forward always has to help the team, either with assists or goals.
+- I want to do things right. I really, really do.
+- I'm an emotional person, and I externalise my feelings a lot with some things, but I'm strong with others.
+- Every player feels differently about playing football. We are all different people. I am the type who wants to win all the time. I hate to lose.
+- Away from the pitch, I'm a very calm person. I maybe have the odd cross word with my wife, like any relationship, but that's it.
+- I was asked a question: 'Would I want to play for Madrid?' It's like anyone asked if they want to change jobs and move to a bigger company.
+- Barcelona are always a candidate to win the Champions League.
+- I'm my own severest critic, and I realize when I make mistakes.
+- The only thing I want is the respect of the fans of Liverpool and the fans of the national team of Uruguay.
+- I always want more. I always want my team to perform to their best.
+- I want to change the bad boy image that has stuck for a bit because I don't think I am at all how I have been portrayed. I would like that to change because it's awful to hear and read what is said of you.
+- Every forward is selfish, and any forward who tells you he is not selfish is a liar.
+- It was very hard for me as a kid to get through as a footballer in Uruguay.
+- I think the people who really know who Luis is are the people who are by my side, who have always been by my side.
+- People ask, 'How can you let a defeat hurt you so much?' But it comes back to the effort you have put into your career as a youngster.
+- My parents separated when I was nine, but my father was always around, and he still follows me now. He is always sending me messages.
+- If you win while scoring goals, then you leave happy, but the most important thing is always the team. I do not think just of me.
+- When I was a kid, I had to fight for everything.
+- I have to put my career first.

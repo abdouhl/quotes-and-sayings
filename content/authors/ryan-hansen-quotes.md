@@ -1,0 +1,16 @@
++++
+author = "Ryan Hansen"
+title = "Ryan Hansen Quotes"
+quotes_len = "10"
+description = "the best 10 Ryan Hansen Quotes"
++++
+- Honestly, it's been amazing to be a part of this journey on 'Veronica Mars.'
+- Run for the door if a guy has too much gel in his hair and is too tan and it's not even summer.
+- In L.A., I worked as a bagger at a Ralphs for about two weeks. And I said, 'I just can't do that.' Not that it's a bad job. I would put the bread down and then the cans down on the bread, so I got fired. Or I just left. I'm not really sure which one happened.
+- Um, I'm just naturally super-funny. No, not really. I've never been in The Groundlings or anything.
+- I'm so... Honestly, it's been amazing to be a part of this journey on 'Veronica Mars.' Because I started out, really, with a word on the show. So it's kind of fun to look back and be like, 'Wow, I was basically an extra,' but not really - I had a little part.
+- Girls don't poop, so don't claim you do. You can fart - because farting is funny - but we don't want to know that you poop.
+- I can play 'Guitar Hero,' most of the songs on Medium and some of the songs on Hard. No Expert.
+- Any time I get to play Dick Casablancas is always a pleasure.
+- Concerning PDA: Anything that can be described as 'cute' is okay. Anything that can be described as 'mating' is not okay.
+- Being spontaneous at times is a must. Being spontaneous all the time is a crazy person.

@@ -1,0 +1,68 @@
++++
+author = "Reiss Nelson"
+title = "Reiss Nelson Quotes"
+quotes_len = "62"
+description = "the best 62 Reiss Nelson Quotes"
++++
+- If I wasn't aiming to break into the Arsenal first team, that wouldn't be the correct mindset.
+- I'm liking the Bundesliga. There's a lot of top, top defenders that you come across.
+- Street football is very important.
+- I've got a group chat with my friends, and they were telling me I was blowing up on Twitter. I don't really look into those things, though.
+- For me, I just want to take things as they come.
+- When Thierry Henry was U19 coach at Arsenal he gave me a lot of advice. His main thing was staying grounded.
+- I think that's good for a coach to have two sides: the jokey side and the fiery side.
+- Raheem Sterling is a role model to a lot of young lads coming through.
+- Adam Szalai and Kerem Demirbay always keep an eye on me and make sure I'm doing the right things.
+- You can't beat playing for your country I don't think.
+- When you play with the older people it helps you mentally, because they're bigger and stronger than you. You have to live up to that.
+- We would go to the football pitch near my estate and play until it was dark.
+- For me, it's just about playing - getting the game time you need to prove to everyone you can play at that high level.
+- I just look ahead to the next match. I just want to keep going and not look too far ahead.
+- I went away in Germany and I think I did well. But the main goal for me has always been playing in an Arsenal shirt week in, week out.
+- I was nine years old, I used to play for a team in Catford. I would get up every morning with my brother, get on the train and travel to Catford three times a week.
+- I have an elder brother who adores me and pushed me towards my goal. He just said 'go out and play.'
+- My brother-in-law skipped work to get me to training. Our family get us through. We'd get the train, a bus and sometimes even walk to training.
+- I got scouted for Tottenham and was there for three to four weeks before a phone call from Arsenal came. The first session they wanted to sign me so, happy days, I didn't look back. I'm an Arsenal fan, everyone in my family is Arsenal, so it wasn't a hard decision.
+- In Germany it's more physical. It's a lot of aggressive runs in behind and getting into the box.
+- Being involved with the first team, be it in the Premier League or the Europa League, you just have to take it as it comes. You keep all the nerves inside and just play your normal game.
+- I want to keep doing what I'm doing and, if I do get the opportunity to play for the first team I will give everything.
+- I can speak a bit of German.
+- Thierry is an Arsenal legend and I had an opportunity to spend time with him when he was a coach at the academy.
+- My family made big sacrifices but little gestures mean a lot. My sister took me to training when she was pregnant.
+- I'm a really big UFC fan.
+- Arsenal is my main goal.
+- MMA is something that I may want to get into after football.
+- I've got a lot of time and respect for Arsene, and I think he developed me into a good young man as well, and I'm very thankful for that.
+- I go bowling, but I'm not very good!
+- Alex Iwobi has really helped me.
+- I just go with the flow, you know.
+- I not only developed as a player in Germany but also as a person.
+- Alex Iwobi has told me to stay grounded. I've got a really good family that helps me as well.
+- I want to be an Arsenal legend.
+- I just need to stay loyal to God and anything can happen.
+- I learned so much stuff at Hoffenheim and made a lot of friends. I also made good connections with the managers. They taught me a lot that I can take on in my career.
+- You can have a bad pass or a bad shot, but you need to do this to take the risk.
+- In Heidelberg, in Hoffenheim, there's not much going on. I am so used to being around my London estate, so when I am here I am kind of lost in a different environment, a different area.
+- Mesut's been talking to me and really helping me through the games.
+- A lot of kids, when they get to 18 or 19, they start getting flashy and forgetting about the real basics of being a professional footballer.
+- For me, I always want to be the best player I can be.
+- Whenever I think it's getting a bit much I'll go to my family and they will sit me down and bring me back to earth.
+- On my estate, there are older guys and there are dangerous things happening. But I had my ball with me and that made me feel safe. That's where I developed my strength, mentality and ruthlessness.
+- I need to just keep training hard and getting all the information from the coaches and the players.
+- I always try to be positive but not expect too much of myself, just have a nice balance.
+- You grow up faster in a place where anything goes.
+- Unai's very positive and always telling you to express yourself, but also he's got that thing where he'll tell you if you do something wrong.
+- It was hard to leave my boyhood club Arsenal, it's still my dream to play for Arsenal, but I know I have to put that on hold and go and play abroad to get some experience in Germany.
+- For me, the style of play I play, doing the gym and things like that, it's not really my style.
+- It was different coming from Hale End to London Colney. The coaching is so much different and the environment - you've got loads of first team players and world-class players there.
+- You need to shoot to score the goal. If it goes wide, you just need to keep going and keep your head up.
+- I was 17 when Arsene Wenger gave me my first Premier League start for Arsenal against Southampton and I was very immature when I was playing.
+- The main thing for me is getting in the starting eleven and making an impact whenever I can come on.
+- My brother-in-law was a Tottenham fan. He introduced me to football and brought me to Tottenham. At the time I just wanted to play football so I would go anywhere to play.
+- That's the thing with football: you have some good games, you have some bad games but the main thing is that you go back, you recap and next week you're ready to fight again. That's the main thing.
+- Once you're a young player and you're getting an opportunity to play, I think if you're good enough, it just gives you the confidence to go on.
+- It's a different style the way the German players play. I think the English players like to play a lot of one and two touch and we can find each other in the pockets.
+- Where I come from, the estates are not so nice. It is a bit gritty.
+- It's a great feeling to have a lot of big characters in the team who are willing to help the younger players come through and help them do well.
+- Arsenal are my boyhood club.
+- A loan wasn't always my first option, but when I heard the Bundesliga and Hoffenheim was an option for me and working with the manager there, it was something I wanted to do.

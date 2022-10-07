@@ -1,0 +1,106 @@
++++
+author = "Roisin Murphy"
+title = "Roisin Murphy Quotes"
+quotes_len = "100"
+description = "the best 100 Roisin Murphy Quotes"
++++
+- I don't have any problems on social media. I have the most wonderful fans. I'm the luckiest girl in the world in that way.
+- Music has given me a fantastic lifestyle.
+- On 'Hairless Toys,' I've tried to create an ambiguous character to go with an ambiguous record. She's anything but rock n' roll - she's so not rock n' roll that, in a twisted way, she's kind of radical. She's like someone from my memory, almost like my mother, and she's lost in some space-time between the 1960s and the late '80s.
+- I don't have a personal stylist, because I don't need one. I just really enjoy meeting designers and picking up clothes.
+- I couldn't even sing when I started.
+- I was surrounded by music in my family, surrounded by people who sang songs - every single person I knew as a child growing up had one, two, three songs they knew from start to finish.
+- You can't get a better education in what it is to write songs until you listen to American soul music.
+- The sound of 'Take Her Up to Monto' and 'Hairless Toys' is the sound of me and the producer in the studio doing whatever we like. There is no reference. It's too easy to be referential now; I'm trying to find something else.
+- One night, my father woke me up because he'd come home with a horse. Two days later, I asked my mother where it was, and she said it had run away. She'd sold it.
+- A year before I met Mark Brydon - he was the one I used to make all the music with in Moloko - I was living in Sheffield with a guy who was studying architecture. I used to go to his college and crash the lectures there. I had enrolled to do a fine art course, but then I met Mark, and we signed a record deal instead.
+- I always try to lace my work with just a teensy-weensy bit of humour. It's rather like putting a sprig of feathery stuff in a flower arrangement: I believe humour is a great balancer.
+- Designers become translators for me. That's why I've gone to people like Gareth Pugh and Viktor and Rolf - they are speaking a nuanced language. Fashion says a lot for me.
+- One of my favourite books of all time is 'The Borstal Boy.'
+- The most healthy way to be creative is to work with what you have and not sit around wishing you had something different.
+- Someone said to me a long time ago, 'You're a drag queen,' and at the time I was a little like... hello? But then I realized over the years that I actually am.
+- I'm quite drawn to women artists who use themselves in their work. There is a very feminine point of view, the use of female archetypes. I love artists who play with those kind of things genuinely.
+- I do come alive in front of a camera. The first video I ever made was a formative moment for me.
+- On 'Overpowered,' there was a nostalgia for disco and early house music. But I'm a modernist and futurist as well. I do believe - and this is going to sound really pretentious, I know - that humanity will figure it out, so I'm optimistic about the future.
+- I love performance, but I'm quite happy making videos as well, and I'm inordinately happy writing songs.
+- That's the good thing about pop. You can do whatever you like... it's a bendable medium.
+- I use maps in my phone a great deal because I can't tell left from right. Having easy access to maps has given me a completely different life. When I first moved to London, I couldn't get anywhere and spent so much money on cabs because I couldn't figure it out.
+- The Church controlled so much in Ireland for so long. I'm not going to get into whether or not religion per se is a bad thing, but my point is the political aspect in Ireland was way out of kilter, and it wasn't right.
+- It's not nice to be called a nutter, because it dismisses the input I've had into my own destiny over the years.
+- When I go home, I go to my house in the countryside. I don't hang out in Dublin. I go home to be with my family and have a rest and so on. I don't know anything about the Irish music scene, and I've never felt part of it.
+- When I had my first child, I went back to Ireland to live with my mother. So, a typical day there was me being a mother, with my mum showing me how to do things.
+- I found my style in my aunt's attic. She hoarded all her '60s clothes there, along with the tiaras she'd won as a beauty queen, and I'd steal her wedding dress to wear around town.
+- There's a great deal of tension between so many kind of distinctive and restrictive female archetypes and images in the world. When you play with the archetypes, you get free.
+- When I started out, the idea of wearing interesting clothes seemed to contradict the idea of being a serious artist. The first Moloko record, 'Do You Like My Tight Sweater?' was kind of a reaction to all that.
+- I've seen massive changes in Ireland in my lifetime.
+- My music's like waiting for a bus. You wait a long time for one, then a whole heap of them come along.
+- My father ruined me for men. Not many can live up to him.
+- Fashion in the mid-'90s was too easy. Artistic culture was very earnest, so I was flamboyant and dangerous. I wanted to be seen as more than an outline, so I used fashion to say that for me.
+- We were brought up to think we were amazing. Maybe I was too confident, too full of myself. I found school difficult. I'd get followed home by 20 kids throwing stuff at me. The teachers didn't like me, either. We left Ireland for Manchester when I was 12, and I was happy to go.
+- My fashion icons change regularly.
+- I just wouldn't enjoy standing there like a paper doll, having someone else stick paper dresses on me. That would be no fun.
+- I think my whole career has been marked - or marred - by what people presume about me. But even that's fed back into the creativity. I'm saying that I'm about contradiction, that you can't put me into a box.
+- The day I turned 16, I moved into my own flat. My parents had just broken up, and I didn't want to go back to Ireland with my mother. I was doing my A-levels, and my friends would come over and watch 'Twin Peaks.'
+- I was given this beautiful coffee table book of Soviet architecture for my birthday. It has a lot of holiday camps, swimming pools, theatres, and buildings that were built for leisure activities. Incredible architecture in the most obscure places. It's a little bit sad, because a lot of it has been left to fall apart.
+- I feel more like an artist than a pop star, and I accidentally fell into what I do. Everything was just an experiment.
+- Once I was embraced by gay culture, I finally started to feel I was fitting in. I was understood by those people in a way I had never predicted or courted.
+- At 16, I got housing benefit, and I had my own flat in an old woman's house. I was the only 16-year-old I knew living alone.
+- I'm proud that I've even had a career, but 'proud' isn't the first word I'd use. I feel lucky that I moved to Manchester when I was 12 because I don't think I could have done this in Ireland. And I feel lucky that the government took care of me from the age of 16 to when I signed my first record deal at 19.
+- It's a natural disposition for me to become muse-like in a relationship.
+- I don't like permanency. I just like to slip and slide, and in identity, I think that's a very feminine artist's point of view.
+- My uncle was a photographer for 'The Irish Times.'
+- That idea of not always being in control of the primitive parts of yourself - the bits that fall in love or the bits that dance or lose the plot or drink too much - and putting that across... that's pop for me. It's playing with all the different colours of the rainbow of life.
+- The reason why I'm not a pop star is I would have hated it. I'll stick to being an artist. I'm not trying not to be commercial; I am just doing what I do. I have finely tuned tastes, and that gets prioritized above everything else. That's just how it is.
+- I'm brave and fearless when I'm performing, but in real life, I'm actually quite prudish.
+- I never said, 'Lady Gaga is a poor imitation of me.' That was a completely made-up quote.
+- I've always been attracted to weirdos.
+- My family were wheeler-dealer class. They were their own bosses and very glamorous. We lived in a beautiful, big townhouse in Arklow, in Ireland, that we couldn't afford to heat. My father had a business fitting bar furniture, and my mother is an antiques dealer.
+- Performance was a shock to me. The first time I remember feeling I could do it was during the making of my first video, 'Fun for Me.' I couldn't sleep the night before the shoot, I was so frightened. I had to play a ghost and a piece of merchandise in a shop window, and I had no idea whether I was going to be able to pull it off.
+- I'm not someone to sit on her laurels.
+- If they were siblings, 'Hairless Toys' would be the nice child, and 'Take Her Up to Monto' is more of a problem child.
+- I've only ever had surprises. My whole career's a surprise!
+- I never thought that was even possible, to have your friends working with you. In the music, yes, in the creative side, yes, but in the business side, I need people who take me fully seriously.
+- Humour is ahead of everything creatively. I think if things aren't humorous, they are just crap.
+- I respect Lady Gaga's work as an artist and as a fellow fashion icon. She is a very talented performer, playing the piano, singing live, and dancing, too.
+- I won't let anything destroy me.
+- I work with men a lot, and there's a yin and a yang that goes on when you work one guy and one girl. And there's things that I bring that they don't bring and things they bring and I don't bring.
+- Originally, I thought of being a photographer and nearly went to art school, but I got a record deal instead.
+- I don't really know if I am thought of as a style icon. I don't feel like that at all. Music comes first, but I also just enjoy being creative in whatever I'm doing, be it wearing clothes, making images, or performing.
+- I've got crap teeth, crap hair. I never have facials. I still have hairs in the middle of my eyebrows.
+- Timeless and unclassifiable - that's the goal. My oddness is the pursuit of this above all else.
+- If I had gone to art college and everybody was being a conceptual artist, I probably would have wanted to be a portrait or landscape painter.
+- I'm a situationist when it comes to anything creative, and that stands with the visual part of anything I do as well. I deal with the concrete things I have in front of me, and I think that's a wise way to be.
+- There'll always be a part of me that wants to remain mysterious.
+- I became a singer and a songwriter by learning on the spot, so think I always need to be slightly out of my comfort zone when I do something. I've never stopped being experimental because that's how I started.
+- I collect words and phrases and cut things out of newspapers and keep scrapbooks and write down ideas in my phone or 10,000 notebooks all around my house. It's not very organised, but I keep collecting, so I did have a lot of material to help me to write songs.
+- I thought I would be a visual artist when I was growing up, so I'm always up for a bit of experimentation.
+- I was about 10 when I first began to sing. My mother had been away for three weeks, and I learned 'Don't Cry for Me Argentina.' When she came back, I sang it in front of her, my auntie Linda, my father, my uncle Jim, and my grandmother.
+- I went to bed on the night of Brexit, of that vote for leaving the E.U., and I said to everyone it will be a 70/30: nobody wants to leave the E.U. I woke up on the bus in Glastonbury, and everybody had their heads in their hands. They could not believe it. I could not believe it.
+- I like taking different elements - clothes, shoes, lighting - and creating a total transformation. But it's never about hiding: it's about drawing something out from deep inside of me that's really true. I'm always trying really hard to tell you the truth. That's what this is all about for me.
+- My family are all mad. But I got a lot of strength from them.
+- I have a little antennae, and even when I'm trying not to be, I'm connected with the bloody zeitgeist.
+- I'm really into architecture, I'm a member of the Brutalist Appreciation Society; I'm a member of the Postmodern Society. I write letters to save buildings.
+- Ireland is a great place to be odd.
+- Ambition can get you freedom.
+- Peggy Guggenheim is a real hero to have done what she did in a man's world, as the art world still is.
+- 'Take Her Up to Monto' is a very satirical song. I don't really like people calling it a folk song because it kind of isn't. It's a bit cheeky calling it 'Take Her Up to Monto,' but the whole idea was to be very irreverent.
+- It all started with music for me. Everything still does.
+- I think I have an instinct of, like, the right record comes knocking at my door and says, 'Want to come out to play?' and I go.
+- I don't like to work with stylists - I find the relationship too intimidating - but I love fashion.
+- I don't think Ireland has really embraced me, but it is not really for me to say. Obviously, people shouldn't embrace me just because I'm Irish, but it is where I'm from. I'm extremely proud to be Irish.
+- You've got to deal with the tools you have in hand. I'm a firm believer in that.
+- I've not got any terrible stories of what I had to do to scrabble my way to the top, obviously, because I didn't scrabble my way to the top. I just scrabbled my way to the middle!
+- When I was 16 and on a tour of Europe, I fell in love with Le Corbusier's Notre Dame du Haut chapel in Ronchamp, France. I'd quite like to live in it.
+- My da used to sing 'Take Her Up to Monto' to me when we were walking down the street - he still does, actually - because it's got a walking tempo, and I still sing it to myself when I'm walking along.
+- I am very attracted to funny people - I'd go so far as to say I find it hard to trust unfunny people.
+- I love Andrew Weatherall; he's so real and uncompromising and a sweetheart.
+- I really do prioritise humour in people. It's a sign of intelligence. One of the most important things I heard that moulded me was Derek and Clive. That sense of release when I heard them for the first time, crying and laughing, was akin to seeing Sonic Youth for the first time.
+- When you're a kid, right, and you're surrounded by all these other kids, and let's say they don't have the same interests or the same goals or the same world view as you... It's difficult because a child doesn't know that there's another way. A child doesn't know that there's another place outside of the systems and hierarchies in school.
+- I work extremely hard, but I love every minute of it. Although I couldn't work as hard if I felt there was a ceiling on anything. I spent £125,000 on four pictures for the sleeves for 'Overpowered,' and I loved spending it! It was like making a little movie.
+- With Moloko, we tried to be the opposite of what was out there at the time. I like to be different. In the mid-Nineties, music was quite dour and serious, and everything was dressed down. So we went the other way. Our first record was about not wanting to do four-to-the-floor dance music.
+- Being able to express yourself is one of the hardest things in the world.
+- Lyricism was placed into my head in Ireland.
+- Me making music happened not even from a desire to make records.
+- I wasn't embraced as an Irish artist back in the Moloko days. Modern electronica isn't what you think of when you think of Irish music.
+- I've worked all my life not to be a simpleton.
+- I didn't spend my childhood trying to be a performer; it was a big surprise to me that this was what I was doing. But it has always felt quite natural to me. I wasn't taught to do what I do; I found out bit by bit.

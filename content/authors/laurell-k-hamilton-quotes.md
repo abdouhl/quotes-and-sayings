@@ -1,0 +1,52 @@
++++
+author = "Laurell K. Hamilton"
+title = "Laurell K. Hamilton Quotes"
+quotes_len = "46"
+description = "the best 46 Laurell K. Hamilton Quotes"
++++
+- I guess, what I'm saying is that when I've been this surprised by my own characters and world, all bets are off.
+- For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.
+- I'm more influenced by my own interests than anyone else's. Writers have to entertain themselves, or they can't entertain anyone else.
+- I am a very linear thinker, so I write beginning to end. I write hundreds of pages per book that never make it into print.
+- I try not to worry about rewriting books that worked well the first time. I'm too busy writing new books to worry about things that are already in print.
+- I've been writing stories since I was 12. 'Writer's Digest' was one of my writing teachers, actually.
+- I think like a detective.
+- I'm not terribly fond of soapboxes.
+- I am not a morning person.
+- Perfection is an unattainable goal. It isn't going to be perfect. Just get words down on paper, and when you stumble to what you think is the end of the book, you will have hundreds of pages of words that came out of your head. It may not be perfect, but it looks like a book.
+- Some people just don't seem to understand the concept of fiction. It is fiction; it ain't true, folks.
+- One of my rules is never explain. A writer is a lot like a magician, if you explain how the trick works then a lot of the magic turns mundane.
+- I started off like everyone else does, slogging but having a compulsion to put words on paper. I didn't write or read horror or fantasy, other than children's fantasy, until I was in my teens.
+- When sex is necessary for the plot of a book, or a character development, then I don't shy away from it. Why should I?
+- Everyone spends their lives trying to balance their world between good and evil.
+- I think that my vampires in general were influenced by my being allowed to watch the Hammer vampire films. Vampire Circus, also shown as Circus of Fear, was one of those movies.
+- I wasn't like most girls.
+- I love animals, always have, and it seemed natural to help the ASPCA. Animals have no voice of their own, so we have to be that voice.
+- If you're open to it, New Orleans will teach you about yourself, but if you want to hide from who you really are, the city will help you do that, too.
+- Like most creative people I don't fit well into boxes.
+- It was just you had to be strong, and if you weren't strong you're a victim and you're not going to make it. That was the reality when I was growing up.
+- By 17, I was submitting to publications and collecting my first rejection slips.
+- The fey in this country keep to themselves, and are a separate nation, much like the American Indians, but with even more autonomy.
+- You'd think a sociopath assassin wouldn't have a fan following but he does.
+- My characters surprise me constantly. My characters are like my friends - I can give them advice, but they don't have to take it. If your characters are real, then they surprise you, just like real people.
+- I cannot say how strongly I object to people using other people's writing as research. Research is non-fiction, especially for horror, fantasy, science fiction. Do not take your research from other people's fiction. Just don't.
+- Most of the monsters... are based on some sort of mythology. Every culture and even some geographical areas have monsters and mythology that is their own.
+- My writing style is very sensual, as in sensory detail.
+- What happens in Vegas may stay in Vegas, but what happens in New Orleans, goes home with you.
+- Never argue with your characters; they know themselves better than you do.
+- Readers respond to every genre intensely, if it's a genre that appeals to them. Again, who can say why anyone enjoys horror and dark fantasy? If I can't answer the question for myself, I wouldn't dream of trying to answer it for others.
+- If people would write exactly what I wanted to read I wouldn't feel so compelled to write myself.
+- You either mellow at 30, or your head explodes - take your choice.
+- Nothing wrong with making money or doing what you need to do to sell, but I think it shows when you're writing something to pay the bills and when you're writing something because it's really your version of the world.
+- If I'd been easily discouraged, I could have been a one-hit wonder.
+- What we prefer to read is sort of like sexual preference, you like what you like. Most of the time you have no clue why.
+- I want a kiss to be so believable it gives the reader shivers.
+- I've lost track of the number of people who want to be writers but never actually write anything. Talking about writing, dreaming about writing, can be very fun, but it won't get a book written. You've got to write.
+- Here's the secret to finishing that first book. Don't rewrite as you go.
+- Now that I'm being very successful, publishers are trying to mainstream me, but I'm unabashedly genre. It's what I like to read, what I like to write.
+- I feel that if you are blessed, or lucky enough, to be doing well, you should help others.
+- You give the reader a sense of a full meal.
+- I went to Marion College for writing and I was kicked out of the writing school. I was asked to leave the writing program because I was corrupting the other students.
+- I always treated writing as a profession, never as a hobby. If you don't believe in yourself, no one else will.
+- I like conventions. I like meeting and greeting. I'm perched on that edge where I'm getting more attention than I quite know what to do with, though.
+- Two things I do well in books are sex and violence, but I don't want gratuitous sex or violence. The sex and violence are only as graphic as need be. And never included unless it furthers the plot or character development.

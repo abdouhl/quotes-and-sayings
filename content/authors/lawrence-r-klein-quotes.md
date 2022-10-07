@@ -1,0 +1,17 @@
++++
+author = "Lawrence R. Klein"
+title = "Lawrence R. Klein Quotes"
+quotes_len = "11"
+description = "the best 11 Lawrence R. Klein Quotes"
++++
+- On the way from Chicago, I spent the summer of 1947 in Ottawa, helping to build the first of a series of econometric models for the Canadian government.
+- Although I was not aware of it at the time, the experience of growing up during the Great Depression was to have a profound impact on my intellectual and professional career.
+- The funds from the sale were put into research and general teaching budgets at the university. Wharton Econometric Forecasting Associates, Inc., is now a growing enterprise with many model and other econometric facilities.
+- I, Lawrence Klein, was born in Omaha, Nebraska, as were my elder brother and younger sister.
+- The SSRC committee turned attention from team research for building a model of the United States to doing one for world trade in order to investigate the international transmission mechanism.
+- The completion of my undergraduate training at the University of California (Berkeley) provided just the needed touches of rigor at advanced levels in both economics and mathematics.
+- After my first visit to Japan, in 1960, to work on a joint model building project at Osaka University, I maintained a continuing interest in the country and the entire Far East.
+- During the early 1960s, I decided to supplement research support for quantitative economic studies at Pennsylvania by selling econometric forecasts to private and public sector buyers.
+- My early education was in the public school system of Omaha, where, retrospectively, I realize that my high school training served me in good stead for the basic subjects of mathematics, English, foreign languages and history.
+- An early fascination with higher mathematics at the university level blossomed into speculative thinking that could provide a basis for dealing with economic issues.
+- It came as a surprise to find that a professional society and journal (Econometrica) were flourishing, and I entered this area of study with great enthusiasm.

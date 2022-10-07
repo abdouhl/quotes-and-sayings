@@ -1,0 +1,27 @@
++++
+author = "Ludivine Sagnier"
+title = "Ludivine Sagnier Quotes"
+quotes_len = "21"
+description = "the best 21 Ludivine Sagnier Quotes"
++++
+- When I was in the U.S. for 'Swimming Pool,' people had asked me, 'So are you going to settle down in Hollywood?' And I said, 'No, I'm French! I am living in France. I am not going to be American.'
+- Good characters are rare. As long as I find one or two a year, I'm happy.
+- I don't act to be popular or see my face on the cover of magazines every time I go out to get coffee. I don't want to think about me all the time and what I look like.
+- Being a mum makes you more aware of how short life is and how important it is to enjoy every minute because you have less time for yourself. A day doesn't have 24 hours any more - it only lasts 10, or eight. So you learn to get rid of all the parasites. I'm not talking about people, but things that could be toxic for happiness.
+- Having a movie that lasts and makes your image imprinted into the history of cinema, it's very positive.
+- When I was in my 20s, I thought that being known for 'Swimming Pool' was kind of a burden. Like, 'OK, everyone thinks I am this tanned bimbo,' and I was having problems coping with that image.
+- I would like to perform more in English. But there have to be many good things gathered for me to be willing to do a movie. I watch trailers of every new American movie and I'm, like, 'OK, I'm not missing anything!'
+- I really have problems with horror movies. I don't watch them. It's a feeling I don't want to have in cinema. I'm too reactive. It's too draining to watch that kind of movie.
+- What I'm looking for is the variety of choices and the opportunity to work with great directors - that's what I'm looking for.
+- It's impossible to explain to people who you are in a five-minute interview on TV.
+- 'Swimming Pool' was a very important moment for me because the character was written for me.
+- You know, the character of Isabelle in 'Love Crime' is the only character I feel the furthest from. I have nothing to share with her, so it was really difficult. Being an actor of composition is something, but you always base yourself on something you know about.
+- When you get quick fame and success and exposure, it makes you feel dizzy, and I didn't want to lose my balance 'cause that's something I've been struggling with for so many years. I'm not fond of the idea of making it in Hollywood. That's not my aim; otherwise, I would have settled down in Los Angeles.
+- I'd say people recognize me, but having children recognize me is the best. It is a very special thing. Suddenly you feel like you have the power to make the children's dreams come true, and it's better than anything else.
+- You know, when you start, especially with me, I didn't really know I was going to be a movie actress. I thought I was going to do theater.
+- To me, the director is the most important, rather than the story.
+- It's funny how human beings are so entertained by crimes.
+- It's funny because I remember when I came to the U.S. with 'Swimming Pool,' the movie did well, and it was great box office for a French movie, but I remember I was a bit upset because all people talked to me about was the nudity.
+- Hollywood is a wonderful machine for making big movies. In France, we make smaller and more personal films, but if things keep changing, this will disappear. The industry in Italy is practically gone. Cinecitta now is used mostly by filmmakers from others places, like Martin Scorsese.
+- In 'Swimming Pool,' all the colors are very warm, sunny, the pool and all that. In 'Love Crime,' everything is so cold, and it's all inside skyscrapers.
+- In modelling or football, being 30 is very bad. But, for an actress, ageing is like wine. You taste better and better because your body, your mind, your feelings, all this is a tool and it's getting sharper with time.

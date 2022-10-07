@@ -1,0 +1,41 @@
++++
+author = "Rahul Dravid"
+title = "Rahul Dravid Quotes"
+quotes_len = "35"
+description = "the best 35 Rahul Dravid Quotes"
++++
+- There is no substitute to taking a lot of a catches as a youngster if you want to do slip catching - you've got to catch, catch, catch. And more than doing the normal stuff, you have to vary your catching - you've got to take some catches with the tennis ball, you got to take some closer, some further away.
+- In a cricket career, your life is in some ways controlled for you. You have no control over schedules, you have no control about where you want to play, you don't have control over that as a cricketer.
+- Sometimes fitness is a good thing to have, but you have to recognise that fitness takes you only so far, and skills are the most important thing. Fitness just helps you execute those cricketing skills for longer and more consistently, maybe.
+- My approach to cricket has been reasonably simple: it was about giving everything to the team, it was about playing with dignity and it was about upholding the spirit of the game. I hope I have done some of that. I have failed at times, but I have never stopped trying. It is why I leave with sadness but also with pride.
+- I thought about cricket a lot. I needed to get out of this bubble of mine. I found it in books and conversations with other people about other things. I was a curious person, and this was my release. I like being challenged intellectually. I hated at the end of the day to talk cricket to someone else.
+- I think there's a culture in Rajasthan Royals that has been there before I got here, so I've come into it. I've enjoyed being part of it and embraced it. They are quite clear about the fact that bottom lines are important, and there is a certain limit on what you can spend.
+- I am what I am. I have not deliberately built an image for myself.
+- If someone thinks, 'I'll spend the off season working on my fitness and I'll come back a better cricketer,' I don't think that's enough. You need to spend a lot of time working on your skills and honing your skills.
+- I was in the hockey team in school, played football. One of the challenges for me was to make the team feel better. It helped me evolve, so batting at different positions was never a problem.
+- I wasn't the most prodigiously talented cricketer in Karnataka, let alone India. Some of my team-mates in my school team could hit the ball cleaner than I do. I had to work through that lack of talent, so to speak, that lack of natural flair. Runs never came easy for me.
+- A career in sport is almost impossible to manage without the support, and guidance, and reassurance of family and friends. During tough times, and there always are, this is whom we go to.
+- I was given a talent to play cricket. I don't know why I was given it. But I was. I owe it to all those who wish it had been them to give of my best, every day.
+- While I played Ranji Trophy for five years, I used to be asked, 'When are you playing for the nation?' - a question which I didn't have any answer to. I kept playing before I got my first break in 1996; those five years were indeed frustrating.
+- Administrators are there because of the fans and the cricketers to run this game, so credibility of a game, or a board, or even a government for that matter, is important irrespective of what you do. If you are in public life, it is important.
+- Even though it's a shortened format of the game, Twenty20 allows people with different skills to play in a team and play their specific roles. Obviously there's not too much time to waste balls, but if you look at guys who play well in the top six, they have a fairly decent amount of good cricketing ability.
+- I think credibility, irrespective of what you do, if you are in public life, then it is important.
+- There are fans of Twenty20 cricket, and we need to ensure that we give them the cricket they want to see. We need to keep Test cricket alive, because there is a section of fans who love and worship Test cricket and have basically helped this game grow, and they are as important as anybody else.
+- No dream is ever chased alone.
+- The bowlers I respected or feared or rated were not the ones who gave me lip or stared at me or abused me. More the ones who, at any stage of the game, when had they had the ball in hand, they were going to be at me, and they were going to have the skill and the fitness and the ability to be aggressive.
+- I was lucky in my early years to play for a Karnataka team that was trying to forge itself into a strong side, and they were years of fun and learning. In the Indian team, I was fortunate to be part of a wonderful era when India played some of its finest cricket at home and abroad.
+- I have the kind of personality that I always look ahead than look at what's happened. It does help a lot, especially when you've done badly or you've failed. It's instinctive of me that I look at what's next, I look ahead a lot, and start preparing for that, in victory and in defeat.
+- What drew me towards team sport were the camaraderie and friendship. The chance to celebrate victory and success with a group of other people is something I have enjoyed doing.
+- Growing up, in my under-15 days I used to be a wicketkeeper, and that carried on till I was 17. Then I started focusing on my batting and moved on. I got into the Ranji team quite early, and generally, as a youngster, the first place you are put in is at bat-pad and short leg, so you had to work on your close-in fielding straightaway.
+- Reading allows me to recharge my batteries.
+- There is an element of mystique to radio, and I often listen to cricket commentary on radio, especially when one is stuck in a traffic jam.
+- From a spinner's perspective, in India it was never easy for me to judge where to stand: how far forward, how far back, because on Indian wickets the ball does not carry as much as abroad. That is true of slip fielding in general. I wouldn't say only for spinner - even for a fast bowler, that holds true.
+- I am not the only intense or intellectual cricketer. I played with other cricketers who could be pretty intense and intellectual.
+- I don't get angry very often, but there have been times when I have been frustrated with myself, maybe after playing a bad shot, after getting out, I have done some damage to some equipment of mine. Once or twice in the course of 20 years - I think you can allow me that at least.
+- Cricket is just something that I am good at, just like various people are good at various things. What's lucky is that cricket gets enormous publicity.
+- There are so many fans and so many people who care deeply about this game, and it is because of these fans that we are who we are as cricketers.
+- One of the great joys of being a slip fielder who takes a catch is you are able to contribute to the bowler's success. Yes, you are putting yourself in the firing line if you stuff it up, but you must want to be in that position to make a difference, and recognise sometimes that you might make mistakes. There are no easy catches in the slips.
+- Unwanted honking not only irritates others, but may also end up causing accidents. Drivers lose cool and it may result in road rage.
+- I think we judge talent wrong. What do we see as talent? I think I have made the same mistake myself. We judge talent by people's ability to strike a cricket ball. The sweetness, the timing. That's the only thing we see as talent. Things like determination, courage, discipline, temperament, these are also talent.
+- You get an image in the first couple of years of your career, and then whether you like it or not, you are stuck with it for the rest of your life.
+- Apart from being celebrities, there's a huge amount of respect associated with being cricketers and a certain amount of reverence and honour associated with representing India. In people's eyes, apart from other celebrities in India, I think for sportsmen in India there's a certain amount of regard.

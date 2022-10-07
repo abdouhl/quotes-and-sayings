@@ -1,0 +1,16 @@
++++
+author = "Ireland Baldwin"
+title = "Ireland Baldwin Quotes"
+quotes_len = "10"
+description = "the best 10 Ireland Baldwin Quotes"
++++
+- There are Katy-Perry-in-concert-type pieces that I look at and am like, 'This dress has a hundred cupcakes on it - I want it!' My mom will always talk me down.
+- Even when I get to the point where I am acting and performing, where I want to be with my career, I'm never going to think of anyone as lower than me. Everyone's the celebrity of their own life, you know?
+- I have received nasty e-mails, messages on Twitter and ridiculous comments, not only about my size, but my family.
+- I imagine how hard it might be to walk down the runway. Me in heels is, like, deforesting the forest, knocking trees, completely 'timber!'
+- I want to be an inspirational model. I want people to look at me and say, 'Wow, she looks healthy.'
+- I love walks, hiking, exploring and being on the beach.
+- I went through a lot in middle school, and you always try so many different looks and try to be so many different people. I finally realized I'm awkward, I'm lanky, and I'm going to embrace it - make fun of myself and just laugh.
+- I've learned to treat celebrities as equals and just kind of meet them and admire their work, but I definitely could not breathe when I met Johnny Depp and James Franco.
+- When I was young, I'd fight everyone who insisted I'd be an actress. I'd say, 'No way. I'm going to be a veterinarian. I'm going to work at Wetzel's Pretzels.'
+- Life's too short not to have fun with what you wear.

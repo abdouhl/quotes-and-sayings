@@ -1,0 +1,85 @@
++++
+author = "Chris Gardner"
+title = "Chris Gardner Quotes"
+quotes_len = "79"
+description = "the best 79 Chris Gardner Quotes"
++++
+- Don't ever be afraid to hire people that are smarter than you. Just because they are smarter than you doesn't mean they have to make more money.
+- My first ambition in life, I made up my mind I was going to become Miles Davis. I studied music, music theory. I played trumpet for nine years. One day, my mother explained, 'You can't be Miles Davis. There's one, and he's got that job.'
+- Racism is not new. It was not invented just for you. So get bigger than that stuff.
+- Passion is everything. In fact, you've got to be borderline fanatical about what you do.
+- Everybody got a dream. What's the plan?
+- I initially moved to San Francisco to become a research associate for one of the top young heart surgeons in the country. Everything that I learned in that position is that skills, talent, and expertise are transferable.
+- When you're doing something you're truly passionate about, there is no plan B.
+- I went through pain as a child so my children wouldn't have to.
+- I also often hear people say that the deck is stacked against them because of racism, sexism, or other oppressive 'isms.' But once you let go of the blame and excuses, you'll see that you can alter your position on your own.
+- I hold one thing dearer than all else: my commitment to my son.
+- Nine times out of 10, extenuating circumstances aside, I believe that people are where they are by some kind of choice on their part. You need to acknowledge that, 'Hey, I'm here because I steered my horse in this direction.'
+- My biggest hero was my mother. She told me every day that I could do or be anything. I knew it, I believed it, and I embraced it.
+- When you tell your kids they can be anything, you've got to be careful. I told my kids that, and I ended up with a music producer and an interior designer. But they're doing it.
+- Most of us have heard the saying, 'Cleanliness is next to godliness.' That's a sentiment I value, but another virtue has inspired me to revise that saying. As far as I'm concerned, what's next to godliness is resourcefulness.
+- I grew up without a father.
+- You can blame outside factors or make excuses about why things didn't work out, but that doesn't change anything.
+- Your skills may not be anything out of the ordinary, but you can do miraculous things with what you've got. Maybe it's your parenting skills, or your compassion. It may be your curiosity, your imagination or unique style of fashion. Even if it seems to be no big deal, the lesson here is we all have unique abilities and talents.
+- You want be young and have fun, that's great. But while you're having fun, someone you don't see is studying and preparing. You might end up working for that person. No one wants to hear that! But I try to tell young people: You want to be the one signing the front of the check, not the back.
+- Finding gainful employment to pay for housing is hard for any veteran experiencing homelessness. It's even more difficult for veterans who've also had encounters with police and stints in jail.
+- I made a decision as a five-year-old boy that my kids will know who their father is.
+- I've never considered selling anything other than profession, but it's more than that. It's one of the highest callings that you can aspire to. Not everyone can do it.
+- Your net worth can fluctuate, but your self-worth should only appreciate.
+- If you're passionate about something, you can develop the abilities.
+- I've created the life I wanted.
+- I cut grass, I did yard work, I did roofing, I cleaned basements to take care of my family.
+- We can all learn something from people we admire.
+- I do one thing - I don't do it on purpose - but I always make other guys look underdressed.
+- When I was a kid, we played a jump rope game called double Dutch - where you had to jump over two ropes swinging in opposite directions. Picking just the right moment to jump in was a practiced art form.
+- Veterans who are homeless may not have a home, but that doesn't mean they don't have diverse skills that could be put to use to meet the needs of an expanding job market.
+- You're never too old to do something new.
+- Everything that I learned in the Navy, I took it with me into the next phase of my life.
+- Many have forged a path to greatness lit only by a vision in their minds.
+- I chose to embrace the spirit of my mother, who, though she had too many of her own dreams denied, deferred, and destroyed, she still instilled in me, her child, that I could have dreams and that I did have a responsibility and the power.
+- What I love about AT&T is that they are just as passionate as I am about rebooting the American dream.
+- In order for you to find a job, people need to know you're looking.
+- I was blessed to have the guys at Bear Stearns as mentors. They taught me a lot, but most of all, they taught me that there's nothing wrong with selling if you're selling the right product to the right person.
+- I say to people all the time, it is OK to fail. Some of the greatest successes in the history of America started out as failures.
+- Passion is the thing that won't let you sleep at night because you want to get up in the morning and go do your thing.
+- As long as you have a plan for how you'll live, don't let jealous people turn their insecurities into yours.
+- I had never gone to college. I was not from a politically connected family. I had no money of my own. Who is going to do business with you?
+- The people who care the most about the folks in your community are living in the community. They don't live in Washington, D.C.
+- I've said that if you're not doing something that you're passionate about, you're compromising yourself every single day.
+- Long before I achieved financial success and became the subject of a Hollywood film, I was a veteran, a single father, and a working person who was homeless.
+- No matter what you accomplish, when you're doing something you're truly passionate about... the opportunities are always going to be bigger.
+- Unfortunately, some of the best fathers are mothers.
+- Probably the hardest question I get asked is, 'How do I choose between passion and practicality?' I can't answer that. I had to do both. I was passionate about pursuing a career in financial services. But I was also passionate about feeding my child.
+- Passion is not something you have to talk about. People feel it.
+- A father is everything in the world.
+- Sometimes we are so busy helping others that we forget about ourselves. Remember, it's okay to say no and to ask others to carry their own weight.
+- If you're having a hard time recognizing your gifts, look to someone else you know who's been resourceful. You may be surprised by how your own strengths rise to the surface by watching someone else.
+- I'm known to be aggressively early.
+- So many men have holes in their souls the shape of their fathers. You can pass that on to your kid, or you can do something about it, and I'm seeing a lot of men doing something about it.
+- I've been saying to people for a long time, 'If you're not doing something you're tremendously excited about, and you're not feeling passionate about it, you're compromising yourself every day.'
+- When someone says, 'You can't,' what it really means is that they can't - so why should you get to?
+- We can all look to our friends, family, and those we admire for inspiration.
+- My mom had to be resourceful. She grew up dirt poor in rural Louisiana.
+- Fortunately, our digital age has created some wonderful tools for finding employers and showing your strengths. But when it comes to discovering or keeping a job, nothing beats good old-fashioned face time and up-to-date skills.
+- If you're lucky enough to have a permanent position, don't feel entitled. Companies value longtime employees' institutional memory, but to be irreplaceable, you must stay invested. Take the initiative and assume new responsibilities.
+- I've never been big on sports coats and pants. I'm a suit guy. It makes it clear who's in charge.
+- I'm a Levi's guy.
+- Remember: If you don't schmooze, you lose. Used wisely, a bit of chitchat helps create a personal connection with your boss and colleagues.
+- I'm encouraged by what I see of men trying to be there for their children.
+- I had spent years in the United States military. Specifically in the U.S. Navy.
+- Salespeople are the most important people in any organization. Until a salesperson gets an order, nobody in the company has a job.
+- Just remember, you're never too old to have a hero.
+- Be bold enough to find the one thing that you are passionate about. It might not be what you were trained to do. But be bold enough to do the one thing. Nobody needs to dig it but you.
+- Business school professors don't take selling seriously because they don't know how to sell. It's easy to talk about business theory and production time and just-in-time development. Selling is much more difficult.
+- I have one of those old-fashioned mothers who told me every single day, 'Son, you can do or be anything that you want to do or be.' And I believed it. I bought into it 100%.
+- The hardest thing that I had to do every day as a working single parent was child care, to have to leave my child with people that I did not know and hope everything was OK, that was the most painful part of every day.
+- I didn't grow up in a household where dinner conversation was, 'How did the market do today?'
+- What can we be in life? Few figures in history have answered this question with as much clarity and moral authority as Dr. Martin Luther King Jr.
+- Baby steps count, too, as long as you're moving forward.
+- Don't wait for the perfect time to start making changes to your life; the time is now.
+- My stepfather was fond of letting me know, quote, 'I ain't your... damn daddy.' That was something that was painful, to put it mildly.
+- I am very, very conscious of time. I always wear two watches. People ask me, 'Why do you do that?' Because I was late once,and it cost me a huge opportunity.
+- I've been talking to a lot of young people, especially here in America. I let them know that the people who they're competing with for opportunities live all over the place. They're probably not in your city, state, or country; they are hungry, and they are grinding! Some of the things that a lot of us take for granted, these people don't.
+- One time, I was going to be in L.A. for 10 days for a business conference, and I took eight different pairs of sandals.
+- Too many veterans are poor or near poor and homeless because of it.
+- Will Smith played Chris Gardner better than Chris Gardner ever did.

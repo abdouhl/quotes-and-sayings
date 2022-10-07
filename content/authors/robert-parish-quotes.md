@@ -1,0 +1,90 @@
++++
+author = "Robert Parish"
+title = "Robert Parish Quotes"
+quotes_len = "84"
+description = "the best 84 Robert Parish Quotes"
++++
+- I was always looking at the ground because I was self-conscious about my height. I had big feet, big hands, and all that.
+- I've had the zeroes since junior high school. We didn't have enough numbered shirts to go around, so my shirt was called double zero. I liked it, so I kept it.
+- I know if someone talked trash to me, I'd want to kick his butt.
+- You could say that as I've gotten more mature, I've acquired more manure.
+- I'm 38, and everyone is making a big deal out of it because I got a few gray hairs cropping in my sides.
+- I can't speak for anyone else, but I know how good I have it. You can't find a much better job than this. There are only 300 players in this league, so I feel very fortunate and proud to be one of those players.
+- Playing with a winner is important.
+- Growing up, I didn't like basketball. I played football and baseball and ran some track.
+- My ego has been in check for a long time.
+- If you don't play with intensity in this league, you're going to get embarrassed. Without hard work, you don't have a chance.
+- Boston has some of the best fans in any sport. They are very knowledgeable. They understand me. I was loved, embraced, and supported; what more can you ask for as an athlete?
+- On the West Coast, things are more relaxed, maybe because people have more fun outdoors. In the East, where the weather is not so good, people have to stay indoors. They're very knowledgable fans. This makes you play even harder.
+- It's difficult for a 7-footer to be in the background. But I try to do it as much as I can.
+- As far as any personal records, if I get 'em, fine, and if I don't, fine.
+- I kind of look at Boston as my second home.
+- I will always be a Celtic at heart. That's where my career took off.
+- I am a loner, I suppose.
+- There weren't many plays for me. A lot of my stats came off broken plays, or when I didn't allow the options to play out and just took the shot.
+- My father always shied away from attention. Whenever he'd get a compliment, he'd downplay it.
+- Coming off the bench behind a fine young center like Alonzo Mourning fits my style.
+- To be honest my mentor was my mom and dad. I was very blessed and fortunate to have parents like I had.
+- Shoot, I ain't working for free. You can never have enough money.
+- I always feel like you should walk into a room or walk down the street, like you belong. That's the philosophy that I always try to subscribe to.
+- Wait until you have made a definitive decision, about whatever it is that you are pondering, and then make a public announcement.
+- I have a great deal of respect for Coach Fitch. When we won the championship in '81, he was the main reason why we won. We were down and he never let us doubt ourselves.
+- I want to make it clear, I'm not whining, and the Celtics owe me nothing. But having said that, you would think at least I would have a conversation about a coaching job, since that's what I want to do.
+- I'm not worried about offense. I've always had that, but I can get better defensively and that in turn will make my offense better.
+- I know what it is to be misunderstood.
+- I was a very quiet kid, had nothing much to say.
+- I've got a young mind.
+- You've got to listen to yourself, do what you think is best. Because if you listen to the critics, you might be going in all different directions.
+- I'm not saying Brad Stevens should not be getting praise for the job that he's done, because I feel like he's done an outstanding job. I'm just saying the amount of praise he's getting, you'd think he won a championship or two. They don't give Steve Kerr that much love. Come on.
+- Every year it happens. When I'm not putting up big numbers, I start hearing it - that I'm too old, that time finally has caught up with me.
+- You need talent and good coaching to be successful in the NBA.
+- My parents always taught me to be humble no matter what the experience, to not think I was better than anyone else.
+- It would have been a short career if I had not been traded to Boston. I was rejuvenated in Boston.
+- I always have room for another ring, unless it's a wedding ring.
+- I thought if I could play 10 years in the league, it would be a great career more than I could ever hope for in my wildest dreams.
+- I've never been a person that was concerned about accolades or the media embracing me.
+- I can be very stoic looking, that's just my facial expression. I don't smile a lot.
+- I think experience helps but it's not required to be successful.
+- It's just a fact. You've got to deal with racism wherever you go.
+- Good grooming and hygiene are essential. It's never too early to start being concerned about your appearance - first impressions are everything.
+- Across the board, most NBA teams do not call back. You need a court order just to get a phone call back from these organizations. I'm not a part of their fraternity.
+- The one opinion that experience does for you is it keeps you cool, calm, and collected under pressure.
+- I told myself coming into the league that if I could play for six or seven years, that would have been a great career.
+- I'd be the first to say that I'm a distant individual. I have a tendency to come across as being aloof and dismissive.
+- I was very lucky that I never had any serious injury. But it was the love and passion for the game that got me playing for so long.
+- I don't think it matters how old you are as long as you keep yourself physically fit.
+- It ranks right up there with winning a championship, being selected as one of the 50 greatest athletes in the NBA. It's definitely a highlight in my career.
+- Golden State was basically a guard-oriented offense so I didn't use it that much.
+- I was seriously thinking about having a very short basketball career before the trade because of all the losing that I experienced with the Warriors, and being blamed for the Warriors demise.
+- Dennis Johnson, Danny Ainge, Bill Walton, Quinn Buckner, Scott Wedman. Even if you get talent like that, it's hard to keep talent like that together.
+- An induction into the prestigious USSSA Hall of Fame is a humbling honor and a testament to everyone who helped foster and grow Worth's partnership with USSSA.
+- I need a coaching job in the NBA. I'm restless and I need money.
+- I don't want to be taking up space, but as long as I can make a contribution, I want to play.
+- Not head coach - Assistant would be very attractive, but I don't think I have the discipline to deal with all the egos and personalities a head coach has to deal with.
+- Joe Kleine is not a legitimate center in the sense that he is not a shot blocker and not an intimidator. He's not a force on the offensive end.
+- I exceeded my expectations of longevity in the NBA.
+- I've surprised a lot of people, including myself, with my longevity.
+- I've had my share of losing.
+- I come across as being arrogant and dismissive, even if that is not the case.
+- I've always been one to shy away from the publicity, the limelight, whatever you want to call it. I prefer to be in the background.
+- I cannot thank Don DeDonatis enough for his leadership of USSSA, his stewardship of our business initiatives, and his friendship to me over the years.
+- I guess people think I'm aloof just because I don't talk much. I guess I'd think the same thing if I saw myself.
+- I haven't talked to the press much. That's why I've gotten kind of a bad reputation. They look at me and think I don't give a damn. But I'm not comfortable with the attention.
+- I had 30 years of playing basketball and I came through it unscathed.
+- In my mind, I would always be a Celtic. I was very thankful and humbled that the Hornets saw fit to allow me to play a couple more years, but the only time I thought of myself as a Charlotte Hornet was game time. Other than that, when the jersey came off, I still felt like I was a Celtic.
+- I can't speak for the Warriors but for me and my career, being traded to the Celtics changed the trajectory of my career.
+- Obviously, there are nights in any job when you don't want to be there, but that's when the pride factor comes in.
+- At Golden State, it was basically a guard-oriented offense and it wasn't either around me or in my direction.
+- The tattoos, they were just something to do.
+- I think Paul Pierce, the way he manufactures points, is the best player the Celtics have seen thus far.
+- I basically gave up drinking. Personally, I thought I was drinking too much and, over the long run, it caught up with me.
+- I was always happy off the court at Golden State. It was on the court that I was frustrated.
+- I have never been one to seek or want attention or admiration or a pat on the back for what I've done.
+- I'm not comfortable with being honored, showered with appreciation. But it's always appreciated.
+- I've been blessed with a good body that has held up over the years and I love the game.
+- You should never put your hands on a woman, under any circumstances.
+- There are no expectations on a 40-year-old man. All I have to worry about is intensity, and things will take care of themselves. I don't have to worry about championships, all-star games, contracts. I can just walk on the court and play.
+- Everyone knows my career was catapulted to another level when I got traded to the Boston Celtics.
+- I don't talk about my private life.
+- I use Kung Fu. That really helps my flexibility and coordination.
+- No center would be great without the right people around him.

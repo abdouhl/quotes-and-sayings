@@ -1,0 +1,85 @@
++++
+author = "Lindsay Lohan"
+title = "Lindsay Lohan Quotes"
+quotes_len = "79"
+description = "the best 79 Lindsay Lohan Quotes"
++++
+- I really enjoy singing and I really enjoy acting, but singing I've been doing since I was really young.
+- Normalcy is not interesting.
+- I want to give back. I want to do all the things that will make me feel fulfilled. But whenever I do those things, people think it's a press stunt or something.
+- Say 'no' more than 'yes,' and just make sure you surround yourself with good people.
+- Never say never. The things that you don't plan are the best. I'm a very spontaneous person.
+- My little sister Aliana's opinions are the most important to me. She says, 'I want to look like you, you're so pretty!' But she is very beautiful and so she is trouble in the making! She wants to do what I do. I'm like her second mother and I am very protective of her.
+- I hate the bad rap that people give my parents. Because they are just parents, really, at the end of the day trying to stand up for their daughter and themselves.
+- On a day when you're tired, it's important to just say good morning to everyone so they're kind of aware that it's gonna be a good day. Jamie Lee Curtis told me that.
+- I hate it when people call me a teen queen.
+- I'm not that girl from Freaky Friday any more! I'm a real adult. In fact, I hate children! I hate them all!
+- I think my biggest focus for myself is learning how to continue to get through the trauma that my father has caused in my life.
+- You shouldn't have to give things up for someone. If you love them someone, you should love them for everything they do and all that they are. I love acting and I wouldn't give it up for anything, and I don't know anyone in my life who would ask me to give it up.
+- If you're fighting with your boyfriend, you can go to the movies and cry it out and leave happy because the ending of the film is happy.
+- I think Christina Aguilera is great; I would love to work with her.
+- I want to interact with my fans, and I want to let people know what I'm doing and stuff like that because I'd want to know.
+- If I dated as many people as they said I have, then I would be dead, because it's just not possible.
+- I think a woman's body is so much more sensual than a man's. I'm not saying strip off all your clothes, but there are certain photos I like people taking of me, where I'm comfortable. As long as it's tasteful, why not?
+- Life is full of risks anyway; why not take them?
+- It's so weird that I went to rehab. I always said that I would die before I went to rehab. But I thought, 'I'm going to stay here tonight.' And I stayed there for a month. It was great.
+- When I was younger, I started taking singing lessons and dance and acting. I just started acting first because that's how everything happened.
+- This is what I asked for, and in this day and age that's what actually goes on. But what hurts me the most is that I work just as hard as any other actress around my age, like Scarlett Johansson, but I just don't get the opportunities that they get because people are so distracted by the mess that I created in my life.
+- I still need to go through the process of proving myself.
+- I want to set up orphanages for underprivileged and abused children.
+- I live without regrets. There are certain things I have done, mistakes that I made, that I would change, but I don't regret them at all, because I've learnt from them.
+- It's my body. And I like my body. And I like my breasts. And no, they're not fake.
+- I did get to work with Anthony Hopkins on 'The Human Stain.' If I ever manage to accomplish a quarter of what he's achieved, I'll have had one hell of a career.
+- I don't like to talk about politics. If you say you're a Democrat, that'll turn off Republicans, and that's half of your fan base.
+- I would switch roles with Madonna for a day. Or if Audrey Hepburn was still alive, Audrey Hepburn. I love Audrey Hepburn. She's one of my idols, also.
+- I never rebelled against my parents - I worked hard, I was responsible, and I didn't go to high-school parties.
+- I did say that I wanted to be a young mom, just because my mom was a young mom. It is better because I can be closer to my kids and stuff.
+- Substance abuse is a disease which doesn't go away overnight. I'm working hard to overcome it. I did fail my recent drug test. I'm prepared to face the consequences.
+- I'm an angel compared to some of my friends.
+- I don't know if I am cut out to playing a bad character or not - I really should give it a shot. I would like to play the voice of a baddie, but that's really just a cop-out!
+- I'm the hardest working person I know. I'm 20 years old - is it a crime to want to go out dancing with my friends?
+- I just love fashion. I think it just expresses who you are so much.
+- My mum says, 'Go with your first instinct,' but this can lead to impulse buying!
+- I just feel as though it's become a situation where people have manifested this caricature of who I am, and they act as if there's no real person inside of it.
+- There's a way of dealing with hardships that are healthier than going out. That's what I've learned.
+- I want to get married before I'm 30. And I'd like to win an Oscar before then.
+- Partying and having all of those pictures taken distracts from the work that I do. It's not why I started acting. I didn't get into acting to be written about. It kind of just happened - so I accept that it's my life.
+- Because I'm so much in the spotlight, people lose sight of why I'm in the industry. In fact, I'm doing all this because I love to act. I love to perform, to sing.
+- I know that in my past I was young and irresponsible - but that's what growing up is. You learn from your mistakes.
+- When I did 'Parent Trap,' I was ten. I was thrown off by the whole fame thing.
+- My brother Cody is 19. He wants to stay out of the limelight and become a lawyer. I want him to be an entertainment lawyer, so he can help me out!
+- People go to college to find who they are as a person and find what they want to do in life, and I kind of already know that so it would be like I'd be taking a step back or something.
+- I write most of my own lyrics for my album and I am helping to produce some of the songs as well.
+- I wanted to be a movie star. But movie stars are not what they used to be.
+- I love my red hair. It makes me spunkier.
+- I'm really in touch, whether it's prayer or meditation... there are so many powers greater than me in the world. I've been blessed and lucky enough to have been given a gift to share with other people.
+- Compared to a lot of actresses my age, I'm actually overweight.
+- I'm not skinny for the wrong reasons. It's not because I'm bulimic or anorexic or doing drugs. Compared to a lot of actresses my age, I'm actually overweight.
+- When I was a kid, I thought movie stars were women and men who were in these great films that we still look at now. But I don't think there are too many films coming out these days that we're going to look at in the future and say, 'This is one of the great ones.'
+- Beauty is grace and confidence. I've learned to accept and appreciate what nature gave me.
+- I have always admired and had enormous respect for Elizabeth Taylor. She was not only an incredible actress but an amazing woman as well.
+- I'm at my happiest when I'm on a movie set. It's like therapy for me.
+- I've become more of a homebody, and I like that.
+- I'm my own worst enemy and I know that.
+- So many people preach that they love fashion, but really it's what I live for!
+- I've always been interested in singing, and I've always been singing and dancing since I was little.
+- When someone tells me not to do something, I'll do it more.
+- I write a lot of lyrics and I'm involved in the producing process, because it's like, if I'm singing it, I want it to be something that I can relate to.
+- Marriage is a big deal, but who's to say I'm not going to pull a Vegas and get married to see what it's like for a minute?
+- I'll probably pursue doing more movies, but not horror or movies with killers in them. I'll try to stick to happy movies. I want to act and direct like Jodie Foster. I admire her because she went to college and she's still doing the same thing.
+- So many people around me would say they cared for the wrong reasons. A lot of people were pulling from me, taking from me and not giving.
+- I'm not going to deny the fact that I've tried pot. I hated it.
+- My mom is very close to me, and it has been really cool having a mom that's closer to my age because she can go out with me and stuff.
+- How can you not like Britney Spears?
+- I am happy being able to play roles with people my age because once you do something really mature there is no turning back.
+- Obviously, I want to sell records, but I do it because I find it therapeutic. In music I can be myself.
+- I want to act and direct like Jodie Foster. I admire her because she went to college and she is still doing the same thing.
+- My mom is going to kill me for talking about sleeping with people. But I don't want to put myself in the position where I'm in a monogamous relationship right now. I'm not dating just one person. 'Sex and the City' changed everything for me because those girls would sleep with so many people.
+- It's funny because being comedic and happy and lighthearted is who I am as a person, so they're easier emotions for me to connect with.
+- I want to win an Oscar. I want to be known for more than, like, going out. For being the 'party girl'. I hate that. I bust my ass when I'm filming and when I have time off, yeah, I like to go out and dance.
+- I don't care what anyone says.
+- I want to be remembered for the work that I've done, rather than the car accidents that I've gotten into, the men that I've not dated - or the man that I have.
+- My motto is: Live every day to the fullest - in moderation.
+- Everyone has highs and lows that they have to learn from, but every morning I start off with a good head on my shoulders, saying to myself, 'It's going to be a good day!'.
+- If I can change bodies with anyone, it would be Britney Spears because how can you not like Britney Spears?
+- I'm 20 years old. I like to party as much as anyone my age. Going clubbing is my way of relaxing or releasing a lot of stress. I don't feel that I should have to justify that part of my life. I don't know that I'm necessarily an addict.

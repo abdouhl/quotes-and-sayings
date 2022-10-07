@@ -1,0 +1,144 @@
++++
+author = "Anushka Sharma"
+title = "Anushka Sharma Quotes"
+quotes_len = "138"
+description = "the best 138 Anushka Sharma Quotes"
++++
+- As a viewer, I really want to watch author-backed stories, and there is something amazing about thrillers, the way it captivates your imagination.
+- I am not a vivacious person in real. I hate smiling. I hate doing small talk.
+- I've always kept a low profile. I'm not comfortable at social events or parties. I feel awkward. So if I'm not working, I prefer to remain in my own zone.
+- I feel there is a great sense of achievement coming from a non-filmy background. But when you are going through a low phase, you don't have anybody to advice you because your parents possibly can't advice you on that.
+- I don't have any sense of inhibition, so I'm able to lead my life with a lot of honesty.
+- Sometimes I get extremely disturbed with the things that are written. But you can't do anything about it. As a celebrity, you are putting yourself out there to be judged, and that's fine. I am now learning not to get affected by such things. I am building my career and making choices that I think are right while minding my own business.
+- I don't think I was a good model. I think I was born to emote and act. I would walk down the ramp and smile and they used to say, 'Give us a blank look.' It was really difficult not to smile.
+- I'm an American TV show buff. I can watch them nonstop for days.
+- We have to look good... our hair does get damaged due to straightening... tonging. We have to do something that helps our hair look good and healthy.
+- I was very young when I became an actor: I was 19 years old.
+- I do not choose characters because I think, 'Wow, that woman is so strong.' I chose these characters with utmost conviction because I think they were realistic enough to exist, and I really liked the scripts.
+- If you are chauvinistic mind, you will not be able to take the fact there is a strong, successful girl.
+- I'd rather shut myself in a room for six months than act in a bad movie.
+- I always wanted to be a model, never an actress. I would see children in ads and stuff and wanted to be like them.
+- As an actor, I have tried to do new things, and that's why I have done few films.
+- We shot many films in Delhi that turned out to be successful at the box office. So the attachment is definitely on the positive side.
+- I can do a film only if it excites me as an actor.
+- I have never planned things in life. I believe in living life or doing things to the moment.
+- I have done everything in my life very normally. And marriage is definitely there on my agendas in life. But I don't know when will it happen.
+- I feel that's a good thing as an actor that you do not feel satisfied. Whenever I go back and watch myself on screen, I find multiple reasons to redo that scene. That's an occupational hazard that most actors face. You can never come to terms with it.
+- I want to be part of great cinema. That is my only aim.
+- I'm an honest person and don't lead my life on other people's terms.
+- My journey has been good, and by God's grace, I have not changed.
+- As a producer, I want to back projects, talents, and scripts that speak to me not just as someone from the industry, but as an audience.
+- I will share a personal experience: my father was posted in Jammu & Kashmir during the Kargil war. I remember my mom sitting in front of television throughout the day reading tickers which had name of the martyrs.
+- When you are not part of an industry, your knowledge of that field is based on what you read and hear and on the stereotypes that are attached to it.
+- I believe that if your film is good, and if you are good, you will do well.
+- Everything that I am going to do as an actress doesn't matter where it's coming from. It just has to be interesting.
+- Style, to me, is an extension of one's personality, a kind of self expression which is very personal. It is an expression of your moods, your personality.
+- I enjoyed playing the dual role of an actor and producer.
+- My style is a bit of what I like to call chic-casual. It is easy and comfortable.
+- When my friends in college had crushes, I used to think something is wrong with them. I just chill out.
+- I share a very good rapport with Shah Rukh, so I was at ease working with him, and Imtiaz is a dream director for any actor.
+- Tell me one director who will go on record to say that I don't get along with them? I get along famously with all my directors because I am what I am today because of them.
+- One actress can't challenge or change anything.
+- I take pride in saying that I am an army officer's daughter even more than being an actor.
+- People who speak different languages, they are watching the movie from our language. So, I think all of us should be proud as nation and as cinema lovers.
+- I don't want to endorse products that propagate fair skin at all.
+- I think it is a wonderful process of transformation from an actress to a producer.
+- Wrestling is not an action; it is a sport.
+- There are two things that give me perfect happiness - doing the perfect shot and travelling. I get stressed, really stressed by the fact that there is just so much to see and I am not going to live long enough to visit all the places I want to.
+- Once, I was coming back from school, and there was this guy who was eve-teasing me and my friend. I had a Milton water bottle that I flung it at his face. My dad told me if you are in a crowded place and a guy eve-teases, you should make noise. I did exactly that and got people on the road to beat up the guy.
+- I really wanted 'NH10' to be made, and being associated with it eased the entire process.
+- I am not as confident as the characters I play. I am a bit aloof. I am uncomfortable in social situations.
+- I am a very basic person. I still believe marriage happens only once, and you have to sustain it.
+- I treat my acting career with a lot of respect.
+- I do not consider myself a feminist. I do not believe that by doing female-oriented films that depict a woman fighting the system, we can change the system.
+- In future also, we would like to back films that can be considered slightly risky since they don't have song and dance.
+- I think compassion is important but love fizzles out eventually. But if there is compassion in a relationship, things can always be worked out.
+- My friends once told me I remind them of the main character from the American comedy series 'Curb Your Enthusiasm.' I thought they must mean a sunny, affable girl-next-door, but instead I was confronted with Larry David! Crabby, moody, perversely neurotic Larry David. And the thing is, my friends were right.
+- To work with the same director is a great feeling.
+- I do have moments when I feel insecure. I do have moments when I feel jealous, and that's normal. It's a very normal emotion. It's your action and your attitude and your reaction to that that is important.
+- I'd advise people to never step out without wearing an SPF, not even on a cloudy day.
+- Boys used to call me Soda in school days. Soda means 'serving officers daughters association.' I miss those days when I had a very protected life: one could get close and bond with other army people that they gradually would become your extended family.
+- When you see the industry's fickleness so early on, you realise that you are only as good as your last release. It is all about your work. And that has set the way I look at my profession and what I do in my career.
+- I shouldn't feel awkward or feel disconnected to myself or my body while wearing the clothes or a particular fashion. This is very important.
+- While I was shooting for 'NH10,' my hair had to look dirty in the film. To improve the texture... quality of hair, I had to use a lot of conditioner.
+- I have never planned my career here in Bollywood, so planning to do Hollywood films is a distant thing. You have to see how things come.
+- I have got good films, and I am thankful to Aditya Chopra. He put a lot of faith in me.
+- Usually, I come for film promotions or events, but I have so many fond memories of Delhi.
+- I don't think that a film should be known as 'male-centric' or 'female-centric,' but it should be known for the story. That would be really nice, and viable, too.
+- I dont understand flirting.
+- I wanted fans to know that I'm human and not perfect.
+- That is the beauty of working with Karan Johar: you are going to look your best.
+- Growing up, my parents treated my brother and me with absolute equality.
+- If I am anorexic, I'd be in the hospital! I am tall. I am 5 foot 9 inches, 175 cms tall. I am lean, I am active and athletic. There are so many women who are naturally lean, and so am I. I have been like this for the longest time.
+- A female newcomer and a male newcomer will get paid different amounts of money. You're a newcomer, nobody knows who you are, man or woman doesn't matter. But you're going to get paid different money.
+- I genuinely don't care about the 'number one' tag. That's not my goal. You know, no one does that with heroes, but with actresses it's the same number game. It's not a bloody pageant. Everyone has something unique to offer.
+- Acting has always been my passion and will remain so.
+- I always knew I wanted to be in films but didn't want anyone to taunt my parents. So I excelled in studies. I was a topper in school and college, so when I decided to become a model, people said, 'Oh your daughter is modeling,' so at least my parents could say, 'Yeah but she also came first in class.'
+- Whenever I work on any Yash Raj film, I feel that they believed in me, and that's why I have been able to be in films today. I had no connection with movies apart from watching them.
+- I don't hide anything about myself, so I don't find it difficult to talk about things that happen in my life... But at the same time, I don't like putting myself out there too much. That's how I am.
+- I was never treated differently. I never felt like I was lesser or I was discriminated against. I've only experienced that after I became an actor.
+- I would love to do a chick flick sometime soon, a film with strong female characters - when I say strong, I don't mean that they are changing the world, but just be real women.
+- My biggest fear is fear itself. I never want to be afraid of doing something I want.
+- You can't go on telling, 'I am in love.'
+- I have been trolled multiple times, and it doesn't affect me anymore.
+- I have nothing to hide. So when I spoke about my lip job, a lot of people called me brave for coming out.
+- I think everything has its own pros and cons.
+- As an actor, you want to do your best but not overshine the film. No actor is above the film.
+- I have never been a girlie girl and have always been a boys' girl with an equal amount of friends who were boys and girls.
+- I don't want to carry the burden of a flop. I don't fall into that trap.
+- I find it really cheap when people talk about an issue just for the sake of talking and are not making any difference to the actual situation.
+- I have stayed in south India all my life. English comes more naturally to me than Hindi.
+- I have never emulated any star or celebrity completely, and I hope nobody does the same of me.
+- When I meet someone from the army background, there is an instant connection. We live in the best five-star hotels of the world, but outside my home I will be equally comfortable in any army cantonment or army guest house. Telling my friends that my father was in the army was like telling them that he is the second-richest man in the world.
+- I haven't done many films. But with every movie, I try to showcase a different side of me through a character.
+- I am someone who doesn't pay so much attention to how I am looking. I get so involved in what I am doing, so I overlook that.
+- I am very practical. It's not like I will fall in love with someone standing far away.
+- It is so common in middle-class families to consider modelling and acting not serious.
+- Having failures in life is important to understand where, exactly, you stand.
+- If I lead my life according to someone else, I've screwed my life up.
+- I think 'NH10' could have been done equally well by anybody else, and it's not a 'female-centric' or 'male-centric' film. It's the story that will appeal to the audience.
+- I love the work that goes into making a movie and creating a different world. It is a wholesome experience.
+- My parents never gave me a nickname. But for my friends, I am everything from 'Nushki' to 'Nusheshwar.'
+- Being a soldier's daughter, I understand that what they are doing is the real deal. But me giving statement on the issue is of no significance.
+- I think if you want to do something, then you should go all out completely and be fearless.
+- When it comes to work, I am focused. I work like a maniac.
+- I know what soldiers or their families go through.
+- I don't want to go and play a cliched Indian girl.
+- I am not a bloody ghoda running a race that you give me a tag. I am competitive, and the reason for that is that I want to do the best films.
+- I always do stories that I believe in, characters that I find interesting, and directors who I want to work with. All these factors have contributed while making choices and continue to as an actor and as a producer.
+- The decisions that you make in your career stem out from the experiences you have early on in your career.
+- For me, it's not like I am going to look at the money the director's film has made before their film... For me, it is about working with the director whose work I have admired.
+- I understand that ups and downs in life keep wavering, and it's important to understand them and why they happen. So I learn whatever I have to and then move forward.
+- I would watch films like 'Frances Ha' and 'The Squid and the Whale,' and wonder why we weren't making these beautiful slice-of-life movies. Then I thought, 'Why am I not doing it?'
+- 'Jab We Met' is the reason why I have become an actress.
+- I don't think I'm the best-looking actress around. I'm not Katrina Kaif; she is stunningly beautiful. There are some roles that might need a beautiful girl, and there would be a doubt in a director's mind whether he should cast me. But that perception will change with time. I'd like to believe actresses look better with experience.
+- I tell myself that if I start to listen to these people and start to let them decide how I should behave and what I should do, then this is not my life - it's theirs.
+- Life was so easy before I became an actor. I could talk to anyone, and no one bothered. I keep thinking to myself, 'Should I not be myself,' but I won't do that.
+- Just as you can't blindly follow fashion, you can't follow fitness, either.
+- I feel that in spite of having a big launch with 'RNBDJ' and the film doing well for me in terms of getting appreciation, I don't think it made me the next big thing.
+- I never come to know if somebody is in love with me; they will have to hold placards and say it.
+- If I know the guy is not interested, I don't fall in love. This is my safety.
+- I'm not gonna give anybody the power to control my life.
+- As an actor, I am careless with the way I look on screen.
+- When we worked together for 'Band Baaja Baaraat,' Ranveer used to be very anxious and hyper on set. He used to do weird things, but now he is calmer, less anxious. He's a better actor now.
+- I want to do a biopic as an actor. It's a thrill... I would love it if I am able to do a biopic.
+- I don't work for production houses. I only work for good scripts and roles. If you follow my career graph, you will find that I have not given a single flop yet in my career. I am proud of it.
+- The stereotypes attached to Bollywood were that it's a big, bad world or that it's a dirty world.
+- I don't like to talk about my personal life, so I will not talk about others. I don't give advice. I give advice to only my mother, father, and brother on health.
+- We all know that a beautiful face is an important aspect of an actor's personality if he or she wants to make it big in Bollywood.
+- It is very important for me that my clothes are comfortable and allow me to feel like myself and at ease.
+- I didn't like when people said that actresses have shelf life.
+- I don't want my guy to buy me cars, villas or diamonds. I can do all that. I don't want any PDA, either. But my guy should be very sensitive to my pains and sorrows and should try to make me happy because I'd do all that for him. Sadly, most of the men that I have met in the past couple of years are too self-obsessed.
+- I feel things are changing now. Actresses are working at same pace even after getting married or having kids.
+- When someone goes to watch my film in the theatre, they won't remember the last four articles they read about me. Instead, they will think about the last film I did.
+- For me, as an actor, it is brilliant that I can do both song-dance films and also something like 'NH10.' It is versatility which every actor aspires.
+- Nothing gives me more pleasure than acting. But I don't enjoy going for award functions or giving interviews.
+- I have no illusions of being an icon to young girls or anybody.
+- I'm paranoid about shopping. I get irritable. I find it tedious and taxing. People say shopping is retail therapy, but I need therapy after shopping.
+- I dont have a crush on anyone easily.
+- I am not against two-heroine films.
+- I find Tom Hardy very hot. About Bollywood actors, I dont think like that, as I know them.
+- After I turned producer, people asked me, 'Why are you taking up production? You are still so young and doing well.' Just because an actress decides to make movies, do people assume that her career is not going well?
+- It's difficult to judge yourself.
+- I just got exposed to electronica, and I really liked it. I am also good with alternative rock. I like Lana Del Rey, Adele, Dido, Jack Johnson, and I love the Beatles and the Beach Boys.
+- I can never be in the same place for too long. It feels like the world is caving in.

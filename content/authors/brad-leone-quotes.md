@@ -1,0 +1,53 @@
++++
+author = "Brad Leone"
+title = "Brad Leone Quotes"
+quotes_len = "47"
+description = "the best 47 Brad Leone Quotes"
++++
+- I've always had a deep connection with the ocean, and could never see myself landlocked.
+- Look, dry-aged meat is amazing and certainly worth buying when you can afford it.
+- I was once fortunate enough to live close to a strawberry farm, and I'd always get excited to drive past it on my way to and from work. Every day, I'd roll down the windows and take in that sweet, almost candy-like smell that was so strong it filled the whole area, including my car.
+- I don't plan my dinners at the beginning of the week.
+- I use my non-stick pans as very specific tools. They're my egg pans. They live by themselves, in a cabinet. They go in their own home. They will never get scratched.
+- They may be small, but microgreens are intensely flavorful, ranging from sweet to spicy to tart to sour.
+- And knife making is as much art as science, as far as I'm concerned: Forging metals from an old farm tool into a blade thin enough to effortlessly cut a tomato yet strong enough to mince ginger, all while looking beautiful, is comparable to Ginger Rogers dancing backwards in heels.
+- Stop cutting on a glass or bamboo cutting board and invest in a nice, handmade hardwood one.
+- Life's tough on the body and I'm a big fan of preventive maintenance.
+- There's a real connection and respect between you and the food that you have to hunt and gather yourself.
+- With archery, if you have good gear, you can't blame being bad on anyone but yourself.
+- I understand that world hunger can't be cured by us all going out and hunting our own food - but it certainly taught me respect for the environment and for the animals that call it home.
+- I live in a second-floor apartment. So when I'm grilling in the backyard, I want everything in one place.
+- People love salmon - but not all salmon is created equal. Farmed fish can be fed yucky things, with harmful side effects to both the fish themselves and to the waters they call home.
+- Use a rubber spatula when you make eggs. Maybe a wooden spoon.
+- I cannot stress this enough: the difference between a bowl and a smoothie is the time it spends in the blender.
+- I grew up and fell out of love with hunting, though I still appreciate the meats I grew up eating: braised rabbit, pheasant jambalaya, snapping turtle soup, and venison backstrap with eggs.
+- More kids should churn butter. That's how it was in the old days.
+- A good knife is an essential tool in the kitchen, but when you get one handmade, it becomes something special.
+- Dry-aging happens when meat has been left to hang out in a temperature- and moisture-controlled environment. Over time, the meat's natural enzymes begin to break down the connective tissue and rid the meat of moisture, which results in a rich, nutty, and tender piece of beef.
+- Not only does a good knife make cooking easier, but it makes it safer too. An 8-inch is the sweet spot when it comes to the perfect everyday size.
+- There's a new holiday tradition in my life, and it comes with an open door policy. Starting at 11 a.m. on Christmas Day, friends, family, whoever, is welcome to swing on through my place - I'll be cooking and drinking from morning till night.
+- I was always into playing outside as a kid; being outdoors is just a part of who I am. I owe this to both my parents, who exposed me to hunting and fishing at a young age.
+- Buying knives can be an intimidating experience. They come in all different shapes and sizes, all of which do certain jobs - you wouldn't want to use a slicer to core a tomato.
+- I'm a big Sunday guy. I'll do some wood work in the morning, making tables, cutting boards, desks, whatever with my buddy Adam. I usually start cooking dinner early.
+- Nice olive oil is fairly easy to find at your standard grocery store, but there are fewer options of nice vinegars.
+- Strawberries are like tomatoes for me; I just won't eat them year round. I'll happily wait for them to come into season, then I gorge like a brown bear eating salmon before hibernation.
+- Having so much nutrients and flavor in such a small plant really puts microgreens into the superfood category for me.
+- For me, shaping and sharpening knives is the perfect mix of a day of metal and woodwork, and seriously scratches my lifelong itch to make something with my own two hands - be it squid-and-veggie ramen or the fiberglass finish on a surfboard.
+- The butter churning process can get really messy, and having cream all over your kitchen isn't the best thing, especially if you're not the most thorough cleaner.
+- Instead of going into the kitchen all the time - I hate running up and down the stairs - I started using my Weber as a stovetop.
+- Since my job as Test Kitchen manager requires me to hit the Union Square farmers' market and various grocery and specialty stores on a daily basis, I get dinner inspiration during these trips.
+- Listen, I'm never going to be the kind of guy who wears Bose headphones on the street.
+- I'd love to hang out with sheep farmers in New Zealand for a week.
+- Submerging food in a bath of heated water - instead of subjecting it to the uneven heat of flames - means your food will never be overcooked.
+- The benefits of letting produce finish on their plant, in its natural environment, is undeniable.
+- Whether you're pulling inspiration from restaurants, or simply tweaking the dishes you already like, it's important to change up your rotation, even if it's only every once in a while.
+- I feel most people are so disconnected from their food - I try to not be one of those people.
+- You don't need a vacuum sealer to sous vide, but let me go on record saying it helps. Once you cook your vacuum-sealed food, it can stay in fridge for about a month.
+- An acai bowl has to be spoonable. It should be thick. You don't drink an acai bowl. There are no straws involved, none of that.
+- Most chefs only use and need a handful of knives - even if they own 25, they usually grab the same four or five.
+- I grew up in the northernmost parts of New Jersey, known more for lush forests and old farmland than industrial wastelands and fist pumping.
+- Letting the markets and seasons dictate my dinners means I never get bored or tempted to order takeout.
+- I always carry a pocketknife in my pocket for opening boxes, cutting a string, or whatever little thing comes up.
+- I'm the test kitchen manager, which means I'm in charge of sourcing all of our ingredients and kitchen equipment. I also manage the budget, help out on photo shoots, and generally coordinate all the moving parts to keep our kitchen functional.
+- I'm a big archery person. I grew up shooting bows. Some people play golf, I do this.
+- You guys have probably seen acai bowls on Instagram or at trendy coffee shops or wherever. They're a great source of energy, nutrient-rich, and a good way to get a ton of fruit into your diet. Plus, they shake up the normal breakfast routine and are as easy as smoothies to make.

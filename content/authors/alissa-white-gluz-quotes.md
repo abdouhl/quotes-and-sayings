@@ -1,0 +1,76 @@
++++
+author = "Alissa White-Gluz"
+title = "Alissa White-Gluz Quotes"
+quotes_len = "70"
+description = "the best 70 Alissa White-Gluz Quotes"
++++
+- In general, people that we meet in person are pretty cool people - always very respectful, just happy to be there, happy to enjoy the music.
+- We should be pointing out people's accomplishments rather than their looks, but if it can promote our band, why not?
+- Playing with my sister - we always had musical instruments lying around the house.
+- I'm always, always really health conscious - even more so on tour.
+- I work out a lot. I started to work out on the road as much as I can, but I work out a lot at home to keep myself in good shape.
+- The way I see it, I am lucky to be alive and well, and I only wish the same for others.
+- I've seen a couple of singer switches happen right before my eyes, one being Roy Khan to Tommy Karevik in Kamelot, and the other was Anette Olzon to Floor Jansen in Nightwish. Those happened with me present, and I saw how well the fans took to these singers because they were presented in the proper way.
+- I have read and heard so many stories from people all around the world describing how they've found their own reason to believe through Arch Enemy, and that genuinely inspires me and keeps me going.
+- Touring, it's really difficult to actually make a band work, and I think that's why there's so few bands that do work, actually, 'cause there's so much that goes into it.
+- Women in general have to think about certain things that men don't - like being safe in the street at night or something.
+- Anywhere we go in the States, people know we're from out of town: like, we stick out like sore thumbs. People are like, 'Freaks! Go cut your hair!' and whatever. It's a little weird.
+- The animal rights cause is something close to my heart and something I truly believe in.
+- I do guest vocals all the time.
+- I love doing clean singing, which is one of the main things that drives me back to Kamelot all the time.
+- If any female - or male - does something in order to get 'likes' on their video or to get fans, they're being exploited, and they're actually selling out to a certain extent.
+- It's almost like a theater, where I can play a character in every song, 'cause Kamelot songs are very... There's always a narrative going on. There's a story within albums and in songs, so I get to play a character and sing it in a different way than people might recognize coming from me.
+- We don't follow trends; I don't think we even set trends. We just do our own thing. We just do what we love. That's why Arch Enemy sounds like that.
+- I really like writing poetry and lyrics because it's one thing where I give up control. I don't feel like I need to be in control of it. I just sort of let it happen, and then I know when it's done. I know when it's finished.
+- I feel just as much a part of 'War Eternal' as I do 'Will to Power.'
+- I think that metal has always been, in my opinion, the most passionate form of music, and it only makes sense to actually be passionate about what you're saying when you're delivering music to people, whether it's through an album or for a live show.
+- I like to write lyrics when I feel it, and because of that, I like to keep a log of lyrics all the time.
+- I didn't have any doubts about joining Arch Enemy.
+- I agree that it's absurd to call a category of music 'female-fronted metal,' because if you look at Otep or Epica or Arch Enemy, we don't sound anything alike.
+- I wasn't raised in any way where I was forced to be a vegetarian, too. I always had the choice. My mom would say, 'I don't eat the stuff, so I won't cook it, but if you want to eat it, you can. Let me tell you why I don't eat it.' So she was open about it.
+- I don't want to die. I can't wrap my head around the concept of death because I'm totally atheist. There's nothing after life in my head, whether that's right or wrong.
+- It's totally natural to me to be vegan.
+- That's the thing: when I'm on stage, I don't care; there could be ten people there, there could be ten million people there. But if I'm offstage, I'm, like, counting the people. I know exactly where everyone's standing, how far they are from me.
+- I want to help everyone.
+- The most common time I write lyrics is the middle of the night.
+- When I was in high school, I started organizing fundraisers and other events for people like PETA and Greenpeace.
+- I have a hard time writing happy things. I really just don't find it that interesting for me personally to write about that.
+- It's fun for me, and I love singing Arch Enemy stuff without clean singing, but I think it would be cool to introduce it. It's just a matter of if it feels right.
+- I've worked as a singer in metal bands for over ten years now, so I've definitely kind of put in my time building that underground family, that underground, loyal fan base.
+- It's pretty clear I am a diehard Chris Cornell fan, so his voice, musicianship, and lyrics have touched me across many different projects.
+- Some people are really surprised that I can sing different ways.
+- I do think image is important in a band, because when I go see a show, I want to see a show; I don't want to just listen to the music.
+- There's this company called Vega that sponsors us, and basically, what it is is a vegan health optimizer. But really it's a protein shake that has all the vitamins, all the enzymes, all the minerals, all the carbs, all the proteins... everything that you need to set yourself for the day.
+- When I first started playing metal, lyrically, I sort of related a little bit more to the punk and hardcore scenes, where there was a lot more veganism and straight-edge people and people taking a stance for causes that they believe in.
+- I never had this idea, 'I wanna be a solo artist.'
+- Just because the gender of the vocalist is the same, that doesn't actually tell you anything about the sound of the band.
+- Adrenaline really numbs out all pain.
+- Fighting the ongoing war in your day-to-day life, everybody has their battle going on that nobody else knows about.
+- I've done music as a hobby, either in musical theater or just jamming with friends, pretty much for as long as I can remember.
+- As a female in metal, I'm going to get ostracized one way or another. So, if I'm going to have people hating me because I'm a female in metal, I might as well get people loving me because I'm a female in metal, too.
+- Lzzy Hale could sing me the dictionary, and I would swoon. She is so amazingly talented, and her voice is absolutely delicious.
+- We can do many different things as a band. But that doesn't mean we should do that. If we did all we're capable of, it doesn't necessarily mean we'd be writing better songs. None of us are huge fans of bands that seem to go, 'OK, I'm gonna sing for no reason and then scream for no reason just because I can.'
+- I think 'War Eternal' - if I'm allowed to say it - for me, it's a masterpiece.
+- That's one of the reasons I'm vegan. Death terrifies me. I don't want to impose death on anyone else.
+- I love 'hearing a person's face' in their music. I've been told by fans that they can tell when I'm smiling or feeling mischievous in my voice - that's a huge compliment.
+- I like musicals a lot. I think probably 'Jesus Christ Superstar' is my favorite. I love Andrew Lloyd Webber for the most part. It's rare that I'll find a musical that I don't like.
+- I had my first band. it was kind of a progressive metal band kind of thing. I just started writing songs that required more and more challenging vocals, and I just did them. Necessity is the mother of invention, right? So I just sort of did what I had to do to make the songs sound the way I wanted them to.
+- We never settle for 'This is good enough.' It always has to be amazing because that's the kind of music we'd want to listen to, and that's the kind of music we want to give to other people.
+- I never took lessons. And I never aspired to be a singer until I was one in a band.
+- I have a lot of people I think are important to me, a lot of different causes I like to talk about also.
+- A lot of my musician friends have the same kind of anxiety and panic when faced with crowds of people, and I do, too.
+- My parents, along with my brother and sister, are vegetarians.
+- When I hear from fans that they not only like the music but they're also very touched by the lyrics, or they also learned about a specific cause because of me, that's really rewarding.
+- I'm really excited to be a part of the 'Fallen Heroes' EP.
+- For some reason, people don't want to see a girl onstage. Whether it's a girl or a guy, if you like the music, who cares?
+- I am one of the few but very lucky people who grew up in a vegetarian household. So, I was vegetarian since birth along with my mother, sister, and brother.
+- For me, my 'will to power,' I guess, is just to live a positive life and spread positivity as much as possible to other people and other living beings and hope that with whatever audience I have for my voice, I can actually do some good in the world.
+- Often the 'lead' of a classical song will have something really cool to its melody that - even though it might be a violin or something doing it in the song - I end up wanting to try something like that with my voice.
+- Is it hard to be vegan? Absolutely not. It would be hard to not be vegan.
+- I think one of the reasons that Arch Enemy gels so well as people and musically is because we all share very similar values when it comes to human rights, animal rights... even politics, religion.
+- I haven't seen too many similarities between Montreal and American cities.
+- I've been vegan longer than I've been a singer. And it's definitely something that I try to put across in my work, but that's just because I really care about it.
+- 'Wages Of Sin' was the first metal album I ever bought, and it was love at first listen.
+- I feel very fortunate to be in a position to where I can continue to make music and have people appreciate it.
+- I think one of the things that makes Arch Enemy so unique is that we're five musicians who are all super self-critical but also super-driven.
+- Personally, I would never use sexuality or looks as a selling point.

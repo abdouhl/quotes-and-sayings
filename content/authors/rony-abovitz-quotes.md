@@ -1,0 +1,21 @@
++++
+author = "Rony Abovitz"
+title = "Rony Abovitz Quotes"
+quotes_len = "15"
+description = "the best 15 Rony Abovitz Quotes"
++++
+- We want to bring people back to normal human social relationships. Your digital stuff can be there, but it doesn't have to take over your whole world.
+- With Magic Leap, your brain doesn't distinguish what's real and what's Magic Leap. Because as far as your brain's concerned, it is real.
+- We believe the future of computing should be natural.
+- I grew up with 'Star Wars,' not 'Star Trek.'
+- When you are doing something neat, and you're doing it with neat people, and there is that convergence, something amazing will happen.
+- We want the digital world to bend to your physical life, your real emotional life as a person, and we don't want you to bend to computers.
+- Playing games is the dessert. Our real market is people doing everyday things. Rather than pulling your mobile phone in and out of your pocket, we want to create an all-day flow; whether you're going to the doctor or a meeting or hanging out, you will all of a sudden be amplified by the collective knowledge that is on the web.
+- My dad and my mom convinced me to go into biomedical engineering because they said astronauts going to Mars will need life support systems.
+- In our industry, there are so many competing companies and games, and they have people constantly out spying on competition. For example, Valve in Seattle tries to keep their location a secret.
+- Imagine you are walking in China, and all the billboards are in English. And at the restaurants, as the people are talking to you, there are live subtitles. You don't even realize you are in a computer; it's just happening.
+- For cool things to happen, you have to get out of your comfort zone.
+- South Florida's international connections mean there's a different kind of innovation here. We're able to intersect with a lot of brilliant people who are not associated with Silicon Valley.
+- I hope to build not the largest film and media studio in the world, but perhaps one of the coolest and also the most inclusive.
+- We treat human biology as our center point. Everyone already has a head-mounted display. It's your head!
+- What I like about South Florida is there's a good quality of life here; the cost of living is much lower than Silicon Valley.

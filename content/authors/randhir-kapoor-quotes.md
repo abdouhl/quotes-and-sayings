@@ -1,0 +1,92 @@
++++
+author = "Randhir Kapoor"
+title = "Randhir Kapoor Quotes"
+quotes_len = "86"
+description = "the best 86 Randhir Kapoor Quotes"
++++
+- We were facing a financial crunch in the early 1970s because Mera Naam Joker' didn't work and we suffered huge losses due to that. My father was very fond of Mera Naam Joker' and made it with a lot of passion, love and money according to those days. But it flopped.
+- At times I tell Kareena and Karisma that they should adopt me. Undeniably, I love to eat and booze, but I also tell them that even if I spend a lot of money, my finances will never lessen. My children are doing well, it is God's blessings.
+- Rajiv largely stayed with me, he had a house in Pune but he was mostly in Mumbai.
+- And Babita is in a happy space by herself. She's not got married again and nor does she intend to, neither do I. She continues to be my wife and I continue to be her incorrigible, horrible husband. So be it!
+- I had my boundaries and restrictions of doing films so I stopped working in the eighties. This was an era when films were more action oriented. Most of the characters cast in the pivotal roles were either daakus or police inspectors. My face suits neither of these characters. I cannot look like a daaku, so acting had taken a back seat.
+- I am a fan of Prabhudeva and wanted to work with him.
+- Half a bottle of Black Label and some good food at night are my only requirements.
+- My father believed in moving on with time; he always said that the show must go on, come what may. That is exactly what we did when it came to RK Studios.
+- I had a good career and I am from a well-to-do family; I have invested well.
+- I am not tech-savvy at all.
+- My life has always been an open book and it's not such an eventful life.
+- I tried to keep the Raj Kapoor spirit. Everybody is not a Raj Kapoor.
+- I don't get up before 12 P. M.
+- Rajiv was a very gentle and extremely jovial person. It is so tough to believe that he is gone.
+- Little ups and downs and high and low tides are there in everyone's career.
+- I don't work to earn my livelihood anymore.
+- I love my children very much and I am grateful that they too love me very much.
+- People do call her eccentric, moody but with me she has always been the same. I always talk about love with Rekha.
+- We're like the stock exchange - we know everything that's happening in the family. Since our kids are in the same profession, we all know how they're placed.
+- Of course, not everyone can be Raj Kapoor but that's how it is. That's how life is. People want to know about you when you are successful.
+- I'm fortunate I have my father's lovely bungalow with a big garden where the entire family can meet to sing, laugh, drink. No one remembers anything the next day!
+- I have no clue how I got COVID. I am surprised.
+- It was a small puja for Rajiv's chautha.
+- Every man cannot be Raj Kapoor, like how every singer cannot be Lata Mangeshkar or Mohd Rafi.
+- I am not in favor of making remakes.
+- Originally Jagte Raho was offered to Satyajit Ray to direct but he wasn't available. That's why the whole crew was Bengali in the film because Dada was supposed to direct it.
+- I am a very easy-going father at home - I am more of a friend than a parent.
+- Ranbir is a very intelligent actor and he is one of my favorite actor in the present generation. He is very good and he is very intense. He is doing a wonderful job and his choice of films is very good.
+- Everyday, I get up in the morning and I see a picture of my grandson in newspapers. Now everyone recognizes his maid also! That's because of the paparazzi.
+- Someone like Raj Kapoor is born once in 100 years. He was a one-man circus all by himself.
+- Whatever roles were being offered to me I selected from them and here I am.
+- Krishna Raj is being made into 17-18 floors, and all the floors will be with Rishi's family; it's not for sale.
+- While making my first film as a director, my father and grandfather used to ask me to explain the scenes by performing them myself first, so that I could improve my skills.
+- I like the common man character.
+- No one can be like Raj Kapoor as far as his vision is concerned, not even me.
+- Shashi saab had always wished that the traditions continue, even after he bids adieu to the mortal world. He didn't want any of us to mourn his death; his desire was to celebrate life in every form.
+- My father was my best friend. He was conservative and traditional, but at the same time, he wasn't strict.
+- I am very happy and satisfied with my Bollywood journey.
+- Everyone knows Karisma has always been a good mother.
+- I have never been a strict father.
+- I like my peace. I am happy in my space.
+- Yes, Super Nani' excited me, as it is my type of film. It is a proper family entertainer.
+- Well, I have a 24-hour nurse since I have a bit of problem in walking due to a nerve related issue.
+- My daughters and my three wonderful grandchildren make me feel on top of the world.
+- Karisma is a single woman. If she feels like going out with somebody, she can go out.
+- Kareena and Saif want to have a small, private wedding, and only the immediate relatives of the Kapoors and the Khans, and friends close to my children have been invited.
+- We Kapoors are very family-minded people. For us only family is important and we make it a point to attend each other's birthday parties and special occasions.
+- From day one, I was against Karisma marrying Sunjay.
+- There is always a hit and a flop, it's part of working in the film industry.
+- All that I have learnt about cinema is from my father but all that we have learnt about life is from my mother.
+- I'm quite a boring guy really.
+- I have no Facebook, Twitter or Instagram account.
+- You see I'm a very personal man. I might have a very large exterior but I am basically quite a sober and simple man.
+- People have often asked me to do a remake of Awara' with Rishi Kapoor and Ranbir Kapoor. When I took the idea few steps forward, we all got scared. Where will we get another Prithviraj Kapoor and Raj Kappor? Where will I get composers like Shankar-Jaikishen?
+- There have never been any fights in the Kapoor family. We are close to even our cousins - like the way Rishi's children and mine interact with Shashi and Shammi's children.
+- I should have directed more but I am a lazy person and have taken a backseat.
+- We were brought up as a close-knit family.
+- We all have to go one day. So I just want God to bless me with good health.
+- Everybody already knows everything there is to know about the Kapoors. No, I mean it. There's nothing about the Kapoors that people don't already know - about my father, my brothers, our children. We've been around for so long that people know everything.
+- All birthdays are good. You're getting closer to death. You're getting older. You can smile and laugh at it. It doesn't have to be bad.
+- In the evenings, I am like any other normal man who spends some time with his friends.
+- We are not white-skinned, we are not like them. We do not look like them. Why do we need to act in Hollywood movies? And I don't even think that Indian actors here want to do English movies.
+- Ranbir is having a terrific time with all the success and the money he's got, and age being in his favor too. Why does he have to get married and spoil it all so soon?
+- Divorce for what? Why should we head for divorce? I don't intend to get married again, and nor does she.
+- I can't ever think of writing a book or an autobiography. I'm a little private person.
+- Today, people think differently. Hrithik Roshan married a year after he made his debut and he is a superstar. No one cares about who's married or not.
+- We - my three brothers and two sisters - were extremely close to each other.
+- Everyone knows our credentials. We are Kapoors. We don't need to run after anyone's money. We have been blessed with not only money, but our talent can support us for the rest of our lives.
+- People didn't know much about Rajiv because unfortunately, he wasn't successful and that's the saddest part. He was a wonderful human being - warm and affectionate.
+- My grandchildren are my lifeline. I adore them and look forward to the time I get to meet and play with them.
+- Raampur Ka Lakshman' is one of my favorite.
+- I would want to get Karisma married again, but she isn't interested. We have spoken about it and she has clearly told me she doesn't want to start a family again.
+- I feel there is no harm in recreating songs.
+- Babita is happy where she is. We are certainly together, it is just that we decided to stay separately. She is still my wife and I am her husband.
+- I am very proud of my two grandchildren and I visit them very often.
+- I think I am a decent father.
+- Actors of today are made to do ridiculous steps. May be you can call them yoga asanas.
+- You don't need preparations for a family gathering. We have one almost every night where we meet, laugh, get drunk and come back home. We're one family that's happy among ourselves.
+- If you get good things, you must endure the tough times also.
+- I am very moody and I work only when I feel like it.
+- I was equally close to Rishi and Rajiv.
+- We have given our whole life to the film industry. We are grateful to everyone who has liked us and we wish that we can entertain everyone till the time we die.
+- Chintu, Chimpoo, and I interacted with each other every day. Chimpoo lived with me and Chintu either came to the office on the days that he wasn't shooting or spoke to me on the phone. We didn't need anybody when we three were together. We were a very happy circus by ourselves. We were a robust crowd!
+- For years now, I have had a great time and so has every single member of the Kapoor clan.
+- I love spending time with my grandkids, and Taimur is the youngest, so everyone is so fond of him. He is not cranky, but a bit naughty and, yeah, smart, too.
+- I am very happy for the respect shown towards my father, Raj Kapoor-ji, the greatest showman of Hindi cinema.

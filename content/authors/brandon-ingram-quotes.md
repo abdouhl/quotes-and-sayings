@@ -1,0 +1,104 @@
++++
+author = "Brandon Ingram"
+title = "Brandon Ingram Quotes"
+quotes_len = "98"
+description = "the best 98 Brandon Ingram Quotes"
++++
+- I'm a believer everything happens for a reason.
+- I try to make a name off someone before they make a name off me.
+- My motivation is to be the best I can be.
+- I'll do whatever the coach wants me to do.
+- In the two years that I've been in the NBA, I don't think I've played to my ability.
+- I've always been a shooter.
+- I like to play my game. I don't want to do anything out of control, out of nature.
+- Southern hospitality, that's where I come from.
+- I really don't do much. I play basketball.
+- LeBron's always like this: steady. Steady all the time. He's never forcing anything.
+- When I'm aggressive, all the other guys are aggressive, and somehow that's how we win games.
+- It's all about dressing how you feel.
+- I seen my dad work for like 16, 17 hours a day.
+- Eventually you get tired of losing.
+- Even Coach K thinks he can be a better coach each and every day.
+- The Duke family, those are my brothers, and it's something I'll always take with me. Coach K, he gives me a lot of motivational things and checks in on me and my family. He knows where my heart is.
+- I like George Gervin a lot, even as a guy that played a long time ago.
+- I think I can do everything on the basketball floor. I just gotta be consistent in what I do.
+- I think when you have 24 hours in a day to just think about basketball all the time, that's just what I want to do. I want to fall in love with it and just do everything I can to be the best at it.
+- I was always around basketball, from when I was four or five years old.
+- When I play my hardest, I feel like I'm one of the best on the floor.
+- I can shoot the basketball, I can get to the basket.
+- People around me, they can give me talks, they can tell me what to do, but if I don't have the right mentality, then nothing good is going to happen for me because I'm not going to be confident.
+- I think anybody would want to be compared to Kevin Durant.
+- I don't think I can be perfect, but I think I can be close to perfect if I continue to prepare and continue to do everything in my power to be the best version of myself.
+- Of course my goal at Duke was to win the national championship, but we were shorthanded, and lost one of our big guys that was very important to the team. By the end of the season we only played about six guys. But we tried our hardest and did our best and overall had a successful season.
+- What I'm learning about myself is, no matter what the challenge is, I can overcome it.
+- Don't take for granted things.
+- LeBron knows exactly who he is.
+- There are no other Kobe Bryants.
+- I'll do everything I can to reach my potential.
+- When I go on the basketball court, I don't think about who's guarding me.
+- Sometimes I can get lost in games.
+- Versatility is very important in the modern game.
+- I feel like I should be an NBA player.
+- My arm is so long, I kind of shoot over my head sometimes.
+- I was shooting over my head. With my long arms, it was like a slingshot. Coming from college to the NBA, I was only about 180 pounds, so I was trying to push the ball to the rim from the 3-point line.
+- Thirteen was my brother's number.
+- I like to be straightforward with whatever I'm doing, whether it's basketball, whether it's meeting someone, whatever it is.
+- Sometimes shots just don't go my way, but for me in my growth and as a leader, it's important for me to stay aggressive.
+- I'm not the most vocal guy, but I try to lead by example every single day with how I work.
+- I'm a filet guy, so I like steak.
+- You're always becoming; you've never arrived. And I use that day by day just for me to work hard each and every day, and know that no matter how good I worked out today, no matter how good I thought I was today, I can always get better and always be a better person.
+- That's all I seek every practice and every game, to progress in some way, be coachable and try to be the best I can be for my teammates.
+- I think as a player you're never satisfied.
+- Individually, yeah, I want to be the best version of me. But I want to make everyone else feel comfortable on the floor where they can go out there and they are just playing their game. That's when I'm the happiest, when every guy on the floor is just being that.
+- I just want to be better. Of course, I'm not satisfied... I'm just pushing every day.
+- It's OK to be hard on yourself, just know you have another chance to go out and prove yourself again.
+- My greatest strength is my scoring ability. I've scored the ball at every level.
+- I always see Lonzo dancing on social media.
+- I want to win. Whatever it takes to win, that's what I'll do.
+- When you want to play basketball and you get paid for playing basketball, you want to do it every single day. So I don't think I'll get tired of doing it.
+- I try to take whatever the defense gives me, have a sense of urgency, know who's guarding me and pick my spots, get my teammates involved and also attack the rim.
+- Playing one year under Coach K feels like you've played for three years. I learned so much from him; gained a lot of wisdom and knowledge from him.
+- If you can score the ball, it doesn't really how big or small you are.
+- I think when you have the point guard guarding someone full court and just chasing the guy all around, always in the right spot, it just makes you want to get down in a stance and be his backup and have his help whenever he needs it. Or having the same energy that he has.
+- I want to be versatile.
+- Ultimately, it was always my dream to be here in the NBA. I just took it serious. I knew if I put in the work I could eventually get here.
+- It's important for me to be aggressive and not defer.
+- It was fun getting my feet wet on an NBA floor.
+- If I'm not asleep, it's probably all basketball.
+- Work hard, work away from the game, work when no one's looking, and just knowing that it's a process. Everything will come at the right time.
+- I might do a hobby or go to the movies, but everything comes back to basketball.
+- There is always going to be another game and another day.
+- It could be the best defender or the worst defender. I have to have the attitude that I don't think anyone is going to deter me from getting to the basket. Maybe help defense can come over and affect it, but not the first guy.
+- When I was growing up, I drew my favorite basketball players.
+- Coach K tried to implement a style where we passing, moving the ball, the open guy gets the open shot, running in transition.
+- If you're not trying to win, there's no point in playing.
+- I think if you can score the ball, you can play at any level.
+- I don't like video games.
+- I grew up being a Kobe fan, of course.
+- I feel like I'm a matchup problem, but that's of course because of my height and the height difference at my position sometimes.
+- I always to try block everything out, good or bad. I always hope to keep receiving blessings, to have faith, because you know, there's a time to block everything out and just work on your craft, work on everything that you desire to get, desire to want.
+- I write music.
+- I just try to use my length to the best of my ability.
+- I think I'm a good enough ball handler to bring the ball up the basketball court, and my teammates do a great job of getting open.
+- I've always been an underrated passer.
+- When I draw defenders into the lane, it's easy for me to kick it out.
+- My decision to go to Duke wasn't a surprise to people who really knew me because I was always a Duke fan growing up.
+- Of course I've been compared to Kevin Durant.
+- I'm just happy to be drafted. It's my lifelong dream. Wherever I end up, I'll be happy.
+- I grew up playing bigger guys all my life, so it's nothing different.
+- My great aunt raised me for about four or five years. Something I took from her was a quote: 'Fear of suffering is far worse than suffering itself.' I actually have that tattooed on the back of my arm.
+- I feel like I'm a competitor. I hate to lose.
+- My job is just to continue to get better.
+- We try not to worry about our opponent. We try to worry about ourselves.
+- I just love playing basketball, so it's good being in the gym.
+- It's something that I have to learn to do: affect the game in a different way. If I don't get it on the offensive end, try to get it on the defensive end.
+- I feel like I gotta get out of myself sometimes. I think I'm in my own world sometimes. I don't like to let other people come into my own world. Especially with my teammates, my coaches, I should be doing that. The important people that need to know how I'm feeling. I can do a better job of telling them exactly how I feel.
+- I have the same routine every day just to make me a better basketball player, and I'm going to continue the routine just to see where it gets me and how I can reach my potential.
+- On my youth teams, I always pretty good. I guess I just really started to play with some of my peers around age 8 or 9. We always battled and had fun playing in the rec leagues.
+- I don't do anything else but play basketball.
+- I'm just kind of laidback and reserved.
+- J. Cole is definitely one of my favorite artists, but I like a lot of different music.
+- I lay back and see how I can do things the right way.
+- Without basketball, I'd have no idea what to do.
+- Seeing bigger guys doesn't scare me at all. It just makes me want to compete against those guys. Bigger or smaller guys - it doesn't matter.
+- I definitely want to show that I'm going to be a reliable guy to put in the work.

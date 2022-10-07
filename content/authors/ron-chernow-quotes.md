@@ -1,0 +1,79 @@
++++
+author = "Ron Chernow"
+title = "Ron Chernow Quotes"
+quotes_len = "73"
+description = "the best 73 Ron Chernow Quotes"
++++
+- When you're a biographer, you want to explore the very things that your subject didn't care to talk about.
+- A crash really occurs when you suddenly have a violent downturn in the market that then heralds a long bull market.
+- There is no country in the world where it's as easy to find venture capital in the stock market as the United States.
+- As a bull market continues, almost anything you buy goes up. It makes you feel that investing in stocks is a very easy and safe and that you're a financial genius.
+- If you go back to the time of J.P. Morgan, the world of high finance was completely wholesale. The prestigious investment banks on Wall Street appealed exclusively to large corporations, governments, and to extremely wealthy individuals.
+- Any bull market covers a multitude of sins, so there may be all sorts of problems with the current system that we won't see until the bear market comes.
+- Hamilton had one of those extraordinary 18th-century minds that touched on virtually every major topic of the day.
+- In the 1920s you could buy stocks on margin. You could put 10 percent down and borrow the rest against your stocks.
+- I'm a biographer; I can live with a little hyperbole.
+- I felt blessed by the existence of Horace Porter's 'Campaigning With Grant.'
+- I always sympathize with people who complain about the length of my books. It would take me a year to get through one of them.
+- I find that when I come upon something that I think is a historical revelation, I have the sort of adrenaline rush that I imagine a gambler gets in Las Vegas when he hits the jackpot. It's still tremendously exciting to me, and I think all of my peers in the business feel the same way.
+- There is a kind of fear, approaching a panic, that's spreading through the Baby Boom Generation, which has suddenly discovered that it will have to provide for its own retirement.
+- Every time I wrote fiction, I was discouraged, and every time I wrote nonfiction, I was encouraged.
+- Stock market corrections, although painful at the time, are actually a very healthy part of the whole mechanism, because there are always speculative excesses that develop, particularly during the long bull market.
+- I'm disturbed by the words missing from the Trump campaign: Liberty, justice, freedom, and tolerance.
+- In the 1920s, Wall Street was a world that was really dominated by professional speculators and stock pools. These people had a monopoly over information.
+- Because of the love affair between the American public and the stock market, it is possible for entrepreneurs, technological visionaries and inventors of every sort to get financing.
+- It's a shameful thing to admit for someone who writes such long books, but I read so slowly that I almost subvocalize.
+- Mutual fund managers are trapped in this rather deadly vicious circle: the more successful they are, the more money flows into their mutual fund. Then, it is more difficult for them to beat the market averages or even to match their own past performance.
+- Ultimately, the appraisal of Grant's presidency rests upon posterity's view of Reconstruction.
+- When the market is just going up, up, and up, we all tend to be blind to the holes in the market. They're all papered over by the rise.
+- Writing about dead white males seems to be out of favor among academics.
+- Hamilton was young, dashing, and romantic. He lent himself perfectly to be the star of a musical.
+- I'm sure there are many more people who can identify with failure and hardship in life than with the success of an Alexander Hamilton or a John D. Rockefeller.
+- I never imagined that Hamilton would be turned into a musical, much less a hip-hop musical. I think I can safely say that that's the last thing I would have expected.
+- After being Washington's aide for four years and becoming the hero of Yorktown, Hamilton was viewed with a great deal of suspicion because of his association with Tories.
+- The founding fathers were not only brilliant, they were system builders and systematic thinkers. They came up with comprehensive plans and visions.
+- The history of Wall Street is inseparable from New York.
+- One of the very nice things about investing in the stock market is that you learn about all different aspects of the economy. It's your window into a very large world.
+- Unless we know where we've been as a country, we don't know where we are or where we are going.
+- In the 1970s we saw a massive shift of household savings from the banks to the brokerage firms.
+- Early on, New York already had a national and even international identity.
+- I have developed a very strong partiality for the dead: they don't talk back, they don't sue, and they don't have angry relatives.
+- The public has lost faith in the ability of Social Security and Medicare to provide for old age. They've lost faith in the banking system and in conventional medical insurance.
+- We really haven't had very much experience with people funding their retirement out of the stock market, and we don't know, frankly, how it would work under every scenario.
+- Politics boils down to the stories we tell ourselves. And unfortunately, we tell ourselves different stories.
+- The story of Alexander Hamilton lends itself to hip-hop treatment. Hamilton's personality is driven and unrelenting, and the music has that same quality. The music and the man mirror each other.
+- You don't want too much fear in a market, because people will be blinded to some very good buying opportunities. You don't want too much complacency because people will be blinded to some risk.
+- A lot of the money in the stock market is really our national retirement plan, for better or worse.
+- The thing with all the Founding Fathers, one of the most common words they used was 'posterity.' They were constantly referring to posterity.
+- When news of the crash came, probably a lot of people in small towns and farms across America felt a sense of grim satisfaction that the sinners had finally been punished for their wicked ways.
+- Hamilton was extremely combative. Not only was he combative, but he also overreacted to anything he perceived as a threat or a criticism.
+- I think one of the important things that's happened in the course of the century is that life expectancy has doubled.
+- There were 900 books on Washington when I began writing on him.
+- By the late 1980s people realized that houses did not always appreciate and that they could fluctuate like any other market commodity.
+- There were two qualities about the mutual funds of the 1920s that made them extremely speculative. One was that they were heavily leveraged. Two, mutual funds were allowed to invest in other mutual funds.
+- Hamilton had a certain social versatility, and in a way, that is understandable because he's someone who rises up from the lowest rungs of society and then scales the top. And he gets to know people from every strata along the way.
+- The securities laws of the 1930s were so important because it forced companies to file registration statements and issue prospectuses, and it remedied the imbalance of information.
+- The Great Inflation of the 1970s destroyed faith in paper assets, because if you held a bond, suddenly the bond was worth much less money than it was before.
+- With any piece of writing, you're hoping that it will change something, and it seldom does.
+- The best argument for mutual funds is that they offer safety and diversification. But they don't necessarily offer safety and diversification.
+- I was quite bowled over by Isabel Wilkerson's masterly saga, 'The Warmth of Other Suns.'
+- Once the brokerage house, rather than the bank, became the locus for American savings, that money would find its way into the stock market, because the broker was someone with a much higher tolerance for risk than the banker.
+- I don't think that a mutual fund that invests exclusively in biotech start-ups or invests exclusively in companies in Thailand offers any great safety or diversification.
+- The mutual fund industry and small investors are very relentless and very unforgiving if people don't perform.
+- Mutual funds have historically offered safety and diversification. And they spare you the responsibility of picking individual stocks.
+- That strategy of buy and hold, which is the sound and sensible one for the individual, can have very dangerous and perverse effects for the market as a whole.
+- I'm dubious about having Social Security put into the stock market. I think that we have gotten very far away from the idea that there's something sacrosanct about retirement investments.
+- I think there's a tide that tends to carry historians back to the past.
+- Partly because his life ended before the age of 50, Hamilton was defined by the other founding fathers, and he managed, with amazing consistency, to alienate most of them.
+- One of the special characteristics of New York is that it is different from a London or a Paris because it's the financial capital, and the cultural capital, but not the political capital.
+- As the bull market goes on, people who take great risks achieve great rewards, seemingly without punishment. It's like crime without punishment or sex without sin.
+- I think those who invest in mutual funds want someone else to do the thinking for them. But the fact that they can move the money around the family of mutual funds just through a phone call lets them feel that they can play tycoons.
+- I never dreamed that I would be autographing Playbills.
+- The American public historically was really not part of the stock market.
+- In many ways, the North won the Civil War militarily and then lost the peace. You know, a group of writers, included many Confederate generals, began a school of thought called the Lost Cause in which they began to romanticize the Confederacy.
+- Reconstruction is the great black hole that remains to be filled. Even experts on the Civil War don't really understand its full significance.
+- After 1929, so many people had been traumatized by the stock market crash that there was a lost generation.
+- Strange as it may seem, George Washington's life has now been so minutely documented that we know far more about him than did his own friends, family, and contemporaries.
+- I just have been so surprised and delighted with what has happened with 'Hamilton.' It really has been one of the most enchanting experiences of my life.
+- Mutual funds give people the sense that they're investing with the big boys and that they're really not at a disadvantage entering the stock market.
+- What I find very interesting about the mutual funds managers is that here are people who are the new masters of the universe. They're managing billions, yet they're subject to this quiet daily tyranny of numbers.

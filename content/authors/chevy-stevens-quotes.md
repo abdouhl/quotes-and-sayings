@@ -1,0 +1,21 @@
++++
+author = "Chevy Stevens"
+title = "Chevy Stevens Quotes"
+quotes_len = "15"
+description = "the best 15 Chevy Stevens Quotes"
++++
+- Each day when I'm walking with my dog through the damp forest, I'm thinking about the atmosphere, and it often works its way into my next scene somehow.
+- For 'Never Knowing,' I outlined it and then blocked it out on my office wall with index cards, but things still happened organically.
+- If you want to become a writer, you do need to be willing to make sacrifices.
+- Some newer writers worry about books set in Canada having a big appeal, but it has never been an issue for me. I haven't wanted to write in the States because I don't know the States.
+- I try to only read light things when I'm working on my books, and in the evenings I watch a lot of mindless TV. I have to break up the 'dark,' or I wouldn't be a very happy person.
+- It's not like I wake up every morning and just can't wait to write. It is my job. It's much easier to not write. I'd rather read. This is my income. This is what supports my family. Having a child is a pretty big incentive to keep working.
+- It feels wonderful to get praise from other authors who I admire, but with each new book, my confidence is always the thing I struggle with the most until I start getting positive feedback from readers.
+- Pain leaves a mark, the degree depending on the person and the event.
+- When I started 'Still Missing,' I had a few key plot points in mind, which I played around with mentally for a couple of months, then one day I just started writing. Not having an outline led to some cool plot twists, but also many rewrites! A lot of the plotting happened on subsequent drafts.
+- I didn't go to university or get a degree, but I hired somebody as a mentor - and that I considered my university education.
+- Unfortunately, there's still a lot of beginning writers who think you can just write your first draft and hand it in.
+- As much as writing is an emotional experience, it is a business as well. Coming from a business background, I treat it as such.
+- When I first started writing 'Still Missing,' I didn't actually realize I was writing a thriller. I thought it was more women's fiction, but during the many years of rewrites, I kept taking out the boring parts, and then my agent informed me that I had written a thriller.
+- I was supposed to be cleaning out the barn, but I was usually reading romance novels. That's how you grow up to be a thriller writer.
+- In this day and age, you can write anywhere in the world. You can really live anywhere and have the same career.

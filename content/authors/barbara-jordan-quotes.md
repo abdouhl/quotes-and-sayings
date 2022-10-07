@@ -1,0 +1,47 @@
++++
+author = "Barbara Jordan"
+title = "Barbara Jordan Quotes"
+quotes_len = "41"
+description = "the best 41 Barbara Jordan Quotes"
++++
+- What we have to do is strike a balance between the idea that government should do everything and the idea, the belief, that government ought to do nothing. Strike a balance.
+- A government is invigorated when each of us is willing to participate in shaping the future of this nation.
+- I felt somehow for many years that George Washington and Alexander Hamilton just left me out by mistake. But through the process of amendment, interpretation, and court decision, I have finally been included in 'We, the people.'
+- It is reason, and not passion, which must guide our deliberations, guide our debate, and guide our decision.
+- Education remains the key to both economic and political empowerment.
+- We are a party of innovation. We do not reject our traditions, but we are willing to adapt to changing circumstances, when change we must. We are willing to suffer the discomfort of change in order to achieve a better future.
+- We must not become the new puritans and reject our society. We must address and master the future together. It can be done if we restore the belief that we share a sense of national community, that we share a common national endeavor. It can be done.
+- There is no executive order; there is no law that can require the American people to form a national community. This we must do as individuals and if we do it as individuals, there is no President of the United States who can veto that decision.
+- Life is too large to hang out a sign: 'For Men Only.'
+- I believe that women have a capacity for understanding and compassion which man structurally does not have, does not have it because he cannot have it. He's just incapable of it.
+- Our concept of governing is derived from our view of people. It is a concept deeply rooted in a set of beliefs firmly etched in the national conscience, of all of us.
+- We call ourselves public servants but I'll tell you this: we as public servants must set an example for the rest of the nation. It is hypocritical for the public official to admonish and exhort the people to uphold the common good.
+- Let each person do his or her part. If one citizen is unwilling to participate, all of us are going to suffer. For the American idea, though it is shared by all of us, is realized in each one of us.
+- I never intended to become a run-of-the-mill person.
+- If we promise as public officials, we must deliver. If we as public officials propose, we must produce.
+- One thing is clear to me: We, as human beings, must be willing to accept people who are different from ourselves.
+- In other times, I could stand here and give this kind of exposition on the beliefs of the Democratic Party and that would be enough. But today that is not enough. People want more.
+- But this is the great danger America faces. That we will cease to be one nation and become instead a collection of interest groups: city against suburb, region against region, individual against individual. Each seeking to satisfy private wants.
+- Do not call for black power or green power. Call for brain power.
+- We must exchange the philosophy of excuse - what I am is beyond my control for the philosophy of responsibility.
+- The imperative is to define what is right and do it.
+- We have a positive vision of the future founded on the belief that the gap between the promise and reality of America can one day be finally closed. We believe that.
+- I have confidence that we can form this kind of national community.
+- If you're going to play the game properly, you'd better know every rule.
+- I think it no accident that most of those emigrating to America in the 19th century identified with the Democratic Party. We are a heterogeneous party made up of Americans of diverse backgrounds.
+- Let there be no illusions about the difficulty of forming this kind of a national community. It's tough, difficult, not easy. But a spirit of harmony will survive in America only if each of us remembers that we share a common destiny.
+- Throughout out history, when people have looked for new ways to solve their problems, and to uphold the principles of this nation, many times they have turned to political parties. They have often turned to the Democratic Party.
+- Even as I stand here and admit that we have made mistakes I still believe that as the people of America sit in judgment on each party, they will recognize that our mistakes were mistakes of the heart. They'll recognize that.
+- There is no obstacle in the path of young people who are poor or members of minority groups that hard work and preparation cannot cure.
+- Let's all understand that these guiding principles cannot be discarded for short-term political gains. They represent what this country is all about. They are indigenous to the American idea. And these are principles which are not negotiable.
+- Think what a better world it would be if we all, the whole world, had cookies and milk about three o'clock every afternoon and then lay down on our blankets for a nap.
+- We cannot improve on the system of government handed down to us by the founders of the Republic. There is no way to improve upon that. But what we can do is to find new ways to implement that system and realize our destiny.
+- We have made mistakes. In our haste to do all things for all people, we did not foresee the full consequences of our actions. And when the people raised their voices, we didn't hear. But our deafness was only a temporary condition, and not an irreversible condition.
+- What the people want is very simple - they want an America as good as its promise.
+- More is required of public officials than slogans and handshakes and press releases. More is required. We must hold ourselves strictly accountable. We must provide the people with a vision of the future.
+- We are a people in a quandary about the present. We are a people in search of our future. We are a people in search of a national community.
+- Let us heed the voice of the people and recognize their common sense. If we do not, we not only blaspheme our political heritage, we ignore the common ties that bind all Americans.
+- The citizens of America expect more. They deserve and they want more than a recital of problems.
+- A nation is formed by the willingness of each of us to share in the responsibility for upholding the common good.
+- We are a people trying not only to solve the problems of the present: unemployment, inflation... but we are attempting on a larger scale to fulfill the promise of America.
+- For all of its uncertainty, we cannot flee the future.

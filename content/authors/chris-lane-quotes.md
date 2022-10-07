@@ -1,0 +1,53 @@
++++
+author = "Chris Lane"
+title = "Chris Lane Quotes"
+quotes_len = "47"
+description = "the best 47 Chris Lane Quotes"
++++
+- I graduated college and moved back home, started helping my dad, did landscaping for a living.
+- Thanksgiving Day, we do a huge lunch. Big family, like, 60 people, we get together. Everybody brings a covered dish, everybody brings a dessert, and we go all out.
+- My true dream, ever since I was a kid, was to play professional baseball. It's something that I worked my whole life for. But that didn't work out with the knee surgeries and whatnot.
+- Everything evolves, not just music.
+- When I named it 'Girl Problems,' I knew I would be inviting some interesting questions and some funny questions, but that was the cool part about it - I wanted that.
+- It's easier for fans to consume one or two songs at a time. Not everybody buys records, so some songs can get overlooked.
+- Once I got into the music, I realized that I had a passion for it that far outweighed what it was for baseball.
+- It's not easy to stand out as a young artist.
+- Every one of my guy friends I played baseball with were Backstreet Boys fans as well. So it's not something I felt like I needed to hide.
+- I learned from watching Florida Georgia Line every night. The energy that they possess on stage, that's something that I wanted in my show.
+- 'Fix' - definitely, when I first heard the demo of that song, it was kind of intimidating because of the high falsetto parts. It was one of those things. I got into the vocal booth and wasn't sure I could do it or how well I could do it. There was something about the song that I really took to.
+- Growing up, I always considered the Grand Ole Opry to be hallowed ground.
+- All me and my brother knew was sports - music was never something I ever really thought of.
+- It's really cool to see people show up at the shows night after night, and they're screaming the words of the song.
+- I feel like everybody has an old flame: if you've had someone you've broken up with and then gotten back together with. Everybody goes through that. It's always a good moment when you've been away from somebody you loved for so long.
+- Country music, to me, is what I grew up on.
+- When I first started as a cover band, I built everything based on hanging out every night after the shows and talking to as many people as I can and making relationships.
+- You've got Chris Stapleton doing what he's doing, and Sam Hunt, Florida Georgia Line... Everyone has their own lane, and we felt like the falsetto was my lane.
+- I feel like I found a sound that is unique to country music, in my own lane.
+- After going to a few Keith Urban concerts, I thought, 'I'd really like to learn how to play guitar.' I studied Keith Urban a lot and how he performed.
+- I grew up playing sports, and my dad was always really into that, very passionate about that, as was I, but even my passion for music far outweighs what it was for sports. That's hard for me to believe. And it's hard for me to believe that my parents' passion for music far outweighs their passion for sports, but it does.
+- When it comes down to it, it's all about good music and what makes people react. That wins over everything else.
+- I'm very much into 'The Bachelor,' that is for sure.
+- A moment for me that changed everything was hearing my song on the radio for the first time.
+- There's something great about having all the attention and focus. I mean, you can't beat that.
+- Nashville is a pretty small place.
+- I helped my dad do landscaping from when I was 14, and then every summer when I'd come home for college, I'd play on a travel baseball team, but during the day, I'd do landscaping.
+- Back when I was growing up, if I loved a song, I would record it off of the radio so I could hear them as many times as I wanted.
+- 'Fix' was a song that definitely put me on the map and changed everything for in me my career. I'm really thankful for it.
+- Hydroxycut keeps me going while on tour. It's a grind on the road, and I'm excited to be joining the team.
+- I'm a horrible dancer, but I wanted to record songs that made me want to dance.
+- Country music has room for a little bit of everything.
+- I feel like the falsetto is my niche and my sound and something different.
+- I've always been a huge fan of Garth Brooks, Alan Jackson, and George Strait. That's what I grew up on. But I also loved Usher and Justin Timberlake.
+- I think the average country music fan grew up the same exact way that all the artists did, listening to hip-hop and country and R&B and pop and whatever it may be.
+- I am very focused on making 2017 the best year ever for my fans, and Hydroxycut will play a big part in giving me a boost from my first show to the very last.
+- It's easy to get people to sing along to cover songs, but when it's your song, it's the coolest.
+- I'm obsessed with golf, so I love going to play golf.
+- Music was something that nobody in my family does.
+- When I started out as a cover band, I was obsessed with Keith Urban and Jason Aldean and Eric Church; those are the songs I chose to sing as a cover band.
+- I still love R&B - I kind of literally listen to everything.
+- I grew up playing football and baseball and moved on to play college baseball, and, you know, as a kid, my dream was to play professional baseball.
+- Golf during the day, music during the night - it don't get much better.
+- There's always going to be people who say, 'This ain't country.' But that's fine; that's how it is. Those same people aren't listening to Sam Hunt, aren't listening to FGL. But obviously, a lot of people are.
+- I was honored to have the chance to perform on 'The Bachelor.'
+- I'm a huge fan of Rascal Flatts and a huge fan of Kelsea Ballerini, too.
+- I have always been attracted to songs that make me want to dance.

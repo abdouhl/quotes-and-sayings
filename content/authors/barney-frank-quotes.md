@@ -1,0 +1,63 @@
++++
+author = "Barney Frank"
+title = "Barney Frank Quotes"
+quotes_len = "57"
+description = "the best 57 Barney Frank Quotes"
++++
+- Television is apparently the enemy of nuance. But nuance is essential for a thoughtful discussion.
+- If people knew of ethics violations, they should have sent them to the Ethics Committee. If you think there was serious ethics violation that ought to be looked at, you don't hold it back for retaliatory purposes.
+- And unless you think there is a serious chance you're going to jail, don't listen to your lawyer.
+- I think there was an absolute, deep gap between consensual relations between adults, which people may like or dislike, and people who physically impose themselves on children or misuse their authority to impose on children.
+- I will tell you, I'm a lousy cook, but I think I'm a pretty good judge of a good meal.
+- Legislators have a formal set of responsibilities to work together, but there's no hierarchy.
+- Most people who are activists and are concerned about issues get their information from sources which reinforce their opinions and give them the facts that they want to hear.
+- I had always been interested in politics. I had assumed, for a variety of - well, for two reasons, being Jewish and being gay back in the late '50s, early '60s - that I would never be elected or anything, but I would participate as an activist.
+- There's a lot to be said for not displacing people.
+- But here too it should be noted that the President's approach was to first ask the repressive and brutal Taliban to surrender Osama bin Laden to us, and only after that government refused to do that did we invade.
+- People are entitled to the presumption of innocence.
+- In this view, the role of the great majority of Americans is simply to buy the products produced, work happily for their wages, and leave all of the significant economic decisions to the capitalists.
+- It is, of course, further indication that a fundamentalist right has really taken over much of the Republican Party, People might cite George Bush as proof that you can be totally impervious to the effects of Harvard and Yale education.
+- What's troubling is that the Republicans to defend Mr. DeLay are weakening the ethics process.
+- Before this learning experience, I had assumed that with regard to programs that sought to help people out of poverty, the political world was essentially divided into two camps: conservatives who opposed these for a variety of reasons, and liberals who supported them.
+- It wasn't until after I was reelected in 1982 that I thought of myself as a long-term member of Congress.
+- I am not a great theologian. I know there is a theological concept called invincible ignorance in which a strong enough faith binds you to any facts to the contrary.
+- Well, I don't give it out very often, but I reject the notion that you have to be a practitioner to give good advice.
+- They appear to have become so attached to their outrage that they are even more outraged that they won't be able to be outraged anymore.
+- The fact that they're a congressionally chartered group should no more incline people to give to that group than the fact that it's National Pickle Month should make them eat more pickles.
+- Pat Moynihan could write books with one hand and legislate with the other. I can't; I have a short attention span. The slightest distraction would take me away from writing.
+- In America, unlike England, unlike Israel, unlike Japan, other democracies, we have elections that have staggered terms.
+- I hope we will not so characterize religious people as being so narrow and so biased towards people not of their own religion that they cannot even work with them in this common cause to which you say they are committed.
+- As a liberal, I am morally obligated to be pragmatic. What good do I do poor people, elderly people, people who are being discriminated against because of their sexual orientation if I'm not realistic about accomplishing something.
+- Well, many of us believe that excessive media concentration is a subject that ought to be addressed, and it is, of course, the intention of the majority party not to allow that to be discussed.
+- I'm antisocial - there's no question about it.
+- I'm a good legislator. I'm a bad some other things.
+- It seems to me that politicians ought to use the same words as other people.
+- I have been mislabeled as a big advocate of low-income home ownership over rental.
+- This bill is the legislative equivalent of crack. It yields a short-term high but does long-term damage to the system and it's expensive to boot.
+- Now, most of the time I'm going to agree with the Democrats and disagree with the Republicans.
+- There's only one thing you can do in bankruptcy: break your word, break your deals. It allows you to say to the small businesses, who have been catering lunches for you, 'Sorry, we're not paying you.' It allows you to go to the workers and say, 'Sorry, we're not paying you.'
+- The Clinton tax increase - which was an increase in taxes primarily on upper-income people - not only made the tax code more nearly progressive, it preceded one of the most productive economic periods in American life.
+- When community action was put into federal law in the early sixties as part of the effort to combat poverty and social injustice, I supported it intellectually.
+- But it is also clear that left entirely untouched by public policy, the capitalist system will produce more inequality than is socially healthy or than is necessary for maximum efficiency.
+- Today, many people take for granted the notion that people whose lives are going to be very heavily affected by public policies should have a say in how they are formulated and carried out.
+- Community action is as valuable a principle on the international level as it has been domestically.
+- For most of my life, I have eaten to deal with stress.
+- What would be the nicest thing I could say about Newt Gingrich? He may be one of the great supporters of the humanities, because you have people who don't want to study the social sciences, because it's not profitable, and now Newt, as the highest-paid historian in American history, may be an encouragement to people to study history.
+- Increasing inequality in income distribution in this country has broader policy implications, and there is also the growing problem of perverse incentives that result from executives receiving grossly disproportionate compensation based on decisions they themselves take.
+- I filed the first gay rights bill in Massachusetts history in 1972 in the legislature, one of the first in the country.
+- I'm used to being in the minority. I'm a left-handed gay Jew. I've never felt, automatically, a member of any majority.
+- I have done a lot of work for affordable housing, rental housing. I understand the rap on me and other liberals is, oh, we push poor people into homeownership. And it's exactly the opposite of the case. We were trying to prevent those kinds of bad loans.
+- But on those occasions when I do strongly disagree with the Democrats and I don't say anything, I think I forfeit my right to have people pay attention to me when I say the things that I don't like about what Republicans are saying.
+- But when others suggested that the poor should not simply be the objects of these programs but also the subjects - that they should be actively involved in shaping the programs, making decisions about how to spend the money etc. - some of the previous supporters reconsidered.
+- I am very proud of the role I played in getting legal equality for people who are lesbian, gay, bisexual and transgender, and in helping get rid of the prejudice by being visible about it, helping to block the conviction of Bill Clinton of impeachment.
+- Capitalism works better from every perspective when the economic decision makers are forced to share power with those who will be affected by those decisions.
+- The left and the right live in parallel universes. The right listens to talk radio, the left's on the Internet and they just reinforce one another. They have no sense of reality. I have now one ambition: to retire before it becomes essential to tweet.
+- It is because the fight against the harshest aspects of unrestricted capitalism is therefore a political problem and not an intellectual one that community action remains so essential.
+- The regulation of medicine has been a State function.
+- While I was pleasantly surprised by the relatively high number of jobs created in April, the fact is that job creation during this recovery period has significantly lagged both historical experience in recovery, and the projections of the Bush Administration.
+- Lawyers are very, very good at keeping you out of prison, but they will sacrifice your reputation and credibility to do so.
+- I was still closeted, but from the day I decided to run for office, knowing that I was gay, I decided that I would, of course, still be closeted but that I would work very hard for gay rights. It would be totally dishonorable, being gay, not to do that. So I had that as kind of a secondary agenda.
+- For many of those who had historically supported welfare programs in the broadest sense, it was perfectly reasonable to enact legislation in which poor people were the objects of efforts to assist them.
+- Let us not say that we will decide on a political basis at the national level that no State is competent to regulate the practice of medicine in that State if they decide to allow a doctor to prescribe marijuana, because that is what we are talking about.
+- Martin Luther King said, and it is sadly still true, that one of the most segregated times in America is the hour of worship.
+- And I think there is too much bloviating around from politicians.

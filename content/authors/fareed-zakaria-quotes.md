@@ -1,0 +1,66 @@
++++
+author = "Fareed Zakaria"
+title = "Fareed Zakaria Quotes"
+quotes_len = "60"
+description = "the best 60 Fareed Zakaria Quotes"
++++
+- I very much want to be in the business of creating content, of doing stories all over the world rather than figuring out what the business model is for 'Newsweek' on the iPad, although that's very important work as well.
+- The Chinese economy's still not that much of a consumer economy.
+- Having your fiscal house in order and having a more manageable macro-economic future is going to be very useful in creating growth.
+- But as the arms-control scholar Thomas Schelling once noted, two things are very expensive in international life: promises when they succeed and threats when they fail.
+- The world is changing very profoundly.
+- I am an American, not by accident of birth but by choice. I voted with my feet and became an American because I love this country and think it is exceptional.
+- The tallest building in the world is now in Dubai, the biggest factory in the world is in China, the largest oil refinery is in India, the largest investment fund in the world is in Abu Dhabi, the largest Ferris wheel in the world is in Singapore.
+- It hasn't been easy to find American citizens who are willing to pick fruit in 110 degree weather.
+- Politics and power is a realm of relative influence.
+- I think it is quite untrue that it is standard journalistic practice to name the interviewer when quoting from an interview.
+- What we see today is an American economy that has boomed because of policies and developments of the 1950s and '60s: the interstate-highway system, massive funding for science and technology, a public-education system that was the envy of the world and generous immigration policies.
+- If a senator calls me up and asks me what should we do in Iraq, I'm happy to talk to him.
+- I think that liberals need to grow up.
+- Americans have so far put up with inequality because they felt they could change their status. They didn't mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense - the idea that anyone can make it.
+- If there is one lesson for U.S. foreign policy from the past 10 years, it is surely that military intervention can seem simple but is in fact a complex affair with the potential for unintended consequences.
+- I grew up in Mumbai.
+- My friends all say I'm going to be Secretary of State. But I don't see how that would be much different from the job I have now.
+- CNN is getting smarter, and you can feel it in the stories, you can feel it in the depth with which they're covered, the kinds of people in terms of guests who are brought on air, the way in which issues are discussed.
+- One of the great dilemmas for America will be that American companies will do very well while American workers might not.
+- If you go to India the roads are being built almost entirely with private sector money and by the private sector. If you look at many, many countries in Europe that's how they're doing it.
+- I'm largely in favor of financial reform.
+- There is a huge crisis of employment in America, in the Western world in general.
+- The American consumer, even today, the weight of the American consumer in the global economy is China plus India doubled. So, it's tough to replace that.
+- If we didn't have the rest of the world growing, the United States economy would be in much worse shape than it is today.
+- American influence is not what it used to be.
+- The technological revolution at home makes it much easier for computers to do our work.
+- It is absolutely clear that government plays a key role, as a catalyst, in promoting long-run growth.
+- The one show that I will continue to be a guest on is 'The Daily Show' with Jon Stewart, if he'll have me. It's not competitive with CNN and it's too much fun.
+- I'd be kidding if I said that I predicted the financial collapse.
+- Iran is a country of 80 million people, educated and dynamic. It sits astride a crucial part of the world. It cannot be sanctioned and pressed down forever. It is the last great civilization to sit outside the global order.
+- Things happening around the world are affecting you and me.
+- Conservatives used to believe in confronting hard truths, not succumbing to comforting fairy tales. Some still do.
+- The great drama of Russian history has been between its state and society. Put simply, Russia has always had too much state and not enough society.
+- I grew up in this world where everything seemed possible.
+- Alaska itself is an unusual state.
+- In a very weak economy, when you say 'cut government spending,' what you mean is you're laying off school teachers and you're de-funding various programs that put money into the economy. This means you have more unemployed people that then draw unemployment benefits and don't pay taxes.
+- What happens in the media is the cult of personality. The brands who have been forced to cut their staff have been forced to take on the brands of journalists.
+- The markets are much more interested in America's long-term trajectory than they are in feeling that there is an acute short-term crisis.
+- The Web forces me to be disciplined and not to waste time - but before the Web was invented, there were plenty of opportunities to do that anyway.
+- There is very strong historical data that suggests the way societies grow is by making large, long-term investments.
+- In the 1990s, we were certain that Saddam Hussein had a nuclear arsenal. In fact, his factories could barely make soap.
+- I don't want to paint a picture of total gloom and doom.
+- America's growth historically has been fueled mostly by investment, education, productivity, innovation and immigration. The one thing that doesn't seem to have anything to do with America's growth rate is a brutal work schedule.
+- The United States is going to be a rich country, it is going to be prosperous, but it is not going to be able to take the lead in the next phase of global economic development.
+- The American dream seems to be thriving in Europe not at home.
+- The people who watch Fox are not going to watch CNN. You know, let's be honest.
+- Whenever societies do well, they believe that there is something in their cultural DNA that made it happen.
+- In a world awash in debt, power shifts to creditors.
+- One of the things that has been very difficult in Libya is the sense of uncertainty - the sense that they haven't actually finished the revolution, that there was still a great deal of uncertainty. That uncertainty has made Libya harder for business in terms of oil and other things as well.
+- The Berlin Wall wasn't the only barrier to fall after the collapse of the Soviet Union and the end of the Cold War. Traditional barriers to the flow of money, trade, people and ideas also fell.
+- It's not possible for two countries to be the leading dominant political power at the same time.
+- Street protests in Saudi Arabia might warm our hearts, but they could easily lead to $250 a barrel oil and a global recession.
+- I should not be judged by a standard that's not applied to everyone else.
+- I enjoy writing but I much prefer the experience of having written.
+- Culture follows power.
+- During the Cold War, we were interested because we were scared that Russia and the United States were going to go to war. We were scared that Russia was going to take over the world. Every country became a battleground.
+- Whenever someone says the word community, I want to reach for an oxygen mask.
+- You know, when the cost of capital goes down, when credit becomes cheap, people start taking greater and greater risks.
+- The situation in Syria is quite different from Libya.
+- When you're failing, there's a very powerful incentive to put ideology aside and just do what seems to work.

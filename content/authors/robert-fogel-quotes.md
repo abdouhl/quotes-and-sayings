@@ -1,0 +1,22 @@
++++
+author = "Robert Fogel"
+title = "Robert Fogel Quotes"
+quotes_len = "16"
+description = "the best 16 Robert Fogel Quotes"
++++
+- I was born in New York City in 1926, four years after my parents and my brother migrated to the United States from the city of Odessa in Russia.
+- I think the most important thing I have done in my life is to raise two boys.
+- In most, if not quite all, parts of the world, the size, shape and longevity of the human body have changed more substantially, and much more rapidly, during the past three centuries than over many previous millennia.
+- The older I get, the more important my view of the family is.
+- Centuries ago it may have been difficult for pregnant women and their children to get proper nourishment, probably leading to smaller - and therefore shorter-lived - adults.
+- Remember, what does 'retirement' mean? It doesn't mean that you're a couch potato. Leisure is not the same thing as rest. If you're bicycling five miles a day, that's leisure, but it certainly takes a lot of effort.
+- The first, and overarching, count in the new indictment is that slavery permitted one group of people to exercise unrestrained personal domination over another group of people.
+- People want more and more leisure time, which means the freedom to do what they want to do, not what they have to do, and as we get richer and richer, more and more people will be able to afford that.
+- No individual has done more to help me pursue a career in science than my wife of forty-five years. I met Enid Cassandra Morgan during the election campaign of 1948 when she was a Sunday school teacher, a leader of the youth organizations of St. Phillips Episcopal Church, and the head of Harlem Youth for the election of Henry Wallace.
+- My education in the public schools of New York City between 1932 and 1944 was an excellent preparation for a life in science. Because of the Depression, these schools were able to attract a remarkably talented and dedicated collection of teachers who encouraged their students to strive for the highest levels of accomplishment.
+- One of the most startling events in my life was when my older son was about 16, and he blamed me for all the troubles of the world. So I, I felt like telling him, 'Oh no, I was just like you when I was your age; I wanted to change the world, too.'
+- The president has very little effect on the economy. If you want to put blame or credit, the main person who influences the business cycle is the head of the Federal Reserve Bank.
+- As we get rich, the basics of life - food, clothing and shelter - become a very small part of total expenditure. And people have enough money to purchase things that enhance them spiritually, and I mean the word 'spiritual' not necessarily in a religious sense but in the sense that it adds to your feeling of well-being.
+- The rate of technological and human physiological change in the 20th century has been remarkable. Beyond that, a synergy between the improved technology and physiology is more than the simple addition of the two.
+- Although they arrived in New York penniless, my parents scraped together enough savings to establish the first of several small businesses just after I was born.
+- In 1890, nearly everyone died on the job, and if they lived long enough not to die on the job, the average age of retirement was 85.

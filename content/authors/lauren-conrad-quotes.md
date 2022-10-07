@@ -1,0 +1,115 @@
++++
+author = "Lauren Conrad"
+title = "Lauren Conrad Quotes"
+quotes_len = "109"
+description = "the best 109 Lauren Conrad Quotes"
++++
+- I never wanted to end up in entertainment; that wasn't the goal.
+- I almost exclusively wear skinny jeans. I'm terrified of any other cut of denim.
+- None of my friends call me L.C. That was just a high school nickname, and nobody refers to me like that anymore.
+- A lot of my branding has come from stubbornness - I knew what I liked. I knew what I wanted to do.
+- You should never need a guy to make you feel complete.
+- Dating is all about the chase. It's fun!
+- Five years on TV is a really, really long time.
+- I'm a writer slash designer slash TV personality.
+- The one thing I've learned about friends is that the good ones are rare.
+- I'm meant for California.
+- It's very hard to lose someone who's the closest person to you in your life.
+- I don't have the best dating track record.
+- I've always been open to doing reality again. Just under certain circumstances.
+- I think it's definitely important to look like yourself on a date. You don't want to look like someone else with too much makeup or too much hair.
+- I love Chelsea Handler.
+- One way to stay grounded in the entertainment industry is to surround yourself with very good people that will constantly remind you how uncool you are.
+- In Hollywood, you grow up quick.
+- I'd love to design bridal dresses.
+- I always wear bronzer because I love the way my skin looks when it's tan.
+- A lot of people in fashion don't want to be linked with anything that has to do with reality TV.
+- Listen to advice from people who have been there and done that. It is so hard to believe that when you are young, but parents, mentors, teachers, they can all be so valuable when it comes to advice.
+- Most of my friends all tend to work in restaurants part time, doing acting classes on the side.
+- Social media is key to promoting the editorial posts on my website.
+- Imperfection is relatable.
+- I mean, it's fun to go out and do stuff in Hollywood, but if it was gone tomorrow, I really wouldn't be disappointed.
+- I can sleep anywhere. I'm like an infant.
+- Like most people, I used to wear clothing off the rack. But having them fitted to me makes a really big difference, especially with pieces like a cocktail dress. Little nips and tucks can take 10 pounds off you.
+- I go through phases when I've been filming where I wake up in the middle of the night and I think I'm being filmed.
+- I'm sure a lot of people don't take me seriously.
+- I don't kiss on the first date. My friends always make fun of me for that! But I will hold hands.
+- I make fun of guys when I like them. I act like I'm 10 years old. I do it as a test to see if they can laugh at themselves. If they get sensitive, then it's like, 'Um, this isn't going to work.'
+- No one eats pretty.
+- People label you the way they know you best.
+- I'm my happiest when I'm really busy. I love feeling like I need one more hour of sleep, or when I'm running around frazzled!
+- People are just obsessed with other people's lives. I don't know whether it's kind of a way to escape their own, or something to follow... I really couldn't tell you.
+- I think any opportunity you have to be green, whether it's in business or in everyday life, you should take it.
+- I try to never look back at how I dressed in the first few seasons of 'Laguna Beach' because it was pretty bad... head-to-toe bad.
+- Scripts are corny and predictable. Real life is always better.
+- When you do multiple things you love, it doesn't feel like work.
+- I go into meetings, and people have this preconceived notion of me that I didn't work hard to get where I am.
+- I can't even read a script. I've tried and it's painful to watch.
+- I think clothes hang beautifully on thin women.
+- I grew up at the beach and I was always involved in beach clean-ups and caring for my environment.
+- I think when you're put into a completely different situation and environment, you really see who you are. You're not affected by what's around you. You are who you are.
+- There is never just one thing that leads to success for anyone. I feel it always a combination of passion, dedication, hard work, and being in the right place at the right time.
+- I'm comfortable in front of the camera, but I can't act.
+- Dates are always hard. You don't want to be too dressed up or too casual.
+- I love anything really feminine. I love any sort of girly detail - anything with a bow or a heart on it, I'm immediately in love with.
+- I think a good friend, to me, is all about trust and loyalty. You don't ever want to second-guess whether you can tell your friend something.
+- I like to involve myself in charities that help children and also young women in need.
+- There's not a business or a master plan as far as I'm concerned. I take it week by week, and I don't think you ever expect to be able to do the next thing.
+- Whenever someone comes up to me and says, 'I'm having trouble shopping.' I tell them to pull out their 10 favorite, most-worn pieces, then build a wardrobe around them. Those staples are going to be different for everybody.
+- Some people are willing to betray years of friendship just to get a little bit of the spotlight.
+- As a designer, you are flattered to see anyone in one of your designs, whether it's on a red carpet or passing by you in the market. It's this wonderful little high every time.
+- I get very uncomfortable with people watching me.
+- I'm into mellow dates with really good food.
+- I don't stage my own publicity.
+- Any way to make a workout feel like playtime is great.
+- In high school I spent most of my time in jeans and T-shirts or Juicy sweats. We're such a laid-back town. I mean, people wore bikinis under their clothes half the time, so you didn't really get dressed up to go to school.
+- I like to know exactly what's being put into my food.
+- I used to get taxed on my allowance. Yeah, I've been taxed since I was a little kid. And at the end of the year I had to pick a charity to donate my taxes to.
+- I'm just not a fan of the gym. In fact, I hate it. I understand loving the feeling you get after working out all those endorphins. But going there? It's the worst.
+- I think that makeup can be challenging, especially when you are younger.
+- I've actually spent a lot of time researching beauty products, how they are produced and how they are sold.
+- You don't want a slob, but you don't want a guy who is constantly borrowing your tweezers.
+- I'm not really a big reader.
+- I really, really want to produce. That's the top of my to-do list.
+- I like wearing scarves in my hair because they make me look put together without taking a lot of time.
+- Being a good observer is a great tool to have as a writer, just taking the world in.
+- The normal 21-year-old doesn't have to worry about their night out being put on TMZ.
+- Everyone has that friend who's every day, like, 'I hate my nose, I hate my nose, I hate my nose.' You either need to come to peace with it and be like, alright, I hate it, but it's part of me - or change it. So I'm not against plastic surgery, I'm against plastic surgery when it doesn't really need to be done.
+- When you are working really hard and you're really focused on your career, a lot of other things suffer.
+- During holiday parties I end up recycling a lot of my cocktail dresses and just wearing a layering piece, like a blazer and tights, with it.
+- I haven't met a woman without insecurities.
+- I think that it's really nice to learn that makeup is different for every person. Everyone has a different feature on their face that they like to show off.
+- I've found when all I'm eating is really fresh, healthy foods, I stop craving pizza and burgers.
+- The first series I wrote, 'L.A. Candy,' was always meant to be a three-book series, so when I started out it was all outlined that way and by the time I was done with the third book, I had become so involved and the process and the stories, I was a little bit sad to be done.
+- Being responsible for another human life terrifies me, because I kill plants.
+- Fitness is a luxury when you are busy!
+- One of my biggest goals, especially with writing YA novels, is just to have people enjoy reading.
+- When I work with my art department on putting imagery together for my blog posts I always think, 'Would I pin this?' That really helps.
+- I don't call magazines and let them know about things so they can write stories.
+- I'm not a sexy person. I'm OK with it. I've never been the sexy girl. Whenever I've had a boyfriend, he's always been like, 'Oh, you're cute.'
+- I've always been a big fan of Phillip Lim. He'll always be a favorite of mine.
+- I'm not old-fashioned when it comes to dating, but there's something nice about a guy pulling out a girl's chair and opening the door for her, even if it's just in the beginning.
+- I wouldn't include a piece in my collection that I wouldn't wear personally.
+- I definitely aspire to be someone like Tyra Banks, who's created an empire for herself.
+- If you're on the cover of any magazine, you certainly get recognized more.
+- Dating in Los Angeles can be hard, which makes it all the better when you meet a really nice guy.
+- Blogging is a great way to show your talents and interests to prospective employers, while adding an edge to your resume. If you blog consistently it shows your dedication, passions and creativity - all of which are key attributes employers look for in job candidates.
+- I love going on book tours because it's an opportunity to connect with the people that matter most to my brand.
+- You have your personal life and you have work life; when it's combined, it's difficult.
+- If you're putting your name on something, it's really important to be a part of it, or else people will just do whatever they want with it. And then it's not really you, and it won't be true.
+- When you're growing up, you play dress-up - it's a game, it's a pastime. And then as you get older, getting ready and looking nice becomes this constant stress. I want to make it fun again.
+- I think that when you have kids, it's all about them.
+- At the end of the day it's going to hurt your feelings if someone says something mean about you, but I've learned to take a step back and ask myself if it's really going to affect me, if this person who I'm never going to know or meet doesn't like me - and it doesn't.
+- I think there is a niche for every market.
+- I try really hard to separate myself from other celebrity brands.
+- When you're writing a book, you don't want it to be overly trendy because you want people to enjoy it for years and refer back to it.
+- I read a lot of 'Spark Notes' in high school.
+- I'm obsessed with the 1920s, everything from the style to the lifestyle. It was a really cool era.
+- I think that like most girls in high school, I just mirrored what was around me.
+- There's not one person that I say I want to look like.
+- At night I can write for hours.
+- I think that I get bored easily with things.
+- The only thing that ever really bothers me is that a lot of people think I'm that girl who hates your boyfriend. I'm really not that girl. Some of my friends' boyfriends are my best friends.
+- I love wearing designer pieces with something I found at Target.
+- I do most of my shopping online. It's just convenient for me.
+- My website inspired me to create my book club and provides me with a creative outlet where I can write about things that interest me. It's a platform where I can present ideas or new ventures and get feedback straight from the people who mean the most to me.

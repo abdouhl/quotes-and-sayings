@@ -1,0 +1,62 @@
++++
+author = "Curtis Jackson"
+title = "Curtis Jackson Quotes"
+quotes_len = "56"
+description = "the best 56 Curtis Jackson Quotes"
++++
+- I think either you're creative or you're not. In general, I don't think you need to be in pain to actually be creative unless you're writing love songs. Then you might need to have some ups and downs within your emotions to start to capture that.
+- I don't display emotions. I have every feeling that everyone else has, but I've developed ways to suppress them. Anger is one of my most comfortable feelings.
+- Eating well was something I learned as I started to be successful and had to travel and perform concerts, which are an intense cardio workout.
+- You know how a person is made for something? Eminem is made for hip-hop. The best rapper is a white man.
+- I'm not trying to save the world. As a musician and artist, it just ain't me.
+- My work out routine is always changing. It should never stay the same for long periods of time.
+- The new artist is meeting the general public before they meet the record company. They're able to put the material on YouTube and have a million views before they even meet an executive at a record company, and get the deal based on that.
+- I think Frank Ocean is a talented artist; I think he's created material that made me know his name, that impressed me, with things he said on a song like 'Novacane.'
+- Chris Lighty was a huge portion of my actual career. It's difficult to adjust to not have someone around that's in your life, in your life.
+- The importance of 'Dream School' is monumental. Helping to inspire these students to reach their potential is personally gratifying.
+- People who actually have money don't want to talk about it. They want to talk about everything else.
+- I like generals. I like Napoleon. I like strategy. The majority of them are praised for mass destruction, but it's exciting to see how it comes to the mind mentally.
+- It's Fifty, not Fiddy.
+- I just feel really good about my accomplishments. I haven't had, like, a party because a deal goes through or something like that. I don't know. I need to develop that - I need to have something that I do when things go right.
+- There's a small group of guys in hip-hop that really have money. The whole culture talks about money, but it's a small group that actually has it.
+- I read all of the stories that people write about me. The ones that are really interesting are the ones where they actually write their take on me as opposed to just printing what I said, because they're asking similar questions so often, sometimes it just sounds like I'm answering the questions different intentionally.
+- Obama is for same-sex marriage. If the president is saying that, then who am I to go the other way?
+- I think Sean Parker damaged the music business with Napster.
+- I think it's easier for the general public to embrace me in a negative way. You have people who already have a perception of me that says I'm a bad person.
+- When I put out my first mixtape, '50 Cent is the Future,' it was the first tape where an artist did the entire tape in song format.
+- Puffy's contribution to hip-hop culture was the remix. He offered us the music that his mom played in front of him, with newer drums and younger artists. That worked, and will consistently be there. The remix comes right after the original record, that's something Puffy did to influence the culture.
+- Since I did the SK Project and I partner with the United Nations World Food Program, I got a lot of different feedback from people online. Through social networks and through the Twitter. I read the comments and see 'em saying, 'People hungry here, Fif.'
+- The opportunity and the concept of merging music culture with actual boxing is exciting. It's bringing a younger demographic to the sport.
+- I have a romantic side.
+- I like the story writing process. I usually use someone who has been trained for structure to take the story that I actually want, place those elements in the right places.
+- Jay-Z is as politically correct as some of the politicians. He's safe. There's points when you're acquiring financing, you make adjustments. He's made those adjustments. It's his choice. For me, it's not a necessity.
+- When you've been in life-threatening situations, you become aware that life is not for ever.
+- My new music video, 'My Life' featuring Eminem and Adam Levine, the only person in the actual video who you can physically make out besides myself and Adam Levine is Andre Dirrell.
+- I started boxing at 12, and I was above weight for my age, so they put me in the ring with adults... When you're fighting all the time, it gives you the ability to fight without getting angry.
+- It's difficult for me to trust a woman. Men are attracted to beautiful women. Women are attracted to men who offer security - financial security. And if you have money and you're famous, women find that sexy.
+- You learn a lot about yourself when you have success for a while. Like, a lot of things that you think are really important aren't. But you need that process.
+- You have to challenge yourself and your muscles. When you are really regimented, it's the same over and over and you start to get comfortable. Switching up the style of training works your muscles differently.
+- People often say I have so much energy, that I never stop; but that's what it takes to accomplish your goals.
+- Just be confident. I think confidence is the most attractive part of a person.
+- My grandmother, she's been the positive portion of my life the entire time.
+- When I'm actually creating music, I try not to listen to the hip-hop records that are going on, because I think, subconsciously, we steal from each other.
+- A man becomes as attractive as an attractive woman when he becomes successful and is publicly noted. Power's an aphrodisiac.
+- I started hustling at 12, my mother hustled ahead of me. I was only allowed to because they knew me.
+- A big mistake people make when they are trying to lose weight is that they stop eating. They'll eat salads once a day and then their body starts trying to protect itself and holds onto the fat.
+- Every morning I wake up in a home where Mike Tyson previously laid in the bed and he earned over $500 million his career. It makes me conscious.
+- A recession is predominantly for the middle class. Where I come from, the majority of people have always lived in a recession.
+- My grandmother, she's been the positive portion of my life the entire time. She raised us Baptist, and when I got old enough to say I didn't want to go to church, she didn't force me. She was cool.
+- Every day, families in Africa go without food and water, never knowing when their next meal might be; but we can change that if we all work together. In order to make a difference, every purchase of my new energy shot, Street King, will provide a meal for a child in need.
+- Out of frustration, I say things. Now, people listen to me so much I can say it under my breath and everybody hears me... I said in the past that I'm a work in progress, and I feel like I'm progressing.
+- My grandparents went through a bad experience themselves; they invested money in a church and got burned - the pastor had his own agenda - and my grandfather lost interest in the church after that. That was when I had the option to not go. 'Grandpa ain't going; I'm gonna stay with Grandpa.'
+- STREET by 50 is all about giving our fans the finest music experience we possibly can. The response to the limited edition colors so far speaks for itself - the fans want the opportunity to match their headphones to their personal style, and we definitely want to make sure to give them what they want.
+- I wanted to do something as an extension of my passion for music. My aim for the STREET by 50 On-Ear Wired Headphone range is to present music as it's meant to be heard, in studio-mastered sound.
+- I think I'll be going to Heaven, because I had good intentions. But my actions are another thing.
+- I'll have long, straight hair, like down to my back, when I go to Heaven. And I'm not even going to work out, but I'll be in shape. It's a whole new program up there.
+- I had to overcome challenge after challenge in order to take my life from nothing to living my dreams.
+- I like to sort through music and see whatever pops out to me or inspires me. If I could have a production team going and kind of mix records with me, that would be cool; to take the records and have them sound the way I want them to sound. But I'd rather sort though music to find them things.
+- In my neighborhood... they view the police as someone who comes to take their loved ones away.
+- Hip-hop - it's the safari: it allows people who aren't under those circumstances to come closer to inner-city life, to explore it without actually being in danger. It's something kids in middle America indulge in to be rebellious.
+- Because hip-hop has no requirements, you deal with people that have the least intelligence on the planet. Some of the people that compare themselves to me, compare themselves to me because they rap and I rap. They can't even read the contracts that they sign to be a rapper, to do the deal.
+- Some people are born with very little; some are fortunate enough to have it all. When I grew up, we didn't have much. I had to hustle to get what I wanted... but I had that hunger for more. I didn't always make the right choices, but I learned from my mistakes.
+- If you're familiar with my man Uncle Sam, you understand the only way you can actually feel better about what he's gonna take, come the end of the year, is lifestyle. Only thing you can do is spend some of it.

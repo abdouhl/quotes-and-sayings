@@ -1,0 +1,77 @@
++++
+author = "Richard Quest"
+title = "Richard Quest Quotes"
+quotes_len = "71"
+description = "the best 71 Richard Quest Quotes"
++++
+- When you travel on Christmas, for you as the traveler - whether you're in 1A or 39D - there is a mental state that you have to put yourself in: that you're traveling at the busiest time of the year, and you're going to take whatever comes your way.
+- Any idiot can throw together a program or report and shove it out, but to get the balance and to get the skill set, that is what they pay us for. They don't pay us to prattle on the television; anybody can do that.
+- I do worry that the days of the physical paper are seriously numbered.
+- When I speak, I ask the people, particularly since there are many of us, 'Where will you spend your hard-earned money? Why spend it where it is not gay-friendly? Why should you spend your money in countries that are not gay-friendly just because they have beautiful beaches?'
+- I couldn't sell water in a desert. I have no business acumen. I can tell you why you have no business acumen, and I can tell you why your project may or may not work, but I have no ability to make money.
+- I live in the day. Yes, I make plans for tomorrow, but I don't get so consumed by it. The time you spend with your family and friends, whatever you could be doing, enjoy them now. I live in the day.
+- In Davos during the WEF, we have government heads like David Cameron, Shinzo Abe, Tony Abbott, and Dilma Rousseff. These are the people who can actually get something done.
+- If you raise taxes on the rich, you don't raise much money. I mean, this is one of the things that the U.S. is doing, but it's doing it for political reasons, not for financial reasons.
+- Trump was elected, in large part, to disrupt everything that the WEF represents.
+- I realize that everyone has their own road to travel in making this decision about when it's right to come out. I know that in my case, the worst fears never materialized. All in all, professionally, I know the work I do here every day is better because I'm honest about who I am.
+- Working for CNN, you help set the agenda for decision makers and industry leaders simply by doing your job. What the network covers and how we cover it affects people. I am not naive enough to believe I work in some 'pure' news vacuum.
+- There can be no equivocation. I am Jewish.
+- I would have become a pilot if it wasn't for my poor eyesight and the fact that I am hopeless in science.
+- People often talk about parachute journalism, but one of the skills that you get when you are a correspondent is the ability to look at facts fast and work out what the story is.
+- I may interrupt people or be nasty, but I am never rude. So every interview starts with a shake of a hand and ends with a shake of a hand.
+- On radio, I loved Noel Edmonds's Radio 1 breakfast show - and Tony Blackburn. I can still hear those bloody jingles deep in my brain.
+- Malaysia Airlines is a robust airline - it's been around for many years. It has an excellent reputation, both for service and for safety.
+- There is no easy way to ask serious-minded men and women who hold high office, and who have matters of state on their mind, 'Do you mind if I take a quick selfie?'
+- Go to the Savoy for a classic British tea and to see what a $350 million renovation can do for a hotel.
+- When there's a firestorm going on around you, you have very little idea of what's next.
+- 'Selfie' is the word du jour, and it became cause celebre at Nelson Mandela's funeral when the Danish Prime Minister Helle Thorning-Schmidt took a selfie with U.S. President Barack Obama and U.K. Prime Minister David Cameron.
+- People even describe the way I speak as sounding like gurgling with broken glass. Some people can't stand me; they hate my voice.
+- The fundamental rule of the business traveller must be nothing must stop you from getting there.
+- I don't like the Sunday newspapers - I read them because I have to. 'Sunday Times,' 'Telegraph,' 'Independent' on Sunday - I find them heavy and too much! I prefer 'The Economist.'
+- I'm not going to be one of those interviewers that forensically destroys someone.
+- A lot of people want to know why did I leave the BBC: did I have an argument with them? No! I had 13 wonderful years. But it was time. Since I left university, I'd only ever worked for the BBC. It was simply time.
+- You don't need Math to do business reporting. Business is all about choices that consumers make.
+- If I try and be something I am not, if I try and be cool, and I am not, I am a boring white man in a suit. Usually a pin-striped suit.
+- I'm a capitalist. I believe in the proper working of the free market. That's why I found the scandals of 2008, the banks, Libor, absolutely abhorrent.
+- I'm given an enormous amount of freedom, within the constraints of the editorial policies of the network. One of the Quest shows started off with me doing the cancan kicking... you know, the high kick, with dancing girls. We never thought CNN would agree to that.
+- WEF should restrict the number of passes for limos in the parking lots. They need to Keep it Simple.
+- Whenever there's a big story with vast potential to get social media content and find out what's happening, your first object is to prod into that and then test it to see whether it's valid. If you don't do the second part, you're basically a bilge pump.
+- Go to The Spaniards Inn on Hampstead Heath. It's an old-fashioned pub, and from there, you can look out over the London skyline.
+- The sheer number of facts that are unknown about what happened when Malaysia 370 disappeared is quite staggering.
+- Every year, the World Economic Forum decides on a theme for its meeting of the world's elite in Davos, Switzerland. Usually, it's highfalutin nonsense that no one understands and everyone ignores.
+- New Zealand obviously is fully integrated into the global economy.
+- If the ship is sinking, you need help getting off that ship.
+- I was fascinated by the fact that in Osaka, we saw people using their cell phones to pay for small goods.
+- The big story of the day is always going to be driven by what's happened and by the facts and the events.
+- Davos is an extravagant bun-fight of the vanities, where the 'haves' gather to strike deals with the 'have-mores.'
+- I have always loved broadcasting - as a child in Liverpool, I would wake up and listen to Morning Merseyside on BBC Radio Merseyside and wonder, 'How do they do that?'
+- I passionately believe if you put on an act, the audience will be able to tell. That does not mean that I am going to be talking in top volume all the time in private conversations... Clearly, broadcasting has to be an extension of yourself; it's an exaggerated version of you.
+- Bearing in mind most companies rely on the middle classes in developed countries to sell goods and services throughout the value chain, dealing with inequality is a matter of brutal enlightened self-interest. It's simple economics: Global stability equals global growth equals profits.
+- What happens in Davos stays in Davos.
+- I was terrified about people knowing I was gay. I'd cringe inside at the idea that they'd be talking behind my back.
+- Airlines the size of British Airways will need the A380 to increase capacity, and the 787 to increase frequency on heavily traveled routes and open up new long thin routes.
+- I have spent 25 years battling to tell people that business is important. People aren't prepared to understand that it's a complex piece of machinery.
+- Davos is probably the world's most elite society, but it dresses itself up as a non-elite event. Don't be fooled. You must wear a specially coloured badge, which shrieks your status to others.
+- People always want to get behind the image on the screen, and I'm not sure there is one. I don't put on an act.
+- I believe you leave opinions and views with your hat and coat at the door.
+- The potential of fire on board an aircraft is among the most serious issues in aviation.
+- My grandparents and great-grandparents were classic East European/Russian Jewry. Quasky was the name until Grandpa Quasky changed it in 1948.
+- The reality is the three gulf carriers - Emirates, Qatar and Etihad - are forces with which to be reckoned. Strategic investments by co-operative governments have given them large fleets and huge airports. They have created a flourishing environment while established carriers languish.
+- The fact is that the rich are getting richer while the poor are being left behind. Women remain under-represented in boardrooms and under-engaged in the global workforce. Environmental change is leaving the poorest countries vulnerable. Voters are becoming more and more politically polarised and partisan.
+- New Zealand's economy may be more immune... from the waves of disruption elsewhere, but I guarantee you, it's not that immune.
+- Limos are fine for prime ministers or presidents who need the security, but there's no need for CEOs or executives to have one as a status symbol.
+- I did badly in high school. I don't know why, but I failed all my exams. Then I took them again.
+- You have to give an element of performance on television.
+- Whatever happens to bitcoin, other cryptocurrencies are gaining ground and more respect. Ethereum, for instance, has far more transparency.
+- I wish I didn't care about what people say about me, but I do.
+- I hope I'm wrong, but I think the victory of the screen is going to win out. It raises the fundamental question: is the quality of reading and comprehension as good when you read it on a screen as when you read it on a physical paper?
+- If I remember back to when I wasn't open about my sexuality, I spent a great deal of time worried about it.
+- Markets don't like instability, investors shy away from uncertainty, and consumer confidence goes down in difficult times.
+- I don't think many people would disagree that the world is fractured.
+- Buy one pair of knickers or underpants from Marks & Spencer. Then you'll truly be like a Brit!
+- If there are countries that discriminate against the gay community, they are the countries that I will not spend my own personal money. I will go for work there, but I will not spend my own money there. Why would I?
+- There comes a point in every story where you have got a reservoir of knowledge, and you are then really just adding the substantial new facts to your understanding of it. That is the easiest situation, because you can call on that reservoir, but when you get a sudden story out of nowhere, like ebola, you don't have a reservoir of knowledge.
+- I am comfortable being gay. Most of my adult life, it's never been a secret. I knew I was gay when I was in high school. I am just fortunate I have lived in two of the most gay-friendly places in the world: New York and London.
+- It is very easy when you are in the hothouse of the newsroom to believe that everybody wants to know about this Important Story Of The Day, when actually, once you walk out the front door, it is people getting on with their lives.
+- Never let it be said that the world of international economics isn't exciting or adventurous. OK, I exaggerate, because not even the most imaginative mind could construe the annual meetings of the International Monetary Fund and World Bank to be a nail-biting barn burner.
+- It is a very cynical, skeptical, foolish person that suggests Israel does not need a peace process to have a growing economy.

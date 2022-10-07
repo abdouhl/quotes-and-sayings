@@ -1,0 +1,20 @@
++++
+author = "Raymond Ochoa"
+title = "Raymond Ochoa Quotes"
+quotes_len = "14"
+description = "the best 14 Raymond Ochoa Quotes"
++++
+- It would be cool to be on a Disney show.
+- I fell into acting by going to a callback for J.C. Penney with my two older brothers when I was 4 1/2 years old. The casting director saw me and asked to bring me in the room with them. The three of us ended up booking the commercial!
+- I love being able to bring an animator's vision to life and give the breath to the voice of a character.
+- My favorite commercial I did was my Verizon campaign, which I filmed a series of three commercials. My favorite movie I have done was 'House Under Siege' because it was my very first movie at 5 years old. My favorite TV show I have filmed was 'The Night Shift,' which is one of my favorite shows.
+- I used to have a dog, and I was very close to my dog, and he passed away, so when I need to bring out a moment where I'm crying, I bring out that moment. His name was Rinkles. All of the boys in my family's names are spelled with an 'R,' and he was a boy, so he was Rinkles with an 'R,' not a 'W.'
+- I do my schooling through an independent study program where I am able to do all my work at home, and then every two weeks, I meet with my teacher and turn in my work. When I am on set, I work with a studio teacher, and we do a mandatory three hours of school a day.
+- I hope everyone enjoys watching 'The Good Dinosaur' as much as I did making it.
+- I respect my parents a lot, so I try my hardest to be the best son I can.
+- I grew up watching Pixar movies. And my favourite - if you don't count 'The Good Dinosaur' - is the first Pixar movie my older brother showed me. That would be 'Monsters, Inc.' I also like Disney - 'The Lion King' is probably my all-time favourite movie.
+- I enjoy playing football with my three older brothers Rick, Ryan and Bobby.
+- You've got to make yourself sound cooler than you are to your brothers.
+- The most challenging roles were Disney's 'A Christmas Carol' and 'Mars Needs Moms' because they were both motion capture, so there was a lot of physical work involved.
+- My brothers are so amazing. My older brother Ryan, he is probably the most generous person I know in my life. He's the one that kind of helps me and guides me. All of my brothers help me to be grounded, so I really try to be like my brothers because all of them are so nice and very kind, and I look up to them.
+- My brother Ryan was on the Disney XD show 'Pair of Kings' where he played Lanny, the evil cousin to twin kings, for three seasons. His motivation to be a better actor always pushes me to work harder and try to be more like him. When he gets a role, he will study that character until he becomes that person.

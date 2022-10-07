@@ -1,0 +1,18 @@
++++
+author = "Frederic Bastiat"
+title = "Frederic Bastiat Quotes"
+quotes_len = "12"
+description = "the best 12 Frederic Bastiat Quotes"
++++
+- The state is the great fictitious entity by which everyone seeks to live at the expense of everyone else.
+- Everyone wants to live at the expense of the state. They forget that the state wants to live at the expense of everyone.
+- And what is liberty, whose very name makes the heart beat faster and shakes the world? Is it not the union of all liberties - liberty of conscience, of education, of association, of the press, of travel, or labor, or trade?
+- Each of us has a natural right, from God, to defend his person, his liberty, and his property.
+- When goods do not cross borders, soldiers will.
+- Life, liberty, and property do not exist because men have made laws. On the contrary, it was the fact that life, liberty, and property existed beforehand that caused men to make laws in the first place.
+- They will come to learn in the end, at their own expense, that it is better to endure competition for rich customers than to be invested with monopoly over impoverished customers.
+- Often the masses are plundered and do not know it.
+- Is not liberty the destruction of all despotism - including, of course, legal despotism?
+- Finally, is not liberty the restricting of the law only to its rational sphere of organizing the right of the individual to lawful self-defense; of punishing injustice?
+- Government is the great fiction, through which everybody endeavors to live at the expense of everybody else.
+- In short, is not liberty the freedom of every person to make full use of his faculties, so long as he does not harm other persons while doing so?

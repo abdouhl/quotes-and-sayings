@@ -1,0 +1,43 @@
++++
+author = "Brit Hume"
+title = "Brit Hume Quotes"
+quotes_len = "37"
+description = "the best 37 Brit Hume Quotes"
++++
+- You know, the market was down yesterday... my first thought when I heard-just on a personal basis, when I heard there had been this attack and I saw the futures this morning, which were really in the tank, I thought, Time to buy.
+- You have to have pace, you have to have high production values, you have to have interesting graphics, and you have to have attractive people. CNN could afford not to be so obedient to those commands, and for a long time, it wasn't.
+- We need more foreign reach; no question about that. And we're working on getting that. We need more people abroad; we need some more bureaus. That is really an important job.
+- In the end, you make your reputation and you have your success based upon credibility and being able to provide people who are really hungry for information what they want.
+- I think that what people want from cable news channels is the sense that if there's hard news, it's going to come up immediately.
+- There have been two Geraldo Riveras through his long career. One of them was a reporter who has done some remarkable work. The other was a television show host who did what it took to get an audience.
+- If the markets had behaved badly, that would obviously add to people's sense of alarm... but there has been a lot of reassurance coming, particularly in the way the Brits handled all this. There seems to be no great fear that something like that is going to happen here.
+- Geraldo has been in Lebanon. He has done some excellent reporting out of there, and of course, we now know by virtue of the president's speech on Tuesday night that the terrorist organizations that operate in that area are now on the list.
+- We have a society in which one of the greatest things you can do is a platform to see victim status, and one of the qualifications for that is that you have these exquisitely tender feelings about things and sensibilities which are easily offended.
+- Some in journalism consider themselves apart from and to some extent above the people they purport to serve.
+- We've had a chance to be seen by viewers who had never seen us before, and we've kept a lot of them.
+- People realized that they could come on Fox News Sunday, and they would be well and fairly treated.
+- Television has certain imperatives that CNN had the luxury of ignoring for a long period of time. CNN could take the position that the news would be the star, because in most of the programming day, they were the only all-news operation on the air.
+- My sense about Greta is that people ought to wait and see and see if she doesn't indeed turn out to be as balanced as we hope and expect she will. But there you are.
+- In America today, if your sensibilities are offended by something that has happened, you get an enormous amount of credibility and are taken very seriously.
+- Surveys have shown going back as far as you and I can remember that people have perceived a leftward tilt in the basic coverage that they get on TV news.
+- Fairness is not an attitude. It's a professional skill that must be developed and exercised.
+- We've had a series of major news stories that have brought in viewers who either were sampling to see what else was available or were normal news watchers. The Florida recount and the end of the election was a huge development. And then 9/11 came along.
+- If it comes to be believed that we are simply a propaganda organ of some kind, as a lot of people believe about some of our competitors, that would be a problem.
+- What played to what had been a relative weakness for us-this was exploding overseas as well, and we had to scramble to mount some reach and get into places and be competitive on the ground.
+- We had a couple of minor coups that made a big difference. We snared away from a competitor a correspondent already on the ground in Afghanistan. That was an enormous help to us, because there we were.
+- When you're five years old, and you're running a business that people did not think there was room for, getting attention is not a bad thing. Letting it be known by whatever colorful language is necessary is not a bad thing.
+- You can make an argument that Bill O'Reilly is a conservative or a Republican. Bill's kind of unpredictable. Somebody might say that he would have been comfortable in the Democratic Party of Scoop Jackson.
+- There's a certain elitism that has crept into the attitudes of some in journalism, and it played out perfectly over the issue of these little American flag lapel pins.
+- This is a tough environment, and it's tough for everybody.
+- We had more viewers on the broadcast network than we did on the cable channel.
+- The month of January, we were number one. Now, this is something we're proud of, because we recognize we're up against a formidable operation there at CNN.
+- Our emphasis on political coverage from the day we were born here was well-founded, and we believe there were opportunities there that we could do it in a more interesting, appealing and balanced way.
+- I don't think very many people would accuse Paula Zahn of being a conservative.
+- CNN is a more diverse brand. It's spread out over more products over there.
+- It's a battle to be seen in the world of advertisers and in the world of business as a serious force.
+- MSNBC got some very good people. They've got a good-looking set. All They're first-class. Somewhere along the way, they kind of lost their identity as a news channel, and they started doing a lot of other sort of magazine-type programming.
+- The Clinton administration hated us, and it was a terrible struggle with them. I think that they felt if they didn't play, they could strangle us in our crib.
+- We get a ton of email; everybody does now. It gives us a kind of a pulse that you can feel. We hear people saying, thank you for being fair, for being balanced.
+- Nobody's profitable at this moment, because recession is on; advertising dollars are down, and expenses are way up. So that kind of belies the situation that you would expect, because the ratings are way up everywhere.
+- I think we're giving people something new that people didn't know was out there before.
+- The president's poking fun at himself over what goes down. I thought it was a good-natured performance. It made him look good. But he certainly doesn't disguise the record on weapons of mass destruction. And you feel like saying to people, Just get over it.

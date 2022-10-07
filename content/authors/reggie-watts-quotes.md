@@ -1,0 +1,46 @@
++++
+author = "Reggie Watts"
+title = "Reggie Watts Quotes"
+quotes_len = "40"
+description = "the best 40 Reggie Watts Quotes"
++++
+- Every performance is an opportunity to have something new or to learn something new.
+- People ask, like, 'How are you going to incorporate what you do onstage into everything else?' I'm not too worried about that. Whether it's theater or a TV show idea, or an animated thing or, I don't know, an animated screensaver. I really just want to keep creating things. And I've always been able to do that.
+- I'm doing the kind of show that I would want to see.
+- What I'm doing is not really based on a definite identification or a definition of what it is. It's intended to be open to interpretation.
+- I consider myself something of a self-taught anthropologist. I try not to talk about something unless it's something I love. But if it's something that really annoys me, I fixate on it, learn something about it and then, when I'm onstage, it comes out.
+- Technology is a wonderful tool, but also if used incorrectly a horrible tool. We're fascinated by all aspects of it, whatever makes our human lives easier on the planet, but eventually there will have to be some sort of merger. The fascination isn't going to die down.
+- I have visualizations where I'm living in a really cool place - probably outside of town - with a really dope studio where I can record music or film things. Just have my own mini production house. That's really the thing I'd love to end up with the most and only do gigs when I needed to and also amass a little bit of a crew around me.
+- In theater, they say a theater piece is only as good as its transitions.
+- I love the idea of something beautiful happening, and then it being abrasively cut into. Because in a way it's similar to switching channels or surfing the web; I like people getting lulled into something and then taking them somewhere else.
+- I don't think immortality is necessarily the key to understanding the world. You have to be careful with what you think you're achieving. I'm all for science discovering amazing and fantastic things about our world, but I think the motivations behind it are slightly askew.
+- No matter how big a comedian gets, they're ultimately all just a bunch of nerds with their weird insecurities. You realize these are just the people in high school who were making people laugh.
+- If you pay attention to the world, it's an amazing place. If you don't, it's whatever you think it is.
+- Just because you live longer doesn't necessarily give you a greater edge in quality.
+- I'm pretty lazy when it comes to creativity. I just want it to be easy and fun.
+- I try not to eat right before I perform. It's better to perform on an empty stomach - it just feels better. You just feel like a leaner machine. You're not worrying about digesting things.
+- Music is very similar to comedy: It's all about texture, timing, context, vocabulary, performance. When someone's onstage doing a solo, essentially it's the same thing as what a comedian does. They're in the moment. They're listening.
+- I love photographs. I love taking photographs. When I see something that's great, I want to capture that. You put it out there and on a place like Instagram you can put it there and review it later.
+- I compare a lot of life to looking at a map through a straw. The less ability you have to see life in a humorous way, the smaller the straw is that you're looking at the map of life. You're not looking at the whole picture. You can't see the whole topography without it, and it can help you to make better choices.
+- I mean, the type of art that I enjoy is art that - I enjoy a very broad spectrum, but I especially like art that leaves me a little confused and uncertain as to what just happened.
+- Sometimes airport security people recognize me. I'll go through the whole screening process and at the end they'll go, 'Hey, man, I really like your work.' That's so cool.
+- I had a job at a movie theater for like a year and a half and then a job at a health food store for, like, two years. Those were the only two jobs I ever had.
+- As long as I have a good time, the audience usually has a good time.
+- Essentially a joke is creating an idea, whether sonic or visual, whether it's something musical or a traditional joke.
+- I was on the football team because I wanted to experience the different iconic social classes of high school. So football for me was an attempt to socially integrate in an interesting way. And then I didn't like it anymore and stopped doing it and focused more on drama and science and other forms of art and music.
+- The mind does different things in performance, and conscious thought sometimes takes a backseat.
+- I'm hypoglycemic, so if I don't eat I start to get really blood-sugar crazy. I feel like I'm going insane.
+- I guess, in a way, I grew up mixed race: half white, half black. That question's always been on my mind: 'What are you? Are you this or that? Are you a white dude or are you a black dude?' In a strange way, music and comedy is kind of the same thing. I'm both. They're just different modes of expression.
+- I think the end goal, hopefully, is to take advantage of the attention I've gotten along the way and use it for good and build some communities, and as I get older I can continue to do things and be surrounded by things that are inspirational to me.
+- I like that feeling of discombobulation that comes in creating an absurd world that doesn't make sense. 'Monty Python' does a good job of it; 'Bugs Bunny,' too.
+- I guess as a kid, I was always creative, and I was involved in music, like piano and violin and choir, so I always knew - I always knew that I wanted to do something that would allow me to be who I am. Generally, that was creatively, imaginatively.
+- If you have something you do that's unique, you just end up in situations. Your art can take you to places without you working too hard to force something to happen.
+- I was in punk rock bands, heavy metal bands, world music bands, jazz groups, any type of music that would take me. I just love music.
+- I like joking around and being a little mischievous. Once an audience or even a group of friends realizes that you're being benevolent about it, then they're along for the ride.
+- I don't really like to drink. I don't like the way alcohol feels or tastes. On occasion I'll do it as a social thing, just to kind of go, 'Hey! I did something with you guys!'
+- At my shows you have time to relax, time to just enjoy something really dumb, time to laugh at something that's weird or unexpected and time to think. There's all sorts of things happening and it's great being able to go any way I choose at any given moment.
+- I'm very interested in writing an actual series, that doesn't have too much to do with my music - a world I create that has characters in it. I'm just trying to get there by doing things that I want to do.
+- As a little kid when I would watch 'Monty Python'... that would just blow me away because it was just so silly and absurd, but so intelligent, and I loved that.
+- As a child I was very into gadgets and machines and robots. The idea of experimenting with machines to create art was always something I tinkered with.
+- My thing is, I like to do things as long as they're relatively fluid or easy. Not to say that there isn't any effort involved in making something happen, but I don't like to push things or force things too much.
+- For most of my life I've liked to pretend I live in a starship. Punching in fake codes to get into doorways that obviously are not secure. I love that idea of living on a spaceship. Because essentially we are: a gigantic thing floating in some infinite darkness that's running on principles that we don't even understand.

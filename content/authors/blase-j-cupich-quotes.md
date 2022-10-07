@@ -1,0 +1,105 @@
++++
+author = "Blase J. Cupich"
+title = "Blase J. Cupich Quotes"
+quotes_len = "99"
+description = "the best 99 Blase J. Cupich Quotes"
++++
+- The Eucharist is an opportunity of grace and conversion. It's also a time of forgiveness of sins, so my hope would be that grace would be instrumental in bringing people to the truth.
+- Voting for a candidate solely because of that candidate's support for abortion or against him or her solely on the basis of his or her race is to promote an intrinsic evil. To do so consciously is indeed sinful. That is behavior incompatible with being a Christian.
+- Getting to know people as they are is very, very important.
+- We have never owned, as a country, the damage done not only to people who were enslaved but to future generations in which they were treated. I think that has damaged the future of many African-American people. Some have risen above it quite nobly, but it has impacted generations, and we have to be able to own that as part of the past.
+- This business of demonizing or pre-defining people by the way they look, the religion that they practice, or where they came from is not only un-American but it's going to hurt America.
+- We are a people unafraid to welcome 'your tired, your poor, your huddled masses,' because we measure others by the quality of their hopes for the future, not by the circumstances of their birth.
+- The nation's children, families, poor, workers, and senior citizens deserve more than lip service. They deserve more than outrage. They deserve real support, protection, and solid action.
+- My folks were very practical. They were also kind of able to think outside of the box. They were not going to let circumstance paralyze them. They knew sometimes you just had to take some new initiative. I think they passed that on to all of us... If you don't find a way, you make one.
+- The long arc of history that recounts the Catholic Church's embrace of people of all faiths and none in providing health, education, and welfare in society is as incontestable as it is impressive.
+- We have to be sure we don't pigeonhole one group as though they're not part of the human family, as though there's a different set of rules for them. That would be a big mistake.
+- Abortion is a searing and divisive public policy issue precisely because two significant sets of rights are in conflict, and no matter which set of laws it enacts, society must choose between those rights.
+- There should be reluctance to make a national policy so inflexible that it fails to take into account the country's diversity.
+- I would say that every pope has had people within his administration who have had difficulties one way or another with his administration.
+- We budget quite a bit of money every year in order to assist people who are migrating here, people who are trying to enter into our society and be a part of the American dream.
+- The open and generous nature of the American people has the capacity to astonish and push boundaries. We crowdfund, sign petitions, dump buckets of ice on ourselves, and embrace new ways of relating to our environment.
+- We are an immigrant nation.
+- There is a temptation to have shortcuts and not put in the time and the effort. I think you have to be willing to talk to people and sit sometimes around a table and listen to other people.
+- We have to learn. We have to listen to where people are. We have to listen to where the Spirit is working in the lives of people.
+- Bishops need to resist the defensiveness that institutions often fall back on in crisis moments.
+- We are a democracy, and we get the leaders we deserve because we elect them.
+- People should be called the way that they want to be called rather than us coming up with terms that maybe we're more comfortable with.
+- Listen, talk, be respectful of people - and make sure that you have openness to where people are coming from. And you don't do anything that is unnecessarily antagonistic, that is only going to make you feel good because you've done it.
+- Ultimately, it is only the witness who convinces people, not the teacher.
+- We should be with people who are in need.
+- We must band together to call for gun-control legislation. We must act in ways that promote the dignity and value of human life.
+- We're not a Church of preservation but rather a Church of proclamation. To achieve this end, we must be open to significant, if not revolutionary, changes in how the Archdiocese with its parishes and ministries is organized, how it's resourced, how it's staffed.
+- I don't want the abnormal or something special. I want to have a normal life.
+- Some pro-life advocates focus almost exclusively on the rights and suffering of the unborn baby, while some pro-choice advocates focus equally exclusively on the rights and suffering of pregnant women. This is a distortion of the moral choice that confronts us as a society.
+- We have always wanted to make sure that we start the conversation by saying that all people are of value and their lives should be respected and that we should respect them.
+- White supremacy is a sin. Neo-Nazism is a sin.
+- Racism can be called our nation's own specific 'original sin.'
+- People are looking for a way in which their spiritual life can be deepened. They are finding it in some of our Catholic parishes and sometimes not in others, and that opens the door for them to go elsewhere.
+- We are a people who have learned repeatedly throughout our history that economic distress can help us to appreciate that there are other ways to be rich that are not financial or even material.
+- The death penalty confronts us with a penetrating moral question: Can even the monstrous crimes of those who are condemned to death and are truly guilty of such crimes erase their sacred dignity as human beings and their intrinsic right to life?
+- The existence of slavery cast the shadow of hypocrisy over the otherwise noble proclamation of the rights to life, liberty and the pursuit of happiness in our Declaration of Independence.
+- Realities are greater than ideas. Because sometimes ideas can separate us unnecessarily. So let's attend to the realities that we have to deal with on a day-to-day basis. That's what I want to do.
+- Science can and should inform debate about abortion and the law. But science does not resolve questions of moral value and moral choice.
+- Once a bishop is appointed, in terms of governance, we are semi-autonomous. It's not like we are branch managers of a bank or something.
+- Racism is a sin and has no place in the church, including the Archdiocese of Chicago.
+- Parishes must be the safest places for a child to be.
+- We want to inspire people to work together, giving them hope that we can do something even if we cannot do everything.
+- When the state imposes the death penalty, it proclaims that taking one human life counterbalances the taking of another life. This assumption is profoundly mistaken.
+- Chicago is highly segregated, a fact that both causes and compounds the problems we face in bringing an end to violence.
+- Once kids begin to realize that they are connected to a greater good and greater whole, then that will lessen the possibility that they will act out violently because it creates empathy.
+- There is a synergy between the way Croatians approach life and the way Jesuits do. Croatians are very real about situations. We don't gloss over things. If there are issues to deal with, you deal with them.
+- We have to believe in the mercy and grace of God to trigger conversion rather than the other way around: that you're only going to get the mercy if you have a conversion. The economy of salvation doesn't work that way.
+- Those who do not think religious organizations should have an opinion on climate change misunderstand the former and the moral dimension of the latter.
+- The state and its leaders have not only a responsibility but also a vested interest in defending the sacredness and value of every human life.
+- Clericalism is a form of elitism in which some are viewed as having special rights and privileges.
+- We realize there is no political party or politician who fully takes into consideration the issues the church is about. This is nothing new to us.
+- I take time to be with people, and I learn a lot.
+- We want to let people know that we can build solidarity with suffering folks so that they are not excluded, they are integrated.
+- We have to become involved in the political process - if we don't like it, we can change it.
+- We help immigrants because we are an immigrant nation, and we are an immigrant church. We've always done that; this is nothing new to us. This is not a new venture for us. It's who we are and have been from the very beginning of the history of the Catholic Church in this country.
+- Hope in the future is deeply rooted in our national psyche. It is part of the soul of our nation.
+- For generations, our political life was distorted by the influence of public officials whose foremost goal was to preserve the essence, if not the form, of slavery in a segregated and discriminatory social system.
+- I want to be a partner with business, labor, civic leaders, foundations, other churches so that we can work together... If I can talk to all of these people and have something in common, maybe I can get them to see that they also have something in common with each other when we come together.
+- I grew up in a family of nine children, and I know there has to be a back and forth and a listening.
+- I would say the synodal church is like the word itself. It is 'a going on the way together,' and it is a way - whenever people walk, there are people who have been that way before who know that others have been that way before, and so they try to give direction.
+- We're all different; we all have our ways of understanding ourselves and the way we live our lives and struggle with our humanity.
+- I was really grateful to have a chance to have some really in-depth study about the power of language using a philosopher who taught at the University of Chicago by the name of Paul Ricoeur. I'm really happy to be in Chicago because a lot of what I do is rooted in his approach to language.
+- I always tell myself... that the faith I have is a gift, so I shouldn't take that for granted. And so when people are struggling and feel they have no faith at all, I shouldn't say, 'Well, it's their fault.'
+- 'Dialogue' is not a dirty word; it's our word.
+- In the 40 years that I've been a priest and the 17 as a bishop, I have experienced people coming at things in a different way. That's the way adults are, that's the way the world is, and that's OK.
+- Here are the ingredients of a tragedy: untreated mental illness, a society where life is cheap and crime is glamorized, and a ready supply of firearms.
+- Catechesis, preaching, and passing on the faith must not only be about educating the members of our communities in the content of our tradition. This is important, but it must equally be about developing their spiritual sensitivity to the ways God manifests His presence and action in the world.
+- It's important for people to give every leader the chance to step forward and look for ways to have dialogue.
+- Pope Francis tells us who he is by pointing to Caravaggio's St. Matthew: 'Here, this is me, a sinner on whom the Lord has turned his gaze.' He is telling us that he has experienced the same rush of speechless wonder and graced love Caravaggio depicts in his painting.
+- If we create a framework for decision-making that is biased toward life, supportive of families, and fair to people of all circumstances, our policies, legislation, and commercial decisions will be vastly different.
+- Just as Cardinal Bernardin proposed that an of ethic of life be consistently applied to unite all the life issues, we need in our day to mine the church's social teaching on solidarity.
+- Radical individualism can be very sad.
+- Our schools must be places where all are respected and the values of tolerance and peacemaking are taught and nurtured.
+- We Catholics have been in the forefront in defending the dignity of the human person. Clericalism is a direct violation of human dignity.
+- People think sometimes there is a 'Catholic vote' because of one particular issue. This demeans who we are as a Catholic community. We should take the whole thing... We take everything.
+- Let's face it: grandparents are very important to family systems. You're babysitters, but you also instill values in children that sometimes skip a generation.
+- Every school that I have ever attended, except for kindergarten, I went to a Catholic institution.
+- I commend the parents who are sending their children to a Catholic school, because they're making a sacrifice, and they're paying twice for their child's education: They're paying the tuition, and they're paying taxes.
+- I try to be sensitive to the power of language, to the power of language that God uses to reveal something about what Christ is doing in our time. That is why I'm always excited about preaching, because there is always something new.
+- The church can challenge society, but society also challenges the church. That's good. We should be humble enough to be able to accept that.
+- I think that the Pope has trust in every bishop that is appointed.
+- I am never bored in my ministry because I continually see the impact of God in people's lives.
+- Society cannot escape what is essentially a moral question: When does human life deserve legal protection from the state? And society certainly cannot escape this dilemma by denying that it is fundamentally a moral issue, no matter what position one chooses.
+- Our people's faith is strong and sustains them even in times of challenge.
+- Schooling people in the ways of ongoing discernment produces a greater receptivity to the tradition of the church and at the same time creates the freedom that will make them more responsive to the will of God throughout their lives.
+- Once we begin to make our churches safety zones in a military-style approach, we're going to lose something of the character of our places of worship.
+- I believe the assertion that every human life has an inherent and inalienable value will only be strengthened if we apply this principle to the morality of defending both convicted criminals and the lives of the unborn.
+- We don't need more divisive language or programs and policies that are going to tear the fabric of the nation apart.
+- For me, the real goal is how do we make vibrant and vital faith communities that are sustainable for the long run.
+- The Catholic Church is an enormous footprint in Chicago, doing a lot of good. That aspiration is felt by a lot of people - that the church succeed - because it will be good for society.
+- Christ receives people; because of that mercy, conversion happens.
+- I don't think sometimes people in positions of leadership in the church really engage gay and lesbian people and talk to them and get to know about their lives.
+- Some of the greatest Christians I know are people who don't actually have a kind of faith system that they believe in. But, in their activity, the way they conduct themselves, there's a goodness there.
+- I did my doctoral dissertation on the lectionary readings that we use at mass and how you have biblical texts that have been taken out of their original Bible context and put together for mass, and now they form a new text. Out of that new text, there is an interplay of new meaning.
+- The Church is not fully Church if it lacks dialogue.
+- The Second Amendment was passed in an era when organized police forces were few and citizen militias were useful in maintaining the peace.
+- Collaborative governance needs to be more than calling on the advice and competence of others to make up for our episcopal shortcomings. Rather, governance involves seeking how God is revealing his work through others in the community.
+- We don't need military weapons in our society. We're not supposed to be at war with one another.
+- I think that education is a pathway out of poverty for many people. It was for our family.
+- We are called to care for those sickened by pollution, house those displaced by environmental calamities, and heal the spirits of those - especially our youth - who are disheartened by a world where human survival is now in question.

@@ -1,0 +1,182 @@
++++
+author = "Robert Green Ingersoll"
+title = "Robert Green Ingersoll Quotes"
+quotes_len = "176"
+description = "the best 176 Robert Green Ingersoll Quotes"
++++
+- The government, in my judgment, cannot create money; the government can give its note, like an individual, and the prospect of its being paid determines its value.
+- The literature of many lands is rich with the tributes that gratitude, admiration and love have paid to the great and honored dead. These tributes disclose the character of nations, the ideals of the human race.
+- Liberty is the breath of progress.
+- Nature is filled with tendencies and obstructions. Extremes beget limitations, even as a river by its own swiftness creates obstructions for itself.
+- Until every soul is freely permitted to investigate every book and creed and dogma for itself, the world cannot be free.
+- It has been said that a man of genius should select his ancestors with great care - and yet there does not seem to be as much in heredity as most people think. The children of the great are often small.
+- A good character, like a Gibraltar, will stand against the testimony of all the rascals in the universe, no matter how they assail it. It will stand, and it will stand firmer and grander the more it is assaulted.
+- The great poet is a great artist. He is painter and sculptor. The greatest pictures and statues have been painted and chiseled with words. They outlast all others.
+- If the guardians of society, the protectors of 'young persons,' could have had their way, we should have known nothing of Byron or Shelley. The voices that thrill the world would now be silent.
+- Taste and love are not the servants of the will. Love is and must be free. It rises from the heart like perfume from a flower.
+- Every man should be the intellectual proprietor of himself, honest with himself, and intellectually hospitable; and upon every brain, reason should be enthroned as king.
+- In order to appreciate a great man, we must know his surroundings. We must understand the scope of the drama in which he played - the part he acted - and we must also know his audience.
+- Many Americans do not understand that the officers of the government are simply the servants of the people.
+- In the night of death, hope sees a star, and listening love can hear the rustle of a wing.
+- The great man who gives a true transcript of his mind fascinates and instructs. Most writers suppress individuality. They wish to please the public.
+- I want to tell you this: you cannot get the robe of hypocrisy on you so thick that the sharp eye of childhood will not see through every veil.
+- We need men with moral courage to speak and write their real thoughts, and to stand by their convictions, even to the very death.
+- We can conceive of eternity because we cannot conceive of a cessation of time. We can conceive of infinite space because we cannot conceive of so much matter that our imagination will not stand upon the farthest star and see infinite space beyond.
+- He who refuses to stoop, who cannot be bribed by the promise of success or the fear of failure - who walks the highway of the right, and in disaster stands erect, is the only victor.
+- The doctrine of immortality rests upon human affection. We love; therefore, we wish to live.
+- I would rather live and love where death is king than have eternal life where love is not.
+- George Eliot tenderly carried in her heart the burdens of our race. She looked through pity's tears upon the faults and frailties of mankind.
+- If a man would follow, today, the teachings of the Old Testament, he would be a criminal. If he would follow strictly the teachings of the New, he would be insane.
+- I am the inferior of any man whose rights I trample under foot.
+- If I owe Smith ten dollars and God forgives me, that doesn't pay Smith.
+- I say that no man can be greater than the man who bravely and heroically sacrifices his life for the good of others. No man can be greater than the one who meets death face to face, and yet will not shrink from what he believes to be his highest duty.
+- There can be goodness without much intelligence - but it seems to me that perfect intelligence and perfect goodness must go together.
+- In the grave should be buried the prejudices and passions born of conflict. Charity should hold the scales in which are weighed the deeds of men.
+- Every man is dishonest who lives upon the labor of others, no matter if he occupies a throne.
+- The Church has always been willing to swap off treasures in heaven for cash down.
+- There can be but little liberty on earth while men worship a tyrant in heaven.
+- The place does not make the man, nor the sceptre the king. Greatness is from within.
+- The truth is that nearly everybody is right about some things and wrong about most things; and if a man's testimony is not to be taken until he is right on every subject, witnesses will be extremely scarce.
+- When men are prosperous, they are in love with life. Nature grows beautiful, the arts begin to flourish, there is work for painter and sculptor, the poet is born, the stage is erected - and this life with which men are in love is represented in a thousand forms.
+- Happiness is the only good. The time to be happy is now. The place to be happy is here. The way to be happy is to make others so.
+- Wherever the sword of rebellion is drawn to protect the rights of man, I am a rebel. Wherever the sword of rebellion is drawn to give man liberty, to clothe him in all his just rights, I am on the side of that rebellion.
+- What light is to the eyes - what air is to the lungs - what love is to the heart, liberty is to the soul of man.
+- Suspicion is only another form of cowardice. The man who suspects constantly suspects because he is afraid. Whenever you find a man with a free, frank, generous, brave nature, you will find that man without suspicion.
+- Every good government is made up of good families. The unit of good government is the family, and anything that tends to destroy the family is perfectly devilish and infamous.
+- There is no common sense in going to the field to fight and leaving a man at home to undo all that you accomplish.
+- It is what people do not know that they persecute each other about.
+- You have to change men physically before you change them intellectually.
+- Voltaire lighted a torch and gave to others the sacred flame. The light still shines and will as long as man loves liberty and seeks for truth.
+- When every church becomes a school, every cathedral a university, every clergyman a teacher, and all their hearers brave and honest thinkers, then - and not until then - will the dream of poet, patriot, philanthropist and philosopher become a real and blessed truth.
+- The children of great authors do not, as a rule, become writers.
+- In the republic of mediocrity, genius is dangerous.
+- Character is made of duty and love and sympathy, and, above all, of living and working for others.
+- I hope there is another life, for I would like to see how things come out in this world when I am dead.
+- Our fathers knew that the flag was never intended to protect any man who wanted to assail it.
+- When you go home, fill the house with joy so that the light of it will stream out the windows and doors and illuminate even the darkness. It is just as easy that way as any in the world.
+- As long as the people persist in voting for or against men on account of their religious views, just so long will hypocrisy hold place and power.
+- Neutrality is generally used as a mask to hide unusual bitterness. Sometimes it hides what it is - nothing. It always stands for hollowness of head or bitterness of heart, sometimes for both.
+- I simply claim that what ideas I have, I have a right to express; and that any man who denies that right to me is an intellectual thief and robber.
+- Ignorant people are apt to overrate the value of what is called education. The sons of the poor, having suffered the privations of poverty, think of wealth as the mother of joy.
+- It always has been and forever will be impossible for slavery or any kind or form of injustice to produce a great poet.
+- There are so many societies, so many churches, so many -isms, that it is almost impossible for an independent man to succeed in a political career.
+- Few rich men own their property; their property owns them.
+- The time to be happy is now, and the place to be happy is here.
+- Colleges are places where pebbles are polished and diamonds are dimmed.
+- The American people do not like neutrality. They would rather a man were on the wrong side than on neither.
+- It is hard to conceive of the utter demoralization, of the political blindness and immorality, of the patriotic dishonesty, of the cruelty and degradation of a people who supplemented the incomparable Declaration of Independence with the Fugitive Slave Law.
+- Kings had their clowns, the people their actors and musicians. Shakespeare was scheduled as a servant. It is thus that successful stupidity has always treated genius.
+- In spite of my surroundings, of my education, I had no love for God.
+- Religion is not theory - it is life. It is not intellectual conviction - it is divine humanity, and nothing else.
+- I find that in this day and generation, the meanest men have the lowest estimate of woman; that the greater the man is, the grander he is, the more he thinks of mother, wife and daughter.
+- Happiness is not a reward - it is a consequence. Suffering is not a punishment - it is a result.
+- In every age in which books have been produced, the governing class, the respectable, have been opposed to the works of real genius.
+- Ignorance is the soil in which belief in miracles grows.
+- Walt Whitman defended the sacredness of love, the purity of passion - the passion that builds every home and fills the world with art and song.
+- Roscoe Conkling was a man of superb courage. He not only acted without fear, but he had that fortitude of soul which bears the consequences of the course pursued without complaint.
+- Most people can bear adversity; but if you wish to know what a man really is give him power.
+- It is a thousand times better to have common sense without education than to have education without common sense.
+- In the presence of eternity, the mountains are as transient as the clouds.
+- Reason, observation, and experience; the holy trinity of science.
+- An honest God is the noblest work of man.
+- Voltaire, as full of life as summer is full of blossoms, giving his ideas upon all subjects at the expense of prince and king, was exiled to England.
+- Fear, prejudice, malice, and the love of approbation bribe a thousand men where gold bribes one.
+- In my judgment, the American people are too brave, too charitable, too generous, too magnanimous, to believe in the infamous dogma of an eternal hell.
+- There is no slavery but ignorance.
+- A prayer that must have a cannon behind it better never be uttered. Forgiveness ought not to go in partnership with shot and shell. Love need not carry knives and revolvers.
+- Let us put theology out of religion. Theology has always sent the worst to heaven, the best to hell.
+- Happiness is the legal-tender of the soul. Joy is wealth.
+- Our government should be entirely and purely secular. The religious views of a candidate should be kept entirely out of sight.
+- A fact never went into partnership with a miracle. Truth scorns the assistance of wonders. A fact will fit every other fact in the universe, and that is how you can tell whether it is or is not a fact. A lie will not fit anything except another lie.
+- In our era, the road to holiness necessarily passes through the world of action.
+- What is it that distinguishes you and me from the lower animals - from the beasts? More, I say, than anything else, human sympathy - human sympathy.
+- The man who has really won the love of one good woman in this world, I do not care if he dies in the ditch a beggar - his life has been a success.
+- All the punishment in the world will not reform a man, unless he knows that he who inflicts it upon him does it for the sake of reformation, and really and truly loves him, and has his good at heart. Punishment inflicted for gratifying the appetite makes man afraid but debases him.
+- The superior man is the providence of the inferior. He is eyes for the blind, strength for the weak, and a shield for the defenseless. He stands erect by bending above the fallen. He rises by lifting others.
+- Every religion in the world has denounced every other religion as a fraud. That proves to me that they all tell the truth - about others.
+- The sacred books of all the world are worthless dross and common stones compared with Shakespeare's glittering gold and gleaming gems.
+- The more liberty you give away the more you will have.
+- They who gain applause and power by pandering to the mistakes, the prejudices and passions of the multitude are the enemies of liberty.
+- Good nature is the cheapest commodity in the world, and love is the only thing that will pay ten percent, to borrower and lender both.
+- The mind cannot be securely anchored. If we do not advance, we go backward. If we do not grow, we decay. If we do not develop, we shrink and shrivel.
+- If you wish to reflect credit upon your parents, accomplish more than they did, solve problems that they could not understand, and build better than they knew.
+- For the most part, we inherit our opinions. We are the heirs of habits and mental customs.
+- Freedom has invented every useful machine, from the lowest to the highest, from the simplest to the most complex.
+- The great poets have sympathized with the people. They have uttered in all ages the human cry. Unbought by gold, unawed by power, they have lifted high the torch that illuminates the world.
+- No writer must be measured by a word or paragraph. He is to be measured by his work - by the tendency, not of one line, but by the tendency of all.
+- Nothing has been left undone by the enemies of freedom. Every art and artifice, every cruelty and outrage has been practiced and perpetrated to destroy the rights of man. In this great struggle, every crime has been rewarded and every virtue has been punished.
+- Shakespeare pursued the highway of the right. He did not seek to put his characters in a position where it was right to do wrong.
+- I say, let us think. Let each one express his thought. Let us become investigators, not followers, not cringers and crawlers. If there is in Heaven an infinite being, he never will be satisfied with the worship of cowards and hypocrites.
+- You need not go back four thousand years for heroines. The world is filled with them today. They do not belong to any nation, nor to any religion, nor exclusively to any race. Wherever woman is found, they are found.
+- Whoever labors for the happiness of those he loves elevates himself, no matter whether he works in the dreary shop or the perfumed field.
+- The Catholics of Maryland were the first people on the new continent to declare universal religious toleration. Let this be remembered to their eternal honor.
+- Anger is a wind which blows out the lamp of the mind.
+- Kindness is the sunshine in which virtue grows.
+- Every fact in the universe will fit every other fact in the universe. A lie never did, never will fit anything but another lie made to fit it. Never, never!
+- Whether there is another life or not, if there is any being who gave me this, I shall thank him from the bottom of my heart, because, upon the whole, my life has been a joy.
+- Justice should remove the bandage from her eyes long enough to distinguish between the vicious and the unfortunate.
+- Surely there is grandeur in knowing that in the realm of thought, at least, you are without a chain; that you have the right to explore all heights and depth; that there are no walls nor fences, nor prohibited places, nor sacred corners in all the vast expanse of thought.
+- I concluded that all religions had the same foundation - a belief in the supernatural - a power above nature that man could influence by worship - by sacrifice and prayer.
+- How poor this world would be without its graves, without the memories of its mighty dead. Only the voiceless speak forever.
+- If there is any God, there is only one way to please him, and that is by a conscientious discharge of your obligations to your fellow men.
+- The inspiration of the Bible depends upon the ignorance of the gentleman who reads it.
+- The grandest ambition that any man can possibly have is to so live and so improve himself in heart and brain as to be worthy of the love of some splendid woman; and the grandest ambition of any girl is to make herself worthy of the love and adoration of some magnificent man.
+- In France, the people were the sport of a king's caprice. Everywhere was the shadow of the Bastille. It fell upon the sunniest field, upon the happiest home.
+- They believed that every man should know how to read and how to write, and should find out all that his capacity allowed him to comprehend. That is the glory of the Puritan fathers.
+- Insolence is not logic; epithets are the arguments of malice.
+- Religion can never reform mankind because religion is slavery.
+- If the government can make money, what on earth does it collect taxes for you and me for? Why don't it make what money it wants, take the taxes out, and give the balance to us?
+- The truth is that all great men have had great mothers. Great women have had, as a rule, great fathers.
+- Hope is the only bee that makes honey without flowers.
+- I will not attack your doctrines nor your creeds if they accord liberty to me. If they hold thought to be dangerous - if they aver that doubt is a crime, then I attack them one and all, because they enslave the minds of men.
+- Man never had an idea - man will never have an idea, except those supplied to him by his surroundings. Every idea in the world that man has came to him by nature.
+- He who does not want does not act.
+- The real sustains the same relation to the ideal that a stone does to a statue - or that paint does to a painting. Realism degrades and impoverishes.
+- In nature there are neither rewards nor punishments; there are consequences.
+- Most people are Democrats because they hate something; most people are Republicans because they love something.
+- Our fathers founded the first secular government that was ever founded in this world. Recollect that. The first secular government - the first government that said every church has exactly the same rights and no more; every religion has the same rights, and no more.
+- Voltaire made up his mind to destroy the superstition of his time. He fought with every weapon that genius could devise or use. He was the greatest of all caricaturists, and he used this wonderful gift without mercy.
+- As long as we can get redress in the courts, as long as the laws shall be honestly administered, as long as honesty and intelligence sit upon the bench, as long as intelligence sits in the chairs of jurors, this country will stand, the law will be enforced, and the law will be respected.
+- Beauty is not all there is of poetry. It must contain the truth. It is not simply an oak, rude and grand, neither is it simply a vine. It is both. Around the oak of truth runs the vine of beauty.
+- I think the man who eats the bread of idleness is under a certain obligation to speak well of labor.
+- Freedom believes in education - the salvation of slavery is ignorance.
+- Few nations have been so poor as to have but one god. Gods were made so easily, and the raw material cost so little, that generally the god market was fairly glutted and heaven crammed with these phantoms.
+- Nothing is more despicable than to reach fame by crawling, position by cringing.
+- It is an old habit with theologians to beat the living with the bones of the dead.
+- I regard the rights of men and women equal. In Love's fair realm, husband and wife are king and queen, sceptered and crowned alike, and seated on the self-same throne.
+- A great man does not seek applause or place; he seeks for truth; he seeks the road to happiness, and what he ascertains, he gives to others.
+- Perish the infamous doctrine that man can have property in man. Let us resent with indignation every effort to put a chain upon our minds.
+- If matter cannot be destroyed, cannot be annihilated, it could not have been created. The indestructible must be uncreatable.
+- A good way to make children tell the truth is to tell it yourself. Keep your word with your child the same as you would with your banker.
+- It is a blessed thing that in every age some one has had the individuality enough and courage enough to stand by his own convictions.
+- The true civilization is where every man gives to every other every right that he claims for himself.
+- When the will defies fear, when duty throws the gauntlet down to fate, when honor scorns to compromise with death - that is heroism.
+- Let us account for all we see by the facts we know. If there are things for which we cannot account, let us wait for light.
+- There is a quiet about the life of a farmer, and the hope of a serene old age, that no other business or profession can promise.
+- No system of religion should go in partnership with barbarism. Neither should any Christian feel it his duty to defend the savagery of the past.
+- The greatest test of courage on earth is to bear defeat without losing heart.
+- Tolerance is giving to every other human being every right that you claim for yourself.
+- The walls of that grand edifice called a good character have to be worked at during life.
+- Perjury is the basest and meanest and most cowardly of crimes. What can it do? Perjury can change the common air that we breathe into the axe of an executioner.
+- Custom is a prison, locked and barred by those who long ago were dust, the keys of which are in the keeping of the dead.
+- I can imagine no sweeter way to end one's life than in the quiet of the country, out of the mad race for money, place and power - far from the demands of business - out of the dusty highway where fools struggle and strive for the hollow praise of other fools.
+- I believe in living for this world - that's my doctrine - to make everybody happy that you can.
+- Courage without conscience is a wild beast.
+- Hope is the only universal liar who never loses his reputation for veracity.
+- Whoever marries simply for himself will make a mistake; but whoever loves a woman so well that he says, 'I will make her happy,' makes no mistake. And so with the woman who says, 'I will make him happy.'
+- There may be another life, and if there is, the best way to prepare for it is by making somebody happy in this.
+- Voltaire! A name that excites the admiration of men, the malignity of priests. Pronounce that name in the presence of a clergyman, and you will find that you have made a declaration of war.
+- A great man is a torch in the darkness, a beacon in superstition's night, an inspiration and a prophecy.
+- I will live by the standard of reason, and if thinking in accordance with reason takes me to perdition, then I will go to hell with my reason rather than to heaven without it.
+- Give to every human being every right that you claim for yourself.
+- All the men of wealth should remember that everybody in a community has got, in some way, to be supported. I want to see them so that they can support themselves by their own labor.
+- Homes make patriots. He who has sat by his own fireside with wife and children will defend it. Few men have been patriotic enough to shoulder a musket in defense of a boarding house. The prosperity and glory of our country depend upon the number of people who are the owners of homes.
+- I do not believe anything comes by chance. I regard the present as the necessary child of a necessary past.
+- So far as I am concerned, I think more of reasons than of reputations, more of principles than of persons, more of nature than of names, more of facts than of faiths.
+- You cannot change the conclusion of the brain by torture, nor by social ostracism. But I will tell you what you can do by these and what you have done. You can make hypocrites by the million.
+- There are times when a falsehood well told bridges over quite a difficulty, but in the long run, you had better tell the truth, even if you swim the creek.
+- Our fathers worshiped the golden calf. The worst you can say of an American now is, he worships the gold of the calf.
+- The religion that has to be supported by law is without value, not only, but a fraud and a curse. The religious argument that has to be supported by a musket is hardly worth making.
+- This great question of predestination and free will, of free moral agency and accountability, and being saved by the grace of God, and damned for the glory of God, have occupied the mind of what we call the civilized world for many centuries.
+- Intelligence, integrity and courage are the great pillars that support the State. Above all, the citizens of a free nation should honor the brave and independent man - the man of stainless integrity, of will and intellectual force.
+- Science has nothing in common with religion. Facts and miracles never did and never will agree.

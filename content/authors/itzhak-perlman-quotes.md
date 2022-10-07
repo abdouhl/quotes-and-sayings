@@ -1,0 +1,88 @@
++++
+author = "Itzhak Perlman"
+title = "Itzhak Perlman Quotes"
+quotes_len = "82"
+description = "the best 82 Itzhak Perlman Quotes"
++++
+- Any gifted child can potentially get in real trouble because of the way they are handled.
+- The arts are part of the fiber of American society and should get Federal support.
+- Life is always full of challenges. I believe you're never happy unless you're consistently making challenges for yourself.
+- I say to string players in small chamber orchestras, 'it's always easy to become a passenger on the journey in sound, just adding volume to the whole. But if you play in an individual way, it makes the difference between good and great sound in an orchestra.'
+- When you are 8 or 9, you should have a childhood. You should have adolescence. You should go through everything in a normal way.
+- I feel that you always pay when you are a child.
+- You get more nervous in front of a lot of people. That's why, when you play a concerto, you play with a small orchestra, in some place where you don't feel that it is as important as Carnegie Hall.
+- I'm an acoustical person.
+- A lot of society tries to put people with disabilities into one cube, and when you think about it, many, many people have different types of disabilities, and you cannot put a code that applies to towards everyone - generally, they can be guidelines, but in the long run, interior designers and architects need more education on the subject.
+- Child prodigy is a curse because you've got all those terrible possibilities.
+- If you can read, then you can recite Shakespeare. But that's not acting.
+- An amazing gift in a young child is, in some ways, an abnormality.
+- I always find Bach to be an expression of a love of life. There's an enthusiasm that's absolutely contagious.
+- I always find that there is a real communication between voice and violin.
+- My oldest daughter is a pianist; she plays concerts. We play together, also.
+- I love to work with young kids.
+- I'm now doing three things: concerts, conducting, and teaching, and they each support each other. I learn to see things from different perspectives and listen with different ears. The most important thing that you need to do is really listen.
+- As for minimalism, I don't care, don't care, don't care to repeat myself, repeat myself.
+- Everybody's saying, you know, 'You're so heroic and so on despite of the polio that you had and so on.' Look, I had polio when I was four. So when you're four years old, you know, you get used to things very, very quickly.
+- Trust your ability!
+- There are people who are uncanny, who are finished products at a young age. I wasn't, thank God.
+- When you live in a small country such as Israel, the dream of any musician is to go abroad.
+- Another thing that I don't like to do is show too much how it goes. I do it once in a blue moon. Sometimes there are lessons when I don't pick up a violin at all.
+- A lot of people ask me, 'What is your goal now that you have done everything?' And I always say that my goal is to not be bored by what I do. The only way that I cannot be bored by what I do is if I play something and it's all new to me.
+- So many things can drive you mad as a child, not only music.
+- I actually wanted to play the violin before I had polio, and then afterwards, there was no reason not to.
+- That's the goal, to survive your gift.
+- The thing about talent is that it comes at different ages, sometimes at a very early age. That's when I find it to be the most challenging.
+- I'm a mushroom freak. I make a mushroom soup where I use maybe six or seven varieties, not just portobello and shiitake, but dried porcini and morels.
+- The most important thing to do is really listen.
+- To bring a large audience to a piece of serious music and make it accessible does not mean reducing it in any way. And I've learned that if something is good, even if it is a little difficult, people will get that it is good.
+- If you put four different people on a podium conducting the same downbeat, you get four different sounds. It's a little mysterious and fascinating. There's so much you can do with motions and body movements besides giving accurate beats.
+- I don't feel that the conductor has real power. The orchestra has the power, and every member of it knows instantaneously if you're just beating time.
+- Competition can be the most nerve-racking experience. Some people just thrive on it.
+- For people who are really talented, what you don't say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.
+- For every child prodigy that you know about, at least 50 potential ones have burned out before you even heard about them.
+- I have a very simple philosophy. One has to separate the abilities from the disabilities. The fact I cannot walk, that I need crutches or a scooter or whatever it is, has nothing to do with my playing the violin.
+- If you put your hand on the piano, you play a note. It's in tune. But if you put it on the violin, maybe it is, maybe it isn't. You have to figure it out.
+- Television will always err on the side of making something not quite as classy as it could be.
+- Sometimes you get from the mouth of kids wonderful things.
+- The difference is that with Ebola, it is such a devastating disease, and there is still no cure. They're still working on vaccines. The fact of the matter with polio, there is a cure; there is a vaccine.
+- I am an eternal optimist. I always say 'Yihyeh Tov' or 'It'll get better.'
+- Only one of my grandchildren is serious about a musical instrument. The others dabble in it.
+- Access Living is a powerful voice for people in the Chicago area who live with disabilities.
+- In the musician, there is a tendency to have a narrowness. It's all compartmentalized. I am playing the violin; that's all I know, nothing else, no education, no nothing. You just practice every day.
+- Every person with a disability is an individual.
+- The problems of the disabled are unpopular.
+- The thing is that I always consider myself lucky that I can actually cry listening to some music.
+- In Paris they have special wheelchairs that go through every doorway. They don't change the doorways, they change the wheelchairs. To hell with the people! If someone weighs a couple more pounds, that's it!
+- 'Kol Nidrei' is probably the most important prayer in the Jewish religion. It comes on the evening of Yom Kippur. There are so many different renditions of it.
+- I think that music has to do with what kind of passion do you have.
+- The danger in playing a piece over and over again lies in getting stuck in a rut where you don't ask questions anymore and you always play it the same way.
+- A talented child will have a schedule that is horrendous. You get up and practice, go to school, practice some more, eat dinner, and then you have homework.
+- When you play a concerto with a small orchestra, you don't feel it is as important as Carnegie Hall. You try to work out all the little problems. Once that's all done, trust comes in.
+- I am humbled and honored to receive the Genesis Prize, recognizing not just my professional achievements and my desire to improve the world, but also my commitment to my Jewish identity, Jewish values, and Jewish culture.
+- I have always been very proud of my Jewish heritage, which has greatly influenced my music, my world view, and my work as an advocate for individuals whom society often leaves behind.
+- The 'Mozart Symphony No. 27' is an early composition. I find it charming.
+- I have just one fiddle. It works, and that's it. It has been an old friend.
+- Brahms is one of my all-time favorite composers.
+- My experience with the Detroit Symphony has been musically very satisfying. They have a wonderful sound, which for me is one of the most important qualities in an orchestra.
+- This young wine may have a lot of tannins now, but in five or 10 years it is going to be spectacular, despite the fact that right now it tastes like crude oil. You know this is how it is supposed to taste at this stage of development.
+- A sponge has that much absorbent capability and after a while you can pour water over it and nothing stays.
+- I'm a great sports fan, you know. I love to watch tennis and basketball and baseball and so on.
+- I listen to kids play a lot.
+- Whenever I play recitals, the part where I talk about music and my experiences of music, audiences always like it. They feel more involved with an artist who talks to them. It's a nice experience for me as well.
+- That makes classical music work, the ability to improvise.
+- I've been lucky to conduct the very best orchestras in the world: New York, San Francisco, Chicago, Berlin, the London Philharmonic.
+- One of the most important elements in teaching, conducting, and performing, all three, is listening.
+- When I came to the United States, I appeared on the Ed Sullivan Show as a 13-year-old, and I played a Mendelssohn Concerto, and it sounded like a talented 13-year-old with a lot of promise. But it did not sound like a finished product.
+- I look at raising funds for The Perlman Music Program as a challenge and as a way to provide opportunities for people who care about the future of classical music.
+- I met my wife in music camp. She's got great ears, and we have a relationship where she's not afraid to tell me anything. If something's going on in my playing, she will tell me about it, and that's very, very important.
+- My message is that giving is very important. Giving is a Jewish thing, and I like to talk about that. There's nothing more important, personally, for anybody than being able to give.
+- Believe me, I've had interviews where the person says, 'So when did you start and why? What about your parents?' I say to them, 'Please, have you heard of the word 'Google?'
+- Preparing for a future in music is an expensive proposition.
+- It is good medicine to go to a concert hall and forget the harshness of what's going on. It can be a very positive thing.
+- Teaching is really very, very important. I always tell my students that you should find an opportunity to teach. When you teach others, you teach yourself.
+- Architects have to become more aware of exactly what is involved in designing barrier-free buildings and homes.
+- I can tell you that many soloists probably wish they could sit.
+- There is no such thing as getting rid of nervousness.
+- When I was growing up in Israel, Cantorial music was something I heard over and over on the radio, so it wasn't at all strange to me. I was very familiar with the music.
+- I am playing the violin, that's all I know, nothing else, no education, no nothing. You just practice every day.
+- Israel is the country of my birth. When I come here, I feel I'm coming home.

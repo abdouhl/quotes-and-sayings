@@ -1,0 +1,31 @@
++++
+author = "Binyavanga Wainaina"
+title = "Binyavanga Wainaina Quotes"
+quotes_len = "25"
+description = "the best 25 Binyavanga Wainaina Quotes"
++++
+- I am quite excited that Moi is leaving. Kenyans have changed. We have a free press, and it is no longer a situation of 'follow in my footsteps.'
+- When I went to live in South Africa, I immediately began to understand what went wrong. Because here was a place supposed to be under apartheid - I arrived there in 1991 - but here a black person had more say and had more influence over his white government than an average Kenyan had over the Moi government.
+- What is astonishing is that globalised technology, like Whatsapp and Viber, really gives a lot of leeway to negotiating spaces and to keeping one's identity. So people are able to be more receptive as a gay community to be part of an environment that is going to challenge the law.
+- Always end your book with Nelson Mandela saying something about rainbows or renaissances. Because you care.
+- I like the idea of readers feeling a familiarity, whether it's with Africa or childhood.
+- In kindergarten, we had this Irish Catholic headmistress called Sister Leonie, and I remember she would tell us, say, to put the crayons in the box. I remember thinking, 'Why is everyone finding this so easy? Why should the crayons be in the box?'
+- I'm extremely optimistic about rapid transformation and change of things in Africa in general.
+- It's like I was always not quite sure even how to move in space somehow; I would watch people and then copy them. I found it really hard to walk straight. My brother was always on at me for walking off the pavement. I guess I always expected people to bring me back into line.
+- I believe in, and will to the best of my ability fight for, equal rights and freedom of opinion for everyone, regardless of colour, religion, nationality, orientation - you know the rest.
+- Never have a picture of a well-adjusted African on the cover of your book, or in it, unless that African has won the Nobel prize.
+- Every human being has a bit of gangster in him.
+- The time we are living in is the greatest opportunity to be queer, and it is almost the most dangerous time because everything is up for grabs.
+- I, Binyavanga Wainaina, quite honestly swear I have known I am a homosexual since I was five.
+- I'm not even sure I want to use the term 'coming out.'
+- All people have dignity. There's nobody who was born without a soul and a spirit.
+- I knew I didn't want to come out in the 'New Yorker'; it just felt wrong. It needed an African conversation.
+- I want to be fighting for a society accountable towards its citizens.
+- There's no point for me in being a writer and having all these blocked places where I feel I can't think freely and imagine freely. There just really is no point.
+- I love playing with words and texture.
+- People reach an age... where somebody else's platform is no longer yours.
+- Living in South Africa and periodically coming back to Kenya, my relationship with officialdom in Kenya was just insane.
+- Every one, we, we homosexuals, are people, and we need our oxygen to breathe.
+- We are a mixed up people. We have mixed up ways of naming, too... When my father's brothers and sisters first went to colonial schools, they had to produce a surname. They also had to show they were good Christians by adopting a western name. They adopted my grandfather's name as surname. Wainaina.
+- There is no country in the world with the diversity, confidence and talent and black pride like Nigeria.
+- I'm an African. I was brought up here; my home is here. Being an Afropolitan, I am here to stay.

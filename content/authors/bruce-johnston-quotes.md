@@ -1,0 +1,30 @@
++++
+author = "Bruce Johnston"
+title = "Bruce Johnston Quotes"
+quotes_len = "24"
+description = "the best 24 Bruce Johnston Quotes"
++++
+- Brian came back in on the road and Al stayed, but Al's the original member of the group.
+- I mean it shouldn't hang you up emotionally if your record fails.
+- I've been with the group since 1965. I will be beginning my fifth year on April ninth this year.
+- I never could get into The Chambers Brothers. They make good records, but I never could get behind it.
+- Sometimes one of us might be missing because we might be away or something, but there's always four or five.
+- The group started getting bigger and bigger, so Al started replacing Brian on the road, and then finally there was a big flare-up with Dave Marks and he left the group.
+- We've recorded over our voices once and double the harmonies, make them thick. The Four Freshmen do that.
+- Carl, Dennis and Brian are brothers, and Mike Love's a cousin.
+- You know, Glen Campbell sang with the group right before I joined the group.
+- But, you know again, getting back to what a group like ours might represent - the cleanliness thing.
+- We're just kinda surviving at a very comfortable level.
+- Everybody can dig The Beatles, but why should everybody dig us?
+- We try some really interesting things besides being outright commercial.
+- Before I joined The Beach Boys, I was working at Columbia Records as a producer, and saw The Byrds come in and do their first overdub before Terry even met them.
+- I really dig The Byrds. I think they are the most underrated - in their original form - pop group.
+- You know, The Beach Boys' image is kinda like a group Doris Day, you know what I mean?
+- I really dig the scene that's happening now, I really do, because there might be a lot of bad things going on, but if out of all of those bad things ten per cent of the groovy part of it stays, wow... you can't beat that.
+- Well, a lot of our concerts do okay, and I know we still get royalty checks which still isn't that important, but again, I have to just say that we're making our records.
+- Records... a record just shouldn't be that important.
+- Of course The Beach Boys will be camp.
+- We're not trying to top ourselves with each record, obviously.
+- You know, if I wrote the arrangements two years from now, they would probably be a lot slicker.
+- We are a business, and you do a little of what you think's right, pay your bills, and attract... a single record attracts attention to your concerts and your albums.
+- For us... you know, we're not The Beatles.

@@ -1,0 +1,17 @@
++++
+author = "Ralph Adams Cram"
+title = "Ralph Adams Cram Quotes"
+quotes_len = "11"
+description = "the best 11 Ralph Adams Cram Quotes"
++++
+- The Great War was a progressive revelation and disillusionment.
+- Towards the end of the eighteenth century the industrial-financial revolution began.
+- True as this is, it is also true that for one who won through there were many who gained nothing, and it was, and is, the sheer weight of numbers of those who failed of this that has made their influence on the modern life as pervasive and controlling as it is.
+- Through the wholesale destruction of the representatives of a class that from the beginning of history had been the directing and creative force in civilization, a process began which was almost mechanical.
+- In revolt against this new and very evil thing came the republicanism of the eighteenth century, inspired and directed in large measure by members of the fast perishing aristocracy of race, character and tradition.
+- The pursuit of perfection always implies a definite aristocracy, which is as much a goal of effort as a noble philosophy, an august civil polity or a great art.
+- Christianity, democracy, science, education, wealth, and the cumulative inheritance of a thousand years, have not preserved us from the vain repetition of history.
+- If we had this back, and in full measure; if society were infused by it, through and through, and men lived its life, and in its life, philosophy would take care of itself and the nature of our institutions would not matter.
+- As the power of Christianity declined through the centuries that have followed the Reformation, Calvinism played a less and less important part, while the new philosophies of mechanism and rationalism correspondingly increased.
+- With the opening of the second decade of the twentieth century it seemed that the stage was set for the last act in an unquestioned evolutionary drama.
+- But freedom, liberty, is an attribute of the soul and it may exist even when the body is in bondage.

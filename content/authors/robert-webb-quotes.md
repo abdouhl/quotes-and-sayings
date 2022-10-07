@@ -1,0 +1,86 @@
++++
+author = "Robert Webb"
+title = "Robert Webb Quotes"
+quotes_len = "80"
+description = "the best 80 Robert Webb Quotes"
++++
+- I suppose if I went to Turkey - I mean, I can't imagine going that far away, but if I did go to Turkey, yes, I would probably try to know 'please' and 'sorry' and 'thank you', and 'a beer please', and all the useful words.
+- We got our revolution out of the way long before the French and the Americans. The monarchy was restored, but the sovereignty of our parliament, made up of and elected by a slowly widening constituency of the people, has never been seriously challenged since then.
+- I think jokes can actually go to places that drama can't.
+- I've been called funny. I assume my wife thinks I'm funny. But generally, if you bumped into me and said hello, I would say hello back, politely. And that would be it.
+- When I present those clip shows and movie mistakes and things, the persona the writers adopt for me is unimpressed, superior, very sarcastic - I'm not any of that. I can do it, but that's not what I'm like.
+- We have a family holiday once a year, usually abroad, but that's it. I feel I should have holidays for my family's sake, but I'm not that adventurous.
+- Basically I try not to knock other comedians.
+- If I hadn't got into comedy, I wouldn't have met Abbey, my wife, and I wouldn't have my two girls, and the whole thing unravels. That's the thing about being basically - whisper it quietly - happy, is that you don't really want to change anything, because once you start changing stuff, then what you've got all disappears.
+- When the Mac ad campaign was in full swing, I quickened my pace as I went past certain bus stops. My wife told me that she loyally took a piece of chewing gum off my nose once.
+- The strength of 'Peep Show' has always been that that it's quite traditional, but it's obviously presented in a very new way.
+- I don't do much to keep in trim - I try to walk places instead of driving whenever I can, but I really ought to do more.
+- Religion is many things, but one of them, surely, is a way for adults to indulge in uncritical hero worship.
+- My mother died when I was 17, and I moved in with my dad to make a 12-month pig's ear of retaking my A-levels.
+- It should go without saying that there are as many working-class people who hold socially liberal views as there are public-school bigots.
+- When I was 18, I was halfway up the Eiffel Tower with my friend, Tom, when we decided to stick our heads through the railings. The gap between the railings was exactly the right size to be able to put your head through and nearly get stuck. Which is exactly what happened.
+- I am a feminist. I don't especially care for the term, but there it is.
+- UKIP trades in the language of fear and division; it seeks power in order to reject responsibility.
+- I grew up watching British comedy on TV, really.
+- I was an usher at the Lyric Theatre Hammersmith. You had to watch whatever play they had on 40 times.
+- One thing about the fantasy dinner party idea that no one considers is whether these people are going to get on. I would say John McEnroe and Ian McEwan, but what would they have to say to each other?
+- Mum was an amazing parent and my best pal. The tragedy of it, really, was that she died from breast cancer just as I was becoming a man, aged 17, and we were just starting to speak as adults. She was snatched away, and it felt cruel. She made me laugh.
+- No, feminism isn't 'over.' We need it not only to challenge injustice but because the whole gender expectations thing is bad for men, too.
+- We are people, individuals comprising a variety of sexes, races, shifting sexualities and all the rest of it. Every convention that tries to reinforce this difference is a step back. Notions of gender pointlessly separate men from women, but also mothers from daughters and fathers from sons.
+- My favorite series of 'Peep Show' is always the most recent one, which I can say with all honesty because I don't write it. It gets better and better.
+- Don't get me wrong - intellectual snobbery is vulgar and gauche.
+- Feminism is an attack on social practices and habits of thought that keep women and men boxed into gender roles that are harmful.
+- I get recognised a fair bit. It goes up when 'Peep Show' or the sketch show is on the telly or when we're doing loads of interviews.
+- Ed Miliband is obviously a mild guy. I don't expect him to pretend to be a pugilist.
+- Missing out an apostrophe or two does not make you an idiot. But equating party allegiance with nationhood certainly makes you a thug. And thugs don't often notice that they're thugs, usually because they're also idiots.
+- I hate it when people use the word 'sorry' aggressively, as in, 'Sorry, but I hate you.' Sorry's an important word, and it shouldn't be abused.
+- I was the youngest of three brothers by five years, so I spent most of my childhood playing alone, being Zorro or some other superhero, doing Lego, watching telly and riding my bike.
+- On 'EastEnders,' if someone gets surprising news on the phone, the scene ends with them looking at their handset in amazement. No one in real life does that.
+- I'm good at finding things to do on my own, even if it's just reading.
+- There was a lot of terrible, terrible comedy in the seventies along with 'Fawlty Towers.' It's easy to forget.
+- I'm knackered. I'm knackered all the time. My stupid, tiny children wake me up at 5:48 A.M. every single morning.
+- The only thing I've cooked while entertaining is stir-fry.
+- I grew up in Lincolnshire, trying to get the daughters of farmers and policemen to like me. It didn't go well until I got to college where, suddenly, there were different sorts of humans.
+- The female characters in 'Peep Show' are not 'strong': they are idiots. As idiotic as the men.
+- My first proper kiss was from Cara Shucksmith when I was 13 or 14 at her birthday party.
+- Very bad things follow when we kid ourselves that we're naturally rational, rather than the more humbling truth: naturally emotional.
+- Feminism isn't about hating men. It's about challenging the absurd gender distinctions that boys and girls learn from childhood and carry into their adult lives.
+- The way people imagine their political leaders is, like it or not, an important factor in how they decide to vote and, indeed, whether they vote at all.
+- A waiter at the hotel kept telling me that Cape Town is just like a European city, but it's not like that at all. It doesn't feel safe, and I didn't really go out at night.
+- Like most men, I can't say I am thrilled my hair's falling out, but then, if I really cared, I suppose I would wear a wig, get transplants, or start taking special pills, so I am obviously just putting up with it.
+- I don't do much lying in real life because I don't get away with it.
+- I'm troubled by how much I like Rowan Williams. I think it reveals character flaws in myself that I'd rather not think about. The softly spoken soon-to-be-former Archbishop of Canterbury is my secret crush, my weird pash, and my guilty pleasure.
+- I've been sort of coasting on 'Peep Show.' So now it's kind of, 'When I grow up, I'm going to have to be an actor if I'm not careful.'
+- It's odd because some actors are very scared of comedians.
+- When I look in the mirror, I see the ageing process at full pelt, the hairline in retreat, the bags under the eyes growing and darkening, that kind of thing. I suppose it would be easier if I weren't an actor, but I am fairly philosophical about it.
+- I think of myself as naturally idle. The trouble is, the 'nothing' that I do every day is not really nothing. I potter. I muck about with emails, I make coffee, I fiddle with my computer to make sure that the book I haven't started writing is perfectly synced across all platforms and devices.
+- Car-essential is a real turn-off to me, so yeah, I just want a friendly holiday resort with a villa and a pool, but which is really private, but there again, there's a supermarket and a doctor's and a beach a five-minute walk away. That's all I want, and it's quite difficult to find.
+- It was quite an honour when 'New Woman' magazine voted me 88th sexiest man in the world. I think I was one in front of David Cameron.
+- I'd kill to be 'Doctor Who.' Maybe they could make the Doctor two people? He has got two hearts, after all.
+- When I was 15, if Stephen Fry had advised me to trim my eyebrows with a Flymo, I would have given it serious consideration.
+- I don't care where you went to school. There - have I made your day? No? All right, I'll go further: I also don't care what your dad did for a living or how your mum voted. Nor do I mind whether you ate your tea in front of the telly, dinner at the kitchen table, or supper in the dining room.
+- We think; therefore, we often talk rubbish.
+- Where you have 20 people who all share roughly the same educational and life experiences, they're going to come up with the same solutions to the same problems.
+- Labour is at its best when it remembers its moral fury.
+- I'm a huge, huge fan of Chris Morris. I think he's a genius, and it is not a word I use very often. I think he's fantastic.
+- Ambiguity around ambiguity is forgivable in an unpublished poet and expected of an arts student on the pull: for a professional comedian demoting himself to the role of 'thinker', with stadiums full of young people hanging on his every word, it won't really do.
+- My parents' marriage was already shaky when I came along. They split up when I was five, and I didn't see Dad all that often after that - four or five times a year.
+- We call ourselves comedy writer-performers, and that encompasses everything, and I certainly have a very open mind about it.
+- I don't really have that much contact with Americans. I mean, I see the oddest things on the Internet, I suppose. And I've got a couple of American friends, but they are Anglophiles anyway because they've decided to come live here.
+- Ukippers are the kinds of fools who haven't noticed they're sleep-walking towards fascism. Many UKIP candidates are of the age when their parents fought in the Second World War.
+- I spend far too much on taxis. Now, if anyone suggests we get the Tube I say, 'The Tube! I'd forgotten about that.'
+- Parenting girls makes you quite gender-conscious - it's almost impossible to fight the power of pink. It's not such a terrible thing to want to be a princess when you're five, but it would be nice if there were some other options.
+- Slow, skinny, and an utter countryside coward: I lived in dread of nettles, spiders, and the very sound of a wasp. As a victim, I was beneath the dignity of the bullies in my year but fair game to the ones in the year below.
+- I'm the guy who spends 15 minutes staring out of the window wondering what to have for lunch.
+- If I told my 18-year-old self that one day I'd have a sitcom and a sketch show on TV, I think he'd just drum his fingers and go, 'When? How long is that going to take?'
+- I was in the play 'Fat Pig in the West End,' which is a comedy but has dramatic moments.
+- I can't imagine getting bored with comedy or thinking comedy is beneath us suddenly.
+- I'm feeling around for what happens in a post-'Peep Show' world.
+- I had a friend at college who took being poor very personally. He started showering in the sports centre next door and said he wasn't going to pay for the hot water in our flat any more because he didn't use it. He made me and my other friend pay the bills on our own.
+- To do comedy, you have to be a pretty good actor to start with.
+- I snootily say I can't take too many dramatic parts, as it's taking work from actors who aren't funny.
+- He likes 'Confetti,' and he doesn't like 'Star Wars.' I think that just relieves us from the burden of ever having to take Mark Kermode seriously again.
+- My childhood was as heavily gendered as any you would find in a working-class household in Lincolnshire.
+- I proposed to my wife on Brighton Beach, and she said yes. That's pretty romantic. Even though I forgot to go down on one knee because I was too busy trying to compose the question.
+- I did 'The Frank Skinner Show,' and they gave me a little jukebox-shaped CD player, which looks nice in the kitchen.
+- Do I wake up every day and thank God that I live in 21st-century Britain? Of course not. But from time to time, I recognise it as an unfathomable privilege.

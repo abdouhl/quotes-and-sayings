@@ -1,0 +1,22 @@
++++
+author = "Richard D. Zanuck"
+title = "Richard D. Zanuck Quotes"
+quotes_len = "16"
+description = "the best 16 Richard D. Zanuck Quotes"
++++
+- I think the executives at the studios today realize that it's easier and safer to go the - to some known territory which is a remake of a successful film. It's less chancy than taking a fresh idea.
+- 'Portnoy's Complaint' was very far out there, and movies have always worked when you have either a funny situation between two or more people or a very dramatic situation. There's not that much difference.
+- It would have been impossible to get 'The Verdict' off the ground without Paul Newman obviously, but today without any star, kind of a dramatic piece would be very tough.
+- It wasn't easy once I started running 20th Century Fox. There were a lot of eyebrows raised, and it wasn't easy, that transition, because, you know, I had big shoes to fill and I was very young, 27.
+- In the studios days, the public's perception of movie stars was much different, because the stars were so much less exposed. This made them seem more special, more unearthly. Today they're no longer perceived as different - they've become human, so to speak.
+- I think we simply all like to project ourselves into somebody else - somebody who is better-looking, richer, smarter. It's comforting. It's escapism, and that, of course, is what the movies are supposed to be all about. Ultimately, I think it's just part of human nature to pretend.
+- I was practically born and raised at 20th Century Fox studio, started to work there selling papers when I was around seven years old, and every summer vacation from school I would work in a various department at the studio. So I was an old-timer when I was 15.
+- These days, right now, these are the good old days. I've always approached it that way. That's why I'm still working. I'm not the guy who is ready to sit by the pool.
+- Everything's changed. The technology is the big thing changing now, the way movies like 'Alice' or 'Avatar' are made. And technology on the other side, the audience side. Word spreads so fast now on a movie, with the Internet, and piracy is something coming down the line like in the music industry.
+- I had a tough time 12 years ago getting 'Driving Miss Daisy' off the ground. Today, it would be impossible.
+- Star quality is one of the most difficult things to describe. It emanates from the person, and he may not even understand it himself. It's a quality that separates the star from the rest of us.
+- The technology is really where all of the changes have taken place, but the fundamentals of a good story being the basis of every good picture, and really the only basis still remains the rule, more so today, I think, because we've unfortunately weaned an audience from birth to kind of mindless movies.
+- When you're doing a film, it's your film and it's, you know, your blood and - is in it along with everybody else's, and it's the greatest picture ever made when you're shooting it. It's only after the critics and then the public say you were wrong that you realize that you were wrong.
+- These last few years, working with Tim Burton, it's been the best time I've ever had.
+- A lot of athletes have star quality, but they just can't perform in front of a camera. So no matter how good-looking you are, no matter what kind of presence you have, you still have to be able to be a convincing performer to become a star.
+- 'The Sound of Music' did more damage to the industry than any other picture. Everyone tried to copy it. We were the biggest offenders.

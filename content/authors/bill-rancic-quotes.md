@@ -1,0 +1,66 @@
++++
+author = "Bill Rancic"
+title = "Bill Rancic Quotes"
+quotes_len = "60"
+description = "the best 60 Bill Rancic Quotes"
++++
+- I've been a runner a long time. When I first got into it, I started doing small triathlons in Chicago, and I just did it to get in shape. When I got out of college, I put on a few pounds like everybody does. I did it when I was in my early 20s, but I never really did any long runs.
+- Whether you want to admit it or not, people begin to judge you the minute you walk in the door.
+- Dear Chicago, when I wake up in the morning and see your skyline - the terra cotta of the Wrigley Building, the height of the Willis Tower, the shiny sides of my beloved Trump Tower - I know I'm home. I feel a certain energy walking between your spires, but recognize that what makes you special to me is that my roots are here.
+- Chicago is seriously my favorite city in the country. People have roots here, which is nice. When you go to Los Angeles, no one is actually from Los Angeles.
+- I had a very good job in corporate America, but I quickly knew that was not how I was wired.
+- If I gamble, I go for the lowest-end blackjack or slots. It's because I don't like to lose!
+- I definitely live to eat. I love food in every way imaginable, and it does not have to be fancy. Whether we stay in or go out, I like a hardy meal. My grandmother taught me how to cook, and it was all about no fuss and lots of it.
+- I'd wear flip-flops and jeans. I guess that's not cool.
+- Ask any successful person to look back over the events of his or her life, and chances are there'll be a turning point of one kind or another. It doesn't matter if that success has come on a ball field or in a boardroom, in a research laboratory or on a campaign trail - it can usually be traced to some pivotal moment.
+- My wife was born and raised in Italy until she was about 9, and then she came to America, and her mom was a great cook, and they have great recipes, and whenever her mom would come into town, we would have all these friends just randomly showing up at our house, and eventually we figured out why. They wanted Mama's cooking.
+- The American Dream is still alive out there, and hard work will get you there. You don't necessarily need to have an Ivy League education or to have millions of dollars startup money. It can be done with an idea, hard work and determination.
+- Each time you go to the grocery store with your kids, it is a potential learning opportunity. In order not to overemphasize materialism, focus on other things to do with money. In 'Beyond the Lemonade Stand,' I try to emphasize the importance of saving money, and of using it to help other people.
+- It's important to us to see the development and growth. At the end of the day, it's our baby. Genetically it's ours. It's our embryo. We feel very connected.
+- I cook a great fish, a great salmon. I grill it, get the skin nice and crispy.
+- Kitchen competition shows are so action-packed. They just get your adrenaline pumping.
+- I built RPM Italian, a restaurant I frequent as much as I can, because that is what people from Chicago do. They build things.
+- I was into real estate. I was always an entrepreneur.
+- Teaching money management is a practical tool that will help shape kids' futures.
+- Young children need to develop good habits that will be useful to them the rest of their lives. It is important to keep the lessons age-appropriate. For example, when your children start earning allowances, that would be a good time to teach them how to put some money in the bank instead of spending it all.
+- My parents were out of town and sent me to stay at my grandma's house. That's where I learned how to make pancakes. I served them to all the old ladies who lived on her block. After the meal, they each left a $5 bill next to their plates. I thought, 'Hey, I'm onto something here.'
+- I'm hooked on food competition shows. It's unique, different... I definitely understand the importance of strategy.
+- I'm a big fan of small business ownership. I think it's the backbone of American innovation. But to be successful, you first have to have the courage to go for it.
+- One important lesson is this: It is okay to try and fail at something, but it isn't okay to not try. Parents need to encourage their kids, and it all starts in the home.
+- I run everywhere I go. You wake up, and you do it, and you make the time. I bring my son, Duke, with me on a lot of the runs. I have this great jogging stroller, and he loves it. It's a great time for the two of us. We'll crank out a run, and he has the time of his life.
+- I think it's time to have a celebration of life and renew our vows. And this time we're going to write the vows because they're going to mean a lot more. We certainly put the 'in sickness and in health' vow to the test the last year and half.
+- Because of the fact that we've been through so much, we're going to appreciate every step of being parents. I think we're going to savor it and cherish it and we're going to be the best parents we can be.
+- I would love Giuliana small, medium, large or extra large and I will love her no matter how much weight she gained.
+- The funny thing is while the grown-ups in the family may indulge, we really try to offer our son Duke clean food, as all his meals are made with organic ingredients as the rest of us eat cookies straight out of the freezer.
+- Well, the 'Giuliana & Bill' show is a little bit different because Giuliana and I are the executive producers of the show, so certainly we have a lot of control and we have total, I guess if we wanted to, editing power, but I will say, in the seven seasons we've done the show, we've never used our executive producer powers to cut something out.
+- My wife and I work out together almost every day. It's just a great way to spend time together. We're going to run a marathon together later this year, and that's one more goal that we'll accomplish as husband and wife.
+- Obviously, many people may remember me as the first winner of 'The Apprentice,' but prior to that, I was an entrepreneur. I started my first business when I was in college, and then getting my lucky break was when Donald Trump hired me on.
+- Tight hamstrings are fierce. And I'm guilty of not allocating the time that I should to stretch. I'll put the time in for the runs, but then I go, 'I have to go here. I've got to go there.' Usually, stretching is what gets cut out of the program, but it's so critical.
+- I cook a lot of Italian food. Bucatini Pomodoro is my best: it's a fat spaghetti with tomato, olive oil, and reminds me of getting married in Italy.
+- My best friend Jerry started a boat-washing business, and it was one of the most critical experiences of my life. I got to meet a lot of people who were entrepreneurs. My parents were schoolteachers, and I was now meeting people who owned companies. I realized that if this guy can do it, why can't I?
+- I love cooking. I'm in the restaurant business.
+- When I'm interviewing someone, I want to make sure that he thought enough to take care of himself - to dress appropriately and to groom himself properly.
+- I'm never the smartest guy in the room. I'm willing to work harder than most people around me, come earlier, stay later.
+- What I think a lot of great marathon runners do is envision crossing that finish line. Visualization is critical. But for me, I set a lot of little goals along the way to get my mind off that overwhelming goal of 26.2 miles. I know I've got to get to 5, and 12, and 16, and then I celebrate those little victories along the way.
+- The challenging times will bring you closer together in marriage.
+- I think every guy that hits his 40s has a little bit of a wake-up call and wants to just keep things real, as they say, and just to push yourself.
+- Unfortunately, with fertility, time is not your friend. People are waiting longer to get married and longer to have kids, and so many more people are experiencing fertility issues. But no one ever talks about it.
+- If I can lead a happy life, touch the lives of others in a positive way, win the respect of those that I care about - and make a few million along the way - then I have been successful.
+- To the new 'Apprentice' candidates I would say to follow your gut instincts, be yourself and get ready to work hard for the next few months. Oh, and try to have some fun!
+- Currently, I am overseeing the construction of the new Trump Tower in Chicago. I am involved in meeting with the construction crews, architects and sales teams. I am learning a lot and working with some of the best in the business.
+- Every day in our house is like Valentine's Day. I've kept it traditional with what my dad has done with my mom. Every morning, I get up and I make coffee and I bring Giuliana coffee in bed.
+- My son's going to have a job, and if he wants to get a car when he gets his license, he's going to pay for it on his own like I did.
+- The most successful entrepreneurs tell you they have a great team. Lots of small-business owners let ego get in the way. Many people helped me along the way. You've got to remember the people who were loyal to you, and don't forget them when you become successful.
+- I competed in a test round of 'Kitchen Casino.' I feel like it's good to know what the competitors are going through.
+- So many reality shows are scripted and create this fake drama, and it's a bunch of bull. We wanted to do something real and something wholesome and something that's focused on positive family values.
+- Winning 'The Apprentice' changed my life in ways I could never have imagined. It has been an amazing experience working for Donald Trump and I am very grateful for the whole opportunity.
+- With breast cancer, it's all about detection. You have to educate young women and encourage them to do everything they have to do.
+- Keep your word. Honor commitments, and they will double back to honor you.
+- When you lose your hair, it has an impact on confidence and your overall self-esteem whether it affects your career or your love life.
+- He's a guy who's gonna die in that chair, putting together some big deal. I don't think Donald Trump will ever stop. He truly loves what he's doing.
+- One of the things we've always tried to do is help others with our story. Whether it's with the infertility issues, whether it's with the breast cancer, we said we're gonna turn these negatives into positives. And if we can help others by sharing our story, then it's worth it.
+- Had it not been for 'The Apprentice' and Donald Trump, I wouldn't have met my wife through an interview with 'E! News.'
+- In the years to come, I hope there will be Bill Rancic towers right alongside the Trump towers.
+- This was our last stop. This was it. We had those two embryos that we had banked prior to learning about the breast cancer, and with the medicine she was on, this was our last effort. The prayers were answered.
+- One by one, all of my college buddies had taken these nothing-special entry-level jobs, pushing papers for $18,000 or $21,000 a year (and hating the work besides), and I'd turn up my nose and tell them I wasn't about to get out of bed for anything less than $50,000. That was my line, my attitude.
+- Bread pudding makes me weak. I have been known to be moved to tears by cookies and ice cream, and ribs are a spiritual experience for me.

@@ -1,0 +1,123 @@
++++
+author = "Bob Newhart"
+title = "Bob Newhart Quotes"
+quotes_len = "117"
+description = "the best 117 Bob Newhart Quotes"
++++
+- For some reason, comedians are still children. The social skills somehow never reach us, so we say exactly what we think without weighing the results.
+- More and more, as I get older, people come up to me and say, 'Thank you for all the laughter.' And my standard answer is, 'It was my pleasure.' But that's the truth.
+- Jack Benny was, without a doubt, the bravest comedian I have ever seen work. He wasn't afraid of silence. He would take as long as it took to tell the story.
+- I didn't know I was cool, but I was very flattered that some of the younger comedy writers came up to talk to me at the Emmys. I found that gratifying.
+- Dick Martin, if you put a gun to his forehead, he couldn't tell you a joke.
+- What you see on stage is pretty much the way I am... a dry sense of humor.
+- I loved 'Everybody Loves Raymond' because I like Ray and I thought it was beautifully cast, I thought it was great writing. I thought Patricia Heaton was wonderful.
+- I just made the decision that I was going to try comedy, and if didn't work, then I knew it didn't work. Then I would go back and do whatever. But at least I wouldn't torture myself the rest of my life, wondering whatever would have happened.
+- I would say I came from upper middle class family.
+- Without great writing, you've got a bunch of actors bumping into each other.
+- I've been told to speed up my delivery when I perform. But if I lose the stammer, I'm just another slightly amusing accountant.
+- I wasn't the class clown. I wasn't that obvious. There would be a circle of guys, and they're watching the class clown. And I'm standing in the back, and I turn to the guy next to me and I say something funny to him, and he starts to laugh. And the guy next to him says, 'What did he say?'
+- There are some actresses that can't do comedy; it's too heavy-handed.
+- I think there's a little confusion between humor and 'gross' passing for humor. That's kind of regrettable, because they aren't the same thing.
+- I was very political when JFK ran.
+- I was influenced by every comedian I ever saw work. That's the only way you learn how to do it.
+- I don't have a stack of scripts.
+- I was an accountant in Chicago, and a friend of mine, Ed Gallagher, was in advertising. At 4:30 every day I'd be bored, and I would call him. He'd interview me.
+- I just don't think most people put myself and Robert Frost in the same category.
+- Well I was much too practical to presume to have a career in comedy.
+- I certainly don't delude myself that there aren't certainly more important things to do in life than make people laugh, but I can't imagine anything that would bring me more joy.
+- I don't have a stack of scripts that, when I get home, studios are clamoring, saying, 'Has Bob read ours yet?'
+- I think the thing about it is when you grow up in Chicago there's such a thing as putting on airs, you know? And you just learn not to put on airs. Don't act like, 'Oh boy, I'm somebody.' They'll slap you down.
+- Mark Twain gave us an insight into the life on the Mississippi at the turn of the century.
+- Richard Pryor introduced me to the world of the inner city, and the urban world, and did it hysterically. My favorite comedian, even though we work 180 degrees differently, but funny is funny is funny.
+- Stammering is different than stuttering. Stutterers have trouble with the letters, while stammerers trip over entire parts of a sentence. We stammerers generally think of ourselves as very bright.
+- It was a decision to work clean. I just prefer to work that way. I have no problem with comedians who don't work that way. There was a temptation in the early '70s to reconsider. I decided against it.
+- The first time I heard Richard Pryor, I knew he would be a major force in the world of comedy.
+- I don't know how to do a show not in front of a live audience.
+- The first time I got up in front of an audience was terror, abject terror, which continued for another four or five years. There still is, a little bit.
+- I'm most proud of the longevity of my marriage, my kids, and my grandchildren. If you don't have that, you really don't have very much.
+- Stand-up is different from television. In stand-up, you've got to be in control.
+- With the advent of cell phones, especially with the very small microphone that attach to the cell phone itself, it's getting harder and harder I find, to differentiate between schizophrenics and people talking on a cell phone.
+- The best advice I was probably given and the best advice I could give someone who is trying to get into the comedy field is to take advantage of every opportunity you have to work to hone your skills.
+- Don't live in the past. There's no point. You can't change anything. What a waste of time.
+- When I first started out, 'Time' magazine did an article on what it called 'the sick comics,' and they were myself, Shelley Berman, Nichols & May, Jonathan Winters, Lenny Bruce, and Mort Sahl. We were considered 'sick.'
+- All comedians are, in a way, anarchists. Our job is to make fun of the existing world.
+- I really don't know what makes a comedian. I think it's a family background and environment. Yet if you put the same ingredients in another person, he may never utter a funny line.
+- Sometimes you forget you're famous. You wonder, 'Why is that person staring at me?'
+- Don't be silly and don't waste your time.
+- A lot of money is spent trying to keep people alive who don't necessarily want to be alive.
+- It's getting harder and harder to differentiate between schizophrenics and people talking on a cell phone. It still brings me up short to walk by somebody who appears to be talking to themselves.
+- With the stand-up comic on TV, whether it's Seinfeld or Cosby or Roseanne, more important than their knowledge of how to tell a joke is their knowledge of themselves, or the persona they've created as themselves. So that when you're in a room with writers, you can say, 'Guys, that's a funny line, but I wouldn't say it.'
+- I have no intention of retiring; I can't imagine not doing stand-up. That's where I started and where I'll be.
+- You shouldn't get too close to the truth, because then maybe you stop being funny.
+- Laughter gives us distance. It allows us to step back from an event, deal with it and then move on.
+- I don't know how many sacred cows there are today. I think there's a little confusion between humor and gross passing for humor. That's kind of regrettable.
+- It's kind of hard coming from 'Saturday Night Live,' which is a sketch-driven show, to a movie.
+- There is an edginess in my work that people don't always recognize.
+- I don't like country music, but I don't mean to denigrate those who do. And for the people who like country music, denigrate means 'put down'.
+- I don't think too much about age. Maybe if you're hurting, aching and arthritic, then you think about it a lot. But I don't.
+- I don't think of myself as an American Master. I've just been making a living.
+- The highest of highs is to have a new routine that you're just breaking in and that's working, and that's - you're one step removed doing a situation comedy because you have a live audience there.
+- I'm very open to the up-and-comers.
+- You may have done 20 great shows in a row and come to one, and it doesn't work. You never presume anything.
+- Humor is so important to the American scene throughout history.
+- The greatest comedian I've ever seen is Jack Benny. He wasn't afraid of the silences.
+- For a comedian, there is nothing better than watching another great comedian.
+- I think that what comes through in Chicago humor is the affection. Even though you're poking fun at someone or something, there's still an affection for it.
+- I made a record album in 1960 and it exploded, and I got all these offers for TV.
+- I was not influenced by Jack Benny, and people have remarked on my timing and Jack's timing, but I don't think you can teach timing. It's something you hear in your head.
+- I always hated when the studios just kind of said that anybody can act. You look at people like Spencer Tracy, Henry Fonda - and I'm just talking about the male actors - there aren't a lot who can act. It's a very special talent, and I wish it were recognized as a very special talent.
+- I made people laugh as a kid, but that's not how you make a living.
+- You do a clean show and it's over and the audience have enjoyed themselves and you've enjoyed yourself, and you haven't had to resort to shock.
+- The schizophrenic has no sense of humor. His world is a constantly daunting, unfriendly place.
+- I left 'The Bob Newhart Show,' which was my decision. CBS wanted it to go on. But I could see television changing; I could see the tastes were changing.
+- If 'The New York Times' says it, it must be true.
+- I know Chuck Lorre personally, and am familiar with his work going back to 'Roseanne' and 'Cybil.'
+- I think one reason for a successful marriage is laughter. I think laughter gets you through the rough moments in a marriage.
+- 'The Mary Tyler Moore Show' was the best television, the best cast, the best-written television show ever.
+- I don't watch that much television.
+- I've been a very lucky actor.
+- People with a sense of humor tend to be less egocentric and more realistic in their view of the world and more humble in moments of success and less defeated in times of travail.
+- I have an aversion to laugh tracks - the moment I hear a laugh track, I go to another channel.
+- When you're going for a joke, you're stuck out there if it doesn't work. There's nowhere to go. You've done the drum role and the cymbal clash and you're out on the end of the plank.
+- Comedians are innately programmed to pick up oddities like mispronounced words, upside-down books on a shelf, and generally undetectable mistakes in everyday life.
+- I've had time off, and it drove me nuts. I was crawling up the wall.
+- I have to warn you, I'm not just some sitcom guy. I'm now an author.
+- People are meant to be certain places, and I think I'm meant to be on a sound stage doing situation comedy.
+- I'm glad you can't talk on your cells while the plane is in the air. That would drive me crazy.
+- There was a sea of change in comedy in the late 1950s and '60s. We were dealing with vignettes as opposed to jokes. We were more socially aware.
+- I'm not what you'd call a Method actor.
+- Comedians are never really on vacation because you're always at attention... that antenna is always out there.
+- No matter what hyenas sound like, they are not actually laughing.
+- I don't want to sound like the old guy, but cynicism is a potential danger. It colors our way of looking at the world.
+- One time I happened to use the word 'denigrate' onstage, and it didn't get any reaction. So as I continued my act, the left side of my brain was fast-forwarding to see if I had any other big words coming up.
+- I remember seeing a movie with Jose Ferrer and Rosemary Clooney where they were husband and wife, and they got in bed, and he had on polka-dot pajamas and she had on striped pajamas, and when they got up the next morning he had on the striped pajamas and she had the polka dot pajamas, and that was considered racy at that time!
+- I think you should be a child for as long as you can. I have been successful for 74 years being able to do that. Don't rush into adulthood, it isn't all that much fun.
+- Probably the best advice I ever got in my life was from the head of the accounting department, Mr. Hutchinson, I believe at the Glidden Company in Chicago, and he told me, 'You really aren't cut out for accounting.'
+- Funny is funny is funny.
+- I was never a Certified Public Accountant... I just had a degree in accounting. The reason I was never a Certified Public Accountant was because it would require passing a test, which I would not have been able to do.
+- Chuck Lorre and I had been talking about doing one of his shows for a while. I said I'd like to do 'The Big Bang Theory,' because I think it's the best written, most intelligent show on television.
+- I've always said people say on a dramatic show, 'I was crying. It was so emotional when he went and grabbed that little girl from a burning building and handed her over to her mother.' In comedy, the best thing you can say is, 'I think it's funny.'
+- There isn't a comedian in the world that hasn't bombed.
+- I love portraying the totally indifferent person.
+- Well, my career choice made a difference because I never would have met my wife, Jenny. I met her through comedian Buddy Hackett. He set us up on a blind date and then we got married.
+- I don't know how doctors pick one specialty over another. Some you can understand. Pediatricians. Or gynecologists delivering babies, bringing a new life into the world, but how does someone want to be a proctologist? How can you fall in love with proctology?
+- The acting is better when you know your material is being judged.
+- If you look at Jack Benny, George Burns, or Don Rickles, they've all had long, successful marriages. So, I think there's something about laughter and the durability of a marriage.
+- People have told me, 'My dad passed on, but I have great memories of watching your shows with him.' It doesn't get any better than that.
+- I found the most difficult thing when you became successful - when I had the record album, it won Album of the Year - that you were cut off from the source of your material. Your material was everyday people, and you were kind of cut off from that, and you had to work at it.
+- The only way to survive is to have a sense of humour.
+- The only thing I have never done is a Broadway play. I'm not sure I have the discipline necessary to do a Broadway play. I know it holds a fascination for certain actors.
+- Don Rickles and I are best friends. I know that might seem strange to those who know Don only by reputation, but somebody has to be his friend. Just to make sure I don't forget, Don gave me a doormat that sits just outside the front door of my house. It reads: 'The Newharts: The Rickleses Best Friends.'
+- I can't do a one-camera show. I don't know how to do that kind of show where you count in your head and then you do the next line.
+- I am one of the great wasters of time. I have made it an art form. I can get up at 8 o'clock in the morning, be out of the house by 8:30 and back by 5 P.M., and I'll be going all day long and accomplish absolutely nothing. It's an amazing talent.
+- You're not dead at 85. You're a long way from it. Go out and enjoy. You've earned it.
+- When I started out in 1960, I thought it might possibly last a couple of years. I never expected it to last 42. I take great satisfaction in that longevity.
+- I'm not a classically trained actor. I'm not a product of Stavlovski method or anything like that.
+- I worked in accounting for two and a half years, realized that wasn't what I wanted to do with the rest of my life, and decided I was just going to give comedy a try.
+- This stammer got me a home in Beverly Hills, and I'm not about to screw with it now.
+- I always stayed away from political commentary. First of all, I didn't feel entitled. What I may feel about a candidate, I'm a comedian. I mean, if people like my comedy, that doesn't mean they should vote for the person I like. That's why I always kind of stayed away from endorsements.
+- Humor's a weapon if you want to make it one.
+- I think there's a part, just a part of comedians, that is still childlike.
+- When I started, I was doing all the good comedians I'd ever seen. Then I developed my own voice. My routines are my natural way of looking at the world.
+- When I was off TV, people would ask me to please come back, which I think was their way of saying, 'There's nothing out there for us.'
+- All I can say about life is, 'Oh God, enjoy it!'

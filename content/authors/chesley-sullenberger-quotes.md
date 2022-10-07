@@ -1,0 +1,37 @@
++++
+author = "Chesley Sullenberger"
+title = "Chesley Sullenberger Quotes"
+quotes_len = "31"
+description = "the best 31 Chesley Sullenberger Quotes"
++++
+- There's simply no substitute for experience in terms of aviation safety.
+- Pilots learn to use human skills to communicate information and make decisions collectively, which creates a shared sense of responsibility among the team for better outcomes.
+- I'm less shy now than I was as a kid. After Flight 1549, my family and I had to become public figures and more complete versions of ourselves. I had to teach myself to become an effective public speaker.
+- It's almost an out of body experience to see things that First Officer Jeff Skiles and I said in the cockpit together, played by actors.
+- I took my first flying lesson in 1967, when I was 16. By October 1968, I had 70 hours in the air and got my pilot's license.
+- My message going forward is that I want to remind everyone in the aviation industry - especially those who manage aviation companies and those who regulate aviation - that we owe it to our passengers to keep learning how to do it better.
+- In the bad old days, captains were not good leaders. They didn't build teams; they were arrogant and autocratic.
+- I have a varied collection of music on my phone. I like a lot of the popular music that has a really energetic beat to it, as well as some classical things.
+- I've missed half or two-thirds of my children's lives.
+- My mother was a first-grade teacher, so I credit her with this lifelong intellectual curiosity I have, and love of reading and learning.
+- The economic tsunami has hit all airline employees. With the 2001 terror attacks, airline bankruptcies, pension terminations, loss of pay, changes in work rules - we're all working harder and longer than we used to.
+- I try to work out, time permitting, wherever I am.
+- After high school in 1969, I was appointed to the Air Force Academy. In '73, I studied for my postgraduate degree and became a USAF pilot in 1974. After my discharge in 1980, I became a commercial pilot and flew my first airline flight at Pacific Southwest Airlines in 1980.
+- Having a plan enabled us to keep our hope alive. Perhaps in a similar fashion, people who are in their own personal crises - a pink slip, a foreclosure - can be reminded that no matter how dire the circumstance, or how little time you have to deal with it, further action is always possible. There's always a way out of even the tightest spot.
+- It's an important job to be the public face of something that gives people hope, and I take that seriously.
+- People really are our most important resource, and people who don't realize that and choose not to live that way, choose not to lead that way, are paying a price for that in many of our companies, many of our organizations.
+- My wife Lorrie actually looked in the dictionary to see what the definition was of heroism because it had been used so much. She found at least one definition is someone who chooses to put themselves at risk to save another.
+- I think it's become an economic necessity for people to be able to learn and grow throughout their lives, because most people can't get through their entire career with one skill set. We have to keep reinventing ourselves.
+- Bigger airplanes, with two aisles instead of one, provide a better experience overall, and I think it's more comfortable.
+- Medical professionals are as skilled and as dedicated as any, but they operate within a fragmented system that has not progressed as far as we have in aviation.
+- My father volunteered in early 1941, before Pearl Harbor, and became an officer in the U.S. Navy. As I was growing up, he taught me the responsibility of command: A leader is ultimately responsible for every aspect of the welfare of people under his or her care. That was a deeply felt obligation in his generation.
+- I had never been so challenged in an airplane that I doubted the outcome.
+- Every day we wake up, we have an opportunity to do some good, but there's so much bad that you have to navigate to get to the good.
+- I went from living my life anonymously for 58 years to being a public figure known globally in a matter of minutes.
+- It's amazing what you can learn to get used to.
+- Each generation of pilots hopes that they will leave their profession better off than they found it.
+- If you take one of the first flights out in the morning, typically the airplane and the crew have arrived the night before. When you're not waiting on an inbound flight, there are fewer delays.
+- For years, I tried to resist the hero label.
+- When I testified before Congress after the Hudson River landing, Congressman James Oberstar of Minnesota said, 'Safety begins in the boardroom.' That's as true in medicine as it is in aviation. It always boils down to leadership.
+- One of the things I teach my children is that I have always invested in myself, and I have never stopped learning, never stopped growing.
+- You know, I think when people are in important positions in big organizations, they often get tied up with the minutia of managing money, managing things. They often forget that people deserve to be led.

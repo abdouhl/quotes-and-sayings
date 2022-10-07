@@ -1,0 +1,17 @@
++++
+author = "Brea Grant"
+title = "Brea Grant Quotes"
+quotes_len = "11"
+description = "the best 11 Brea Grant Quotes"
++++
+- I shaved my head when I was 14 - is that bad? I asked my dad's permission first. He said, 'You're gonna look like a boy.' And I said, 'OK'... then I did it anyway. All through high school, I had a shaved head and I'd dye it crazy colors - it was fun.
+- I need poise. I'm just so clumsy that it would kind of save me a lot.
+- Sometimes shows get into their 5th and 6th season and you're like, where can you go? But 'Dexter' is still so strong, it's really refreshing.
+- On 'Heroes' I got to work with Greg Grunberg all the time and Masi Oka, and they both are just wonderful actors. I don't know - you learn so much by watching people like that, I guess.
+- I'm really into gardening.
+- I'm always excited to work and excited to be on a show as good as 'Dexter,' for sure.
+- 'The Invisibles' by Grant Morrison is my favorite series of all time.
+- There's something really amazing about watching an actor like Michael C. Hall or Jennifer Carpenter, who are completely professional and do everything so brilliantly, but yet can have a really great time on set.
+- Oh my God, I'm so excited. I love Comic-Con, it feels like a weird nerd camp. All my nerd friends are there and all the comic book writers I know and then a lot of actors, too, and you hang out with these people for just a few days, but you hang out with them all day, every day. It's like camp - it's like a weird camp. I love it.
+- I ended up on 'Heroes' because I auditioned for the part like everybody else, but the writers were writing the role of Daphne, which was originally called Joy.
+- I was once doing an improv show and it was my turn to jump on stage and I fell on my face. It's a really terrible way to start a show.

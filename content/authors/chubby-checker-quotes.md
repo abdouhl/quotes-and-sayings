@@ -1,0 +1,48 @@
++++
+author = "Chubby Checker"
+title = "Chubby Checker Quotes"
+quotes_len = "42"
+description = "the best 42 Chubby Checker Quotes"
++++
+- Being on 'Bandstand' was like getting a Nobel Prize. From 3 o'clock in the afternoon until 5:30, nobody was on the street. They were watching 'Bandstand.'
+- Besides, at 62 years old I look like I'm about 27.
+- My outlet is my music, and it's been this way since I was 4 years old.
+- When I go on stage, I'm a different man. I become Chubby Checker, And when I'm not Chubby Checker, I'm preparing to be him.
+- What I bring to the stage is humility.
+- I don't get the airplay that one in my position deserves. 'Twist and Shout' gets more airplay than 'The Twist,' and that's not right.
+- Alexander Graham Bell brought us the telephone. He owns the telephones in the buildings. Thomas Edison owns the lightbulb. Whether they took it and did things to improve it, he's the guy. Now on the dance floor, that belongs to Chubby Checker.
+- Everybody in the '80s, well, we hate rap. Now, the biggest rapper in the world... Eminem. Rap's a black thing.
+- I want to play main rooms in Vegas. I want to play every day like Elvis did, not just weekends.
+- Of all the '60s - there was Elvis, there was the Beatles, there was the British invasion, Jimmy Hendrix, and Woodstock - the No. 1 record was 'The Twist.'
+- This is my greatest regret - that my music is not being played, and more people aren't seeing Chubby Checker. That's very painful for me. Many nights, I have tears in my eyes about that.
+- What turns me on is to walk into a sold-out venue. The audiences are so much the same as they were in the '60s. It's just an amazing thing. I can't explain it, but I hope it never stops.
+- When I'm onstage they know I'm honest, and I try to be as humble as I can.
+- When I hear 'The Twist,' sometimes I hear it, and I go, 'Wow - I really did that song. It could have been anybody, but it was me. Isn't that great.'
+- I want people to look at a checkerboard and think of me!
+- Michael Jackson is the most awesome person who ever walked onstage. He was just incredible.
+- Dancing, apart to music with a beat, is my legacy.
+- Justin Timberlake, Britney Spears all the rappers, they're doing my dances and they're making billions doing my dances. When they do that little thing they do with their hands that's The Fly and The Pony.
+- You have to be very strong to play my music. The drummer has to be in great shape. Same with the guitarist. You have to be a monster to play with Chubby!
+- Homey don't quit. What else are you gonna do? It's like those guys in the cartoon they get up in the morning, check the clock and fight all day and after it's over they check the clock and go home. That's how it goes.
+- God's got something for me. I have faith it'll be OK.
+- It takes a real soldier to stay in the music industry and live off the things that have been put before me and be able to survive all this time because it has not been easy.
+- History was made the day Chubby Checker went on 'Bandstand' with 'The Twist.'
+- Do you go to gym and exercise to music? Before Chubby Checker, that never happened.
+- When I play in Atlantic City, I perform Tuesdays through Sundays for two weeks, and I have 91-percent attendance. No one else plays six days a week, two shows per night, and does that kind of business.
+- The only difference between The Rolling Stones, Bruce Springsteen, Aerosmith, and Chubby Checker is that they get their music played on the radio.
+- I was 17 or 18 when 'The Twist' came along, and the rest is history. Sometimes I regret it. I would have gotten more into acting. I would have been more of a legitimate performer onstage like Liza Minnelli. But I got so caught up in the dance thing that I never got into theater.
+- By 11th grade, I was in show business as a professional.
+- Before I got in this business I was in the chicken business.
+- When you throw your hands up in the air like you just don't care, you're doing 'The Fly' by Chubby Checker!
+- People don't do the Macarena together. Or if they do, they do it to get closer, to get together. It's the same thing with the Electric Slide.
+- Ever see a little kid walking around talking to himself? I'm the same way.
+- I'm in a crazy business. The music industry is really tough, and I fight for my life. I just want to make everybody happy.
+- I compare the Twist to the electric light, The Twist is me, and I'm it. I'm the electric light.
+- I hope that I am out of the music business when I meet God.
+- I love food, and the food industry is huge, and I just love dealing in it.
+- Chubby Checker changed the dance floor.
+- Fame was a mixed blessing for me because I thought I could be as big as I wanted to be, and then I realized that I couldn't because of the racist element in the record business.
+- Do you realize that I have had five albums in the Top 30. Elvis and The Beatles have never done that. I had five singles in the Top 5, I mean, no one's ever done that.
+- I want my flowers while I'm alive.
+- I was born in South Carolina. On my dad's farm, I didn't have much. I'm just a poor kid who worked in a produce market.
+- I'm just grateful to be on this planet. I have no enemies that I know of. I'm just the guy who makes happy.

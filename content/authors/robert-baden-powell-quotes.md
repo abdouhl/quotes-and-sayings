@@ -1,0 +1,71 @@
++++
+author = "Robert Baden-Powell"
+title = "Robert Baden-Powell Quotes"
+quotes_len = "65"
+description = "the best 65 Robert Baden-Powell Quotes"
++++
+- See things from the boy's point of view.
+- Success in training the boy depends largely on the Scoutmaster's own personal example.
+- Scoutcraft is a means through which the veriest hooligan can be brought to higher thought and to the elements of faith in God; and, coupled with the Scout's obligation to do a good turn every day, it gives the base of Duty to God and to Neighbour on which the parent or pastor can build with greater ease the form of belief that is desired.
+- Erudition - that is, reading, writing, and arithmetic - is taught in the schools; but where is the more important quality, character, taught? Nowhere in particular. There is no authorized training for children in character.
+- Apart from the fact that any hardy exercise conduces much to the training and formation of a soldier, pig-sticking tends to give a man what is called a 'stalker's eye,' but which, par excellence, is the soldier's eye.
+- Life would pall if it were all sugar; salt is bitter if taken by itself; but when tasted as part of the dish, it savours the meat. Difficulties are the salt of life.
+- A boy carries out suggestions more wholeheartedly when he understands their aim.
+- Swimming has its educational value - mental, moral, and physical - in giving you a sense of mastery over an element, and of power of saving life, and in the development of wind and limb.
+- A Scout is never taken by surprise; he knows exactly what to do when anything unexpected happens.
+- To get a hold on boys you must be their friend.
+- From the boys' point of view, scouting puts them into fraternity-gangs, which is their natural organisation, whether for games, mischief, or loafing; it gives them a smart dress and equipments; it appeals to their imagination and romance; and it engages them in an active, open-air life.
+- No man is much good unless he believes in God and obeys His laws.
+- There are thousands of boys being wasted daily to our country through being left to become characterless, and, therefore, useless wasters, a misery to themselves and an eyesore and a danger to the nation. They could be saved if only the right surroundings or environment were given to them at the receptive time of their lives.
+- It is often useful, if an enemy happens to see you, to pretend that you have not seen him. Or it may sometimes be useful to pretend that you have other men with you. I did this once in the Boer War when, having crept up a donga to look at a Boer fort, I was seen by the enemy, and they came out to capture me.
+- A man who risks his life in shooting big game in order to secure good specimens for natural history collections, or to rid a district of a man-eater or other dangerous neighbor, is a sportsman in the true sense.
+- The most worth-while thing is to try to put happiness into the lives of others.
+- Correcting bad habits cannot be done by forbidding or punishment.
+- One of the first duties of a Scout is obedience to authority. He must obey his orders in the first place and put his own amusement or desires in the second.
+- All Scouts should know about St. George. St. George is the Patron Saint of England; he is also the Patron Saint of cavalry in all countries, and therefore Patron Saint of Scouts.
+- One of the finest statesmen of the present time is also a first-class scout, and that is Mr. Roosevelt, the late President of the United States of America.
+- To the man who reads 'Scouting for Boys' superficially, there is a disappointing lack of religion in the book. But to him who tries it in practice, the basic religion underlying it soon becomes apparent.
+- The spirit is there in every boy; it has to be discovered and brought to light.
+- When you want a thing done, 'Don't do it yourself' is a good motto for Scoutmasters.
+- Happiness doesn't come from being rich, nor merely from being successful in your career, nor by self-indulgence. One step towards happiness is to make yourself healthy and strong while you are a boy so that you can be useful and so you can enjoy life when you are a man.
+- No one can pass through life, any more than he can pass through a bit of country, without leaving tracks behind, and those tracks may often be helpful to those coming after him in finding their way.
+- In assisting his 'neighbour' every day to the best of his ability, and keeping truth, honesty, and kindness perpetually before him, the Boy Scout, with as little formality as possible, is pleasing God.
+- If you make listening and observation your occupation you will gain much more than you can by talk.
+- I believe that God put us in this jolly world to be happy and enjoy life.
+- Scouting is nothing less than applied Christianity.
+- Nature study will show you how full of beautiful and wonderful things God has made the world for you to enjoy. Be contented with what you have got and make the best of it. Look on the bright side of things instead of the gloomy one.
+- The uniform makes for brotherhood, since when universally adopted it covers up all differences of class and country.
+- My belief is that we were put into this world of wonders and beauty with a special ability to appreciate them, in some cases to have the fun of taking a hand in developing them, and also in being able to help other people instead of overreaching them and, through it all, to enjoy life - that is, to be happy.
+- Try and leave this world a little better than you found it, and when your turn comes to die, you can die happy in feeling that at any rate, you have not wasted your time but have done your best.
+- Trust should be the basis for all our moral training.
+- The Scoutmaster teaches boys to play the game by doing so himself.
+- One thing Britons have always been celebrated for, and that is being able to stick it out in a tight place.
+- The Scoutmaster who is a hero to his boys holds a powerful lever to their development but at the same time brings a great responsibility on himself. They are quick enough to see the smallest characteristic about him, whether it be a virtue or a vice.
+- The more responsibility the Scoutmaster gives his patrol leaders, the more they will respond.
+- If you make yourself indispensable to your employer, he is not going to part with you in a hurry no matter what it costs him.
+- The knowledge that we have brother scouts working in the same uniform, to the same ends, in the same way, in all corners of the Empire, cannot but make scouts proud of their brotherhood, and cannot fail to bring them into closer sympathy.
+- A good boxing competition gives one the sight of fine men in their prime, trained to the ounce, showing the highest skill, pluck and endurance in carrying out their attack and defence under strict rules of fair play and good temper.
+- It always seems to me so odd that when a man dies, he takes out with him all the knowledge that he has got in his lifetime whilst sowing his wild oats or winning successes. And he leaves his sons or younger brothers to go through all the work of learning it over again from their own experience.
+- If you are in the country, you should notice landmarks - that is, objects which help you to find your way or prevent you getting lost, such as distant hills, church towers, and nearer objects, such as peculiar buildings, trees, gates, rocks, etc.
+- Football in itself is a grand game for developing a lad physically and also morally, for he learns to play with good temper and unselfishness, to play in his place and 'play the game,' and these are the best of training for any game of life.
+- An individual step in character training is to put responsibility on the individual.
+- The method of instruction in Scouting is that of creating in the boy the desire to learn for himself.
+- Show me a poorly uniformed troop and I'll show you a poorly uniformed leader.
+- The happiest people I know as a nation are the Burmese; their brightness and cheeriness are proverbial. Kindness to animals is one of their greatest 'weaknesses'; no Burmese will kill an animal, even if it is to put it out of pain.
+- A Scout smiles and whistles under all circumstances.
+- One aim of the Boy Scouts scheme is to revive amongst us, if possible, some of the rules of the knights of old.
+- Giving responsibility is the key to success with boys, especially with the rowdiest and most difficult boys.
+- The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes.
+- Living indoors without fresh air quickly poisons the blood and makes people feel tired and seedy when they don't know why. For myself, I sleep out of doors in winter as well as summer. I only feel tired or seedy when I have been indoors a lot. I only catch cold when I sleep in a room.
+- We never fail when we try to do our duty, we always fail when we neglect to do it.
+- Juvenile crime is not naturally born in the boy, but is largely due either to the spirit of adventure that is in him, to his own stupidity, or to his lack of discipline, according to the nature of the individual.
+- One of the powerful temptations is that of the cinema palace. The cinema has undoubtedly an enormous attraction for boys, and people are constantly cudgelling their brains how to stop it. But it is one of those things which would be very difficult to stop even if it were altogether desirable.
+- The most successful detectives owe their success to noticing small signs. Scouts are natural detectives and never let the smallest detail escape them. These small things are called by Scouts 'Sign.'
+- Personally, I like reading adventures which really have happened to people, because they show what kind of things might happen to oneself, and they teach one how to 'Be Prepared' to meet them.
+- You may be rich, but there is one thing you can't afford - that is, if you are a good sort - you can't afford to spend money on your own luxuries while there are people around you wanting the necessaries of life.
+- True Scouts are the best friends of animals, for from living in the woods and wilds, and practising observation and tracking, they get to know more than other people about the ways and habits of birds and animals, and therefore they understand them and are more in sympathy with them.
+- Of course, animals have to be killed for food or to prevent their doing injury to others or to property. But such killing is too often carried out without regard to the pain inflicted.
+- Development of outlook naturally begins with a respect for God... Reverence to God and reverence for one's neighbor and reverence for oneself as a servant of God.
+- Happiness is within the reach of everyone, rich or poor. Yet comparatively few people are happy. I believe the reason for this is that the majority don't recognize happiness even when it is within their grasp.
+- Be Prepared... the meaning of the motto is that a scout must prepare himself by previous thinking out and practicing how to act on any accident or emergency so that he is never taken by surprise.
+- The study of Nature brings into a harmonious whole the questions of the Infinite, the Historic, and the Microscopic as part of the Great Creator's work.

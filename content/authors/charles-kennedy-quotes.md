@@ -1,0 +1,142 @@
++++
+author = "Charles Kennedy"
+title = "Charles Kennedy Quotes"
+quotes_len = "136"
+description = "the best 136 Charles Kennedy Quotes"
++++
+- Those who use our public services should be able to deal directly with those who manage and deliver them.
+- To involve young people and make sure that the system is more relevant to them in Scotland, we have a clear obligation to implement a policy of home rule.
+- It is true that I entered parliament at the age of 23, and have now been representing the people of my constituency for over twenty years.
+- Yes, you need substance in politics - but I think your style also says something about how you arrive at some of your conclusions.
+- Music and politics are in essence about communication. Without over-stretching the analogy I do feel a sense of rhythm is important in getting your message across.
+- Only the Liberal Democrats have probed the government's failings consistently, thoroughly and effectively.
+- There stands no contradiction between giving voice to legitimate anxiety and at the same time, as and when exchange of fire commences, looking to the rest of the country, as well as all of us in the House, to give full moral support to our forces.
+- A perennial problem that has faced the Scottish Highlands is that, time and again, too many of the more talented young people have had to move elsewhere - even abroad - through a lack of opportunities that should have been available.
+- The House of Lords has many fine aspects, but at its heart, it is a betrayal of the core democratic principle that those in the enlightened world hold so dear - that those who make the laws of the land should be elected by those who must obey those laws.
+- When it comes to our public services, decentralisation means giving power back to those on the front line - our doctors, nurses, teachers and physiotherapists, and our locally elected officials.
+- This country has a proud history of opening its doors to generations of people fleeing personal persecution, civil unrest and war.
+- It's our job as Liberal Democrats to be an effective opposition - and an increasingly tough one as well.
+- The quicker we get rid of the lobby system the better for all of us. I don't think in this day and age it is tenable to have these nods and winks, and on-the-record and off-the-record briefings.
+- With 24-hour news... the story moves on with the media.
+- I believe that access to a university education should be based on the ability to learn, not what people can afford. I think there is no more nauseating a sight than politicians pulling up the ladder of opportunity behind them.
+- Tony Blair took us to war in Iraq on the basis of the supposed threat of Saddam's weapons of mass destruction.
+- Good political leadership for me involves getting the big decisions right - however difficult, however controversial, however potentially divisive - and then being able to take people with you.
+- We Liberal Democrats don't believe we should use the tax structure to champion just one type of family.
+- We should have high expectations of our children, but politicians should not tell teachers how to meet them.
+- We all accept the world would be safer without Saddam's baleful dictatorship.
+- I have always considered myself of the reforming centre-left.
+- I will go out of this world feet first with my Lib Dem membership card in my pocket.
+- When human rights are systematically abused, it raises the question whether it may be legitimate in some circumstances for the international community to intervene within individual states as well as in conflicts between states.
+- We actually believe in hope. But hope requires purpose. And purpose requires direction.
+- We need a liberal agenda in which government resists the temptation to interfere in the lives of individuals but is equally determined to play an active role where creative action can advance the liberties of all.
+- I couldn't imagine a day without music. It relaxes and stimulates me in equal measure and I hate the sound of silence - the concept, I mean, not the track by Simon and Garfunkel.
+- Soon after the 1997 election, I argued that there was no inverse law of political gravity which said that everything which went down had to come back up.
+- Politics means facing up to hard choices and facing down prejudice, short-termism, the easy, tempting court of knee-jerk public reaction.
+- Three simple words - freedom, justice and honesty. These sum up what the Liberal Democrats stand for.
+- Speaking to numerous teachers and nurses, I am consistently struck by the sense of mission they have about their work.
+- The one thing we can all be sure about in politics is you are as well to expect the unexpected.
+- As I spread my wings in politics, I discovered many Thatcher voters down south who were the same kind of people who loathed her in Scotland. They were puzzled by the Scots' antipathy, given the Falklands war and the strong militaristic history of the Highlands and elsewhere.
+- When I started knocking on Highland doors in May 1983, two things struck me more than any other. First was the sheer depth of hostility towards the Tories in general. Second was the particular hostility towards Margaret Thatcher and her local ministerial spear-carrier, energy minister and incumbent MP of 13 years' standing, Hamish Gray.
+- I can hardly think of an occasion when I've got into a stand-up fight with any political opponent. I've got my views, people know what they are, they can agree or they can choose to disagree. I'm not going to waste time just rubbishing everybody else.
+- For any new leader of any party at any given time it takes time if you are not in government to establish yourself.
+- The government's instinct is to shroud itself in secrecy - to act like the office of a president instead of as a collective cabinet government held to account by the elected House of Commons.
+- We believe that government in Britain should be working to restore our reputation on the international stage after Iraq and engage better within Europe.
+- Decentralisation is controversial - but that's fine. We should be fearless about having a debate.
+- A society which is liberal democratic cannot have public policy determined upon the basis of who has got the loudest voice - or who can brings things to a halt.
+- My approach is always to try to be straight with people, especially about what my party can achieve.
+- Courage is a peculiar kind of fear.
+- You won't catch Liberal Democrats describing trade unionists as wreckers.
+- To run an effective political party you need a degree of tribalism, it's the glue that holds everyone together.
+- Liberal Democracy is all about extending choice. Give people the option to decide their retirement age, and you immediately extend their freedom in a very significant way.
+- I find no contradiction between being a Highlander, a Scot, a citizen of the U.K. and a citizen of the European Union at one and the same time.
+- I don't actually subscribe to the view that all power corrupts. But absolute power - when secured on the back of massive parliamentary majorities, which don't reflect the balance of political opinion in the country - can corrupt absolutely.
+- There is no satisfaction to be derived from having had many of our arguments borne out by events.
+- I think you've got to like people. There are MPs who are either painfully shy or who don't like public speaking or don't socialise very well, and you just think this must be the worst job in the world for them.
+- I'm not someone who dwells upon past events, taking the view that life is too short.
+- It is the government's fundamental duty to ensure the security of every individual citizen.
+- I don't want a headline saying 'Kennedy suggests this or implies that.'
+- It has been the greatest privilege of my adult and public life to have served, for 32 years, as the Member of Parliament for our local Highlands and Islands communities.
+- I believe when the country feels threatened it is important that we are seen to be working together to find an appropriate structure for dealing with terrorists in our midst.
+- I'm a lifelong believer in trade unionism.
+- Actually, I think it's quite sensible not to take yourself too seriously.
+- In my view, nations together are stronger than when they are isolated. And because they are stronger, their people are more free, not less.
+- My health is good and it's up to me to keep it that way.
+- As Liberal Democrats and proponents of federalism, we must put our heads above the parapet and recapture and disseminate the true meaning of federalism. We have to win the vocabulary before we succeed in the vision.
+- The way to defeat international terrorism is through international cooperation based on international law, clear intelligence, and a measured and appropriate military response.
+- I think that former leaders are best seen occasionally and not too often heard - particularly on the subject of their successors!
+- We'll need to revise the tired assumption that people automatically become more conservative as they grow older.
+- Ours is a stable country. Ours is a sensible country. And ours is a fundamentally decent country.
+- As a Scot, representing a Scottish constituency for almost the past 25 years, I do not harbour an overweening ambition to pronounce on each and every matter exclusively English.
+- Just as we Liberal Democrats opposed the flawed logic of that war in Iraq - we will oppose the flawed government claim that we have to surrender our fundamental rights in order to improve our security.
+- We have a Scottish Parliament and National Assembly for Wales, both elected by fairer votes - involving proportional representation.
+- In my view, as a country we need to rediscover some of that skepticism about government and revisit that libertarian agenda.
+- Further Education should be about the ability to learn, not the ability to pay - everyone who is able should have the opportunity, regardless of their family background. I don't want to see students struggling with huge debts or frightened off even going to university in the first place.
+- Westminster is a jungle - and the hunter can always smell fear on its prey.
+- When power is exercised exclusively at the centre, the result is rigidity of rules and alienation of the people subject to those rules.
+- We are no longer a nation of one church; we are a nation of many churches.
+- We believe that government in Britain should improve the quality of people's lives and improve the quality of our public services in every local community.
+- Fair votes - fundamentally - are about the rights and the interests of the people.
+- Immigrants provide skills that we simply cannot afford to do without. They have contributed hugely to Britain's success.
+- Politicians are good at saying how Government must do more, but we must also think carefully about where Government should do less.
+- With every day that passes, David Blunkett becomes more insensitive in his language and more intemperate in his actions.
+- Political parties need to look at the different kinds of support that people may need, suited to their way of life, and provide cost-effective solutions.
+- To be seen to be human, provided you're doing your job at the same time, is definitely not a negative, not at all.
+- Democracy demands trust. It demands that sense of mutual understanding. And - it's a two way street. You've got to give - as much as you take.
+- Many people want to scale back their working hours as they near the end of their careers, but not necessarily to give up work altogether.
+- We Liberal Democrats believe in dialogue. We believe in cooperation with both sides of industry and between both sides of industry. And we believe in the language of cooperation. We reject the language of confrontation.
+- Whatever the eventual judgment, the political implications of Hutton are already clear. A devastating indictment of Labour in power - and of our political system itself.
+- We believe that government in Britain is there to protect people from terrorism and from the worst criminality, but never at the expense of our civil liberties and the basic tenets of our legal system.
+- As someone who has led his party through two general elections, I have not always been immune from feeling the pressure of electioneering tactics.
+- The most special relationships, in my experience, are based on a combination of trust and mutual respect.
+- That 1983 general election contained the telltale seeds of eventual Scottish Tory self-destruction.
+- During my campaign, people of my age and younger said consistently that they would not vote because their votes simply no longer matter and because no government or member of Parliament cared a whit about their problems and their striving for employment.
+- Liberals have been committed to the principles of human rights, international stability, and international justice. They have also sought international solutions to those problems which have demanded collective attention.
+- If you were to describe me as teetotal, on behalf of my constituency I'd have to sue; that would lose me every vote in the Highlands.
+- Like John Major in her wake, Thatcher was convinced that she understood the Scots - yet couldn't understand why we remained so stubbornly resistant towards the notion of understanding her.
+- The terrorist seeks to smash the most fundamental liberty of all: the right to lead our everyday lives on the basic assumption of safety.
+- The growing influence of focus groups means we are all in danger of being excessively cowed by their feedback.
+- Some ministers are fond of talking about a return to Victorian values. We must realise that those Victorian values are being expressed by some of the younger people in this society in shameful and disturbing disregard for other members of their generation who are not as fortunate as they are in having a job.
+- A smaller-size party and parliamentary membership does not necessarily equate to lesser demands; if anything, the opposite can be the case.
+- Public perception of the Westminster arena, with all its posturings, does little to engender a sense of voter belief.
+- The late Roy Jenkins was both a mentor and a personal friend. He was a man of both phenomenal intellect and political achievement in equal measure.
+- I did not dwell on the issue of Europe during either the 2001 or the 2005 campaigns - despite it being a pivotal personal concern and despite seeing it as something of a litmus test for liberal democracy.
+- I happen to consider myself a Highlander even before a Scot; I am proud to be British yet feel comfortable as a European citizen.
+- We must restore faith in politics. Reform of the House of Lords is only one part of the answer, but it is a vital one.
+- I should do something about the cigarettes; I quite accept that it's bad for your health, but you know a moderate tipple is positively beneficial and, at certain times, absolutely essential.
+- There is always a temptation for governments: see a problem and announce a quick fix.
+- Professionally I would say taking up my constituents' problems is something I continue to enjoy after 22 years as an MP.
+- I believe that our country is a richer, more vibrant society precisely because it is a multi-racial, multi-ethnic society.
+- We would all rather see Iraq resolved successfully.
+- It is my determination that we, as a party, continue to make that fundamental restatement of liberal values in the politics of our country.
+- Terror can never be defeated by force alone.
+- I want our party to step up its efforts to reflect and champion the concerns of everybody who has reached the second half of their lives.
+- There are hard choices to be made in balancing the country's security and an individual's liberties. But it is a choice that has to be faced.
+- If British troops are committed to action, then the nation will, of course, support them. Their courage and skill is not in doubt.
+- New Labour needs to realise that family life and the way we raise our children are private matters.
+- I am genuinely not an over-the-top kind of person about politics or anything else.
+- I know from my own parents how important active older people are to a local community.
+- By common consent, most European countries support the maintenance of robust welfare states and are comfortable with taxation systems that support them.
+- People have a huge desire to be listened to, for politicians to take the time to understand their problems.
+- Taking a principled and consistent stance over Iraq has attracted much criticism from our detractors and opponents.
+- The point never to lose sight of is to be guided by the correct thing, as you see it. It's the only way to approach such profound matters and retain your integrity.
+- Of all the principles which constitute Liberal Democracy, internationalism is the clearest, the most distinctive, and the one with the longest history.
+- I'm a fully paid-up member of the human race.
+- It would be a tragedy if the remarkable international coalition against terrorism, successfully marshalled in the aftermath of 11 September, were to fragment over a unilateral U.S. strike against Baghdad.
+- People are not stupid.
+- Valuing public servants would boost morale among those on the front line of implementing government policy.
+- I do think there is a great deal of caricature around the House of Commons. It is just that kind of place.
+- Politics is much too serious to be taken too seriously; equally, there are many aspects of it so laughable as to be lamentable.
+- Labour politicians for generations have fought to bring democracy to the House of Lords.
+- 'Federalism', in the context of political and media usage in Britain, has come to mean the creation and imposition of a European superstate, one centralised in Brussels.
+- Quality of life actually begins at home - it's in your street, around your community.
+- We opposed unlimited detention without trial. We stood up for trial by jury as well. And of course we spoke up for asylum seekers and for the most vulnerable in our society.
+- Britain is a European power. We cannot change our geography. Our involvement in the politics of European cooperation is one of necessity. Our wealth and our security depend upon it.
+- We need less theoretical debate and more practical application and acknowledgment of what Europe can and does do so that it is brought home to people in a relevant way.
+- I listened to the students on campus in Plymouth, worried about their steadily deepening debts and how on earth they would ever escape them.
+- I want to see far more decisions taken far closer to the patients, the passengers and the pupils. Far more power for locally and regionally elected politicians who understand best the needs of their areas. And far more say too for the dedicated staff at all levels in health and education.
+- It must be a judge - never a politician - who decides whether someone is to be locked up.
+- Useful lessons can be learned from our more successful local authorities - as you move into government, it is even more imperative to communicate speedily and persuasively with your members and your voters.
+- Terrorism gravely threatens international peace and security, and as a solution, the power and apparent finality of force are seductive.
+- No government body is more notorious for over-legislation than the Department of Trade and Industry.
+- Gratification and happiness are becoming important measures of our quality of life.
+- We want a strong, vibrant economy for Britain so that we can set out a clear and affordable alternative programme for government.

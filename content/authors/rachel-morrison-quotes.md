@@ -1,0 +1,79 @@
++++
+author = "Rachel Morrison"
+title = "Rachel Morrison Quotes"
+quotes_len = "73"
+description = "the best 73 Rachel Morrison Quotes"
++++
+- Photography was a way for me to freeze time and to capture the moments that were happy and healthy. I saw a photo as a way to go back to a memory if I ever needed to.
+- I find beauty in imperfection.
+- Authenticity, to me, is something that you feel, and if it doesn't feel authentic, you pick up on it right away.
+- I really do believe that the experience of having a child is going to actually make me a much better cinematographer.
+- My experience - I'll never know what happens behind closed doors or why I don't get hired for something, but I've never had an experience that made me feel any less than.
+- Photos have the real task of bringing exposure to places that we otherwise don't have much awareness of.
+- I might be one of the very few people in this industry who doesn't have a 'me too' story.
+- So much of 'Mudbound' is about man's relationship to the land and to the elements. It's about the desire for control and how powerless we are against nature. We always knew we would shoot widescreen as a means to isolate a body in the frame and to highlight our own insignificance.
+- We shot 'Mudbound' in the South in the summer, which meant we were working in extreme heat and humidity at all times and that it could go from glaring sun to overcast skies to pouring rain in a matter of minutes, often shifting multiple times a day.
+- Success doesn't come overnight, especially for women.
+- It's always a challenge to shoot a period film and not have it look like you hit the tea stain button in post.
+- Having a family is a compromise on some level, but it's so incredibly worth it. It actually informs the work that I do as a DP.
+- The biggest difference for me was that I operated almost every frame on 'Mudbound,' and I didn't operate on 'Black Panther.'
+- I love faces that have freckles. I love faces that have wrinkles. For me, beauty is naturalism, I guess.
+- Sometimes it just takes a little longer to get to your destination, but if you make sure to enjoy the journey, eventually you will get there.
+- We really owe it to our world to infuse our entertainment with messaging.
+- A period film is a gift for a cinematographer.
+- I think 'Sound of My Voice' was the first film where suddenly I could point to something I had done that I was proud of and say, 'Look at this piece of work.' And that's probably what led to 'Fruitvale Station,' which was the real break.
+- I think Marvel's incredibly supportive of young auteurs and really let them do their thing and support their vision. They give you a sandbox to play in, but it's a pretty massive one.
+- Documentaries are inherently instinctual; you're constantly moment to moment, determining what the best place for the camera is to tell the story, usually in service of natural lighting.
+- Half of 'Mudbound' were shots I stole in between other scenes.
+- I shot 'Fruitvale Station' on super-16, and then I shot a movie called 'The Harvest' on 35mm, and then I shot 'Little Accidents' on 2-perf 35.
+- The theatrical experience is also a communal one. When people saw 'Fruitvale' in the theater, there was not a dry eye at the end of the movie, and you would look to your neighbor and have this shared moment together that had a real weight behind it.
+- For me, I just like new challenges.
+- My dad, before he passed away, never understood what I did. What I say is that I'm responsible for translating the director's vision, hopefully turning an idea into something people can connect to and relate to.
+- My mom was diagnosed with breast cancer when I was four. And she was re-diagnosed when I was seven or eight, and again when I was 13, and my dad was very unhealthy, too. I was living on the edge of mortality my entire childhood.
+- I think you can make a gorgeous movie on any piece of equipment. Look at 'Tangerine,' which is a beautiful movie shot on an iPhone. You see so many movies that are impeccably shot but are vapid, and there's no audience for that except for other cinematographers who just like to watch two-hour-long music videos.
+- There's something so inspiring about being in real locations, where you can feel the tactile qualities from the layer of paint that has been chipping off and the hundreds of years that have been lived in the space.
+- It's hard to go back to shooting contemporary apartment interiors after you shoot something like 'Mudbound.'
+- The first female DPs that I was aware of were Ellen Kuras, Mandy Walker, Nancy Schreiber, Amy Vincent, Sandi Sissel, Maryse Alberti and Tami Reiker. You look for a role model as somebody who looks like yourself and is doing what you want to do; they were the handful.
+- I'll never know what happens behind closed doors or why I don't get hired for things.
+- When you're so used to operating the camera, it's an extension of your eye and your heart and your head.
+- I lived within walking distance of Harvard Square, and that's where I discovered my love of cinema. I saw a lot of foreign and independent films there.
+- When shooting in real spaces, the work of a cinematographer begins where location meets production design meets time of day. No movie light will ever look as real as the sun, so scheduling becomes truly paramount to naturalistic lighting.
+- Life is unpredictable, and I feel, to some extent, lighting and cinematography should be a reflection of that.
+- Cinematography is so much about instinct and intuition - you want the same range of experience going into behind the camera as what you see in front of it. Your life experience will come through the lens.
+- 'Fruitvale' set the bar for what I wanted to do with my career, which was to make films that had consciousness and messaging in an entertaining package. Once I hit that mark, I never wanted to go back.
+- The only consistency in the work I do is that I try to use cinematography to best tell the narrative and do justice to the character arcs, but not to do it in such an overt way that people are distracted by it.
+- My wife jokes that any time I want to take a picture of her, it has nothing to do with her - it's just because the light is really nice. She's usually right. I definitely am somebody who notices the way the light skips off the floor.
+- Your movie becomes much more narrow-minded when you have like-minded department heads. Whereas if you can surround yourself with people who have been a mother before, been a grandmother before, you get a much broader and wide-reaching swath of human emotions.
+- For me, it's always been about the work - it wasn't about, 'Let's go break some ceilings.' I just wanted to tell an important story and do the best work I can. Everything else is secondary.
+- To me, as an audience member, movies always come to a screeching halt when they get to their action scenes. They always feel like they drag on to me.
+- I believe in naturalistic lighting, which isn't to say natural light.
+- I think lighting is a reflection of what is at stake emotionally in a movie.
+- As artists, we can't help but infuse our art with our own experience, so your experience becomes informative.
+- The cinematographer's basically translating the director's vision into imagery.
+- You can only shoot small movies and documentaries for so long if you want to have a family that you support; eventually, you need to get let into the big leagues.
+- The best kind of entertainment is the kind that also makes you question something or think outside the box or live another life. Those are the stories that I'm drawn to.
+- My lighting tends to use contrast as a reflection of the stakes in the scene. The higher the stakes, the more I feel I can get away with an exaggerated contrast.
+- I think there's this assumption that everybody would rather be a director, and I don't know that that's the case for me, so we'll see.
+- I kind of grew up with a camera in my hand.
+- The focus has to be about making good work. I don't ever want to be hired for a job because I'm a woman. And I don't ever want to be recognized for a job because I'm a woman.
+- Lighting practically whenever I can when shooting period really helps with authenticity.
+- Usually, if you notice good cinematography, then the cinematographer's failing. I try to make light feel like it's always motivated and natural in some way and hope that the lighting goes unnoticed.
+- If there's anything consistent about my work, it's not flat.
+- I gravitate much more toward realism, realism in the work that I do, but magical realism got me hooked on film. I think it was my first time realizing that there was something besides popcorn movies.
+- I didn't want 'Mudbound' to feel stylized in any way.
+- It took me a long time to adapt to the West Coast. I lived eight years in New York before California and might have gone back. Then I discovered surfing. It's the California equivalent of ice hockey, I guess. It gave me a real sense of place.
+- I came up in photography, and Dust Bowl-era photography is a lot of the reason that I got behind the camera in the first place.
+- I love the team aspect of filmmaking.
+- It would be naive to say that you could make a movie on film for the same price you can digitally.
+- When I was studying photography, I became interested in conflict photojournalism, and that got me interested in lighting. Then I realized there was this amazing thing called cinematography where you could kind of tell more complete stories photographing for film. So I ended up going to AFI grad school for that.
+- I did photography in summer camp; I did it in high school. The only hard decision I've had to make was whether to go towards photo or film. And I ultimately realized that the type of photo I was interested in was actually photojournalism. And it's a very individualist career, whereas film is a very team-driven medium. So that's why I chose film.
+- I don't love cinematography that's very flashy because I find that it keeps the audience from becoming a part of the film; it becomes sort of self-reflective.
+- Cinematography speaks to everything that women do inherently well: It's multitasking, it's empathy, and it's channeling visuals into human emotion.
+- You just sort of get used to being one of the only women on set, so it's really refreshing to start to enter a time when that's not the case anymore.
+- The big trick is just to get to a point where we're just considered DPs, and we're not 'female DPs.' When you think of the word 'doctor' or 'teacher,' you don't think gender. And it would be nice to get to a place where 'DP' meant either and 'director' meant either and 'gaffer' meant either.
+- Surfing is incredible. It's both meditative and physical. I think it was my way into California.
+- I was probably five when I first picked up a camera. My mom had an Olympus OM-10 that she carried around to document our family photos. And I just always loved it.
+- I pour my blood, sweat, and tears into a movie. What I always look for is a message and a social consciousness: a relevance to what's happening in our world.
+- For me, it's just always about trying to tell stories that I care about.
+- I've had something like seven films at Sundance, one of which won the Grand Jury Prize.
+- Part of the reason why I love to operate is because I find that so much of what we do is instinctual. It's dancing with the actors and responding to their body language, and you feel what the right place for the camera is at any given moment.

@@ -1,0 +1,91 @@
++++
+author = "Ilhan Omar"
+title = "Ilhan Omar Quotes"
+quotes_len = "85"
+description = "the best 85 Ilhan Omar Quotes"
++++
+- I think a big part of my faith teachings is to work together towards equality: that we're all created equal, and under the eyes of God, we all have a right to freedom and to access our rights equally.
+- I've always said you get what you organize for.
+- If we are not actively fighting against regressive ideologies, we are contributing to making them grow.
+- We didn't really grow up in a gendered environment. We didn't have a hierarchy. My family is fearless. They truly believe that they have something to contribute to society and that it is an obligation as humans. I try to embed in my children that they have something to contribute. And that you give because you have to, not to be appreciated.
+- When people were selling the politics of fear and division and destruction, we were talking about hope. We were talking about the politics of joy.
+- Since 2011, I am happy to say that I have reconciled with Ahmed Hirsi; we have married in our faith tradition and are raising our family together. Like all families, we have had our ups and downs, but we are proud to have come through it together.
+- Many in the Somali community are excited to vote and support candidates who have shown an ability to lead with integrity and not use props and gatekeepers to get their votes.
+- We have people who will take votes that they can't defend. They'll say they stand for a policy, but when it comes to vote for it, they won't take the vote.
+- I talk all the time about the eight-year-old me and all the eight-year-olds who are living in their camps.
+- This is a land of immigrants, and most come here for opportunity, a second chance.
+- Fighting gerrymandering is one thing. The other thing is insuring we have the right candidates for the people and not the right candidates for the Party.
+- I was a teenager when 9/11 happened. And I really was uncomfortable with many members of our community feeling like they had to strip themselves of their identity in order to mitigate the violence and the fears that they were feeling.
+- We can walk and chew gum at the same time. Yes, the American people want us to legislate, they want us to insist on furthering their set of values, but they also want us to resist and exercise our oversight powers.
+- I invited President Trump twice now to come meet my family and my community because he seems to have a lot of opinions about the kind of people we are.
+- I want to go to Washington to make sure we really have an opportunity to expand health care for folks so that is accessible to them.
+- Every student has something to offer, and every student deserves a nurturing learning environment.
+- I think being an immigrant makes me overly optimistic.
+- American hate is not new - and it is not scarce.
+- My family called me the 'why kid' growing up. I always needed to know why something is happening, why I had to do something, why whatever.
+- We can all agree that we need to be helping small businesses. All of us can agree that the cost of higher education is too high, and college debt is too big of a burden for young people.
+- We must see others' struggles as our own, and their success as our success, so we can speak to our common humanity.
+- I think it is really important when we're talking about fiscal responsibility that we are balancing the budget in ways that really benefit the working people and Americans.
+- There are a few things that we can do. One of them is that we can increase the taxes that people are paying who are the extremely wealthy in our communities. So, 70 percent, 80 percent, we've had it as high as 90 percent.
+- I'm not easily scared; from the age of 8, I learned what it means to have everything you know taken away and what it means to persevere. I approach politics the same way.
+- I grew up under a dictatorship. I knew what it meant for people to not have the ability to freely express themselves.
+- We are accountable to each other; having an equitable Minnesota benefits everyone, not just the disenfranchised.
+- When I talk about places like Saudi Arabia or Israel or even now with Venezuela, I'm not criticizing the people. I'm not criticizing their faith. I'm not criticizing their way of life.
+- For me, as an immigrant who didn't speak the language, when I would have struggles as a kid, my dad would say, 'Once you are able to communicate with people, they're able to connect with you beyond your otherness.' That is really the message I've carried throughout my life.
+- My kids are the reason I continue to strive for something better. They know - as kids who are Muslim, Somali, black Americans - that they've always been part of a struggle and that change isn't easy.
+- Truly, this is a nation that sees itself as one that instills hope and is really about allowing people to pursue their dreams.
+- As an immigrant, I truly believed when I was coming to this country that people had the tools necessary to life to live a life that is prosperous, that is just and free. So, every single day, I am shocked with the hypocrisy of this country. That we are the wealthiest nation in the world. But we cannot figure out how to house our homeless people.
+- I grew up in a household where we all celebrated who we were. There was no space to make people feel different or 'less than.'
+- We need to be constantly reminded that this is a representative democracy, and we need to be in tune to what people are talking about.
+- We know that when people are civically engaged, when they understand what their rights are, when they understand that in a democracy you can challenge governments, you can challenge policymakers, and you can... actually shape and form future policy, I think it changes the perception that a lot of young people have about where power is.
+- It's our time to fight for the America we know we can have.
+- We need to recognize that racism has never been subtle, though it has gone underreported.
+- One night, militia tried to break into our home, and the exterior was riddled with bullets.
+- When I was coming to this country, I heard about its promises.
+- I know that when we interact with those we fear and hate, we will find commonality.
+- The house I was born in in Somalia was right next to a big market. A lot of beggars or panhandlers would be in front of our house constantly, and my grandfather and grandmother would always invite them in to have food with us and have them take whatever was left over.
+- I am proof that, as Americans, we can embrace our differences.
+- The one percent must pay their fair share.
+- Hope will be found by understanding that diversity is the essence of the American Dream and why we need each other to fulfill it.
+- I think we forget that, for a really long time, this country has been a place that has welcomed many refugees who have made it home and have tremendously contributed to this country.
+- When I first arrived in the country, I really didn't speak much of the language. I knew two words coming here, and they were 'Hello' and 'Shut up.'
+- I try not to think of my life in terms of separation.
+- I come from people who dreamed of a free democratic system. I believe so strongly in the process and equal access.
+- Minnesota's diversity should be its greatest strength, but our neglect of nonwhite students has stifled our progress toward growth and equity.
+- I want my children to attend inclusive schools where diversity is respected and acknowledged as a sign of strength.
+- Here in Minnesota, we don't only welcome immigrants; we send them to Washington.
+- In just my own neighborhood, you can't go one block without seeing a sign that says, you know, 'Everyone's welcome here,' 'Refugees are welcome here.' I love my Muslim neighbors, and so there is truly this spirit of generosity and compassion and openness that still exists.
+- Learning is not limited to the classroom, and Minnesota shouldn't limit its education resources there, either.
+- We've become the party that wants to appease everyone and no one. And I think the only way that the Democrats become viable again is if we have people who have moral clarity and courage to say what they need to say and fight for what they need to fight for.
+- We say this is a land of immigrants, and we forget that this was a land that belonged to people. And those of us who are new immigrants and those of us who come from generations of immigrants have to realize we are not that much different from one another.
+- Insinuations that Ahmed Nur Said Elmi is my brother are absurd and offensive.
+- I was always made aware of inequality in society, that there was a class system. In Somalia, we have clan structures. My mother's family is ethnically not Somali, and so we spoke often about what it meant to be 'other' in that way.
+- I would have loved to have heard a story like mine. I could have used it as an inspiration to get by.
+- I will never apologize for standing up against oppression and injustice in Israel or anywhere else.
+- ICE has only become increasingly militarized, brutal, and unaccountable.
+- Our immigration policy should be based in compassion and a desire to help the other.
+- I am committed to growing participation in the political process and doing it the right way.
+- I have been very fortunate to have a partner who really stepped up and have wonderful children who do a lot of things that make it easy for Mommy to do this work.
+- I think my faith as a Muslim is very important. One of the core values is that you are always trying to build consensus. So when it comes to figuring out if something is permissible or not in Islam, it's usually a discussion, and people have to come to a consensus in order for something to be approved.
+- My kids have been around politics since they were little.
+- Some suggest that, as a woman, I meddle in political affairs and need to be 'put in my place.'
+- I am not a Somali representative. I am not a Muslim representative. I am not a millennial representative. I am not a woman representative. I am a representative who happens to have all of these marginalized identities and can understand the intersectionality of all of them in a very unique way.
+- I believe in the ideals of America, in liberty, justice, and the pursuit of happiness.
+- I'm going from the state House to the opportunity to serve in Congress and serve the people in the Fifth, which is a great honor and a great opportunity... It is something that is exciting to a few people, but, you know, often times it is important for us to own the moment, celebrate it, and then move on.
+- I believe women and minorities often wait for permission to be invited to something; we need to stop doing that.
+- My kids are part of the rest of my community and my wider family.
+- No Minnesotan should ever experience preventable health risks from breathing polluted air or from drinking unsafe water.
+- Life in Somalia before the civil war was beautiful. When the war happened, I was 8 years old and at that stage of understanding the world in a different way.
+- Israel is an ally of the United States, and I think as much as you would look to your neighbor to your friends to live out the same values as you are, we want to make sure that our allies are living out the same values that we push for here.
+- I know what it feels like to be a young family looking for opportunity in the United States.
+- I look forward to being a voice of reason in fighting for transparent and accountable budgets.
+- I know how it feels to be hated because of my religious beliefs.
+- I talk a lot about the men in my family because my mother died when I was little, and my grandmother died when my aunts were little, so we didn't have those kinds of heads of household. But all the members of our household who were female were sort of living as equal and as wise as the male figures in our family.
+- What I always emphasize is that I am a representative who happens to be Somali.
+- I have a duty to teach my people about their rights and protect them from being bamboozled.
+- I had a lot of challenges starting school, and my dad says I would come home every day crying and feeling bad about the problems I was having with some of the kids. And he would tell me to work hard on learning the language.
+- This country gave us hope. This country allowed for us to develop our own identity and to create our own home. And we should not look down on the next person that is trying to do that.
+- I find hope in knowing that I belong to a state that has a lot of people who are champions of change and progress; that we will rise up and fight for justice and equality; that, ultimately, love will trump hate.
+- I have a great sense of who I am.
+- I am much more interested in defending my ideas than defending my identities.
+- Somalis in Minnesota have worked so hard to get their voices heard in the political process.

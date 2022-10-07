@@ -1,0 +1,106 @@
++++
+author = "Brian Stelter"
+title = "Brian Stelter Quotes"
+quotes_len = "100"
+description = "the best 100 Brian Stelter Quotes"
++++
+- When I watch Tucker's show, I hear - you're going to think I'm crazy - I hear 2024 campaign monologues. That's what I sometimes hear him doing, thinking about what is the post-Trump GOP.
+- It is an honor to take the helm of 'Reliable Sources,' the very best of a very small number of programs about the media's role in society.
+- The greatest hoax of all of the Trump years is that Donald Trump has convinced one-third of the country not to believe not anything but Sean Hannity and Fox and Trump.
+- Trump forces us to ask questions we didn't used to ask.
+- Of course, 'Fox & Friends' is more of an entertainment product than a newscast. The show's viewers know that the morning show promotes Trump and his agenda. Most of Trump's interviews are with boosterish shows like this.
+- With regards to Trump's treatment of Putin and Russia, national security experts and journalists have been citing the fact pattern and saying there's something strange going on.
+- When there are falsehoods and ludicrous statements made at briefings, we've got to call that out.
+- During his 2016 campaign, Mr. Trump didn't rely on the word 'hoax.' He didn't even say 'fake news.' He called the news media 'sick' and biased, but he didn't seriously start to deny its legitimacy until January 2017, when he was confronted by evidence that the Russian government aided his election. That's when he truly needed the news to be fake.
+- We ask how did ISIS members become radicalized? How did the shooters in El Paso or Orlando or Las Vegas become radicalized? Well, the answer very often is the Internet. The digital land of make-believe. The same pipeline that helps my children learn, helps you connect with your loved ones also poisons some adults and distorts their reality.
+- Trump followed Fox's lead. He parroted what he heard on TV. He lied and lied, but rather than suffer the consequences, his lies were excused and supported and even celebrated by his media enablers.
+- Trump has broken the news system because he has found ways to go out there, get attention, say a lot of things that are untrue and confuse the public.
+- I want the Times to give tough reviews. That's partially why I read the Times.
+- Trump's inability to face the truth of his loss to Biden might explain why he has barely faced reporters at all in the closing weeks of his presidency. Even more remarkably, he rarely ever called into his favorite TV shows.
+- You can convince yourself of just about anything when you want to believe a conspiracy theory.
+- Trump lies a whole lot more than Joe Biden or any other Democratic politician.
+- What I always tell people about Trump, or Kellyanne Conway, or Sarah Sanders, is that when you are interviewing these people, it is really more about the interviewer than the interviewee. What I mean by that is that the interviewer has to be ready to interrupt, fact-check, challenge, rebut.
+- Many people dismiss morning television as fluff, but the morning hours are where the money is.
+- Intelligence agencies, congressional leaders, and outside experts have all assessed that Russia was responsible for a sweeping attack on the US election in 2016. Trump has given lip service to this assessment, saying he accepts the intelligence community's conclusions, while acting like he does not.
+- Glenn Beck and others were pretty outrageous and extremely conspiratorial in the pre-Trump years. I don't mean to totally gloss over some of the nuttiness that was airing on Fox pre-Trump, but I do see a distinction between those years and the Trump years.
+- There is a feedback loop between Trump and TV that is both good and bad.
+- I never covered Barack Obama watching ESPN at night, because he wasn't making life or death choices based on the basketball games.
+- The leaders of Fox News will never say this out loud, but they believe that their media empire is bigger than President Trump.
+- Fox is described as a news operation, a news network, but it's also a political operation.
+- There's a gender gap throughout television and it's very pronounced in morning TV since these shows are mostly meant for women.
+- Trump prides himself on being an intimidator.
+- News outlets use words like erratic, volatile, unstable but rarely are Trump's words and actions covered as a whole and rarely do news outlets take it to that next level.
+- I keep hearing from readers who say 'Hoax' helps them understand their own family a little bit better.
+- Trump granted pardons because of Fox... He raged against migrant 'caravans' because of Fox. He accused public servants of treason because of Fox. And he got the facts wrong again and again because of mistakes and misreporting by the network.
+- Fox News is a virtual public square for conservatives.
+- Rarely, if ever, has a cable news channel employed a host who has previously campaigned for the business goals of the channel's parent company. But as channels like MSNBC have moved to more opinionated formats, they have exposed themselves to potential conflicts.
+- As more and more Americans spend their earliest hours scrolling through news alerts and weather forecasts on their smartphones and tablets, morning shows have to adapt, too. And their biggest competitive advantage may be that, unlike an iPhone, they offer some form of companionship.
+- There are so many families that are divided by Fox and Trump. I think a lot of people have been surprised by just how deep and how corrupt the roots are - how there's been collusion between Fox and Trump right in plain sight the whole time, and yet it's not often recognized.
+- I am glad that 'Hoax' came out a couple weeks before Bob Woodward's book. We both have these one word titles. His is 'Rage,' mine is 'Hoax.' They do make for a great pairing, and I'm not saying that as a sales pitch!
+- Bill O'Reilly truly was always going to go to Italy when the scandal erupted about his secret settlements with women that accused him of harassment. So he decided to go on the vacation that he already scheduled, and then of course, he never came back.
+- Interviewers, even the ones that support the person they're interviewing, have an obligation to probe further and push back when a candidate says something dangerous.
+- Some journalists are schmucks, in it for themselves, willing to cut corners. But in my experience the vast majority of journalists are trying to contribute to their communities, honestly and reliably.
+- These communities that are losing local news coverage are losing something deeper. They're losing a connection to American democracy. And those connections must be rebuilt. We need more of a bottom-up sense of what it means to produce news.
+- To be sure, every White House tries to limit its exposure to difficult and distracting questions. The Obama administration was scrutinized for its use of late night shows and YouTube chats to get the president's message across in low-risk situations.
+- The New York Times' coverage of Trump's taxes is an emperor-has-no-clothes moment.
+- It is hard to tell where Fox ends and Trump begins. But if I had to choose one side of this, I would say Fox drives Trump more than Trump drives Fox.
+- The Internet creates more space for extremism, and the echo chamber effect accelerates the process.
+- There are networks now and websites that make Fox News blush, that, you know, people at Fox News say to me, well, those are radicals; those are extremists. And President Trump - if he does not win the election, he may well end up with a show on one of those networks.
+- What Fox News has become in 2020 is a conclusion of decades of right wing media and rhetoric against the rest of the media. In the '90s it was about media bias. In the 2000s it was about media bias. Now, the rhetoric is so much more extreme. It's about enemies of the people.
+- I think it's clear that Trump is usually in a reactive mode, reacting to what he sees and hears on Fox.
+- Trump was a Fox News viewer before he was a Fox News star. He learned a lot about the Republican party's base by watching the network and calling into the morning show 'Fox & Friends' while still starring on NBC's 'Celebrity Apprentice.'
+- It's incredible that Apple is launching a streaming service with an ode to broadcast TV.
+- The more I watched cable, the more I realized the value of newspapers.
+- If you want to understand why a minority of American voters are unplugged from the fact-based news that the rest of the country depends on, just imagine being told multiple times a day that real news is a hoax.
+- I would not leave the 'Times' for a television job.
+- Fox is Trump's safe space. It's where he's not going to be humiliated, where he's not going to hear uncomfortable truths.
+- Writing is my favorite part of the job.
+- Hannity does not recognize real journalism. He opposes real journalism.
+- Trump's Fox News fixation was a major theme of his presidency. He hired people from Fox, fired people because of Fox, and gave most of his national TV interviews to Fox. Sometimes it was hard to tell where Trump ended and Fox began.
+- Look, conspiracy theories are so much more interesting than the truth. But the last time I checked, Fox still has the word 'news' in its name.
+- Fox is great at making mountains out of molehills. Hannity is the best at it.
+- When Trump lifers are calling for troops in the streets because they lost an election, that's radicalization. When they start speculating about breaking off and creating their own country, that is radicalization. All of this election denialism talk is radical. And yet, it is infesting the airwaves. It's everywhere in the pro-Trump media.
+- History suggests that big corporate maneuvers tend to coincide with changes in morning-TV fortunes, either because the new managers tinker with the product or fail to take it seriously.
+- Sean Hannity operates at Fox News with few rules. He seemingly says and does whatever he wants, even when it embarrasses his own colleagues.
+- I was learning this from numerous sources, friends of Hannity, associates of Hannity, who say that off the record, Hannity is complaining about Trump, saying he's a crazy person... But Sean and these other stars of Fox, they're so committed to the business model, to their ratings, they want to make sure their viewers stay tuned.
+- This is exactly what I thought - that I didn't have enough hair. Peter Jennings. Tom Brokaw. Dan Rather. Beautiful locks, beautiful heads of hair.
+- I think I look at media differently than anyone older would.
+- For all the talk about, and appeals to, Trump fans who wanted to watch the press corps bullied and bashed, most Americans don't want that. They never did. Most Americans want to know what is real and true so that they can make the best decisions for their families.
+- I think that having a baby is going to change my mind in so many ways. I have no idea how, but I'm looking forward to finding out.
+- From the collapse of the Republican plan to repeal and replace Obamacare, something that Trump said he would do on day one, to the explosive FBI announcement that there's an ongoing investigation into possible links between Russia and the Trump campaign, the common thread here is a White House with a credibility problem.
+- Donald Trump has shouted 'hoax' hundreds of times, about everything from climate change to Supreme Court rulings to impeachment.
+- In this war on truth we are all living in, 'hoax' is a potent, malicious, ugly little word and Trump has been using it more every year. So has Fox.
+- Looking back, Mr. Trump's exploitation of the term 'fake news' to smear journalists was the single most consequential thing he did during the transition period. He built the scaffolding for his supporters to reject any and all information that wasn't Trump-approved.
+- We should always remember that Fox News will stick out like a sore thumb no matter what the other news outlets do, and that has to be recognized as an issue.
+- Trump might think that Fox needs his star power, and on the margins it's true that Trump appearances and interviews are right-wing ratings boosters. But the network was No. 1 long before he became a politician.
+- During the Trump years, many people felt that his antics were impossible to ignore.
+- Journalists have to call out and correct the lies and smears polluting the air waves.
+- Well, I think the public has been well-served by the increase in fact-checking. And I find it shocking that not all news outlets have invested in hiring fact-checkers because the line is so pervasive.
+- Trump's war on the nation's news media, his war on truth, his war on reality ultimately caused him to become the first U.S. president to be impeached two times.
+- One of the principles of White House coverage is that a wide variety of news outlets should be represented at briefings and press conferences.
+- It's not as if Trump is addicted to the best-researched, most in-depth, meticulously sourced material in the world. If he were, we'd all be better off, right?
+- Were there hour-by-hour countdowns to the end of the Bush presidency? The end of the Obama years? No, definitely not to this extent. Trump's time in office is ending in ignoble fashion.
+- Journalism is a messy business. For every prize-winning story there's plenty of gossip and garbage.
+- I don't subscribe to the argument that TV networks gave Trump too much attention and that's the main reason why he's president, nor do I subscribe to the argument that reporters ignored Trump's America.
+- You shouldn't fear your audience, you should serve your audience, serve them the truth.
+- For Fox, it's extremely discomfiting not to be No. 1 all day, every day.
+- Frankly, many Fox shows are running away from the news rather than reporting on it.
+- Trump has torn off America's Band-Aid. The stories we are covering are about fundamental American values. We are having debates about democracy versus autocracy, the rule of law, equality and diversity.
+- For a broad, star-powered picture like 'The Interview,' a big-tent release in 2,000 to 3,000 theaters is the top choice for a movie studio like Sony Pictures. It's the difference between a $1 million and a $10 million box office total.
+- There is a war on truth raging every day, and journalists have been forced to fight some of those.
+- Biden can talk about politics not needing to be a raging fire. But it is.
+- The Fox-Trump feedback loop is unlike anything we've seen in media before.
+- I suppose my attitude is what's most important is that we surround the president's misleading information with accurate information and help people know what is true 'cause I think the biggest trend of the Trump years is that people are increasingly confused about what is real and what is made-up.
+- Trump's words do have power. Power to inspire and influence. Also power to intimidate and incite fear.
+- The broadcast networks - they are literally broad. They try to appeal to everyone. They try to reach all of America, all the time. Increasingly, they fail to do that, but they try.
+- Biden's first day, and Psaki's first day, sent a message that functional government is back.
+- Sean Hannity is a hypocrite!He's blasting anonymous sources and saying journalism is dead when he uses an anonymous source in the form of President Trump.
+- Many Republicans knew that Trump's anti-media attacks were damaging, and they cringed when his White House was consumed by his own narcissism. They knew that the country deserved better.
+- Everyone at Fox could see that the way to get attention, to get promoted, to get ahead was to hitch a ride with Trump and never look back.
+- Well I think I'm of the view that Fox has a monopoly position... I think Fox has tremendous power from that point of view, but there's also the sense of fearing their audience.
+- One way to solve a mystery is by asking the right questions until answers start to emerge.
+- My view is, let's not shut down anyone's right to speak, let's meet their comments with more speech.
+- Chris Wallace is probably the most of an exception because his program, 'Fox News Sunday,' also airs on Fox broadcast stations. So he doesn't feel as many of the same ratings pressures to please the right wing audience versus all the rest of the programs.
+- The Trump White House has employed several different strategies for sidestepping uncomfortable questions. There has been a rightward tilt at press conferences and briefings. At Q&A sessions with foreign heads of state, Trump has bypassed the country's biggest newsrooms and called on reporters from conservative outlets instead.
+- I always thought I would be the person who sat in the chair for 12 hours. Then I realized there are only three people who do that job.
+- Yeah, President-elect Trump is many things. To his voters, he's a beloved figure. But one of the things he is, is a conspiracy theorist.

@@ -1,0 +1,44 @@
++++
+author = "Imelda Staunton"
+title = "Imelda Staunton Quotes"
+quotes_len = "38"
+description = "the best 38 Imelda Staunton Quotes"
++++
+- You could say I'm a character actress. Or maybe a character actress who does peculiar, interesting lead roles. Does that make sense?
+- I was brought up a Catholic, so I take no pleasure in guilt.
+- The one good thing is that I get a lot more good scripts coming through my letterbox. 'Vera Drake' raised my profile in one way, and then 'Harry Potter' in another.
+- Looking back, there is nothing wrong with that peace, love and equality that the hippies espoused. In many ways, we have regressed because they were into organic food, back to nature, make love not war, be good to all men, share and share alike - which is what many are talking about now.
+- I never wanted for anything. We went to Ireland for holidays every year. I was 14 when we first went to Italy. My mum was determined I was going to go to a good school. My mum was an absolute grafter. A real grafter. I got my work ethic from her.
+- I start the day with either Radio 3 or Radio 4. I don't watch any daytime television at all.
+- We're in a world that celebrates things: success, beauty, money. And I reckon that's really about 4 per cent of the world. The rest of us are just getting on with it.
+- Her death has had a huge effect on me. It felt like a big hole appeared on my left side - apparently your left side is your mother - which I thought could never be filled. Now I think what you have to do is fill it with yourself because your mother is part of you. I'm easing into that space, using it and being comforted by it.
+- There are lots of wonderful actors doing animated films these days, but I prefer it when you can't recognise them - it means they've really become the character.
+- Chaotic people often have chaotic lives, and I think they create that. But if you try and have an inner peace and a positive attitude, I think you attract that.
+- I don't think it's that I don't like Sondheim. It's that I find it really... I don't know how to describe it. Doing it is the most extraordinary thing. Because it's like Shakespeare times 100 with singing. It's that satisfying - and that demanding.
+- I adore Bette Davis and Vivien Leigh, but more because they were good actresses. That's what makes me interested in them, that they didn't present themselves as idols; they were just doing their jobs.
+- I've fallen over on stage a couple of times, but I've only ever bruised my ego.
+- We're all unique as actors. To yourself, you are unique. You have to think, 'I'm me. I'm not going to bunch myself with other people.' Agents and producers have to get you into a box to accommodate their limited imaginations.
+- If you're at an award ceremony, you're against your mates.
+- I am a character actress. Well, let's say, I am a leading character actress who does interesting, odd parts.
+- I think the first 10 years of my daughter's life were my mother's happiest, because she could finally have carefree time with a kid.
+- You read about poor people having Botox go wrong and you think: 'Well, what the bloody hell were you doing?' Why would you inject yourself with poison? And why are we spending so much time looking at ourselves? I just don't get it.
+- Having a child makes you strong and gives you chutzpah. It relaxed my attitude to the job; my center of focus shifted, which I think is very helpful, because even if you're not a very indulgent actor you spend a lot of time thinking about yourself. I don't think that is particularly healthy.
+- Drama school introduced me to a world I had no idea about. I wasn't brought up in a literary household at all.
+- A lot of me is very up, and you have to have light and shade. They are both important and you have to be able to balance them. You have to admit that sadness is part of you and that it enriches you. I use it in my work.
+- Look at Judi Dench, who's brilliant in whatever bloody job she does.
+- I've always liked new writing.
+- At the time of Woodstock, I was just 13, but I used to see these exotic hippy creatures and I did look on with envy. How could you not? In an ideal world, I would have loved to have been a hippy - but I might have been a bit strait-laced. It was my fantasy.
+- You can only do your best. That's all you can do. And if it isn't good enough, it isn't good enough.
+- You could say I'm a character actress. Or maybe a character actress who does peculiar, interesting lead roles.
+- Children should always be brave and do something about bullying. It's not okay to stand by and let it happen. Bullies thrive off secrecy. Children should tell someone if they see someone being bullied.
+- Agents and producers have to get you into a box to accommodate their limited imaginations.
+- I've always tried to fight against, 'Oh, who's that small funny actress? Let's get her.'
+- Fortunately my career has never been about how I look, it's about how I can be.
+- A lot of film stars are just playing themselves in different frocks.
+- Both my parents had heart problems: my mother had type 2 diabetes, and my father had a stroke.
+- We all must support the arts, as it is our culture. It makes us better people. It makes us happy; it gives us empathy and shows us how to live. It is so important.
+- For everyday clothes, I love North Face and Rohan, and for smarter options, I like Whistles and Agnes b on Marylebone High Street.
+- To me, it's really not about how I look - it's about who I can be. It is my job to bring the character to life and my duty to fit into the jigsaw in that story.
+- You can be very famous without being a great actress, and that's not good for me.
+- I worked in rep for six years, then I came to London and to the National Theatre. What's better than that?
+- I don't feel the need for religion. But I went on a yoga retreat last year and I do believe slightly in the karma thing and just being good and true unto yourself. And I slightly believe that you can attract good and bad to you.

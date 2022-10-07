@@ -1,0 +1,35 @@
++++
+author = "Luke Hemsworth"
+title = "Luke Hemsworth Quotes"
+quotes_len = "29"
+description = "the best 29 Luke Hemsworth Quotes"
++++
+- My dad has spent 20 years of his life working in child protection and writing policy for organisations across Australia in order to recognise and safeguard against abuse.
+- I like making people laugh, so drama was never a big leap for me.
+- Anything out of a packet is off-limits. Copyright that: the No Packet Diet. I just prefer fresh fruit, fresh vegetables, and fresh protein.
+- I don't think most people decide to become an actor because they want to be followed around all the time... I see it when I'm with my brothers, and I don't get it. I don't understand why someone wants to take a photo of us getting out of a car or on the beach. I think that's really weird.
+- I really miss Australia. I miss eating fish n' chips, oh my God, and Australian pies and the wonderful corner shops.
+- I don't care where I sit in terms of hierarchy, box office takings, or any of that stuff.
+- When you meet someone, there's an initial reaction and then as you get to know them, things change, things deepen, or they go the other way.
+- Mother's Day routine is usually a lot of flour, eggs, and a big mess in the kitchen. That's what it involves in our house. Making sure that mom has her pancakes and coffee.
+- You can't ever force anything, and you have to deal with what comes to you as it comes.
+- My head is massive. My head is, like, off the charts.
+- I've been surfing since I was a kid.
+- There's a level of ease that comes with working in Australia that can be missed working in other places.
+- Actually, I've been a mechanic. My first job was in a gas station changing tires and pumping gas.
+- In a lot of ways, Chris and Liam are definitely worlds ahead of me in terms of the entertainment industry and the experience it brings, which I'm more than happy to concede to. It's certainly not a bad thing, but there are also things that make it a bit harder for me because of the preconceptions that come along with me being a Hemsworth.
+- I could probably live in London if you had better surf.
+- I've seen sharks in the ocean, it hasn't made me get out of the ocean; that's for sure.
+- Usually, in a studio, when it's supposed to look cold, it's boiling hot. And then, the hot scenes, you're freezing.
+- I loved 'Game Of Thrones.'
+- I don't think I ever saw acting as an actual career until late.
+- You have to learn to be fluid and go where you're needed, when you're needed. You've gotta be flexible. I think that's what acting is.
+- As a parent, you go through a whole lot of really tough things, and you kind of want other parents to experience those tough things as payback - especially when it's your brother.
+- 'We've always been competitive. I yell at Liam all the time, 'Move faster! Work harder!' I'm like the trainer because I design all the workouts and implement and enforce them.
+- If you think about it, there are a lot of parallels between a sportsman's journey and the acting journey. You face so much adversity and disappointment, and you can work incredibly hard for a long time with very little results, and then, hopefully, something happens.
+- Me and Jeffrey Wright were hanging out a lot. We go surfing a fair bit when he's on the West Coast. He's a legend.
+- Mom would say, 'Get out of the house,' and we would just go. We had all sorts of large swings and flying foxes and various death traps throughout the forest that we'd try and do our best to hurt ourselves on. It was a great childhood in terms of being creative, I think.
+- I'm a big sucker for chocolate, and I love beer, but I can't drink it because it goes straight to my face like the Michelin Man.
+- It makes me a better person, surfing, I think. It's a great outlet.
+- It's not like you reach a point with your acting where you're like, 'I'm great! That's it!' You're constantly having to go,'That sucked. I wanna do that better.'
+- I love Shogun world. It's so beautiful. The performances are beautiful. It's like classic Japanese cinema, with a little 'Westworld' twist.

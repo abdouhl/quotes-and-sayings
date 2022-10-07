@@ -1,0 +1,61 @@
++++
+author = "Carli Lloyd"
+title = "Carli Lloyd Quotes"
+quotes_len = "55"
+description = "the best 55 Carli Lloyd Quotes"
++++
+- If I've learned anything in my career, it's that nothing worthwhile in life comes easy. That's just the way it is.
+- If I am training on a holiday, most likely nobody else is - and that gives me the edge. If I'm supposed to run for 20 minutes and I get back and it's only been 19:34, I'm going to jog in a circle for 26 more seconds. I'm never going to cut it short.
+- I think recovery is around the clock. Are you sleeping enough? Are you hydrating enough? Are you stretching? Are you eating well? Pretty much everything that I do is a reflection of how I'm going to feel on the field. I take great pride in getting in an ice bath after training and just taking care of myself.
+- As a player, you just want to focus on controlling the controllables.
+- I'm loyal. I'm real. I'm not afraid to say what I'm thinking.
+- No longer are the days where I just kind of fly under the radar. Everybody's recognizing me. Everybody wants pictures. They feel inspired. It's very cool.
+- I don't want to be known for someone that's good-looking. I want to be known as someone who is one of the best midfielders. That's my thing.
+- I don't think anyone would say that the women on the United States national team are not great role models and ambassadors. Everywhere we go, we connect with fans, sign autographs, and represent our sport and federation with class.
+- I have scored some big-time goals. I've done well in Algarve Cups. I've done well in World Cup and Olympic qualifiers, Olympics. In big games when we're playing top-five teams. But yet, you never see my face or my name out there. And it has frustrated me my entire career.
+- To be among the world's greatest athletes and compete for Team U.S.A. while knowing that the entire world is watching is something that athletes dream about. To be able to experience that was truly special.
+- I sleep better on the road than I do at home. I'm used to sleeping in a million different hotels. I'm not home very often, so when I get home, I have things I want to do.
+- For so long, I've been a little misunderstood as a person. You know, I do have this strut about me. I don't know if it's the Jersey girl in me. I like to think of myself as an egg, you know? Hard on the outside but soft on the inside.
+- Any professional athlete will tell you that the mind is everything. For me, there is no shame in saying that I visualize and I meditate, because it really works.
+- Comic-Con is really cool. It's different. I like to people-watch. I like to see the costumes.
+- This is my journey. If I fall, I have to pick myself up. If I'm not getting the playing time I want, it's up to me to figure out why.
+- I don't do fake. That's the first thing you should know about me. I'm not one to put on airs or change my demeanor depending on where I am or who I am talking to.
+- In men's sports, people criticize coaches and managers all the time, call out teammates, too, and it's not that huge of a deal. Often, the guy speaking out is even lauded for having the courage to tell the truth. When it happens in women's sports, though, it always seems to be viewed as a nasty, claws-out cat fight.
+- Fitness, defending, the mental stuff - those were all weaknesses of mine. And I turned those into strengths.
+- I usually eat a salad for lunch and before a game since it keeps me feeling healthy and energized on the field. I love piling on the toppings: the more colorful the better! I usually do nuts, fruit and avocado, but I also mix up my creations with different toppings and lettuces.
+- Everything in my life - family, friends, even my fiance - are all second to soccer. And I've won every tournament where I haven't had anyone there. It just seems to work for me. I don't think I'm going to change that.
+- No one is going to remember a second-place team.
+- If you're quiet, and you don't speak out, you're never going to get anything accomplished.
+- I know that I'm a natural attacking player. I love to attack. I love to play freely; I love to combine and play through balls. That's the nature of my game.
+- I don't just train to be a participant. I train to come up big in big moments. That's when I know I've got to roll the sleeves up.
+- I don't run on the treadmill, because there's no treadmill moving for you on the soccer field.
+- I'm not getting recognized because I posed in a swimsuit edition of some magazine, but because of what I do on the field, and that's important to me.
+- I don't put on makeup when I'm getting ready for a game, because why would I? I am gearing up for battle. How is mascara or eyeliner going to help me win?
+- I've kept to myself, I've put my head down. I've gone to work. And I have felt undervalued.
+- My emergence has been slow and steady, I would say. I think I've improved every single year. I keep getting better; I keep getting fitter, sharper - and I'm not stopping.
+- I'm not having to go outside and switch the role model hat on. It's me, and it's important for me to leave that legacy to help inspire younger players because I didn't have a role model growing up.
+- If you have a dream, it's definitely achievable through hard work, through dedication, sacrifice, everything.
+- I went from a player who was never fit to a person who actually worked hard to get myself in shape.
+- I love shopping! It's my release sometimes.
+- I want to be strong. I want to be able to hit people. I want people to be able to bounce off me. When I go out there and play, I play to intimidate people. If someone gets hit down by me, they're going to think twice about coming near me again.
+- It's always hard to deal with injuries mentally, but I like to think about it as a new beginning. I can't change what happened, so the focus needs to go toward healing and coming back stronger than before.
+- Playing in Wembley Stadium in front of 83-some-thousand fans to win a gold medal was unreal.
+- I think - you know, I want to intimidate people when I'm on the field. I want people to be scared of me. That's just kind of the nature of who I am as a person and player. But I also know that you have to be emotional. You have to be in touch with your feelings. I think that's important.
+- In those one-off games, everyone can do those, but you put together a six, seven-game tournament, the strong survive. For me to still feel good from beginning to end, that's a testament to how I train and what I do.
+- At the end of the day, you can be physically strong, you can have all the tools out there, but if your mental state isn't good enough, you can't bring yourself to bigger and better things.
+- I think, over the years, I've earned the respect of my teammates as someone who first got on the scene and wasn't internationally ready and has just continued to put in the work.
+- I really hate drama. It's draining; it's mentally draining. It's a waste of time.
+- I had one girl tell me last night that I'm the greatest thing ever, that she wants to aspire to be me. Just stuff like, 'You're my idol. I love you.' It's awesome. It's what it's all about.
+- I think that what we do out on the field is oftentimes a little bit better than what men do. I don't think that we flop around as much. I think we're tough. I mean, I've got battle wounds on my legs from the turf and sliding. And we're gritty. And we're feisty. And I think that I would never back down from a guy.
+- You don't want to get too wrapped up in that final destination. You want to enjoy the journey, enjoy the process, and just take it one step at a time.
+- Nobody has done more for me than my parents, who devoted untold amounts of time and money that allowed me to play the game I love. It's no exaggeration to say I never would have gotten anywhere near a World Cup, an Olympics, or even the U.S. national team without them. I have never forgotten that, and I never will.
+- I didn't like playing with dolls; I didn't like getting dressed up. A lot of my friends and people I went to school with were into fashion and their clothes, so I lacked a bit of self-belief and confidence... I wasn't really comfortable.
+- Basically my whole life revolves around soccer. I don't take many vacations. Everything just gets put on the back burner because of my training. I miss out on a lot of weddings and family functions. But at the end of the day, I'm sitting here as a world champion, and it feels pretty good.
+- Like many kids, I was thrown into recreational soccer in my town, and from there, I grew to love it. Everywhere I went, I carried a soccer ball with me.
+- Every time I step onto the field, whether people like it or not, I'm not trying to play dirty - I'm just playing tough.
+- I've taken great pride in not being fragile.
+- Winning the World Cup was a dream come true after so many years of wanting something so bad. After that final whistle, I dropped to the ground on my knees and got emotional.
+- It's those moments when everything is on the line, and someone needs to show up in a big moment. I prepare my mind and I prepare my body to be ready for those moments. And I think it's just what I do. I live for those moments.
+- My biggest benching was before the 2012 Olympics. It kind of came out of nowhere. I just kind of had one bad half, 45 minutes, and it pretty much cost me my starting spot.
+- Getting recognized and doing shoots and signing on partnerships and signing on deals, that's all great, and I'm so appreciative of that, but it's more the reward that's the most satisfying. I know the importance of working hard, and I appreciate pretty much everything that has come my way; I don't take any of it for granted.
+- When I first joined the team, I was playing with the likes of Mia Hamm, Shannon MacMillan, Tiffeny Milbrett - all those big-time players. It was very intimidating. I had some of these players' posters on my wall growing up, and now I was able to play with them.

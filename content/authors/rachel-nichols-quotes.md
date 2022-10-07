@@ -1,0 +1,100 @@
++++
+author = "Rachel Nichols"
+title = "Rachel Nichols Quotes"
+quotes_len = "94"
+description = "the best 94 Rachel Nichols Quotes"
++++
+- I don't know how to cook, but I do know how to bake.
+- I started dealing with weapons on the first show I ever did, 'The Inside,' but I didn't really do any physical stuff until 'Alias.'
+- I am a night owl. I always have been... and I'd like to think I always will be, although surely having children will put a stop to my nightly affairs with myself.
+- Why do I always choose the shopping cart with the squeaky wheel? Is it my bad luck, or are all the carts dysfunctional?
+- I am much more productive late at night because I have no one to look to for entertainment aside from myself.
+- I'm obsessed with making lists.
+- I definitely try to eat a healthy diet, but I am the first person to say I love unhealthy food. I would never tell you I don't. I love fried chicken or mac and cheese. Do I order them all the time when I'm out at restaurants? No, though I do have one splurge meal a week.
+- I don't care what size you are or how old you are - once you see the results brought to you by regular exercise, you'll wonder how you survived without it.
+- What woman doesn't want to go out there and kick some butt? I did it with a sword in 'Conan,' I did it with a crossbow in 'G.I. Joe,' and I've got my multi-tool and my super-suit in 'Continuum.' It's really a release, and it's quite cool.
+- Sci-fi fans are awesome. They're very smart, they like to be involved, they like to ask questions. I've been asked questions I don't even know the answer to. I've never had any aggressive interactions. I've had lovely interactions.
+- Kudos to you for generating enough sweat that it actually drips off of your body - and all over the machine you are using at the time. If you sweat a lot, that's fine, but wipe down the damn machine when you're done... or I will confront you, and it will not be pretty.
+- How come foreign accents are so sexy? If I say, 'I'm going to the store,' it sounds boring, benign and rudimentary. But if it's said with an accent, it sounds fundamentally cool.
+- The thing I can't figure out is why I have an undeniable compulsion to clean public spaces, airplane bathrooms, restaurant flatware, hotel gyms and Chapstick containers... yet I have no desire to make my own bed. Ever. Seriously, who made me, and where am I from?
+- I will openly admit that I've never really followed hockey. Given my New England upbringing, I have always adhered to the Celtics, Patriots, Red Sox, Bruins mantra of professional sports fandom, but hockey was definitely the lowest sport on the totem pole - even when the Bruins won the Stanley Cup.
+- I love stretching in the morning. It's the first thing I do when I wake up because getting a good back-crack is so extremely satiating. I feel taller when I finally stand.
+- There's nothing I hate more than gritty, linty, mysterious pocket schmutz in the cap of my lip moisturizer - or, even worse, on the applicator itself. I shudder at the thought.
+- I have a lot of Twitter rules. I never swear on Twitter, and if anybody's inappropriate, I block them. I have young followers.
+- I'd love to do a movie where I actually get to be kind of quirky and odd and dorky and all that stuff. My parents would like to see some movies where I'm not in peril. They'd appreciate it.
+- Hockey seems completely lawless and, therefore, inexplicably sexy.
+- I can never find a movie I want to watch, even though I've got hundreds to choose from.
+- It doesn't matter if you're sad or hung-over or lazy or tired - a workout will get your endorphins pumping, and you'll feel like a new person almost instantly.
+- I never pile a plate to the point where it overflows. I'd rather have a small plate with small portions and then get up for more if I'm still hungry.
+- I always knew I'd go back to school. Modeling was a means to an end, making money for graduate school.
+- I'd like to do a little bit more adventurous TV. Maybe Showtime or HBO or just a little bit edgier. But I would go back to NBC, CBS, whatever.
+- There's something so soothing about the hum of Grand Central Station.
+- It's a confidence booster for me to be known as a female who can take on any action, which is nice, to have that reputation, because then people know that when they hire me, I can actually do the physical stuff.
+- I love the action that I'm able to do. I grew up in Maine, outdoors and playing with the boys and shooting skeet. I have my girly side, too. But, I do like playing the strong female roles, especially now with something as simple as Twitter, where you've got young women following you.
+- Yes, I was the child who would sneak into her closet and read 'Nancy Drew' for hours after the designated 'lights out' time of night.
+- The first thing I learned about weapons is respect, and that carries into movies as well. If you're on set and you're dealing with weapons, live or not, you respect the weapon; you know how to handle it appropriately.
+- My first modeling job in Paris, the photographer said, 'Tue es belle,' which means, 'you are pretty,' and I thought he said, 'Tu es poubelle,' which means, 'you are the trash can.' I burst into tears. He was not happy about that.
+- I love to vacuum. There's just something so satisfying about hearing detritus sucked up into a vacuum. Sand makes such a great sound when being vacuumed off a hardwood floor.
+- Who cares if your outfit is black and you're sporting a brown belt? Wear it, rock it, love it - and others will, too. Nothing beats a belt.
+- My type is really young, short, athletic, and smart. I know, you want to be with someone who's going to be your friend - yeah, yeah, yeah. I want the Adonis line, the two down the hips to the waist. And a guy has to be able to accept criticism about his clothing. I can be very particular about what I like and don't like.
+- Apparently, despite my awareness of its pejorative connotation, procrastinating is something I fall victim to quite frequently. I'm not proud of it; I'm just being honest.
+- Nothing says, 'I pay attention to detail!' like footwear flattery from a boy.
+- I've always driven big SUVs. I'm from Maine, and there's a point to driving a big SUV in Maine. I don't really need a 4WD in L.A., but on the 405, people are crazy, and you need a tank. I like the visibility factor.
+- I'm not one of those people that wears something once and tosses it aside. I wear my shoes until they beg to be thrown away. Parting is such sweet sorrow - and then it's onto the next pair.
+- The list of problems that we all experience may be endless, but I honestly cannot abide by the rule that, 'He who yells louder is heard.'
+- When you get to the point where you're established enough that people link you with something, especially being an action hero babe, it's awesome. Because then you can fight the battles and have the crossbows and wrestle with swords and ride the horses because you're already believable; people see you in that genre.
+- I love having wine with my meals. And if I splurge, I'm going to splurge big, because if I deny my cravings, it just ends up backfiring on me, you know?
+- I'd love to drive a Bugatti - something totally ridiculous but super fast.
+- I love food. I mean, I really love food. I take pictures of my finest, funniest and most fascinating dishes, post them on Twitter, and send them to friends. I treat menus like classic literature, refusing to skip even one word. I read the description of every item, regardless of whether or not I'm interested in eating it.
+- Short boots are cool, in my humble opinion. They say, 'Hey! Winter is over, but summer hasn't yet arrived - so enjoy this halfway point!'
+- They say that women dress for other women, but I don't think that's entirely true. If we want to look flossy out-and-about on a Friday night, we're dressing for the boys - and it's nice when they notice.
+- My house is filled with books, most of which I have read, some of which I intend to eventually get to. I'm always reading at least one work of fiction and one work of non-fiction simultaneously. Whatever mood I'm in, there's always a book nearby to suit it.
+- History is fickle. We know that. The good and bad come around and go around, and go around again. There are recessions and depressions and economic boom and bust.
+- I love the smell of freshly cut grass. It takes me back to summers in Maine.
+- One of the great things about the sci-fi genre is that you can kind of get away with a bit more when talking politics, making social references or dealing with very hot-button topics because it is sci-fi.
+- I have an insatiable palate. I'll try anything once, with an open mind. However, there is a special place in my heart for Kraft Macaroni & Cheese. Don't get me wrong, I've sampled specialty Mac & Cheese all over the world, but nothing competes with the stuff I grew up on.
+- I love dessert. All kinds. But there's something about ice cream that makes me happy. I am drawn to its simplicity. I am perplexed by the endless supply of constantly growing flavor options. And I am always in the mood for sprinkles and a sugar cone.
+- 'Alias' was very action-packed. 'G.I. Joe' and 'Conan' were very action-packed. It's been established that I can do action, which is great, but now I may just want to make out with a really hot guy.
+- Don't squander beautiful moments by always trying to snap the perfect picture or record the event on film. Sometimes it's better to watch things as they happen with your own eyes, knowing that the memory of the experience will always be with you.
+- I'm a girl that loves cars. I've always loved them. I love to drive with the windows down, sunroof open, and music pumping.
+- I normally work out six days a week. I'll do Pilates on Tuesdays, Thursdays, and Saturdays, and I'll do cardio on Mondays, Wednesdays, and Fridays.
+- As far as I'm concerned, attraction, in its most rudimentary form, comes from the way a person naturally smells. I'd say that within the first five seconds of 'inhaling' someone, I know if there's an attraction or not. This may sound animalistic - and it is.
+- I'd like to do a comedy, actually. I think it would be great to do a sitcom or something like that. I'm pretty much open to anything.
+- I spend an extraordinary amount of time in my car, so I can justify the expense. That's the only extravagance in my life - it's my car.
+- Look, maybe I'm just not good at multi-tasking and am, therefore, jealous of those of you who can get in a workout while yammering on your cell phone, but for the love of all that is good and pure, shut your yap!
+- This is a polarizing statement, as I have come to discover, but I am a Pats, Red Sox, Celtics and Bruins fan from birth until death.
+- I adore anything Michael Alexis writes.
+- I have smelled some very famous and undoubtedly sexy boys. And sometimes, as cute as they are, I'd rather have them as a friend - just because of the way they smell!
+- I know my football. And I adore football players. The crashing noise of a tackle, the huddle grunting, and the roar of the crowd are music to my ears.
+- Once your body is in workout-mode, a few days off won't hurt. Muscle memory is magical. If you work out consistently, you can afford to miss a few sessions and your body will gladly pick up where you left off.
+- I remember thinking that people were crazy for reading the same book more than once, but I now have a new-found appreciation for the re-discovery of literature. The lessons we learned from books in the school curriculum are reinvented and updated when we read as adults.
+- People ask me about fighting in real life and, honestly, it wouldn't look as graceful as it does in film and TV.
+- I used to hate working out - until I learned how to do it properly.
+- Lets talk about the holidays, more specifically, consumption during the holidays. If it's true that 'We are what we eat,' most of us would be unrecognizable during the period that ranges from the night before Thanksgiving through that day in early January when everyone decides to return to the gym.
+- I love the physicality side of roles, I really do, And when I get to do my own stunts, it's that much cooler. I'll do anything the production safety people will let me.
+- I have been known to go to the grocery store and just buy pepperoni. There's just something fantastic about salty, fatty meats.
+- I love to clean my ears. I've heard that you're not supposed to do it every day, but I throw caution to the wind for some quality time with a strong Q-Tip.
+- Why does my brain insist on counting the steps every time I walk up a flight of stairs? I just can't help myself. There's something about my mind that always wants to keep counting.
+- How come I love having an episode of deja vu? It's akin to an out-of-body experience, I would think. It sits with me, happily, begging me to delve into my memory to find its match point.
+- I simply do not think that yelling, swearing, threatening or belittling will get you to the place you want to be faster than kindness, understanding, patience and a little willingness to compromise.
+- I'd like to think, if I was ever in a fight, I'd win, although I'd probably run in the opposite direction.
+- Don't get me wrong, I love watching episodes of my favorite shows on Hulu and reading the daily trash on PageSix, but I also embrace the opportunity to settle down with a good book and let my mind travel to another place and time.
+- I do love my wine. I'd opt to drink my calories rather than eat them every time, so I cut out the breads, potatoes, pastas, cheeses and desserts in an effort to get my healthy angel and unhealthy demon to compromise.
+- So far, Vancouver is my favorite relocation city. It feels like home. Parts of it remind me of the east coast. It's very clean. The food is great. And the people are lovely. Not that I didn't love working in other glamorous locations like Downey, Detroit, Cleveland or Bulgaria... but, damn, it is fun to be Canadian.
+- I think that being read to every night is the reason why I was plowing through volume after volume of 'Nancy Drew' books all by myself by the time I reached the first grade. I loved stories. I loved the escape. I had a vivid imagination.
+- There's something about the darkness that I find unavoidably intoxicating. The knowledge that other people are sleeping and, therefore, unavailable to ruin my solitude, makes me more peaceful than I am during the day.
+- I'm from Maine. I eat apple pie for breakfast.
+- I strongly believe that good books are the best home accessory.
+- I happen to be quite fond of staying out late and sleeping the day away.
+- I thought that I'd have a briefcase-and-power-suit career.
+- Um... Bulgaria is an interesting country. The people are lovely. There are potholes the size of small planets.
+- I've seen 'Silence of the Lambs,' like, fifty or sixty times. That's my favorite movie of all time.
+- I've always enjoyed doing dishes. Maybe it was the fashionable yellow gloves that I loved so much. It's weird, I know, but I find cleaning cathartic.
+- There are those people that eat to live and those that live to eat. I am of the latter, as many of you already know. To me, eating is an adventure.
+- Sometimes, when full and in fear that I will continue to eat unwanted food just because it's staring at me, I will place my napkin over the remaining portion. This is what I frequently refer to as a 'food funeral.'
+- Fight scenes are like learning a dance. You learn it move by move, and then you put it all together and it looks awesome when you edit it together. It's great!
+- I laugh at what I used to think was cool when I was growing up. In all seriousness, I thought having braces was cool.
+- Everything you've heard about Canadians apologizing profusely for things they shouldn't be sorry about is absolutely true. It is both sweet, endearing and worrisome at the same time. Having someone apologize for no reason actually makes me feel as though I should apologize for their need to apologize.
+- I love to personalize things. I love to make things my own. I like to name everything - from cars to iPhones to the socks I just lost.
+- I love Bridget Fonda.
+- You don't want me to sing. I could do a really bad karaoke scene, if I had to, but I'd probably choose to rap.

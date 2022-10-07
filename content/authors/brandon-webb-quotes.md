@@ -1,0 +1,75 @@
++++
+author = "Brandon Webb"
+title = "Brandon Webb Quotes"
+quotes_len = "69"
+description = "the best 69 Brandon Webb Quotes"
++++
+- Great leaders know that adversity produces the greatest opportunities in life.
+- It's every teacher's job to be rigorous about constantly being open to new ideas and innovation.
+- With rare exceptions, Hollywood typically casts Spec Ops guys as macho, swaggering strongmen. As usual, Hollywood's got it wrong.
+- Training programs shouldn't be designed to deliver competence; they must be dedicated to producing excellence. Serious organizations don't aspire to be comfortably above average.
+- I'm a big fan of economist Milton Freidman.
+- The consequences of leaking sensitive information is that Americans and coalition forces die, and we lose trust with foreign spies, and our national security is put at risk.
+- It takes guts to realize you screwed up and to then come clean without any excuses.
+- Whether you have incredible products like at Apple or a great service business, it all comes down to fundamental trust and relationship-building with your customers.
+- I am proud to be a SEAL and serve in the military.
+- The sniper is like a highly skilled surgeon, practicing his craft on the battlefield.
+- The Special Ops community has always been about mental toughness.
+- I'm real careful doing public appearances because look at what happened to my friend Chris Kyle.
+- If I had to identify the one skill set shared by most by the men who become part of the SEAL teams... it would be sheer brainpower.
+- Being a Navy SEAL and sniper taught me all about risk management. Take away all the risk variables under your control and reduce it to an acceptable level. The same fundamentals apply in business.
+- Special-purpose dogs have been a critical component for police and military work in the current war on terror. These dogs are some of the bravest animals on the planet.
+- The game of political music chairs and finger-pointing by career politicians and agency bureaucrats needs to end.
+- The Special Operations community is rooted in unconventional warfare.
+- It's important for Americans to know what the guys fighting the wars have been experiencing, not just from the perspective of a talking-head politician or a four-star general.
+- I am not a tall man.
+- We saw the integration of the female pilots in the Navy, in combat roles, and the resistance there in the beginning.
+- Mainstream news covers war and gets everything wrong. I'd rather learn what's happening from soldiers with combat experience. It's like a former NFL player giving play-by-play. We bring the expert commentary.
+- I think Afghanistan has turned into the Vietnam of my generation, only with a better homecoming.
+- I make a habit of asking myself, 'Is there purpose to this meeting or conversation? Do I want to build a relationship with this person or company? Is there purpose behind this meeting that aligns with my life and business strategy?' If the answer is 'No,' then I pass every time.
+- Transitioning out of the military after a decade or more of service can be exciting and scary. Even more so when you have a family to support and are not experienced with the challenges of transitioning from active duty to civilian life.
+- I like to measure people by their accomplishments in life and how they consistently act.
+- Unconventional warfare needs to remain the heart and soul of U.S. Special Operations Command and component commands.
+- After serving as a U.S. Navy SEAL, I started a business. In four years, it failed incredibly, but I learned a lot about business, raising equity, and choosing partners.
+- Small unit autonomy, breaking the right rules, cultural influence, and relationship building has always been the heart Special Operations. Something must be done to ensure these are not lost to the big machine of SOCOM.
+- Like a lot of business owners out there, I don't desire to face the continual flogging from government regulators who push burdensome and confusing state tax and employment laws on the business. It creates an unnecessary risk when, as an owner, I can just take it offshore.
+- Elon Musk should be at the top of the list of people to emulate when it comes to leading large organizations that are highly maneuverable and use it as a competitive advantage.
+- It ends all things: birds, trees, flowers, mountain tops, and business; it grinds stones to sand, and as terrible as it is, and it's the most beautiful thing we have in our lives - time.
+- We need a clear plan to put radical Islamic terrorism out of vogue, and it should be eliminated at its roots. American SOF are part of the puzzle, but they do not, by themselves, complete the picture.
+- General David Petraeus is an American patriot and hero.
+- The 'Patriot Act,' 'Enhancing domestic security,' and 'Protect America' all sound great - until you realize that they're catch phrases for programs that contain roving wire taps without a warrant and the collection and sale of your personal information to the U.S. government.
+- I never shot much when I was a kid, but on the spotting scope, understanding the ballistics and the calculations, I'm a ten.
+- Ever since wars have been fought, guys have been writing their stories.
+- While I tend to side with economist Milton Freidman when it comes to free-market economics, there is a place for 'Made in the U.S.A.' where national security is concerned.
+- There's a lot of SEALs who hate me and claim I've broken our code of silence.
+- The terrorists' only rules? That there are no rules, and this gives them a major advantage.
+- The rules of engagement when I was in Afghanistan were very flexible. When you're at war, you're at war.
+- Fighter pilots and special operations forces guys have the same DNA.
+- The people with whom I've worked in the Special Operations community are more concerned with an individual's contribution to the team, and their ability to do their job exceptionally well, than their race or sexual preferences.
+- Bad people will find a way to do harm, whether it's homemade explosives, illegal weapons, or flying planes into buildings. Restricting law-abiding citizens' right to bear arms is not the answer.
+- If you're going to break the rules, you have to live with the consequences.
+- I didn't grow up hunting whitetail, but I would stalk tuna and white sea bass and yellowtail.
+- If any country deserves American support, Ukraine does.
+- Veteran causes are an extremely important issue, especially the transition from military to civilian life.
+- Great performers - in sports, the arts, business, or whatever field - have undertaken massive amounts of training. And when that training is complete... they train some more, and harder than they expect to perform. Why? Training builds confidence and ensures peak performance.
+- As a Navy SEAL, and sniper, one of the things I learned was that excellence matters.
+- I was happy to be in Afghanistan, doing these real-world operations and taking the fight to the terrorists that attacked us.
+- The collapse of the Soviet Union could not have been a source of national pride for many in Russia. The one person who has capitalized on this the most has been Vladimir Putin.
+- Law in Ukraine is not black and white; it is shades of gray.
+- The September 11th, 2012, attacks on the State Department compound in Benghazi, Libya, is important and should be studied because in the big picture, it represents a failed foreign policy that spans across both Bush and Obama Presidencies.
+- Too often, it's the Washington way to hide, point fingers, and try to place blame on someone else.
+- Like it or not, Jesse Ventura is a Navy SEAL. He did the pushups and put up with the cold water, just like the rest of us.
+- Time bandits come at all hours, wanting conversations, wasting conversations, wanting meetings, wasting meetings, and all with no purpose.
+- A lesson learned, both in the SEAL teams and as an entrepreneur, is that failure is sometimes a critical component of success.
+- Three days doesn't sound like a very long time, and under normal, everyday circumstances, it's not - but under POW camp conditions, it doesn't take long to wear down a man's sanity.
+- Going through SEAL training taught me that it's OK to fall down three times, as long as you get up four. This is a good philosophy for most things in life.
+- The guys who don't make it through SEAL training are the Rambo wannabes. If you cannot work in a team format but also function autonomously, you won't last for very long.
+- Chris Kyle was a human being, a Texan, Navy SEAL, father, husband, brother, friends to many, and a hero to many; this, at a time when we need all the heroes we can get. I knew him to be a good person, regardless of all the hype floating around in the media.
+- I sleep well at night.
+- Violence of action, as we call it in the Spec Ops community, will often change the odds in your favor.
+- Benghazi is important because it demonstrates all that is wrong in Washington.
+- World records aren't broken in practice, and competitive environments and adversity are the birthplace of champions.
+- A good decision executed quickly is better than a great one never executed.
+- My big problem with Hillary and the Department of State where Benghazi is concerned is there is just no accountability.
+- It's a huge edge, sometime life-saving, to adopt a good idea early and put it into practice.
+- What is SOCOM's mission statement in two sentences? Most people I know in SOF cannot recite it. If it's not clear from the bottom up, then it's a problem.

@@ -1,0 +1,32 @@
++++
+author = "Brendan Myers"
+title = "Brendan Myers Quotes"
+quotes_len = "26"
+description = "the best 26 Brendan Myers Quotes"
++++
+- The point of a philosophical spirit is to rely primarily upon one's own thinking.
+- I've invented several games for use as teaching tools in my classroom: one of them, a game called 'Iron Age: Council of the Clans,' got so popular among my students that they encouraged me to publish it, which I did.
+- The philosophical spirit is not satisfied to simply accept what it is told, no matter how much prestige the teller seems to have. This is true even if the teller is a god.
+- My earliest interest in game design came when I was in primary school, and my parents bought a Commodore 128 computer. I taught myself to write programs in BASIC, and then I made my own games.
+- Perhaps this is one of the last remaining strands of my Catholic upbringing, but to me the word 'worship' means absolute unquestioning affirmation of the authority of the deity. I'll not have that in my life. If you are wise, neither will you.
+- Complex astronomical instruments like the Antikythera Mechanism and the Nebra Sky Disk were made by Pagans. Our Pagan intellectual heritage includes poets and scientists and literary intellectuals of every kind, especially including those who wrote some of the most important and influential books in all of Western history.
+- The birthplace of 'Western' civilization is generally agreed to be Greece, and its birth date is generally agreed to be some time during the 6th century B.C.E. Obviously, there is not one single dramatic moment that definitively started the whole thing.
+- There is nothing natural, inevitable, or necessary about the labyrinth of fear. We can liberate ourselves. There are better ways to live. Someone has to take the initiative to love and trust her fellow living creature and set us all free.
+- I earned my Ph.D. in philosophy, and one of my specializations was the logic and mathematics of game theory. I've also got a degree in drama, so I know about stories, characterizations, plot arcs, and the like. Lots of game designers can do one or the other: I've got the skills for both.
+- No one is served or benefitted by believing in false or faulty ideas.
+- People in minority religious communities, like Paganism, often feel isolated and even marginalized by others because of the lifestyle differences associated with their spiritual path.
+- What matters is being a particular kind of person. At the most basic level, it matters that you are the kind of person who resolves problems with force of thought and feeling instead of with the force of arms.
+- If loneliness is part of our essence, that is, our essential nature, that is only because of the way, in practical terms, we actually exist; that is, the way we move and work and live in the world.
+- It's clear to me that anyone, anywhere, can experience loneliness, isolation, solitude, and estrangement; and most people probably do encounter these things at some point in their lives.
+- The sacred, I shall say, is that which acts as your partner in the search for the highest and deepest things: the real, the true, the good, and the beautiful. The name I'd like to give to the kind of relationship that gives us a chance to find such things is a 'circle of meaning.'
+- At the risk of sounding like a spoilsport, I'd say that pagans have about the same experience of otherness and isolation as anyone else. We're not special in that regard. But this is because the problem of loneliness is almost universal - and that, to my mind, makes it much more serious.
+- For those who struggle with anti-pagan prejudices and stereotypes, Humanist Paganism might be a powerful educational tool. It can show that a pagan can be a sophisticated, cosmopolitan, and enlightened person, and that a pagan culture can be artistically vibrant, environmentally conscious, intellectually stimulating, and socially just.
+- Call it a case of observer bias on my part, but Humanist Paganism seems to be an emerging option for those who want to be part of the Pagan community, but who want to be a little more intellectual about their practices, and they really don't care about the 'woo' anymore.
+- Relationships do not happen in abstraction. They need a place; they need a centre, even a home.
+- I do not bow. I do not obey. I do not 'worship.'
+- The gods, if they exist, are just the people who happen to live on the other side.
+- Homer, Hesiod, Pythagoras, Plato, and Cicero, just to name a few, all lived in pagan societies. Some of the greatest political and military leaders of all time, such as Alexander the Great, Pericles of Athens, Hannibal of Carthage, and Julius Caesar of Rome, were all pagans, or else living in a pagan society.
+- My first Kickstarter project created a book called 'Clear and Present Thinking', a college-level textbook on logic and critical reasoning, which was made available to the world for free. As a professor myself, I observed that the price of textbooks was too high for some of my students.
+- We immerse ourselves in escapist mass entertainment, such as 'reality T.V.' programs. We support fanatical politicians and preachers. Our politicians, in turn, support dictators and tyrants in other countries, all in the name of 'security' and 'stability'. And we arm ourselves to the teeth, and pray to God to be saved.
+- Our world is utterly saturated with fear. We fear being attacked by religious extremists, both foreign and domestic. We fear the loss of political rights, a loss of privacy, or a loss of freedom. We fear being injured, robbed or attacked, being judged by others, or neglected, or left unloved.
+- All our relationships are person-to-person. They involve people seeing, hearing, touching, and speaking to each other; they involve sharing goods; and they involve moral values like generosity and compassion.

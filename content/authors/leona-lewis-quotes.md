@@ -1,0 +1,97 @@
++++
+author = "Leona Lewis"
+title = "Leona Lewis Quotes"
+quotes_len = "91"
+description = "the best 91 Leona Lewis Quotes"
++++
+- In my life, I've dealt with tragedy.
+- I'm quite curvy and I just try and exercise whenever I can. I don't do anything hardcore as I'm just not that dedicated.
+- I love music but, of course, I'd choose love over that.
+- I love horseback riding. I still do it.
+- A part of me feels like I was an animal in my past life that wasn't treated very nicely.
+- I could hang with horses all day.
+- I don't really read the tabloids, and you never know if what's being printed is true or not.
+- I am, and always will be, proud to be a Hackney girl.
+- When I was really little I would sit in the back of my dad's car when he'd be playing old-school music. He'd turn down the music and turn around and I'd be singing and know all of the words but I didn't even know how to talk. From then on I've always wanted to be a singer.
+- I dont hate L.A. There's a very beautiful side to it; it's scenic, and I can go horse riding.
+- I don't have many famous friends, really, except Simon Cowell.
+- Working with other artists and sharing your passions is great.
+- Unless the radio is on, I am usually listening to stuff that is very different to what I do.
+- I have my best ideas when I am alone.
+- My mum is my best friend.
+- Fear and pain and suffering is not OK for any being to feel intentionally at the hands of us.
+- I would like to be a positive force for young girls.
+- I've still kind of maintained a low profile but people still kind of recognize you and will come up to you, and that's taken a bit of getting used to.
+- I'm a positive person, and I try to look at the good side of everything.
+- I get such lovely gifts from fans... amazing pictures, handmade jewellery. I'm very lucky!
+- I don't get involved in record label politics.
+- I usually dream of melodies. When I wake up I have them in my head. I usually come up with things in the middle of the night because that's when my mind is the quietest. I always have my tape recorder, pen and pad by my bed just in case.
+- I'd love to be on 'Glee.' I'd love to play a rebel. Be a real biker chick in leather and covered in tattoos.
+- David Bowie is such a big influence to me. Everything about him as a person is intriguing to me.
+- It takes me a while to come out of myself and get to know people.
+- Oh my gosh! I can't tell you the number of times people have put autotune on my voice, and I'm like, 'Please take it off!' You don't even sound human; it makes you sound like a robot!
+- I like someone who can take the reins, who knows what they want and is strong with me.
+- I can't remember who told me but I was advised early on not to Google myself or read things about myself... I don't read a lot but get the gist of what's been said from friends and family. It's good to avoid it if you want to be normal person.
+- Overall, I'm quite good with how I spend my cashola.
+- I believe I could have had a career in the music industry without 'X Factor,' but it was an amazing platform that propelled me to where I am now.
+- I don't like going out where it's really, really crowded.
+- I'm really not that confident!
+- Sometimes I think I want to get 'hair and make up' every day, but that's just not possible.
+- There are so many songs I've recorded, only to hear other people singing them. It happens all the time.
+- Usually when I see someone famous, for some reason, I think I know them.
+- Kids need somewhere to go, so they're not bored on the street.
+- I'm very sensitive and I'm quite a soft person, and I cry a lot when things upset me.
+- I don't think I have the right to give someone advice when I don't know them.
+- My parents have always done what they've loved, and they've had many different careers.
+- I would love to sing opera.
+- I'm living my dream.
+- At the end of the day, you should take every opportunity that comes your way.
+- I get road rage. I can't drive because I cuss people out.
+- I'd love to do a film like 'Chicago.' Something musical because I've obviously come from that background.
+- I try not to diet because it never really works for me, if I tell myself I can't eat something then I tend to want to eat everything in sight.
+- I know how to look after myself.
+- Every performer wants to sing live. That's what I live for.
+- I don't mind letting people in a little bit, but I have learned from the past not to talk too much about my relationships and to keep things as private as possible.
+- I'm very strong creatively, in my music.
+- Animal testing is needless, especially in cosmetics.
+- I think it's really hard being in a boy band. There's a lot of dynamics.
+- I definitely keep myself secret.
+- I want all of my songs to do well whether I've written them or not.
+- For me, love is happiness and inspiration.
+- The most important thing to me is to give something back to my parents, because they've done so much for me throughout my life.
+- I think when people see that you are shy, or even just calm, collected and reserved, they think you can be pushed around, made to do everything they want - but that's definitely not true of me. The people closest to me know that's not the case. They know I'm not a pushover.
+- I suffer from arachnophobia. I don't mind the tiny spiders so much, it's the ones with their legs covered in thick hair.
+- I'm glad I was never in a band.
+- Obviously, a long-distance relationship is hard. But, like anything worth having, you make it work.
+- My private life is the most precious thing to me.
+- People don't really know me at all.
+- I feel like I've lived quite a sheltered life, like my mom and dad were quite protective of me.
+- All my friends I've known since I was really little.
+- I think it's always important to be vigilant of what you're doing and aware of your surroundings.
+- I'm totally against animal cruelty. I don't have clothes, shoes or bags made from any animal products.
+- Love is a very powerful emotion and when a break-up is unexpected, it's very hard to get over.
+- If I can inspire people by showing that following a dream by working hard and being determined is possible, it's amazing.
+- I've always been conscious of my weight.
+- I never dress to shock.
+- I do love a bit of fashion. I grew up around a lot of it as my mum and dad had clothing stores so my mum was always designing a lot, and I definitely had that as an influence.
+- People will always show their true selves in the end.
+- I'm not annoying in relationships! I'm great!
+- I love nature and enjoy learning new skills.
+- I was the only one at stage school who wasn't white.
+- I really love getting hot stone massages. They really help me relax and it's so soothing for your muscles.
+- I trust every single person around me, and if I feel even a whiff of uncertainty I won't have that person around me.
+- I hate having my hair cut so I try not to.
+- My dad is such a good man. You know how when you are a child you think your dad is invincible? Well, I still think that - he is so wise and everything I do I ask my dad's advice about first.
+- I'm not a loud, extravagant person; I'm never going to be that and, to be honest, I don't want to be like that.
+- I am definitely an individual.
+- I call myself a vegetarian with vegan tendencies.
+- I am a whole lot of trouble.
+- I love Thandie Newton. I love her fashion sense as she is just really classic.
+- It takes bravery to end a relationship.
+- I'd date someone younger or older; age doesn't matter to me. Or looks, really - it's all about maturity.
+- I'll never go against my morals.
+- People write music, and the music is out there for people to interpret it how they want to.
+- Music TV in the U.K. is disappearing. 'Top Of The Pops,' 'CD:UK' and shows like that have gone, and it's bringing down the music industry. We should do as much as we can to keep our music TV and producers need to be more willing to accommodate live music.
+- A lot of people can have a lot of different influences, everyone can be compared in some way to someone whether they are from 60 years ago or more recent.
+- The part of London where I grew up has the highest crime rates in the country.
+- I love a beautiful gown on stage, and luckily I've been fortunate to wear some amazing dresses.

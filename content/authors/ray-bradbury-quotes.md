@@ -1,0 +1,138 @@
++++
+author = "Ray Bradbury"
+title = "Ray Bradbury Quotes"
+quotes_len = "132"
+description = "the best 132 Ray Bradbury Quotes"
++++
+- If you're living in your time, you cannot help but to write about the things that are important.
+- Scientists have to have a metaphor. All scientists start with imagination.
+- It's not going to do any good to land on Mars if we're stupid.
+- I think we're doing a dreadful job of educating.
+- When I graduated from high school, it was during the Depression and we had no money.
+- All my stories are like the Greek and Roman myths, and the Egyptian myths, and the Old and New Testament.
+- If you want to be a good writer, be the best writer in the world. That's what I've done.
+- I hate all politics. I don't like either political party. One should not belong to them - one should be an individual, standing in the middle. Anyone that belongs to a party stops thinking.
+- My business is to prevent the future.
+- The first stories I wrote when I was 12 were about Mars and landing on Mars.
+- A book has got smell. A new book smells great. An old book smells even better. An old book smells like ancient Egypt.
+- You must stay drunk on writing so reality cannot destroy you.
+- The Internet is a big distraction.
+- You can't try to do things; you simply must do them.
+- I don't need to be vindicated, and I don't want attention.
+- When you're older you want to learn from other people.
+- Electronic books are junk.
+- I don't try to describe the future. I try to prevent it.
+- Once the automobile appeared you could have predicted that it would destroy as many people as it did.
+- Libraries raised me.
+- I got started as an actor when I was 12.
+- If God treats you well by teaching you a disastrous lesson, you never forget it.
+- Video games are a waste of time for men with nothing else to do. Real brains don't do that.
+- Americans are far more remarkable than we give ourselves credit for. We've been so busy damning ourselves for years. We've done it all, and yet we don't take credit for it.
+- We've gotta reinvest in space travel. We should've never left the moon.
+- The major networks, the cable networks, they're being prosecutors. They're judges and jurors and executioners. Well, c'mon, that's ridiculous. But they're doing it.
+- We are an impossibility in an impossible universe.
+- Jump, and you will find out how to unfold your wings as you fall.
+- The best scientist is open to experience and begins with romance - the idea that anything is possible.
+- You pay a certain penalty for going your own way. A lot of people think you're nuts, and you're not as popular with girls as you should be.
+- I have spent my life going from mania to mania. Somehow it has all paid off.
+- You don't have to turn on the TV set. You don't have to work on the Internet. It's up to you.
+- I have a big box of autographs. I took photographs of me and Marlene Dietrich, me and Ida Lupino. I took pictures of Myrna Loy and Joel McCrea in front of the studios. I loved Hollywood. I have 500 autographs and 500 photographs I took.
+- I have fun with ideas; I play with them.
+- I don't do research. I never have.
+- I have my favorite cat, who is my paperweight, on my desk while I am writing.
+- We are the miracle of force and matter making itself over into imagination and will. Incredible. The Life Force experimenting with forms. You for one. Me for another. The Universe has shouted itself alive. We are one of the shouts.
+- In Hollywood, they think they know it all. You, as a writer, are essentially an outsider. Novelists and short-story writers, especially.
+- My stories run up and bite me on the leg - I respond by writing down everything that goes on during the bite. When I finish, the idea lets go and runs off.
+- We are cups, constantly and quietly being filled. The trick is, knowing how to tip ourselves over and let the beautiful stuff out.
+- After Hiroshima was bombed, I saw a photograph of the side of a house with the shadows of the people who had lived there burned into the wall from the intensity of the bomb. The people were gone, but their shadows remained.
+- There is too much government today. We've got to remember the government should be by the people, of the people, and for the people.
+- If I'd found out that Norman Mailer liked me. I'd have killed myself.
+- Most of my short stories are fantasy.
+- I write screenplays in the middle of the night.
+- Touch a scientist and you touch a child.
+- I love all of the arts. I love motion pictures. I love stage. I love theater.
+- I don't have a computer. A computer's a typewriter. I already have a typewriter.
+- The important thing is to be in love with something.
+- I find it amusing that I'm on the Internet now, because I've criticized it, but mainly I've criticized it on the basis of, 'What are you going to do with it?'
+- I discovered me in the library. I went to find me in the library.
+- Everybody has forgotten that Russia helped start the Second World War.
+- Most members of Congress are politicians. They're bores.
+- Books are alive, you see. They're not dead, they're alive.
+- I'm never going to go to Mars, but I've helped inspire, thank goodness, the people who built the rockets and sent our photographic equipment off to Mars.
+- I'm not a futurist.
+- If you enjoy living, it is not difficult to keep the sense of wonder.
+- Why go to a machine when you could go to a human being?
+- Stuff your eyes with wonder, live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories.
+- Collecting facts is important. Knowledge is important. But if you don't have an imagination to use the knowledge, civilization is nowhere.
+- All of us, no matter how we look born into this world, feel something like the Hunchback. It doesn't matter if you have a beautiful face or not.
+- I don't tell anyone how to write and no one tells me.
+- My favorite writers have been those who've said things well.
+- You fail only if you stop writing.
+- I'm not in control of my muse. My muse does all the work.
+- If you're embarrassed because you have some notion about how men are supposed to behave, and it doesn't include weeping, then you have some personal work to do.
+- Facts are not interesting to me.
+- I never ask anyone else's opinion. They don't count.
+- I don't control my writing - it controls me.
+- Without libraries what have we? We have no past and no future.
+- If you are going to describe the history of animation, you'd look at the early Disney work, then 'Bugs Bunny,' 'Road Runner' and other Warner Brothers theatrical productions. But when you got to 'Rocky and Bullwinkle,' you'd see they were unique: They assumed you had a brain in your head.
+- When I was born in 1920, the auto was only 20 years old. Radio didn't exist. TV didn't exist. I was born at just the right time to write about all of these things.
+- We've gotta become the Martians. I'm a Martian - I tell you to become Martians. And we've gotta go to Mars and civilize Mars and build a whole civilization on Mars and then move out, 300 years from now into the universe. And when we do that, we have a chance of living forever.
+- I felt a bit bookish, cut off from life.
+- Bo Derek is a really good friend of mine, and I'd like to spend more time with her.
+- If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you.
+- Ideas excite me, and as soon as I get excited, the adrenaline gets going and the next thing I know I'm borrowing energy from the ideas themselves.
+- Journalism keeps you planted in the earth.
+- I know you've heard it a thousand times before. But it's true - hard work pays off. If you want to be good, you have to practice, practice, practice. If you don't love something, then don't do it.
+- First grade is very cheap. It's the later grades where you have to spend a lot of money if you don't do it right.
+- I have total recall. I remember being born. I remember being in the womb, I remember being inside. Coming out was great.
+- I used to take my short stories to girls' homes and read them to them. Can you imagine the reaction reading a short story to a girl instead of pawing her?
+- My religion encompasses all religions. I believe in God, I believe in the universe. I believe you are god, I believe I am god; I believe the earth is god and the universe is god. We're all god.
+- Any experience that touches you, in any particular way, is good. It can be a horrible experience.
+- I don't believe in colleges and universities.
+- I believe in libraries because most students don't have any money.
+- If you want to find the source of much of the music of modern day Russia, you will find it in the incredible compositions of that crazed lunatic Berlioz.
+- I've been afraid of people playing their life away with too many toys.
+- If you know how to read, you have a complete education about life, then you know how to vote within a democracy. But if you don't know how to read, you don't know how to decide. That's the great thing about our country - we're a democracy of readers, and we should keep it that way.
+- We've got to dumb America up again.
+- The answer I found is you stay away from the people who make fun of you, and you join these ad hoc groups who understand your craziness.
+- We're all dreamers.
+- We are anthill men upon an anthill world.
+- Everything is generated through your own will power.
+- My personal telephone book is a book of the dead now. I'm so old. Almost all of my friends have died, and I don't have the guts to take their names out of the book.
+- Love. Fall in love and stay in love. Write only what you love, and love what you write. The key word is love. You have to get up in the morning and write something you love, something to live for.
+- I've only written one science-fiction book: 'Fahrenheit 451.' That book is a book based on real facts and my hatred of people who destroy books.
+- There's no one way to be creative. Any old way will work.
+- Love is the answer to everything. It's the only reason to do anything. If you don't write stories you love, you'll never make it. If you don't write stories that other people love, you'll never make it.
+- I think the reason my stories have been so successful is that I have a strong sense of metaphor.
+- All of my writing is God-given.
+- Millions of students now, in all the schools of America, are reading science fiction and especially, thank God, 'The Martian Chronicles.'
+- We have too many cellphones. We've got too many internets. We have got to get rid of those machines. We have too many machines now.
+- There are worse crimes than burning books. One of them is not reading them.
+- Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible.
+- Everything is my demon muse. I have a muse which whispers in my ear and says, 'Do this, do that,' but it's my demon who provokes me.
+- Love is easy, and I love writing. You can't resist love. You get an idea, someone says something, and you're in love.
+- When I was seven or eight years old, I began to read the science-fiction magazines that were brought by guests into my grandparents' boarding house in Waukegan, Illinois. Those were the years when Hugo Gernsback was publishing 'Amazing Stories,' with vivid, appallingly imaginative cover paintings that fed my hungry imagination.
+- Look at the Chandra Levy case. It's become a Star Chamber. The major networks, the cable networks, they're being prosecutors. They're judges and jurors and executioners. Well, c'mon, that's ridiculous. But they're doing it.
+- You don't read in your own field. You read in that field when you're young, so that you can learn.
+- I'm not a serious person, and I don't like serious people.
+- I don't see myself as a philosopher. That's awfully boring.
+- You don't have to burn books to destroy a culture. Just get people to stop reading them.
+- You can write a short story in two hours. Two hours a day, you have a novel in a year.
+- My goal is to entertain myself and others.
+- I couldn't go to college, so I went to the library three days a week for 10 years.
+- The great fun in my life has been getting up every morning and rushing to the typewriter because some new idea has hit me.
+- The answer to all writing, to any career for that matter, is love.
+- It's lack that gives us inspiration. It's not fullness.
+- Every morning I jump out of bed and step on a landmine. The landmine is me. After the explosion, I spent the rest of the day putting the pieces together.
+- In my later years, I have looked in the mirror each day and found a happy person staring back. Occasionally I wonder why I can be so happy. The answer is that every day of my life I've worked only for myself and for the joy that comes from writing and creating. The image in my mirror is not optimistic, but the result of optimal behavior.
+- Burroughs is crap. Crap.
+- I don't go around thinking I'm Ray Bradbury all the time.
+- 'Fahrenheit 451' postulates a lot of things I didn't want to have happen.
+- Don't think. Thinking is the enemy of creativity. It's self-conscious, and anything self-conscious is lousy. You can't try to do things. You simply must do things.
+- You can't learn to write in college. It's a very bad place for writers because the teachers always think they know more than you do - and they don't. They have prejudices. They may like Henry James, but what if you don't want to write like Henry James? They may like John Irving, for instance, who's the bore of all time.
+- All the women in my life have been librarians, English teachers and book sellers.
+- Living at risk is jumping off the cliff and building your wings on the way down.
+- I spent three days a week for 10 years educating myself in the public library, and it's better than college. People should educate themselves - you can get a complete education for no money. At the end of 10 years, I had read every book in the library and I'd written a thousand stories.
+- If we listened to our intellect, we'd never have a love affair. We'd never have a friendship. We'd never go into business, because we'd be cynical. Well, that's nonsense. You've got to jump off cliffs all the time and build your wings on the way down.
+- If you don't like what you're doing, then don't do it.
+- If an idea isn't exciting, you shouldn't do it.

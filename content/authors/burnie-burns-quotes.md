@@ -1,0 +1,48 @@
++++
+author = "Burnie Burns"
+title = "Burnie Burns Quotes"
+quotes_len = "42"
+description = "the best 42 Burnie Burns Quotes"
++++
+- We didn't discover online and think, 'Oh, this is really lucrative. We've got to get on board with it.' We've been here since 2003.
+- It's really great to see fans all over the world.
+- We started about three years before YouTube existed, so we had to host all the videos on our own servers at a co-location facility. When we got so many hits on our first few videos, and we estimated our bandwidth bill was going to be about $12,000 a month, we knew that we had to establish a business model ASAP.
+- I gotta admit, when you've been doing this a long time, going out to the audience and asking for them to help out with crowdfunding, it's a gut check. You never know how that's gonna turn out. Luckily for us, it turned out well.
+- Suddenly, everyone woke up, and everything was moving online. We've got Netflix making original series, CBS placing their network online, and suddenly, everyone's announcing some kind of digital network for serving their content online.
+- YouTube's algorithm doesn't know what's going on in the world.
+- We've always had a roadmap to feature filmmaking, and making a feature film could have been three or four years away for us. But crowdfunding helped us get there in a year, and it allowed us to take a much bigger step.
+- I feel like we always kept our core philosophy of making content that we would wanna watch, and there's definitely a different scale we are offering that at today.
+- We're so used to financing things on our own that we always have a plan in place to sort of scale our ideas.
+- The big difference between us and other people who produce content is that we started doing this to make things that we wanted to make.
+- The moment we put up the PayPal button, some guy donated $300. That's when we realized that if you give somebody a chance to support something on the Internet, they'll do it.
+- Rooster Teeth has always had a big following in the gamer community, and we are lifelong gamers ourselves.
+- In the entertainment industry, careers don't last very long - and online, careers last an even shorter amount of time.
+- People think that if you get a lot of views, the ad truck just shows up at your front door. That's just not true.
+- If somebody's in the community doing cool stuff, we'll hire them.
+- I lived a significant portion of my life before the Internet and smart phones.
+- I started one of the first online video companies way back in 2003.
+- When we first started, everything was animated, everything was comedy, and there was really nothing that was longer than about two minutes, because that's all audiences would watch.
+- Travel is stressful.
+- Flash Video made platform sites like YouTube possible as well, and helped kick-start the online video revolution.
+- Even in the days of early YouTube, we always focused on narratives, and we always focused on franchises. We didn't do a lot of vlogging and stuff like that.
+- The good thing about feature films is that the budgets tend to scale.
+- To me, the machinima artform has essentially evolved now into the Let's Play streaming world. That's what it is: it's people performing and creating art using video games. It's just more personality-driven rather than story-driven these days.
+- To us, 'The Amazing Race' takes the whole world and turns it into a giant game. What could be better?
+- We started on April 1, 2003. So long ago, you couldn't watch video in a web browser; you had to watch it in a different player, like in Quicktime player or something like that.
+- Anybody who has traveled with a significant other before knows it's tough.
+- We didn't join YouTube until late 2008 because when we first looked at it, honestly, I viewed them as a competitor. But then it grew to the point where if you wanted to be part of the conversation, you had to be on YouTube.
+- We had seen the way the print industry had been disrupted; we'd seen how the audio industry got disrupted, so it just seemed like a natural progression that video was next. We thought we were late to the game in 2003.
+- There is an animated version of 'Lazer Team,' with all the action sequences, that exists. It's a pre-visual fidelity, and the voice acting is terrible because it's one of our animators doing it. But we could sit there and watch what the scene is supposed to look like while we're doing individual shots.
+- 'Red vs Blue' as a show has evolved dramatically. It looks an entirely different show to what we started with, but the format of the show has changed so much over the years, too.
+- We recognize that the whole world is kind of moving in this direction to digital distribution, but at the same time, there are still people who only watch movies in a movie theater, and there are some people who only watch certain programs on television or certain things on Netflix.
+- I have been playing video games since the Atari 2600 days.
+- We wanted to make movies back in college before Rooster Teeth. Our roots have always been in feature filmmaking, and we've always wanted to go back to it.
+- Nothing scales quite the way a sci-fi feature does, I mean, you can always add more visual effects; you can spend a lot of money on the visual fidelity alone.
+- I think, ultimately, the story of Rooster Teeth is going to be one of longevity.
+- If we got $100 million dollars to make a movie, I don't know if we should be making a $100 million dollar movie our first time out.
+- Usually, YouTube channels are named after the person that you see on camera... or in the case of ours, it could have been the show, but we didn't even name the company 'Red vs. Blue.' We named it something else to give people the idea that we were going to be doing more than that.
+- 'The Amazing Race' has always been the gold standard of reality television to me. It's smart, it's funny, and it's entertaining as hell.
+- We started making content because we wanted to see it, and so our content ended up being genuine.
+- When Geoff Ramsey and Jack Pattillo started 'Achievement Hunter,' we expanded heavily into 'let's play'-style gaming videos and have since expanded with a massive roster of gaming talent and multiple channels dedicated just to gaming videos.
+- We are proud to be the No. 1 most funded film on Indiegogo... and with a totally new property. In a world filled with sequels and reboots, Lazer Team is a brand-new IP being made possible by the people who want to see it.
+- The initial plan for Rooster Teeth is really different from the initial plan for the group, because we started as a group that was making one show: 'Red vs. Blue.'

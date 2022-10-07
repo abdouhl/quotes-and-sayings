@@ -1,0 +1,60 @@
++++
+author = "Christopher Priest"
+title = "Christopher Priest Quotes"
+quotes_len = "54"
+description = "the best 54 Christopher Priest Quotes"
++++
+- Literally everything that could be done with the 'Justice League' has been done with the 'Justice League.'
+- In my opinion, I feel like all versions of 'Deathstroke' are valid. Just like with 'Black Panther,' I felt like it wasn't good for a writer to say another writer's work was invalid or never happened.
+- When I read comics, they were dense stories. When you put them down, there was a sense of having gotten a great deal from them.
+- When I was writing 'Black Panther,' on one level, I was angry because DC would never let me write 'Batman,' so I was doing Marvel's 'Batman,' and Reverend Achebe became sort of the Joker to Panther's Batman.
+- I'm really not used to people paying attention to my writing.
+- If the League were real, today, they'd most likely be sued by every person they ever saved. They'd be subpoenaed by every authority in every jurisdiction imaginable; hearings upon hearings. There'd be waves of accolades followed by tsunamis of boos from social media.
+- 'Deathstroke' became an interesting challenge - not just because of his ethnicity, but because he's a villain. I've never written a villain as a protagonist of a series before. I thought this could be an interesting challenge. That's really what got my attention, and it just went from there.
+- Denys Cowan and Dwayne Turner's visions of Wakanda as an ersatz African Epcot Center opened my eyes to the unexploited possibilities; these men, both of whom are African American, together with writer Peter B. Gillis, created an African Asgard of sorts, and I just went, 'Oh, my.'
+- When you're talking about villainy, then you're automatically circling around to talk about justice.
+- We - America - have to move past the ideology, the tribalism, that grips this country. As ridiculous as this sounds, I believe 'Black Panther,' the film, could help us do that if it addresses issues of tribal polarization and, by extension, racism, xenophobia, and homophobia in an entertaining, non-preachy way.
+- I think every writer is in search of the truth. We are trying to psychoanalyze ourselves.
+- In comics, my experience has been mostly artists whose visual storytelling chops are either weak or they're more invested in rushing to a paycheck than in doing work they can be proud of.
+- I think, personally, nothing comes from violence other than more violence.
+- If I could make Panther tough, mysterious, wily, and often at odds with his 'Avengers' comrades, that was a character I'd find interesting.
+- Not liking me because I'm black is so juvenile and immature, because there's many reasons to not like me.
+- You don't want to have a character say what's bothering him; you want to define characters by action.
+- All people - white, black, whatever - are tribal in the sense that we relate to that which is familiar to us.
+- The problem with most liberals - myself included - is we tend to think we're post-racial: that we've got a handle on things because we're not racists.
+- Hollywood is, of course, loaded with egos, but it's amazing to see how, despite the egos, those collaborators pull together and focus on telling a story rather than butt heads and sabotage what is extremely hard work and investment just because their ego apparently demands it.
+- I think everybody wants to feel validated in some way, and when you're looking for leisure activities or if you're looking for escapism or things like that, you want to read about characters you can identify with.
+- In 'Black Panther,' I tried to preserve virtually all versions and interpretations of 'Black Panther' - including the Jack Kirby one, which was really tough to do - and make it work within current continuity.
+- Deathstroke,' in my view, is a family drama. It's like the 'Sopranos' with super villains.
+- If we can provide even a fictional roadmap to what a successful, prosperous African nation might look like, then let's do that.
+- Some people might shy away from a character like Deathstroke because, you know, all of the blood-letting and the swordplay and violence and all that other stuff.
+- I don't think there is really much from my career that I want to go back to. I think that, with most of the characters that I've been lucky enough to work with, I've said all I have to say about the Black Panther, Green Lantern, and on and on.
+- I'm abrasive. I am so sure that I'm right about virtually everything. I can sing you an aria of reasons to not like me.
+- I saw 'Get On Up' about a dozen times. I went every day. Every single day, I was standing outside when the movie theatre opened and bought my ticket. The theatre was usually empty. I live in a town that wasn't eager or very interested in a James Brown biopic, but I couldn't stop watching Boseman.
+- Most people don't realize that when we were producing 'Black Panther,' 'Quantum & Woody,' and 'Steel,' fairly few people were reading those titles. We were constantly threatened with cancellation.
+- I'm old enough to remember seeing James Brown live.
+- My 'Black Panther' run really wasn't about Black Panther. It was about Ross. It was about exploding myths about black superheroes, black characters, and black people, targeted specifically at a white, male-dominated retailer base.
+- If you could access 90 percent of your brain, you'd be Charles Xavier.
+- Lots of things that go on in mainstream superhero comics are just stupid. They just show up on the page, and no one makes any mention of it.
+- You go back to look over the body of my work, and there are no archetypal villains in my books.
+- Writing 'Deathstroke' presents a number of challenges to me. As a Christian, as a minister, it's difficult for me to write a comic book that all but glorifies violence. So my take on 'Deathstroke' has been to not so much celebrate violence but to deal with the consequences of violence.
+- I'm a little insane, and I'm going to be a little different. But hopefully, somewhere in there, in that creative arena, something will emerge that is new and different and unique.
+- I think most superhero stories have already been done a million times.
+- What makes a good villain is someone who doesn't just challenge the hero but comes organically out of that character's history and circumstances.
+- There is no such thing as Christian art or secular art - writing, painting, drawing, whatever it is.
+- With all due respect to the other writers, I don't want to disparage any other writers; I don't want to have to invent a bigger villain than Deathstroke so Deathstroke can seem heroic fighting this bigger villain. I'd rather just have Deathstroke be who is, and he's kind of a bastard.
+- The way that I process and make writing work is I'm really telling true stories; I'm just putting them in a cape and putting an 'S' on its chest.
+- Escapism has its place. I used to write 'Conan the Barbarian' for Marvel, which takes place in an environment completely removed from the real world.
+- Deathstroke is the dark-mirror version of Batman, basically. He is every bit as resourceful, every bit as ruthless, every bit as powerful as Batman.
+- 'Justice' actually means different things to different people.
+- I didn't want to write a 'black' book because black characters are a tough sell.
+- My first draft of Marvel Knights 'Black Panther' was not funny at all. They smartly rejected the entire script and counseled me to inject liberal doses of humor into very serious subject matter.
+- The 'Black Panther' series was never really about the Black Panther at all. The State Department guy, Everett K. Ross, was the series protagonist, so politics was simply a logical part of the character's tool set.
+- I wanted to demonstrate that Deathstroke does not need to solve every problem with his fists.
+- Deathstroke is a villain. Don't come to the book with any expectations that he will, in any way or sense or form, act heroically. He's a bad guy, and that's the fun of it.
+- I'm like an actor who obnoxiously says he doesn't watch his own TV show. It is extremely rare for me to read my own comics and have asked publishers to please stop sending them to me.
+- I was trained in storytelling by Jim Shooter, Stan Lee, and Larry Hama. Doesn't make me a genius, and there really isn't anything fancy about the stage direction in my scripts.
+- It made absolutely no sense to me why Panther would ever join a super-hero team; he's not a super-hero, and the record shows he did a whole lot of nothing most of the time.
+- I never really considered 'Quantum & Woody' a comedic book or a funny book. I never thought of it as a satire.
+- At some point along the way, I stopped being a writer, and I became a black writer. I never used to be a black writer. I used to write 'Spider-Man,' 'Green Lantern,' whatever was lying around. 'Thor,' 'Hulk,' whatever. Now, if the phone rings or when the phone rings, it's almost exclusively some project that has something to do with my ethnicity.
+- I quit comics in 1988 and trained as a bus driver. I used to drive those big Greyhound coaches out of New York Port Authority and down to Princeton, New Jersey. It was, hands down, the best job I ever had, and I profoundly regret having left it. I kept that job the entire time I was on staff at DC Comics in the '90s.

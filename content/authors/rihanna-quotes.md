@@ -1,0 +1,99 @@
++++
+author = "Rihanna"
+title = "Rihanna Quotes"
+quotes_len = "93"
+description = "the best 93 Rihanna Quotes"
++++
+- My jewelry's all fake - from Claire's. Or I get it from my mom's boutique in Barbados.
+- I always keep my guard up with guys and I guess that can get in the way sometimes. I can make them go through hell.
+- Dancing was always part of my culture growing up in Barbados. When I shot my 1st video I worked really hard with my choreographer to perfect the routines.
+- You just want something else that someone else has, but that doesn't mean what you have isn't beautiful, because people always want what you have, and you always want what they have - no one is ever 100 per cent like, 'Yes, I'm the bomb dot com - from head to toe!'
+- My musical taste and image is going to change naturally. It's not forced; I do what comes natural to me. Sometimes, I like to be dark... other times, I like to be really light and ladylike.
+- Music is in my DNA!
+- It's easy to make an album full of great songs. But I want people to go for the ride. The songs have to make sense together.
+- You don't want to live your life and then meet someone. You want to share your life with someone. That's what I'm missing right now.
+- I don't do things for the response or for the controversy. I just live my life.
+- I feel like I'm being watched. Always. Like, I want to tan topless somewhere, and I know I probably could never do that. Even if I'm upstairs in my bedroom, and the curtains are pulled, I feel like a paparazzo's outside on a boat somewhere, or somebody's peeping.
+- I do have a vulnerable side. I think a lot of people have a misperception of me. They only see the tough, defensive, aggressive side. But every woman is vulnerable.
+- If someone is right for you, you'll know it.
+- I think women want freedom. They want to be empowered. They want hope. They want love; they want all the things that I want, and I'm not afraid to say those things and act on them, and I think that's why they identify with me.
+- I just love working with Eminem. He's just one of my favorite rappers, and his lyrics - he's a true poet, and I enjoy that about him.
+- Making music is like shopping for me. Every song is like a new pair of shoes.
+- If I ever go to West Africa, it would probably be for a free concert. I would want to do something for the people there. Maybe we can make a whole event, the way Bob Marley would have done it. Just for the people. And if they climb over the gate, let them climb over the gate.
+- I have such incredible experiences in my life.
+- People - especially white people - they want me to be a role model just because of the life I lead. The things I say in my songs, they expect it of me.
+- I am a child but I have to think and act like a woman, this business forces you to.
+- The stylish kids on the street, they're the ones that set the trends. The designers see what they're doing and go and design their line and sell it back to the same kids, and it's like, why not go directly to the source?
+- I always believed that when you follow your heart or your gut, when you really follow the things that feel great to you, you can never lose, because settling is the worst feeling in the world.
+- That's all I could ever hope for, to have a positive effect on women. 'Cos women are powerful, powerful beings. But they're also the most doubtful beings. They'll never know - we'll never know - how powerful we are.
+- I think love is one of the purest things you can sing about. One of the best things you can sing about.
+- I find that when I get on stage now, I don't want to perform a lot of my songs because they don't feel like me. So I want to make songs that are timeless.
+- I'm turned on by guys who are cultured. That'll keep me intrigued. They don't have to have a single degree, but they should speak other languages or know things about other parts of the world or history or certain artists or musicians. I like to be taught. I like to sit on that side of the table.
+- Everybody has their thing they like or don't like to see. It's all in your head. That's why people take their own pictures, because it's difficult for someone else to capture what you seek.
+- I love reading people. I really enjoy watching, observing, and being able to figure out a person, the reason they wore that dress, the reason they smell the way they do.
+- When I won the first Grammy, there was no other feeling like that feeling. It just made me feel like I came so far, like that was just a dream a few years before that, and then it was happening right then.
+- I know that a large part of my fan base is gay. They've shown me love from the start. I mean in this industry, everyone from my glam people to my dancers are gay. You can't be homophobic in this line of work - I'm a pop star!
+- I like to be creative.
+- I don't like cream puff, corny guys. Usually, they are the nice guys, the ones that won't hurt you. They'll pull out the chair for you and the whole nine yards. Everything is perfect and boring.
+- I love singing. I love it, and it doesn't feel like a chore. It's an expression.
+- I have a lot of other stuff to accomplish before I get to kids. Whenever the time is right, I'll just know. If I had a girl, she'd probably be really rebellious. She would be like a bundle of karma. I would love to bring them up in Barbados.
+- I love music, and after my first experience with movies, I can't wait to do more.
+- I was so rude when I was a little girl.
+- The day I wake up without cellulite? Now that would be the perfect day.
+- Honestly, I've been thinking lately about how boring I am. When I do get time to myself, I watch TV.
+- Over the holidays, and even during filming, I realized that I actually like my body, even if it's not perfect according to the book. I just feel sexy. For the first time, I don't want to get rid of the curves. I just want to tone it up. My body is comfortable, and it's not unhealthy, so I'm going to rock with it.
+- I always wanted to do what my brothers were doing. I always wanted to play the games they played and play rough and wear pants and go outside.
+- Whatever I'm feeling, whatever I'm going through, whatever mood I'm in... If I'm feeling like dancing or clubbing, then it will be reflected in the music. If I'm feeling dark and vulnerable, then it will reflect in the music, too.
+- When it comes to everybody else's thing and their lane and their timing, I'm never doing anything intentional to, like, come after somebody. That will always be my biggest mistake or anybody's biggest mistake if that's their intention.
+- People take the little bit of information they're fed, and they draw a picture of who you are. Most of the time, it's wrong.
+- My body is weird. I wake up when the sun comes up, and it's hard for me to go to sleep. My thoughts just take over.
+- At first, I didn't really use anything in the social network world. I was so anti-social network, which is kind of ironic. I actually first started on a chat room on my fan site.
+- Steven Spielberg was my childhood hero.
+- It is one thing to record an album but it's a huge difference when people play it and listen to it and embrace it the way that I do. It has always been my dream to get my music out to the world and have people hear it.
+- When I was fourteen and first started going out, I always wanted to be the opposite of everyone else. So I would go to the club in a polo T-shirt and pants and sneakers and a hat on backward, just so I would not be dressed like other girls.
+- Streaming is a really big market for me. We've been doing great in the streaming market, so it's not something I want to alienate at all. Streaming counts now. They're treating artists the way we deserve to be treated.
+- I love making music. That's what I love to do. So I don't feel like there's any need to take a break unless I want to.
+- I am happy and I'm single.
+- All my favorite artists and fashion icons and models are from the Nineties. Everybody was just so fearless.
+- I don't have time to be lonely. And I get fearful of relationships because I feel guilty about wanting someone to be completely faithful and loyal, when I can't even give them 10 percent of the attention that they need. It's just the reality of my time, my life, my schedule.
+- If you're performing music that is not who you are or where you're at, it is painful. It's painful for the performer and for the audience.
+- I'd love to date somebody cool, fun, funny.
+- When I see myself as an old woman, I just think about being happy. And hopefully, I'll still be fly.
+- Music helps me tell my story. That's where I can really be heard. But there's so much focus on the things that aren't music.
+- I don't have anything to hide.
+- I take risks because I get bored. And I get bored very easily.
+- When you realize who you live for, and who's important to please, a lot of people will actually start living. I am never going to get caught up in that. I'm gonna look back on my life and say that I enjoyed it - and I lived it for me.
+- When I am putting looks together, I dare myself to make something work. I always look for the most interesting silhouette or something that's a little off, but I have to figure it out. I have to make it me. I think that's the thrill in fashion.
+- There's a long way to fall when you pretend that you're so far away from the earth, far away from reality, floating in a bubble that's protected by fame or success. It's scary, and it's the thing I fear the most: to be swallowed up by that bubble. It can be poison to you, fame.
+- If you don't live your life, then who will?
+- It's every girl's dream to be a cover girl!
+- God just has a way of working things out the way he wants to and you have no say in that.
+- My mother would kill me if I posed nude! My mother raised me with certain standards.
+- I want to give people a taste of the Caribbean, and show them the fun side of me.
+- If I cry, it's because I'm very angry and I can't do anything about it because I've run into a dead end. That's when the tears would come down.
+- I'm really looking forward to seeing what life brings to me.
+- I used to feel unsafe right in the moment of an accomplishment - I felt the ground fall from under my feet because this could be the end. And even now, while everyone is celebrating, I'm on to the next thing. I don't want to get lost in this big cushion of success.
+- I think I'm like most people - we fear the unknown and the things that have yet to come to pass, which are the very things that don't deserve to be feared. When you give God complete control, it's very hard not to be fearless.
+- I can't make a song for a particular person or demographic. If I love it, I'm gonna do it. I have to perform it for the rest of my life. A song is like a tattoo - you can never get away from it.
+- You have to just accept your body. You may not love it all the way, but you just have to be comfortable with it, comfortable with knowing that that's your body.
+- I never know what day it is. Never, ever, ever.
+- More than anything, I like a jacket. You can do anything with a great jacket, the bigger the better. You can have any silhouette underneath. It gives you an attitude. It makes a gown look cool.
+- Guys need attention. They need that nourishment, that little stroke of the ego that gets them by every now and then.
+- Robyn is who I am. Rihanna - that's an idea of who I am.
+- I could never identify with that word, 'weak.'
+- Oh my God - this is scary and sad all at the same time. I literally dream about buying my own groceries. Swear to God. Because it is something that is real and normal.
+- I'm not generally a sensitive person, but I tend to be more sensitive toward others and what they're going through. I don't know if that's the healthiest thing, but it's the truth.
+- Women feel empowered when they can do the things that are supposed to be only for men, you know? It breaks boundaries, it's liberating, and it's empowering when you feel like, 'Well, I can do that, too.'
+- I drink a lot of coconut water. It balances out all the other toxic stuff I put into my body.
+- I never eat salad. I make sure I don't put a lot of junk into my system, but I hate vegetables!
+- I have too many clothes, I have too many options.
+- When I cut my hair, the whole sound changed, my style changed.
+- I'm crazy and I don't pretend to be anything else.
+- I could never give relationship advice to anybody!
+- People think, because we're young, we aren't complex, but that's not true. We deal with life and love and broken hearts in the same way a woman a few years older might.
+- Single life is so overrated.
+- The bottom line is that everyone thinks differently.
+- I hate going to the gym and doing it the old-fashioned way. I hate anything that's too straightforward, too routine, too familiar. I get bored really, really quickly.
+- Even now I will go to, like, an industry event, and all the ladies will be over here and all the guys over here, and I will go to the guys' table and sit because I just feel I can have a much better conversation over there. And that's automatic; it's not prejudice.
+- I got teased my entire school life. What they were picking on I don't even understand.
+- I have two main hair people I work with. They're always with me. I'm like, 'I'm bored! I wanna change my hair!' That's the good thing about a weave. You can do whatever with it.

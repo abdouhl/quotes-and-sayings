@@ -1,0 +1,74 @@
++++
+author = "Carson Wentz"
+title = "Carson Wentz Quotes"
+quotes_len = "68"
+description = "the best 68 Carson Wentz Quotes"
++++
+- Even at North Dakota State, football is a big deal.
+- I listen to worship music before the game to calm my nerves and just go out and have fun. It's a game, and I try to enjoy it.
+- A lot of guys have tons of talent, but it boils down to the mental side of things. Preparing and knowing your offense and studying the defense. Being able to read and react quickly. The mental side is often overlooked.
+- You just control what you can control and just hopefully go win games and keep getting better.
+- For me, I stay pretty focused on football, and then at the end of the day, you just go home and relax.
+- I know we're not going undefeated. I know I'm not going to throw a touchdown every game.
+- Central Michigan was the one FBS team that recruited me hard.
+- Coming from a smaller school, you kind of have a chip on your shoulder, so to speak.
+- All men are wired to be in control of what's going on in their life.
+- I'll be in a cadence, and I'll start to see one thing that a defense is starting to do, I'm like, 'I saw that two months ago on film.' And then that triggers whatever call you need to make.
+- I didn't even have cable back in my college house.
+- I don't get nervous.
+- Honestly, I always told my coaches my whole career - we'll practice two-minute drills in practice, like, once a week and everything - I'm just like, 'Those are my favorite time of football.' I'm out there in total control, just getting everything lined up, getting everybody on the same page, and obviously, usually it's pass after pass after pass.
+- Young quarterbacks usually experience bumps in the road. I'll take them in stride.
+- I'm one that doesn't let the pressure or any of the outside kind of scrutiny, all those things, really get to me.
+- If I scramble, I might get 5, 10, 15, 20 yards, but I'm not that fast. I always want to get it to the guys that can make plays.
+- Being at NDSU and winning national championships, everyone's gunning for you. You got a big target on your back, and we had to be ready to go week in and week out. I think playing for a program like that, everyone's going to give you their best shot, and we embrace that.
+- A lot of different things go into calling the run game - especially at the line of scrimmage.
+- I just have to have trust in my guys to make plays. I play at a confident, fast pace, and when I like something, I take it. I rip it.
+- All I care about is winning.
+- Everything that comes with the game, I think I will handle it extremely easily. I don't let a lot of that outside stuff bother me.
+- Honestly, I've always loved cheesesteaks. They're kind of my go-to when there's nothing else to have at restaurants, but obviously it's a little different when you're out in Philly and have an authentic Philly cheesesteak.
+- I think I have the special ability to process information quickly and dissect defenses.
+- I remember just praying, 'Dear Lord, please let me grow to be at least 6 feet.'
+- We have a culture at NDSU that's about the team first.
+- When you come in as the second overall pick, the last thing you want is for guys to think you believe you've made it. Because that's the farthest thing from the truth.
+- I actually hated hunting the first time I went when I was a kid. My dad took us deer hunting. We sat there for 30 minutes, and I felt like I was losing my mind. But in college, I fell in love with it. Football became a full-time job, and I needed an escape. I needed something that would mellow me out.
+- I enjoy creating relationships with my teammates, my friends, and I genuinely care about people.
+- As a junior in high school, I had some injury problems with my arm and shoulder from baseball, so I didn't play quarterback as a junior. I played a little wide receiver, linebacker, and safety.
+- It doesn't matter if you're winning or losing. You've got to be the same guy; you've got to prepare the same.
+- It's how I'm wired. If I'm not the best at something, it ticks me off, and I want to work harder to be the best. It's also the way I was raised.
+- I've read some things that people said about me, and some of it's not even close to accurate. Honestly, I don't even have ESPN in my house. There's really no point.
+- I want to be playing into January for the rest of my career, God willing.
+- Names that come to mind that I've learned from are Tom Brady - the way he gets the ball out and is so decisive. You can tell he is in total control out there. Another name is Aaron Rodgers, and how he's in total command. And also, Cam Newton, the way he has fun. I love that part of it.
+- As a competitor, you want to get on the field as soon as you can. But you want to do best for your team, your career and everything. That's not up me to decide.
+- If you can play, you can play - and I know I can. If anyone wants to doubt that, heck - I'm more than ready to prove you wrong.
+- I think the biggest thing, even from Day 1 after the draft, was coach DeFillipo being very detailed with everything.
+- I hold myself to a high standard.
+- You're not always going to come out on top.
+- If the team's winning, I'm going to do whatever I can to help the team, whether that's from third-string role, backup, starter, it doesn't matter. I'm going to do what I can to prepare and help the team.
+- I do have a little chip on my shoulder. I want to make a name for this state. I want to represent this state well so that's kinda the chip on my shoulder in that regard.
+- Playing football in Fargo has a total big-time feel. Everyone says it's FCS and it's a smaller school, but in Fargo, North Dakota, and in the state of North Dakota, NDSU football is the real deal.
+- I'm a very motivated person. I don't need extra motivation.
+- I'm just going to compete my tail off and hopefully win a lot of games.
+- I'm not an idiot; I can make adjustments to my life. But I like having a schedule.
+- I think leadership is just something that comes really natural to me.
+- Coach Pederson, for me, the communication we have is clear, and it's an open line. He really respects my opinion on plays. If I'm feeling something... he instills a lot of confidence in me. That is huge.
+- Every down is important.
+- I'm a competitive son of a gun. I don't like losing. I want to be the best out there. I want to lead the troops. I want to kind of take the bull by the horns and be in control.
+- I think one thing I had going for me that a lot of rookies didn't is that we played 15, 16 games every year in college.
+- From the third grade, I knew that I wanted to play in the NFL. It's pretty cool to see the dream about to come to fruition, but it's just a starting point.
+- I'm going to put a lot of expectations on myself.
+- Timing and accuracy is really what matters at the end of the day.
+- I view every day just as an opportunity.
+- At the end of the day, you just want to go to a team that believes in you... and hopefully wants to build a franchise around you.
+- There are going to be losses. There are going to be bad plays. There are going to be mistakes.
+- If you throw the ball 60 times, you are going to make miss some of them. That kind of happens.
+- I hate losing, and I'm gonna do whatever it takes to be the best at whatever it is I'm doing.
+- I just have pretty good recall of information.
+- I've always thought I played at a high level and played at a fast pace.
+- I need to play smarter and protect the football.
+- Football is football; I don't care if you're doing it in Division II, NAIA, or in the SEC or anything in between.
+- I feel like I've earned respect with how I go about my business, how I carry myself.
+- There is just something about being out in open country, about seeing the sun rise over a pond, that's really beautiful.
+- I'm going to go out and attack it and get better every day. That's the same approach I've had since I was just a little kid.
+- A photographic memory, to me, is kind of like brainiac, genius type. I don't think I have that.
+- I like to push the ball down the field when it's there. There's also times you just take the underneath one.
+- I can make all the throws. My mental side is a strength as far as understanding defense schemes and our playbook. I'm able to change plays when needed. I think that sets me apart.

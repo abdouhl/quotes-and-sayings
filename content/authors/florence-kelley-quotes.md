@@ -1,0 +1,15 @@
++++
+author = "Florence Kelley"
+title = "Florence Kelley Quotes"
+quotes_len = "9"
+description = "the best 9 Florence Kelley Quotes"
++++
+- In order to be rated as good as a good man in the field of her earnings, she must show herself better than he. She must be more steady, or more trustworthy, or more skilled, or more cheap in order to have the same chance of employment.
+- This position is untenable, and there can be no pause in the agitation for full political power and responsibility until these are granted to all the women of the nation.
+- Hence, within the space of two generations there has been a complete revolution in the attitude of the trades-unions toward the women working in their trades.
+- Their effort to place the women upon the same industrial level with themselves in order that all may pull together in the effort to maintain reasonable conditions of life.
+- The very fact that women now form about one-fifth of the employes in manufacture and commerce in this country has opened a vast field of industrial legislation directly affecting women as wage-earners.
+- In the garment trades, on the other hand, the presence of a body of the disfranchised, of the weak and young, undoubtedly contributes to the economic weakness of these trades.
+- It is fatal for any body of workers to have forever hanging from the fringes of its skirts other bodies on a level just below its own; for that means continual pressure downward, additional difficulty to be overcome in the struggle to maintain reasonable rates of wages.
+- On the one hand, she is cut off from the protection awarded to her sisters abroad; on the other, she has no such power to defend her interests at the polls, as is the heritage of her brothers at home.
+- The workingmen have perceived that women are in the field of industry to stay; and they see, too, that there can not be two standards of work and wages for any trade without constant menace to the higher standard.

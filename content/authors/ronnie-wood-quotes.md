@@ -1,0 +1,66 @@
++++
+author = "Ronnie Wood"
+title = "Ronnie Wood Quotes"
+quotes_len = "60"
+description = "the best 60 Ronnie Wood Quotes"
++++
+- With every gig we have to prove ourselves better than the night before.
+- We got touring with the Stones, and people were trying to keep up with Keith. He's like a human machine with a constitution of iron, and they all thought they could do the same.
+- I'm still digging long-established bands like U2 - they're new to me!
+- People often get the wrong impression of Mick. The clever businessman is just one side of Mick. The other side is the same as the rest of us, a true rocker!
+- Having loved the Stones all the time I was growing up, I wasn't about to see them go and split up. It got very close to it in the 80s, when Mick thought that Keith hated him and vice versa.
+- Songs are out there - they're waiting to be grabbed. I start with a phrase, musical and lyrical, words like 'I don't think so' and a nice riff. It rolls from there.
+- When I get intimate with my paintings, it's a real good spiritual thing to get off my chest. Same as playing the instruments is a great release.
+- I just think my body can't handle it any more. I did try a little drink a while back, and I was actually physically ill. I went into an immediate depression, and felt awful, just dreadful. So that's it. I'm over it now.
+- I heard this massive thud. I spun around, and there Keith was, on the ground. He'd cut his gums up on impact, he was very bloody, and clutching his head. I think it was a kind of wake-up call for him.
+- I've always thrived on getting a drive from different emotional circumstances that I'm going through.
+- I love to go to Ireland just to relax.
+- We're great, Jo and me. We're pals, and I guess sex has a lot to do with it. She's also brilliant at clearing a room. So protective, so devoted. I can't believe how much she loves me.
+- I'm more lost when I'm not on tour. I'm in a bit of a muddle at nine o'clock - 'Where's the stage?' On tour, there are people directing and supervising you.
+- I go off into Dublin and two days later I'm spotted walking by the Liffey with a whole bunch of new friends.
+- During the Eighties, when I was hurting for money, I thought, 'Hang on a minute - I can paint.' I was living in New York and I thought it would get the grocery money coming in, and it escalated from there.
+- I have a life coach out with me on tour, a very nice guy from L.A. He just prepares me for each day.
+- You don't make solo albums to have hits.
+- I am a big fan of the Impressionists, and in my school days, I was inspired by Caravaggio, Velazquez and Rembrandt.
+- It's good fun, making a solo album, because there's perhaps songs that wouldn't get used for the Stones or any other kind of outfit that I'm working with. It's just nice to be the boss.
+- The blues echoes right through into soul, R&B and hip hop. It's part of the make-up of modern music. You can't turn your back on the blues.
+- Amazing, the poisons I used to put in my body. I used to love it.
+- I'm terrible with money, absolutely awful. I'm always losing it.
+- All my family back to the 1700s were water Gypsies. My brothers and me, we were the first ones to be born on dry land. All the rest of them were born on barges in the canals.
+- All of us can't wait to get out there whatever way.
+- I love to get into a landscape and paint my horses.
+- I have been rich, and I have been broke. Some of it is my fault for choosing bad management and making bad investments. But that is life - we all take risks.
+- All my life there's always been an ex-wife or a girlfriend.
+- When I first started all this, it was mostly music fans that came along, Stones fans. But now, I'm being taken seriously. I've got highfalutin' art collectors and everything!
+- I'm a diplomat by nature. I help find the middle ground. I crack a joke and use humour to help resolve potentially vicious situations quickly. It gets things in perspective and helps everyone to see that things aren't as bad as they seem.
+- I think people are 'just creative,' and this can be expressed in a number of ways. Bob Dylan and David Bowie create both music and art.
+- It's an awful world out there. You've got to make people happy.
+- I like it when journalists are nice to me, and it's happening more and more.
+- Regina Spektor is great. I can't wait to see what more she's capable of.
+- I've got an article where my mum says that I used to run home from school to watch the Stones on TV. Right from when I was at college I wanted to be in that band.
+- My real self is probably more creative and more frightening than any sort of drink or drug-induced state.
+- I can't be left unsupervised.
+- I still feel 29. Maybe I should act my age more, but I just can't.
+- Most white Americans only discovered the blues with the British invasion.
+- I had a fiery affair with George Harrison's wife, Pattie Boyd.
+- When I'm left on my own I'm my own worst enemy.
+- I tried to emulate my favourite guitar players, the old bluesmen like Blind Willie McTell and Big Bill Broonzy. I used to sit by the record player and copy Chuck Berry and the Beatles. You can never copy someone completely, so you end up developing your own style.
+- The last show we played, I was straight as a die. It did feel weird not to be hiding behind alcohol or dope, but being focused was... good.
+- Mick has expressed an interest in coming to the gallery tonight because he's seen me behaving myself lately. He is being much more supportive, which is nice.
+- When I first saw Jo, I said boom, that was it, because I'm a one-woman man.
+- Nowadays you can record on your laptop with Pro Tools, which I do quite often.
+- It's taken folk a while to come around, hasn't it? Even the boys in the band weren't too sure about the whole art thing. They just wanted me to concentrate on the music. But they respect it now.
+- We do things on an exchange basis in the music business - it keeps the wheels turning. That's how I can get people like Slash, Flea and Kris Kristofferson on my album. Collaboration should be done through trades rather than charging each other a fortune.
+- Married life is absolutely brilliant.
+- In my family, they were all big boozers.
+- I find it hard to get old and hard to say, 'No.'
+- Let's face it: I paint well. I know it, you know it. There's no arguing really, is there?
+- There's a basic rule which runs through all kinds of music, kind of an unwritten rule. I don't know what it is. But I've got it.
+- I'm a Gemini, so I have a great time with the other guy.
+- My dad lived till he was 78, my mum was in her 80s, and I've got two uncles who are in their 90s now.
+- What can I say, I'm an alcoholic. It's what I do.
+- Jo left me a few months ago for 10 days. I get this note: I'll come back when the real Ronnie comes back.
+- I always want to rock.
+- I used to worry, 'I've lost my family.' They hated me for a while, but they're very resilient.
+- Mick says, Would you join the band? I say to him, Mick, you know I'd be there in a New York minute.
+- They say you can smoke 400 cigs a day and drink 20 cups of coffee, but you can't have a line or a drink again.

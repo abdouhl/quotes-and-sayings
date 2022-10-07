@@ -1,0 +1,19 @@
++++
+author = "Caroline Dhavernas"
+title = "Caroline Dhavernas Quotes"
+quotes_len = "13"
+description = "the best 13 Caroline Dhavernas Quotes"
++++
+- I get a little stressed even sometimes knowing all the things I want to read, I won't have enough time in this lifetime. The more you read, the more you realize there are fascinating books to be read and so little time to do so.
+- I like when things are completely absurd. I like when people take risks. I want to be able to challenge myself and challenge the viewer and challenge the back of our mind - the subconscious mind.
+- I just love the storyline, I thought it was hilarious - I loved that part when we opened the door, we all look ahead and we have to look down and see that we're actually dealing with this little boy who did this horrible thing of ordering a wife through e-mail.
+- I've never had a ground-breaking hit that changed the deal. It's always been slowly but surely for me, and I've never had a moment of sheer panic when I thought I was never going to work again. So I can't really complain.
+- I'm not a big fan of Sundays, but now that my life is kind of chaotic, structure-wise, I don't really notice it's Sunday most of the time. But I used to associate it - when I was in school - to 'back to school on Monday,' so I didn't like that day.
+- I guess people have this image of women being more compassionate, being the mother, being caring, but I don't know if that's true. I think it's an image we've all carried over the years. I never want to attribute certain qualities to gender.
+- My favorite - and I've said this before, I know - but my favorite TV show of all time is 'Twin Peaks.'
+- That's my perfect day: going skiing.
+- The little boy, Spencer Breslin, it was just so great to have a kid on set. He is talented, he's a pro. He's been doing this for years, I think he started when he was four or five.
+- When you realize how short life is, you ought to celebrate life even more.
+- Sometimes, when you have someone behind the counter who's supposed to assist you and help you out, just being completely bored and uninterested - sometimes it's a little bit frustrating, you know?
+- They're talking about a movie I don't want to hold to that because in this business you can talk about things for years before they get done - god knows if the financing would happen.
+- I started working as a kid doing dubbing, and then I started doing television when I was 11 or 12, and then movies, and I worked mostly in French, and then I started working in English, and then I moved to New York. So I think I managed to find a way to always make it a challenge for myself.

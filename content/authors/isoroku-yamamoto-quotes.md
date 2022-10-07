@@ -1,0 +1,31 @@
++++
+author = "Isoroku Yamamoto"
+title = "Isoroku Yamamoto Quotes"
+quotes_len = "25"
+description = "the best 25 Isoroku Yamamoto Quotes"
++++
+- The most important thing we have to do first of all in a war with the U.S., I firmly believe, is to fiercely attack and destroy the U.S. main fleet at the outset of the war so that the morale of the U.S. Navy and her people goes down to such an extent that it cannot be recovered.
+- It is like a disease to think that an invincible status has been achieved after being satisfied with the past successful operations.
+- Never tell anyone outside my staff that the Submarine Force and the First Air Fleet were responsible for the failure at Midway. The failure at Midway was mine.
+- Japan has always regarded the aircraft carrier as one of the most offensive of armaments.
+- The example afforded before the Great War by Germany - which, if only it had exercised forbearance for another five or ten years, would by now be unrivaled in Europe - suggests that the task facing us now is to build up our strength calmly and with circumspection.
+- To fight the United States is like fighting the whole world. But it has been decided. So I will fight the best I can.
+- A military man can scarcely pride himself on having smitten a sleeping enemy; it is more a matter of shame, simply, for the one smitten.
+- Although a precise outlook on the international situation is hard for anyone to make, it is needless to say that now the time has come for the Navy, especially the Combined Fleet, to devote itself seriously to war preparations, training, and operational plans with a firm determination that a conflict with the U.S. and Great Britain is inevitable.
+- I felt from the start that America was not likely to relinquish lightly positions established at the cost of such sacrifices, and I pressed the view that a high degree of preparation and willingness to make sacrifices would be necessary on our side, but everybody here always persists in facile optimism until the very worst actually happens.
+- I sincerely desire to be appointed Commander in Chief of the air fleet to attack Pearl Harbor so that I may personally command that attack force.
+- I was once the captain of Akagi, and it is with heartfelt regret that I must now order that she be sunk.
+- As long as tides of war are in our favor, the United States will never stop fighting. As a consequence, the war will continue for several years, during which materiel will be exhausted, vessels and arms will be damaged, and they can be replaced only with great difficulties.
+- In the first six to twelve months of a war with the United States and Great Britain I will run wild and win victory upon victory. But then, if the war continues after that, I have no expectation of success.
+- Even though there wasn't much damage, it's a disgrace that the skies over the imperial capital should have been defiled without a single enemy plane being shot down. It provides a regrettably graphic illustration of the saying that a bungling attack is better than the most skillful defense.
+- If we are to have a war with America, we will have no hope of winning unless the U.S. fleet in Hawaiian waters can be destroyed.
+- I entered the navy with the great ambition of becoming a naval soldier and going to war. Either I die from this festering wound - because I refuse to have my arm amputated - or I recover from it and continue being a soldier. I have a one-in-two chance, and I shall bet my life on it!
+- Should hostilities once break out between Japan and the United States, it is not enough that we take Guam and the Philippines, nor even Hawaii and San Francisco. We would have to march into Washington and sign the treaty in the White House.
+- Anyone who has seen the auto factories in Detroit and the oil fields in Texas knows that Japan lacks the national power for a naval race with America.
+- Even a burglar hesitates to go back for more.
+- Unless more efforts based upon long-range planning are put into military preparations and operations, it will be very hard to win the final victory.
+- If a war breaks out with the United States, the navy will have to put all its strength into interceptive operations, so... massive sea-borne supplies might be momentarily interrupted.
+- People who don't gamble aren't worth talking to.
+- I'm against war with the United States. But I am an officer of the Imperial Navy and a subject of His Majesty the Emperor.
+- A man of real purpose puts his faith in himself always. Sometimes he refuses even to put his faith in the gods. So from time to time, he falls into error.
+- I fear all we have done is to awaken a sleeping giant and fill him with a terrible resolve.

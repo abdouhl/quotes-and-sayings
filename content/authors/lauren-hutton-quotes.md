@@ -1,0 +1,28 @@
++++
+author = "Lauren Hutton"
+title = "Lauren Hutton Quotes"
+quotes_len = "22"
+description = "the best 22 Lauren Hutton Quotes"
++++
+- I'd like to be the first model who becomes a woman.
+- I was making $50 a week as a house model at Christian Dior for nine months before I learned that photographic models made $50 an hour!
+- I became a specialist at comedic one-liners.
+- I had always broken the rules.
+- A lot of modeling is how much crap you can take.
+- When I went back to modeling, nobody knew how to deal with a 46-year-old model!
+- There are plenty of beautiful girls who don't photograph well.
+- I look at my first appointment book from 1965 and I get dizzy. I was constantly in a phone booth calling photographers.
+- I don't spend much money on clothes; I never did.
+- The last thing we need is yet another makeup company. Even I have a nervous breakdown when I go through the department store makeup floor.
+- Eileen Ford wanted me to fix my nose and my teeth. I said, Sure, great, but I really had no intention to.
+- I'm not part of the cultural elite. I'm a down-home girl. Always have been, always will be.
+- I had 30-something years' experience in modeling, which is rare.
+- Lord knows, I never want to waste any more of my time in mirrors.
+- We need a new religion.
+- That's the mistake women make - you shouldn't see your makeup. We don't want to look like we've made an effort.
+- We have to be able to grow up. Our wrinkles are our medals of the passage of life. They are what we have been through and who we want to be.
+- I discovered myself!
+- Avedon wouldn't let me put wax between my teeth like I usually did.
+- No one's raising children any more. To love a child, you've got to work for it. You have to change its diapers and feed it at night!
+- In 1974, the modeling world changed. Jerry Ford and my lawyer negotiated the deal for the first exclusive contract in modeling history.
+- Whatever tension is on set can end up on your face.

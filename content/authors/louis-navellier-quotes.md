@@ -1,0 +1,45 @@
++++
+author = "Louis Navellier"
+title = "Louis Navellier Quotes"
+quotes_len = "39"
+description = "the best 39 Louis Navellier Quotes"
++++
+- I want attractive stocks that will benefit from persistent institutional buying pressure.
+- Open the borders to willing workers from any and all nations. They will create businesses that pay taxes, especially payroll taxes to fund Medicare and Social Security benefits of retiring baby boomers.
+- Don't punish small businesses with over-regulation.
+- I simply can't buy as much of some stocks such as Detection Systems or United Education & Software as I'd like because there just aren't all that many shares available.
+- There is a substantial correlation between an election year and how the market finishes.
+- What we do is we test what works on Wall Street. And sometimes it is earnings momentum, and sometimes it's earnings surprises. Sometimes it's price-to-sales cash flow, and then we put together our stock selection models.
+- I'm from Berkeley, California, so I'm fully trained in socialism and all, but basically what they teach you there is markets are efficient and we can't beat them, so we might as well index.
+- One of the things that launched the strength in biotech is when the pharmaceutical industry itself got a little slow.
+- Optimization tells us precisely how to diversify the portfolio, whether I should have 12% in semiconductors or 4% in biotech, etc., and it literally tells me how to diversify not only the industry groups but the stocks.
+- I had Dell for four and a half years, and its sales are still phenomenal, but their operating margins started to contract, so I sold it in early 1999. There's nothing wrong with Dell! It's a fine company. It's just the business risk they took.
+- In college, I was told the market can't be beat.
+- We really believe in the earnings. We're very proud that often we do well in the down market. But you know, there are some markets where they just lose liquidity, like 2001, 2008.
+- Internally, when we manage portfolios, we figure out what works in large cap, what works in mid cap, what works in small cap. Generally speaking, large cap stocks want earning stability, strong cash flow, margin expansion.
+- All I'm trying to do is manage money and take care of my shareholders.
+- I sell these intermediate bond portfolios for people that can't go to stocks.
+- I expect my return to be 18 to 25 percent in 1988, while the Standard & Poor's 500 should rise 8 to 12 percent and OTC stocks gain 15 percent as liquidity emerges.
+- If you are a short-term trader, you have the right to come and go from our funds.
+- We call it the zigzag theory. You want to find something that zigs and something that zags and blend them together to get a better combined performance.
+- There's something we calculate called an alpha, and that's the stock's return that's independent, uncorrelated to the market. And the only way you really get a high alpha is for something to zig when the market zags.
+- If you go back to 2001, the market had two violent short covering rallies then, although I know the market didn't officially get going until March 2003.
+- Now quantitatively we rank things on something called alpha over standard deviation, which is the return independent of the market divided by volatility. Usually, to get a high ranking, you need some buying pressure.
+- We test everything on a one- and a three-year cycle. And you want to stress-test a model, and the three-year test usually does that because you have a growth and value bias. You have different interest rate environments.
+- I've been investing in the stock market for 27 years and, within that time, have helped investors beat the market nearly four to one.
+- My advice to the average investor in 1988 is to be patient and think long-term. It will take 18 months for confidence to get better and, in the meantime, this is absolutely no place for short-term money.
+- Social Security was designed to give a few years of modest benefits to people whose bodies were worn out through coal mining, factory work and other physically demanding labor.
+- There's 4,000-plus stocks out there, and sometimes it gets a little confusing. And we like them to start with the portfolio grader, but if they'd like to see how I use the system and pick stocks - we offer that as well.
+- Since we try and take a fairly buy-and-hold approach to our newsletter portfolios and don't sell at every whipsaw, we want to have a mix of stocks that will perform at both ends of the oscillation.
+- One of our big challenges with the newsletter is that everyone thinks big stocks are safe. That's not true at all. They're only safe if the money is flowing there.
+- There's a lot of companies that profit from a weak dollar.
+- When volume drops off, prices settle down. Volume is the force that turns stocks higher.
+- I still love the semiconductor industry.
+- Large-caps were safe in 1996, '97, '98. Everybody was buying index funds and Nifty Fifty funds. As long as money was pouring in, it was great.
+- As a rule, bond funds will not double your money overnight.
+- I almost always recommend investors get fully invested, since it's better to put your money to work than to let it simply track the rate of inflation.
+- Zeroing in on the best sectors or the best regions of the world is great, but zeroing in on the very best individual stocks is the key to making truly impressive profits.
+- There are several things that can create an alpha - stock buybacks are one. High dividend yields are another, especially nowadays because the stock market yields more than the banks and the tenure treasury. But by and large, it tends to be companies with a strong cash flow, rising sales, accelerated earnings, a profit margin expansion.
+- After the Versailles treaty, the U.S. could have chosen to become a global economic loan shark, but we didn't, and let a lot of the tab slide. So not all lending and borrowing is bad.
+- Our system is dynamic, always shifting gears. What I do is I build models to beat the market.
+- I grade my stocks. I'm what they call a quant, one of the geeks of the stock market.

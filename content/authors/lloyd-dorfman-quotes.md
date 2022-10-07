@@ -1,0 +1,32 @@
++++
+author = "Lloyd Dorfman"
+title = "Lloyd Dorfman Quotes"
+quotes_len = "26"
+description = "the best 26 Lloyd Dorfman Quotes"
++++
+- Money is a very fundamental ingredient in anyone starting up a new business.
+- The key thing for me is to secure medium-term funding for the Roundhouse studios. It costs around £2m a year to run, but we want to grow it, and of course that will cost more.
+- My mind tends to operate a bit like a radar. I don't find it hard to switch off.
+- For centuries, the arts and philanthropists have worked well together: look at the Tate family and the Courtaulds. If you've been fortunate enough to have some success in business, I think it's important to put something back.
+- I don't play golf, and I'm not into horse racing.
+- I do have a fundamental concern about us losing control of our own destiny, and this is not just about the euro. You can expand and extend it into the whole constitutional issue. The British people have been suckered with regard to how the whole currency and constitutional issues have been sold to them.
+- We are quite a way off before people travel around the world without cash in their pockets. The growth of plastic and electronic transactions have tended to impact traveller's cheques rather than cash.
+- If you are going to think the same as everyone else and do the same as everyone else, you will end up being the same as everyone else. In today's competitive environment you have to think a bit differently.
+- Travelex has grown into a global business in just 25 years. The acquisition of Thomas Cook's Global & Financial Services has created a business that would have had a combined turnover of U.S. $28.4 billion in 2000.
+- I'm a really boring bloke, actually. My business is my hobby.
+- I believe the combination of Travelex and Apax will represent a powerful force.
+- The idea of going into the property business and collecting rent four times a year and waiting for five-year rent reviews has limited appeal.
+- At school, I would read the City pages before I read the sports pages.
+- With Indian migrants all over the world, money transfer is a big business in India.
+- If you've been fortunate enough to have some success in business, I think it's important to put something back.
+- In the old days we were the challenger brand competing against the big banks, but today I go round the world and I sit with governors of central banks and finance ministers and, in some cases, prime ministers. They all know Travelex. We are regarded as the establishment - the world's largest retailer of foreign currency.
+- People travel because it's a treat. For me, staying at home is a treat.
+- In 2003, Travelex acquired Thomas Cook Financial Services. We only had use of the Thomas Cook name for five years, so I had to increase public awareness of Travelex to migrate all Cook operations over to it. It was a success.
+- Am I a frustrated performer? My wife would say I am! I guess there has to be something of the performer in you if you build a global business.
+- India offers exciting business opportunities owing to the growth in corporate travel and a significant middle-class population waiting to explore the world. To begin with, Travelex is setting up eight city centre branches in metros and other major cities including tourist destinations.
+- Individual and corporate support is vital to building on London's leadership in the arts, and I hope others will join me in wanting to build on the National's role at the heart of modern theatre and sustaining it long into the future.
+- When I started the business, only banks operated at airports, only banks issued travellers' cheques, only banks issued international payments, only banks serviced their own branch networks.
+- By all means, let's have free trade and no trade barriers and a common market. But where did it all suddenly become about our own economic and political destiny being surrendered to Brussels with agendas that arguably have very little to do with the interests of the British people and British voters?
+- I've always loved and enjoyed the theatre, but I have to say that none of our sponsorships have been done because I'm one of those chairmen and chief executives who goes gooey-eyed about something. They are done for a very specific marketing and commercial agenda.
+- I think as a business it would be amazing if the euro was to collapse, but financially and economically I think that would be a bit of a tsunami for everybody to cope with.
+- I have no interest in owning a football club; I don't play golf; I don't like horseracing and I'd rather become a professional bungee jumper than enter politics.

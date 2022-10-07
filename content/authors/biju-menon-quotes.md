@@ -1,0 +1,61 @@
++++
+author = "Biju Menon"
+title = "Biju Menon Quotes"
+quotes_len = "55"
+description = "the best 55 Biju Menon Quotes"
++++
+- I don't spend time planning each move in my career.
+- Yes, people used to recognise me even during the initial days of my career as I am an actor. But now they have started approaching me with a smile and share their happiness with me. This change is all because of my humorous roles.
+- My career is indeed going the right way; I could not have asked for anything more.
+- One can't predict a film's success or failure.
+- I like to do realistic films as well as sensible humourous subjects, just because I think these films are only capable to attract people to the theatres. Though I agree that serious movies are also good and I like to watch them, it is a fact that majority of the people are hesitant to go to theatres for those films.
+- I only sign up to play the hero when I am that sure of the script, which, believe it or not, comes by rarely.
+- Although I am a senior artiste, I am young at heart and fun-loving.
+- I have done a wide range of characters and getting acknowledged as a comedian is encouraging for me as an actor.
+- I have never been bothered by the length of my role in a film as I want to be associated with good films.
+- Vellimoonga' has been a game-changer and I have handled comedy in almost all the films I did after that.
+- After watching movies like Sajeev Pazhoor's 'Thondimuthalum Driksakshiyum' and G Prajith's 'Oru Vadakkan Selfie,' I had wished to be part of such films.
+- I am not ready to test the viewers' patience by playing one role far too many times.
+- I am not concerned about the age of the character or the length of my role in a film. What matters is its quality.
+- I feel that it is a privilege to make viewers laugh.
+- People tell me, 'It's not on par with Vellimoonga,' after watching my movies.
+- I feel children should be allowed to enjoy their childhood.
+- There is no point in performing in a film with a weak subject.
+- We cannot do just one type of movies always.
+- I feel I have a certain gravitas.
+- Malayalis tend to be nostalgic about rustic storylines, pastoral themes and ordinary folk who lead a simple way of life.
+- I come from a middle class family and I am not overambitious.
+- It was Benny P Nayarambalam who first cast me in a character which made people laugh, in 'Marykkundoru Kunjadu.' Then 'Seniors' happened, followed by 'Ordinary' and 'Romans.' They were all commercially successful films and so I kept getting such roles.
+- As I enjoy making knick knacks out of wood, I visit my friend's workshop to craft them.
+- The best thing about doing a realistic film is that you have the freedom to deliver your lines as natural as possible without sticking to the script.
+- I don't like posting my opinion on social media and responding to controversies that might follow.
+- It's not that I don't like starring as the hero, it's more of a mental block that prevents me from doing so.
+- I don't want the burden of the success or failure of a film entirely on my shoulders.
+- I enjoy doing comic roles that blend with the story. I am looking for cinema that is sensible and is entertaining and engaging, be it is comic or serious.
+- Vellimoonga' works at the box office because there is an inherent honesty to the film. Nothing about the movie has been exaggerated; it's a comedy that is clean and maintains a certain standard that harks back to Malayalam cinema's past.
+- It is not an easy job to make people laugh always.
+- The dictum of the industry is such that I can't only do films that appeal to me.
+- At one stage of my film career, between 2007 and 2010, I had taken up many projects where I played the role of a police officer. Later, I deliberately took a decision to not do any police roles. Since then I've been growing my hair and beard so that I'm not roped in for any such roles.
+- Lalitham Sundaram' is a simple family movie that has a positive feel.
+- Getting typecast depends on the roles we choose, doesn't it? When the same kind of characters are offered to you, you have the option of not doing them.
+- I would be bored if I had to do the same kind of roles.
+- I think an actor should portray all kinds of emotions in films.
+- You will have to take up responsibility in multiple areas as a lead actor. Let's say, I don't have that capacity.
+- I do enjoy leading a simple, uncomplicated life.
+- I never had an issue working as a second hero.
+- I am not an ambitious person and I love to go with the flow.
+- I never feel insecure about my career because I believed that in some way or other, good things come to you. This might be the only reason that I never take pride in stardom or a celebrity status.
+- I have done several films and it is only if the character appeals to me, whether as a hero or as a second hero, that I go for it. That's been my attitude toward films.
+- I go by my judgement when a role is offered to me.
+- As an actor, it is great to experiment with roles of varying shades and I have been part of some fabulous films.
+- Playing character roles gives me the freedom to try out different roles, including negative ones or elderly ones. When one is playing the lead role, clearly there are limitations and responsibilities.
+- I have only chosen roles that I am comfortable in - from the many that have come to me.
+- As an artiste, I take up roles where there is scope to perform and that can reach out to the audience.
+- I like serious films and earlier used to do only such films.
+- I like to continue as a good actor.
+- Rather than doing a hero-oriented film, I love being a part multi-starrer film, because such films always strike a chord with audience.
+- I give preference to scripts and of course, the importance of my role in the storyline. Still I am not after hero roles. I take such roles only when I find the scripts exciting.
+- When audience expect only humorous roles from me, my roles will become cliche and predictable.
+- When I do serious films, I find that my viewership comes down.
+- I rarely get to be part of realistic films.
+- I have deliberately tried to do a variety of roles during my career so that people aren't bored of me. I also believe I have never prompted my directors or my audience to say that I have let them down with my performance. Maybe that's what has worked for me.

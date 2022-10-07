@@ -1,0 +1,106 @@
++++
+author = "Bianca Belair"
+title = "Bianca Belair Quotes"
+quotes_len = "100"
+description = "the best 100 Bianca Belair Quotes"
++++
+- When you're in the ring with Bayley, it's different. You have this full confidence that things are always going to go well.
+- I really believe Bayley thinks that the only way she can get to me is mentally because she can't stand the test of time with me physically.
+- I love bananas and almond butter.
+- We just want to use every single opportunity we can to make the best of everything and progress anything that we're in.
+- Anytime I get into the ring with Rhea Ripley, I am excited.
+- I remember I started isolating myself. I stopped going to church and believing in God. People would say to me 'Be happy,' and I was like that's easier said than done.
+- You create history within yourself. You create history within your own family. You create your own legacy. Because I create history without even trying to and that's when the best parts of history are created.
+- I did not watch a lot of wrestling while growing up. I started following after I came up to WWE.
+- Rhea is special and anytime we are in the ring, I am excited.
+- I want to enjoy what I'm doing and don't want to be frustrated, and angry and bitter with what I'm doing.
+- My character is very multi-faceted, very powerful, she can get in the ring and do an array of things but I like to use my YouTube channel to show other elements of myself that I feel I many not be able to show in the ring.
+- When I hold the title up in the air, I want everyone to know this is theirs, too.
+- One of my main goals, even when I first arrived in NXT/WWE, was to bring as many eyes to the product as possible and bring more eyes in the urban market, the hip-hop market.
+- I've been an athlete my whole life.
+- I've been getting in the ring with the best, and I've been beating the best.
+- The inspiration that the Four Horsewomen were for me and think that I'm an inspiration for other women that are coming behind me is an amazing feeling.
+- When I was in NXT, I was going after the NXT Women's Championship and it never happened, I would constantly check in on my perspective.
+- Your happiness is the most important thing and I say all the time that I just want to be happy.
+- It meant everything for me to work with Bayley.
+- I'm in love with Nicki Minaj.
+- I've been listening to Nicki Minaj since high school. Like, mix tape Nicki Minaj. Like, the mix tape, you know, 2006/2007. Huge fan of her.
+- I don't believe in having regrets.
+- I've been running track since I was five. I could name down every single Olympian that ran hurdles.
+- Bayley is a locker room leader, and an amazing person inside and out. I've watched and learned from her, the way she handles situations and adapts so easily and quickly. She has the ability to make things look so easy.
+- In college I had a coach who did that for me. I was struggling so much mentally with depression, anxiety, eating disorders... and he told me: 'You have to go and talk to a doctor, you are back on track until they clear you' and he put my mental health first.
+- I tote around that big ol' sewing machine with me everywhere I go.
+- I was the first woman in a Hell in a Cell match that wasn't part of the Four Horsewomen, so there was a lot of pressure involved.
+- It's really cool to just be able to do what you love alongside the person that you love.
+- I really get enjoyment and fulfilment out of making my own gear and being creative.
+- I'm here to motivate people and touch them in a positive way.
+- For me, I always gravitated towards Jacqueline. I thought she was amazing in the ring, she was beautiful, she was strong, she was powerful and it really empowering to watch Jacqueline.
+- I would love to work with Megan Thee Stallion, City Girls, Cardi B, Nicki Minaj.
+- I got a full-ride scholarship to the University of South Carolina for track.
+- I feel like I always have to prove myself every single time I step out.
+- I always say that one of my main goals - I look up to the Four Horsewomen. When I was in NXT, I remember just looking at the Four Horsewomen and standing in in the locker room thinking like, Wow, they used to be here in the same spot that I'm at, and now they're on Raw, and they're on SmackDown. They're doing these amazing things.
+- My actual real name is Bianca Blair.
+- I've had to learn that food is not my enemy. I work out once or twice a day and I'm lifting super heavy weights. I need fuel to keep going.
+- If I can get in the ring with the best, it brings the best out of me.
+- Becky Lynch, what she's accomplished inside and outside the ring. She's 'The Man' and a legend in the making.
+- I usually snack all throughout the day.
+- For me, I would say always try to figure out what your why is. For me, a lot of it is being a role model, representation, look at the bigger picture.
+- I did gymnastics, I wanted to be like Dominique Dawes. But the good think about role models is that you don't just have them when you are kid. My role models from WWE came when I was older. When I was 27, my role models from WWE became Jacqueline and Beth Phoenix.
+- The night before a match is always a weird night. I want to get a good night's sleep, but I'm also anxious.
+- When I get nervous, I think about my dad, who would always tell me, 'When you're nervous, it means you care.' So I embrace it. That reminds me I'm ready.
+- People do their cheat meals after their matches, but I have pizza the night before.
+- I think, if we can all get along: Sasha, Naomi, and I will be a great faction. We would mesh really well, we could work really work together.
+- I can never get my ideas across to people where they totally understand it completely, so I'm just like: 'I'm going to do it myself, cause nobody can do it like me.'
+- When I ran track, I couldn't see myself doing anything other than running track. Now I'm in wrestling, and I can't see myself doing anything other than wrestling, because I've completely fallen in love with what I do in this business.
+- I've played almost every sport in the book and basketball was one of the sports that I played. We were state runner-up champions and state champions in basketball in high school.
+- In high school, I was probably 155 - I wanted to run fast and get a scholarship, so, it was drilled in me that if you lose weight, you'll run faster. So, I went on a diet - I did lose weight, but then I hit a plateau where I couldn't lose any more weight. So, I started throwing my food up, so I became bulimic.
+- In CrossFit I really I stood out because I made all my outfits.
+- I want my time in WWE to be remembered about how I make people feel. That's what matters most to me.
+- I feel like I have a target on my back, but ain't nobody hitting it.
+- Fighting Bayley after winning the title at WrestleMania was perfect. I've been very fortunate to work with her. She has contributed to so much of my success. She's made me better, and I'm going to carry that forward and carry that through.
+- I want to prove that I'm the best and that I deserve the spotlight so I can shine.
+- I'm not a professional sewer, so I just go to YouTube and figure it out and I experiment but that's the fun part of it. I love watching. Seeing fabric transform into my gear is just a feeling of satisfaction.
+- Getting to show up and show out in front of the fans, that means the world to me.
+- I'm the female version of my dad. He builds decks, he builds all types of chairs, my dad is really creative and really hands-on and so I really learned that from my dad.
+- I am all about NXT because that was where I learned everything. I am a homegrown NXT talent.
+- As women, we have to come together to save each other.
+- I use people like Missy Elliott and Beyonce to inspire things I want to do.
+- Halloween is my husband's favorite holiday. That is his absolute favorite holiday. He loves Halloween. I'm not gonna say I don't like it, I just don't like being scared.
+- I love to sew in the hotel room. I even sew in the locker room sometimes.
+- I'm very picky and very particular.
+- I feel like I have a very strong character, I'm super talented and the possibilities are endless for Bianca Belair. She's somebody who can stand on her own and have a very successful, long career but at the same time I have no problem being paired with my husband in any shape or form because it's a part of who I am.
+- When I came to NXT I didn't know anything. It's an amazing place to be and no matter how long you are there there's always gonna instill something in you that can ignite you the fire in you and help you to succeed no matter where you're at.
+- I'm someone who had a unique journey to get to WWE.
+- I've gotten in the ring with Sasha Banks on the highest level at WrestleMania in the main event.
+- I've found myself very vulnerable in some of my moments, but that's because I'm opening up to invite people to come on this journey.
+- I always focus on the stuff that I can control, and what's for me, is for me, and no one can take that away.
+- The ThunderDome is great. I remember walking in the arena and I actually for a second thought that there were fans out there. I had to remind myself it's not actually live fans but it sounds like it and with the energy that environment brings, it's just amazing.
+- Definitely my 'why' in WWE is the representation and being a role model for everyone out there. Anyone who looks to me as an inspiration is why I do this.
+- I like to go out there and perform my best. I like to be the best, I like to shine, I like to be in the spotlight, so I like anything that sparkles. Anything that glitters, that's why I'm into rhinestones. Superstars wear sequins, so I wear sequins and rhinestones.
+- Growing up, people always told me my name had a ring to it. People always remembered my name and so I wanted to think of something that was very similar to it. I just stuck an 'E' between the 'B' and the 'L,' made it from Bianca Blair to Bianca Belair. That's where that name came from.
+- I always think about the role models I had when I was a little girl. They really made me feel how big I could dream, they made me feel I could do things that I did not think I could do before. And because of them, I went and did what I did and I am where I am now.
+- My role models were from track-and-field - Florence Griffith Joyner, Gail Devers.
+- Physically, I'm strong, I'm fast, I'm tough, I'm rough.
+- Every time I step out to the ring, regardless if there's something on the line, I always feel like I'm out there trying to prove something, you know.
+- I pride myself on being an athlete and I have muscles, but at the same time I am a woman and my muscles make me empowered as a woman.
+- Bianca Belair, she knows nobody can do it like her, nobody can do it better than her, and that also includes making my gear.
+- I want to defend my title as much as possible and make magic with as many people as possible.
+- I'm a fighting champion.
+- If I want to be the best, I have to get into the ring with the best.
+- I always try and find a purpose in what I am doing - even when it comes to wrestling... when I go into a wrestling match I'm trying to find a purpose for why I want to win. Through that, it brings happiness.
+- Being at WrestleMania, you have to prepare.
+- I'm not a morning person. But it doesn't matter if I wake up at seven, eight, or noon, I'm still having breakfast food first thing when I wake up.
+- Every single woman is amazing. Every time I get in the ring with any of them, they bring the best out of me, and they just keep making me better as champion.
+- If you know me from my NXT days, you know that I always walk around saying that I'm the strongest and I'm the toughest; that's in me.
+- Sometimes I'm out in public and people are like 'you're a wrestler?' and they kind of ask me with a little question in their voice, like 'oh I didn't know that WWE had wrestlers like you. I'm going to start watching.'
+- Well, when it comes to life, I'm all about the journey.
+- Sasha Banks is amazing.
+- I'm always talking about how representation is such an important thing - it's not just a request, it's a requirement - it needs to happen. So, to be a part of representation and to go down in the history books as the first African-American woman to win, and the second African-American to win the Royal Rumble is an honor.
+- You don't know how long your time is here, but people never forget the way you feel.
+- I feel, in WWE, I always try to find my 'why' - my purpose of why I do what I do.
+- The older that I've gotten, I now understand the power of representation.
+- I'm able to show on YouTube what I'm passionate about, what I love to do and one of those things is sewing my gear.
+- I feel like anytime I can get into the ring with someone like Sasha Banks, I can learn so much.
+- I live by the motto, 'Stay ready, so you don't have to get ready.'
+- Survivor Series is all about teamwork.
+- I wanted to be an Olympian.
