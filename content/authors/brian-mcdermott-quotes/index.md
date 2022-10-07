@@ -1,0 +1,18 @@
++++
+author = "Brian Mcdermott"
+title = "Brian Mcdermott Quotes"
+quotes_len = "12"
+description = "the best 12 Brian Mcdermott Quotes"
++++
+- My parents are Irish, my grandparents are Irish, my great-grandparents are Irish. I was born in England; my blood is Irish.
+- I irritate the wife because of my private dancing.
+- I don't regret anything.
+- I don't believe in an 'all-about-me' culture. It's about the group.
+- Football is all I know.
+- Sometimes you have got to look at things really positively - without putting your head in the sand, you have got to manage the negatives and keep putting a positive slant on it, keep trying to find answers.
+- It's really important how you say things because people won't necessarily remember what words you used, but they'll remember how you made them feel.
+- People ask me about my interests outside football, but I haven't really got any.
+- I love music, from shanty sea-songs to Calvin Harris.
+- I can't go against my nature because I am what I am. I don't try to be anyone different to who I am.
+- You do have demons throughout the week; every coach does.
+- If you ask me why I've succeeded, it's because I was in the Royal Marines. You have this unbelievable sense of achievement and of overcoming adversity. That's the confidence it breeds.

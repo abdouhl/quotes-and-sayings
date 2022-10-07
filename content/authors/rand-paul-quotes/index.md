@@ -1,0 +1,252 @@
++++
+author = "Rand Paul"
+title = "Rand Paul Quotes"
+quotes_len = "246"
+description = "the best 246 Rand Paul Quotes"
++++
+- I give thousands of interviews, and I'm probably about as open as anybody in Washington as far as access goes, so I'll continue to do that.
+- I don't think it's hypothetical whether or not it's a good idea to topple secular dictators in the Middle East and hope to get a good outcome and hope that stability comes thereafter.
+- Democrats in Louisville were led by Courier-Journal editor Henry Watterson and were implacably opposed to blacks voting.
+- I rode my bike to school every day from age five to age fourteen. It was a small town - you could go anywhere.
+- The Republican Party is an empty vessel unless we imbue it with values.
+- I think it's a bad business decision to exclude anybody from your restaurant - but, at the same time, I do believe in private ownership.
+- Most police officers are good cops and good people.
+- The thing is I think vaccines are one of the greatest medical breakthroughs that we have. I'm a big fan and a great fan of the history of the development of the smallpox vaccine, for example.
+- After all the sacrifice in Afghanistan and Iraq, why do we find ourselves in a more dangerous world?
+- Washington is horribly broken. We are encountering a day of reckoning and this movement, this Tea Party movement, is a message to Washington that we're unhappy and that we want things done differently.
+- I ran for office originally as part of this Tea Party Movement because we were upset with Republicans who've doubled the debt. We were upset with Republicans that bailed out the banks.
+- One of the things, one of the things that really got to me was the thing in Houston where you had the government, the mayor actually, trying to get the sermons of ministers. When the government tries to invade the church to enforce its own opinion on marriage, that's when it's time to resist.
+- You know, you look at term limits, you poll term limits, 70, 80 percent of Republicans or Democrats are for it.
+- I'm for immigration reform. I think the system's horribly broken, and we need to do something about it.
+- The biggest thing I've learned from my dad is he's had adoring crowds of 8,000 at Berkeley, and 6,000 at Jerry Falwell's Liberty University. That's an amazing feat to have people coming out in one of the most liberal universities and one of the most conservative.
+- I would rather not have contentious interviews. I'd rather do 30 minutes with Charlie Rose, laid back in a La-Z-Boy chair.
+- I don't program or code or anything like that.
+- I think we need to treat everybody with dignity.
+- I believe we should work to end all racism in American society and staunchly defend the inherent rights of every person.
+- Of strong importance to me is the defense of minority rights, not just racial minorities, but ideological and religious minorities.
+- The sacrifice of our personal liberty for security is and will forever be a false choice.
+- I would argue that the objective evidence shows that big government is not a friend to African Americans.
+- You need to have people within your own party that have the wherewithal to stand up to you.
+- People say America is exceptional. I agree, but it's not the complexion of our skin or the twists in our DNA that make us unique. America is exceptional because we were founded upon the notion that everyone should be free to pursue life, liberty, and happiness.
+- Although I was born into the America that experiences and believes in opportunity, my trips to Ferguson, Detroit, Atlanta, and Chicago have revealed that there is an undercurrent of unease.
+- I think the over-militarization of local police forces is also true of the over-militarization of the federal government, so I don't really run and hide from the comment that I think there are 48 federal agencies that have SWAT teams.
+- I've repeatedly voted for sanctions against Iran. And I think all options should be on the table to prevent them from having nuclear weapons.
+- No Republican questions or disputes civil rights. I have never wavered in my support for civil rights or the civil rights act.
+- I would have voted 'no' on the Iraq war and 'yes' to Afghanistan.
+- I don't care if you're a Republican or a Democrat, there is something profoundly un-American about using the brute force of government to bully someone.
+- There comes a time in the history of nations when fear and forgetfulness cause a nation to hesitate, to waver, and perhaps even to succumb. When that time comes, those who love liberty must rise to the occasion. Will you lovers of liberty rise to the occasion?
+- You don't go into politics unless you want to win.
+- And when the time is right, I hope that African Americans will again look to the party of emancipation, civil liberty, and individual freedom.
+- I was elected to the Senate in 2010 by people worried about our country, worried about our kids and their future.
+- Communism can't survive the captivating allure of capitalism.
+- For most of our history, no one dared to tell Americans, 'you don't build that.'
+- If you hear me out, I believe you'll discover that what motivates me more than any other issue is the defense of everyone's rights.
+- Each one of my budgets has taken a meat axe to foreign aid, because I think we ought to quit sending it to countries that hate us.
+- Bulk collection of phone records didn't find or stop the Tsarnaev brothers from the massacre in Boston. In fact, one might argue that all of the money spent on bulk collection takes money away from human analysts that might have noticed the older brother's trip to become radicalized in Chechnya.
+- I've been accused of wanting to allow terrorists to have weapons to attack America.
+- I can use most of the tools that every American teenager can master. Maybe not all of them.
+- If our freedom is taken, the American dream will wither and die.
+- I've been fighting amidst a lot of opposition from both Hillary Clinton as well as some Republicans who wanted to send arms to the allies of ISIS. ISIS rides around in a billion dollars worth of U.S. Humvees. It's a disgrace. We've got to stop - we shouldn't fund our enemies, for goodness sakes.
+- I have a message from the Tea Party, a message that is loud and clear and does not mince words. We've come to take our government back.
+- Both sides of the aisle - Republican and Democrat - have been unwilling and afraid to address the deficit, and someone's got to.
+- Government can supply bread, but it can't mend a broken spirit.
+- I think people are hungry for someone who will stand up on principle.
+- I don't think I'm really open to having Washington change me.
+- The main thing I say on war is that we need to obey the law and formally declare war.
+- No American should be killed by a drone on American soil without first being charged with a crime, without first being found guilty of a crime by a court.
+- We should revoke passports from any Americans or dual citizens who are fighting with ISIS.
+- We as Republicans have taken the easy way out a lot of times.
+- You know, when Republicans were in charge, we doubled the debt. But, now, our concern is the Democrats are in charge and they're tripling the debt. So, really, our concern is that we want smaller government.
+- Standing up on the right to trial by jury is something that, really, a lot of people should agree with, you know, both on the Right and the Left.
+- What ObamaCare did was take some of the things we did for the poor and expanded the government to basically the whole marketplace.
+- Income inequality is worse in towns run by Democrat mayors than in towns run by Republican mayors.
+- I would never belong to any club that excluded anybody for race.
+- Stop spending money you don't have.
+- We must always embrace individual liberty and enforce the constitutional rights of all Americans-rich and poor, immigrant and native, black and white.
+- I think if you have a two-story office and you hire someone who's handicapped, it might be reasonable to let him have an office on the first floor rather than the government saying you have to have a $100,000 elevator.
+- You don't win as a party unless you become a bigger party.
+- I would argue that you're only going to get the conservatives, particularly a Republican House, to pass immigration reform if we, as conservatives, are reassured that the border is controlled and that we get to vote on whether the border is controlled.
+- I don't think you will meet anyone in Israel who will ever burn the American flag.
+- If you force legislators to balance, at the end of the day, if it has to be balanced, then they step up and they become legislators and can find out where to cut.
+- Mandatory minimum sentencing has disproportionately affected blacks, Hispanics and others who often don't have the financial means to fight back.
+- America has much greatness left in her.
+- Laws don't really restrain people. Ninety-eight percent of people follow a virtuous course with or without laws.
+- The problem is that in our country, they make it almost impossible for politicians to win anything. In England it's easier to win a libel suit.
+- Individual warrants every day are used to arrest dangerous people.
+- The Republican platform specifically says we don't believe in bailing out private business, and yet we did.
+- Do we fear terrorism so much that we throw out our Constitution, and are we unwilling and afraid to debate our Constitution?
+- I want to be judged by who I am, not by a relationship.
+- I would support immediate construction of the Keystone Pipeline.
+- You shouldn't have one opinion when you're running and another when you're president.
+- I'm the third of five children.
+- You campaigned against rich people and you got enough envy whipped up in the country and you're gonna get 'em. You're gonna stick it to those rich people. But guess what? You may not get anymore revenue. You may not get anymore economic growth. But you can say, 'I stuck it to the rich people.'
+- Vladimir Putin's invasion of Ukraine is a gross violation of that nation's sovereignty and an affront to the international community.
+- As a Christian, I believe in redemption. And I believe in second chances.
+- If any Republican nominee wants to run on the idea that borrowing money and printing it up and sending it to foreign countries that often hate us and burn our flag and think it's a good idea, feel free to run on that issue. But it's not really popular with the people.
+- Using taxes to punish the rich, in reality, punishes everyone because we are all interconnected. High taxes and excessive regulation and massive debt are not working.
+- What gets lost is that the Republican Party has always been the party of civil rights and voting rights.
+- Opponents of civil liberties contend the NSA data collection has made our country more safe, but even the most vocal defenders of the program have failed to identify a single thwarted plot.
+- The right to life is guaranteed to all Americans in the Declaration of Independence, and ensuring this is upheld is the Constitutional duty of all members of Congress.
+- You can't promulgate injustice without consequences.
+- I don't want to live in a nanny state where people are telling me where I can go and what I can do.
+- Whether you breach the Fourth Amendment 20 percent of the time or 100 percent of the time, it's still not the point. The point is whether or not you still collect millions of people's information with a single warrant.
+- We do not project power from bankruptcy court. We're borrowing a million dollars a minute. It's got to stop somewhere.
+- I think public awareness of how good vaccines are for kids and how they are good for public health is a great idea.
+- All issues of crime are better addressed at the state level.
+- If I had been in President Obama's shoes, I would have acted more decisively and strongly against ISIS.
+- The great and abiding lesson of American history, particularly the cold war, is that the engine of capitalism, the individual, is mightier than any collective.
+- I'm not questioning Dick Cheney's motives. There's a chance for a conflict of interest. At one point in time, he was opposed to going into Baghdad. Then he was out of office and involved in the defense industry, and then he became for going into Baghdad.
+- I think the Supreme Court has not yet caught up to an era in which one keeps one's papers in a cloud, not a castle.
+- In our state, I'm really proud of the fact that the ones who overturned Jim Crow in Kentucky were Republicans fighting against an entirely unified Democrat Party. So I am proud to be Republican. I can't imagine being anything else.
+- We woke up one day, and Pakistan had nuclear weapons.
+- I am ready to debate how we fight terrorism without giving up our liberty.
+- We could try freedom for a while. We had it for a long time. That's where you sell something, and I agree to buy it because I like it. That is how we operate in most of rest of the marketplace other than health care.
+- I think a policy of isolationism toward Cuba is misplaced and hasn't worked.
+- I think that most manufacturing and mining should be under the purview of state authorities.
+- What I've always said is that I'm opposed to institutional racism, and I would've, had I've been alive at the time, I think, had the courage to march with Martin Luther King to overturn institutional racism, and I see no place in our society for institutional racism.
+- As a doctor, I will take it and make it my mission to heal the nation, reverse the course of Obamacare, and repeal every last bit of it.
+- I believe that in the historic and religious nature, marriage is between a man and a woman.
+- A Tea Party tidal wave is coming.
+- My budget is similar to the Penny Plan, which cuts 1 percent a year for five or six years and balances the budget.
+- We need to notice and be aware of the injustices embedded in our criminal system.
+- Just because a couple people on the Supreme Court declare something to be 'constitutional' does not make it so.
+- We should not have the U.S. government buying stock in American industries - the financial industry or any other industry.
+- American inventiveness and the desire to build developed because we were guaranteed the right to own our success.
+- The Palestinian Authority gets money from the American taxpayer.
+- I support the Civil Rights Act and the Voting Rights Act.
+- How will we defend ourselves if the Patriot Act expires? Well, perhaps we could just rely on the Constitution and demonstrate exactly how traditional judicial warrants can gather all the info we need - and how bulk collection really hasn't worked.
+- The Republican Party's history is rich and chock full of emancipation and black history.
+- For too long, we've attached some mythic notion to government solutions, and yet, 40 years after we began the War on Poverty, poverty still abounds.
+- Under Obamacare, it virtually is impossible to find out the price of anything. That's not the way to make health care affordable.
+- In some communities, I show up, and they say, 'Well, we haven't seen our Democrat congressman in 10 years.'
+- Everybody is looking for an election where they can do something and participate.
+- The real debate is, when does life begin? When life begins, it deserves protection.
+- Many Americans who have suffered during a recession have had to cut their spending 1 percent, and they didn't like doing it, but they were able to do it to get their family's finances back in order.
+- I don't think I've ever used the word 'gay rights,' because I don't really believe in rights based on your behavior.
+- I think the key to getting rid of illegal immigration, no matter where its coming from, is that you need to have a good legal apparatus for immigration.
+- Washington has incentivized the militarization of local police precincts by using federal dollars to help municipal governments build what are essentially small armies - where police departments compete to acquire military gear that goes far beyond what most of Americans think of as law enforcement.
+- I think my dad has helped me tremendously.
+- If you refuse to acknowledge that there is any waste that can be culled from the military budget, you are a big-government conservative, and you cannot lay claim to balancing the budget.
+- I've gone to Detroit. I've been to Ferguson; I've been to Baltimore, because I want our party to be bigger, better and bolder, and I'm the only one that leads Hillary Clinton in five states that were won by President Obama. I'm a different kind of Republican.
+- Judges can determine fair justice far better than any inane federal mandate.
+- To defend our country we need to gather intelligence on the enemy, but when the intelligence lies to Congress, how are we to trust them? The phone records of law abiding citizens are none of their damn business.
+- The Supreme Court must strike down the government's illegal spying program as a violation of our Fourth Amendment right to privacy.
+- If I had been told to get out of the street as a teenager, there would have been a distinct possibility that I might have smarted off. But, I wouldn't have expected to be shot.
+- Republicans traditionally say, 'oh, we'll cut domestic spending, but we won't touch the military.' The liberals - the ones who are good - will say, 'oh, we'll cut the military, but we won't cut domestic spending.'
+- The state doesn't own your children. Parents own the children.
+- Evil can and is overcome every minute of every day.
+- We've gone too far in thinking we can re-create an American democratic paradise in the Middle East.
+- As long as I sit at Henry Clay's desk, I will remember his lifelong desire to forge agreement, but I will also keep close to my heart the principled stand of his cousin, Cassius Clay, who refused to forsake the life of any human, simply to find agreement.
+- 'Peace through Strength' only works if you have and show strength.
+- You can't solve a dignity problem with military force.
+- What I say is, national defense is the most important thing we do in Washington, but there's still waste in the military budget.
+- I read all of Ayn Rand's novels when I was 17.
+- The West is in for a long, irregular confrontation - not with terrorism, which is simply a tactic, but with radical Islam.
+- Foreign aid is not something the vast majority of Americans support, but definitely not conservatives.
+- I've had an interest in politics since I was a little kid.
+- I'm proud of my decade-long fight to have all ophthalmologists re-certify, regardless of age.
+- We live in a democracy, and people are free to sometimes choose the wrong leader.
+- The power to tax and spend is restricted by the enumerated powers.
+- The world does not have an Islam problem; the world has a dignity problem.
+- It is time for Hillary Clinton to permanently retire.
+- America is a world leader, but we should not be its policeman or ATM.
+- If U.S. occupation is a primary recruitment tool and what inspires Islamic terrorists, are many of our current efforts overseas actually fighting terrorism and diminishing the threat?
+- I believe the answers to most problems that confront us around the world can and should be approached by engaging both friend and foe in dialogue. No, I don't naively think that dialogue always works, but I believe we should avoid the rigidity of saying that dialogue never works.
+- The government has a history of not treating people fairly, from the internment of Japanese Americans in World War II to African-Americans in the Civil Rights era.
+- I need to be very careful about going on certain networks that seem to have a bias.
+- A free society will abide unofficial, private discrimination, even when that means allowing hate-filled groups to exclude people based on the color of their skin.
+- Really, having a gun registry and having to rely on the government to keep it secret, the government isn't so great at keeping confidences.
+- Putin must be punished for violating the Budapest Memorandum, and Russia must learn that the U.S. will isolate it if it insists on acting like a rogue nation.
+- I, for one, will remain constantly vigilant of a government that admits its transgressions of liberty only when they are caught lying.
+- Do you hate poor people or do you just hate poor people with jobs?
+- I have a biology degree, okay?
+- My first choice had always been my father. He's still my first pick. Now that the nominating process is over, tonight, I'm happy to announce that I'm going to be supporting Governor Romney.
+- You can't have it both ways. You can't tell me that you're taxed enough already, and that you want constitutional government and then in the next breath say, 'Bring me home some bacon.' The pig has been picked clean.
+- I'm not against the NSA. I'm not against spying; I'm not against looking at phone records.
+- In 1997, I, along with 200 other young ophthalmologists formed the National Board of Ophthalmology to protest the American Board of Ophthalmology's decision to grandfather in the older ophthalmologists and not require them to recertify.
+- Black unemployment is twice white unemployment and has been for decade after decade.
+- I think a lot of things could be handled locally.
+- My dad was one of only four congressmen who supported Reagan.
+- Every debate in Washington is about how much to increase spending - a little or a lot.
+- I don't want my marriage or my guns registered in Washington. And if people have an opinion, it's a religious opinion that is heartly felt, obviously they should be allowed to practice that, and no government should interfere with them.
+- When you look at statistics for the white community alone, you see that we've become two separate worlds in which the successful are educated and wait to have children until they are married, and those in poverty are primarily those without higher education and with children outside of marriage.
+- It seems the most common thing for serial interventionists to do these days is to lob the term 'isolationist' at anyone who does not agree with their latest folly, and then set up a straw man about those people not wanting to be involved in the world.
+- It is illegal for the CIA to spy on Americans and an affront to our Republic to spy on the Senate.
+- My tax cut would cut hundreds of billions of dollars. So to do it, you have to be willing to cut spending, too. But if you were to cut hundreds of billions of dollars in taxes, that money's left in communities.
+- The Republican promise is for policies that create economic growth. Republicans believe lower taxes, less regulation, balanced budgets, a solvent Social Security and Medicare will stimulate economic growth.
+- Marriage has always been a state and local issue.
+- In the search for culpability for the tragedy in Ferguson, I mostly blame politicians.
+- What America needs is not just another politician or more promises. What America needs is a revival.
+- I'm not someone who's sort of still trying to figure out what I believe in.
+- We should not have drug laws or a court system that disproportionately punishes the black community.
+- Conservatives have always wanted border security before we had immigration reform.
+- I think what happened during the Great Depression was that African Americans understood that Republicans championed citizenship and voting rights but they became impatient for economic emancipation.
+- I think if you're forthright and answer a lot of questions, sometimes you'll get people who won't let you answer the questions, and that makes for a difficult answer.
+- Even under Obamacare, there are people that get subsidized insurance. But that has a $6,000 deductible. What do you think they do with that $6,000 deductible? They are still a nonpayer.
+- Was anybody else bothered by the sight of mine-resistant vehicles and guns pointed at unarmed men in Ferguson?
+- Because Republicans believe that the federal government is limited in its function-some have concluded that Republicans are somehow inherently insensitive to minority rights. Nothing could be further from the truth.
+- The realization is dawning that government doesn't work. In Silicon Valley, they already get this. And they are bright enough to be asking what we can do to solve problems.
+- What America needs is not Robin Hood but Adam Smith.
+- Nobody should be sent indefinitely into detention; everybody should have their day in court.
+- Let's means-test benefits - let's means-test Social Security and Medicare and make the rich pay more for these benefits.
+- Throughout the 1970s, '80s and '90s, federal mandatory minimum laws were implemented that forced judges to deliver sentences far lengthier than they would have if allowed to use their own discretion. The result has been decades of damage, particularly to young people.
+- I'm a different kind of Republican. I've introduced a five-year balanced budget. I've introduced the largest tax cut in our history. I stood for ten and a half hours on the Senate floor to defend your right to be left alone.
+- General Hayden knows full well the powerful and invasive nature of metadata.
+- The NSA should keep close watch on suspected terrorists to keep our country safe - through programs permitting due process, the naming of a suspect, and oversight by an accountable court.
+- I'm not in favor of any discrimination of any form.
+- The defeat of Obamacare will come from the realization that the very idea of a government-administered health care system is absurd... and by people opting out of the system and developing workarounds.
+- Every child in every neighborhood, of every color, class and background, deserves a school that will help them succeed.
+- To understand how Republicans lost the African American vote, we must first understand how we won the African American vote.
+- The Life at Conception Act legislatively declares what most Americans believe and what science has long known - that human life begins at the moment of conception and, therefore, is entitled to legal protection from that point forward.
+- Just because a majority of the Supreme Court declares something to be 'constitutional' does not make it so.
+- People don't like to vote against something that's so incredibly popular.
+- We still need to be conscious of the fact that Russia has intercontinental ballistic missiles.
+- The Stamp Act was a direct tax imposed on the colonies by King George III. This act inevitably led to the American Revolution. Just as the Stamp Act did in 1765, Obamacare should act as a wake-up call. Chief Justice Roberts provides us with a similar call to action.
+- Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn't allow the predictability that business needs.
+- In America, as opposed to the old country, success was based on merit.
+- If you have 'too big to fail' for cities or for states, and they believe they'll be bailed out, they'll continue to make unwise decisions.
+- Michael Brown's death and the suffocation of Eric Garner in New York for selling untaxed cigarettes indicate something is wrong with criminal justice in America.
+- There is a legitimate role for the police to keep the peace, but there should be a difference between a police response and a military response.
+- The history of African-American repression in this country rose from government-sanctioned racism. Jim Crow laws were a product of bigoted state and local governments.
+- I don't plan on being bashful.
+- My great-grandfather, like many, came to this country in search of the American dream.
+- Appalachia, my state, eastern Kentucky, has a large amount of poverty.
+- I have a question, a question for the president: Do you hate all rich people, or just rich people who don't contribute to your campaign? Do you hate poor people or do you just hate poor people with jobs?
+- Even before ObamaCare, the government took care of the bottom 5 or 10 percent of the public who were on Medicaid.
+- William Lloyd Garrison was up there with Frederick Douglass being thrown off trains and going through what happened in the 1960s in 1840 in Boston.
+- The United States has the highest incarceration rate in the world. Many of those people deserve to be in prison; however, some of them do not.
+- My grandfather would live to see his children become doctors and ministers, accounts and professors.
+- In a free society, we will tolerate boorish people, who have abhorrent behavior, but if we're civilized people, we publicly criticize that, and don't belong to those groups or don't associate with those people.
+- In 1979, the Supreme Court ruled 5-3 in Smith v. Maryland that a few days' worth of phone records for a single individual were not protected by the Fourth Amendment. The NSA today, though, collects hundreds of millions of phone records from hundreds of millions of Americans without an individualized warrant.
+- Big and oppressive government has long been the enemy of freedom, something black Americans know all too well.
+- I think every day we look at the mess of the chaos of the civil war in Iraq, I think every day people become more and more convinced that the war was a mistake. I think we have to learn from the mistakes of our past.
+- It isn't hard to find injustice around us, but we must not let injustice smear the good deeds that do occur everyday.
+- Out of your surplus, you can help your allies, and Israel is a great ally. And this is no particular animus of Israel, but what I will say, and I will say over and over again, we cannot give away money we don't have.
+- Some Libertarians argue that Western occupation fans the flames of radical Islam; I agree. But I don't agree that, absent Western occupation, that radical Islam 'goes quietly into that good night.'
+- As president, I would promote a Fair and Flat Tax plan, known as the 'EZ Tax.' My tax plan would be the largest tax cut in American history, reforming individual, business, and worker taxes.
+- The government can't even do a good job of something as simple as running the Post Office. How can it be expected to do a good job with something really important, like educating our children?
+- One of the reasons I come to California is that the Republican party seems to have given up on California, and my message to those in California is that we're going to compete nationally as a party, and that includes California.
+- I grew up in a family that despised not only communism but collectivism, socialism, and any 'ism' that deprived the individual of his or her natural rights.
+- Some people say I chastise the Republican Party too much.
+- Does the owner of the restaurant own his restaurant? Or does the government own his restaurant?
+- Let's overwhelm the Castro regime with iPhones, iPads, American cars and American ingenuity.
+- I support engagement, diplomacy, and trade with Cuba, China, Vietnam, and many countries with less than stellar human rights records, because I believe that once enslaved people taste freedom and see the products of capitalism, they will become hungry for freedom themselves.
+- I think that ISIS is a threat to our embassy, to our consulate, as well as potentially to the American people.
+- The most important thing you will do is yet to be seen. For me, I found my important thing to do when I learned to do surgery on the eye, when I learned to restore a person's vision.
+- I call myself a constitutional conservative.
+- The Constitution's pretty clear. The Federalist papers are pretty clear... They very specifically delegated the power to declare war to Congress. They wanted this to be a congressional decision; they did not want war to be engaged in by the executive without approval of Congress.
+- I have heard of many tragic cases of walking, talking, normal children who wound up with profound mental disorders after vaccines.
+- The Ukraine has a long history of either being part of the Soviet Union or within that sphere.
+- No one politician should be allowed to judge the guilt, to charge an individual, to judge the guilt of an individual and to execute an individual.
+- You don't set up an implicit promise from the federal government that everybody is getting bailed out.
+- I believe that most police are conscientious and want only to provide safety for us.
+- If you go to prison, your child support adds up.
+- I think young people of all races are interested in justice; maybe not so much taxes and regulations, but they're interested in justice and the right to privacy on the Internet.
+- Freedom is popular. Bring it on.
+- I don't think you should have everybody's information from their bank. There should be some process: accusations and proof that you've committed a crime.
+- The Democrats promised equalizing outcomes through unlimited federal assistance while Republicans offered something that seemed less tangible - the promise of equalizing opportunity through free markets.
+- The Hepatitis B vaccine is now given to newborns. We sometimes give five and six vaccines all at one time.
+- I tell people I won't vote to go to war unless I'm ready to go or send my kids.
+- I want to collect more records from terrorists, but less records from innocent Americans. The Fourth Amendment was what we fought the Revolution over! John Adams said it was the spark that led to our war for independence, and I'm proud of standing for the Bill of Rights, and I will continue to stand for the Bill of Rights.
+- We don't need bigger government. We need to shrink the size of government.
+- I think really that you shouldn't run as a conservative if you're not.

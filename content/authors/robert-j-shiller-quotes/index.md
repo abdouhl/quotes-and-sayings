@@ -1,0 +1,61 @@
++++
+author = "Robert J. Shiller"
+title = "Robert J. Shiller Quotes"
+quotes_len = "55"
+description = "the best 55 Robert J. Shiller Quotes"
++++
+- If I was counselling an individual, and my purpose was to help that individual, the most important thing would be that you should save more. Because don't expect that your retirement will follow those trajectories that some advisers are telling you.
+- In a perfect world, people don't have to move to another country to get a higher wage. Ultimately, they need only be able to participate in producing output that is sold internationally.
+- Any time you have change, it costs somebody. Somebody is a loser.
+- In a bubble, eventually people start saying, 'Wait a minute... these prices are way too high! What is anyone buying anymore? What could they possibly be thinking?' And then there's a correction and a bursting.
+- Fear causes individuals to restrain their spending and firms to withhold investments; as a result, the economy weakens, confirming their fear and leading them to restrain spending further. The downturn deepens, and a vicious circle of despair takes hold.
+- All taxes, except a 'lump-sum tax,' introduce distortions in the economy. But no government can impose a lump-sum tax - the same amount for everyone regardless of their income or expenditures - because it would fall heaviest on those with less income, and it would grind the poor, who might be unable to pay it at all.
+- When I see the Trump supporters on television explaining themselves, I don't get a feeling of supreme confidence. They've created a revolution, and now maybe they're a little scared by it.
+- People might just decide, 'Yeah, I'll diversify my portfolio. I'll live in a rental.' That is a very sensible thing for many people to do.
+- Trump has never been clear and consistent about what he will do as president.
+- We should not be focusing on quick solutions. The really important concern for policymakers everywhere is to prevent disasters - that is, the outlier events that matter the most.
+- What would be better, that people build big houses thinking that they'll make capital gains or that they send their children to medical school and they do research on curing diseases? When you put it that way, it seems obvious. There has developed a sense of personal worth that's tied to one's house.
+- Diversify, because that helps reduce risk. And you can diversify outside the United States. Some people would never invest in Europe - I think that's a mistake.
+- We don't know the probabilities of future events. Still, you have to take action, and so you do it on gut feeling. That's the world we live in.
+- Some of the best theorizing comes after collecting data because then you become aware of another reality.
+- We judge economics by what it can produce. As such, economics is rather more like engineering than physics: more practical than spiritual.
+- A lot of people aren't saving enough. And incidentally, people are living longer now, and health care is improving. You might end up retired for 30 years - people are not really preparing for that.
+- Speculative markets have always been vulnerable to illusion. But seeing the folly in markets provides no clear advantage in forecasting outcomes, because changes in the force of the illusion are difficult to predict.
+- I think we do need to try to not just rely on the central bank to, in its wisdom, adjust interest rates, but allow for people to avoid being exposed to inflation risk.
+- Oppression thrives on distance - on not actually meeting or seeing the oppressed.
+- This is an anxiety driven world - the whole world is driven by anxiety. It is anxiety about the aftermath of the global financial crisis; it's anxiety about inequality and about computers replacing jobs.
+- As far as I can find, almost no one in the profession - not even luminaries like John Maynard Keynes, Friedrich Hayek, or Irving Fisher - made public statements anticipating the Great Depression.
+- Money management has been a profession involving a lot of fakery - people saying they can beat the market, and they really can't.
+- Since the global financial crisis and recession of 2007-2009, criticism of the economics profession has intensified. The failure of all but a few professional economists to forecast the episode - the aftereffects of which still linger - has led many to question whether the economics profession contributes anything significant to society.
+- People aren't as impressed by homes anymore after they saw how they collapsed in price with the financial crisis.
+- The desperately poor may accept handouts, because they feel they have to. For those who consider themselves at least middle class, however, anything that smacks of a handout is not desired. Instead, they want their economic power back.
+- Hesitation is often like procrastination. One may have vague doubts and feel a need to mull things over; meanwhile, other issues intrude on thought, and no decision is taken. Ask people why they procrastinate, and you probably won't get a crisp answer.
+- If we wait until income inequality is much more severe, we will have a whole class of new superrich who will probably feel entitled to their wealth and will have the means to defend their interest. That's already gone far enough. We shouldn't let it become more extreme.
+- Even today, I am easily distracted by reading material and will pick up articles on virtually any factual material if I have the time.
+- The problem is that once we focus on economic policy, much that is not science comes into play. Politics becomes involved, and political posturing is amply rewarded by public attention.
+- Those on the downside of rising economic inequality generally do not want government policies that look like handouts. They typically do not want the government to make the tax system more progressive, to impose punishing taxes on the rich, in order to give the money to them. Redistribution feels demeaning. It feels like being labeled a failure.
+- One should have a wide variety of assets in one's portfolio. And oil, by the way, is a particularly important asset to have in one's portfolio because we need it, and the economy thrives on it.
+- When valuation confidence falls, it means that stock markets are perceived as overpriced.
+- As a child, I was fascinated by any branch of physical or biological science. Even today, I find great excitement in discovering the complexity and variability of the world we live in, getting a glimpse into the deeper reality that we mostly ignore in our everyday human activities.
+- Trump does magic. Maybe it will be black magic sometime, but he's an amazing phenomenon.
+- Finance is not merely about making money. It's about achieving our deep goals and protecting the fruits of our labor. It's about stewardship and, therefore, about achieving the good society.
+- There's so much disagreement about investing, and it's because nobody really knows.
+- Yes, horoscopes still persist in popular newspapers, but they are there only for the severely scientifically challenged, or for entertainment; the idea that the stars determine our fate has lost all intellectual currency.
+- That's the world we live in: when it comes to economics, people have emotions; it's not like chemistry or physics.
+- Manufacturers of food try to get the optimal ratio to tap into your impulsivity. They don't care about your health.
+- I think that a lot of people in all walks of life have the impression, of course, that, 'I specialize in something. I can't - I don't have the time to read other things. I'll just go to pure entertainment when I'm relaxing, and then I'll come back to my pure specialty.' That produces - that attitude produces idiot savants, unfortunately.
+- Trump's victory clearly appears to stem from a sense of economic powerlessness, or a fear of losing power, among his supporters. To them, his simple slogan, 'Make America great again,' sounds like 'Make You great again': economic power will be given to the multitudes without taking anything away from the already successful.
+- Somehow, talking to young students brings you back to reality - it should, anyway.
+- My very first publication was an estimator - this was a statistical procedure - a kind of invention. My father got a patent and started a business; it wasn't successful, but maybe I have some of him in me.
+- The future is always coming up with surprises for us, and the best way to insulate yourself from these surprises is to diversify.
+- Housing traditionally is not viewed as a great investment. It takes maintenance; it depreciates. It goes out of style. All of those are problems. And there's technical progress in housing. So, new ones are better. So, why was it considered an investment? That was a fad.
+- I often tend to think that things are not what they seem.
+- In my first few years of elementary school at the Edison School in Detroit, I did poorly. I remember worrying that I might fail the second grade and be held back.
+- A moderate tax on robots, even a temporary tax that merely slows the adoption of disruptive technology, seems a natural component of a policy to address rising inequality. Revenue could be targeted toward wage insurance, to help people replaced by new technology make the transition to a different career.
+- Critics of 'economic sciences' sometimes refer to the development of a 'pseudoscience' of economics, arguing that it uses the trappings of science, like dense mathematics, but only for show.
+- I didn't vote for Trump. So we've got him. Let's hope for the best. He might do something good.
+- People who stay unemployed for a long time start to look like damaged goods, and they don't get such good offers. Also, they're not learning anything. Most learning is on-the-job learning.
+- Fifty years ago or a hundred years ago, generally, most people would buy a house the way you buy a car. When you buy a car, do you think, 'I better buy this year rather than next year because car prices might go up?'
+- I want to know diverse facts about such things as galaxies or molecules or proteins or insect species. I have an impulse to want to know the little details, which are usually of no significance to non-specialists. I own a dissection microscope, and if there is an insect in the house, I sometimes catch it and look at it under the microscope.
+- This is the paradox of thrift: belt-tightening causes people to lose their jobs, because other people are not buying what they produce, so their debt burden rises rather than falls.
+- One thing I've noticed about history - you can search on newspapers going back hundreds of years, search for 'economic forecast,' you don't find it. It would be very rare to find it.

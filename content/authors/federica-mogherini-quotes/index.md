@@ -1,0 +1,70 @@
++++
+author = "Federica Mogherini"
+title = "Federica Mogherini Quotes"
+quotes_len = "64"
+description = "the best 64 Federica Mogherini Quotes"
++++
+- We need a Palestinian state - that is the ultimate goal, and this is the position of all the European Union.
+- An alliance of civilisations can be our most powerful weapon in the fight against terror.
+- Too many times, the international community has not prepared the post-conflict period in time.
+- There is nothing more worrisome to ISIS than cooperation between 'the West' and the Muslim world, for it defies the narrative of a clash of civilisations the group is trying to revive.
+- This can sound as something naive. But if we are together in this union, it's because we choose to be one in many things. That's what makes the European Union experience so challenging and also a model. Why did we do this choice? Because we see that we share a common interest and common values.
+- A free trade agreement can be a win-win for E.U. and India.
+- My passion was reading newspapers - and I became curious, in particular, about Islam and the Arab world.
+- Maybe 'America first' means also that you have to deal with America first.
+- The effect of sanctions on the Russian economy are clear to everybody, first to the Russians and to the Russian leadership, and the surroundings of the Russian leadership, the circle that is close to the Russian political leadership.
+- In international relations, you don't base your work on hope.
+- Moving from Rome to Brussels was hard.
+- The European Union and its member states continue and will continue, as the nuclear deal is implemented, to have open channels with Iran.
+- No country can become an E.U. member state if it introduces the death penalty.
+- Jerusalem is not just a beautiful city: the challenge is to show that Jerusalem can be shared in peace and respect.
+- In a changing global landscape, Europe will be more and more an indispensible power.
+- Peace between Israel and Palestine is a top priority for the European Union, and it will remain a top priority in our political agenda.
+- Internal security implies also an external dimension, a defence capacity.
+- There is a need for the European Union to use all potential we have on defense cooperation.
+- As long as a member state is a member state, there are no negotiations bilaterally on any trade agreement with third parties.
+- Justice is one of the core elements towards reconciliation and sustainable peace.
+- The European way is also the United Nations' way. And we believe in the U.N. because we believe in the same principles, in the same values, and our communities are built upon the same fundamental ideals.
+- Each new generation needs to commit again to the foundations of our peaceful coexistence.
+- Anti-Semitism has not disappeared, and European Jews have too often come under attack.
+- Too often, when Europeans talked of trans-Atlantic ties, we focused on the North Atlantic only.
+- There is, and there will be, an increasing demand for a principled global security provider, for a superpower that believes in multilateralism and cooperation.
+- A stronger E.U. of defence makes NATO stronger.
+- Our interests are indeed common European interests, and the only way to serve them is by common means. That is why all Europeans, and all E.U. member states, have a collective responsibility to strengthen our Union.
+- A transition, by definition, means you start in one place and finish in another.
+- There are trends in our societies... that can lead to some political decisions in America and in Europe that can give some ground to the radicalization discourse.
+- As it happens in relationships that are open and frank and based on mutual respect, you say things as you think them, and this doesn't mean that you don't work together in a constructive way.
+- The European Union will continue to fully support multilateral global governance based on international law, human rights, and strong international institutions.
+- We do not interfere in U.S. politics... and Europeans expect that America does not interfere in European politics.
+- We want to engage in ever closer synergy with Latin American and Caribbean partners.
+- The European Union will never see America, or an American president, as a risk.
+- Without justice, the most heinous crimes go unpunished; victims are unable to obtain redress, and peace remains an elusive goal, since impunity generates more hatred, leading to acts of revenge and more suffering.
+- I think Jerusalem can be and should be the capital of two states.
+- Our policy on the annexation of Crimea, which we consider illegal, will stay.
+- I'd be happy if, during my mandate, the Palestinian state existed.
+- We need to restart political processes to end wars.
+- The European Union remains a staunch supporter of the ICC and is committed to full co-operation on the prevention of serious crimes falling under the jurisdiction of the Court.
+- I think that it is becoming more and more clear that the European Union is an indispensable partner in some fields.
+- The E.U. needs a strategy that marries a shared vision to common action.
+- Our expectation is that the Russian Federation does its part to protect its own citizens in full respect of human rights principles.
+- Global issues require common responses: Only together we can create the conditions to defeat Daesh and al Qaeda, block channels for terrorist financing, tackle foreign terrorist fighters.
+- Indeed, our British friends have decided to leave us - which is very sad for all of us - but life goes on, and the European Union as well goes on.
+- There are no regions in the world as reciprocally integrated as Latin America and the Caribbean, and Europe.
+- The European vision is the United Nations' vision.
+- I will be very involved in Ukraine.
+- A relatively young woman is perceived as younger than a relatively young man.
+- The European Union is here to stay.
+- We Europeans have a long tradition of cultural and economic relationship with Iran.
+- We need to have Turkey respect democracy, human rights, and fundamental freedoms.
+- The E.U. can deliver on its citizens' needs and make its partnerships work only if we all act together - E.U. institutions and national governments, at all levels, united.
+- E.U.-U.S. ties are deeper than any change in politics.
+- There have always been different opinions on some elements of our sanction policy. It will probably stay that way... What is important is that we keep this unity and decide all together.
+- We will stand by the Paris climate deal.
+- I'm convinced the fall of Aleppo will not end the war.
+- Europe, Latin America, and the Caribbean share a cultural heritage based on centuries of common history. And what is more, we share the same values and world view. We believe in a world order that is based on cooperation, on regionalism, on multilateralism.
+- In the wake of the United Kingdom's vote to 'Brexit' the E.U., we Europeans will indeed have to rethink how our Union works; but we know very well what we need to work for. We know what our principles, interests, and priorities are.
+- It's not diversity that is going to destroy us, but fear of diversity.
+- It's not for me or another European to speak about domestic political choices or decisions in the U.S.
+- The E.U. intends to be one of the biggest humanitarian donors on the Syrian crisis.
+- We have to be serious and consistent if we believe the European Union makes sense. I believe it makes sense.
+- It is not only the people of Gaza that can't afford having a fourth war - all the world cannot afford this.

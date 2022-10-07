@@ -1,0 +1,48 @@
++++
+author = "Bob Sapp"
+title = "Bob Sapp Quotes"
+quotes_len = "42"
+description = "the best 42 Bob Sapp Quotes"
++++
+- I am No. 1 in every media category.
+- I've suffered many, many ups and downs in my life. And so does everyone.
+- I've been training in all sorts of fighting.
+- You see the comments made about me on the Internet, and the Internet is a negatively-charged machine when it comes down to talking fighters.
+- I'd love to just do movies and play with my cat.
+- I will receive no damage to my body that will be long-lasting for a small, insignificant amount of cash.
+- I pinch myself everyday. Japan is a dream come true. The best food, the best people, a real paradise.
+- I'm ready to do Hollywood movies.
+- Every card they put The Beast on, the fans come, and it allows the other fighters an opportunity to make some money.
+- I'm usually sick after a fight. But then the brain swelling goes down, and I'm just hungry as hell.
+- I'm enjoying every last thing fighting has brought me.
+- You name it, I've done it. I've gotten to live so many people's dreams. People dream of playing in the NFL, of having a hit CD, of being in Hollywood movies, or being a pro wrestler, or playing college football. They dream of being able to travel the world. I've done all that.
+- If I want to go to a dance club, I have to rent out the whole club.
+- People just give me things.
+- You look at keyboard warriors who just want to get on and talk bad about the people in the sport, and the problem is that everyone who's talking bad, they wouldn't even be able to fill a stadium with three thousand people.
+- I am a pioneer of this sport. I currently hold every record for this MMA. That is correct? I have more commercials, more movies, more endorsements, and more viewerships than anyone has.
+- I've been training mixed martial arts and kickboxing so I think that will give me better overall conditioning to become a world champion.
+- You get a million-dollar contract, you can live off that the rest of your life.
+- I'm getting TV coverage just about everywhere as they compare the 'Bob Sapp phenomenon' to the biggest thing from Pokemon to Godzilla.
+- I never had an interest in fighting. Originally, because I had no experience, I was going to come to Japan to be a pro wrestler and learn fighting along the way.
+- We determine success in the fight business by revenue.
+- I'm getting paid well underneath what a professional boxer would, or Manny Pacquiao. So in no means ever will I sustain long-lasting damage for a small paycheck. Never will that happen.
+- Following the Road FC chief Jung Moon-hong's goal to increase the popularity of this sport, I will play my part to popularize MMA as well.
+- At Rizin, you can actually be a pro fighter. You can step it up. You can blast, you know. You'll be alright.
+- If you're very good, that can sometimes actually hurt you. How? Well, the promoter might say, man, he's going to come over here and beat our champion and will raise his price or will never come back and defend the belt.
+- A lot of wrestlers get guys to the ground in a mixed martial arts fight and think that's it. But no, we gotta get up eventually and throw some blows.
+- I don't enjoy hitting and hurting anyone at all, I'm not a madman.
+- My power is a characteristic of my skill, no different than someone who's smaller and has speed as their skill.
+- I've been working on my ground skills. Putting in there upwards of 3 to 6 hours a day dedicated to training. And of course part of it is groundwork, and being that I am a striker, ground work for me is more for positioning and striking on the ground.
+- Everything of mine sells. An envelope with my name on it sells.
+- People kept calling me a freak and a specimen. I put it all together and came up with The Beast.
+- At the end of the day, I still have bills to pay and taxes to pay.
+- I did comedy shows and the only thing beating out my fights were my comedy shows. The entertainment I was providing was ridiculous. They had me doing absolutely everything and anything.
+- In every sport you have to have a Plan B. For me, Plan B is already set. It's to do everything from voice-overs for cartoons to action and adventure movies, not only in the United States but here in Japan.
+- No one can write down all the crazy things that have happened for me, and coming back to work for the NFL is the most ironic part of all.
+- Japan even has beds that hold me.
+- The fans like me more than just as a fighter. I really enjoy it.
+- If you look at some of my fights, they're back to back. One will be on Saturday, the other on Sunday. Sometimes they're a week apart.
+- My schedule fills up so ridiculously hard that you see me fighting and I take a loss or you see me fighting and I look terrible, but you have to go back and if you could see the schedule that I'm on you'd say, this is crazy. There's nobody who should be fighting on this kind of schedule.
+- I'm living the American dream, but I'm in Japan.
+- My world is so surreal.
+- I'm a sex symbol.

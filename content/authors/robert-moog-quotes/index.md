@@ -1,0 +1,25 @@
++++
+author = "Robert Moog"
+title = "Robert Moog Quotes"
+quotes_len = "19"
+description = "the best 19 Robert Moog Quotes"
++++
+- I'm finishing building a house and setting up a shop to build custom electronical musical instruments.
+- Back in the '40s and early '50s, building simple electronic projects was a popular hobby of many people. Back then, you could buy, you know, a few parts and - with tubes and build something on your kitchen table, and it would actually work.
+- Everything has some consciousness, and we tap into that. It is about energy at its most basic level.
+- There are confirmed stories of people who can break instruments and cause them to fail by walking in a room. I'm the opposite - I can walk into a room and something will work better than it is supposed to.
+- I'm an engineer. I see myself as a toolmaker and the musicians are my customers... They use my tools.
+- I had been building electronic musical instruments since I was a kid.
+- My training as an engineer has enabled me to design the stuff, but the reason I do it is not to make music but for the opportunity to work with musicians.
+- Other kids went out and beat each other up or played baseball, and I built electronics.
+- One always has to remember these days where the garbage pail is, because it's so easy to make sounds, and to put sounds together into something that appears to be music, but it's just as hard as it always was to make good music.
+- The point is that I don't design stuff for myself. I'm a toolmaker. I design things that other people want to use.
+- When a pianist sits down and does a virtuoso performance he is in a technical sense transmitting more information to a machine than any other human activity involving machinery allows.
+- I happen to think that computers are the most important thing to happen to musicians since the invention of cat-gut which was a long time ago.
+- The mini-Moog was conceived originally as a session musician's axe, something a guy could carry to the studio, do a gig and walk out.
+- To those of you who are wearing ties, I think my dad would appreciate it if you took them off.
+- My transition from scientist to entrepreneur? Some would say that I still haven't made that transition.
+- I was never worried that synthesizers would replace musicians. First of all, you have to be a musician in order to make music with a synthesizer.
+- What inspires me is not so much the music as the opportunity to interact with composers. I think that has driven everything I've done.
+- Leon Theremin's original designs are elegant, ingenious and effective. As electronics goes, the theremin is very simple. But there are so many subtleties hidden in the details of the design. It's like a great sonnet, or a painting, or a speech, that is perfectly done on more than one level.
+- By the time I got to building synthesizers, I had perhaps 20 years' experience building electronic musical instruments.

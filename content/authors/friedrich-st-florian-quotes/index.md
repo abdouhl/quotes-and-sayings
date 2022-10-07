@@ -1,0 +1,12 @@
++++
+author = "Friedrich St. Florian"
+title = "Friedrich St. Florian Quotes"
+quotes_len = "6"
+description = "the best 6 Friedrich St. Florian Quotes"
++++
+- I think it is fair to say that during World War II there was a high sense of purpose. The country had a very clear vision of its own standing, of its own morality. It was not an ambiguous time. Today, we live in a world that is highly ambiguous, very fractured, with many of the historical, traditional values in a state of collapse, really.
+- I remember saying that wars must not be glorified, but wars must be remembered.
+- The freedom to express yourself without fear - that perhaps is something we in the U.S. take for granted. It's almost inconceivable to think we would be afraid to express our opinions or thoughts, but that's not true for all parts of the world now, and certainly not before World War II.
+- I was born in an enemy country. Only in America can someone who came from that beginning do what I am doing. It would never happen in Germany or Japan.
+- I really feel that my life story is a continuation of the Great American Dream - the immigrant who comes to this country and is allowed to excel. How many other countries would let me do that?
+- The accounting of the sacrifice is, more than anything else, the attitude toward war memorials in our time.

@@ -1,0 +1,22 @@
++++
+author = "Brandon Lee"
+title = "Brandon Lee Quotes"
+quotes_len = "16"
+description = "the best 16 Brandon Lee Quotes"
++++
+- Action-adventure, that genre, only works for me if you can care about the characters. If the hero's not taking some kind of a journey, then there are no stakes - and no stakes, then you don't care if he lives or dies, wins or loses.
+- A large part of my life revolves around my dad. Sometimes, I even feel a strong sense of connection, something very tangible when I learn something new in the martial arts.
+- I always had a pretty good knack for raising hell.
+- I'd like to be able to show 'Rapid Fire' to my dad. I'm that proud of what we've accomplished within the framework of the action-adventure formula.
+- I've done my work and I'm happy with it... I respect my father very much, but I'm a very different person than he was.
+- God knows the times I have found myself in absurd situations.
+- I've wanted to follow my dad into acting for as long as I can remember. 'I've had a very serious round of dramatic training, and I like action films that take their characters seriously, so I figure I'm making it the best of both worlds if I try to bring some serious acting to a shoot-'em-up picture.
+- I don't want to be remembered as 'the son of Bruce Lee'.
+- Immortality is to live your life doing good things, and leaving your mark behind.
+- A fight can express things people might not be able to say with words.
+- Because we do not know when we will die, we get to think of life as an inexhaustible well. And yet everything happens only a certain number of times. And a very small number really.
+- For me, the martial arts is a search for something inside. It's not just a physical discipline.
+- I just happen to like the action-adventure movies. No law that says you can't work in all types of dramatic stuff.
+- You only have the burdens on you that you choose to put there.
+- All I can tell you is that you cannot make choices in your own career, either career choices or choices when you're actually working as an actor, based on trying to downplay or live up to a comparison with somebody else. You just can't do that. You have to do your own work based on your own gut, your own instincts, and your own life.
+- If you've ever found yourself pushed to the limits of your tolerance... you find yourself doing some things that, from the outside, can be seen as quite insane.

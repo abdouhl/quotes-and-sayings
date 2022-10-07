@@ -1,0 +1,44 @@
++++
+author = "Fleur East"
+title = "Fleur East Quotes"
+quotes_len = "38"
+description = "the best 38 Fleur East Quotes"
++++
+- Before going on 'X Factor' again, I felt like I'd tried everything else.
+- Even writing verses from my first album, there were songs that I didn't use because I just felt that they weren't really for me. But I think that happens naturally when you write songs. You're in a different mood in every session. There's so many songs out there that could potentially be used by other artists.
+- I would never totally deny myself any specific type of food.
+- My mum is black, my dad is white, and when I was a teenager, people would say, 'So what are you? Are you black? Or white? What are you more of?'
+- The attitude among the people I knew was, 'Fleur wants to be a singer' but it was never, 'Go for it. You can do it.' Everyone was cynical because we'd never seen anyone where we came from do it.
+- I'd perform in the mirror; I'd pretend to do interviews. I'd practice my autograph for hours.
+- There's so much pressure, but I think if you really love it, if you truly love it, and it's your passion to sing, then that's what will get through. I think if you don't have that, you'll realise quickly.
+- I've worked in a call centre and as a nightclub waitress. I served champagne to Rihanna.
+- My mum is from Ghana, and she used to play highlife music in the house, and my dad used to listen to music.
+- After my first video, I went out and had chicken noodle soup with my sister and manager. We were like, 'How rock n' roll are we? Celebrating the first video with chicken soup.'
+- Everyone's path is really different, and you just have to be in the right place at the right time. 'The X Factor' gave me that chance I needed, that platform.
+- I didn't grow up in a wealthy family at all. Being at home all day and watching movies, that was a luxury.
+- I can't ignore what I grew up listening to. My parents used to listen to Michael Jackson non-stop. They used to listen to Luther Vandross, Lionel Richie, Stevie Wonder.
+- My album is very uplifting and positive and fun. That was my mission - to get people up on their feet and escape the seriousness of life.
+- I used to just sit in the living room and make up songs on the keyboard.
+- I'd done an EP, and nothing came from that, and I didn't know where to go from there.
+- I'd love to write with some people from the U.K., like Ed Sheeran, Emeli Sande... there's a very long list.
+- Just before I auditioned for 'The X Factor,' there was nothing in my diary at all. I had no shows; nothing was happening. It was make-or-break time for me, and I had to consider doing another career altogether.
+- I feel like I'm quite versatile. I want to do lots of different styles.
+- 'The X Factor' was the final push I needed to have the presence and confidence on stage, which I didn't have before. It's a crash course in the music industry. If you can survive the show, you're ready for the industry.
+- I've always loved working out. When I was little, my dad used to make me and my sister do 10 press-ups every day before we brushed our teeth in the morning. It was like a boot camp! Then I did a lot of athletics at school and was a dancer.
+- Everyone assumes it is just 'Wendy who works at Tesco' who goes to audition for 'X Factor,' and then their lives are changed, wham, like that. Me, I am someone who has tried for years in the music industry.
+- I do body conditioning, spinning and yoga. On the treadmill, I'll do intervals of running flat and then on incline. I'll do that for an hour.
+- I'm a believer in things happening for a reason.
+- I used to shop in ASDA all the time. Every now and then I still go in to get a little salad for lunch.
+- Even before I auditioned for 'X Factor' the second time, I was doing a lot of dance music.
+- I put pressure on myself all the time. I felt it so much with 'Sax,' but I had to just let go and enjoy it.
+- I've been hyper-conscious about staying away from rubbish. I don't eat white bread, white rice or cereal unless it's porridge.
+- I've waited so long to get to this point, and I'm so happy to be making my first album. I want to be a performer and an entertainer.
+- I hated my big hair. I always wore it straight.
+- I normally hit the gym five times a week. I tend to do half an hour of cardio - on the treadmill or a spin class - then head for the weights. I do a lot of core work, obviously!
+- Traditionally with debut albums, labels insist on a face, so people know who you are.
+- I got to the point where I'd featured on songs; I'd done backing singing for major artists. I'd done all these shows, but it was always for other people.
+- I do loads of squats with weights. It's great for your bum and legs.
+- I used to hate performing in front of anybody, but I was forced to sing in front of family, at family gatherings. Then it slowly developed, and I started to love it.
+- I uplift people and see the good in a bad situation. The worst is I'm very critical of myself. If I do a performance, I watch it 100 times afterwards and pick it apart.
+- It's funny because the perception is that the typical 'X Factor' contestant is the person who's just working 9 to 5 and just decides to one day go and audition. So yeah, for me, it was a very different story.
+- I remember, one day, I just printed out about a hundred CVs, and I was running around London. I was going to modeling agencies, temping agencies, anything. I was so desperate.

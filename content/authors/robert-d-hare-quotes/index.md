@@ -1,0 +1,17 @@
++++
+author = "Robert D. Hare"
+title = "Robert D. Hare Quotes"
+quotes_len = "11"
+description = "the best 11 Robert D. Hare Quotes"
++++
+- Science cannot progress without reliable and accurate measurement of what it is you are trying to study. The key is measurement, simple as that.
+- Language and words for psychopaths are only word deep; there is no emotional colouring behind it. A psychopath can use a word like, 'I love you' but it means nothing more to him than if he said, 'I'll have a cup of coffee.'
+- I always said that if I wasn't studying psychopaths in prison, I'd do it at the stock exchange.
+- All the reading in the world cannot immunize you from the devastating effects of psychopaths. Everyone, including the experts, can be taken in, conned, and left bewildered by them. A good psychopath can play a concerto on anyone's heart strings.
+- Not all psychopaths are in prison - some are in the boardroom.
+- Psychopaths are social predators, and like all predators, they are looking for feeding grounds. Wherever you get power, prestige and money, you will find them.
+- Psychopaths view any social exchange as a 'feeding opportunity,' a contest or a test of wills in which there can be only one winner. Their motives are to manipulate and take, ruthlessly and without remorse.
+- Measurement and categorization are, of course, fundamental to any scientific endeavor, but the implications of being able to identify psychopaths are as much practical as academic. To put it simply, if we can't spot them, we are doomed to be their victims, both as individuals and as a society.
+- Many psychopaths describe the traditional treatment programmes as finishing schools where they hone their skills. Where they find out that there are lots of techniques they had not thought about before.
+- People tend to think of psychopaths as criminals. In fact, the majority of psychopaths aren't criminal.
+- There are certainly more people in the business world who would score high in the psychopathic dimension than in the general population. You'll find them in any organization where, by the nature of one's position, you have power and control over other people and the opportunity to get something.

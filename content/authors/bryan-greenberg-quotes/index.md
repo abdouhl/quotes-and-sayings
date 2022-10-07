@@ -1,0 +1,36 @@
++++
+author = "Bryan Greenberg"
+title = "Bryan Greenberg Quotes"
+quotes_len = "30"
+description = "the best 30 Bryan Greenberg Quotes"
++++
+- I got the acting bug really young, when I was around, like, 10. I pretty much just wanted to be Michael J. Fox. He was in 'Teen Wolf' - that was, like, the coolest role, and then he did 'Back to the Future,' and that was the coolest role.
+- I've always gone back and forth between acting and music, but for music I'm not trying to be a pop star - I just like to do it.
+- My dad is from Queens. I remember visiting as a kid. My grandparents grew up here. All the actors I respected were coming out of here. All the hip-hop I was listening to - Beastie Boys, A Tribe Called Quest, Biggie, Wu Tang - was coming out of New York. I'm just into it.
+- In everyday life, I'm pretty much T-shirt and jeans guy - a soft LnA shirt, cool APC jeans, Nikes or Jordans. If I'm going to an event I like to wear a suit, sometimes a three-piece. I'm into brands like Simon Spurr - I think he makes great suits - and Dior Homme.
+- I really hope people go out and support the indie filmmakers, because it's a dying breed and there's a lot of cool voices out there that need to be heard.
+- I have no interest in being famous for the sake of being famous.
+- I don't really talk too much about my personal life, but I'm happy.
+- I become a better actor after I step on a stage in front of, like, 500 people when it's just me, a microphone and my guitar. You don't get as nervous walking into a room in front of 3 or 4 people and to do a scene or to walk on a set. You gain confidence.
+- I'm pretty good with talking to girls if I have an introduction, but I'm the worst at trying to go pick up a girl. I'm really bad at breaking the ice. It's awkward!
+- I'm definitely a singer-songwriter. I'm somewhere in the vein between Elliott Smith and Jack Johnson.
+- I have to be honest, I don't pay as much attention to women's fashion, but being a sneaker head, I do like it when a girl can rock a nice pair of sneakers. Not every girl can do it. Every girl looks good in heels - that's a given - but not every girl can look good in fresh kicks.
+- I think when you get out of the big cities people get really freaked out when they see someone who is on TV, because they're not used to that.
+- I didn't go to L.A. because I wanted to move to California. I went to L.A. to work as an actor.
+- Seriously, my music really does help my acting, and, like, getting in and out of a character from a different lifestyle and writing a song about it. Likewise, my acting inspires the music because I can write a theme that I wouldn't necessarily approach at all in life.
+- If you talk about your personal life to the press, you can't be mad at them when they start talking about you, because you invited them in.
+- My fans are probably largely female; it wasn't until 'How to Make it in America' that guys started coming up to me: 'You're Bryan Greenberg.' 'Yeah... Don't hurt me. What do you want?' 'Love the show.'
+- If you just want instant cool and you don't want to pay a whole lot, just go to Urban Outfitters.
+- If a fan comes up and it is a middle-aged lady, it is probably from 'Prime'; if it is a younger girl, it is probably from when I guest-starred on 'One Tree Hill.' And if it is, like, a skateboard kid or a hipster kid, I can tell they are 'How to Make It' fans.
+- 'The Good Guy' is a totally differently-looking New York than 'How To Make It' portrays. 'The Good Guy' is all about Wall Street and that culture, which 'How To Make It' touches on, but 'How To Make It' also is downtown, Lower East Side loft parties, cool clubs, Brooklyn and that world.
+- As I get older, I find myself way more into sports. I'm in a basketball league. You maybe know some of the people in it. They're real people, not fake ones like me.
+- I was a caddy once and I lost the golfer's clubs. Plus I don't know how to golf, so I was the worst caddy ever. Then I was a mortgage brokers assistant, so that was just carrying around a lot of files - pretty meaningless, mind-numbing work.
+- I'm excited that 'The Good Guy' is getting distribution because indie movies they're not - people ran out of money and they're not making these movies anymore. It's all superhero movies or real obvious tent pole studio films.
+- I don't think of my music in terms of a career. I just want to get it out there and do it. I'm not manipulating my sound to be like anybody or trying to write to sound like anybody else.
+- I've got a lot of artistic energy, but there's only so much of it, though. You don't want to spread yourself thin.
+- When I'm working on a movie, I'm in my trailer playing guitar. And then on the road, I read scripts and think of... it just keeps both fires burning. I kind of need both.
+- I was a big Oasis fan.
+- I grew up in St. Louis, and I just couldn't wait until I turned 18 because I wanted to move to New York.
+- The thing about New York is it's like London: you want to go to the boutique places. You can go to the big department stores - Barney's, Bloomingdales and all that stuff - but I like the little stores.
+- I love the Olympics. Something about the Olympics just makes everything competitive.
+- I actually feel like I have developed friendships through Twitter, people that I've worked with I can kind of keep up with them. I've totally turned a corner. I get it. And Instagram.

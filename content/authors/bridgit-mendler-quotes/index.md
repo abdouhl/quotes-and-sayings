@@ -1,0 +1,41 @@
++++
+author = "Bridgit Mendler"
+title = "Bridgit Mendler Quotes"
+quotes_len = "35"
+description = "the best 35 Bridgit Mendler Quotes"
++++
+- There's a reason why bullying takes such a strong form online. People don't have to push back as much as they would in real life.
+- I think it's awesome to be able to make people laugh.
+- I definitely get stage fright.
+- I'm prone to getting dark circles under my eyes when I'm tired, so I l use cover-up and instantly feel more confident.
+- I love Adele. Natasha Bedingfield is cool, those sort of people.
+- I really like 'This Side of Paradise' by F. Scott Fitzgerald. I think it's a cool description of a character.
+- I just want to get into the action. And voice-over work is all action.
+- People need to realize bullying has just as much of an impact online because words are so cutting and difficult to deal with.
+- Sometimes my lyrics may describe a situation that happened to a friend. Other times, I create a story from the ground up.
+- Songwriting is actually a really great outlet. I kind of recommend it. You get to sum up whatever is going on in your life in a song, then perform it really passionately.
+- I'm not Miley Cyrus. There may be some similarities, but I'm my own person.
+- I want to make music that stands the test of time.
+- I'm really passionate about music.
+- I like to create.
+- I think it can be fun to write about relationships just because so many people can relate to what you are feeling.
+- I love Beyonce. She's so fierce. I also love Lily Allen, and she was an influence on my music.
+- I love Cher Lloyd's music. I didn't actually hear her music as I was creating my own, but it's cool that we have styles that are considered to be similar.
+- I did this one scene in an episode of 'General Hospital', and that was my first job down in L.A. It was, like, my second audition, and I was like, 'Woo! This is easy! This is fun!' That was a really cool moment for me.
+- I really do love bluesy-jazzy music, so I love Etta James, B.B. King and Billie Holiday. I love that they have soul in their voices - I think that's something important is having.
+- I recommend doing some sort of acting class, something that can eventually get you in front of an agent or a manager, and practice is very important.
+- I know now that I want to do more voice-over projects. They really have the ability to transport you into the world of whatever movie it is you are working on.
+- I did this class when I first moved to California. It was a 'Kids on Camera' class up in the Bay Area. That was good for just getting me excited in acting and everything. Then once I started working down L.A., I just stuck to my acting coach, and she helps me prepare with auditions and that sort of thing.
+- I just want to challenge myself and play some different characters.
+- I definitely get nervous about if I'm going to forget the words to the songs or something. And I don't enjoy being the center of attention for an hour straight - I think that's really stressful.
+- I really do like Bruno Mars. I think he's very good. And I love Maroon 5.
+- My personal style is really different from 'Lemonade Mouth.'
+- Professionally, the first time I sang was on 'Alice Upside Down.' It was the first movie that I did, and I had this little mini singing part.
+- Being bullied is something I experienced in school, and it is not fun.
+- Practicing going over scenes and in front of the camera just to see how that feels, and then ultimately just finding a way to expose yourself to people. That's what I did.
+- The cool thing about doing a voice-over into a different language is that you get to bring the character of your own culture into it.
+- I don't want to be one of those people that's constantly promoting myself on Twitter. I think the fun thing about Twitter is being able to share all the little random things that happen in my life.
+- I enjoy going on hikes, and I enjoy the occasional yoga. The one thing I'm good at athletically - and I don't know if I'm good at it anymore because I haven't done this in a while - I can throw a pretty good spiral in football, but I have no idea how to play.
+- In terms of fashion, I love adding a fun scarf to whatever I'm wearing - it's a great way to dress up a plain outfit!
+- The biggest klutz would be myself, so if I could offer help to myself I would. I'm the most off my game most often.
+- Working on 'Good Luck Charlie' has been an awesome experience, and it's so crazy to build a fan base and have all those people tune into the show.

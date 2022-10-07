@@ -1,0 +1,45 @@
++++
+author = "Bryan Adams"
+title = "Bryan Adams Quotes"
+quotes_len = "39"
+description = "the best 39 Bryan Adams Quotes"
++++
+- I've always wanted to push myself and move with the tide. That's just how I am and it's worked for me.
+- I feel quite sad for the young musicians coming up because they may never get to pay their rent properly. It doesn't matter what the genre; nowadays, it's so much harder than it ever was.
+- Focus on your music and not technology.
+- I pack every minute I can with something to do.
+- I remember being in Hollywood at the age of 16 and marveling at the stars. The idea of being part of it never entered my mind. It was too far-fetched.
+- If your music is great, you will have fans, not because you have spent time chatting on social media.
+- I think a lot of people want to be remembered the way they were, as opposed to the way they are now.
+- Music is just such... it's not therapy, but it's a release, it's a joy, it's a pleasure. And it's a job - which is weird, because I don't think of it as a job.
+- I need to be able to rock out.
+- I'm not afraid of being thought of as someone who is associated with film music. Why not? If it's a good song, what does it matter?
+- I don't like long tours. I find it much easier to go out for a short spurt every month.
+- There's not an instruction manual on how to deal with success, so you just have to rely on having great friends and a good team.
+- My father's a character.
+- Trying to manage diabetes is hard because if you don't, there are consequences you'll have to deal with later in life.
+- There's a saying, 'It's easy to write songs, but very difficult to write great songs.' I'm going through that right now.
+- I've only ever trusted my gut on everything. I don't trust my head, I don't trust my heart, I trust my gut.
+- I've never been enamoured by the idea of being a celebrity.
+- I only write music for myself, I don't try and appeal to anyone else.
+- To be a celebrity, I couldn't think of anything more cringe-worthy.
+- I like to be able to present myself in two or three different ways because I've never really wanted to rest on my laurels and be something that people expected.
+- I think all my videos suck.
+- Music became my focus. At 13, I was jamming with my mates. At 15, I was playing clubs.
+- I watch everybody every night, from sitting down to being on their feet at the end, and I feel a sense of reinvention, of caring, presenting these songs in their purest form.
+- I'd been round the world a hundred times and had started to forget where I'd been. I knew I'd been there: it said it on the tour map. I could remember the name of the city but I couldn't remember what it was like - it was a massive blur.
+- I grew up with British rock.
+- I always knew I'd be in music in some sort of capacity. I didn't know if I'd be successful at it, but I knew I'd be doing something in it. Maybe get a job in a record store. Maybe even play in a band. I never got into this to be a star.
+- I got in trouble with the police, and that was a rude awakening. That was it. I'd seen the bottom of the pit, and it was time to scrape myself out of it.
+- I'm a complete and utter busker.
+- I moonlight as a singer.
+- I never took a grant or borrowed a penny from anybody. It was partially because I didn't really know how to do that, but secondly, my pride never would have allowed me to. In the beginning it was about doing it the right way, on the merits of the music.
+- I never had a long-term plan.
+- A songwriter writes songs all the time, whereas just writing a song can be done by anyone, anytime.
+- Social media is a giant distraction to the ultimate aim, which is honing your craft as a songwriter. There are people who are exceptional at it, however, and if you can do both things, then that's fantastic, but if you are a writer, the time is better spent on a clever lyric than a clever tweet.
+- I like the idea of helping people help people.
+- I think I'm better behind the camera than I am in front.
+- I do 100 shows a year, but I do it in fits and starts, as opposed to going on a long run.
+- I'm amazed every time I come back to Vancouver at how much it's changed. You go away for a month and there's three more skyscrapers.
+- I always just wanted to be the singer or the bass player in the band. I'd love to have a band, where I was obviously the singer, but where it wasn't me, it wasn't my name.
+- One day I'll wake up and I'll have 10 or 12 songs and think, 'Oh that sounds like it could be a record.'

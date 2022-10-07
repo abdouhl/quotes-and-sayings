@@ -1,0 +1,23 @@
++++
+author = "Robert Trout"
+title = "Robert Trout Quotes"
+quotes_len = "17"
+description = "the best 17 Robert Trout Quotes"
++++
+- The East India Company's domination of the Indian economy was based on its private army.
+- The myth that John Locke was the philosopher behind the American Republic, is easily refuted by examining how Locke's philosophy steered Thomas Jefferson, for example.
+- The British seizure of Hongkong was an aspect of one of the most ugly crimes of the British Empire: the takeover and destruction of India, and the use of India to flood China with opium.
+- In order for a society to survive, it must generate a sufficient level of physical production both to meet its current needs, and to produce a surplus for upgrading its productive powers.
+- The myth that the founding of American Republic was based on the philosophy of John Locke could only have been maintained, because the history of Leibniz's influence was suppressed.
+- Leibniz dedicated his life to efforts to educate people to understand that true happiness is found by locating their identity in benefitting mankind and their posterity.
+- Were you to read the British press today, you would learn that the British Empire never forgets its defeats.
+- The American Revolution was, in fact, a battle against the philosophy of Locke and the English utilitarians.
+- The level of potential physical productivity of a society depends on both the development of the intellect of its members, and a minimal standard of both demographic characteristics and of consumption.
+- At midnight on July 1, 1997, Hongkong, the British Crown Colony, will be restored to China. This is not only an event which will be celebrated by patriotic Chinese; any patriotic American should celebrate it as well.
+- Although the Chinese had used opium as a medicine, there was no widespread addiction before the British arrived.
+- The East India Company established a monopoly over the production of opium, shortly after taking over Bengal.
+- We fear doing too little when we should do more. Then atone by doing too much, when perhaps we should do less.
+- From this bestial view that the human mind consists of only sense certainty, pleasure and pain, Locke developed an equally bestial theory of the nation. Man originally existed in a State of Nature of complete liberty.
+- A successful society is characterized by a rising living standard for its population, increasing investment in factories and basic infrastructure, and the generation of additional surplus, which is invested in generating new discoveries in science and technology.
+- The British system denied any role for human creativity, and instead argued, that if man merely followed his hedonistic desires, pursuing pleasure and avoiding pain, objective laws would naturally guide society to achieve the best allocation of wealth.
+- Many Chinese saw opium as a poison introduced by foreign enemies.

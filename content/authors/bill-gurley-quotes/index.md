@@ -1,0 +1,22 @@
++++
+author = "Bill Gurley"
+title = "Bill Gurley Quotes"
+quotes_len = "16"
+description = "the best 16 Bill Gurley Quotes"
++++
+- It's not for everybody to tweet, it's for everybody to follow. The more people figure that out, they see it's RSS-plus. It's literally the place you check for information.
+- Having an investor on your board of directors who is naive about public markets or finds them complex or scary is non-optimal.
+- Many consumer Internet business executives are loyalists of the Lifetime Value model, often referred to as the LTV model or formula. Lifetime value is the net present value of the profit stream of a customer.
+- Venture capital is unscalable. Production equals the time each partner has.
+- Facebook has stitched together your social graph. The idea of an interest graph is to bring together everyone that has shared interests. If I can isolate the people who are into mountain biking in Marin, in one place, the ability to put ads against that is really high.
+- I have never seen Jeff Bezos, Marc Benioff, or Reed Hastings complain about being public. Nor have they ever argued that being public prevented them from doing things with a long-term focus.
+- Marketing executives like big budgets, as big budgets make it easier to grow the top line.
+- Most firms are hierarchical in nature, with everyone getting different slices of the economic pie. The problem is those slices are negotiated every time a firm raises a new fund, so in between funds, which is most of the time, the partners are trying to outgun one another to make a stronger case for themselves.
+- I think one thing that may have happened with both Facebook and Zynga is that they may have waited too long to go public. They got particularly cute on that front.
+- It's really hard to run a business against somebody who is not acting as if it were in business.
+- If one asserts that buying customers below what they charge them is a corporate strategy, this is in essence an arbitrage game, and arbitrage games rarely last.
+- If the goal is to build companies that maximize long-term equity value, then optimizing corporate performance in a way that Wall Street appreciates is obviously critical to that goal.
+- It is critical to bundle all future variable costs of supporting the customer in order to fairly estimate the future contribution.
+- Almost everybody who thinks about local thinks about daily deals, but companies like OpenTable and Zillow and Yelp are all getting their money from the local market.
+- The first time you went to eBay, you probably didn't do a transaction.
+- I think one of the key differentiators I bring to the table as a venture capitalist is a solid understanding of the public markets and how they operate.

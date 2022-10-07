@@ -1,0 +1,106 @@
++++
+author = "Benny Gantz"
+title = "Benny Gantz Quotes"
+quotes_len = "100"
+description = "the best 100 Benny Gantz Quotes"
++++
+- We cannot separate Judaism from the Jewish State; we have to decide how to live with it.
+- There is only one U.S. for Israel, there is only one Israel for the U.S.
+- I want the children of Israel to believe that there can be a better tomorrow.
+- Netanyahu needs to leave Israel's political life.
+- It's unreasonable to me that there's a government in which the culture minister attacks the institutions she's responsible for. The justice minister attacks the institutions she's responsible for. The internal security minister attacks the institutions he's responsible for. The Cabinet attacks the IDF, and the prime minister attacks everyone.
+- I will not sit with Netanyahu in the government!
+- I recommend voting Blue and White, but I respect any decision.
+- I will not shy away from the prospect of peace because I believe our people, and any people, should have something to believe in.
+- I love Israel, am proud of it.
+- Not like other countries, we will never ask anyone to fight for us.
+- I have the duty to protect my people, hurt my enemy, do the best I can with as few uninvolved casualties as possible - I can't have zero innocent casualties - and at minimum risk to the lives of our soldiers.
+- I am a soldier. That is who I am. That is what I do.
+- The latenight hours are apparently those in which the mind runs wild with scenarios and thoughts that during the daytime I know how to direct and organize.
+- A prime minister cannot preside over Israel when an indictment has been filed against him.
+- A country is not managed through cousins and confidants.
+- The citizens of Israel come first.
+- I was raised in the paratroopers.
+- A two-state solution cannot be promised without having negotiations first.
+- As a company commander you have absolute definitions: the mission, the people.
+- I'm not some tycoon and I don't consider myself a businessman.
+- Internal unity means that external security issues can be dealt with.
+- I'll never miss an opportunity to achieve peace.
+- I do not wish to slander his name, I think Netanyahu ran the country well but his time is up.
+- Will we forever live by our sword? We definitely will live with our sword. I don't think our children or grandchildren won't be soldiers. We must make efforts to try and not live only by our sword, but we will always be with a sword.
+- We have left and right; religious and secular; Druse; ultra-Orthodox women. Unity is very important.
+- I am going to be prime minister.
+- I support Israel to be a Democratic, Jewish and safe country.
+- Israel will not be deprived of its status as a strong, Jewish and democratic state.
+- The children of Israel will not grow up in a state where some of its leaders sanctify hatred. I won't let hate win.
+- If the Palestinians will one day decide to wake up and join a diplomatic process that is being carried out with the support of countries in the region, with international support - welcome. But I'm not waiting.
+- We are part of an inspiringly colorful mosaic of cultures and traditions. I will nurture this pluralism.
+- 2012 will be a critical year in the connection between Iran gaining nuclear power, changes in leadership, continuing pressure from the international community and events that happen unnaturally.
+- When you have nothing to say, you don't talk.
+- For me, sacrificing Israeli democracy is not something I can agree to.
+- What you demand of others you should carry out yourself.
+- Trust me, I am proud of our country. I will never be ashamed of it.
+- I love to run and do it every day. I run slowly, by the way.
+- On my watch, Iran will not become a regional power. And I will not hesitate to use force when needed.
+- I can tell you what I'm driven by. I'm driven by what's in Israel's interest.
+- We're not ashamed to use the word 'peace.'
+- The tension between Jews and Arabs tears us apart.
+- Every decision of strategic importance needs to go through the relevant institutions, certainly the sale of submarines to neighboring countries.
+- Judaism is the best basis for democracy. The debate between the House of Hillel and the House of Shammai, the constant debate, has been a tradition of ours for thousands of years.
+- Israeli Arabs are equal citizens.
+- Israel has to come before everything. It cannot be Bibi everything.
+- Don't drag the Mossad into political arguments. These are people who can't defend themselves.
+- Israel needs to stay a Zionist country with a Jewish majority in a democratic system. Eventually, Palestinians should have some kind of independency.
+- Netanyahu is no king, his government sows division and incitement.
+- Our system of government in Israel has permitted minority groups and sectarian parties to force their way on the majority.
+- After Operation Protective Edge, I visited every one of the bereaved families. Religious and secular, rich and poor, Sephardi and Ashkenazi, Jews and non-Jews.
+- We are Jewish soldiers. Our battle orders include the rules of engagement and the Ten Commandments. The computer code of the F-35 and the moral code of the prophets of Israel.
+- I respect the choice of the people and I respect the law.
+- National unity does not only have to occur when swords are swung at us.
+- Israel will do all in its power to ensure that from Paris to Jacksonville, from Berlin to Manchester, Jews can walk on the streets without hiding their identity.
+- In the harsh and violent Middle East surrounding us, there is no mercy for the weak. Only the strong survive!
+- I have been a soldier and a commander for many years and know how to differentiate between things - not to be busy all the time with the most sensitive matters and to give everything its due attention without having the issues that cause concern to constantly be troubling or worrisome.
+- Netanyahu has taken on the toughest job in the State of Israel, and as someone who truly gives of himself, I consider him a patriot.
+- Responsibility for the security of the land of Israel will remain in the hands of the IDF and the IDF alone.
+- We must learn to live together, and the framework of Zionism must know how to include everyone.
+- I don't want to separate religion and state, I want to settle it.
+- Would the Benjamin Netanyahu of the eve of the election want me to get hurt? Regretfully, I would say so.
+- My family, my friends, we live in a democratic country and people have the right to express their opinions.
+- The struggle between right and left rips us apart.
+- I'm not subject to extortion under any circumstances.
+- Israel will never surrender to hatred.
+- When I'll... form a government, I don't intend to cooperate with those who go against the State of Israel.
+- We are a temperate state.
+- The State of Israel is the strongest in the region and will remain so.
+- Peace between leaders and peace on the ground will strengthen the interests of all.
+- No Israeli leader is a king.
+- I always said my favorite position was company commander in the Paratroop Brigade.
+- There's no shame in striving for peace.
+- I do not hate Likudniks, I do not hate anyone.
+- The capital of Israel is Jerusalem, no matter what.
+- I am making every effort to reach out to all party leaders with one clear message: Israel is bigger and more important than any one leader.
+- I think that at his core, Benjamin Netanyahu is not corrupt.
+- Under my leadership, the government will strive for peace and will not miss an opportunity to bring about regional change.
+- Anyone who cooperates with BDS is operating against Israel and it is a form of antisemitism.
+- We all need a government that solves our real problems and is not preoccupied with itself.
+- The Blue and White government, led by me, will assemble the strongest security cabinet against terrorism and restore deterrence.
+- Throughout our history, our fight for survival and freedom has been empowered by a secret weapon: Our unity.
+- It's important to be able to sit together and form a government of the majority that serves everyone, and not a government of minorities that takes care of itself.
+- When I will be the prime minister of Israel, I will embrace all streams of Judaism.
+- I sleep at night, but I don't sleep well.
+- In many ways, my life has begun before I was born. It began in the moment my mother Malka walked out of the Bergen-Belsen concentration camp.
+- The Western Wall is long enough for us all.
+- I pledge that the personal safety of Israeli citizens will not be futile.
+- I plan to serve the State of Israel.
+- Israel's interest is all I care about.
+- Let it be clear: I don't hate Bibi.
+- Israel is truly, for me, before everything.
+- In a place of pain, there is space for everyone.
+- There's no shame in longing for peace.
+- As someone who prepared our forces to deal with the multiplicity of operational and strategic challenges our country faces, I am confident about Israel's capability to defend itself.
+- We will maintain security in the entire Land of Israel.
+- It bothers me when I look at Israeli society, on the divisiveness in it, and to polarization. I'm not just talking about left-right... but how individuals behave towards each other.
+- Is the role of the prime minister to cultivate political leadership in Israel? My answer is yes.
+- I can't consider the Fifth Dimension to be a success story.
+- We cannot agree on everything but we must agree on the framework.
+- Israel is a strong country in the region. And it will stay strong if our people will stay committed to Israel, whether it's to defend it, whether it's to develop it.

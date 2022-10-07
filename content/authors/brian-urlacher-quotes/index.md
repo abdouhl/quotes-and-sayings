@@ -1,0 +1,106 @@
++++
+author = "Brian Urlacher"
+title = "Brian Urlacher Quotes"
+quotes_len = "100"
+description = "the best 100 Brian Urlacher Quotes"
++++
+- I was honestly the No. 1 Cowboys fan as a kid.
+- I've got so many things I can do now with my hair. I put gel in it sometimes - it's great.
+- I was a huge Brett Favre fan, because how could you not like him as a kid playing football? Then getting a chance to play against him was pretty damn cool.
+- I'm always going to be a Bears fan. Nothing's going to change there.
+- I may be one of the most competitive people you ever know. I want to win every snap, every game, even though it was not possible... it really wasn't about the conquest, it was about the challenge.
+- Anytime you lose, nothing really matters except winning.
+- Football, we pretty much control what we do and how we react, and there are two days we couldn't, on the draft and on the selection for the Hall of Fame.
+- There could probably be a penalty called on every single play. So the refs have a tough job.
+- Jay Cutler is a first-round pick, had a great arm, etc. It's just - he's offense, I'm defense. We didn't get a chance to interact as much as we should have, maybe.
+- I've gotten into spats with coaches, players, as well. It's just what happens in the NFL.
+- When you change defenses, it's the same thing a lot of times. But different terminology means different things in that new defense. So you have to get accustomed to that. You have to study. Get in your books and pay attention.
+- I love the Bears.
+- We used to establish the run and wear teams down and try not to make mistakes, and we'd rely on our defense to keep us in the game and make big plays to put us in position to win. Kyle Orton might not be the flashiest quarterback, but the guy is a winner, and that formula worked for us.
+- I played for Marinelli I think my last four, five years in Chicago. He's awesome.
+- Two of the people I don't care about: fans or media.
+- Coach Marinelli's defense is incredible.
+- There's no doubt in my mind I'll finish my career with the Bears. However that works out, it works out. I can't imagine playing anywhere else.
+- A knee injury could put you out for a season. A concussion, you may miss a game or two. Huge difference.
+- I wasn't the greatest technician when I played.
+- You know, there are a lot of things that I really enjoy doing that you can get hurt doing. Driving a car, you can get into a wreck. I love to fly. You get on an airplane and you could die, too. When you step on a plane, it's your option to step on that plane because it could crash.
+- I can't go back and change how many tackles I had, how many picks. What I've done is what I've done.
+- Yeah, I mean there's points in every game where you get a hit and you feel a little woozy. Not every game, but mostly every game you hit someone and you're like, 'Whoa, that was a good one.'
+- Every moment, every practice, every game, everywhere; I just love competing. Competition is in my DNA.
+- I respected opponents as well as teammates and coaches.
+- I do watch some kind of terrible shows on VH1, 'Love & Hip Hop: Hollywood,' 'Basketball Wives.' Those are like my guilty pleasures. When I want to see some drama, I'll watch those.
+- In Arizona, there's mountains behind my house.
+- It's nice of guys to actually want to even pick my brain a little bit.
+- I'm not going to take it easy on the guy when he catches the football and not try and hit him because he's a friend of mine. It doesn't happen.
+- I think they shouldn't allow cut blocks, because our knees are important to us, too. I know concussions are a big deal, too, but I think knee, cut blocks are a big deal, but that seems to be OK with the NFL. So they're not too concerned about safety, obviously.
+- I really like United States so I pay attention to what goes on here. I don't really pay attention to what goes on overseas or in other countries, unless it affects us, then I'll pay attention.
+- Coming from a small town in New Mexico - Lovington, New Mexico - I was very happy to go to college for free and get a scholarship to play college football.
+- As a player, I just want to be remembered as a good teammate, that's it.
+- Marshawn, he's hard to tackle. I only played against him a couple of times. We did OK against him in Chicago when I was there.
+- Ricky Williams, in my opinion, was one of the better guys in the league.
+- If your quarterback can't make plays in certain situations for you to win games, he's not getting the job done.
+- When the ball is snapped I want to tackle the other guy, the other team is my enemy.
+- Anything that's on Discovery or Nat Geo, I'm pretty much watching it.
+- See, I was fine being bald, because I have a good-shaped head.
+- My mom is my heart.
+- I lead by example.
+- I don't think I would be very good on TV broadcasting games.
+- I wondered if teams were going to find a place for me, but the Bears said linebacker right away. I tried outside linebacker first and I was terrible. Then inside seemed to fit me.
+- Chicago Bears tradition speaks for itself.
+- If you don't want to play and get concussed, then don't play. It's your career, it's your life. You have to make that decision on your own.
+- I mean, all kinds of good memories against Favre. Even when we lost, it was fun playing against him.
+- Win or lose, I'm up all night. I've been that way since college - I'm going over everything in my head: woulda, coulda, shoulda.
+- I watch a lot of college football.
+- I want to be somewhere where somebody wants me.
+- Our goal is to outplay the other team's defense every game - it doesn't matter who we're playing.
+- Tarik Cohen, he's an exciting guy.
+- There are no hard feelings between me and the Bears' organization. I had a great run here.
+- As a football player, your mentality is that you're going to win the Super Bowl. You have to think that when you're playing the game.
+- First of all, we love football. We want to be on the football field as much as we can be. If we can be out there, it may be stupid, it may be dumb, call me dumb and stupid then, because that's what... I want to be on the football field.
+- You only notice long snappers when they screw up.
+- The treadmill and the damn elliptical - they get so boring to me.
+- Yeah during the bye week I watch games. I usually do something with my family. We'll go away for a couple of days or something, but I definitely watch football on that Sunday afternoon.
+- I don't like a snug-fit helmet.
+- I've gotten a hundred pictures of guys making fun of me.
+- I don't care what's legal and what's not. I'm going to play the way I play.
+- I had one major concussion. It's different for each guy. For me, it was never an issue because I didn't have an issue with concussions.
+- You know who I like the way he celebrates is Peyton. He kind of gives the guy a handshake and goes back to the sidelines. I think that's a great celebration right there.
+- I hope Mitch Trubisky is the best quarterback of all time.
+- Danieal Manning is a friend of mine, he was a teammate for five or six years, and that's the way it is.
+- It's just dumb that people think that. 'Why did you help that guy up after you tackled him?' Because I wanted to. What's the big deal? 'Butkus would have never done that.' Well, I'm not Dick Butkus. I'm Brian Urlacher, and sometimes I help people up.
+- People realize that when you win, you obviously have some good players on your team.
+- Darren Woodson is my favorite player of all time.
+- Toward the end of my career, people started talking Hall of Fame, but still, you don't ever think you're going to end up there.
+- My whole career, I was pretty much bald. So, people just got to know me as being a bald guy.
+- I'm not a big watch sports on TV guy unless it's football.
+- I can deal with the criticism of myself. I get mad when people talk about my teammates.
+- It's a great honor to be associated with the Hall of Fame and now to be in it. It's awesome.
+- We're defenseless, I know we play defense, but we're defenseless when we're not looking at the guy who's blocking us or when the guy's come out and cut out our knees from underneath us.
+- You know, the Bears know I want to be here. I've said it publically and that's not going to change.
+- See I'm used to seeing myself with hair now, so it's not a big deal. Now when I see pictures of me bald I'm like 'ew.' But people are used to seeing me bald so when I'm walking around without the hat on, I see people doing a lot of double takes.
+- When I started playing the game I was just worried about making that next tackle. Especially as a rookie, you're figuring out what you're doing and where you're supposed to be going, what the defense is, and trying not to make mistake.
+- I'm uncomfortable doing commercials.
+- It doesn't change the way we play, I'll tell you that much. If we hit a guy and get fined, we get fined.
+- I'm not a very good coach.
+- Technique wasn't my favorite thing to learn, and I doubt I would be great teaching it.
+- I never would have thought, during my playing days, that there would be a team in Las Vegas.
+- I know what being a star athlete means.
+- When the play is over, it's over.
+- I did wonder what it would be like if I could have hair.
+- People like to have fun, and what better way to have fun than go to a football or baseball or basketball game in Vegas?
+- Fantasy football brought a ton more people to the game.
+- Football was easy because I knew what I was doing, and it was in my control.
+- I spend a lot of time with my family and I ride my mountain bike almost every day.
+- Someone's always saying something about me.
+- There's risk in everything that you do. It's up to you to measure those risks and do what you want to do.
+- My lone concussion occurred in 2003 against Denver. I was spinning off block and right when I spun, I hit Clinton Portis with my head turned sideways. I hit him and I hit the ground. That was first big one where I was like 'Whoa.' Back then, it was no big deal.
+- I'll always be a Chicago Bear no matter where I end up or where I retire, whatever happens.
+- I know there are a lot of experts in the media - a bunch of smart guys out there who know exactly what they're talking about all the time. They don't know what they're talking about.
+- I'm a huge Ron Rivera fan, I played for Ron for three years in Chicago.
+- I've never been a big fan of me, me, me.
+- I like playing with Lance. Lance Briggs is great.
+- I don't give a crap about what fans or people say, they can kiss my butt.
+- I'm hyper, goofy. I always have to be moving, doing something.
+- I played defense, so I don't like when guys celebrate with dances and stuff.
+- I wouldn't want to be a DB in the NFL. They've got no chance. There's no contact down the field, but fans want to see points.
+- I love Chicago. I love the big city. But, remember, I come from a town, Lovington, N.M., that only has 8,000 people.

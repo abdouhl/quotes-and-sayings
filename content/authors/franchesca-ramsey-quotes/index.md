@@ -1,0 +1,106 @@
++++
+author = "Franchesca Ramsey"
+title = "Franchesca Ramsey Quotes"
+quotes_len = "100"
+description = "the best 100 Franchesca Ramsey Quotes"
++++
+- I initially started making videos about my hair because I was struggling to style it and didn't know where to find help. Similarly, I started creating comedy content and doing characters and talking about things that were important to me because I didn't find a place to do that in the career that I wanted as an actress.
+- For me, at least with my parents, I feel that they wanted me to have all the opportunities that they did not have, and for them, that meant going to private school.
+- Self-esteem doesn't have to just be about the way you look; it can be about your talents and passions. All of those things can build someone's confidence and show them that they have self worth and they are important.
+- Now I have a standard for how I make sure people do not speak to me in a way that I feel uncomfortable with. When I was younger, I didn't have that. I was like, 'Try not to make waves.' I wanted everybody to like me, and so I stifled a lot of the discomfort that I had.
+- I was looking for help with styling my hair and was really struggling to find it, and I have very much been of the mind that if you see a need for something, and you can create it yourself, then go for it, so I started creating content around beauty.
+- My channel is an opportunity to give people a new perspective on natural hair. Love what you have and work with what you've got. I think that's really important.
+- I think what's been really awesome about the Internet is the ability to reach people from so many different walks of life and stages in their life.
+- I enjoy working out because I struggle with anxiety, and exercise has been a great way for me to combat that.
+- 'Stop playing the victim.' - unless you've been cast in a community theater production of 'Law & Order: SVU,' I'm not sure why anyone would choose to play victim.
+- For whatever reason, illiteracy continues to plague the racist troll community.
+- 'Decoded' is definitely close to my heart.
+- In reality, there are tons of unrepresented voices that we don't see in comedy.
+- What's really great about social media is we have tremendous access, and there's a wealth of information about the people that we admire online.
+- I think that's the thing I love about making content online - you get instant response.
+- I've had lots of people say, 'Oh, Franchesca's content is just for white people.' But I try to talk about identity in a way that's accessible to lots of people and is not a pointed finger.
+- The Internet is part of my job, so I have to approach it with a level of professionalism. I don't necessarily think it's changed who I am, but if anything, it's impacted the opportunities that have come into my life and the people that I've been able to develop relationships with - which I'm very fortunate and thankful for.
+- I'm somewhat wary of being called 'woke' because it feels absolute in a way that I don't think is realistic.
+- I like to think my work is furthering black culture by educating and empowering black people.
+- Do not feed the trolls! Racist commenters usually troll the Internet looking for people of color to harass online. If you avoid responding, oftentimes they will get bored and move on.
+- I'm, like, not a science person at all.
+- Over the years, I've found that dealing with white people faux pas can be tricky. If I get upset, I could quickly be labeled the 'angry black girl.' But if I don't say anything or react too passively, I risk giving friends and acquaintances permission to continue crossing the line.
+- Castor oil has long been a used as a remedy for a whole host of ailments including arthritis, digestion, insomnia and even period cramps. But it also stimulates hair growth.
+- I create videos for my YouTube channel Chescaleigh and for 'Decoded,' a series with MTV.
+- Women really love their hair. Like, our hair is very important.
+- There are some white people who are very unhappy that I am in an interracial relationship.
+- The Internet is a blessing and a curse. I mean, it's a place where lots of people can express themselves, which is amazing, but it's a place where a lot of people can express themselves that probably should keep those expressions to themselves.
+- I love Uniqlo for all the staples, but what I really love are the palazzo pants. They are just so flattering.
+- My ultimate goal is to make people laugh and make them think, which isn't always an easy task.
+- I think society perpetuates a lot of mixed messages about what it means to be beautiful for all women, but especially for black women and women of color.
+- People feel like using the word 'joke' removes responsibility for the hurt their words may cause. It doesn't; in fact, it may make things worse.
+- The biggest thing I try to do is to unplug and give myself time away from social media and the Internet.
+- Beauty is really cool because it's something that can make you feel good about yourself.
+- 'Lemonade' resonated with me, and I love the direction Beyonce is going with her music and her career.
+- My hair videos are usually styling videos answering people's questions about natural hair.
+- For me, social media isn't just about connecting with friends and sharing photos; it's a bigger, more tangled web that's led me to jobs working in television, speaking gigs around the country, and it's even helped me land my first book deal!
+- People that are not happy in their offline life tend to turn to trolling to fill the void. Oftentimes, the people saying racist things do not even necessarily believe in what they are saying. They are just looking for attention they do not get in real life. When you keep that in mind, it is easier to avoid indulging those people all together.
+- I believe there's a huge conflict of interest when local prosecutors investigate cases of police violence within their own communities.
+- The truth is that the performative nature of social media can turn even the simplest conversations into a WWE style cage match with emojis and Internet slang taking the place of pratfalls and over the top costumes.
+- It took me years to realize that 'normal' is actually super boring and that being myself was harder but infinitely more rewarding.
+- Oftentimes people say to me, 'Oh I didn't know you could do so much with locs until I saw your videos or I saw photos of you at events.' So whenever I hear that people have been really inspired to experiment with their hair or their look because of me, it's very flattering and really cool.
+- With 'Decoded,' the goal is to just keep pushing forward and challenging ourselves to tackle important subjects in creative and funny ways.
+- Self-care is really about taking care of you and focusing on feeling good about yourself - mind and body.
+- The Internet has been so good to me; I see its potential to help other people.
+- If you're brave enough to search 'Franchesca Ramsey' on YouTube, you'll find a sea of ranting white dudes pinning the 'angry black woman' stereotype onto my smiling face.
+- You have to realize that people are always going to be confused or sometimes threatened by someone who has the confidence to do something different.
+- People feel really uncomfortable talking about race and identity, largely because the subject is so taboo.
+- We can't all wake up and know everything.
+- I'm so inspired by people like Issa Rae who started on YouTube or Abbi and Ilana from 'Broad City' who also started on YouTube.
+- For me, YouTube was about creating content because I had an interest in beauty and comedy and wanted to find a way to mix those two things, and I could do it from my home, own my own time.
+- I think that everyone on the Internet has to deal with people saying negative things. It can be tough!
+- I think, even before social media, it was really hard to not look at other classmates and say, 'Well I wish I looked like her.' Or even to look at celebrities and wish that 'I looked like them.'
+- When I get to meet my audience when I go speak at colleges or when I'm walking down the street, it's been really eye-opening how many people have been touched to see someone that looks like them on television.
+- I can recall an instance where I was in a meeting at work giving a presentation in front of my board of directors. I was taking questions at the end and someone asks, 'Is that your hair real?' The man then reached out and started stroking my hair. It was completely bizarre to me.
+- My undergrad degree was in graphic design, and I don't work in that anymore, but I obviously do a lot of design and editing and Photoshopping, and the Adobe Creative Cloud is essential!
+- It's important to take time away from the Internet as much as possible. For me, I love working out, and my husband and I do it together in the mornings! And it's really our time to check in with each other, but it's also our time to really not think about work or what's happening on the Internet.
+- My dream has always been to be in entertainment.
+- It's important to understand you can't remove the historical context of racially charged stereotypes or slurs as much as we like to pretend that we can.
+- I always make sure to moisturize my hair. I love natural oils, coconut oil. Moisture is one thing you can never go wrong with.
+- What I love most about SZA's music is her unflinching vulnerability.
+- I have been talking about social issues on YouTube for a long time now. I think it's very important in terms of being able to reach people around the world and people who have never been exposed to certain topics or are maybe misinformed about certain things.
+- I think that the most important thing when it comes to achieving your dreams is just that you have to be realistic.
+- You create content because you love it, not necessarily because you're looking for fame or know what it will potentially lead to.
+- Social media, unfortunately, just makes it a lot easier to be jealous. It sets up false expectations of reality, so it's really easy to look at someone else's life online and assume that they have everything going great for them and that their life is perfect.
+- Just as you're allowed to be angry about injustice, it's natural to express feelings of sadness or fear, especially if you're exhausted by the prospect of trying to keep a brave face.
+- My debut book is a collection of personal stories and advice about communication on the Internet. More specifically, the downfall of communication because of the Internet.
+- I love my journal as much as I love my phone. I find it to be a big part of my self-care to reflect on my day and write words that inspire me or paste business cards and pictures.
+- The main problem with cultural appropriation comes from dominant groups 'borrowing' from marginalized groups who face oppression or have been stigmatized for their cultural practices throughout history.
+- I'm embarrassed to admit that I thought the world was ending my junior year of high school after a dye job reacted badly with my perm and left me with a sparse and burnt up hairline. Even though I went natural a few years later, my edges never seemed to recover.
+- Unfortunately, oftentimes people hire and give opportunities to people that look like them. They don't realize how much their own internal lives or privilege gets in the way of looking for people outside of the traditional spaces where they always find people.
+- Growing up, I was constantly labeled an 'oreo' by my black peers because of my proper speech and 'valley girl accent.'
+- Sounds cliched, but I can't survive without my calendar.
+- For content creators, it's really important to be honest. Your audience will appreciate if you're stingy with the brands you work with.
+- For me, like, my goal has never been, quote, unquote, 'mainstream success.' I've just always wanted to work in entertainment.
+- I think doing research is probably the most valuable thing you can do for any career you're interested in pursuing, and not just a career on YouTube or in media. Really take a look at people whose careers you admire and learning from their successes, but also their mistakes.
+- In many ways, being yourself is dispelling stereotypes.
+- My consciousness is a process, and that includes my relationship with my husband. His being white doesn't make me any less black or invested in black issues, the same way him being a man doesn't make me any less of a feminist.
+- I have really long legs, so I like cropped pants that make it look like I intentionally wanted my pants short instead of pants that happen to be too short for me.
+- I'm just really excited to expose people to different identities, different conversations but also to kind of reframe how they think about black women just by being myself.
+- I'm very fortunate to have a husband and friends and family that are super supportive of my career in all aspects. I do so many different things, it's really nice to have a support network that includes him and my parents and my friends that encourage me to continue to work towards whatever it is that I want to do.
+- Everyone's journey is their own journey. Everyone gets to where they are supposed to be. Everyone's journey works out the way they're supposed to.
+- YouTube is an amazing platform to talk about social issues because it gives people the ability to tell their own stories and reach audience around the world who may otherwise never be exposed to these people and conversations.
+- Social media isn't as quaint as it was when I started my Livejournal back in high school.
+- If I know you, and you want to touch my hair, you should ask me first, and most of the time I'll say yes. But if I don't know you, and you just reach out and touch me without asking or touch while simultaneously asking, I'm going to give you a side eye.
+- I'm very self-deprecating, so I'm not afraid to make jokes at my own expense, and I've just found that makes people a little more comfortable and can open the door for people to feel a little bit more understanding and accepting of where you're coming from.
+- I left acting school really hoping that I could be on a television show of some sort, working in movies in Hollywood.
+- I don't want to tell anybody who to vote for; I'd rather people just do their homework and make sure they vote for the person that they feel like is best to run our country.
+- The Internet is an actual dumpster fire.
+- I think that if you stay positive and remain positive, you can definitely achieve the things you set out to.
+- Black women come with all sorts of personalities. So it's time for media to wise up and show us in all of our complexity.
+- I'm obsessed with cute gym clothes in bright bold prints, so as soon as Mara Hoffman expanded into activewear, I knew my wallet was in danger.
+- It's just not funny to disrespect other people's beliefs, backgrounds, cultures, or identities when those are deeply rooted in longstanding oppression. Jokes that punch down on marginalized people require no creativity because they've existed since the beginning of time. It's like telling a knock-knock joke and believing you're Richard Pryor.
+- When I started in 2007, YouTube was just a fun hobby for others and myself.
+- Becoming a police officer is a choice. It's not something you're born into.
+- As much as we try to deny it, media plays a huge part in how we view the world.
+- There was a long stretch of time where I was making these videos, and everyone just thought I was a weirdo because I was making videos in my apartment instead of, like, going out, you know. And so I, like, it's hilarious now because everyone gets YouTube now. But, you know, in 2006, when I started making videos, like, no.
+- Black women are so very often stereotyped in pop culture.
+- Whether you have locs, natural hair, wear a relaxer, or rock wigs and weaves, thinning edges can be a frustrating issue.
+- Black people come in so many different bodies, genders, and sexualities, so it's important that we're conscious of that so we can fight for a world that embraces and uplifts black people of every kind. Our voices are powerful and have the ability to make change.
+- I think the beauty of the Internet is that it's giving a lot of people the opportunity to reach people around the world that they never would have been able to, and for people to tell their own stories where they don't see themselves reflected in mainstream media, or the media is misrepresenting the truth, right.
+- For a black activist, for an activist of all walks of life, the Internet has become this kind of meeting place where we can exchange ideas, where we can learn from each other, where we can get inspired about new ways that we can make changes within our own communities and own homes.

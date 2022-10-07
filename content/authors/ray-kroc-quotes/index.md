@@ -1,0 +1,22 @@
++++
+author = "Ray Kroc"
+title = "Ray Kroc Quotes"
+quotes_len = "16"
+description = "the best 16 Ray Kroc Quotes"
++++
+- The two most important requirements for major success are: first, being in the right place at the right time, and second, doing something about it.
+- Its easy to have principles when you're rich. The important thing is to have principles when you're poor.
+- As long as you're green, you're growing. As soon as you're ripe, you start to rot.
+- We take the hamburger business more seriously than anyone else.
+- The quality of a leader is reflected in the standards they set for themselves.
+- Luck is a dividend of sweat. The more you sweat, the luckier you get.
+- All money means to me is a pride in accomplishment.
+- If you're not a risk taker, you should get the hell out of business.
+- We provide food that customers love, day after day after day. People just want more of it.
+- You're only as good as the people you hire.
+- While formal schooling is an important advantage, it is not a guarantee of success nor is its absence a fatal handicap.
+- Are you green and growing or ripe and rotting?
+- Creativity is a highfalutin word for the work I have to do between now and Tuesday.
+- None of Us is as Good as All of Us.
+- If you work just for money, you'll never make it, but if you love what you're doing and you always put the customer first, success will be yours.
+- When you're green, your growing. When you're ripe, you rot.

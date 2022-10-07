@@ -1,0 +1,65 @@
++++
+author = "Ralph Fiennes"
+title = "Ralph Fiennes Quotes"
+quotes_len = "59"
+description = "the best 59 Ralph Fiennes Quotes"
++++
+- I have grown up loving Shakespeare.
+- I guess I'd love to be surprised by something I had never thought of.
+- Within the process of filming, unexpected situations occur.
+- Going to the movies was a big event in my youth. My father would be the initiator - he'd have me put on a jacket to see a film.
+- Gardeners are good at nurturing, and they have a great quality of patience, they're tender. They have to be persistent.
+- I was only interested in my scene, and I had to go through thousands and thousands of other scenes. I got my scene and I read it many, many, many, many, many times. That was my research.
+- The tensions between authority and the people need to be heard, especially when they are suffering and they can't eat.
+- There's a challenge to playing these fantasy figures because they are fantasy figures. You have to enter into this sort of imaginative world of the writer.
+- I admire the world of the books and the characters that she's created, but I'm not an addict of Harry Potter. I don't feel possessive about it.
+- I respond to a part just intuitively when I read a script.
+- One of the things that binds us as a family is a shared sense of humor.
+- I certainly gained a lot by reading about Shanghai.
+- What moves me in art is how we question who we are as people.
+- Being an actor means asking people to look at you. I guess I accept that. But it's a profession in which the job is to show another world and other people. You may access it through bits of yourself, and your imagination and experience, but actually, in the end, you're not playing yourself.
+- I don't plan a career. That doesn't work for me. I just have to go with my gut.
+- I tried to play rugby but was never very good.
+- When I first filmed things, they were always slightly awkward.
+- If I had a gun to my head and I had to choose between theater and film I'd choose theater.
+- I couldn't get as big as a bodybuilder. I tried to put on as much weight in the right places as I could. My weightlifting was impressive for me, but not for some of the guys I see down at the gym.
+- I don't feel I'm playing villains all the time.
+- I can't go and shoot people in the back of the head because It's a kids' movie, which is actually quite a good test because you haven't got the overt threat of a knife in the face.
+- There is a humanitarian impulse that one aspires to and there are days when one doesn't do it very well.
+- Most films are rooted in a book or a comic strip, but I don't go out there saying I want to do adaptations.
+- I have no regrets.
+- I'm not very good at being domesticated. I've tried. The domestic life I find claustrophobic - the rituals and habits and patterns.
+- The film depends on the audience's belief in this relationship.
+- As an actor, there's a bit of you that's decided you want to be looked at and watched, but there's a paradoxical bit that wants to run away.
+- I have a lot of stuff I want to talk about and offer up. It would be odd not to have ideas about something.
+- He's really sort of the devil. He's completely emotionally detached. He has no empathy. You find that in psychopaths. It's about power with Voldemort. It's an aphrodisiac for him. Power makes him feel alive.
+- I was grateful to have two weeks to shoot this one scene in Harry Potter. It's a big, big scene, but they have to deliver. And they have high expectations.
+- There's a lot of people who feel there's a tabloid journalist who had it coming.
+- The sets were fantastic. The Harry Potter sets are brilliant. You do get transported for a second.
+- Kenya doesn't have much of an infrastructure for hosting a film.
+- I've never felt fallow in the sense that there's been no work.
+- There is a tension in relationships between wanting to return to the womb, but also wanting to be free. Because sometimes the woman's attentions can be overly maternal, and you want to go, 'Ahhhh!'
+- You have to just dive over the edge. You haven't got time to mess about.
+- I never studied anything about film technique in school. Eventually, I realized that cinema and theater are not so different: from the gut to the heart to the head of a character is the same journey for both.
+- I like to keep fit, but I never lift very heavy weights.
+- In the best material, you always should be able to somehow make a case for a story to be transposed to any other time.
+- I don't feel particularly comfortable about actors using whatever power they may have to push their beliefs, unless they're extremely well informed.
+- When theater becomes a soothing middle-class thing, when it's packaged as the Night Out, then that's the death of it.
+- In the studio system, things are expected of a film. By the first, second, third act, there's a generic language that comes out of the more commercial system.
+- When she was younger, my mother was quite committed to Roman Catholicism. But she got disillusioned with it and moved closer to something like Buddhist beliefs near the end of her life.
+- You're meant to be playing the distillation of evil, which can be anything.
+- You dread that there will be real problems during filming.
+- Little moments can have a feeling and a texture that is very real.
+- And although I've been very fortunate in the film work that's come my way, I need to get back to the stage. If I'm away for a maximum of two years, I feel something's wrong.
+- I got to read some writings by serial killers, and they got inside my head. They were quite disturbing. I read disturbing stuff about that very detached way of manipulating people to do things.
+- There are those moments when you shake someone's hand, have a conversation with someone, and suddenly your all bound together because you share your humanity in one simple moment.
+- So much of movie acting is in the lighting. And in loving your characters. I try to know them, and with that intimacy comes love. And now, I love Voldemort.
+- I'm sure acting is a deeply neurotic thing to do.
+- God is not anything human. God is a force, God is chaos, God is unknown. God is terror and enlightenment at the same time.
+- We'd all like to believe that perhaps people could stop killing each other.
+- You feel yourself working to show something. I've learned to distrust that feeling.
+- I think Shakespeare is like a dialect. If I heard a broad Scots accent, I'd probably struggle at first but then I'd start to look for words I recognise and I'd get the gist. I think Shakespeare is like that.
+- Actors use who they are to be someone else, but I would hate to ever think I'm playing myself. It's imagining being someone else that is the key motivating thing for me. So when people want to know about me, it makes me a bit unnerved.
+- It was just two energies between two people, you can't prescribe that.
+- I veer away from trying to understand why I act. I just know I need to do it.
+- I went out to Mount Kilimanjaro, which I thought was very beautiful, but there were a lot of people there.

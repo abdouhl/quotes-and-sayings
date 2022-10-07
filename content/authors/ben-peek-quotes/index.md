@@ -1,0 +1,18 @@
++++
+author = "Ben Peek"
+title = "Ben Peek Quotes"
+quotes_len = "12"
+description = "the best 12 Ben Peek Quotes"
++++
+- First published in 1984 when I was nothing more than sticks of bone at seven, 'Dragons of Autumn Twilight' began what would be one of the icons of my grunge-stained disenchanted childhood.
+- Both villains and heroes are a bit boring, really, unless they're flawed and broken somehow. If they're not flawed and broken, then clearly they need to be broken and made flawed. That's what an author does if he or she has any dignity.
+- I have a real weakness for Generation One Transformers. Only Generation One. I loved them as a kid, and I will, when I have the money, search occasionally for the toys that I could not afford but deeply desired as a child.
+- I've really enjoyed B.R.P.D. since its first days when Guy Davis was an artist on the title, and if anyone is looking for an end of the world Cthulhu apocalypse title, Mignola and Arcudi and the artists who work the title do a fantastic job.
+- I think Anna Tambour is criminally under-read.
+- I grew up reading '2000 AD' and the occasional Transformers and GI Joe comic, but when I could finance comics myself, I lasted only a little reading superheroes.
+- Characters die all the time. At times, they die amongst a reader's tears, and at others, amongst the applause, and some, still, in quiet satisfaction.
+- I did not discover literature of any kind until I was about eleven, or ten.
+- I was, without a sliver of a doubt, a no-good, lazy slacker of a child, and after I discovered literature, I was totally and utterly a no-good, lazy slacker of a child who read books. A lot of books, good and bad, but my favourite - the books I read and reread in my teens - were by Margaret Weis and Tracy Hickman.
+- Personally, I think 'Dead Americans' is the best title I have, but you can't win with everyone. Titles have to be short, catchy, not too obscure, not offensive, and still capture the genre, and so on and so forth. Takeshi Kitano has it about right when he says he'd just like to title his films by number.
+- I'd like to avoid the environmental apocalypse if I could. Zombies, robots - I don't know - I'd probably do alright hidden in the middle of the herd and sacrificing people to keep myself alive, but where you gonna hide when all the food is gone?
+- In truth, I've never been a big superhero fan. I don't mind some of the movies, and a couple of the cartoons were alright - that Batman series from the early nineties where Mark Hamill voiced the Joker is sweetness. But largely, I've not really had much time for superheroes.

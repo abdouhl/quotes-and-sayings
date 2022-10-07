@@ -1,0 +1,48 @@
++++
+author = "B. F. Skinner"
+title = "B. F. Skinner Quotes"
+quotes_len = "42"
+description = "the best 42 B. F. Skinner Quotes"
++++
+- The feeling of being interested can act as a kind of neurological signal, directing us to fruitful areas of inquiry.
+- You can get along very well in this world by simply coming up with a quantity of reasonably valid statements.
+- Even the mundane task of washing dishes by hand is an example of the small tasks and personal activities that once filled people's daily lives with a sense of achievement.
+- I am opposed to the military use of animals. I am also opposed to the military use of men.
+- Those few people who do respond to the dire conditions of the future - journalists, environmentalists, behavioral scientists - tend not to be powerful.
+- I think my novel, 'Walden Two,' has made people stop and look at the culture they have inherited and wonder if it is the last word or whether it can be changed.
+- The way positive reinforcement is carried out is more important than the amount.
+- Must we wait for selection to solve the problems of overpopulation, exhaustion of resources, pollution of the environment and a nuclear holocaust, or can we take explicit steps to make our future more secure? In the latter case, must we not transcend selection?
+- I did not direct my life. I didn't design it. I never made decisions. Things always came up and made them for me. That's what life is.
+- Great scientific contributions have been techniques.
+- I don't know whether I want to improve religion or not. I prefer to get rid of it.
+- If you're old, don't try to change yourself, change your environment.
+- The environment shapes people's actions.
+- If you insist that individual rights are the summum bonum, then the whole structure of society falls down.
+- I don't deny the importance of genetics. However, the fact that I might be altruistic isn't because I have a gene for altruism; the fact that I do something for my children at some cost to myself comes from a history that has operated on me.
+- Religions work for their own aggrandizement - strengthen the church and so on - and they use reinforcers of one kind or another to get obedience and so on from their communicants.
+- The consequences of an act affect the probability of its occurring again.
+- We have not yet seen what man can make of man.
+- Reinforcement is being right.
+- Give me a child and I'll shape him into anything.
+- I won't say that I'm an agnostic, since agnosticism maintains that one cannot know... but I'm not averse to the idea of some intelligence or some organizing force that set up the initial conditions of the universe in such a way that ultimately generated stars, planets and life.
+- When you run into something interesting, drop everything else and study it.
+- The real problem is not whether machines think but whether men do.
+- We shouldn't teach great books; we should teach a love of reading.
+- I don't think my mother and father ever had any doubts about what I was to be punished for or not. My parents come from a very strictly defined culture.
+- The environment will continue to deteriorate until pollution practices are abandoned.
+- I never really expected to be controversial.
+- I would be opposed to any kind of totalitarian control.
+- The ideal of behaviorism is to eliminate coercion: to apply controls by changing the environment in such a way as to reinforce the kind of behavior that benefits everyone.
+- A person who has been punished is not less inclined to behave in a given way; at best, he learns how to avoid punishment.
+- A failure is not always a mistake, it may simply be the best one can do under the circumstances. The real mistake is to stop trying.
+- Properly used, positive reinforcement is extremely powerful.
+- The people who control the condition in which we live have no reason to think beyond more than the next five or 10 years.
+- I have to tell people that they are not responsible for their behavior. They're not creating it; they're not initiating anything. It's all found somewhere else. That's an awful lot to relinquish.
+- Behavior used to be reinforced by great deprivation; if people weren't hungry, they wouldn't work. Now we are committed to feeding people whether they work or not. Nor is money as great a reinforcer as it once was. People no longer work for punitive reasons, yet our culture offers no new satisfactions.
+- I remember when I was a freshman in college, I was still somewhat bothered by... worried... about religion. I remember going to this professor of philosophy and telling him that I had lost my faith.
+- What is sought can never produce the seeking.
+- Education is what survives when what has been learned has been forgotten.
+- I believe that I have been basically anarchistic, anti-religion and anti-industry and business. In other words, anti-bureaucracy. I would like to see people behave well without having to have priests stand by, politicians stand by, or people collecting bills.
+- Society attacks early, when the individual is helpless.
+- No theory changes what it is a theory about; man remains what he has always been.
+- I'm very pessimistic.

@@ -1,0 +1,23 @@
++++
+author = "Brian Kernighan"
+title = "Brian Kernighan Quotes"
+quotes_len = "17"
+description = "the best 17 Brian Kernighan Quotes"
++++
+- I want students to understand specific technologies, but the real goal is that they should be able to reason about how systems work and be intelligently skeptical about technology so that, when they're running the world in a few years, they'll do a good job.
+- Anytime you want to hear about graph partitioning, I will be glad to tell you what I know about graph partitioning. It remains a standard problem. I think it's an interesting problem, because it shows up in a variety of guises in real life.
+- Programming language is very specific to instructing a computer to do a particular structure of a sequence. It's the very way you tell the machine what you want it to do.
+- I seem to get totally wrapped up in teaching and working with students during the school year. During the summer, I try to spend time in the real world, writing code for therapy and perhaps for some useful purpose.
+- No matter how non-technical your life and work, you're going to have to interact with technology and technical people. If you know something about how devices and systems operate, it's a big advantage.
+- I really enjoyed Princeton as a graduate student.
+- It's important to be informed about issues like usability, reliability, security, privacy, and some of the inherent limitations of computers.
+- If you don't understand viruses, phishing, and similar threats, you become more susceptible to them. If you don't know how social networks leak information that you thought was private, you're likely to reveal much more than you realize.
+- Computers and computing are all around us. Some computing is highly visible, like your laptop. But this is only part of a computing iceberg. A lot more lies hidden below the surface. We don't see and usually don't think about the computers inside appliances, cars, airplanes, cameras, smartphones, GPS navigators and games.
+- Technology is mostly a force for good, but it has its downsides, too. I want my students - and my readers - to be intelligently skeptical about technology and be informed about the good and the not-so-good parts.
+- Every language teaches you something, so learning a language is never wasted, especially if it's different in more than just syntactic trivia.
+- Unix has, I think for many years, had a reputation as being difficult to learn and incomplete. Difficult to learn means that the set of shared conventions, and things that are assumed about the way it works, and the basic mechanisms, are just different from what they are in other systems.
+- Bell Labs was an astonishing place for many decades, though it fell on somewhat hard times during the telecom meltdown some years ago, as its corporate owner had to cope with shrinking markets.
+- Even though most people won't be directly involved with programming, everyone is affected by computers, so an educated person should have a good understanding of how computer hardware, software, and networks operate.
+- For better or worse, the people who become leaders and decision makers in politics, law and business are going to come from schools like Princeton.
+- No matter what, the way to learn to program is to write code and rewrite it and see it used and rewrite again. Reading other people's code is invaluable as well.
+- I had spent the summer of 1966 working at MIT in the group that was the MIT component of the Multics effort.

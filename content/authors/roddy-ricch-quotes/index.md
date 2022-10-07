@@ -1,0 +1,69 @@
++++
+author = "Roddy Ricch"
+title = "Roddy Ricch Quotes"
+quotes_len = "63"
+description = "the best 63 Roddy Ricch Quotes"
++++
+- Usually, the loudest in the room is the weakes. The quietest man in the room, who is being very observant, is the smartest and the strongest.
+- My best friend died in a high-speed chase.
+- I be on some, perfecting my craft, just making sure the music is all the way there.
+- I was anti social, but at the same time, people gravitated to that because they wanted to figure out who I was and why I was how I was.
+- With 'Start With Me,' I sent it to Gunna and he sent it right back. I didn't have to ask him. If I send you a song, you gonna vibe to it and if you don't, it's cool.
+- All my songs mean something to me.
+- I don't play no one else's game and I don't run no one else's race because if I did that, I wouldn't be who I am.
+- I've always known that I have a different mentality. I can move in different ways and that's for people to realize.
+- Oh yeah, I've got a good relationship with Marshmello.
+- I want to buy more property, start a couple of small businesses, and if my cousin wants to go to college, I want to put him through with ease.
+- I used to tell people I slept on the floor, in my songs.
+- Kendrick was a real big inspiration for me. I seen him when I was younger... 'Rigamortis' was out... maybe I was 14... I rapped for him.
+- I always have positive intentions.
+- I think I'ma make every hood proud. Everybody that ever seen me come up, know what I came from, know how I came up, know where I started. I feel like I'ma just make everybody proud.
+- I just wanted to do something positive. I feel like music was the talent that I had, I just had to tap into it.
+- I got a portrait of Nipsey at my house, bro. I got to put a platinum plaque by that, and my brother is not here to share that with me. That's his first platinum single. We did that together.
+- I believe in full albums, and whatever comes out of those full albums will come.
+- I like Atlanta a lot but no place beats my house. I just like the Black success in Atlanta. I loved being surrounded by that.
+- I bought some equipment and then I started recording real heavy, in my room, when I was like 16.
+- As I experience life, my music is gonna evolve. At the same time, I still do tell the stories from my world because there are unlimited stories and unlimited people from that place. I'll always represent them. As my life begins to change and I do different things, I still want to be able to tap in and relate to them.
+- A lot of people say I got my own sound. I ain't never really got no comparisons. When people hear my music, they be like, 'He got his own lil sound.'
+- I don't really be putting no limitations or projections on myself. I just go do it.
+- I don't believe in things that I can't see.
+- I just feel like it's a blessing to be able to represent Compton.
+- When I made 'Feed tha Streets,' those were the only 17 songs I had made, period. There was no cutting songs out or adding other songs in.
+- Jewelry isn't a necessity, but sometimes it can bring out my fashion. Sometimes if I'm wearing very dark clothes, like darker colored, black, anything like that, and I put white jewelry on top, it look crazy because it's like, the contrast of the diamonds and the dark clothes.
+- I want to make people think about certain things or have them ask the question of 'why.' I just want to always keep the people wondering.
+- People misinterpret my lyrics sometimes too, but I mean, it is what it is.
+- I can share my experiences with people, and they identify with it and sing it back to me. That's the best feeling in the world.
+- I just stay in my own lane and not worry about what anyone else is doing and settling my own pace.
+- I grew up in church.
+- I made 'Free Game' based on personal experiences, what I been through, my life, exposing people to the fact that I'm in the streets.
+- Gotta always drink your water.
+- Never be ashamed of who you are, your story, or how you react to situations. Don't ever be ashamed of how you communicate with people. Don't ever be ashamed of the person you are. Be you.
+- Kendrick Lamar taught me that life experience is an important part of being a good illustrator. When you're illustrating a story, you have to go based off of your personal experiences.
+- Usually when my music drops, I can go to my hood, I can hear people playing it. Now it comes from performing it, people knowing it and stuff. It's crazy!
+- Nipsey could respect the fact that I was who I was - I was never trying to be anything that I wasn't.
+- I like to talk about different subjects because then you give the people a chance to really digest something, and then take whatever they associate themselves with at the time.
+- I just make the music and then the music speaks for itself.
+- I really just wanted to put out songs with people that I was rocking with.
+- It's one of the essentials just to have a lighter on me, you never know what you might have to use. I like my lighters to be blue and small, they can fit in a pocket.
+- You never wanna rise to the top too fast in anything.
+- I don't really sing... I just hear notes so I know what it's supposed to sound like, if that makes sense. You ever hear someone try to teach a choir how to sing, but they can't sing? That's me.
+- Pineapple definitely one of my essential fruits, everyday.
+- I just be wanting my fans to like, feel like I'm bringing them something nobody bringing them.
+- It's never guaranteed for somebody to be successful. It just really be God.
+- My biggest moments have been in Philly - I met Jay-Z and Beyonce in Philly, I did the Powerhouse in Philly.
+- I've never been the type to be on social media all the time.
+- My pops put me on to Jay-Z and Kanye, and my discoveries would be like Future and Kendrick Lamar. I turned my pops on to Kendrick, Young Thug. I feel my mom made me play the Isley Brothers and real, real old music.
+- A lot of street dudes, you know their grandma go to church every Sunday. A lot of people in the pen, a lot of that come from them running away from that. They seen they grandma always going to church, mama always going to church, but they still struggling. This the reality of some peoples' life.
+- If I'm speaking to the streets and for the streets, they gon' respond. I don't even be thinking about blowing up.
+- I met Kendrick when I was younger but he's not really the flashy type. You'd never know if he had a dollar or a million dollars.
+- I'm still very involved in my community. I give back and I'm always there for the homies. That's one of the biggest parts of what I do.
+- I can't just close myself off to the world, because then I won't be inspired anymore. I won't be able to talk about nothing.
+- My brother and me, we used to be like, 'We'll put this video out tonight, and if it did 1,000, it did good.'
+- I don't want people to think like Roddy is John Legend now. I just felt like once I got to a certain point, that I wanted to expand musically.
+- I listened to Lil Wayne a lot when I was kid.
+- I don't really celebrate victories. Kobe Bryant just kept playing. Michael Jordan just kept playing.
+- My music is really my therapy. I really lay all my feelings into the songs, and really just leave 'em there. I don't carry that weight when I'm going throughout life. I'm not sad all the time.
+- I ain't graduate high school.
+- It takes a lot for me to be excited.
+- When a person go to jail, what people don't realize is you're alive, but you're dead to the world. People forget about you. When you go to jail, you're a story.
+- I ain't follow nobody path; I did it my own way. It's just grindin', ya feel me? You just gotta grind.

@@ -1,0 +1,66 @@
++++
+author = "Rozonda Thomas"
+title = "Rozonda Thomas Quotes"
+quotes_len = "60"
+description = "the best 60 Rozonda Thomas Quotes"
++++
+- I want everybody to know that I don't care who you are, where you're from, if you're popular or not: we all have haters. But you have to be resilient. You have to not allow them to have the power over you, where you start believing the things they say.
+- The teenage years are my least favorite, though my son is phenomenal. He does not get in trouble, and he's not a bad kid. But the fact that they think they know so much.
+- We can't be tamed at all. We've never been that kind of group. We always used to talk about how our image was as big as our sound.
+- When we got with Dallas Austin, he was just getting on. He was kinda like the fourth member of TLC.
+- Starting out as young women, we didn't care that people thought that we were a fad or if people thought we didn't dress girly enough - we were just like, 'Whatever.' We were able to accomplish that with three totally different girls, in a group.
+- If you're dude, and you're still living at the crib, at home, and you're not taking care of your kid, that's the worst thing ever.
+- We all like all kinds of music. Like, I love Shania Twain.
+- Of course Black Lives Matter and the killing of young black boys is heartbreaking to all of us. Everyone knows I am a black mother of a black son, so there is no way I could watch what's happening and not be affected.
+- We all have the same problems with family or friends, boyfriends, all that stuff.
+- When I'm on Twitter, we just talk to people. I call all my Twitter followers my 'Twitter babies.'
+- Life shows us all the time, really and truly, that you're not in control of most things, but at the same time, the things that you are able to control, you should definitely hold on to that. But it's okay that you can't control every aspect of your life.
+- We always try to make up a new signature dance for our songs.
+- Usually, when we're performing 'What About Your Friends' or 'Waterfalls' comes on, they all know the dance. It's like a sea of TLC dancers in the audience! It's so beautiful to see. I just love it so much.
+- You can't do TLC dances successfully in high heels.
+- I knew that we would have a movie about us one day.
+- Your hair loves it; everything loves water, you know. So I don't drink soda. I don't drink the devil's juice. Everyone knows what I mean when I say that. I don't drink no alcohol, never!
+- We're just not the type of artists that take anything for granted and just feel like, 'Oh yeah, you just know something great is going to happen.' We're not like that.
+- I've gone on Twitter, and I've seen a picture of me walking through the airport, or some random picture, and the person's like, 'Oh my God. I just saw Chilli.' They just take a picture, and it lets people know where you are. It's just crazy to me even when people do that.
+- What we eat will tell everything when it comes to our bodies, our skin, our hair, how we feel, your endurance for things.
+- Everybody's got a silly side in them.
+- I personally didn't go to any marches or anything like that. For me, all lives matter, you know what I mean?
+- When you drink water and stay hydrated all the time, it's good for all the organs in your body.
+- I refuse to do Snapchat. I'm not getting it, and I kind of like having mystery.
+- I don't get that with the nannies. What's your point if you have a child and you aren't raising it?
+- What is not cool is if we have a problem with an artist or if an artist has a problem with us, come to us directly. Talk to us. Don't start a Twitter war and all that kind of stuff. That's silly.
+- Everything from the music to our clothes was truly authentic. Lisa and I were in my basement spray painting our overalls.
+- I like Taylor Swift a lot. She has really fun, catchy songs. It's so funny: I always say any guy that's gonna date her, just be careful, because if it doesn't work out, they know by now the next single is gonna be about them! I love how real she is. I really respect her a lot as an artist.
+- I'm, for real, the biggest En Vogue fan.
+- TLC's always been sexy but always tasteful.
+- It's nice to engage with the people that support you so much.
+- From day one, we always admired male R&B groups. They would go onstage with no shirt on and baggy jeans, and girls would scream.
+- You should be held accountable for your actions.
+- For our first album, we were our own dressers. We didn't have no stylists. We came up with all of the ideas when it came to dressing. At that time, Cross Colours and Jabos were really popular, so we were able to get stuff from them, but we always added accessories.
+- We love to come out on 'Ain't Too Proud to Beg' because it's so hyped. You just get your adrenaline going, and the fans are excited.
+- We want every generation to know a little something about TLC.
+- I was a late bloomer, and that was my issue growing up.
+- We go into the studio with the mindset of simply wanting to make something great.
+- As you get older, you become more unapologetic about how you really are, how you feel about things, and you really say it out loud.
+- There's so many different ways to get yourself out there, a lot more options than when we first came out.
+- We don't want to box ourselves within any type of genre, you know? Whatever feels good, if it moves us and we like it, we get on it and make it our own. That's what we do.
+- We're like everybody else. We hurt like everybody.
+- I was on 'That '70s Show' as the sexy nurse. I like that show, but I hated my character. I was like, 'I will never do anything like this again in my life. I feel crazy.'
+- Usher did the ultimate no-no to me. I will never be with him again, and that is that.
+- In any relationship, even when it came to my relationship with Usher, when it was time to make a move, I had to do that. I don't care how much my heart was hurting, sometimes you're just supposed to be with people for a reason, and it's not always a lifetime. Even if you want it to be, it just doesn't work out that way.
+- We're so blessed to have an amazing catalog.
+- If I had a dollar for every guy that came up to me to say, 'I'm not a scrub,' oh my God, I'd have a billion dollars.
+- Being natural is incredibly empowering for women because it's just who you are. You're embracing all the beautiful things about you from your head to your toes. Because when you mask so much of your natural beauty, people don't get to see that.
+- I want someone who takes commitment seriously.
+- It's really intense in our rehearsals; you have to get ready and condition your body.
+- We still have the love for music; it will forever be in my heart.
+- In the early '90s, all the girl groups were dressing super feminine. And then we came on the scene wearing Cross Colours, Girbaud, and Nautica.
+- I'm very healthy. I'm into eating right, and there are just some things to me, when you talk about eating right, you shouldn't eat.
+- We can be in the studio with the hottest producer, but we might not be able to create any magic! It's not about the hottest. It's about who we feel we have that connection with, and that's who we're going to be working with.
+- When we're talking about people not wearing clothes or being naked or whatever, that's a whole lot of people. And I said this: if that's their thing, and they feel comfortable doing that, then whatever; that works for them, but you don't have to go that route if you don't want to. We don't want people to think that that's what you have to do.
+- I think people kind of know me, although I am pretty private when it comes to my private life.
+- When I met T-Boz and Left Eye, they were buying jeans that were a size 38. Three little cute girls dressed like boys was cool back then. Our style was cartoonish but fly at the same time.
+- Sometimes when you speak what's on your mind - I'm talking everything on your mind, and - people can get a misconception of you.
+- I just want a guy that is secure with himself and is not intimidated by what I do and how I can provide for myself, because I don't need a man for that, nor have I ever looked for a man to just take care of me.
+- Kickstarter is perfect for us. It wasn't something we heard about and just got to it. We did our research, met with the people at Kickstarter - they are brilliant, and they're excited to work with us.
+- Even if you hurt my feelings and you lie, be a man and admit it. I'd rather someone be honest to me.

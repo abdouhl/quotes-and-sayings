@@ -1,0 +1,50 @@
++++
+author = "Rob Pilatus"
+title = "Rob Pilatus Quotes"
+quotes_len = "44"
+description = "the best 44 Rob Pilatus Quotes"
++++
+- With Milli Vanilli, we felt more like bimbos, the bimbos of the music industry, and we didn't want to be the bimbos anymore.
+- I feel like a mosquito being squeezed.
+- Nobody was keeping me away from black people. There just aren't many in Germany. Without anything to identify with, you grow up thinking maybe you're different and maybe not as good as everybody else.
+- I warn the industry, they shouldn't underestimate the fact that Rob and Fab still have a lot of fans. And they should try to forgive us. Because we weren't bad for the music industry. We changed the music industry.
+- We are big fans of Scritti Politti.
+- The Germans are very critical. They like to drag acts down. They make you feel you're not so good - not so important.
+- People were laughing at us and we knew it was our fault. The scandal caused us a lot of pain but I guess it made us face reality.
+- Now you don't know if somebody likes you or Milli Vanilli, the fame, the money. This makes it difficult. This makes you a little paranoid and afraid about people.
+- We sold our souls to the devil. We lied to our families and our friends. We let down our fans.
+- In the industry we somehow made ourselves a lot of enemies.
+- One million, two million, three million seems like a lot of money. But if you spend $80,000 a month, it's really nothing.
+- You get something, but for that you make a pact with the devil.
+- Boney M. were not allowed to do interviews, they were not allowed to choose their costumes. They looked like slaves, and this was the producer's take.
+- It's OK to laugh at us.
+- That's why I left Germany and went to L.A., that's why I hooked up with the lawyers, that's why I hooked up with a big management company - just to protect us, to keep the kind of image I could live with.
+- We were seduced, we were abused and we felt very guilty.
+- You hear blacks are good in sports and good singers. But you don't hear about black lawyers or black politicians. I learned things later, but went through some hurt before I learned - before I had a better picture of black people and a better understanding of myself.
+- We said to Frank Farian, 'You don't let us sing on the album. Don't do this anymore.' We don't want to live like this.
+- We really love our fans.
+- A lot of groups like Duran Duran, they want to be rock stars, but they sell the most records with their looks. And I have to say, with us, our look is our money.
+- When you're young, you don't like to feel different. If you're different, you feel alone.
+- It's not enough just to sing good, just to look good. You have to be perfect.
+- Suddenly, I was interesting to girls. I wasn't just a Kunta Kinte.
+- We didn't want to receive the Grammy. We knew that we were going to get caught.
+- I knew right then and there, it was the beginning of the end for Milli Vanilli. When my voice got stuck in the computer, and it just kept repeating and repeating, I panicked. I didn't know what to do. I just ran off the stage.
+- If I'm nice, I get little bonbons; if I'm not nice, it's trouble.
+- What we thought brings us a disadvantage, brings us an advantage against the American black rappers, because they look all the same, with their training outfits and sneakers, you know? But we didn't know this, it wasn't calculated.
+- It seems to me America is the country of second chances.
+- We're victims, and we're portrayed as crooks.
+- We went to London, did our first video, 'Girl You Know It's True.' We produced it for $50,000 - our producer put up the money. And we said to the people in Germany, 'I am from New York, he is from Miami. We are Americans.' And I hide it that I'm born in Munich, that I'm German.
+- Twenty years from now we want people to come out and see us sing and dance in Las Vegas. Like Sammy Davis Jr., like Julio Iglesias, like Tom Jones. I believe there is a big future for us.
+- I am a fan of Mick Jagger and the Stones.
+- Everybody asks me if I sing on this record. Even my mother asks me. I am a very proud person and this is embarrassing.
+- Maybe this was my luck that I was in Munich the only one with a look like this, the only one with an image like this. But in the States, there is a lot of more competition.
+- People think we choreograph. We dance four years in clubs. We watch videos every day. We do a step, it ends up a sensation, and for us it was just a copy maybe of a Gene Kelly video.
+- Fabrice and I are big talents. We can sing as good as any other pop star In the Top Ten.
+- I looked at all the superstars. What is their different thing? Their hair. Beatles, Elvis, James Dean, James Brown, Marilyn Monroe. I wanted to be a star. I said, 'I have to fix my hair.'
+- We went with the wrong attitude to America, too successful with a too big attitude. We were not really knowing how grateful we should be just to have the chance to even lip-sync a record and be exposed to five billion people worldwide.
+- Once we realized what happened to Boney M., we wanted to come to the States. In Europe, artists just don't have the same protection they do over here.
+- Now bands have to sing live, now people watch who sings on the record, now people want to hear the real music and not just plastic bands anymore. So I think we changed the music business to a better, more honest way.
+- We didn't want to do any more interviews. The more we talked, the worse things got.
+- We were tired of being made fun of by Arsenio Hall.
+- We were living together in the projects, with two other musicians in Munich. We had nothing to eat, and we were unhappy. We wanted to be stars. And suddenly this guy gave us a chance, and we took it.
+- We are true singers but that maniac Frank Farian would never allow us to express ourselves.

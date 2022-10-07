@@ -1,0 +1,106 @@
++++
+author = "Ranvir Shorey"
+title = "Ranvir Shorey Quotes"
+quotes_len = "100"
+description = "the best 100 Ranvir Shorey Quotes"
++++
+- I don't think people are interested in knowing the what, when, where and how of my life.
+- I had two elder brothers and they would thrash me if I do something wrong, then dad would thrash me. I think corporal punishment as disciplining the child is what I am questioning... I feel there are less flawed methods.
+- If I have a yoga mat or a pair of jogging shoes, I can stay fit anywhere. The important thing is staying motivated. Because if you're not driven to keep fit, no amount of time or equipment will help.
+- I appreciate constructive criticism of my performance.
+- Even I run after money, but money is secondary for me. First comes the script and then my part in the movie.
+- I am in love with my career, doing films I believe in and also spending time with myself.
+- We should accept our fears and try to overcome them.
+- Haroon's birth really had a profound effect on me and I think it had on Konkona also. It is fabulous, it is the best thing that has happened to me. Such a beautiful feeling I can't tell you. It's a beautiful experience.
+- If one can control one's mind, the body follows suit.
+- I didn't mind taking on small parts.
+- I love hanging out with my friends and partying.
+- Fatherhood has changed me a lot.
+- Music is a big passion for me, and whenever we all friends get together we play guitar, sing songs and play games.
+- There is no need to write about every fight that I have with my wife. That is not fair.
+- Ek Tha Tiger' was a great script, director and leading superstar of the film industry Salman Khan is part of it.
+- I take my own time to say yes to a role.
+- Ironically India is the hub of animation outsourcing, but our own productions have been anything but fabulous.
+- The audience is sacrosanct for me. They put faith in me, trust me and I will try my best to live up to that.
+- This is a wrong notion that I work in big budget films. Infact, usually low budget films are offered to me, they come and say it's a good story but they don't have the money.
+- I think people are okay without knowing what my relationship status is. When nobody asks me, how can people be interested?
+- I am no expert on parenting.
+- Fears are a part of our personality.
+- It's the film journalists that I'm wary of.
+- I had been off TV for seven-eight years, and I took up 'Khatron Ke Khiladi' on an impulse. I wanted to do something adventurous post-40, and 'Jhalak' just happened.
+- I have no qualms being a character actor.
+- I don't plan my life or analyse things. Nothing can be predicted about the future, no one can put a finger on what's going to be the next big thing. Why bother?
+- In our industry star kids are given opportunities. There is no dearth of films for them.
+- I believe in observing and absorbing life.
+- I don't believe in the idea of planning. I take life as it comes.
+- I don't dig the candy floss and rosy kind of film subjects. Give me anything dark and grey!
+- There is such wastage of money in masala films!
+- For me, 'Jhalak' was a carry-forward from 'Khatron ke Khiladi.' The channel came to me with this offer, and they were very keen on having me as the host.
+- The only reason I took up small roles in big banner films was in the hope to get the attention of other directors.
+- Working in independent cinema is far more frustrating than mainstream because it is difficult to get money to make such films.
+- As much as I really love the praise and affection I get when my work is appreciated, it doesn't translate to money in the bank.
+- I don't want people to expect too much out of me. I can only give them as much as I can.
+- I have not made any efforts to stay away from commercial films.
+- I could have been more ambitious but I am quite content.
+- I think corporal punishment is the shortest, most impatient, flawed way of teaching or making a child understand something.
+- The only way independent cinema can come out of its own rut is by learning to be more consistent. An indie filmmaker should feel responsible for others as well.
+- I am a huge fan of animation.
+- I feel one shouldn't turn director unless one is compelled to tell a story.
+- I like considering myself as someone in the film business.
+- Mainstream or budget films don't matter to me. What matters is the script, the director and the part, not necessarily in that order though.
+- I have decided never ever to put on weight again. Not even if Francis Ford Coppola were to offer me a role in exchange for putting on 25 kilos!
+- It feels good to be tagged as a talented, versatile actor.
+- I believe in keeping mind and body both fit.
+- Actors who are super successful are the ones who thrive on the image by creating their forte.
+- My diploma was in film and videography and I then went to a film academy in New York, where I trained in acting as well.
+- When you don't have work for a year or two, you lower your standards a bit for survival.
+- There's a watering down of sensibilities in commercial films and I don't seem to fit into that.
+- I am quite familiar with the vibrant theatre scene in Bengaluru, as I keep coming back to the city with my plays. Audiences here appreciate arts and are open to different types of theatre and acting techniques.
+- If there's comfort factor, all the other differences can be bridged! But, it's difficult to work with those whom you can't stand personally!
+- Many of my colleagues and I do films, which push the envelope and try to bring some change.
+- Everybody says they want good films and when one turns up, they go watch item songs.
+- Though every film teaches me at least three new things, I don't subscribe to doing homework about a character's backstory unless it's a historical role or one that requires training in accent.
+- I can't dumb down for the audience because I believe my audience is at least as smart as I am.
+- What could be more satisfying for an actor than having the liberty to select and do the work of his choice.
+- Truly, I never dreamt of becoming an actor - I always wanted to be a director.
+- Whether it is 'Pyar Ke Side Effects,' 'Mithya,' 'Khosla Ka Ghosla,' 'No smoking,' all my films have been different from regular Bollywood movies.
+- Award shows come with a price tag. You have to lobby and I don't have the acumen for such stuff. Maybe that's the reason I hardly have any award.
+- When you hear Bollywood, you think about everything mainstream, song-and-dance, hero-heroine. I don't think that will ever go away.
+- Fatherhood does affect your work decisions.
+- I would like to direct. I am also happy helping other directors realise their vision. I am happy being a cog in a wheel.
+- One indie film does well, for example a 'Bheja Fry,' that gets money for another 20 indie projects. But as soon as the first 8 projects release and flop, out of the 12 remaining ones, six will never take off, three will remain incomplete and the others will be shelved.
+- While we always try to hide our fears, they keep chasing us all through our lives.
+- My body type is basically not suited to be fat.
+- I am not a serious daddy. I am a very cool daddy.
+- Since I have become a father, I have kept a certain amount of time away for spending with my son. I don't want to miss out on his growing up years.
+- I used to think life would be easier to handle. But it is not.
+- When you don't get a certain quality of work, you end up doing lesser quality of work because there's no work. I'm a professional actor, I have bills to pay so I end up taking work which ideally I wouldn't have.
+- Since, I have become a parent... I feel if you sit down and get through your child and use one's understanding to teach them something... Is the easiest way.
+- I used to worry about becoming a father. But now, after becoming one, I am very happy.
+- Marriage is not always peaceful.
+- I try to do yoga whenever I can, even if it's 15 minutes during a break in shooting.
+- I hosted a season of 'Jhalak Dikhhla Jaa.' I was a part of 'Khatron Ke Khiladi.' Also, being in this business, I know what reality TV is about. Please remember it's about entertainment at the end of the day.
+- As far as co-parenting is concerned, it is easy. You just have to be mature enough to work together, mature enough to keep your professional and personal life apart.
+- I haven't got the kind of films from mainstream cinema which I would have wanted. But then mainstream cinema has a different bunch of people who are happy working with each other, which is fine.
+- I took a good one year off before and after Haroon's birth, so from the beginning I have been right into it. For me, it was quite seamless.
+- I feel comfortable doing parts that I feel are great and that I can pull off.
+- I feel I've been deliberately sidelined by the mainstream filmmakers, but I don't let that bother me. If I start thinking about that, I'll lose focus on what I need to do and have to do.
+- Whenever I go into a crisis situation I turn myself towards self improvement. I learn something new, pick up a course. Travel somewhere and do something there for a few months... It's important to do positive things in that phase.
+- The press is writing parallel narrative about my life, especially my married life and nothing about my work. That's media for you.
+- I did 'Ek Tha Tiger,' but I wasn't in 'Tiger Zinda Hai.' I know and I feel that I'm ignored.
+- The way a Dibakar Banerjee conceptualizes a film is different from a David Dhawan! I've worked with both, since as an actor I am just a tool in the director's hands.
+- I have no Hollywood aspirations.
+- Not all Bollywood movies are made for the passion for it, they're mostly made to make money.
+- To be able to prove my credentials of a dramatic actor, I took up roles which were different and challenging. I've never repeated a role, even if it did well for me.
+- Comedy comes easily to me.
+- The entertainment business can't thrive without putting you in a box.
+- Nobody has a copyright on 'Emotional Atyachar,' other than Anurag Kashyap maybe!
+- I feel lucky that films like 'Singh is King,' 'Ek Tha Tiger' came my way. They were mainstream films that were different.
+- Although I myself have not been a huge follower of Shakespeare's dramatic nuances during my academic years, these plays that were penned down centuries ago loom large in every student's psyche, quite effortlessly.
+- I think I'm known mostly for comedy because most of the work I've done is comedy and that is in turn because most of the work that is offered to me is comedy, so I end up doing more comic roles and therefore being known for them.
+- I don't want to be a billionaire and do work which I am not happy about. I'd rather do the work that I am happy about.
+- There have been years when I had no films.
+- The tags in this business don't leave you... When I was a VJ, they called me VJ-turned-actor, then I turned into a comedian, and now I am a serious actor.
+- I generally don't talk about my personal life. It is one area that I like to keep to myself.
+- To be very honest, I don't think I have a fan following.
+- I have worked with Konkona in 'Mixed Doubles' and 'Traffic Signal' and one thing's clear - she is a fabulous actress and an excellent human being.

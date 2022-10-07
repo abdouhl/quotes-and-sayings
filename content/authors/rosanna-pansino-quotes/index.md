@@ -1,0 +1,35 @@
++++
+author = "Rosanna Pansino"
+title = "Rosanna Pansino Quotes"
+quotes_len = "29"
+description = "the best 29 Rosanna Pansino Quotes"
++++
+- I never focus on success; I only focus on listening to my online community and being consistent.
+- My manager and fellow YouTuber, Mike Lamond, encouraged me to start a YouTube channel as a way to practice speaking, entertaining, and being more comfortable in front of a camera. In the beginning, I used an $80 dollar flip-camera and edited every episode myself.
+- As I continued to make content, a lot of YouTubers from within the community reached out and said, 'Hey, you're doing a great job. Would you like to do a collab? Can I help you out in any way?'
+- The first time I ever got recognized, I was at Chipotle eating a face full of burrito, and a fan started filming me and said, 'Oh my gosh, that's the girl from 'Nerdy Nummies!' They kind of waved a little, and I waved back with a burrito in my mouth.
+- It's so flattering to know that Wilton is a fan of mine, because I've been a big fan of theirs for a long time. I use their products when I bake, and I can't wait to see what ideas we come up with together.
+- I like to make music that feels good, that I can listen to with my mom and dad. I don't think you'll see me swinging on a wrecking ball any time soon! But if I do, that will be a day! My dad might have a heart attack.
+- Sometimes I'll get ideas in the middle of the night. Sometimes at 3 in the morning I'll get up, and I have a notebook by my bed and have to write it down. I'll dream an idea. Sometimes I see an image online, and I think, 'OK, let's make that a three-layer cake!'
+- When I first started YouTube, I was using an old computer that I had had in high school that stayed with me through college that was on its last leg. The boot-up was, like, 25 minutes.
+- My tutorial videos are educational, but they're goofy - I'm just being myself.
+- Baking is one of my many hobbies. I was originally introduced to baking as a child by my grandmother. I continued to bake for friends and family throughout the years for special occasions. I began to create themed treats after receiving continued requests from a lot of my friends.
+- I moved to L.A. I wasn't really sure what I wanted to do, but I really like the entertainment industry. I started to make videos on YouTube to get more comfortable being in front of the camera. The first video I filmed was with my sister.
+- My fan base is really, really young. They're the youngest demographic that you can track on YouTube: 13- to 17-year-old females. But the fan mail that I get in my P.O. box, they're all from moms and from kids who are two years old, three years old, four years old.
+- I think my channel has a Disney-esque vibe. It's a friendly place.
+- I love being supportive of other YouTubers because I know how much work and dedication goes into building a channel, and I think that the community on YouTube is just so important because the viewers get to be a part of what you're creating.
+- Baking has always been one of my many hobbies. After I uploaded my first baking tutorial video, I got a really positive response from the online community, and they started to demand more videos like that.
+- I've always been interested in music. In high school, I did a lot of musical theater, and I loved it.
+- I sing a little bit in videos, at the end of vlogs. A lot of my fans started requesting that I do a song. They started planting this seed in me.
+- The content I create reflects my personality: goofy, fun, positive, a bit clumsy, family-friendly, educational and helpful.
+- I enjoy music and cooking and cartoons and many other things.
+- I really like baking, and I really like playing video games. I saw a few geeky baking blogs but I never saw a show on television or on the Internet like that. So I thought, 'Why not be the first to try it out?' And it went really well.
+- Sometimes when a video goes viral, it gets a ton of views very quickly: they'll get a couple of million within a few hours. All of my baking videos, even the more higher viewed ones, are like a slow burn. Right away they usually get 200,000 to 400,000 views, and then as they sit there for a few months, then they really explode.
+- A good joke can spread throughout the Internet between the time you go to bed and the time you wake up, leading to an inbox filled with pictures of funny cats and cheeseburgers.
+- I always believed in the YouTube community and myself. I saw something there. The most difficult thing was others not believing in me. I had a lot of friends in Los Angeles who really thought I was crazy for leaving a steady acting job to start on YouTube.
+- Inspiration for my 'Nerdy Nummies' videos comes from all over. Many of the ideas originate from the games, comics or movies I'm excited about. My family is really creative as well and are constantly sending me their thoughts.
+- Just to see if I liked vlogging, I uploaded a video of my sister and I cleaning up a river in a canoe for Earth Day. The sound was horrible, and the quality was horrible... But you have to blog what's interesting to you and not care what anyone thinks.
+- As soon as I starting making YouTube videos, I received so much positive feedback from the online community and a demand for more content. As time went on, my filming schedule became more consistent, and it made sense to hire some help and upgrade my equipment.
+- When I meet viewers in person, it always seems to be entire family units.
+- I am most supportive of organizations whose goal is to increase the living situation of those less fortunate than myself.
+- I've worked since it was basically legal to work. I was a waitress on and off for eight years. I worked at Sears; I worked at Abercrombie folding clothes. My dad really instilled good money management habits, and I've saved 10 percent of my paycheck, every paycheck, since I was 15.

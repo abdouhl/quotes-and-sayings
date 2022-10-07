@@ -1,0 +1,24 @@
++++
+author = "Ryan Paevey"
+title = "Ryan Paevey Quotes"
+quotes_len = "18"
+description = "the best 18 Ryan Paevey Quotes"
++++
+- I'm always happy to get folded into the Hallmark family.
+- We shot in British Columbia and I miss it. I've actually gone back a couple of times just to see the country. It's beautiful.
+- I don't even have a dog.
+- I'm a workaholic.
+- I can honestly say whatever I know about acting, all of it, I learned at 'GH.'
+- I don't sing in the shower, but my go to song to sing in the car: 'Clouds to the left to me. Jokers to the right. Here I am.' 'Stuck in the Middle With You' by Stealers Wheel.
+- I'm a terrible faker.
+- If it's between s'mores and cotton candy, I'm gonna have to go s'mores all the way... but in truth, I'm a gummy bears guy.
+- I like the skill set required to be an outdoorsman - to cook food over fire and to climb rocks without ropes, to move around using nothing but yourself and maybe some rudimentary tools.
+- Brains and a sense of humor trump everything else.
+- I have way more experience being poor than I do having money.
+- I never wanted to be an actor, and then 'GH' was the first time where my managers were like, 'Quit your day job. You got a thing.'
+- When I started working with my manager and started going out on auditions, I always viewed Hollywood as a 'snowball's chance in hell' kind of gig.
+- Hallmark has been really, really good to me. It is very much like a family. I'm friends with producers here, not because 'maybe if I befriend this person they'll give me a job,' but because they're good humans and we became friends in the process of working together.
+- As an actor, it's nice to work in an environment where everybody is nice and the things that we do are nice.
+- I'm not opposed to a fancy meal, but I'll take a picnic any day... food and nature? Sign me up.
+- I am terrible at cards.
+- I think what I like best about, and what keeps me coming back to work in the Hallmark world is similar to what keeps viewers coming back... of all of the places to go to make believe in TV, there has to be one that's a safe space, a happy place.

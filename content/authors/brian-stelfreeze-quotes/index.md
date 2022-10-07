@@ -1,0 +1,41 @@
++++
+author = "Brian Stelfreeze"
+title = "Brian Stelfreeze Quotes"
+quotes_len = "35"
+description = "the best 35 Brian Stelfreeze Quotes"
++++
+- I never really thought about the fact that most of the times I saw Black Panther, he was in New York or in some American city doing something cool with the Avengers. I mean, he's the Prince of Wakanda, but we rarely saw him in Wakanda.
+- Wakanda is the Marvel world's most technologically advanced nation, and offensives there can have ramifications everywhere, so that leaves open great possibilities for cameos.
+- I've always liked the simplicity of the Black Panther costume. I've never liked when people give him flashy capes and other adornments.
+- I think when you're being creative, you still attach it to reality somehow.
+- I don't consider what I do 'art.' It's 'storytelling.'
+- Oddly enough, Black Panther's almost like an analog to Tarzan.
+- Illustration is commercial. It's work that we produce, and I think what you can do is you can draw from the pool of art, but most of it comes from a pool of knowledge.
+- Writing comics and drawing comics is a really very specific art form. It's a lot easier to get it wrong than it is to get it right.
+- I think, for the most part, comics have devolved into fantasy for the sake of fantasy.
+- I'm always a little nervous when someone comes from other media into writing comics. It's a unique storytelling form, and it requires both talent and respect.
+- I decided that in Wakanda, the royal family would have extremely dark complexions, like so black they're blue. My attitude was, because the royal family is dark, the darker you are, the more you're considered royal.
+- Most creative people fall into one of two categories - either they're task-oriented, or they're time-oriented.
+- I started my work on a lot of the 'Batman' books. So I've worked on a 'Batman,' 'Spider-Man,' some of the 'X-Men' books.
+- The cool thing is, I was a little nervous about how they were going to handle Black Panther in his own movie, but then when I saw 'Civil War' and just the perfect way they handled him in that movie, it made me even more excited about a Black Panther film.
+- I like it when I'm watching a movie which has a harmonious feeling to it. It's as if the environment puts you in the mood for the characters and story you experience.
+- Much like every artist or every creator, I got into comics as a kid, and the most important thing was the 'bang zoom' of it. As many explosions as possible.
+- I'm trying to have Wakanda represent all of Africa.
+- There is a profound gap between meeting a person and knowing a person, and that holds true for the difference between visiting and residing.
+- Most established comic writers have a fixed style or methodology, so what you get on page one of the first issue is about the same for the last page of the series.
+- In the Marvel universe, vibranium has always been this material that absorbs kinetic energy. And any tiny bit of physics knowledge will tell you that that's really non-Newtonian. You can't just absorb energy, you've gotta change it into something else.
+- The detail of my art depends entirely on the project itself. I tend to be a little more detail-oriented with covers than I am with interior pages, and I try to reduce the detail on action sequences as opposed to suspense passages.
+- I see every project I take on as significant, and I try to pour a lifetime of experience into it.
+- As I've grown as a creator, I feel that I want to tread in deeper waters and have a lot more going on emotionally with the characters. That's my appreciation for comics as a creator and a consumer as well. I'm more into stories that don't just bounce off the surface but go a little bit deeper.
+- I grew up in a small town in coastal South Carolina. Where I'm from, the people are known as Gullah people. They're some of the first freed slaves that lived on their own, without being attached to the rest of the U.S.
+- When you're an artist, you're generally working at home alone in a studio. It's just really good to get with other guys and make art something you can share.
+- When I do actual sequential work, I really want a story I can get a behind: a story that really holds my attention for, like, the length of what I'll be working on.
+- Wakanda was allowed to develop freely, specifically on its own. Wakanda pushed back all the invaders. So they maintained all their traditions; they maintained all their styles.
+- When you have a situation where you're hanging out with 20 or 30 other artists, then there's insane amounts of creativity in the room.
+- I try to place what I creatively have to say above who I am.
+- I think of Wakandan technology as organic technology. Most of their tech mimics nature because it comes from nature.
+- There's an attitude that I have where I bring the art to the table and the writer brings the writing to the table, but neither of us brings the story to the table. The story is something that only happens with the combination of both of us.
+- 'Day Men' provides a magnificent challenge in that it deals with a secret society within a secret society.
+- I believe monthly comics and the extended miniseries are the true hallmarks of comic art and storytelling.
+- I think there's art, and then there's illustration. Art comes from a deeper place.
+- In a collaborator, I always look for someone who's going to push me a little bit.

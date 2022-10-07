@@ -1,0 +1,24 @@
++++
+author = "Bobby Sands"
+title = "Bobby Sands Quotes"
+quotes_len = "18"
+description = "the best 18 Bobby Sands Quotes"
++++
+- I am dying not just to attempt to end the barbarity of H-blocks or to gain the rightful recognition of political prisoners, but primarily because what is lost here is lost for the Republic.
+- Our revenge will be the laughter of our children.
+- We wish to be treated 'not as ordinary prisoners,' for we are not criminals. We admit no crime - unless, that is, the love of one's people and country is a crime.
+- I was a skeleton compared to what I used to be, but it didn't matter. Nothing really mattered except remaining unbroken.
+- I am a political prisoner. I am a political prisoner because I am a casualty of a perennial war that is being fought between the oppressed Irish people and an alien, oppressive, unwanted regime that refuses to withdraw from our land.
+- Everyone, Republican or otherwise has their own particular part to play. No part is too great or too small, no one is too old or too young to do something.
+- There is that much to be done that no select or small portion of people can do; only the greater mass of the Irish nation will ensure the achievement of a Socialist Republic, and this can only be done by hard work and sacrifice.
+- The body doesn't accept the lack of food, and it suffers from the temptation of food and from other aspects which gnaw at it perpetually. The body fights back sure enough, but at the end of the day, everything returns to the primary consideration - that is, the mind.
+- They have nothing in their whole imperial arsenal that can break the spirit of one Irishman who doesn't want to be broken.
+- 'They have nothing in their entire arsenal to break the spirit of one single Republican prisoner-of-war who refuses to be broken,' I thought, and that was very true. They cannot or never will break our spirit.
+- I was only a working-class boy from a Nationalist ghetto. But it is repression that creates the revolutionary spirit of freedom.
+- We must see our present fight right through to the very end.
+- Well, I have gotten by twenty-seven years, so that is something. I may die, but the Republic of 1916 will never die. Onward to the Republic and liberation of our people.
+- I was set to confront the might of the imperial empire with an M-1 carbine and enough hate to topple the world.
+- They won't break me because the desire for freedom, and the freedom of the Irish people, is in my heart.
+- If a British government experienced such a long and persistent resistance to domestic policy in England, then that policy would almost certainly be changed... We have asserted that we are political prisoners, and everything about out country - our arrests, interrogations, trials, and prison conditions - show that we are politically motivated.
+- They won't break me because the desire for freedom, and the freedom of the Irish people, is in my heart. The day will dawn when all the people of Ireland will have the desire for freedom to show. It is then that we will see the rising of the moon.
+- I am (even after all the torture) amazed at British logic. Never in eight centuries have they succeeded in breaking the spirit of one man who refused to be broken. They have not dispirited, conquered, nor demoralised my people, nor will they ever.

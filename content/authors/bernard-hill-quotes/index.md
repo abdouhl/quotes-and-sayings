@@ -1,0 +1,11 @@
++++
+author = "Bernard Hill"
+title = "Bernard Hill Quotes"
+quotes_len = "5"
+description = "the best 5 Bernard Hill Quotes"
++++
+- I had a really good time working with Jim Cameron. A lot of people didn't, but I did as I got on with him really quite well. For a director who spends most of his time looking down a lens or in the digitisation studio or working out some graphics, he is actually very good with actors.
+- I don't understand why people expect tips. In hotels you order food in your room, and it's already more expensive from the room service menu, so it's a cheek to expect a tip on top. I do sometimes reward good service, but it should be at my discretion, and I'm not going to be held to ransom.
+- There was an undercurrent of poverty throughout my childhood. We lived with my grandmother in her two-bedroom flat, and I slept with my parents. We had cheap holidays, I had to save for my bike and get a paper round as soon as I was old enough.
+- Actually, parts of New Zealand remind me of Suffolk. There's not many flat bits, but just the atmosphere there. There's a kind of a core tranquility about it, a kind of assuredness that this is fairly close to approaching the perfect way to be.
+- I grew up in Manchester, and we were very poor. My father was a miner who joined the Navy during the war and developed a lung disease and had to have a lung removed.

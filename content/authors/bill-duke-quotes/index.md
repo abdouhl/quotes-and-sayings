@@ -1,0 +1,68 @@
++++
+author = "Bill Duke"
+title = "Bill Duke Quotes"
+quotes_len = "62"
+description = "the best 62 Bill Duke Quotes"
++++
+- Our internal racism is still alive. We are still putting each other down and making jokes about each other because of the color of our skin. With women particularly, it's difficult because the beauty business says, 'If you don't look a certain way, God made a mistake.'
+- We need people with foresight who are willing to make films with smaller budgets and accept smaller profits.
+- By healing the internal issues that we can heal as a people, our children don't have to suffer the same agony and pain that we put each other through.
+- Without understanding your history, you can't get a perspective about the present.
+- I don't think God makes mistakes and I think that women have to not rely on men to define their worth.
+- I didn't come up in a culture or society that looked on me as a movie star. I was the bad guy. I was fortunate enough to be cast in some roles that weren't bad, were positive.
+- Part of the training you get in theater is that you're never going to give up.
+- I'm not interested in making 'black' movies. I'm interested in making movies that reflect reality as I perceive it.
+- I had parents who taught me ethics that I didn't know they were teaching me at the time.
+- I've been very selfish and the women in my life have hated that because of my work ethic. I try not to bring my work home but the next day I want to go prepared. So okay let's have a few moments of camaraderie whatever... okay great! I go work on the script.
+- The only chance for a guy like me is to make a decent picture for a reasonable budget. If it brings in a profit for investors, maybe I'll have the opportunity to make something else.
+- There is no reason why excellent pictures can't be made for $4-5 million.
+- It really upsets me that the media insists on turning 'Do the Right Thing' or 'Boyz N the Hood' into 'black films.' They are American films. They may open the window on the black experience, but they had things to say to everybody. That's why they were so successful.
+- I was the first black director on 'Dallas.' I drove my car into the studio lot and the guard asked me who I was delivering to.
+- I come up in a segregated 1943 atmosphere of segregation.
+- Pain is pain.
+- Never... never... whether you are five or 100, never give up. It's never too late.
+- AIDS is a very, very, very vicious disease, particularly in the black community.
+- It's very difficult to direct something and do it well. But to direct and act - it's very hard.
+- My parents taught me that it is my responsibility to make sacrifices for those after me.
+- I'm hoping to see some minorities in executive offices in positions of power, people who see the merit of projects with minority themes. That may or may not happen.
+- My favorite filmmaker is Frank Capra. He talked about the redemption of the human spirit - not the superhero, but the common man.
+- I don't want to exclusively direct white films, or black films. I want to have a choice.
+- It's assumed that light-skinned women have no problems or issues, but they are judged before you know who they are.
+- The largest country with the largest consumption of skin bleach in the world is India. Indian men are bleaching their skin because, in terms of marriage, if your skin is dark, it's assumed you work in a field. If your skin is lighter, it's assumed you work in an office because you're not getting enough sun. Indian men are bleaching their skin.
+- You determine your reality.
+- Meryl Streep doesn't care how she looks. She just surrenders to the truth of the character. Not everybody has the ability to do that. They look good and they can pretend to be that person, it's not the same as being that person. And there are not many actors who will surrender to that.
+- The Democrats throw money at the problems, and the Republicans tend to ignore them. The Natural Law Party goes beyond those approaches. It's about true change.
+- My agent makes 10% of what you make. When your agent tells you to take a vacation, you know you're exhausted.
+- What I really plan to do is take the best scripts I get and consider them seriously. I can actually work as an actor and prepare a film as a director.
+- Acting takes courage.
+- The thing about Robin Givens as an actress is that she doesn't back away from anything.
+- Appropriation is a fact of life; no point in complaining about it. But if that's the way the game's being played, let's do it on both sides. I don't want some white guy making 'A Rage in Harlem III' if I can't do 'The Godfather V' or 'E.T. III.'
+- I'm a very private person, not much of a party person. That's how I keep my sanity.
+- It's great working with great writers and directors because you're getting paid for something you love and want to do.
+- I think that some actors who make it in Hollywood are very talented. There are some of my heroes, the Meryl Streeps of the world, a lot of people that I love their work but I think a lot of it is luck, looks, strategic alliances and relationships, your agent and a lot of business components.
+- Colorism is unfortunately still an issue today.
+- Do I see people working harder than me? I can't imagine that but if I do it inspires me to work harder.
+- I don't say, 'Francis Ford Coppola, what a wonderful Italian-American director.' I judge him based on his film, his craft, his art. That's the way I feel I should be dealt with in this industry.
+- I'm an American, but being a black American, my experience is a particular one, my struggles have been particular.
+- I enjoyed 'Predator' a lot, and also 'Get Rich and Die Tryin'.' I really enjoyed that role and playing the O.G.
+- I don't have all the answers. I'm just supposed to present what I think is an issue and have dialogue start.
+- Well, in the '80s and '70s, with the exception of Sidney Poitier and Brock Peters, maybe Ivan Dixon, if you were as big and black as I am, you were a bad guy. Simple. Because in real life, I scare people.
+- I had studied at the NYU School of the Arts under Lloyd Richards, who also worked with the Negro Ensemble Company.
+- I saw the things that my sister went through - she's dark skinned - with boys not considering her attractive in her youth and the pain that it caused her.
+- The fact of the matter is that when you're in pain emotionally about your life, the color of your skin does not matter.
+- My parents never let the color of our skin be an excuse for why we did not succeed.
+- How can you compare 'Hollywood Shuffle,' financed through the director's credit cards, and 'Apocalypse Now?' You have to take into consideration the conditions under which it was made.
+- Television is a producers' medium. There is a formula with a certain number of closeups for each show.
+- Pain has no color.
+- Dark skin is considered less than light skin in the in the minds of many in our community and in the media.
+- On the way from church one day when my sister and I were 7 or 8, I was beaten by some white bikers.
+- Television is an excellent training ground for a director. If you work consistently in television, as I did, you have to come in on time and on budget. What you are allowed in feature films are, fortunately, more time and a larger budget.
+- I love great writing.
+- Some people you can forgive and forget. Some people you cannot forgive or forget. There are other people you can forgive and not forget. So there's people you can forgive and forget. Forgive and not forget. It depends on what they've done.
+- I could direct a very decent Holocaust film, but I don't have the same experience as a young boy who was rocked to sleep in the lap of a grandmother who had a tattooed number on her arm, who told him stories of the people who disappeared, the relatives she never saw again, as he drifted off with his cheek nestled next to that number.
+- Dreams that are planned are called frustration.
+- It's very important that we give a voice to the voiceless in terms of media; because media is a global phenom and it portrays you dependent upon what controls you have and the writers are doing great work.
+- I think the media and the Internet and all that stuff, has created this perception of black women as these mammy types, kind of angry, you know, full of pent up emotions and resentments. And that these women are people to feared rather than loved.
+- No individual should rely on any other human being or system to define their worth as a human being. You have to begin to find that within yourself.
+- I meditate twice a day, T.M., and do yoga and tai chi.
+- My father worked three jobs, my mother worked two, seven days a week sometimes. And they wouldn't take welfare or social assistance, they were too proud.

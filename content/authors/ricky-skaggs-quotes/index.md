@@ -1,0 +1,38 @@
++++
+author = "Ricky Skaggs"
+title = "Ricky Skaggs Quotes"
+quotes_len = "32"
+description = "the best 32 Ricky Skaggs Quotes"
++++
+- Maybe you're going to a concert thinking you're not going to hear anything but music. But you may walk away from there with an answer to a problem that you're carrying around with you that you didn't think you were going to hear about.
+- Country and western is ignored by the intellectuals. They don't look at it as an art form. They think it's just somebody sitting on his couch singing about his life.
+- I mean, I could tell that I really had... a precious gift. And I'm so glad that I have followed through with it and really used that gift and nurtured it, honed it, made it sharp and tried to use it as a tool now to make music and to make a living for my family.
+- We should give the Lord the excellence He deserves in everything we do.
+- I just love to have fun with music, and try to find songs that say something that people want to hear.
+- I hate negative songs; I won't sing them. It doesn't matter if it's sold 2 million more albums.
+- That's kind of the mission statement for the label: to try to do great music that touches people's hearts.
+- I've got tapes that I'm so thankful that my father made - old reel-to-reel tapes. I've got a ton of those things at home. He kept those like fine diamonds, I mean he kept them, you know, in a box and was very, very careful of them, you know.
+- When I hear bluegrass today, I hear so many new sounds in it. It's almost like country music in a way.
+- Even with the sun beaming down on me I'm not sweating in my mind. I'm not sweating in my heart or in my career.
+- I've had a couple of guys that I've had co-produce records with me through my career, and it's fun to work with a co-producer.
+- I've always moved by my heart. I've moved by the spirit of what I feel was right for me next. I always pray and ask God: 'What's the next thing? What am I supposed to do next?'
+- Country's hip; it's cool music.
+- I try to keep my heart and myself available for those little, 'God moments,' are what I call them, where someone calls the office and says, 'Would Ricky be interested in doing this?'
+- I always had a standard of, back when I was doing the country music I always told people I would never record a song that I wouldn't sit down and sing in front of my mom and dad.
+- It doesn't matter if you stick the name 'bluegrass' on it. I think people call things bluegrass that I wouldn't necessarily call bluegrass, but what they're calling country music today I'm not sure that I would call country music. But I love music and I try to encourage people.
+- The difference between me and the newer artists is that I have the history with the architects, the masters that started the music. I know where the music came from.
+- I had some good teachers. One of the greatest teachers I've had is bluegrass music: going back and listening to Bill Monroe's music, the Stanley Brothers, Flatt & Scruggs. When I was with Ralph Stanley I learned a lot from him.
+- After 'Mosaic,' I think a lot of people didn't know what my next record was going to be. And that's what I love. I just love doing music because I'm not going to follow the patterns and formulas of Music Row.
+- I always try to entertain folks with good clean fun and stories from my youth.
+- I don't feel like I've nearly got to the place where I'm ready to even slow down.
+- When I came here it wasn't that I was anti-Music Row, but it was like I was going against the grain of what everybody on Music Row was doing, and that's what has made me successful.
+- I feel like have a lot of music left to cut in my life.
+- I'm not a goody-two-shoes. I'm just a father with four children.
+- When Jack White called and wanted me to do a video and play mandolin with The Raconteurs, I didn't know anything about The Raconteurs at that time.
+- There's art in rhythm playing. Just find it. Make your own art. Find your place, and when it's your time to solo, it's your time to shine.
+- It's part of the calling to at least do a few songs in the show that give people some hope. There's so much hurt in this world and... music is such a great healing balm and a great way to forget your troubles.
+- I look back to when I got divorced in the late 1970s. When that happened, I was so broken up. After that, I decided to seek God for my life and my next marriage.
+- Great music is great music, period.
+- I just want to keep playing music and keep recording. I feel like my best days are ahead.
+- Do excellent work for Christ. So that's my heart. It's always been. And I want to be the best I can be. I want to make a difference in my generation.
+- The fall is my favorite time of year. I love the colors. The sun is out, you get warmth on your skin but there's the coolness of the breeze. It's really comfortable.

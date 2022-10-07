@@ -1,0 +1,14 @@
++++
+author = "Bill Brandt"
+title = "Bill Brandt Quotes"
+quotes_len = "8"
+description = "the best 8 Bill Brandt Quotes"
++++
+- And only the photographer himself knows the effect he wants. He should know by instinct, grounded in experience, what subjects are enhanced by hard or soft, light or dark treatment.
+- I consider it essential that the photographer should do his own printing and enlarging. The final effect of the finished print depends so much on these operations.
+- A photographer must be prepared to catch and hold on to those elements which give distinction to the subject or lend it atmosphere.
+- It is the gift of seeing the life around them clearly and vividly, as something that is exciting in its own right. It is an innate gift, varying in intensity with the individual's temperament and environment.
+- Sometimes they are a matter of luck; the photographer could not expect or hope for them. Sometimes they are a matter of patience, waiting for an effect to be repeated that he has seen and lost or for one that he anticipates.
+- Photography is still a very new medium and everything must be tried and dare.
+- Most photographers would feel a certain embarrassment in admitting publicly that they carried within them a sense of wonder, yet without it they would not produce the work they do, whatever their particular field.
+- It is part of the photographer's job to see more intensely than most people do. He must have and keep in him something of the receptiveness of the child who looks at the world for the first time or of the traveler who enters a strange country.

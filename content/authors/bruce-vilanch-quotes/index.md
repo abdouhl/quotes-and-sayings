@@ -1,0 +1,31 @@
++++
+author = "Bruce Vilanch"
+title = "Bruce Vilanch Quotes"
+quotes_len = "25"
+description = "the best 25 Bruce Vilanch Quotes"
++++
+- Of course I adored and wanted to be Catwoman. That goes without saying.
+- What makes me laugh? Richard Nixon always made me laugh.
+- They make a humongous profit, but the people that work on the shows don't get paid a lot because they're working on the Oscars show. It's the biggest show in the world.
+- When AIDS hit, lots of people banded together to take care of each other and do what the government wasn't doing. When you grow up Jewish, as I have, you learn that everybody hates you, no one's going to help you, and you have to take care of yourself. That's a great maxim to the gay community, and we took it to heart; we took care of our own.
+- I have one rave 'New York Times' review framed next to a flop 'Los Angeles Times' review. And it's for the same show. These people watched the same show. That's what happens. They love it, they hate it.
+- For years, I was compared to Wookiees, especially after I did the 'Star Wars Holiday Special.' I have some photos of me with a few of the Wookiees on the set, and it's hard to tell us apart.
+- I've got more chins than a San Francisco phonebook.
+- The Oscars are about the dynamics of that moment, of that season. It reflects what's been going on in the world every year through the movies. And a lot of times, what's popular at the movies is popular because of what's going on in the world at that moment.
+- It's the biggest party in the world, and you have to keep the whole thing percolating, which is difficult because a lot of awards most people don't care about.
+- As I'm always fond of telling hosts at the Oscars who are doing it for their first time, for everybody who wins, there are four people who don't. As the evening wears on, the room fills up with losers, and then they are bitter.
+- Eddie Izzard is absolutely brilliant. I would love to write something for him.
+- I think I intimidate hecklers because I weigh more than most of them.
+- It's really live television, the way God meant it to be.
+- Musicals have clearly gotten more physical. You never saw Ethel Merman doing step aerobics.
+- I've learned that most of gay America is coupled up, or looking to be. No wonder gay marriage has such traction. So many of us are already in it, so of course we want the legal benefits.
+- I mean, I've sold all these scripts and nothing's been made. Studios have closed, stars have died. I had a director find Jesus. And the pictures just don't get made.
+- Generally with the Oscars or the Emmys there isn't much you can do until the nominations are announced. Then you know what kind of year you're dealing with - what's been overlooked, what the issues are.
+- I write screenplays that don't get made and pilots that don't get picked up, and I re-write other people's movies, and those are all different kinds of fees.
+- I mean, when I started out I was billing per hour, like a shrink because you would sit with somebody and work. But most of it, if it's for a live show it's usually a buy-out. A flat fee.
+- I've written about 15 screenplays and they all sold - they were all sold on pitches.
+- My assistant says I'm an eBay auction waiting to happen. I have a very large collection of T-shirts... about 4,000 now. Maybe I'll pillage it someday. I have resisted the offers to do a line of T-shirts.
+- Who knew we had all this O.C.D. in the world? Well actually, I suppose it's pretty obvious. It explains Sudoku, doesn't it?
+- Every single line on the Oscar show is negotiated. Unless you've been there, you have no idea how it is put together. It's like nothing else on earth. I'm writing a book about it, but I have to throw in my sexual escapades to make sure it sells.
+- My skirt fell off on stage during a performance of Hairspray on Broadway, revealing my fat suit over my own natural fat suit. I turned to the audience and said, 'Now you know why I spent six years in a square.'
+- I do a lot of screen re-writing.

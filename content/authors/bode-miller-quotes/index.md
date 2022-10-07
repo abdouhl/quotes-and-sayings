@@ -1,0 +1,47 @@
++++
+author = "Bode Miller"
+title = "Bode Miller Quotes"
+quotes_len = "41"
+description = "the best 41 Bode Miller Quotes"
++++
+- My grandfather was very into horse racing, and I found some of his old journals and got into it from there. It has a lot of parallels to skiing. It's a fun lifestyle, being around the racetrack.
+- I had to think about ankle torsion, where the screws are on the ski, how that affects the forces going into the ski and how the ski bends, your leverage points. It was a challenge. I was having the greatest time, making the mistakes, crashing.
+- My team has been very unreceptive about the fact that I consistently show them that I train slightly differently than they do, that I consistently show them that I am in better shape for ski racing than anyone else on the team.
+- That feeling is the same whether you're on either side of the hundredths. Obviously, it's great to win the world championship, but if you put down that kind of skiing, it's awesome either way.
+- My daughter's name is Neesyn Dacey but everyone calls her Dacey. Her mom chose Neesyn and I chose Dacey after she was born. The mother is a good friend of mine who I was seeing a while ago. We are no longer together.
+- It's important for me to live my life honestly.
+- People want athletes to cater to their image of what an athlete should be, but they also want them to fail so they can feel like their screwups are all right. If I make a priority shift, I'll make it because it's best for me.
+- Sometimes it's all about the win, sometimes it's about the skiing.
+- It's nice, being brought up with no money at all. It's just not how I measure success, so that makes it a bunch easier.
+- But there was no question in my mind that I was gonna still go for it. I was still going for the win. I wasn't skiing for second or third place today, and in the end I think that's probably what got me there.
+- The same people who recognize I came out with no medals should recognize I could have won three.
+- I simply think things through, and I look at problems. One thing I pride myself on is the ability to connect unconnected thoughts and come up with new, unique thoughts.
+- People think coming in under the radar is like being a fighter pilot and actually coming in under the radar. It's a completely ridiculous idea to come in under the radar. It's the Olympics; everyone is on the radar here.
+- I went through a period at boarding school when my coaches wanted me to switch to snowboarding because they thought I was no good at skiing. I was too skinny. I had terrible technique. They were saying I should be a snowboarder, and luckily, I resisted.
+- When you get old, it's hard to tell what's memory and what you've kind of created in your head as memory, you know?
+- People in the U.S. will watch anything if it's put in front of their face over and over again. I like to see what's possible, more than anything.
+- It does matter that it's the Olympics. I just did it my way. I'm not a martyr, and I'm not a do-gooder. I just want to go out and rock. And man, I rocked here.
+- There's so many guys skiing so fast right now that you really have to be willing to take a lot of risks if you want to give yourself a chance to win. I'm prepared to do it; it's just a matter of if I can make it work.
+- I like to keep my private life private for the most part.
+- I think four Olympics is probably enough. Five Olympics is a long time, but there's nothing wrong with that if I'm into it and I'm healthy and my priorities can fit around that.
+- Obviously, you always want to win, but you want to win by skiing a race that you're proud of and you feel like you really challenged yourself and left it all out there.
+- I always do the contrary of what my coaches tell me.
+- I've been exploring different options for when I'm done skiing. I have the Turtle Ridge Foundation, which is helping a bunch of worthy causes around the Northeast. I've also started SkiSpace, which is an online social network that basically deals with all things based around any snow sport.
+- I really am a thinker. I don't do things rash. I know some of the things I've said or the way I act seem rash. But I do take ownership of it. I don't say things I don't mean.
+- I don't put anything in front of taking ski racing and sports seriously.
+- We should tell our kids to just have fun, participate and not get bent on winning or losing. But every coach, when they say that, they say it tongue in cheek, 'Don't worry about winning': If you win I'll get you ice cream, but if you lose I'm going to pout in the car.
+- I had crashes when I was small and Gumby-like that would have killed me now. I would just fly off jumps and go 40 or 50 meters when I was 6 years old - break skis, smash my goggles and get a bloody nose and go crawl inside for a little while and then come back out and ski more in the afternoon.
+- A huge adrenaline rush is usually followed by a pretty low point.
+- Once the season starts for me, there isn't a change in my focus, just a change in my tactics and strategies.
+- My mom played the recorder. But not having electricity, we had minimal exposure to music. As I got a little older, we had Walkmans and things that were battery-powered, but it would have been nice to be growing up in the iPod era. A tape only has six songs on a side.
+- My goal is the same as every year - to not hurt myself.
+- My sister has three kids so I've spent a lot of time around children and I've always really liked them and wanted my own. It's cool because you think all babies are the same but they aren't at all. They all have such different personalities. It's crazy.
+- I'm still having fun and as long as skiing is enjoyable, I'm going to continue to do it.
+- Eventually I'd like to have a family. I'd like to not be limping around when I'm 50 years old.
+- One kid's old, used-up equipment is another kid's brand-new, awesome, awesome equipment.
+- In some ways, that's the story of my season - when I wasn't making big mistakes, I was winning races and being on the podium. And when I made mistakes I was still fourth or fifth, just off the podium.
+- When you back off, it's easier to do mistakes. For me it's better to ski fast.
+- You feel the Olympics and you get chills and nervous and a little scared. You go through the emotional roller coaster at what it's like to compete at the Olympic level and you let that run through your whole body.
+- From 1999 to 2003 was the peak of equipment in ski racing. Since then, it's all gone in the wrong direction.
+- One of the really important things about the Olympics is, to enjoy yourself, you have to accept that it's different and feed off the enthusiasm of everyone and the inspiration and hopefully that will elevate your performance.
+- It's not quite as important who you beat as that you end up on top.

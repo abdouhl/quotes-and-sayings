@@ -1,0 +1,24 @@
++++
+author = "Bruce Sutter"
+title = "Bruce Sutter Quotes"
+quotes_len = "18"
+description = "the best 18 Bruce Sutter Quotes"
++++
+- I have an older son, Josh, and growing up, he just didn't care that much for baseball. And that was fine. But Chaddie, he always wanted to go to the ballpark. He just kind of took to it right away.
+- Pitchers are going to break. You can limit their pitches and limit their innings, and they're still going to blow out. Pitching is hard on the arm.
+- My sons remember me most as a Cardinal. My one son is 26 years old, and I don't think he's ever seen me without a beard. It's not as black as it used to be, but it's still there.
+- I'm certainly thankful for what the Cubs did for me. I respect their organization. It's the same way with the Atlanta Braves, an awfully fine organization. I respect everybody who's down there, and that's still where I live today. But the Cardinals represent the best years of my career.
+- Young pitchers don't throw enough in the minor leagues, and when they get to the majors, they don't have the stamina; their arms haven't been built up.
+- My first year in the big leagues, I made $17,000. It was easy to go out and get another $17,000 relief pitcher. I never worried about innings or pitches. I just pitched.
+- I feel like a pioneer with the split-fingered fastball. I was the first one to really throw it pretty much 100 percent of the time. It was a pitch that I had to have. If I didn't have it, I wouldn't have been in the big leagues.
+- The three most important pitches I threw in my life were all fastballs.
+- Goose Gossage is a friend of mine, and he's definitely a Hall of Fame pitcher in my mind.
+- When I played, I never needed the spotlight, nor did I want it. I simply wanted to play baseball and be respected by my teammates and the opposing players.
+- The Cubs gave me a chance to play. They signed me as a free agent and brought me to the Major Leagues. The first day I walked into Wrigley Field was one of the best days of my life. And I owe them an awful lot.
+- It's not good or bad, but closers have changed things. I don't think you are going to win a World Series without one. Where would the Yankees be without Mariano Rivera?
+- I enjoy being out with the fans, I enjoy talking baseball, but to get up and tell my life story... I'm not comfortable doing that.
+- I'm basically a country person.
+- I could throw pretty hard. I might strike out 16 guys, but I might walk 10. I mean, I was wild.
+- It just tickles me still when you see Roger Clemens, as great as he is, throw a split-finger and the hitter just swings and misses. They don't see that ball that well. Jack Morris threw an awful good one and Mike Scott. There's a lot of great pitchers over the years that I think that pitch definitely helped their career.
+- It's that way all the way down the line. I've got a boy coaching college ball and another son coaching high school. All the way down to summer leagues, all the way down to kids who are 14 years old. All those teams have a closer.
+- I was short with my fastball and breaking ball.

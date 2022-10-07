@@ -1,0 +1,105 @@
++++
+author = "Ravi Subramanian"
+title = "Ravi Subramanian Quotes"
+quotes_len = "99"
+description = "the best 99 Ravi Subramanian Quotes"
++++
+- I am not a great fan of serious, heavy writing. I prefer simple, short sentences, light on prose.
+- While a lot of management development books try to teach you a lesson or give you a scenario of what corporate culture and work practices are about, they're theoretical and written in a sermonizing way. Most people don't get past the first chapter, and they just look nice on the bookshelf.
+- Corporate career is like my wife, and writing is my girlfriend. My priority is the first but enjoy doing the second, as I have taken to writing as a stress-beater.
+- If you see in all my books, I have two key intentions. One is obviously to entertain and make sure that the reader has a good reading experience. I also try to write on subjects that nobody has dealt with before to make my works different from other page turners.
+- At times, parents foist their own choices on kids and try to get them to read the classics. But kids have very high filters and don't take to it. At other times, parents simply don't know what books to select for their children and end up giving books that aren't appropriate.
+- In Indian companies, people aren't too worried about the pace of growth as long as you're setting up a business which will survive for years.
+- A profession which is seen as intellectually glamorous is often the most misunderstood when it comes to the commerce involved.
+- As long as youngsters learn the right things, it really doesn't matter where they learn it from.
+- Books should be both enlightening and entertaining.
+- You need to be the CEO of your own book.
+- In fiction, if people like one of your books, they tend to pick up your other books as well.
+- As authors, we know that it is very difficult to unleash one's creativity.
+- To me, a good storyteller should be able to tell stories across genres.
+- The opportunity to create wealth in foreign banks exists only in the investment banking space. Working in a local company teaches you to think long term.
+- After my first book, I figured that since it was successful, I wanted to continue things better.
+- I do not think I will ever write screenplays based on my books. I would not know what to cut out and what portions to keep. I like all the characters I have created. I cannot imagine chopping them off.
+- A writer must experiment with genres. Otherwise, it is a restriction on the craft.
+- The royalty any author gets is dependent on his track record and marketability and often on the price of his book, too. The higher you price a book, the more comfortable your publisher will be in paying you a higher royalty.
+- I'm an executive director at a company which gives out retail loans.
+- It is important to send your work to as many publishers as possible. For every one publisher who may show interest in your work, there will be at least five who will reject you.
+- Saying 'I am not interested in politics' is no guarantee that people will leave you alone. The politically-inclined will single you out as a soft target and go after you.
+- My favourite authors are Jeffrey Archer, for his story telling skills; John Grisham, for the completely new genre he created; and James Patterson, for the way he created a new business model out of writing.
+- There is some confusion in my mind whether to continue to write on banking or try newer pastures.
+- In India, we don't read thrillers; we read authors.
+- I believe any fiction writer is inspired by real life.
+- With thrillers, I tend to concentrate on the research and pace more than the characters.
+- If you have sold the film rights to somebody, take your money and leave. If the producers need you, they will call you. But you have to be careful about who you are selling your book to, and ensure that it is not tampered with.
+- People think writing is a very distinguished, cerebral thing, where all you do is write. It doesn't work that way. People have to see online promotions, see piles of your book in stores, and you have to make sure the guy recommends it!
+- There were many times in my initial days as a writer when I had felt the need to talk to someone, to leverage on someone's experience, to learn from someone who had written and published a book.
+- The problem with most of the want-to-be authors is that they are unable to focus. Either they have no idea of where to begin, or they have hundreds of ideas and don't know which one to pick. Both scenarios leading to one result... they give up even before they start.
+- Most MBA graduates are hungry for intellectual glamour.
+- For me, writing is fun. The day I quit my job and take up writing full time, writing will become just another job. A commercial necessity.
+- If there is one currency that helped Wikileaks take on the might of the U.S. Government, it was Bitcoins.
+- I firmly believe that there is no better thriller writer than Harlan Coben.
+- After my first book, many of my readers came back to tell me that the female characters I had created were not strong enough. I have consciously rectified that in my next four books. In any case, it's true that women run the world, and men would do better to listen to them!
+- For 'The Bestseller'... there was hardly any research, but I had to give each person a quirk and develop their stories so that it would relate to who they are.
+- My favourite authors are John Grisham and Jeffrey Archer. Grisham rapidly established himself and now completely owns the legal space of fiction writing, something I want to do in financial space. I like Archer because he keeps his readers engaged: every chapter is a page turner, and he keeps his writing simple.
+- An author needs to be in the market. He or she needs to come out with a new book every year. That keeps you alive in the public mind and gives a push to your older books.
+- When you write stories linking reality to a big storyline, people relate to it better.
+- I've always wanted to write, but coming from a small-town background - I was born and brought up in Ludhiana - you think you're not the kind of literary person who will write books that will sell. There was always a kind of defensiveness in me.
+- The first draft is usually junk. You have to work on it seven to eight times.
+- I read almost everything that comes my way.
+- I believe if you've written a book, you have to stand up and say, 'Guys, buy the book.'
+- Writing with a film in mind - writing like a screenplay - is a sureshot recipe for disaster.
+- I keep saying my books don't have superheroes. They have ordinary people in extraordinary situations.
+- One shouldn't say yes in desperation to the first publisher who approaches. New authors especially should wait and weigh their deal and agree only when they are sure that they have landed themselves a good offer.
+- My understanding is that a book becomes a best seller only when it is pirated, sold on footpaths and at traffic lights.
+- I am very adventurous with authors, but not very with genres.
+- Thousands of books are published every year in India, and it's becoming more difficult to stand out and get people to buy the books. The only way to get people notice the book is to create a buzz much before it's released.
+- I'm probably one of the few authors in this country who could very comfortably live off my writing.
+- I cannot write in isolation. I write with people around me.
+- With social media, one can target the audience and reach out to the segment in a very precise, cost-effective manner.
+- There's a market for fiction based on financial services. People wanted me to write stories based on this sector. There's a gap in the market, and I'm trying to fill it.
+- A lot of things that I write about have happened to people around me, if not necessarily to me or in the organizations I've worked in. Having said that, it's fiction and has a lot to do with my imagination and creativity.
+- It is almost impossible to win back a reader's loyalty once it's gone.
+- Write something that you are comfortable with. Do not venture into something that you do not want to write about, because gradually, your discomfort with the subject will begin to show.
+- I can write in my living room with my wife and kid around.
+- It's not research if you're really interested in what you're reading.
+- You don't have to be a criminal to write about fraud!
+- The distribution might which Penguin brought to the table and the stature they gave me as an author is unparalleled.
+- To make time for writing, one has to take time out from somewhere. Obviously, a fair amount of time that you spend with the family gets compromised. But my family has been very understanding and supportive.
+- I had, at a point in time, decided not to write on the corporate world. But if people expect me to set stories in a work environment, then why go away from it?
+- When James Bond presses the watch and the car explodes, the writer doesn't go into the science of it. One should leave it to the leap of faith. I have tried to explain as much as possible, and what I can't, I have left it to people's imagination.
+- My preferred genre of reading is crime thrillers - books by Harlan Coben, Jo Nesbo, David Baldacci, James Patterson, Ashwin Sanghi and a few others - and I write crime thrillers.
+- A thriller needs to hold the interest of the reader from the very beginning. It needs to engage with them, hold them in rapt attention, and prevent them from putting down the book.
+- A self-confessed fan of Harlan Coben, I find it difficult to not read a new Harlan Coben novel the week it comes out.
+- If you are careful about the content and writing style, readers will not feel that you are in a hurry.
+- I will do everything in my power to keep my readers.
+- One can become drab, dull, and boring doing the same thing every day. Writing helps break the monotony.
+- When you write, you put your thoughts in the public space. You get both positive and negative feedback.
+- Bitcoin is complex: the entire private and public key issue, the transfers, the mining of bitcoins... but if you tell it as fiction, people would understand and remember.
+- A bookstore has thousands of titles to sell. You need to be the guy the store attendant recommends to the reader.
+- I always felt that one needs to be remembered long after one has gone.
+- If a reader likes a particular author, they keep reading all his books, and if the supply is not kept up, then the reader shifts his loyalties.
+- Generally, people who crib about corporate politics are, more often than not, those who've played the game but lost it.
+- I enjoy writing and promoting my books. I enjoy the feedback. But all this is because I don't depend on it commercially. I don't need that money. I have a career.
+- I believe Bitcoin is a very convenient way to shop and to transfer money to any account around the world. Governments should work around a framework for the currency instead of putting restrictions on it.
+- I look at every book as a new learning opportunity.
+- There is a certain amount of intrigue that gets created by revealing portions of the book and, in the process, generating a certain amount of interest. Often, authors do this by releasing a few chapters online or even releasing film-like trailers.
+- I write largely plot-driven stories.
+- Any author gets inspired by the experiences and events that happen to him or his immediate circle. While that's where the seed or the idea germinates, by the end of the story, it accounts for hardly anything in the book.
+- A misconception that exists in the eyes of the general reading population is that authors make truckloads of money.
+- Writing in India will not dramatically change till we learn to value books.
+- If evil wins in a Bollywood film, it is bound to flop. A lot of people here want to change society, so they like to read about it being changed. And that means good usually triumphs.
+- If somebody says that they want to write a book but do not know what to write about, they will never write a book.
+- I must say that books in India are not only underpriced but are also undervalued.
+- I have a day job where I make money and satisfy my self-esteem. Writing is for fun, and I want to keep it that way.
+- I find writing to be a great stress-buster.
+- If I did not have a de-stresser such as writing novels, I would lose focus at work.
+- Given my extensive background in foreign banks, writing about them came quite naturally to me. Thankfully, God has been kind to me.
+- I write about banking because it is something I'm familiar with. Also, I don't have to do much research on it.
+- I feel as long as people enjoy what they read and learn something more, I have done my job as a writer.
+- Books marketing has moved from the review culture to a preview culture.
+- I would like to implore all the governments of the world to come together to form a protocol to regulate virtual currency.
+- I get to office early at about 8 A.M., and I'm back home by 6 to write.
+- Most writers write from their own experiences. That is where the honesty and intensity of emotions come from.
+- People take shortcuts to meet ends in MNCs.
+- Kids who read are bright.
+- When 'If God Was a Banker' became a success, it changed my entire perspective. I wanted to write more and wanted to be lot more successful as a writer.

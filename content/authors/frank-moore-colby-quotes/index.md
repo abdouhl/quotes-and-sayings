@@ -1,0 +1,24 @@
++++
+author = "Frank Moore Colby"
+title = "Frank Moore Colby Quotes"
+quotes_len = "18"
+description = "the best 18 Frank Moore Colby Quotes"
++++
+- One learns little more about a man from the feats of his literary memory than from the feats of his alimentary canal.
+- Every man ought to be inquisitive through every hour of his great adventure down to the day when he shall no longer cast a shadow in the sun. For if he dies without a question in his heart, what excuse is there for his continuance?
+- Politics is a place of humble hopes and strangely modest requirements, where all are good who are not criminal and all are wise who are not ridiculously otherwise.
+- Many people lose their tempers merely from seeing you keep yours.
+- We do not mind our not arriving anywhere nearly so much as our not having any company on the way.
+- Clever people seem not to feel the natural pleasure of bewilderment, and are always answering questions when the chief relish of a life is to go on asking them.
+- I have found some of the best reasons I ever had for remaining at the bottom simply by looking at the men at the top.
+- Men will confess to treason, murder, arson, false teeth, or a wig. How many of them will own up to a lack of humor?
+- I know of no more disagreeable situation than to be left feeling generally angry without anybody in particular to be angry at.
+- Cast your cares on God; that anchor holds.
+- Persecution was at least a sign of personal interest. Tolerance is composed of nine parts of apathy to one of brotherly love.
+- That is the consolation of a little mind; you have the fun of changing it without impeding the progress of mankind.
+- If a large city can, after intense intellectual efforts, choose for its mayor a man who merely will not steal from it, we consider it a triumph of the suffrage.
+- Talk ought always to run obliquely, not nose to nose with no chance of mental escape.
+- A 'new thinker', when studied closely, is merely a man who does not know what other people have thought.
+- Every improvement in communication makes the bore more terrible.
+- The New York playgoer is a child of nature, and he has an honest and wholesome regard of whatever is atrocious in art.
+- We always carry out by committee anything in which any one of us alone would be too reasonable to persist.

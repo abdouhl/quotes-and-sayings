@@ -1,0 +1,17 @@
++++
+author = "Bryant Gumbel"
+title = "Bryant Gumbel Quotes"
+quotes_len = "11"
+description = "the best 11 Bryant Gumbel Quotes"
++++
+- I'm still going to do television. I'm just not going to do morning television. I would like to do some things that satisfy interests, private interests.
+- I have been a sports fan my whole life. To be able to talk about sports in an intelligent, journalistic fashion and to do things of a serious nature is a dream job.
+- We are essentially in the business of telling stories. We would like to think that most of our stories are basically human stories with sports as a backdrop.
+- I don't want to wait until something happens to see who my friends are.
+- It's not that I dislike many people. It's just that I don't like many people.
+- My mom sees her sons as baby boys. Well, I stopped being her baby boy a long time ago.
+- I feel responsibility for a lot of things that I manage to touch.
+- If I'm in a room with 100 people, will I be able to find one person I'd like to have dinner with? Probably not.
+- There is a lot to life, and a lot more than just television to life.
+- You'll never see me working five days a week again.
+- Your emotions are exposed when you play golf: humility, pride, anger, it all comes out with each swing. You lay it all on the line.

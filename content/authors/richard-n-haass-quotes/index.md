@@ -1,0 +1,105 @@
++++
+author = "Richard N. Haass"
+title = "Richard N. Haass Quotes"
+quotes_len = "99"
+description = "the best 99 Richard N. Haass Quotes"
++++
+- Terrorism needs to be de-legitimized in the way that slavery has been. Doing so will make governments and individuals think twice before becoming a party to terrorism; it should also make it less difficult to garner support for international action against those who nevertheless carry it out.
+- The decision to attack Iraq in March 2003 was discretionary; it was a war of choice.
+- Dissent is difficult. It can constitute a real dilemma for the person who disagrees.
+- American presidents get to make lots of choices, with one critical exception: what awaits them in the in-box on top of the desk in the Oval Office.
+- America's armed forces are an essential background to much of what the U.S. accomplishes internationally.
+- Donald Trump's United States is not isolationist. He has authorized the use of limited military force against the Syrian government in a manner his predecessor rejected.
+- Terrorists and terrorism cannot be eliminated any more than we can rid the world of disease. There will always be those who will resort to force against innocent men, women, and children in pursuit of political goals.
+- America must reduce its fiscal deficit, modernize its infrastructure, and improve its schools.
+- There is a clear norm against the spread of nuclear weapons, but there is no consensus or treaty on what, if anything, is to be done once a country develops or acquires nuclear weapons.
+- Foreign policy must be about priorities. The United States cannot do everything everywhere.
+- There is no way to know for certain what accounts for North Korean decisionmaking, given how closed a country it is.
+- Not every threat to America's national interests can be addressed with military power.
+- The vote in the United Kingdom in favor of leaving the E.U. attested to the loss of elite influence.
+- Terrorists continue to be outliers with limited appeal at best.
+- Americans were happy to buy vast quantities of relatively inexpensive Chinese manufactured goods, demand for which provided jobs for the tens of millions of Chinese who moved from poor agricultural areas to new or rapidly expanding cities.
+- September 11, 2001, was a terrible tragedy by any measure, but it was not a historical turning point. It did not herald a new era of international relations in which terrorists with a global agenda prevailed or in which such spectacular terrorist attacks became commonplace.
+- An open, market-oriented, and peaceful Iraq could also advance reform and growth across the entire region.
+- The United States emerged from the Cold War with unprecedented absolute and relative power. It was truly first among unequals.
+- In a world in which the United States does less, whatever set of calculations, other countries will tend to calculate - to move in one of two ways. Either they will assuage or, to use a more loaded term, appease the strongest power in the neighborhood with all the consequences of that, or they will determine to take matters into their own hands.
+- I am confident in saying that Oberlin did more for me than vice versa. I took a fantastic class in religion, which led me to archaeology, which got me to the Middle East, which led me to international relations, which launched me on my career.
+- Unrestrained zeal to make the world better could make it worse. Promoting democracy must be undertaken with humility, care, and wisdom.
+- The political world is defined by relationships rather than transactions, and by numerous actors at home and abroad with independent power. Navigating such a world is difficult and precarious.
+- I believe in diplomacy; I don't believe in talking to... that talking to Iran somehow constitutes a concession or a favour.
+- No one pursuing reasonable goals and who is prepared to compromise can argue that terrorism is his or his group's only option.
+- I tend to be one of those who does not equate democratization with the holding of elections. The emphasis ought to be on such things as rule of law, economic reform, and promotion of a free media - in short, essentially independent, free institutions.
+- It is important to signal that opposition to the use of any weapon of mass destruction is both deep and broad.
+- A China that trades extensively with the U.S. and its Asian neighbors will think twice before it pursues any policy that would place those relationships at risk. Likewise, trade between India and Pakistan could contribute to the normalization of ties between these long-estranged neighbors.
+- Speaking truth to power is actually a form of loyalty.
+- Living with a nuclear North Korea could give its leaders the confidence to act more aggressively versus South Korea. It could also, over time, drive both South Korea and Japan, as well as countries farther afield such as Vietnam, to reconsider their non-nuclear postures. The stability of a critical region of the world would suddenly be in doubt.
+- How can we pressure China on North Korea if China's one of the two largest holders of American debt?
+- Homegrown terrorists are a real problem for even the most modern, democratic societies.
+- The benefits of freer trade, such as job creation, lower inflation, and greater consumer choice, are often invisible or only partly visible.
+- The first Iraq War was one of necessity because vital U.S. interests were at stake, and we reached the point where no other national-security instruments were likely to achieve the necessary goal, which was the reversal of Saddam Hussein's invasion and occupation of Kuwait.
+- When great powers fade, as they inevitably must, it's normally for one of two reasons. Some powers exhaust themselves through overreach abroad, underinvestment at home, or a mixture of the two. This was the case for the Soviet Union. Other powers lose their privileged position with the emergence of new, stronger powers.
+- Vietnam was not a war of choice the United States had to fight. It was clearly not central.
+- If old American alliance commitments don't count for as much, countries will, in some cases, then say, 'Well, we've got to militarize in certain ways and act more independently.'
+- Trade accords had been a staple of the post-World War II world, providing a mechanism for economic growth, development, and association with friends and allies, and a means of reining in would-be adversaries who otherwise would have little incentive to act with restraint.
+- The horror and tragedy that was 9/11 did many things; one of them was to galvanize this country and much of the world against terrorists and those who support them.
+- White House staff are meant to coordinate and set policy, not carry it out.
+- Americans never would alter the way entitlement programs are funded or education administered without serious study and widespread debate.
+- If you assume away most or all of the questions or difficulties, you can persuade yourself of just about anything.
+- The United States is not just another country. It has more capacity and potential to influence the world than any other country - and no other country has the resources and mindset to lead a world that is not on autopilot.
+- Americans, for their part, must accept that a strong Europe will not be content to simply do America's bidding.
+- Nationalism is a tool increasingly used by leaders to bolster their authority, especially amid difficult economic and political conditions.
+- Trade is the all-but-forgotten weapon in the battle against poverty, but it can provide more help to the poor than aid can.
+- The United States, working closely with the United Kingdom and others, established the liberal world order in the wake of World War II. The goal was to ensure that the conditions that had led to two world wars in 30 years would never again arise.
+- The rise of populism is in part a response to stagnating incomes and job loss, owing mostly to new technologies but widely attributed to imports and immigrants.
+- The U.S. does not want to live under the shadow of a North Korea that possesses long-range missiles capable of delivering nuclear payloads to American cities. At the same time, the U.S. has no appetite for a war that would prove costly by every measure.
+- Russian membership in the World Trade Organization has the potential to strengthen the rule of law, combat corruption, and give Russia a stake in better relations with the outside world.
+- Black markets exist any time there is a profit to be made.
+- Indeed, in foreign policymaking, inconsistency is often a virtue. I speak not of principles but of policy.
+- Weapons of mass destruction - nuclear, biological, and chemical weapons - are just that, and no cause can excuse their use.
+- Wars of necessity are essentially unavoidable. They involve the most important national interests, a lack of promising alternatives to the use of force, and a certain and considerable price to be paid if the status quo is allowed to stand. Examples include World War II and the Korean War.
+- No country can succeed if it denies itself the talents of half of its people.
+- In a global world, what happens within one country can all too easily affect others.
+- Generically, wars in necessity are wars where, I think, the vital interest of the nation are at stake, in which there are no viable alternatives to the use of force.
+- Bad situations can always get worse.
+- To be sure, many of the Sykes-Picot borders reflected deals cut in Europe rather than local demographic or historical realities. But that hardly makes the Middle East unique: Most borders around the world owe their legacy less to thoughtful design or popular choice than to some mixture of violence, ambition, geography, and chance.
+- If anything, what happened in Iraq after the fall of Saddam set back prospects for democratic reform in the region, as many came to associate political change with chaos.
+- Trump's foreign policy is not so much immoral as it is amoral.
+- It is neither feasible nor desirable for Europe to establish itself as a geopolitical equal or competitor of the U.S.
+- Campaigning and governing are two very different activities, and there is no reason to assume that how Trump conducted the former will dictate how he approaches the latter.
+- Our inability to govern ourselves at home, to deal with everything from infrastructure to our debt to tax policy, is reducing the appeal of the American model.
+- The abolition of the presidential term limit and President Xi Jinping's concentration of power have come as an unwelcome surprise to many.
+- Democracy requires an informed citizenry able to question its government.
+- Russia may well be willing to stop interfering in Eastern Ukraine in exchange for a degree of sanctions relief if it could be assured that ethnic Russians there would not face reprisals.
+- For President Bush, the first, the 41st president, George Herbert Walker Bush, I spent all 4 years of his presidency on the staff for the National Security Council.
+- It is in the interest of Americans to find out what those wanting to be president think about a wide range of challenges and what they might do about them. We should want to get their take on the wisdom of past decisions, what they agree and disagree with, and why.
+- American influence in the world depends on the ability to act with real capacity and set an example that others will want to follow. This all takes resources.
+- If Trump, for whatever reason, continues to coddle Russia, then Congress, the media, foundations, and academics should publicly detail the corruption that characterizes Putin's rule.
+- Dissent is as American as cherry pie.
+- Security is the absolute precondition for sustainable recovery from conflict; without it, people cannot rebuild their country or return to school or work.
+- I did not support the U.S. decision to intervene with military force in Libya. The evidence was not persuasive that a large-scale massacre or genocide was either likely or imminent. Policies other than military intervention were never given a full chance.
+- History shows that societies where opportunity is safeguarded tend to be societies that are good international citizens.
+- On occasion, terrorists will succeed despite our best efforts. That is part of the legacy of 9/11. But 9/11 also shows us that while terrorists can destroy, they are unable to create.
+- What is obvious is that Donald Trump is comfortable with an approach to running his presidency based on what worked for him in the private sector.
+- Indeed, the big U.S. error after 9/11 was to treat Pakistan as if it were an ally. With an ally, it is possible to assume a large degree of policy overlap. With Pakistan, no such assumption can be made.
+- The Trump administration has been characterized by adhocracy during its initial months. The initiative limiting immigration is a case in point. The new policy was not vetted fully within the administration - indeed, then-Acting Attorney General Sally Yates first read the decision after the text of the new executive order was published online.
+- It is difficult to think of a foreign policy issue that preoccupies and polarizes world opinion as much as the Palestinian question.
+- Good people cannot fully compensate for bad process, but they can mitigate some of its worst tendencies.
+- It is true that the U.S. could and should have been more generous as Russia made its painful transition to a market economy in the 1990s.
+- For too long, America tolerated a 'democratic exception' in the Muslim Middle East. As long as governments were friendly and backed regional stability, there was no need for outsiders to encourage representative government.
+- Europeans must shed their illusions about what they can accomplish in the world on their own. Loose talk about resurrecting a multi-polar world is just that - loose talk.
+- No amount of sanctioning will persuade North Korea to give up nuclear weapons, nor will China step up and solve the problem for us.
+- We all have some basic obligation to one another.
+- Modern terrorism is too destructive to be tolerated, much less supported.
+- The Internet, one of the great inventions of the modern Western world, has shown itself to be a weapon that can be used to incite and train those who wish to cause harm to that world.
+- What countries must do to join the World Trade Organization is precisely what they must do to become productive and democratic: accept the rule of law, reduce corruption, and become open, accountable, and transparent.
+- Terrorism is a decentralized phenomenon - in its funding, planning, and execution.
+- Paradigm shifts, particularly in diplomacy and security issues, are, by definition, major undertakings.
+- There is no getting around the reality that the second Iraq war was a war of choice; had it been carried out differently, it still would have been an expensive choice and almost certainly a bad one.
+- Trump is the first post-World War II American president to view the burdens of world leadership as outweighing the benefits.
+- Diplomacy can and will matter; little is inevitable in international relations.
+- Any time you use military force, you have got to have a clear purpose that military forces can achieve.
+- Middle East history is replete with examples of missed and lost chances to make peace.
+- I did not believe in the Iraq war.
+- There's a pattern in Bush 43's presidency of being attracted to the big and the bold, and my whole reading of him is that he was instinctively uncomfortable with what you might call a modulated foreign policy - a foreign policy of adjustment, of degree.
+- Success in foreign policy, as in carpentry, requires the right tools for the job.
+- Difficult choices, unlike red wine, rarely improve with age.

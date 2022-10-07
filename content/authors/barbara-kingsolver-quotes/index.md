@@ -1,0 +1,74 @@
++++
+author = "Barbara Kingsolver"
+title = "Barbara Kingsolver Quotes"
+quotes_len = "68"
+description = "the best 68 Barbara Kingsolver Quotes"
++++
+- Memory is a complicated thing, a relative to truth, but not its twin.
+- I live in southern Appalachia, so I'm surrounded by people who work very hard for barely a living wage. It's particularly painful that people are working the farms their parents and grandparents worked but aren't living nearly as well.
+- I suppose that is my central obsession. What we owe to society, what we owe to ourselves.
+- Few people know so clearly what they want. Most people can't even think what to hope for when they throw a penny in a fountain.
+- I used to think religion was just more of the same thing. Dump responsibility on the big guy. Now I see an importance in that. It's a relief to accept that not everything is under your control.
+- There's always a part of your nation's history that you haven't been told that... has a powerful impact on how you yourself may behave and may believe.
+- Being a novelist and being a mother have exactly coincided in my life: the call from my agent saying that I had a contract for my first novel - that was on my answering phone message when I got back from the hospital with my first child.
+- It kills you to see them grow up. But I guess it would kill you quicker if they didn't.
+- I don't understand how any good art could fail to be political.
+- Literature sucks you into another psyche. So the creation of empathy necessarily influences how you'll behave to other people.
+- After 'The Poisonwood Bible' was published, several people believed that my parents were missionaries, which could not be further from the truth.
+- Empathy is really the opposite of spiritual meanness. It's the capacity to understand that every war is both won and lost. And that someone else's pain is as meaningful as your own.
+- The first sentence of a book is a promise.
+- Terms like that, 'Humane Society,' are devised with people like me in mind, who don't care to dwell on what happens to the innocent.
+- The truth needs so little rehearsal.
+- I do my best work if I think about what it is I have to offer.
+- Most of my books have been about the complex ways an individual depends on community.
+- I live in a rural part of Virginia surrounded by farms and farmers.
+- To be hopeful, to embrace one possibility after another that is surely the basic instinct - crying out: High tide! Time to move out into the glorious debris. Time to take this life for what it is!
+- Nonfiction requires enormous discipline. You construct the terms of your story, and then you stick to them.
+- Small change, small wonders - these are the currency of my endurance and ultimately of my life.
+- I know I'm a rare person, a trained scientist who writes fiction, because so few contemporary novelists engage with science.
+- Southern Appalachians have been ridiculed since the country began. In fiction, they're usually depicted in a cartoonish manner. The region is poor, and very suspicious of outsiders, so there's a sort of 'us versus them' situation. They're easy to poke fun at.
+- Good fiction creates empathy. A novel takes you somewhere and asks you to look through the eyes of another person, to live another life.
+- It takes some courage to write fiction about politically controversial topics. The dread is you'll be labeled a political writer.
+- Libraries are the one American institution you shouldn't rip off.
+- Fiction and essays can create empathy for the theoretical stranger.
+- The older I get, the more I appreciate my rural childhood. I spent a lot of time outdoors, unsupervised, which is a blessing.
+- What keeps you going isn't some fine destination but just the road you're on, and the fact that you know how to drive.
+- Readers of fiction read, I think, for a deeper embrace of the world, of reality. And that's brave. I never get over being thankful for that - for the courage of my readers.
+- The important thing isn't the house. It's the ability to make it. You carry that in your brains and in your hands, wherever you go... It's one thing to carry your life wherever you go. Another thing to always go looking for it somewhere else.
+- I think the most interesting parts of human experience might be the sparks that come from that sort of chipping flint of cultures rubbing against each other. And living on the border between Mexico and the U.S. for so many years gave me a lot of insight into that.
+- I grew up aware of all the people I depended on and who depended on me.
+- I love developing children as characters. Children rarely have important roles in literary fiction - they are usually defined as cute or precious, or they create a plot by being kidnapped or dying.
+- What you lose in blindness is the space around you, the place where you are, and without that you might not exist. You could be nowhere at all.
+- When you pick up a novel from the bed side table, you put down your own life at the same time and you become another person for the duration.
+- I've always seen the world through the eyes of a scientist. I love the predictable outcomes that science gives us, the control over the world that that can render.
+- It seems very safe to me to be surrounded by green growing things and water.
+- My morning begins with trying not to get up before the sun rises. But when I do, it's because my head is too full of words, and I just need to get to my desk and start dumping them into a file. I always wake with sentences pouring into my head.
+- When people are frightened about going hungry and paying their mortgages, a scarcity model begins to prevail; they fear someone else will get their piece of the pie.
+- It's surprising how much memory is built around things unnoticed at the time.
+- Sometimes the strength of motherhood is greater than natural laws.
+- Most every book I bring into the world is like birthing a baby; it's a lot of effort!
+- It's a funny thing: people often ask how I discipline myself to write. I can't begin to understand the question. For me, the discipline is turning off the computer and leaving my desk to do something else.
+- Motherhood is so sentimentalised and romanticised in our culture. It's practically against the law to say there are moments in the day when you hate your children. Everyone actually has those moments.
+- In the day-to-day, farm work is stress relief for me. At the end of the day, I love having this other career - my anti-job - that keeps me in shape and gives me control over a vegetal domain.
+- Stop a minute, right where you are. Relax your shoulders, shake your head and spine like a dog shaking off cold water. Tell that imperious voice in your head to be still.
+- Pain reaches the heart with electrical speed, but truth moves to the heart as slowly as a glacier.
+- I never think that anything I'm writing is bluntly political in any way. I'm not going for commentary.
+- At home, growing up, we weren't really poor. We had everything we needed, we just didn't have what we wanted.
+- For me, writing time has always been precious, something I wait for and am eager for and make the best use of. That's probably why I get up so early and have writing time in the quiet dawn hours, when no one needs me.
+- I'm of a fearsome mind to throw my arms around every living librarian who crosses my path, on behalf of the souls they never knew they saved.
+- What a writer can do, what a fiction writer or a poet or an essay writer can do is re-engage people with their own humanity.
+- As a biologist, I can't think of myself as anything but an animal among animals and plant.
+- Every time I step onto an airplane, I turn to the right and take a good, hard stare into the maw of the engine. I don't know what I'm looking for. I just do it.
+- People in my novels always have terrible problems. If they are not terrible, I make them more terrible.
+- I don't bring expectations to any of my books. I don't tell people what to do. I want to invite them in.
+- Wars and elections are both too big and too small to matter in the long run. The daily work - that goes on, it adds up.
+- The very least you can do in your life is to figure out what you hope for. And the most you can do is live inside that hope. Not admire it from a distance but live right in it, under its roof.
+- You always need that spark of imagination. Sometimes I'm midway through a book before it happens. However, I don't wait for the muse to descend, I sit down every day and I work when I'm not delivering lambs on the farm.
+- I can count all the ways in which being a mother has enriched my understanding of the world, of character, my sense of the future and my attachment to it. I can't imagine what kind of writer I'd be if I didn't have my kids.
+- I think the most interesting parts of human experience might be the sparks that come from that sort of chipping flint of cultures rubbing against each other.
+- We're animals. We're born like every other mammal and we live our whole lives around disguised animal thoughts.
+- I was trained in classical piano, but it kind of dawned on me that classical pianists compete for six job openings a year, and the rest of us get to play 'Blue Moon' in a hotel lobby.
+- People's dreams are made out of what they do all day. The same way a dog that runs after rabbits will dream of rabbits. It's what you do that makes your soul, not the other way around.
+- I'm not pretending to be ingenuous; I know what I'm doing.
+- Every time I write a new novel about something sombre and sobering and terrible I think, 'oh Lord, they're not going to want to go here'. But they do. Readers of fiction read, I think, for a deeper embrace of the world, of reality. And that's brave.
+- When I sit down to write, I consider myself an artist.

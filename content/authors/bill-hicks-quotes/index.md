@@ -1,0 +1,38 @@
++++
+author = "Bill Hicks"
+title = "Bill Hicks Quotes"
+quotes_len = "32"
+description = "the best 32 Bill Hicks Quotes"
++++
+- It's always funny until someone gets hurt. Then it's just hilarious.
+- There is no such thing as death; life is only a dream, and we are the imagination of ourselves.
+- I'm a heavy smoker. I go through two lighters a day.
+- I'm sorry if any of you are Catholic. I'm not sorry if you're offended, I'm actually just sorry by the fact that you're Catholic.
+- Listen, the next revolution is gonna be a revolution of ideas.
+- I'm not really a heavy smoker any more. I only get through two lighters a day now.
+- Ultimately, it is in fun. It is supposed to be highly entertaining.
+- If you don't think drugs have done good things for us, then take all of your records, tapes and CD's and burn them.
+- People in the U.K. share my bemusement with the United States that America doesn't share with itself. They have a sense of irony, which America doesn't have, seeing as it's being run by fundamentalists who take things literally.
+- I'm totally confused about what I'm going to do with my life.
+- I get a kick out of being an outsider constantly. It allows me to be creative.
+- I hate patriotism... I can't stand it. It's a round world last time I checked.
+- I left in love, in laughter, and in truth, and wherever truth, love and laughter abide, I am there in spirit.
+- I don't like anything in the mainstream and they don't like me.
+- We are the facilitators of our own creative evolution.
+- If you're so pro-life, do me a favour: don't lock arms and block medical clinics. If you're so pro-life, lock arms and block cemeteries.
+- Watching television is like taking black spray paint to your third eye.
+- Children are smarter than any of us. Know how I know that? I don't know one child with a full time job and children.
+- I don't do drugs anymore... than, say, the average touring funk band.
+- Music is a great energizer. It's a language everybody knows.
+- The best kind of comedy to me is when you make people laugh at things they've never laughed at, and also take a light into the darkened corners of people's minds, exposing them to the light.
+- Women priests. Great, great. Now there's priests of both sexes I don't listen to.
+- Your denial is beneath you, and thanks to the use of hallucinogenic drugs, I see through you.
+- People in the United Kingdom and outside the United States share my bemusement with the United States that America doesn't share with itself.
+- The American dream is a crock. Stop wanting everything. Everyone should wear jeans and have three T-shirts, eat rice and beans.
+- We all pay for life with death, so everything in between should be free.
+- Life is only a dream and we are the imagination of ourselves.
+- And if I can take part in it by transforming my own consciousness, then someone else's, I'm happy to do it.
+- When two or more people agree on an issue, I form on the other side.
+- I began working quite young, writing, growing, maturing, always striving to top myself - to make people laugh hard at things they know and believe deep in their hearts to be true.
+- As long as one person lives in darkness then it seems to be a responsibility to tell other people.
+- I don't mean to sound bitter, cold, or cruel, but I am, so that's how it comes out.

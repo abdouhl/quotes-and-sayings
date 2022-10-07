@@ -1,0 +1,12 @@
++++
+author = "Reginald Veljohnson"
+title = "Reginald Veljohnson Quotes"
+quotes_len = "6"
+description = "the best 6 Reginald Veljohnson Quotes"
++++
+- Black lives certainly do matter - that's one thing. But, it's just that in every profession, there are bad, as well as there are good. I think it's wrong to make cops - or any group - out to be the enemy based on a generalization. Stigmas and generalizations about groups are what get this world into such turmoil.
+- I don't know what it is about me and this cop thing, but I get a lot of cop offers. Everyone always assumes that I'm someone on the force, but as long as they are paying me, I will play a cop until the day I die.
+- You have to believe in yourself. You have to go out there and love what you are and who you know you are in terms of your craft.
+- When 'Family Matters,' and 'Full House' were on, back then it was a simpler time.
+- My years on 'Family Matters' were precious to me. During the run of the show, I saw many births, deaths, weddings... The actual family on the show became my family.
+- I couldn't be a police officer. It's a very difficult job to put your life in the face of danger for someone else, and that is extremely selfless. To now vilify cops is not really the way I think it should be looked at.

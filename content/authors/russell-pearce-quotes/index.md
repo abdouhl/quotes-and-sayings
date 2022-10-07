@@ -1,0 +1,32 @@
++++
+author = "Russell Pearce"
+title = "Russell Pearce Quotes"
+quotes_len = "26"
+description = "the best 26 Russell Pearce Quotes"
++++
+- Arizona has become a national leader in the restoration of the Rule of Law, with over 100,000 illegal aliens having left the state since 2007.
+- Sen. Robert Menendez's Comprehensive Immigration Reform Act of 2010 would try to nullify every single state and local law that fights illegal immigration. Congressman Luis Gutierrez's CIR ASAP Act with over 100 Democratic co-sponsors does the same thing.
+- In the absence of a limitation on local enforcement powers, the states are bound by the Supremacy Clause of the United States Constitution to enforce violations of the federal immigration laws.
+- I am State Senator Russell Pearce, the author of SB1070, which was signed by Governor Jan Brewer. Fear mongering and misinformation is the tool of the Left against this common sense legislation.
+- The murder of Robert Krentz - whose family had been ranching in Arizona since 1907 - by illegal alien drug dealers was the final straw for many Arizonans. But there are dozens and dozens of other citizens of our state who had been murdered by illegal aliens. Currently 95 illegal aliens are in Maricopa County jail for murder.
+- Of course a politician's promise isn't worth the paper it's written on.
+- When Maricopa County Arizona Sheriff Joe Arpaio cracked down on illegal immigration without getting permission from Obama, they threatened to revoke his 287(g) status. When Sheriff Joe refused to balk, they filed suit against him with a frivolous civil rights claim.
+- The candle of liberty has always been kept lit by a vigilant few.
+- President Obama has decided to have the United Nations review the law of Arizona. You have got to be kidding! We're now going to have countries like Cuba, Libya and Uganda sitting in judgment on Arizona's laws? Enough is enough!
+- It takes four private-sector jobs to support every public-sector employee.
+- No matter how many lawyers and lawsuits Obama throws at Arizona, we will have the American people and the Constitution on our side.
+- Washington, D.C. is what is broken, not the immigration policies. We have good laws. We have people suffer every day because of government's failure to enforce the law and be respectful to the process we have. We have a pathway to citizenship already in place.
+- Arizona did not make illegal, illegal. It is a crime to enter or remain in the U.S. in violation of federal law. States have had inherent authority to enforce immigration laws when the federal government has failed or refused to do so.
+- Illegal is not a race, it is a crime.
+- Obama's Justice Department has also targeted Maricopa County Sheriff Joe Arpaio. Sheriff Joe bills himself as America's Toughest Sheriff for good reason. Maricopa County is responsible for one out of every four deportations in the country.
+- Good people can disagree - all you want is honesty, because you know, if I disagree, I'm willing to debate you on that, and then let the public decide what's good policy and bad policy.
+- The 'anchor baby' thing needs to be fixed... Anchor babies are an unconstitutional declaration of citizenship to those born of non-Americans. It's wrong, and it's immoral.
+- An estimated 9,000 American citizens are killed every year by illegal aliens. That's 25 American citizens per day killed by illegal aliens, averaging 12 by stabbings and shootings and 13 by DUI and related crimes.
+- If our government has a policy, any political subdivision, that limits or restricts the enforcement of our immigration laws, we will sue them! And that suit will be $5,000 a day every day until that policy is changed! This law will be enforced.
+- I mean, that's a sad day in America when you're recalled because you did what you said you were going to do, and the public voted you in to do that.
+- One of the things I'm always proud of is 'Promises made, promises kept.' I've never ever not done what I've said I'm going to do.
+- We need to fix Washington, D.C. and states need to fix their sanctuary policies. That's the problem.
+- If being recalled is the price for keeping one's promises, then so be it.
+- Go after the illegal employers. No free stuff. Take the handcuffs off law enforcement. They'll go home! They'll self-deport! The problem today is they break the law. They come across the border. And again, what's coming across that border today are bad guys!
+- You know, you don't retreat in the defense of freedom. You don't retreat in the defense of moral government and limited government. You don't retreat because people are going to defend bad things.
+- In Arizona we have passed laws to free our people so that they can defend themselves and their loved ones. You cannot predict where evil will raise its head, but you can be prepared for it.

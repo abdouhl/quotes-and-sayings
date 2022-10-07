@@ -1,0 +1,52 @@
++++
+author = "Brian Krzanich"
+title = "Brian Krzanich Quotes"
+quotes_len = "46"
+description = "the best 46 Brian Krzanich Quotes"
++++
+- As an engineer, I tended to maintain my own equipment along with developing the processes for it.
+- Hundreds a year are killed inspecting power lines, inspecting gas lines and cellphone towers. They fall. There are helicopter crashes. We can eliminate all that with autonomous drones and artificial intelligence.
+- Promoting American manufacturing should not be a political issue.
+- I am not a politician. I am an engineer who has spent most of his career working in factories that manufacture the world's most advanced devices.
+- Intel has a very complete process that I go through any time I want to sell that ensures I have no insider information.
+- Our view is that Quark can make almost everything smart. We'll show you some things that you would never have thought could become smart and communicate.
+- It doesn't matter what college you go to.
+- I've always been a car guy.
+- Computing is a big segment. It's more than just mobile devices or PCs and laptops.
+- I want to be able to leave my phone at home.
+- When you want a raise, you're not only going in saying: 'I want more money.' You're going in and saying: 'Here's what I want out of my career. Here's what I accomplished. Here's what I said I was going to do. Here's what I've done. Not only do I deserve more money, but I want to get to here on my career.'
+- Anytime my daughter and I go for a hike, we bring a drone with us and get some really interesting views.
+- One thing I have always promised is to be open and transparent and to treat employees and partners with respect and integrity.
+- Every two years, to keep Moore's Law happening, you have to invent... That's where I grew up.
+- I'm a firm believer that autonomous driving is coming.
+- The phone space is tough because it is consolidated.
+- You could have the biggest screen, you could have the clearest screen. But if there is not great content on this thing, that big-screen TV is not a huge value to you, even though it has the best picture on the planet.
+- CDK has a leadership position in a dynamic and rapidly evolving automotive technology market, and I am energized by the chance to help grow this unique company and take it to the next level.
+- America has a unique combination of talent, a vibrant business environment, and access to global markets, which has enabled U.S. companies like Intel to foster economic growth and innovation.
+- In general, the PC's always had a fairly decent tie to GDP.
+- Geek? Sure, call me that. I take that as a compliment.
+- I used to build my own PCs... and actually had one of the first water-cooled, overclocked PCs around. I ran it at over 4Ghz, and this was back in 2001... but alas, I do not have the time for that fun anymore.
+- The best way to make change is to know how something works. If you're going to go build something or change whatever it is, if you don't know how it works and you're trying to go make a change in it, the first thing you're doing is you're spending time figuring out how it works. The same thing happens in organizations.
+- When you're the first guy to put out the piece of silicon that's half as expensive or twice as powerful, you bring a capability to the market that nobody else does - or can.
+- Data is going to be dynamic... and, combined with the performance of computing that allows for artificial intelligence to be applied, is going to bring all kinds of insights and additives to enhance everyday life.
+- Intel is not the right person to be making clothing or even wristbands. We want to provide the fashion industry with the technical solutions.
+- You are not going to walk out one day and go to your local car dealer, and the lot is going to suddenly switch from non-autonomous cars to autonomous cars.
+- We expect the launches of Skylake, Microsoft's Windows 10 and new OEM systems will bring excitement to client computing in the second half of 2015.
+- Security is job number one for Intel and our industry.
+- I'm a strong believer in Intel's stock. That's a large amount of my net worth, and I'm passionate about Intel's future.
+- The difficult bosses - the ones that have been hard for me to work for - have been the ones where I never knew what success meant.
+- Automobiles and the automotive industry are increasingly driven by data and computing. The saying 'What's under the hood' will increasingly refer to computing, not horsepower.
+- The thing that was great about San Jose State was, I got connected with some very good professors.
+- A lot of our work at Intel was on the automotive side: in the head unit, engine, and brake controllers.
+- I love mechanical things, older cars especially.
+- My family and I participate in 'Cycle for Survival.' it was started by a friend of my wife's who lost his wife to a rare form of cancer.
+- All of these technologies that we are putting together... our memory technology, our CPU, our graphics architecture, our GPUs - all that is being applied to where the data is. You can almost predict where Intel will be in the future. It will be where data resides.
+- I look forward to working closely with the CDK Board, management team, and employees to enable CDK to meet its full potential to generate value for all of its stakeholders.
+- A lot of the really good features of Windows 10 - things like Windows 10 Hello, where you have facial log in and you don't have to use all your passwords, the Start screen and your ability to go through that, the touch usages of gaming, as the new games come to this product - those are going to run with PCs that have the latest features.
+- We should honor - not attack - those who have stood up for equality and other cherished American values.
+- If you don't go talk to your boss, if you don't go talk to your mentors, if you don't go talk to people who can influence where you want to be, then they don't know. And they're not mind readers.
+- I am deeply honored by the opportunity to lead Intel. We have amazing assets, tremendous talent, and an unmatched legacy of innovation and execution. I look forward to working with our leadership team and employees worldwide to continue our proud legacy while moving even faster into ultra-mobility to lead Intel into the next era.
+- I know how tough engineering school can really be, but it's worth it.
+- I think if you don't give people the tools and the expectations for success, and yet hold them to some value, then you're difficult to work with.
+- It's not good enough to say we value diversity and then underrepresent women and minorities.
+- I don't know marketing... clearly in engineering school you don't get much marketing training.

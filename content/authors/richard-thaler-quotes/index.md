@@ -1,0 +1,105 @@
++++
+author = "Richard Thaler"
+title = "Richard Thaler Quotes"
+quotes_len = "99"
+description = "the best 99 Richard Thaler Quotes"
++++
+- Academia does not provide many opportunities for immediate gratification. You work for two years on a project, it takes two more years to get it published, and then you start hoping someone might read it.
+- Coining a term is not the same as creating a field!
+- Pundits are no better at forecasting election outcomes than they would be at predicting the final path of a hurricane. Smart pundits should consider either abandoning this activity or consulting with the geeks before rendering their guesses.
+- Even if we grade on a very generous curve, many Americans flunk when it comes to financial literacy.
+- I try to teach people to make fewer mistakes. But in designing economic policies, we need to take full account of the fact that people are busy, they're absent minded, they're lazy, and that we should try to make things as easy for them as possible.
+- Behavioral economics offers a plausible explanation for overreactions by the market. For example, a long period of bad performance can lead to stereotyping.
+- We should at least make sure that patients are given the opportunity to opt out of spending their final days in a hospital, hooked up to tubes and running up enormous bills.
+- In the world of traditional economics, it shouldn't matter whether you use an opt-in or opt-out system. So long as the costs of registering as a donor or a nondonor are low, the results should be similar. But many findings of behavioral economics show that tiny disparities in such rules can make a big difference.
+- Even a mother - Jewish or not - can't worry about everything. So it is important that we limit our worries to real as opposed to imaginary risks.
+- How can government reduce the frequency and the severity of future catastrophes? Companies that have the potential to create significant harm must be required to pay for the costs they inflict, either before or after the fact. Economists agree on this general approach. The problem is in putting such a policy into effect.
+- Real people have trouble balancing their checkbooks, much less calculating how much they need to save for retirement; they sometimes binge on food, drink, or high-definition televisions. They are more like Homer Simpson than Mr. Spock.
+- You can't make evidence-based policy decisions without evidence.
+- Claiming that Social Security benefits are safe may sound naive, but my view is actually quite cynical. I believe that as long as the elderly continue to vote in large numbers, no Congress will renege on promised payouts for those already eligible to receive benefits.
+- Many problems are so complex that even if we had the money to fix them, we wouldn't know how to do it. Fixing inner-city schools, reducing obesity, creating peace in the Middle East are just a few examples.
+- The wealth in many large estates has never been taxed because it is largely in the form of unrealized - therefore untaxed - capital gains.
+- A nudge is some feature of the environment that changes the behaviour of humans but would not change the behaviour of rational economic agents, what we call Econs.
+- It is true that I am one of the co-authors of 'Nudge,' and I am a behavioral economist, but it does not mean that everything we write about in that book is behavioral economics, nor does it mean that my co-author, the distinguished legal scholar Cass Sunstein, is a behavioral economist.
+- If the government can manage to collect and release personal information in a secure and useful way, so can private companies, which will empower consumers to become better shoppers.
+- High school seniors should receive help in how to think about a student loan and how to make sure that the education bought with the loan offers good prospects for repayment.
+- The ability of businesses to monitor our behavior is already a fact of life, and it isn't going away. Of course we must protect our privacy rights. But if we're smart, we'll also use the data that is being collected to improve our own lives.
+- If no estate tax is imposed, capital gains taxes can be avoided indefinitely.
+- God did not say that you should be able to borrow one hundred percent of the price of a house.
+- We humans actually need help controlling our impulses - nudges.
+- Tax cuts are one of many ways to stimulate the economy. Building infrastructure, for example, is another.
+- When it comes to assessing the chances of some complicated combination of events, gut feelings are pretty much useless.
+- I think behavioral economists don't have any more of an explanation about the rise of Trump than anyone else.
+- The supply price and the demand price should be roughly the same. You're not supposed to have two different prices. According to economists.
+- In the 1940s, economics started getting highly mathematical. It was basically because economists weren't smart enough to write down models of real behavior that they started writing down models of highly rational behavior - and they kind of forgot about humans.
+- We behavioralists differ from our more traditional brethren in the way we characterize agents in the economy.
+- If you want to encourage some activity, make it easy.
+- As both a consumer and producer of newspaper articles, I have no beef with pay walls. But before signing up, I read the fine print.
+- I practice what has come to be called behavioral economics.
+- The main thing that you learn in grad school, or should learn, is how to think like an economist. The rest is just math.
+- As a general rule, the United States government is run by lawyers who occasionally take advice from economists. Others interested in helping the lawyers out need not apply.
+- It's hard to have any idea of how much money is enough to finance an appropriate lifestyle in retirement. But if a lump sum is translated into a monthly income, it's much easier to determine whether you have enough put away to afford to stop working.
+- Parents want their children to excel, callers to a victims' hot line want help, and sick people want to get well. Offering aids is like providing an alarm clock: it may help people get to an appointment on time, but no one is forcing them to use it.
+- The tradition of Chicago price theory is a good one, and it is a low-tech methodology that tries to apply simple economic theory to the world.
+- If we think that high marginal tax rates are bad because they distort incentives, the same is then true for tax subsidies.
+- In some ways, the finding that financial education doesn't provide long-term payoffs is hardly surprising. After all, how much do you remember from your high school chemistry class? Unless you use chemistry at work, you probably don't recall much about ionic bonding.
+- Everyone knows it's dangerous to ingest gasoline or to inhale its fumes. But I am starting to believe that merely thinking about the price of gasoline can damage cognitive processing.
+- Sunk costs? We pay too much attention to them.
+- In a democracy, if a government creates bad policies, it can be voted out of office. Competition in the private sector, however, can easily work to encourage phishing rather than stifle it.
+- The more we turn down questionable offers like trip insurance and scrutinize 'one month' trials, the less incentive companies will have to use such schemes.
+- Here is a guiding principle: If a business collects data on consumers electronically, it should provide them with a version of that data that is easy to download and export to another Web site.
+- The sad truth is that many behavioral economists know very little about psychology.
+- Social Security may be the most beloved of all the government's programs, partly because it requires so little thinking. You pay taxes while you work, then you and your spouse collect until you die.
+- Traditional economics is based on imaginary creatures sometimes referred to as 'Homo economicus.' I call them Econs for short. Econs are amazingly smart and are free of emotion, distraction or self-control problems. Think Mr. Spock from 'Star Trek.'
+- The voting public is not very good at attributing credit and blame to presidents. They get too much credit when things go well and too much blame when things go badly. The same applies to coaches, C.E.O.'s, parents, and anyone else in charge.
+- Most of us think that we are 'better than average' in most things. We are also 'miscalibrated,' meaning that our sense of the probability of events doesn't line up with reality. When we say we are sure about a certain fact, for example, we may well be right only half the time.
+- Countries all around the world, starting with the U.K., have started behavioural insight teams, often referred to as nudge units. And they seem to be doing lots of good.
+- Demanding that the rich get a tax cut as a condition for tax relief for others is simply elitist.
+- Payroll savings plans are vital because they are essentially the only way that middle-class Americans reliably save for retirement.
+- One reason for high health care costs is that patients fail to follow their treatment regimen.
+- I am all for trying to teach household finance in schools, starting as early as possible. And when it comes to high school, I think learning about compound interest is at least as important as trigonometry or memorizing the names of all 50 state capitals.
+- It makes sense for social scientists to become more involved in policy because many of society's most challenging problems are, in essence, behavioral.
+- Although the United States cannot unilaterally lower the price of oil, it can reduce its consumption by using oil more efficiently and by developing alternative sources of fuel.
+- Many Americans say they want to be organ donors, but they just don't get around to acting on their intentions. Helping these potential good Samaritans overcome their inertia could prolong thousands of lives a year.
+- 'Fun money' is another thing that makes no sense to traditional economists. Because there's just money; there's no 'fun money.' It's all supposed to be the same.
+- My thesis topic was 'The value of a human life.' I asked people a question: 'Suppose you had some risk, a one in a thousand risk of dying - how much would you pay to eliminate it?'
+- When it comes to my health, I would rather my doctor base her decisions on science rather than what she, or some lawyer, thinks will stand up in court.
+- Economists discount any factors that would not influence the thinking of a rational person.
+- If governments want to encourage good citizenship, they should try making the desired behavior more fun.
+- I don't think it says anywhere in the Bible that tithing should be calculated on a before-tax basis.
+- There's a reason why start-ups, especially disruptive start-ups - like Google or Amazon or Uber - are full of young people. That's because young people are not as wedded to the old fashioned ways of doing things.
+- Tort reform is a complicated subject and not a panacea.
+- Whenever I'm asked to autograph a copy of 'Nudge,' the book I wrote with Cass Sunstein, the Harvard law professor, I sign it, 'Nudge for good.' Unfortunately, that is meant as a plea, not an expectation.
+- It's essential that we understand things like the free-rider problem, but we also need to understand that, fortunately, humans are a little nicer than economists give them credit for. Some people actually leave money at roadside fruit stands; some people give money to NPR so we can listen to it.
+- People make just as many mistakes when the stakes go up, maybe more.
+- The lesson for businesses is you are dealing with real people. Those are your customers, those are your employees, those are your bosses, and the better you understand how real people tick, the more successfully you will be able to accomplish your goals.
+- If there is one thing that most economists agree about in the realm of tax policy, it is that it's best to broaden the base of any tax, all else being equal. That means minimizing the number of deductions and exclusions from taxable income in order to lower marginal rates and reduce distortions.
+- We could all use more coaching.
+- Fortunately, economists open to new ways of thinking are finding novel ways to use supposedly irrelevant factors to make the world a better place.
+- Lotteries are just one way to provide positive reinforcement. Their power comes from the fact that the chance of winning the prize is overvalued.
+- The lesson of my field, behavioral economics, is that we need to understand the ways in which we differ from the rational human assumed in standard economic theory.
+- It's not that we can predict bubbles - if we could, we would be rich. But we can certainly have a bubble warning system.
+- Leaders are important but not omnipotent.
+- For many people, being asked to solve their own retirement savings problems is like being asked to build their own cars.
+- Anybody who's ever been in a large organization realizes that 'optimizing' is not a word that would often be used to describe any large organization. The reason is that it's full of people, who are complicated.
+- We all need a lot of humility, and especially about the economy.
+- Morality aside, there are other factors deterring 'strategic defaults,' whether in recourse or nonrecourse states. These include the economic and emotional costs of giving up one's home and moving, the perceived social stigma of defaulting, and a serious hit to a borrower's credit rating.
+- When employees are first eligible for a retirement savings plan, they should be enrolled unless they choose to opt out.
+- If you're trading individual securities, you're almost certainly making a mistake. Because most professional managers can't outperform their benchmarks, and there's little reason to think that individuals can.
+- Don't get trapped by looking at what the price was that you paid for some stock originally.
+- As every successful parent learns, one way to encourage good behavior, from room-cleaning to tooth-brushing, is to make it fun. Not surprisingly, the same principle applies to adults. Adults like to have fun, too.
+- Shopping for an annuity with hundreds of thousands of dollars at stake can be daunting, even for an economist.
+- People are less likely to think it's immoral to walk away from their home if they know others who have done so. And if enough people do it, the stigma begins to erode.
+- I have an agent, John Brockman, who is an agent to many academic authors like Dan Gilbert and Steven Pinker, and he's very good at conning academics into writing books. He pulled this trick on me.
+- Signing up to be an organ donor should be at least as easy as downloading a song to your iPhone.
+- There can be legal conflicts over whether registering intent is enough to qualify you as an organ donor or whether a doctor must still ask your family's permission.
+- One of society's thorniest problems is that children from poor families start school lagging badly behind their more affluent classmates in readiness.
+- If you're not putting enough away for emergencies or retirement, making commitments in advance, such as signing up for payroll withholding, can help.
+- The good thing I will say about the Chicago School is that it was always about the world, not about the abstract.
+- The government employs scientists of many varieties in technical capacities, from estimating the environmental toxicity of a chemical to the structural soundness of a bridge. But when it comes to forming policies, these scientists and, especially, behavioral scientists are rarely at the table with the lawyers and the economists.
+- Doctors and hospitals should be paid for keeping their patients well. Paying them for doing more tests and surgeries creates bad incentives.
+- The Nobel Prize is going to be 'fun money' - for an occasion, when my wife and I want a $50 bottle of wine.
+- You go out on the practice range, and something kind of clicks, and you start hitting the ball very crisply. And you're sure that you've found it, the holy grail - that all you have to do is hold your hand in a certain way. Then you go out on the golf course, and it's completely disappeared.
+- Arthur Laffer's idea, that lowering taxes could increase revenues, was logically correct. If tax rates are high enough, then people will go to such lengths to avoid them that cutting taxes can increase revenues. What he was wrong about was in thinking that income tax rates were already so high in the 1970s that cutting them would raise revenues.
+- For amateur golfers, I think one of the biggest mistakes is to model their play on professionals.
+- Companies are accumulating vast amounts of information about your likes and dislikes. But they are doing this not only because you're interesting. The more they know, the more money they can make.

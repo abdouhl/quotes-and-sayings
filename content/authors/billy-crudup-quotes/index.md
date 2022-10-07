@@ -1,0 +1,40 @@
++++
+author = "Billy Crudup"
+title = "Billy Crudup Quotes"
+quotes_len = "34"
+description = "the best 34 Billy Crudup Quotes"
++++
+- I feel the film companies should pay for proper advertising to see that the movie will sell, instead of putting it on our backs.
+- I put a lot of time and energy and thought behind what I do and the characters that I create, and I don't want to do anything peripheral that is going to make an audience see me up there on the screen rather than who I'm playing.
+- If I had done 'Titanic,' it would have made, probably, $200,000 - worldwide. So I think my life would have been very, very similar.
+- That's what I always enjoyed about acting, the real adrenalin rush. My heart - still before I go on stage - crashing out of my chest. That's thrilling to me.
+- I don't want to expose the intricacies of my work so people can understand how I did it.
+- I avoid watching other people's versions of films or plays that I work on.
+- I went to acting school, and there were twenty other actors in my class who were exceptional. It's hard for anybody to get work. When I was trying to get jobs, I felt a responsibility to be respectful of the opportunities and take challenging things that could be interesting both for me as an actor and for the audience.
+- The characters that I'm typically drawn to are sensitive men who are experiencing some sense of identity crisis or growth in their life that they don't know how to overcome.
+- I wish I could say that when I didn't agree with a director I defer to him, but I think sometimes I'm a little self-righteous.
+- There's exceptional work being done on television. Some of our great writers are writing for television. When you have things to choose from, you typically go after the writing - unless you're going after the money. There are fewer opportunities in film to make money with good writing, unless you're an action hero.
+- Everyone covering 'Stage Beauty' asks me: 'What's it like to wear a dress?'
+- I never felt that I was typecast, but I was concerned about it. I certainly made an effort to take as many parts in theater and film that resisted that. If you only learn how to act a certain kind of role, it is very difficult to grow as an actor.
+- I've been really lucky; I've had the opportunity to play so many roles. I can't imagine a more fortunate career for an actor. I feel incredibly lucky.
+- Interest in certain themes doesn't mandate a personal stake or personal experience of those themes. I've killed people in plays, but no one asks me what it's like to kill people.
+- One of the difficulties you run into is that acting and celebrity are so closely intertwined. People make careers out of being charismatic personalities. It's one of those things that people have come to expect from actors. Personalities that don't change from role to role. I don't want it that way.
+- I live in New York City. I'm 5-foot-9 and wear Rockport shoes that make me 5-foot-91/2. They're not lifts - I deny that - but they do set off the airport metal detector. My hair is starting to gray a little. I have a gold tooth in the back.
+- Acting is an expression of imagination. No firsthand knowledge is necessary.
+- One of the things an actor tries to access is immediacy, so that you feel like you're experiencing it for the first time. But when you're playing a character who knows what's going to happen and can't stop himself to reacting although he knows he can't stop himself from reacting, there's a whole separate set of things to consider.
+- I always end up taking people that are morally ambiguous.
+- Every time I do a movie, I think it's going to be a huge hit.
+- I don't think actors should have to do anything but come in and act.
+- My limits are limitless. I find my limits every time I act.
+- I am not the most objective viewer of my own work. So I have different thoughts about my work.
+- The truth is I don't think actors should have to do anything but come in and act. I feel the film companies should pay for proper advertising to see that the movie will sell instead of putting it on our backs.
+- I wish I had more of the hero gene, but I don't think I'd be very good at playing one.
+- I have never indulged our society's misguided notion that my personal life is relevant to my work, so any reporting surrounding that is necessarily hearsay, speculation or fantasy.
+- It's not that I don't want to be famous. It's just that I don't feel like the burden of responsibility on selling a film should be on the actors.
+- I think one of the things that people take for granted when they watch a film is the actors have to exhibit an extraordinary amount of force to block out the stuff that isn't a part of their reality. And when the audience sees it, they're seeing everything the actor isn't seeing.
+- I've always been interested in the antihero myself.
+- You have to deal with rejection at every stage, whether you audition for the part and don't get it, you get the part and it gets terrible reviews, or it gets great reviews but then nobody sees it.
+- I confess, I'm one of those actors who finds it incredibly hard to divorce myself and my performance from the work itself.
+- My parents were really encouraging. But I had to teach them the proper way you respond to an actor after seeing a play - regardless of whether you like their performance you tell them how great they are because they have to go on again the next night.
+- Los Angeles doesn't have as vital a theatre as New York does. And that's something that really interests me.
+- I do the best I can when I'm accepting the role to say, 'This is about as much as I can do, and if that's not suitable for you, then you should hire somebody else.'

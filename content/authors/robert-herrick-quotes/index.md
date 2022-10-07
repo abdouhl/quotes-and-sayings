@@ -1,0 +1,21 @@
++++
+author = "Robert Herrick"
+title = "Robert Herrick Quotes"
+quotes_len = "15"
+description = "the best 15 Robert Herrick Quotes"
++++
+- Each must in virtue strive for to excel; That man lives twice that lives the first life well.
+- In things a moderation keep; Kings ought to shear, not skin, their sheep.
+- Know when to speak - for many times it brings danger, to give the best advice to kings.
+- What is a kiss? Why this, as some approve: The sure, sweet cement, glue, and lime of love.
+- Conquer we shall, but, we must first contend! It's not the fight that crowns us, but the end.
+- The person lives twice who lives the first life well.
+- Attempt the end, and never stand to doubt. Nothing's so hard but search will find it out.
+- Who covets more is evermore a slave.
+- Thus times do shift, each thing his turn does hold; New things succeed, as former things grow old.
+- He loves his bonds who, when the first are broke, Submits his neck into a second yoke.
+- Give me a kiss, and to that kiss a score; Then to that twenty, add a hundred more: A thousand to that hundred: so kiss on, To make that thousand up a million. Treble that million, and when that is done, Let's kiss afresh, as when we first begun.
+- The body is the soul's poor house or home, whose ribs the laths are and whose flesh the loam.
+- Bid me to love, and I will give a loving heart to thee.
+- It takes great wit and interest and energy to be happy. The pursuit of happiness is a great activity. One must be open and alive. It is the greatest feat man has to accomplish.
+- Tears are the noble language of the eye.

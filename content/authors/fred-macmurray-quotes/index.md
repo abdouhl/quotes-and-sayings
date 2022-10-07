@@ -1,0 +1,85 @@
++++
+author = "Fred Macmurray"
+title = "Fred Macmurray Quotes"
+quotes_len = "79"
+description = "the best 79 Fred Macmurray Quotes"
++++
+- It's nice to be in a picture that's doing business.
+- I don't want to do little theater or go on the road with a show.
+- You'd think people would regard you as an actor and you could play anything. But with TV they regard you almost as a member of the family.
+- I'm not good on talk shows.
+- I like to hunt and fish, read and paint and play golf. And I can have a good time doing nothing. And, of course: be with my family.
+- It's nice to have people tell you they leave a movie theater without any problems.
+- A lot of actors say you can't do both because people won't pay to see you in movies when they get you for free on TV. So far it hasn't hurt me.
+- We have a jam session at home every so often. That's one reason I bought a house with lots of ground around it the neighbors can't hear us play!
+- When I read some of the things other movie people say about their work, I think I'm in the wrong business. I don't have any of those deep thoughts. I'm just myself.
+- People look upon me primarily as a comedian. I'm trying to get away from that, though I do like comedy.
+- You've got to admire my courage going into a picture where the dog is a star. It takes a brave man to play opposite one.
+- We're content to knock around the house.
+- I never wanted to be an actor. I only came to Hollywood to drive my mother out to visit my grandmother.
+- We spend a lot of time at the ranch. And June and I spend as much time as w can with the kids. I learned with my first two how fast they grow up.
+- I haven't the knack of being colorful.
+- I nrver make the front pages or the gossip columns.
+- The Apartment' was fun, but I enjoy comedy much more, and I feel I do it better.
+- Look, I don't do anything that these glamour guys do. The front pages never heard of me.
+- If we can show the good side of people, then why not?
+- I've had offers to do series on both radio and TV, but it s so much work and I'm lazy. I'd rather go fishing.
+- You have to protect your image.
+- You can't go wrong with a Western. I made a string of them.
+- I just don't care to work that hard.
+- I just don't want to work as hard as you have to for a TV series.
+- They sent me the first 'Untouchables' script, for instance, and I'm glad I didn't do it. For one thing, it was practically a feature film, and for very little money. If I'd taken it, I'd have been faced with the job of turning them down on the series later.
+- I don't night-club, don't get into fights or scandals, don't own a yacht, don't play the horses, don't wear plaid overcoats, don't go to Hollywood parties, don't own a motorcycle, don't run back and forth to New York, don't go in for politics.
+- I'm sure that Steve Douglas, the character I play, has been helpful to some parents who apply his reasoning and ideas to help raise their children.
+- I'm Scottish, so I took care of my money.
+- I do enough pictures so I ran play golf and go up to my ranch once in awhile. This is what I worked towards when I began in this business in 1934.
+- The only award I ever got was the Popscar.
+- June cooks, I cook and we have a girl who comes in to clean three days a week. We like that way of living. I suppose a lot of people think we can afford more, but we like it simple.
+- I would never do comedy on TV.
+- I never went to acting school; when someone expounds on motivation and all that stuff, I don't understand it. I was just lucky to be able to do what I did. When I started, people said I was very natural, which I guess is difficult for a lot of people to be.
+- If I spend a couple of hours practising on the driving range, my 10 handicap becomes a 12 by the time I get on the course.
+- The government has confiscated over 360 acres of my choicest pastureland to build a radar intercepting station.
+- There's enough misery in the world today without going out of the way to create more.
+- A beautiful woman is the best investment in marriage a man can make. And anybody who advises otherwise is talking sheer nonsense.
+- I've played a lot of cowboys.
+- When television first came on, it had all the comedy.
+- A man marries the most gorgeous girl he can find because It's human nature to want the best of anything. If other men admire her he likes that, too. We all work best under competition. After all, no one wants to face an egg beater across the breakfast table... or find a horror movie in his home when he doesn't even own a TV set.
+- I can remember various stages when I wanted to be an artist, a football coach, and a musician but never an actor. However, I'll have to admit that now that I'm in this business I like it and would hate to have to give it up.
+- I wanted a good humored kind of show, a show without violence. I liked the idea behind 'My Three Sons,' and I liked the people involved.
+- I'm not an actor. I'm a personality.
+- A man can get old pretty fast if he doesn't keep his mind active.
+- Seriously, I do not think that a marriage can be successful in which either the husband or the wife is far more intelligent than the other.
+- You see, I remember myself as a tall, lanky, awkward college fellow who was cast in school theatricals, on the strength of his height alone.
+- There's a lack of tremendous pressure in the Disney studios. It's a pleasant place to be.
+- I want intelligence in my wife, but not too much she might see through me.
+- I'm not rich but I've made a little money in my time.
+- Being Scottish, I'm probably a little tight, or as the Scots say, 'You're cautious with your money.' I don't think that 's the worst thing in the world to be.
+- It was surprising for me to get out of town and have little kids ask for my autograph.
+- I saw a clown knock the head off another clown and I thought it was the real thing. It scared me so much, I made my mother take me home and I've dodged circuses ever since.
+- A lot of actors go crazy if they're not working, but I guess I'm a little lazy.
+- I was fishing with director Frank Capra once and we talked about retirement.
+- I like hills and trees.
+- I'm an actor. That proves how lazy I am. It's foolish to take on any other jobs.
+- Maybe I've managed to keep my head above water through luck.
+- I don't want the audience to tire of me too quickly. TV would be the fastest way to make them so sick of my face they'd never want to see it again.
+- I remember in the movies we used to do two pages a day. One in the morning and one in the afternoon.
+- Years ago my fans consisted almost strictly of adults.
+- Sometimes a writer writes scenes for people who just say 'Hi' to indicate they're in love. I play those scenes very well.
+- I'm dull.
+- We've talked about doing a reunion of 'My Three Sons,' but I have an aversion to actors doing reunions.
+- I was born in Illinois, but I call Beaver Dam my home town. That's where I graduated from high school and started what I thought was going to be a musical career.
+- Any woman can make herself beautiful. I see 'em do it every day in the studio... with make-up and hair styles and curves added, that is. Science can do anything.
+- When we were doing 'My Three Sons,' I appeared in the movie 'The Apartment.' I played a married businessman who kept a mistress on the side and treated her rather poorly. It was a good movie and a good role, and I thought it would be fun. But you should have seen the letters of protest I got over that.
+- Why should I knock myself out as a producer when there's as much money In acting - and fewer headaches.
+- You know pretty well that when you're in a scene with a dog, everybody looks at him. I know I do.
+- Just because a woman is beautiful doesn't mean she can't be a good wife. If her beauty affects her personality, then it's her mentality that's at fault... not the tilt of her nose.
+- I walk all over Los Angeles and people seldom recognize me.
+- I was a star before I got more than $250 a week. Carole Lombard advised me how to get a raise. She said: 'Go to Palm Springs and stay there until they raise the ante.' They were waiting to start a picture with me and I was scared they'd forget me for someone else, but they came after me.
+- Both Lily and I feel we have a responsibility to our kids and it's one we enjoy; we love being with them.
+- I'm really not that rich. I really don't know how I got the reputation of being so loaded. Maybe my business manager started it. But I always say that I'm just rich enough that I don't have to do a television series.
+- It's certain I never was meant to be an actor.
+- I'm just a former saxophone player who got lucky.
+- Cooking is our hobby. We find recipes we like and then try to turn them into good meals. Most of the time our experimenting turns out pretty well. But sometimes we create lousy dinners.
+- You know, you can only play just so much golf or go fishing just so often.
+- I keep up to scratch on the sax.
+- I never could understand why Leslie Fenton gave up a soft touch in front of the camera to move behind it.

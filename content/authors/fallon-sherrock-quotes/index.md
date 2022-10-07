@@ -1,0 +1,89 @@
++++
+author = "Fallon Sherrock"
+title = "Fallon Sherrock Quotes"
+quotes_len = "83"
+description = "the best 83 Fallon Sherrock Quotes"
++++
+- I feel really proud of myself for helping to put the ladies' game out there.
+- I have helped darts in general.
+- There's more women who can play like me if not better and we just need more recognition really.
+- I don't see myself at a physical disadvantage.
+- The sky is the limit now, us women are showing that we can beat men and hopefully it will open more doors.
+- Every time I play darts I try to keep my poker face on and stay focused until that last dart has gone in.
+- I have learned from experience with the BDO and the ladies tournament.
+- There are women who can play at my standard, if not better, and they can beat men, too, so it would be nice to see them do it as well.
+- I focus on each leg and not what the score is.
+- The more the women beat the men hopefully that will bring up more opportunities for us and then the possibilities are endless as to what can happen.
+- I practise about three to four hours a day and I will play one night a week, or at the weekend in a competition.
+- I think I'm a person who just makes things better.
+- Us women, we can play darts.
+- Who's to say I can't beat anyone?
+- I know I've probably got a massive target on my back now, because everyone wants to be better, to beat me.
+- I haven't taken into account how much I drink. I do drink a lot when I am on stage anyway. You will see me come back and have sips of water. I haven't taken into account how much.
+- I got a lot of criticism online and a lot of harsh comments.
+- Especially with the ladies' game, I have proved we can compete with all these men.
+- Every little bit of hate just gees me on to do better and prove them all wrong.
+- When women play men, it brings out our better game.
+- I've got good family support.
+- My son is always up early.
+- I don't even know what a feminist is.
+- Spider and heights are much easier than beating a man at the Ally Pally, any day of the week!
+- I think I'm an enjoyable person to be around.
+- I'm just a normal person.
+- Nando's is my pre-match meal. I have the butterfly chicken, mash and coleslaw.
+- It sounds really bad but I never actually wanted to play.
+- I'm quite proud that I've inspired so many people.
+- I could be two sets, two legs down but I wouldn't think that. I take each leg as it comes.
+- When I went to Q school, I was walking into a tournament where 500 other players all wanted the same thing as me.
+- I don't have time to sit at home and not do anything. I used to just sit there and just watch TV and eat crisps. Now I don't have five minutes to do that.
+- Us women can beat these men, we just need more opportunities to prove ourselves.
+- I don't look at it as a man's sport because the women play as well. It's an open sport.
+- I've made history, I've just beaten one man, who's to say I can't beat more?
+- I'm so proud to help put women's darts on the map.
+- To any young women out there who might be thinking about taking up darts, I would just say, 'Go for it.'
+- I started playing when I was about 16, and I got picked for the England youth team when I was 17 because I was doing quite well. It's all spiralled from there.
+- It's nice if I am called a role model, because I never thought that I would be a role model for anyone else.
+- Can I eat bugs? Yes no problem.
+- It made me a stronger person, and more determined. I don't know if I'd still be as strong if I didn't have all that hate. I needed hate to make me more determined.
+- As long as you put the effort in with your practice, the muscles in your arm stay relaxed and mental preparation is all it takes.
+- About six months after I had my little boy in April 2014, I ended up getting a kidney disease.
+- My son is going to grow up looking at the newspaper cuttings and thinking, 'Wow, my mum did this.'
+- I've beaten two of the best players in the world, and if that doesn't say that women can't play darts I don't know what can.
+- I don't take any notice of negative stuff said on social media. If anything it spurs me on more.
+- Once I get up on stage, I will have to forget who I am playing and focus on the game itself.
+- I've always had darts around me growing up because my family has always played it.
+- Ally Pally has been amazing for me.
+- When I started playing darts and watching more darts on TV I would say someone like Trina Gulliver definitely inspired me to carry on and keep playing.
+- I feel I can concentrate a bit more on playing darts now people are just seeing an equal playing field.
+- I definitely think I can use the crowd to my advantage.
+- I know how to zone myself in and just play the game.
+- I try to help people as much as I can.
+- You always get the odd comment, along the lines of the women are not as good as the men, and I get called a lesbian.
+- If I can be a role model and leader, I am happy to do that.
+- When I was 15, I used to go with my sister to her youth games because she was really good.
+- I had a lot of negative comments, but it made me stronger and made me want to do more in my game. It made me more determined if anything.
+- I hope I've done women's darts proud, put women's darts on the map and given it the recognition that it deserves.
+- I never get really nervous.
+- The women's game has come on leaps and bounds.
+- In the sport itself it's fine, but online I have had constant sexist comments saying women are not as good as men.
+- I can dance, a little bit.
+- I'm not going to dwell on what someone has said if it doesn't affect my life. I think that attitude helps to strengthen my character.
+- If people want to put the pressure on me that fine but I don't put pressure on myself - that is where pressure comes from.
+- Being included in just the U.S. Darts Masters was amazing enough but to now be able to go worldwide is something I could only dream of.
+- When I play on stage, I have to drink a glass of water.
+- I started taking medication to weaken my immune system because that is what was attacking my kidneys. The problem was when I went on different medication, I suffered side effects. And the side effects caused 'moon face,' where my face swelled up. It was a reaction.
+- If I saw negative comments I tried to look past them.
+- No man wants to lose to a woman.
+- We just do not get the recognition or the opportunity to play against these men, so obviously you don't see it that often.
+- Trolls online are constantly giving you sexist comments.
+- Whatever happens in women's darts in the future I will be able to think I helped to achieve it.
+- If I'm in a pressurised situation, I've learned to breathe, chill myself out and be calm.
+- Against the men I have a point to prove. So I have more determination whereas, when I'm playing the women, we know each other's games so well. I need that extra boost just to prove to the men we can compete against them.
+- I'm just me, a normal person.
+- The sport has come on - we do not just play in pubs any more and there are massive international competitions.
+- When you play with the men, you know they don't give up.
+- I don't look like the stereotypical darts player, do I?
+- I haven't set myself any goals or targets because I am taking each day as it comes. But who is to say that I can't be a world champion, or do anything that I put my mind to?
+- The men I've played are all respectful and gentlemen towards me. I've never really had a problem. In the past a lot of people would go: 'We're playing a woman.' But now they're thinking: 'We're playing a good player.'
+- I am a normal person from Milton Keynes.
+- I'm constantly drinking a lot of water to flush my kidneys out. That helps my body.

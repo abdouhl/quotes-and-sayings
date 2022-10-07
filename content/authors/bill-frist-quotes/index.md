@@ -1,0 +1,32 @@
++++
+author = "Bill Frist"
+title = "Bill Frist Quotes"
+quotes_len = "26"
+description = "the best 26 Bill Frist Quotes"
++++
+- When we talk about safety and security of the American people, politics falls aside pretty quickly.
+- Personal savings accounts to me are one of the most powerful things, not necessarily in saving, solvency, or bankruptcy of the program, but in guaranteeing, the words I used a few minutes ago, a safe and secure retirement for our seniors.
+- The valor and courage of our young women and men in the armed services are a shining example to all of the world, and we owe them and their families our deepest respect.
+- The enemies of freedom will not prevail.
+- The survival of liberty in our land increasingly depends on the success of liberty in other lands. The best hope for peace in our world is the expansion of freedom in all the world.
+- Every child should have the opportunity to receive a quality education.
+- It is our duty and our privilege to keep America moving forward.
+- September 11 impressed upon us that life is a precious gift. Every life has a purpose. And I think we all have a duty to devote at least a small portion of our daily lives to ensuring that neither America nor the world ever forgets September 11.
+- Just two weeks ago, millions of Iraqis defied the threats of terrorists and went to the polls to determine their own future. I congratulate the Iraqi people for the courage they've shown in making these elections so successful.
+- America has the best doctors, the best nurses, the best hospitals, the best medical technology, the best medical breakthrough medicines in the world. There is absolutely no reason we should not have in this country the best health care in the world.
+- Voluntary personal savings accounts would enable future retirees to harness the power of the marketplace when saving for their retirements.
+- America is moving forward and gaining strength. We have been tested, and we have proven ourselves to be a tough, resilient and resourceful nation.
+- Education is the cornerstone of our communities and our country.
+- Education brings about opportunity, and in turn inspiration.
+- Space offers extraordinary potential for commerce and adventure, for new innovations and new tests of will. As Americans, we can't help but reach for the stars. It's our nature. It's our destiny.
+- Social Security, a critically important, great program which does serve as the cornerstone of support for senior citizens, now faces challenges that threaten its long-term stability and well-being. The facts are there. The facts are crystal clear.
+- I very much feel that marriage is a sacrament and that sacrament should extend... to that legal entity of a union between what traditionally in our Western values has been defined as between a man and a woman.
+- Our top focus - protecting our Nation - must go beyond homeland preparedness; America will only be secure if we deal with threats before they happen, not just after they happen.
+- Sound science must be a basis to governing our trade relations around the globe.
+- The American people expect and deserve a government that works and leaders who work together.
+- From blood banking to the modern subway, from jazz to social justice, the contributions of African Americans have shaped and molded and influenced our national culture and our national character.
+- This legislation confronts the human truth that the need for clean water knows no borders, and proper management and intervention can be a currency for peace and international cooperation.
+- From slavery to segregation, we remember that America did not always live up to its ideals. In fact, we often fell far short of them. But we also learned that fundamental to our national character is the drive to live out the true meaning of our creed.
+- America enjoys the best health care in the world, but the best is no good if folks can't afford it, access it and doctor's can't provide it.
+- The African-American experience is one of the most important threads in the American tapestry.
+- Congress should be forward thinking in the policies we set, instead of waiting until catastrophe looms.

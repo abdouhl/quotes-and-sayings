@@ -1,0 +1,22 @@
++++
+author = "Richard Smalley"
+title = "Richard Smalley Quotes"
+quotes_len = "16"
+description = "the best 16 Richard Smalley Quotes"
++++
+- The more we understand what happens in living cells, the more incredibly powerful you realize things can be when they work from the bottom up, by interaction of one molecule and another.
+- Until late in life, I was never quite good enough for my father, and I suppose that is part of what drives me even now, well after his death in 1992.
+- The buckyball, with sixty carbon atoms, is the most symmetrical form the carbon atom can take. Carbon in its nature has a genius for assembling into buckyballs. The perfect nanotube, that is, the nanotube that the carbon atom naturally wants to make and makes most often, is exactly large enough that one buckyball can roll right down the center.
+- In a way, cancer is so simple and so natural. The older you get, this is just one of the things that happens as the clock ticks.
+- Diamond, for all its great beauty, is not nearly as interesting as the hexagonal plane of graphite. It is not nearly as interesting because we live in a three-dimensional space, and in diamond, each atom is surrounded in all three directions in space by a full coordination.
+- If we are ever to cross the 100-nano barrier in electronics, we need to develop nano structures that let electrons move through, as they do through wires and semiconductors. And these structures must survive in the real world of air, water, boiling temperatures.
+- Clean water is a great example of something that depends on energy. And if you solve the water problem, you solve the food problem.
+- I know that, except for carbon, there would be no life in the universe. Except for this one atom, there would be no life. Well, why? When you think about it, it does get spooky. Encountering these molecules are spiritual experiences similar to what I remember in church as a child, only these are more serious.
+- Essentially, every technology you have ever heard of, where electrons move from here to there, has the potential to be revolutionized by the availability of molecular wires made up of carbon. Organic chemists will start building devices. Molecular electronics could become reality.
+- I was born in Akron, Ohio, on June 6, 1943, one year to the day before D-Day, the allied invasion at Normandy. The youngest of four children, I was brought up in a wonderfully stable, loving family of strong Midwestern values.
+- Nature - how, we don't know - has technology that works in every living cell and that depends on every atom being precisely in the right spot. Enzymes are precise down to the last atom. They're molecules. You put the last atom in, and it's done. Nature does things with molecular perfection.
+- It turned out that the buckyball, the soccer ball, was something of a Rosetta stone of an infinite new class of molecules.
+- My interest in science had many roots. Some came from my mother as she finished her B.A. degree studies in college while I was in my early teens.
+- After a few years of intensive research, we found a way to use a pulsed laser directed into a nozzle to vaporize any material, allowing for the first time the atoms of any element in the periodic table to be produced cold in a supersonic beam.
+- Carbon has this genius of making a chemically stable, two-dimensional, one-atom-thick membrane in a three-dimensional world. And that, I believe, is going to be very important in the future of chemistry and technology in general.
+- Administrators and scientists are excited by buckyballs for their own sake, and if they turn out to have practical applications, so much the better.

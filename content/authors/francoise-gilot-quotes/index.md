@@ -1,0 +1,14 @@
++++
+author = "Francoise Gilot"
+title = "Francoise Gilot Quotes"
+quotes_len = "8"
+description = "the best 8 Francoise Gilot Quotes"
++++
+- 'Matisse and Picasso' is a little like Plato after Socrates. Socrates only taught in words. He didn't write. And after that, you had Plato and Aristotle to write about what he had said. I write about them because they didn't write about them.
+- Matisse was my God. I'm a French artist, that's for sure. I am color-oriented and what you might call a composer. I am not pouring my guts out; I keep them inside.
+- For me, style is essentially doing things well. If you want to be outrageous, be outrageous with style. If you want to be restrained, be restrained with style. One can't specifically define style. It's like the perfume to a flower. It's a quality you can't analyze.
+- What I like about the American woman is she usually has a lot of dynamism. In the U.S., women have a tendency to go forward, to be more exaggerated than in Europe. Many times the rough ideas come from the States, then they are refined in Europe. The American women and the French women are still the best-dressed.
+- I really think that if I had met Picasso during peacetime, nothing would have happened.
+- I'm not going to talk about Picasso. I have done my duty to those memories. I have had a great career as an artist myself, you know. I'm not here just because I've spent time with Picasso.
+- I don't write diaries and things like that, but I have a fantastic memory. I call that like a magic carpet. I can really concentrate and travel back in the past I don't know how many years from now and evoke that space if I wanted.
+- To change your mind about something is always difficult. I think that people who are big enough to admit they were wrong can be counted on your fingers.

@@ -1,0 +1,106 @@
++++
+author = "Ben Stokes"
+title = "Ben Stokes Quotes"
+quotes_len = "100"
+description = "the best 100 Ben Stokes Quotes"
++++
+- You can never beat your own mind when it plays tricks on you.
+- I'll have a few pints the night before a match.
+- In terms of how I want to influence the game, I try to have a positive effect with the ball or bat in my hand.
+- I used to be guilty of trying to get a wicket every ball, but I've learned the game is not that easy. That's come with experience.
+- Playing for England is always the main priority.
+- It was just bred in me that I would not back down to guys who were bigger than me.
+- I sort of know my role with the ball but with the bat I've been up and down the order quite a few times.
+- Jofra makes any team better. He is the most naturally gifted bowler I've seen and I don't think he realises how good he is. Some of the things he can do at the click of a finger are just 'wow.' It's pretty special to watch.
+- It's not as if I ever left the pitch thinking 'I wish I'd given a bit more today.' You were always going to get everything from me.
+- Players are under such pressure in crucial moments, especially at the highest level with what is on the line.
+- I've definitely done things to change my behaviour. There are certain things you can't do when you get to a certain level in what you do. When it gets to a certain time, you're a story to somebody. It is something I have taken on board.
+- Nothing good happens after midnight.
+- I played number 6 in rugby league so I had the ball quite a lot. I tried to make the plays, so you are in the action.
+- What happens on the pitch stays on it. Off it you have to let it go.
+- I don't want to look back on my career and say, 'I wish I'd averaged this or that.'
+- I don't think punching lockers is the way forward for anyone. There's only going to be one winner there.
+- My dad's a fitness freak himself.
+- For anyone to question our fight or desire I think is wrong. They should know how much it means to play for England - how much to wear the Three Lions on your chest.
+- Being the player who wants to impact every game is what I've always tried to be.
+- T20 is generally the fun side of cricket. You've got to have a sense of humour. Some days you can turn up and get whacked. Next game turn up, bowl the same and you don't go for many. You have to take it as it comes.
+- You can't feel your way into an Ashes series, you have to be switched on from ball one. That's just me in a nutshell.
+- I'm not going to hate anybody who beats me. But. I. Just. Don't. Like. Losing.
+- I am always trying to get better as a player, no matter how things are going, always trying to expand my game and look into how I can hit more areas or bowl different balls or whatever it is.
+- I'm not necessarily a form player, more of an in-the-moment player.
+- Cricket and family are my life.
+- One-day cricket is a lot more draining because it's a lot faster. You don't get as much break. You are running a lot harder.
+- I just go out there and try to do what I am paid to do, which is score runs and take wickets.
+- I now know in myself not to punch lockers.
+- Setbacks make you want to be better again.
+- The thing about international cricket is that you never really get to know the guys you play against. The T20 leagues allow you to actually know an individual.
+- There are guys that you look at and you want to really bowl at them or bat against them, certain guys who really get your juices flowing.
+- You can do well one day and then not do well the other and you are not as good as everyone says.
+- I have really enjoyed the responsibility of leading the team and making the decisions out there.
+- I've been up and down the order. I'm just happy to get a game and wherever I'm told to bat or told to bowl I'll do it.
+- We shouldn't be too critical of players if they do have lean patches.
+- I like to be aggressive.
+- We've got to be good enough to put runs on board.
+- I want to be a high-order batter in the one-day stuff, to play some long innings rather than just go in and have a swipe.
+- As a kid I lost my temper quite easily and tended to look away from the game itself. Now I know how to manage that and get the best out of myself.
+- All I'm interested in is putting in consistent performances. If awards come along with that, great. It means you are doing something right.
+- For me it is about always trying to find ways to improve and get better.
+- Being out there, as a 22-year-old, it opens your eyes up to the highest level of the sport. It can only do good things.
+- Being able to work with specialist coaches in Twenty20 cricket, I think my bowling has gone up another level.
+- You can't just be letting certain people get away with certain things and not others.
+- I've got a lot of traits from my dad's side.
+- Pune is one of my favorite grounds.
+- It's one of the greatest sporting environments you can be in, the first morning of an Ashes series. It's hard to explain, you can only really explain it when you're out there. It's awesome.
+- I am never happy with where I'm at and I never like to feel like I'm comfortable. I like making everything a little bit harder so that when it comes to the game it can feel a little easier.
+- The Ashes are the biggest Test series played in the world.
+- Everyone goes through bad form but it does end.
+- As players ourselves, to inspire other players to do what we do is awesome.
+- I've had so many people say stuff to me. I meet them, have a chat for five minutes and they think they can say what they like. I used to laugh it off, but now I think 'why do you think you can say that to me? You don't know me.'
+- Never give up. It's never over until it's over.
+- That's the great thing about being an all-rounder. You can impose yourself on the game with bat and ball.
+- As a batter, I just try to put myself in a bubble, not letting anything in from the outside, looking only at how many runs I can score.
+- I fell off a wall in Cockermouth when I was 18. The slate on the top of the wall was loose and I tried to jump up and sit on it. I ended up falling backwards and the tile ended up falling back onto my hand.
+- I always look to perform with the bat and the ball and do good for my team.
+- The older you get the harder you've got to train.
+- It's the same with success and failure. There's always the momentum thing, but you just have to put whatever happened in the past behind you.
+- There is always that thing when you step up a level and you worry, am I going to be good enough? There's always doubt in my mind.
+- Sometimes you feel fine. You might have a day when you feel awful about what's going to happen in the game. It ebbs and flows. Just embrace it.
+- I think sometimes I have been drawn into trying to be too aggressive too early. I have learnt that I can give myself time.
+- In a World Cup final the adrenalin is going. Emotion sometimes get the better of me but that is adrenalin and wanting us to do well.
+- I don't need to be going out reverse-sweeping for six and four straightaway. Singles can be just as important as boundaries, rotating the strike and not letting the bowlers settle.
+- 2019 will be very hard to top and wipes away anything that happened the year before that.
+- I love playing against these guys who have the same attitude to the game that I have.
+- Captaincy did not change me as a player whatsoever, when I had the ball in my hand, I operated in the same manner like I always do.
+- Most people acquire a softer side with age and sometimes with dad that has been quite weird to see.
+- It's always been there, that competitive instinct... I just want to win.
+- You do what you have to do to get an advantage.
+- As professional sportsmen at the top of the game we do have worries. We do think of the worst and that's absolutely fine. There's no weakness in feeling like that.
+- I know I'm in a very fortunate position. I make a good living doing something I used to do for fun as a kid messing around in the garden. I'm in a fortunate position, so you try and give what you can, I guess.
+- It's always great when games can go to day five.
+- It's all good being there for people when things are going well and smoothly but what really comes through is how you operate with someone when they need you the most.
+- When I get on the pitch I have to make sure I am getting hundreds and taking six-fors.
+- On the field, MS epitomises calmness and, from a cricket point of view, has the best angle in terms of field placements.
+- I'm always thinking about the private battle, even in the field. I'm always trying to be better than the other person I'm against.
+- It's amazing how quickly things can change.
+- You can't be happy about anything after a 5-0 loss.
+- You just keep your feet on the floor. I never feel I get too high and I never feel I get too low about things. Everyone else may deal with things like that differently but that is just how I go about it.
+- There is nothing better than being there at the end and getting your team over the line.
+- After 2019, one thing that really stood out to me was, early on, not going too hard at the ball and allowing myself to get in without too much risk.
+- We are all about the equality through society and sport.
+- You are never the complete article but the feeling you get when people come up to you and say 'thank you for the great summer' and inspiring children is such a great feeling.
+- Just being in the whole environment around the IPL, around the people that you ge to play with and against means it's going to be really, really good.
+- It's fine for a bowler to have a plan but I feel as a batter you need to have another plan to counteract what they're doing.
+- I used to love going out and celebrating with the lads. But we can do that in the hotel and I don't miss it. I don't feel that urge any more. Once you make the transition to not doing it then you don't miss it.
+- You don't have niggles when you're 20. But as you get older you start to feel it.
+- I am extremely nervous before anything. People who say they aren't nervous are telling a white lie. Nerves get you going, as you are playing for so much at the highest level.
+- Getting the opportunity to captain England is a huge honour - even if it's only the once you can still say 'yeah, I've captained England.'
+- There has always been sledging in cricket.
+- It's a cliche but I would rather be involved in a winning team than have good figures.
+- I don't know how you work on concentration. You are either born with it or you're not. And I was definitely not born with it.
+- I don't want to be remembered as the guy who had a fight in the street.
+- I'd rather be remembered as a player who came on and impacted a lot of games for England. If I ever take a selfish thought-process of, 'I'm doing this for myself,' then things will be seriously wrong.
+- I think momentum is huge in sport, especially in a series like the Ashes.
+- I'm always looking to learn and am never happy with how I am going. I think once you get comfortable with what you are offering it is dangerous territory to be in.
+- I think 2019 will always have a special place for fans.
+- Being an instinctive player is great but there's time in the past where I've let how I'm playing at the time affect me, thinking I can play some big shots and I'd be alright.
+- I just love being involved in the game and the high-pressure situations and it probably brings the best out of me.

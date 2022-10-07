@@ -1,0 +1,19 @@
++++
+author = "Rudolph A. Marcus"
+title = "Rudolph A. Marcus Quotes"
+quotes_len = "13"
+description = "the best 13 Rudolph A. Marcus Quotes"
++++
+- Nevertheless, the realization that breaking a pencil point would have far less disastrous consequences played little or no role, I believe, in this decision to explore theory!
+- I have always loved going to school.
+- After some minor pieces of theoretical study that I worked on, a student in my statistical mechanics class brought to my attention a problem in polyelectrolytes.
+- Life would be indeed easier if the experimentalists would only pause for a little while!
+- Being exposed to theory, stimulated by a basic love of concepts and mathematics, was a marvelous experience.
+- My mother used to wheel me about the campus when we lived in that neighborhood and, as she recounted years later, she would tell me that I would go to McGill.
+- My life as a working theorist began three months after this preliminary study and background reading, when Oscar gently nudged me toward working on a particular problem.
+- About 1960, it became clear that it was best for me to bring the experimental part of my research program to a close - there was too much to do on the theoretical aspects - and I began the process of winding down the experiments.
+- My education at Baron Byng High School was excellent, with dedicated masters (boys and girls were separate).
+- During my McGill years, I took a number of math courses, more than other students in chemistry.
+- My interest in the sciences started with mathematics in the very beginning, and later with chemistry in early high school and the proverbial home chemistry set.
+- After a subsequent interview at Brooklyn Poly, I was hired, and life as a fully independent researcher began.
+- Growing up, mostly in Montreal, I was an only child of loving parents.

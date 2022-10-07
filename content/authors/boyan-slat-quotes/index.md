@@ -1,0 +1,85 @@
++++
+author = "Boyan Slat"
+title = "Boyan Slat Quotes"
+quotes_len = "79"
+description = "the best 79 Boyan Slat Quotes"
++++
+- It's important to stay humble.
+- I've always been obsessed with technology.
+- For 60 years man has been putting plastic into the ocean. And from that day onward we're also taking it back out again.
+- The legacy, the waste, is mostly in international waters that are sort of in no man's land and thus considered to be no one nation's problem.
+- I'm a firm believer of the venture capitalist-style approach to solving problems. Rather than doing many small things that you hope add up, it's much more effective to work on projects that are high risk and high reward.
+- About once a month, a vessel visits each of these clean-up systems, almost like a garbage truck of the ocean, would bring the plastic back to shore where it would then be processed and recycled into new products that we would then sell, at a premium, of course, because we could sell it as being made out of ocean plastic.
+- You need a group of people who will continually realize that you will run into problems, and for each you will have hundreds or thousands of ways you can approach it.
+- This plastic doesn't go away by itself, and to just let hundreds of thousands of tons of plastic be out there to be fragmented into these small and dangerous microplastics to me seems like an unacceptable scenario.
+- The North Sea can be a pretty violent place.
+- We use a curtain, so we don't use a net, so there's nothing sea life can get entangled with. And also, the system moves very slowly. It moves around 4 inches per second on average. So really, the chances of sea life being harmed by this are very minimal.
+- We're driving the largest cleanup in history.
+- We think the fastest way to clean the ocean is to learn by doing.
+- I think humanity can do more than one thing at the same time.
+- The concentration of plastic is rapidly increasing in the gyres. Even if you were to close off the tap, and no more plastic entered the ocean, that plastic would stay there, probably for hundreds of years.
+- What I like best is sitting in a room together with really smart engineers thinking about a problem.
+- There is this notion that is quite popular in the environmental scene that every little bit helps, or 'Think global, act local.' I disagree with that. I think you have to start with how big the solution needs to be to solve the problem and then reason backward from there.
+- When you look at the humanitarian issues - poverty, education, rights, violence - I think there are positive trends. But when you look at climate change, at plastic pollution and other forms of pollution, at overconsumption, it's a different story.
+- It will be very hard to convince everyone in the world to handle their plastics responsibly, but what we humans are very good in, is inventing technical solutions to our problems.
+- I am quite obsessive by nature.
+- I think very often problems are so big, people approach problems from the bottom up: 'If only I do this little bit, then hopefully there will be some sort of snowball effect that will be bigger and bigger.' I'm much more in favor of the top-down approach to problem-solving.
+- Our main funders... a lot of them are entrepreneurs and technologists themselves as well and familiar with iterative development processes.
+- You solve a problem then get a new one in return.
+- I've gone on a research expedition in the Atlantic Ocean before. I was sick for the entire week after that.
+- It's nice there is a cleanup system, but if it doesn't collect any plastic, it's not very useful.
+- We might work on ways to prevent plastic getting into the ocean in the first place.
+- By the time I was 13, I was very interested in rocketry.
+- The worst is yet to come, because all the plastic that is already out there is going to become more hazardous if we don't clean it up.
+- I tell my team you have to aim for success, but assume failure.
+- The winning concept is the slow-down approach, in which we use a parachute anchor to slow down the system as much as possible, allowing the natural winds and waves to push the plastic into the system.
+- When I was 16 years old, I went scuba diving in Greece and saw more plastic bags than fish. I wondered why we couldn't just clean it up. That rather simple question stuck in my head.
+- We absolutely need to clean up the plastic that's already in the ocean. It won't go away by itself. But we do also need to make sure that no more plastic enters the oceans in the first place. These things should go hand in hand.
+- Really, the ocean itself - that's really the thing that we're up against, the most destructive environment on the planet.
+- There's no better feeling than having an idea and seeing it become reality, emerging in the physical world.
+- Look at climate change. That's a bigger problem than plastic, but we can't all focus on that and forget about plastic - that isn't how the world works. We can divide our attention across different things, using clean-up to strengthen prevention.
+- Coastlines are very effective ways of catching plastic. But the thing is, in those vast ocean garbage patches, there's simply no coastlines to catch any plastic. So we built our own artificial coastline.
+- You go to a beach, you see a lot of plastic. It's out of the ocean, it stays out of the ocean, so that's good. But the thing is that in this Great Pacific garbage patch, this area twice the size of Texas, there's simply no coastlines to collect plastic. So the idea is to have these very long floating barriers.
+- Planning is extremely important, but at some point you have to go out and do it.
+- The reason why the Wright brothers were successful wasn't because they had the most resources, but because they understood how invention works. You have to iterate quickly, and you should be prepared to fail. Because things often don't go as planned.
+- The entire brain of the organization is here. The construction drawings and data processing all takes place in Rotterdam.
+- We need to close the tap, which means preventing more plastic from reaching the ocean in the first place.
+- Plastic doesn't have to be ocean plastic pollution.
+- I do enjoy being at the ocean, like most people, but not so much being on the ocean.
+- I think, in reality, opinions don't matter that much.
+- The way you advance a technological society is to try things - to be controversial and contrarian in your thinking in order to get to something that eventually people say, 'I told you it was a great idea.'
+- When you walk, your brain is working better. More blood flow.
+- I don't understand why 'obsessive' has a negative connotation, I'm an obsessive and I like it. I get an idea and I stick to it.
+- We could truly make our oceans clean again.
+- I get seasick quite badly.
+- There are already dozens of organizations working on trying to prevent plastic from going into the ocean, through advocacy, education, awareness, all great work, yet nobody was addressing the stock of existing pollution.
+- The main principle behind the cleanup system is to have a difference in speed between the system and the plastic so that it goes faster than the plastic, and you can collect it.
+- The way the clean-up system works is that we let the plastic come to us, using the ocean currents in our advantage.
+- Can we build a system which is able to survive on the ocean for years? That is the key question we are trying to answer here with the North Sea prototype.
+- It's never really fun to be in the public spotlight.
+- I envisioned an extremely long network of floating barriers - they're like curtains floating in the ocean which are attached to the seabed. So what happens is that the current comes around and plastic gets pushed towards these barriers. And because it's in a V-shape, the plastic gets push towards the center.
+- Musk is very inspiring to me.
+- Whenever I used to do sports at school, there were those children who were picked last. I just wasn't picked at all.
+- Everyone said to me: 'Oh there's nothing you can do about plastic once it gets into the oceans,' and I wondered whether that was true.
+- We're starting with the North Pacific gyre simply because it is the largest accumulation of plastic.
+- When ideas are confronted with reality, there will always be surprises.
+- We started solely concentrating on cleaning up the Garbage Patch because we felt it was the most neglected part of the spectrum of solutions.
+- It was a long journey, but it was also a relief to see that first plastic being caught.
+- When I started there was this consensus that you could never clean this up, that the problem is way too big, the ocean is way too rough, the issue of bycatch - 'plastic is too big, plastic is too small.'
+- What humans aren't good at is trying to consume less, to consume less plastic, to not be lazy.
+- Rivers are the arteries that carry the trash from land to sea.
+- To catch the plastic, act like the plastic.
+- I am not a man of the sea.
+- Basically I have a fleet of cleanup systems floating around, up to 50 that we plan on deploying.
+- For society to progress, we should not only move forward but also clean up after ourselves.
+- To truly rid the oceans of plastic, what we need to do is two things: One, we need to clean up the legacy pollution, the stuff that has been accumulating for decades and doesn't go away by itself. But, two, we need to close the tap, which means preventing more plastic from reaching the oceans in the first place.
+- These garbage patches won't go away by themselves.
+- It's in my nature that when people say something is impossible I like to prove them wrong.
+- Truly, the only way to prove that we can rid the oceans of plastic is to actually go out there and deploy the world's first ocean-cleaning system.
+- I really hate looking back. think it's useless. The only way is forward.
+- Whenever you start working on something, you have to go about it with the underlying assumption that this puzzle has a solution, right? If you started a jigsaw puzzle not knowing whether all the pieces were in the box, it would not be a fun exercise.
+- I think people overestimate the risk of high-risk projects.
+- I would never be able to work on a photo-sharing app or 'Internet startup XYZ.'
+- There will always be people saying things can't be done. And history shows that time and time again things 'couldn't be done' and they were done.
+- Taking care of the world's ocean garbage problem is one of the largest environmental challenges mankind faces today.
+- It's a very strange experience to be four or five days from the closest point of land, and you see more plastic than life.

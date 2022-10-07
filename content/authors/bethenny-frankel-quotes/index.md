@@ -1,0 +1,63 @@
++++
+author = "Bethenny Frankel"
+title = "Bethenny Frankel Quotes"
+quotes_len = "57"
+description = "the best 57 Bethenny Frankel Quotes"
++++
+- Being with my family is my highest priority.
+- I've often thought if I didn't make my marriage work, I would have failed at my one true shot at happiness.
+- Life is hopefully long, so I don't know what the future will bring.
+- All I ever wanted to do was be able to pay my rent.
+- Never eat while doing something else, because you won't get the satisfaction from your food and you'll be more likely to overeat.
+- Until you become a woman you don't know the things that come with being a woman.
+- I'm one of those people who have everything in their purses.
+- Life is stressful.
+- Food is not your best friend or enemy.
+- My recipes aren't geared towards women; my books are marketed towards women because women are the biggest market for weight loss, weight management and weight maintenance and for cooking.
+- I like showing moms what it's really like having a baby, and how it's not Hollywood life.
+- Depriving yourself will, ironically enough, lead to rebelling and weight gain.
+- I truly don't believe in regret.
+- I can't just only be on reality TV and show everything when it's the fairy princess, fairytale, and then not take my hits when I have to.
+- The only way I'm interested in having a baby is the old-fashioned way.
+- Baby wipes are great for everything! For wiping babies' butts, as an eye-makeup remover, to wipe the counter, to clean my hands at the airport, just everything.
+- It's hard to wind down, but then I beat myself up because I have a tense back.
+- I'm not overly focused on being loved by everybody.
+- You're alone in your ideas, because you're the only one who knows what's possible.
+- I love pregnancy and the bump and the whole thing.
+- I'm very private.
+- My books have helped a lot of men to lose weight.
+- Truthfully, my life is always lunacy.
+- You have to work for everything. Marriage should not be any different.
+- It's my nature to run from relationships, because I have never seen a good one.
+- I grew up in a very toxic home.
+- I don't think it's good to constantly talk about your own weight and the fact that you look fat in jeans.
+- I never thought I'd be a role model but I think to some people I am or have been.
+- I thought doing reality TV would be the greatest success of my life or the biggest mistake.
+- I'm scared of the unknown future.
+- I don't believe in diets.
+- I have to be in a relationship where I can say what I feel even if it's wrong - so we can work through it.
+- Bravo can't be responsible for the mental state of every single person that comes onto their network.
+- I despise shopping and department stores.
+- Thinking about women who can't have their own baby, even the first baby, I'm really lucky.
+- Faith, culture, structure and guidance are good things.
+- I'm a big bath person.
+- Nothing comes easily for me.
+- Frankly, I don't trust any diet that doesn't allow sugar.
+- Your diet is a bank account. Good food choices are good investments.
+- I have always been a business person.
+- My biggest 'don't' from the past? Picking my face!
+- Love is everywhere.
+- Let's be clear, I'm a strong woman.
+- My business doesn't keep me warm at night.
+- I like to look nice, but I'm not marketing being beautiful.
+- I went onto reality TV as a business decision.
+- I'm always in my pajamas, unless I know for a fact that people are taking my picture.
+- You cannot show people only the petals and not the thorns. It's not fair to them.
+- I admire people like Warren Buffett that are donating so much money to charity.
+- In many ways, being pregnant and working were more difficult than motherhood.
+- I can't work without my family being with me.
+- I didn't binge when I was pregnant.
+- I've always been told I have a giant placenta.
+- I never had a true childhood.
+- I have the most beautiful daughter in the world and I'm grateful for her.
+- Exercise is like an old friend: You may not be able to see that friend all the time, but you're not mad when you see them, you're happy, and you get right back into it.

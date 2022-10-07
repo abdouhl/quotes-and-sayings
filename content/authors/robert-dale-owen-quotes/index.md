@@ -1,0 +1,29 @@
++++
+author = "Robert Dale Owen"
+title = "Robert Dale Owen Quotes"
+quotes_len = "23"
+description = "the best 23 Robert Dale Owen Quotes"
++++
+- In days when the public safety is imminently threatened, and the fate of a nation may hang upon a single act, we owe frank speech, above all other men, to him who is highest in authority. I shall speak to you as man to man.
+- Wisdom, prudence, forethought, these are essential. But not second to these that noble courage which adventures the right, and leaves the consequences to God.
+- Property in man, always morally unjust, has become nationally dangerous.
+- Men acquiesce in a thousand things, once righteously and boldly done, to which, if proposed to them in advance, they might find endless objections.
+- It is within your power at this very moment not only to consumate an act of enlightened statesmanship, but, as the instrument of the Almighty, to restore to freedom a race of men.
+- It has always been a great wrong that these men and their families should be held in bondage.
+- In the due exercise of your official power, in strictest accordance with law and the Constitution, you can deprive the enemy of that which, above all else, has given, and still gives him, aid and comfort.
+- They feel assured, as to yourself, that if the option remain with you, it is but a question of time and of form when and how a proclamation of emancipation will be issued.
+- Fulfill - you can far more than fulfill - the brightest anticipations of those who, in the name of human freedom, and in the face of threats that have ripened into terrible realities since, fought that battle which placed you where you now stand.
+- How few, since the foundation of the world, have found themselves in a position environed with public perils so numerous, oppressed with responsibilities so high and solemn, as yourself!
+- We can constitutionally extirpate slavery at this time.
+- Can you look forward to the future of our country and imagine any state of things in which, with slavery still existing, we should be assured of permanent peace? I cannot.
+- If, amid the multitude of contending counsel, you have hesitated and doubted; if, when a great measure suggested itself, you have shrunk from the vast responsibility, afraid to go forward lest you should go wrong, what wonder?
+- Boldness and decision command, often even in evil, the respect and concurrence of mankind.
+- Of the unjust rights which in virtue of this ceremony an iniquitous law gives me over the person and property of another, I cannot legally, but I can morally, divest myself.
+- There is a measure needing courage to adopt and enforce it, which I believe to be of virtue sufficient to redeem the nation in this its darkest hour: one only; I know of no other to which we may rationally trust for relief from impending dangers without and within.
+- The dangers which threaten us are twofold: First, from the Confederate forces, composed of men whose earnest convictions and reckless bravery it is idle to deny.
+- After voluntary exertions on the part of our people to which the history of the world furnishes no parallel, is the old root of bitterness still to remain in the ground, to sprout and bear fruit in the future as it has borne fruit in the past?
+- And I hereby distinctly and emphatically declare that I consider myself, and earnestly desire to be considered by others, as utterly divested, now and during the rest of my life, of any such rights, the barbarous relics of a feudal, despotic system.
+- The people are forbidden to give aid and comfort to rebels. What of a government that has the power to cut off from aid and comfort all the rebels of the South and fails to exercise it?
+- It is idle to await unanimity.
+- Men ever follow willingly a daring leader: most willingly of all, in great emergencies.
+- Property that endangers the safety of a nation should not be suffered to remain in the hands of its citizens.

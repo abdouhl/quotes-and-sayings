@@ -1,0 +1,38 @@
++++
+author = "Robert Zemeckis"
+title = "Robert Zemeckis Quotes"
+quotes_len = "32"
+description = "the best 32 Robert Zemeckis Quotes"
++++
+- Good directing is good writing and good casting.
+- The thing that makes love stories work, in my opinion, in movies and novels and country & western songs, is the feeling of longing.
+- Favorite movie lists are impossible for me to do.
+- No one can actually define love, but you attempt to, and the closest you can get is longing. And that itself has a melancholy to it. You can say dread, or doom - it's that feeling we all feel when we fall in love with someone: we have this horrible, fearful feeling that maybe we will never have that person in our life.
+- I have no complaints about 'The Walk.' I made it, and I'm very happy with what happens.
+- I'm addicted to documentaries. That's all I watch on television.
+- No matter how many obstacles that are thrown in our path, there are ways to except them and to live through them.
+- It's the most unrealistic thing you can do to shoot a close-up, and it's the most unrealistic place you can be as a performer. And yet actors grouse about having to do visual effect shots, but they love doing close-ups.
+- I could never be like Hitchcock and do only one kind of movie. Anything that's good is worthwhile.
+- USC Film School always had a real sense of drama and lineage.
+- Understand life's mysteries - as mysteries to be lived.
+- I grew up on Chicago's South Side in a working-poor family, so I watched everything on television. It was like my window on the world. But we also went to the movies pretty regularly - mostly on Tuesdays, because that was Ladies Night, and my mom could get in for free.
+- From where I sit, I see the digital cinema creating sloppiness on the part of filmmakers because they know if they really get in trouble, they can fix it later. So they don't pay that much attention, and of course it costs a lot more money.
+- I don't know any filmmaker who can deconstruct their own work.
+- I'm in a constant conflict about having to make a movie for the big and the small screen at the same time, stylistically. So I just basically make it for the large screen.
+- Because movies have gotten so expensive, and they're so expensive to market, that means that for a movie to break even or to make its money back, everybody has to go see the movie, and if everybody has to go see the movie, then it can't be about anything.
+- You just have to do your art. Nothing can stop you.
+- We are ultimately alone in that we are ultimately responsible for ourselves.
+- I think the only thing filmmakers can do is try to make good movies and make them as long as they allow us to keep making them. But at the end of the day, it is a business, and if audiences don't care, there's nothing we can do. It'll just go away, I guess.
+- I think that technological tools that filmmakers use to tell stories, in a perfect world, need to become invisible. When it's brand new and it's never been seen before and you're birthing this stuff, it's very much on people's minds.
+- 'I Wanna Hold Your Hand' and 'Used Cars' were absolute failures at the box office. Complete disasters. I learned some sad news: it's not an automatic thing that, if you make a good movie, everyone wants to see it.
+- When they invented the Steadicam, every movie had to have a fight in a stairwell. Whenever there's a new thing, it's abused until artists realize what a Steadicam as a tool can be. And now I defy people to be able to see Steadicam shots, because we know how to do them and make them invisible.
+- Working with actors who are directors is magnificent. Because they understand the art form intimately, and they know exactly how everything works.
+- You can't legislate sobriety.
+- I'm really tired of making these huge, over-$100 million movies where they literally mean life and death for a studio. It's really rough making these expensive movies. Everyone is hysterical.
+- I'm very concerned that we don't make movies that are original anymore.
+- Most actors that I work with are wonderful. Jodie Foster or Tom Hanks will make anything work.
+- We have this sort of tacit censorship, which is the ratings system, and it's directly tied to box office, so it is censorship. Like, if you make an R-rated movie, you know that only a certain amount of people are going to go see it under any circumstance.
+- In the next couple of years, part of every film's process is going to be to adjust the images. And it'll be to change the color of an actor's tie or change the little smirky thing he's doing with his mouth. Or you can put in more clouds or move the tree a little bit.
+- When I was a kid, I loved action, war, horror, monster movies... Anything with special effects. I was fascinated with how'd they do that.
+- I can't see any reason why a dramatic story can't be in 3-D. I think 'Lawrence of Arabia' would have been fabulous in 3-D.
+- We don't function well as human beings when we're in isolation.

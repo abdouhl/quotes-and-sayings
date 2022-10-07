@@ -1,0 +1,82 @@
++++
+author = "Frans De Waal"
+title = "Frans De Waal Quotes"
+quotes_len = "76"
+description = "the best 76 Frans De Waal Quotes"
++++
+- The whole reason people fill their homes with furry carnivores and not with, say, iguanas and turtles, is because mammals offer something no reptile ever will. They give affection, they want affection, and respond to our emotions the way we do to theirs.
+- I think we need to start thinking about grounding our moral systems in our biology.
+- Chimps cannot tell us anything about peaceful relations, because chimps have only different degrees of hostility between communities. Whereas bonobos do tell us something; they tell us about the possibility of having peaceful relationships.
+- I'm personally a nonbeliever, so I'm struggling with if we really need religion.
+- Very long ago our ancestors had moral systems. Our current institutions are only a couple of thousand years old, which is really not old in the eyes of a biologist.
+- Male bonobos really don't fit the human male ideal.
+- The thinking is that we started evolving language not by speaking but by gesturing.
+- People want to work with somebody who feels shame, who worries about the perceptions of others. Dishonesty is something we don't like in others.
+- If there is any form of contagion that is adaptive, it is the immediate response to the fear of others. If others are fearful, there may be good reason for you to be fearful too.
+- The more self-aware an animal is, the more empathetic it tends to be.
+- Many economists are great believers in the idea that everything in nature is competitive and that we should set up a society which is competitive to reflect that. Anyone who cannot keep up, well, too bad.
+- It is well known that apes in the wild offer spontaneous assistance to each other, defending against leopards, say, or consoling distressed companions with tender embraces.
+- I was too restless as a boy to sit through an entire mass. It was akin to aversion training. I looked at it like a puppet show with a totally predictable story line. The only aspect I really liked was the music.
+- Deep down, creationists realize they will never win factual arguments with science. This is why they have construed their own science-like universe, known as Intelligent Design, and eagerly jump on every tidbit of information that seems to go their way.
+- I was born in Den Bosch, where the painter Hieronymus Bosch named himself after. And so I've always been very fond of this painter who lived and worked in the 15th century.
+- If you look at national economies today, for example, the American economy, the European economy, the Indians, the Chinese, we're all tied together. If one of them sinks, the rest are going to sink with them and if one floats, the rest are lifted up. I find that very interesting.
+- I am personally not against keeping animals at zoos, as they serve a huge educational purpose, but treating them well and with respect seems the least we could do, and with 'we' I mean not just zoo staff, but most certainly also the public.
+- The sturdiest pillars of human morality are compassion and a sense of justice.
+- There's a long tradition in Western thought that humans are not shackled by biology, whereas animals are pure instinct machines.
+- One thing bothered me as a student. In the 1960s, human behavior was totally off limits for the biologist. There was animal behavior, then there was a long time nothing, after which came human behavior as a totally separate category best left to a different group of scientists.
+- Religion looms as large as an elephant in the United States, to the point that being nonreligious is about the biggest handicap a politician running for office can have, bigger than being gay, unmarried, thrice married, or black.
+- Our brains have been designed to blur the line between self and other. It is an ancient neural circuitry that marks every mammal, from mouse to elephant.
+- Dogmatists have one advantage: they are poor listeners.
+- After World War II it was decided that, in order to prevent the Germans and the French from having another war, it would be better to tie them together into one economic pact so they would invest in each other and have mutual stakes. Until now, that has worked to prevent warfare between the two.
+- Experiments with animals have long been handicapped by our anthropocentric attitude: We often test them in ways that work fine with humans but not so well with other species.
+- I describe in 'Chimpanzee Politics' how the alpha male needs broad support to reach the top spot. He needs some close allies and he needs many group members to be on his side.
+- The role of inequity in society is grossly underestimated. Inequity is not good for your health, basically.
+- The enemy of science is not religion. Religion comes in endless shapes and forms... The true enemy is the substitution of thought, reflection, and curiosity with dogma.
+- Popular culture bombards us with examples of animals being humanized for all sorts of purposes, ranging from education to entertainment to satire to propaganda. Walt Disney, for example, made us forget that Mickey is a mouse, and Donald a duck. George Orwell laid a cover of human societal ills over a population of livestock.
+- Closeness to animals creates the desire to understand them, and not just a little piece of them, but the whole animal. It makes us wonder what goes on in their heads even though we fully realize that the answer can only be approximated.
+- When humans behave murderously, such as inflicting senseless slaughter of innocents in warfare, we like to blame it on some dark, 'animalistic' instinct.
+- Following rules is, of course, the reason the dog is man's best friend is because the dog follows rules, and they actually do experiments on that, is that how well certain breeds of dogs follow rules, and how much they internalize them. And so many hierarchical animals, obviously they follow rules.
+- Male chimpanzees have an extraordinarily strong drive for dominance. They're constantly jockeying for position.
+- Personally, I think it is possible to build a society that is moral on a nonreligious basis, but the jury is still out on that.
+- I have often noticed how primate groups in their entirety enter a similar mood. All of a sudden, all of them are playful, hopping around. Or all of them are grumpy. Or all of them are sleepy and settle down. In such cases, the mood contagion serves the function of synchronizing activities.
+- Science is not inherently good.
+- Understanding the need for religion is a far superior goal to bashing it.
+- You should know as much as you can about the human species if you have a hand in designing human society.
+- Religion may have become a codification of morality, and it may fortify it, but it's not the origin of it.
+- Octopuses have hundreds of suckers, each one equipped with its own ganglion with thousands of neurons. These 'mini-brains' are interconnected, making for a widely distributed nervous system. That is why a severed octopus arm may crawl on its own and even pick up food.
+- Humans have a lot of pro-social tendencies.
+- There is little evidence that other animals judge the appropriateness of actions that do not directly affect themselves.
+- What is the evolutionary value of blushing? It seems not to be to our advantage to do it, to involuntarily reveal our inner emotions. If we're trying to manipulate or lie, actions in furtherance of individual goals as opposed to the goals of others, blushing would not seem to be helpful. And yet everyone blushes, except the psychopath.
+- The intuitive connection children feel with animals can be a tremendous source of joy. The unconditional love received from pets, and the lack of artifice in the relationship, contrast sharply with the much trickier dealings with members of their own species.
+- Future benefits rarely figure in the minds of animals.
+- Human morality is unthinkable without empathy.
+- I think the sense of fairness in humans is very strongly developed, and that's why we react so strongly to all the bonuses received by Wall Street executives. We want to know why they deserve these benefits.
+- In Africa, we have the bush meat trade, which means that, on a very large scale, animals are being killed in the forests and sold in the cities as a luxury food.
+- If one bird foraging in a flock on the ground suddenly takes off, all other birds will take off immediately after, before they even know what's going on. The one who stays behind may be prey.
+- Darwin wasn't just provocative in saying that we descend from the apes - he didn't go far enough. We are apes in every way, from our long arms and tailless bodies to our habits and temperament.
+- Exclusive homosexuality is not very common in nature.
+- Most exotic animals are not particularly interested in people, which makes it hard to provoke them. Human-rearing gets them used to and sometimes imprinted on humans, which makes them potentially dangerous.
+- I was raised Catholic. Not just a little bit Catholic, like my wife, Catherine. When she was young, many Catholics in France already barely went to church, except for the big three: baptism, marriage, and funeral. And only the middle one was by choice.
+- It is hard to get animals which normally pay little attention to each other to do things together. One can teach dolphins to jump simultaneously out of the water precisely because they show similar behavior spontaneously, but try to make two domestic cats jump together and you will fail.
+- The fact that the apes exist and that we can study them is extremely important and makes us reflect on ourselves and our human nature. In that sense alone, you need to protect the apes.
+- Empathy probably started out as a mechanism to improve maternal care. Mammalian mothers who were attentive to their young's needs were more likely to rear successful offspring.
+- Chimpanzees, typically, kiss and embrace after fights. They first make eye contact from a distance to see the mood of the others. Then they approach and kiss and embrace.
+- Although elephants are far more distantly related to us than the great apes, they seem to have evolved similar social and cognitive capacities.
+- Bonobo studies started in the '70s and came to fruition in the '80s. Then in the '90s, all of a sudden, boom, they ended because of the warfare in the Congo. It was really bad for the bonobo and ironic that people with their warfare were preventing us from studying the hippies of the primate world.
+- Religions have a strong binding function and a cohesive element. They emphasize the primacy of the community as opposed to the individual, and they also help set one community apart from another that doesn't share their beliefs.
+- There are beautiful examples of art done by chimpanzees in human care.
+- Very ancient parts of the brain are involved in moral decision making.
+- There are many reasons for kindness, and religion is just one of them.
+- Chimpanzees have very strong preferences and aversions that are completely personality-linked. The people who are unsuccessful in working with chimpanzees are those who take this personally.
+- War is evitable if conditions are such that the costs of making war are higher than the benefits.
+- Chimps don't have language. Humans actively instruct others about how things should be done. Chimpanzees probably pick up cultural traditions by observation.
+- We need to separate the process of evolution - which is, indeed, a self-serving process - and the actual motivations of animals.
+- The primate laugh is given in playful contexts, and as such has a strong similarity to the human laugh.
+- Unlike the primate hand, the elephant's grasping organ is also its nose. Elephants use their trunks not only to reach food but also to sniff and touch it. With their unparalleled sense of smell, the animals know exactly what they are going for. Vision is secondary.
+- There has been so much underestimating of animal cognition that to perhaps overestimate it, as I probably do, is probably a healthy reaction.
+- If you look at human society, it is very easy, of course, to compare our warfare and territoriality with the chimpanzee. But that's only one side of what we do. We also trade, we intermarry, we allow each other to travel through our territory. There's an enormous amount of cooperation.
+- Female bonobos form a strong sisterhood. They rule through female solidarity.
+- A chimpanzee who is really gearing up for a fight doesn't waste time with gestures but just goes ahead and attacks.
+- The term 'alpha female' originated in my field of animal behavior, but has acquired new meaning. It refers to women who are in charge, for example, by flirting and dating on their own terms. It is also used maliciously for a loud-mouthed, controlling woman who has no patience with deviating opinions.
+- Sometimes I read about someone saying with great authority that animals have no intentions and no feelings, and I wonder, 'Doesn't this guy have a dog?'
+- Scientists are supposed to study animals in a totally objective fashion, similar to the way we inspect a rock or measure the circumference of a tree trunk. Emotions are not to interfere with the assessment. The animal-rights movement capitalizes on this perception, depicting scientists as devoid of compassion.

@@ -1,0 +1,35 @@
++++
+author = "Bill Clegg"
+title = "Bill Clegg Quotes"
+quotes_len = "29"
+description = "the best 29 Bill Clegg Quotes"
++++
+- I identify as an agent when I'm agenting, and I identify as an author when I'm writing. I expect both those things to be true for as long as I'm able to do them.
+- We only learn at the speed of pain, and we don't have others in our lives without forgiveness.
+- Public speaking, for me, or speaking even in front of a handful of people is my greatest fear.
+- In college, I would follow Bob Dylan around, and I would show up to a concert, and he would sing some song he hadn't sang in a long time, and it would speak to something, and I would think it had some great fateful implication.
+- It's totally appropriate to be anxious about the future of things you care about, especially in a shifting world. But I've every expectation that literature will continue to exist.
+- I was hit by a car when I was 13, and the rumour was immediately that I had been playing chicken with the car with my best friend Kenny in front of the Nutmeg Pantry, which was the only shop in Sharon. In fact, the guy who hit me was inebriated.
+- Left to my own devices, I'd probably Google myself all day.
+- With memoir, you have the clay of your life to work with. When you're writing a novel, you have to make the clay first.
+- I've been interested in the idea of forgiveness and the necessity of it. I think of it as the most critical piece of any relationship, whether that be business, or romantic, or familial. We fail each other. We make mistakes. If we contract to go on after those mistakes, forgiveness is involved. Forgiveness is required.
+- Recovery is an ongoing project that is really discrete from everything else in my life. It allows me to be an agent, allows me to write, allows me to be married, allows me to be part of a family. The writing is not a support beam of recovery but a happy consequence of it.
+- Navigating a nonsober world of restaurants and bars, dinner parties, and benefits is like anything that requires practice. Like tennis or a foreign language, it gets easier the more you do it. But like all beginnings, it can be awkward. You stumble, you worry, and then there are unexpected moments of grace that give you the courage to keep going.
+- I was pretty strict in high school about who I would listen to. Musicians like Neil Young, Cat Stevens, Bob Dylan, Joni Mitchell... who were, in my opinion, great writers. The music mattered, but it held hands with the lyrics, and the personality was, overall, unsullied.
+- My experience of fiction was, in the beginning, so exploratory. I wasn't sitting down to a desk at Yaddo with a month, thinking I have to have a draft of a novel.
+- I work very hard every day not to have a lot of expectations. You just let go of the results, because a book will be on bookshelves and in libraries long after we're gone, and, in some ways, whatever happens is none of our business.
+- When I write, I tend to read it out loud to myself after. I'm a very uncomfortable reader, so it creates a distance between the text and me - it is a new way to see it.
+- If a writer I represent gets a bad or unfair review, I suffer. I'm upset and outraged and do everything I can to try and change that. But I would never do that on behalf of my own book because I wouldn't expect my writers to do that.
+- I'm rereading Jenny Offill's 'Dept. of Speculation.' I love it, and she's just a magician. Line by line and paragraph by paragraph, it's mesmerizing and so intricately plotted and so nimble.
+- I spent the first 33 years of my life with secrets, and lots of them. I spent a great deal of energy worrying over what people thought and obscuring the things I was ashamed of... trying to appear what I thought was normal.
+- There are times when I'll send a manuscript to an editor, and I'll think it is the most likely project I've ever sent them. And they might call me the next morning and say they couldn't tolerate it. That happens so frequently that I've given up any expectation of knowing what anybody's going to like.
+- If you feel like you don't have a choice to write it, write it. If you feel like you do have a choice, then move on, because there are so many books in the world.
+- I have no idea how people think of literary agents. Truthfully, I don't think they think of them very often.
+- I don't think of literary novels as self-help documents, although literature undoubtedly saved my life when I was young, enabling me to disappear into all manner of stories, to recognise feelings that I felt alone in.
+- I think of the part of me that writes as the most private self. It's the part that's engaged the least with the rest of the world's needs.
+- William Kittredge's 'Hole in the Sky' is one of my favorite books. Ian Frazier's 'Family' I adore.
+- My experience is that books take on a life of their own and create their own energy. I've represented books that have been sold for very little money and gone on to great glory, and I've seen books sold for an enormous amount of money published to very little response.
+- I have faith that worthy but misunderstood or ignored books can still prevail - and when they do, fewer joys are as sweet - but authors have families to support and rent to pay, and for them, I hope for acclaim in their time rather than late-in-life or posthumously.
+- I think growing up in such a small town - before cell phones, before the Internet, before Facebook, before we had access to people's interiors - there was a great deal of space between people's lives. I spent a lot of time imagining into the lives of the people I grew up with.
+- In the little rural town I grew up in, I missed out on the pop music of the time, the '80s, and now enjoy in retrospect. It's as an adult that I've opened it up to dance, hip-hop, R&B, and even big pop songs.
+- I really appreciate what it takes to create a book. I understand the loneliness that it involves and the excitement and the vulnerability: I especially identify with that.

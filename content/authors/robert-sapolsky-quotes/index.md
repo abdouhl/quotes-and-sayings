@@ -1,0 +1,104 @@
++++
+author = "Robert Sapolsky"
+title = "Robert Sapolsky Quotes"
+quotes_len = "98"
+description = "the best 98 Robert Sapolsky Quotes"
++++
+- If some baboons just happen to be good at seeing water holes as half full instead of half empty... we should be able to as well.
+- You don't want to end up telling somebody who's homeless or a refugee that stress is all perceptual, because it sure isn't in those cases. But most of us have fairly neurotic middle-class stressors.
+- Primates are super smart and organized just enough to devote their free time to being miserable to each other and stressing each other out.
+- The United States has the biggest discrepancy in health and longevity between our wealthiest and our poorest of any country on Earth.
+- I'm a professor of neuroscience at Stanford University, and I'm kind of half-neurobiologist, half-primatologist.
+- I was very sheltered, very bookish and, basically, skittish about life. My parents were both older when I came along and they didn't do things like take vacations.
+- To do good science, you've got to work really, really hard.
+- Depression is like the worst disease you can get. It's devastating.
+- That's what stress management is about, that's what psychotherapy is about, finding religion, or finding your loved one or your hobby - any of those, they give you more outlets, more of a sense of control, more of a sense of predictability, of social support. They give you the means to psychologically finesse ambiguous outside reality.
+- I used to very politely say that if there is free will then it's in all sorts of boring places, like whether you're going to pick up this or that fork as you begin your meal. There really is none: It's all biology.
+- Show me one neuron that has some cellular semblance of free will. And there is no such neuron.
+- The stress response is incredibly ancient evolutionarily. Fish, birds and reptiles secrete the same stress hormones we do, yet their metabolism doesn't get messed up the way it does in people and other primates.
+- When it comes to how neuroscience could help the wider public, the worst thing is when we make advances in, say, mindfulness, and then decide that everybody can potentially think their way to curing themselves or develop their own psycho-neuro-immune mechanisms for boosting cancer defenses.
+- The first roller coaster I ever went on in my life wasn't until college.
+- Disgust is a very powerful tool for bringing about crowd violence. If a group can be dehumanized and made into the Other, the 'them,' to treat that group horribly is made much easier.
+- For me, the single most important question is how to construct a society that is just, safe, peaceful - all those good things - when people finally accept that there is no free will.
+- When you're being asked to think about the meaning of your intuitions before you act on them, maybe along the way you decide your intuitions are destructive or make no sense at all. And then you don't act on them.
+- Baboons are poster children for psychosocial stress, living in troops with bruising and shifting dominance hierarchies among males and high rates of male aggression.
+- If you're a gazelle, you don't have a very complex emotional life, despite being a social species. But primates are just smart enough that they can think their bodies into working differently. It's not until you get to primates that you get things that look like depression.
+- Primates are hardwired for us/them dichotomies. Our brains detect them in less than 100 milliseconds.
+- You know, I'm an egg-heady scientist with a large beard and like Birkenstocks.
+- I was not especially a writer back in college.
+- For an architect's son, I am remarkably unformed in my architectural tastes.
+- Many of our moments of prosociality, of altruism and Good Samaritanism, are acts of restitution, attempts to counter our antisocial moments.
+- My adolescent rebellions took the form of, if anything, passive aggressively doing what was asked of me but doing it ten times more than what was asked of me, so that eventually they'd have to beg me to stop.
+- In terms of the most unique thing we do socially, my vote goes to something we invented alongside cities - we have lots of anonymous interactions and interactions with strangers. That has shaped us enormously.
+- We have this amazing ability to turn on the exactly same stress response worrying about a mortgage that a zebra does when it's sprinting away from a lion.
+- My guess is that people with a stereotypically conservative exclusionary stance about immigration rarely have the sense that they feel disgusted that people elsewhere in the world would want to come to the United States for better lives. Instead, there is threat by the rabble, the unwashed masses, to the American way of life.
+- Primates are really well designed to see who is not keeping up their end of the deal.
+- I was raised as an Orthodox Jew in a major neighborhood specializing in that, in Brooklyn. And somewhere when I was about 14, something changed. And that change probably involved updating every molecule in my body, in that I sort of realized: this is nonsense, there's no God, there's no free will, there is no purpose.
+- From spending my decades thinking about behavior and the biological influences on it, I'm convinced by now free will is what we call the biology that hasn't been discovered yet. It's just another way of stating that we're biological organisms determined by the physical laws of the universe.
+- Baboons have the exact physiology as humans do. They also get the same stress-related illnesses, such as ulcers and heart disease.
+- What adolescence is about is by trial and error, honing a frontal cortex that is going to be more optimal by the time you're 25.
+- Do I get grief for the fact that in communicating, say, about the baboons I'm doing so much anthropomorphizing? One hopes that the parts that are blatantly ridiculous will be perceived as such. I've nonetheless been stunned by some of my more humorless colleagues - to see that they were not capable of recognizing that.
+- I was this eggheady kid, the one who was consistently beaten up and picked last for the baseball teams.
+- As I became more interested in behavior from the standpoint of neurobiology, the stress-response became really interesting. What stress physiology is about is - when there is a new environmental challenge, how does an individual adapt? It seemed like a natural transition.
+- The key thing about us is that we all belong to multiple tribes. Even if we are predisposed into dividing the world into 'us' and 'them,' it's incredibly easy to manipulate us as to who is an 'us' and who is a 'them' at any given moment.
+- Go get yourself stressed all the time and the common cold becomes more common.
+- Individuating and taking someone else's perspective can be very powerful.
+- Successful stress management heavily revolves around combating the building blocks of psychological stress - a feeling as if you have no control over the adversities in your life, a feeling that you have no predictive information about the stressors, if you lack outlets for the frustrations caused by the stressors, if you have no social support.
+- Is stress always bad? No - if a stressor isn't too extreme, is only transient, and occurs in what overall feels like a benevolent environment, it's great, we love it - that's what play and stimulation are.
+- Intellectually, I believe there's no free will.
+- When you've wised up enough, there is a very clear conclusion that you have to reach after a while, which is, at the end of the day, it is really impossible for one person to make a difference.
+- For 99 percent of the beasts on this planet, stress is about three minutes of screaming in terror after which it's either over with or you're over with. And we turn it on for 30-year mortgages.
+- If you're a baboon on the Serengeti, and you're miserable, it's almost certainly because some other baboon has had the free time and energy to devote to making you miserable.
+- We're a miserably violent species. But there's a complication, which is we don't hate violence, we hate the wrong kind. And when it's the right kind, we cheer it on, we hand out medals, we vote for, we mate with our champions of it. When it's the right kind of violence, we love it.
+- But I like schlocky violent movies, but I'm for strict gun control. But then there was a time I was at a laser tag place, and I had such a good time hiding in a corner shooting at people. In other words, I'm your basic confused human when it comes to violence.
+- Depression is incredibly pervasive and thus important to talk about.
+- When humans invented inequality and socioeconomic status, they came up with a dominance hierarchy that subordinates like nothing the primate world has ever seen before.
+- If you have to abuse your power, you're probably in the process of losing it.
+- Well, when I was a teenager I was terribly bookish. I was very studious.
+- I spend most of my time by being at a university, hanging out with very manic, excited 18-year-olds.
+- Literal cleanliness and orderliness can release us from abstract cognitive and affective distress - just consider how, during moments where life seems to be spiraling out of control, it can be calming to organize your clothes, clean the living room, get the car washed.
+- For moral judgment, I think the most interesting trends in neuroscience are the ways in which judgments vary as a function of how emotionally salient the situation is.
+- I think it is inevitable that we make Us/Them distinctions but there's nothing inevitable about who counts as a Them.
+- If you turn on the stress response chronically for purely psychological reasons, you increase your risk of adult-onset diabetes and high blood pressure.
+- Being president does seem a lot more stressful than being vice president.
+- There are absolutely ways to manipulate behavior, because our behavior is endlessly being manipulated by the world around us.
+- Genes are not about inevitabilities; they're about potentials and vulnerabilities.
+- Baboons who have friends do much better in terms of their physiology. And if that applies to a baboon, it could certainly apply for a human.
+- Well, much of my research over the years has been on stress, and the adverse effects of stress on the health of the central nervous system. All things considered, I've been astonishingly unhelped by my own research.
+- It's a profound privilege to die from stress related diseases. It is the elimination of other causes of death such as infectious disease which is responsible for bringing lifestyle diseases to the fore - and these are exquisitely sensitive to stress.
+- Authoritarians have always been here. But the features of a given moment make that way of thinking more or less appealing. Germany in the 1920s, when people are starving, suddenly makes 'populist' answers and scapegoating different groups as the source of the problem much more appealing.
+- I would still very much love to change the world, and there are three or four neurological diseases that I've got a personal grudge against. I wouldn't mind mopping them up in one amazing experiment to come out of my lab, and I certainly wouldn't mind transforming hundreds of thousands of people's lives overnight with some discovery.
+- It's insanely difficult for people to accept the extent to which we are biological organisms without agency.
+- My roots, in college, were in behavior in the context of evolution.
+- When humans invented material inequality, they came up with a way of subjugating the low-ranking like nothing ever seen before in the primate world.
+- Not a whole lot of us are wrestling somebody for a canned food item in the supermarket or having an ax fight in the jungle clearing. Instead, we sit and think about taxes and the ozone layer.
+- We're lousy at recognizing when our normal coping mechanisms aren't working. Our response is usually to do it five times more, instead of thinking, maybe it's time to try something new.
+- We are not humans because we've invented a different type of brain cell, a different type of brain chemical. We are the same basic building blocks as even a fruit fly.
+- If a male primate is mean to a female primate, her whole family will come after him. We don't have that sort of accountability in industrial societies.
+- If we want to make sense of our behavior - all the best, worst, and everything in between - we're not going to get anywhere if we think it can all be explained with one thing, whether it's one part of the brain, one childhood experience, one hormone, one gene, or anything.
+- There's a science to what sort of people we're attracted to, and it has to do with everything from how similar they are to us, to what sort of pheromones we imprinted on when we were little, and what variants of genes we have related to the neurochemical oxytocin.
+- Trying to get somebody excited about learning and trying to get somebody to think in a moral context have begun to have a lot more significance to me.
+- If I were to try to break into the world of modern dance, after the first few rejections the logical response might be, practice even more. But after the 12,000th rejection, maybe I should realize this isn't a viable career option.
+- Yes, genes are important for understanding our behavior. Incredibly important - after all, they code for every protein pertinent to brain function, endocrinology, etc., etc. But the regulation of genes is often more interesting than the genes themselves, and it's the environment that regulates genes.
+- I expected social rank to be the determining factor in health, and in some ways that's true. But far more important is what sort of society that rank occurs in. Being low ranking in a benevolent troop is a hell of a lot better for your blood pressure than being low ranking in an aggressive troop.
+- I think you get to a time in life where by definition stuff's turning to quicksand and wherever you can get some solid footing of the familiar suddenly becomes real comforting.
+- I think my becoming a writer had much to do with spending a chunk of each year sitting by myself out in a tent without radio, without newspapers, without a whole lot of people to interact with, without anybody having any sort of similar background to me.
+- We do our worst when we're surrounded by a lot of people who agree with us.
+- Regardless of your sex, if you have elevated testosterone levels in your blood, you're more likely to think a face with a neutral expression is instead looking threatening.
+- I'm sort of a hippie pacifist in terms of general persona.
+- I think threat of change is pretty potent. In humans, blood pressure doesn't go up when people get laid off: it goes up when they first hear rumors that layoffs are coming at the end of the month.
+- Of necessity, a scientist typically studies one incredibly tiny sliver of some biological system, totally ensconced within one discipline, because even figuring out how one sliver works is really hard.
+- The notion of humans as inherently rational beings has been not only trashed in economics, but trashed in all the best research on moral decision-making.
+- Low socioeconomic status carries with it an enormously increased risk of a broad range of diseases, and this gradient cannot be fully explained by factors such as health-care access.
+- As for testosterone, it's gotten a bum rap. Yes, it has tons to do with aggression but it doesn't cause aggression as much as sensitizes you to the environmental triggers of aggression.
+- An open mind is prerequisite to an open heart.
+- I think the relationship between social-dominance orientation in people and the extent to which they're made uncomfortable by ambiguity and novelty is really important. Better a stable world that's familiar, in which I'm doing pretty poorly, than dealing with all the ambiguity of a changing world.
+- Juvenile justice is probably the area that's most ripe for reform, in the nice liberal sense of the word, simply because there's no getting around the fact that a teenage brain is not an adult brain.
+- If you spend enough time around something like baboons, you start to look at humans differently.
+- One definitely wants to have a functioning hippocampus. It's all about learning and memory, the part blown out of the water by Alzheimer's disease. It's also the part that is most vulnerable to the effects of stress.
+- Ninety percent of what I'm listening to overall is like the same tape of Bob Marley's Greatest Hits. Like, how did I become one of those people on late night TV where they sell anthologies to you and you buy them?
+- I used to be a very serious pianist, and I was one of the snot-nosed classical ones who was appalled by nightmares of Ethel Merman and trombones blasting in the background and who knows what else.
+- At its worst, there's just virtually no organ system in your body that's not thrown out of kilter in some way by chronic psychological stress.
+- My lab looks at the ability of stress hormones to kill brain cells, and basically we are trying to understand on a molecular level how a neuron dies after a stroke, a seizure, Alzheimer's, brain aging, and what these stress hormones do to make it worse.
+- I am completely of the school that mind is entirely the manifestation of brain. So when there's a change in mind, there's got to be a neurobiological underpinning.
+- We like our individuality, we like the mysteriousness of us, the essentialism of us, and it can be alarming to see the biological gears turning underneath.

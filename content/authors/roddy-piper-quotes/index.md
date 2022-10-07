@@ -1,0 +1,91 @@
++++
+author = "Roddy Piper"
+title = "Roddy Piper Quotes"
+quotes_len = "85"
+description = "the best 85 Roddy Piper Quotes"
++++
+- They say that wrestlers are actors, and they couldn't be more wrong. The truth is wrestling and acting could not be more opposite. Wrestling is explosion, and acting is implosion.
+- I'm not gonna make 65. Let's just face facts, guys.
+- I've been in 30 car crashes, none of 'em my fault, I swear on a stack of midgets... OK, they were probably all my fault.
+- The bottom line is, don't be a lifer. Get in, get a business, get five years of what you can, and get out. What happens is they start listening to the promoters, 'You'll get the next main event.' And then, all of a sudden, you become a lifer. That's the kiss of death there. Get in shape, go in, get the money, get out, and have a wonderful life.
+- Burt Reynolds, the first time I met him, he introduced me at Madison Square Garden at Wrestlemania X.
+- You never let somebody come from outside the business, have their way with the business, and then leave the next day and laugh at you. How the hell does David Arquette become World Champion?
+- Wrestling has a tremendous entrance plan. You come in, and it's, 'Boy, here you are. It's rock and roll; it's wonderful.' It's got no exit plan.
+- I was the first wrestler ever in the history of wrestling to star in a major motion studio picture that became #1 box office of the weekend, and that gave the itch to I don't know how many wrestlers.
+- I'm a villain at heart. I'm a born villain.
+- Vince McMahon got really angry at me for leaving the WWE-F-G, whatever it is now.
+- Wrestling moves are made for arenas, not the screen.
+- Getting into the voice-over booth, there are no cameras and no inhibitions.
+- Without putting words in anybody's mouth, I think that Roddy has a reputation for being a rebel. I don't think that's a big secret.
+- I'm as real as they come.
+- It's one thing to talk the talk; it's another thing to walk after getting whacked with a coconut.
+- I'm a very lucky person.
+- In the morning, I'm juicing two apples, two carrots, two celery, two beets, two ginger. I'm drinking that every morning to try to keep the cancer away.
+- A lot of guys that were trailblazers, if we were to go back to the actual time, were just really scared and had no choice, but the water's rushing in, and you either swim or sink.
+- You walk into an arena with 10,000 people and no security and everybody hating you, it takes some gumption.
+- For years and hundreds of thousands of miles, I drove with one knee, with the eight-track and the light dome on in the car, and a yellow pad, just writing down random ideas. I had notebooks and notebooks. The next morning, I'd go, 'Whoa, what was I thinking?' But there'd be one or two ideas that weren't that bad.
+- CM Punk is a very talented man, and I'm a big fan of his.
+- I've been around the world seven times, been stabbed three times, been down in an airplane, and once dated the Bearded Lady.
+- It was by accident I got into wrestling. Somebody didn't show up, and I just filled in.
+- I was born in Saskatoon.
+- One time, I fought 90 fights in 90 days in 90 different places around the world. I didn't even know who I was: about 45 or 50 in, they just kept pushing me, and that's when I really get into a lot of trouble.
+- 'Piper's Pit' was totally unscripted - everything just happened - thus, innovation was a challenging must to accomplish.
+- I was born in Saskatoon, Saskatchewan, and we moved when I was 4.
+- It's very humbling to know that the industry has cast me as the greatest heel in the history of the business.
+- Back in the early days of WWE, I remember doing 20 interviews every Tuesday, one right after the other on different topics.
+- WWE and I have a long history, and I remember some very fun days back in the day.
+- My first match lasted 10 seconds, and I lost.
+- Kurt Angle and Matt Hardy... I have so much respect for them.
+- I hate a bully, and I hate racists.
+- If you are the heel, and if you are doing your job right, you are most hated.
+- I left home when I was 13. When I was 15, I was living in a youth hostel, and I was the 167-pound amateur wrestling champion.
+- I'm not as sharp as I used to be.
+- When I would go into Madison Square Garden, I wasn't the most popular guy. Madison Square Garden, there's 16,000 Puerto Ricans with knives and great radios and stuff.
+- I like choir music. I sincerely do!
+- One night, I knocked out Mr. T, kicked Cyndi Lauper, chased Dick Clark back to his locker room, and slapped Little Richard.
+- The heel runs the match.
+- I've had over seven thousand pro fights.
+- When I was 14, I was 5th in the world playing bagpipes - that's how I got the name Roddy the Piper, and then, you know, eventually it just became 'Roddy Piper.'
+- Guys like Ole Anderson, Gene Anderson, Mad Dog Vachon, Johnny Valentine. I love them to death. I'll love them forever.
+- I'm very proud of The Rock.
+- I ran out of tears when I was 14.
+- The WWE gave me a family and a life.
+- The business has taken a toll on me.
+- With Hulk, I don't agree with all his choices, but you know what, I don't hear people saying all the great things he does. When he was on the Wheaties box, all those kids that said their prayers and took their vitamins, I don't hear them saying that.
+- Bret Hart is my cousin, I'm told. Didn't know that until I was, I don't know, 28, 25.
+- Only thing I ever thought I'd see is a picture with me in a uniform with stripes on it and a number under my mug shot.
+- Ask me for my shirt off my back, I'll give it to you. Tell me? Not a chance.
+- I'd never seen a professional wrestling match. First one I saw, I was in. It was just an accident.
+- I've got a lot on my shoulders, but I've got the most beautiful family in the world.
+- I never faked my emotions or my desire to be a winner.
+- I owe everything to my fans. They were the ones who cheered for me, and they were the ones who gave me the means to provide for my kids.
+- We got an old saying: I would rather you punch my teeth down my throat than throw a popcorn punch!
+- There was a lot of work that people don't know about that I did to establish my villain persona. There were a lot of miles on the road that went into it, thousands upon thousands of hours of writing on yellow pads while driving in my car with the dome light on.
+- I broke my right ankle. Four ribs. One rib went into my liver. My spleen. My back in two places.
+- For anyone who's not familiar with 'Piper's Pit,' they need to know one thing - there's absolutely no rules.
+- Only people who can't draw money need belts.
+- I was 15 years old when I started wrestling full time, and I know what I had to go through to get here.
+- If you've got some to say to Ric Flair, you come say it to me, and I'll make the translation.
+- I put my heart into my career, and the people knew that I did that; and I went from being the most hated man to one of the best loved.
+- I only had an A game... no matter where I was.
+- Wrestling saved my life.
+- I did three television shows in Poughkeepsie in one day, with Adrian Adonis and The Iron Sheik. They gave us no food.
+- 'Pro Wrestlers vs. Zombies' is a comedy. It was fun. You just don't take it serious. You just go there, get your popcorn, and sit down.
+- The fact that a wrestling program called 'Raw' could be the longest running television show in the history of television, bar nobody - nobody can now say we're not on the map.
+- I was the youngest in the world in history when I started, 15. That's illegal now.
+- I am really good with Lego!
+- Many hotels, I just sat there and - I call it the silent scream - I don't know why, you just sit there, and tears will just come down, and you'll just sit there for hours, man. There's no place to turn, and when you do turn, who cares? You're just a dumb professional wrestler.
+- Wrestlers are the best.
+- The very first individual that breaks out in my mind as a top villain is Gorgeous George, and it's hard to beat the first guy.
+- When I get to Heaven, I'll want to fight.
+- I remember I did a character in 'Robocop' years ago - Commander Cash. I wore this really ridiculous outfit, and my face was covered. You couldn't recognize me in the suit; you could only hear my voice.
+- I lived on the street myself.
+- I was raised by the last of the Gorgeous George era. You don't let somebody come from some other business, walk in your business, make a fool of ya and go back into his business and laugh at ya. So if you watch Wrestlemania the very first one, I was the general and here was the rule: don't let Mr. T throw a punch; keep it strictly amateur with him.
+- I'm kind of a go-get-'em kind of guy.
+- I've had Jo-Jo the Dog-Faced Boy as a tag-team partner.
+- It seems like I have been fighting someone, something, someplace, in some manner, my whole life.
+- You've got to realize, I've been stabbed three times; I'm not too used to this kind of love from people. It has been unbelievable the amount of support I've gotten. I'm getting letters, packages, e-mails, and phone calls from so many people. It's just overwhelming.
+- Real wrestling fans always knew Hogan couldn't wrestle. And he's not exactly an intellectual, either... The path he chose is very simple. He wears spandex in the airport. That's his identification as a man.
+- Bagpipes is a woodwind instrument, so you have to warm it up. But in a wrestling dressing room? You've got to be kidding me.
+- I was going nine times a week. You get to a point where you don't really know who you are. You're running on high octane, and you'll take all comers in every arena because there was no police. Every arena, you'd take on everybody that would come in the ring.
+- I was trained by, at the time, the toughest man in the world. Not according to him, either. His name is 'Judo' Gene Lebell, and he trained Bruce Lee, Chuck Norris. He's the godfather of MMA.

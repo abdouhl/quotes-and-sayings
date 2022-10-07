@@ -1,0 +1,48 @@
++++
+author = "Frank Peretti"
+title = "Frank Peretti Quotes"
+quotes_len = "42"
+description = "the best 42 Frank Peretti Quotes"
++++
+- I don't know what idea is going to hit me when.
+- We have a God who loves us. We are in the palm of his hand. He doesn't leave us, and He doesn't forsake us.
+- I'm given a lot of credit with opening the doors for Christian fiction. It was kind of a difficult field when I got into it... But I don't feel like a king.
+- There are writers, and there are readers who want something more. They want to get at the grist of life.
+- Evolution is the key to avoiding the whole issue of God. When you challenge evolution, you're basically challenging someone on a spiritual level.
+- Just like all my novels, 'Illusion' is a good way to observe where Frank Peretti was in his life when he wrote it.
+- Some folks run from the doubt and go backward. You try for all the spiritual Band-Aids you can find... when actually, what you need to do is press forward, to accept those doubts and work through them.
+- If you're going to read a Peretti book, you're going to get a message. But the book is a pretty good read.
+- The Gospel can stand up to scrutiny.
+- I don't watch television.
+- When I was a kid, I really got into monsters.
+- I don't like to write boring books.
+- I try to write cinematically. Let me define what I mean by that. First of all, I try to write in a visual way so that the reader can watch a movie in their head. And it keeps moving. I try to structure the stories like a screenplay may be structured.
+- I just feel the need as a writer to try something kind of deep and fulfilling.
+- The logical outcome of evolution is that it makes monsters. We turn into monsters because evolution takes away everything that makes us human in the sense of our moral accountability, our moral absolutes, and our idea of being distinct from the animal kingdom.
+- My earlier books, 'The Oath,' 'This Present Darkness' were pretty straight adventure. 'The Visitation' is like a deeper book, more thought-provoking. It probes at character more.
+- The Lord God carries us throughout our lives just as a father carries his child. The Lord carried me, and He still is. He made you. He knows what you're good at. He knows what you can do and what you can become. Trust Him. Love Him. He'll always love you back.
+- When you are writing for the Christian culture, there is a whole gamut of expectations.
+- My main goal is still for the books to minister in some way, to teach a spiritual truth, to enlighten people.
+- There's a reason evolution is a hot-button issue. It's not just a matter of science, either. It's a matter of the big questions in life - why are we here, what is truth, where is our moral basis?
+- I'm a very methodical writer. Before computers, I used reams of paper and stacks of index cards.
+- At the bottom of a Peretti novel is the biblical view of things, the Christian message. Whether you're a Christian or not, you're still going to have to deal with good versus evil.
+- It's man's nature to abuse knowledge and power, be it in the realm of science, government, or Wall Street. Take God out of the picture, and you have real trouble.
+- I'd like to write a series that, in an adventurous and fun way, teaches kids a way to discern between good and evil, to establish a foundation on moral absolutes.
+- When I first started out writing the 'Darkness' books, there was, at least in my mind, a certain sort of rulebook we had to follow.
+- First of all, I was a good Christian kid. My mom and dad taught me never to fight. So I never fought. The other kids picked that up right away. They said, 'Oh, he's not going to try to do anything.' They'd push me, shove me, hit me. I'd just stand there and take it.
+- Kids are not going to sit and read a slow-paced book. Neither are adults.
+- When people get their mind made up about something, then it's: 'Don't bother me with facts.' They've got their minds made up and dismiss you out of hand. Some people don't even give you a fair hearing.
+- When you are making a movie, there are a zillion cooks in the kitchen, and you don't always get what you want to do. The story can always go in a different direction than what you would like. You compromise, and there is dealing and bickering.
+- I became very timid, very retreating. I wouldn't talk to anybody. I didn't look you in the eye. I just had that kind of personality as a kid that basically puts a target on you.
+- Generally, my notes and outlines comprise more words than my novels. I suppose that's one reason I'm a comparatively slow writer, something that has always bothered me given the fact that other authors can turn out a book every six months while I usually take about two years.
+- Moviemaking is just really neat, and I really like doing that. I'd like to get into it more, but in terms of my role in all of this and in terms of the gift that God has given me, I had to come to the conclusion that my strength is as a storyteller, creating the story.
+- There's nothing sacred about the book you've written. The Bible says there's safety in a multitude of counselors. The movie is the movie, and the book is the book. They're different critters, and each must stand on their own merits.
+- I hear a lot of, 'I'm a writer because of you.' It's not a bad feeling, but it sneaks up on you. You don't ask for it.
+- I wanted to write a novel where the meaning is in the story and characters and the subliminal, in the shades and nuances. It's exciting to develop that as a writer.
+- I'm just a slow writer. I'm picky and careful and fastidious.
+- I like doing thrillers.
+- I'm trying to move a little more toward literary fiction while still retaining a popular feel.
+- A good book or movie or screenplay should be emotionally satisfying. When they're done, you want people to breathe a deep sigh and say, 'Wow.'
+- The people that usually have the most trouble with my books are the ones that pick them apart from a theological point of view.
+- I always want to be on the cutting edge.
+- 'Illusion' is a story of God's love and our hunger to find him when we're separated from him. If I can paint a picture of two people still in love after 40 years, that's a pretty good message.

@@ -1,0 +1,75 @@
++++
+author = "Brene Brown"
+title = "Brene Brown Quotes"
+quotes_len = "69"
+description = "the best 69 Brene Brown Quotes"
++++
+- When you stop caring what people think, you lose your capacity for connection. When you're defined by it, you lose our capacity for vulnerability.
+- I'm like a recovering perfectionist. For me it's one day at a time.
+- I spent a lot of years trying to outrun or outsmart vulnerability by making things certain and definite, black and white, good and bad. My inability to lean into the discomfort of vulnerability limited the fullness of those important experiences that are wrought with uncertainty: Love, belonging, trust, joy, and creativity to name a few.
+- The difficult thing is that vulnerability is the first thing I look for in you and the last thing I'm willing to show you. In you, it's courage and daring. In me, it's weakness.
+- If I feel good about my parenting, I have no interest in judging other people's choices. If I feel good about my body, I don't go around making fun of other people's weight or appearance. We're hard on each other because we're using each other as a launching pad out of our own perceived deficiency.
+- To me, a leader is someone who holds her- or himself accountable for finding potential in people and processes. And so what I think is really important is sustainability.
+- To me, constructive criticism is when people take ownership of their ideas. That's why I don't listen to anything that's anonymous. But it's hard; when there's something hurtful out there, I still want to read it over and over and memorize it and explain my point of view to the person.
+- The uncertainty of parenting can bring up feelings in us that range from frustration to terror.
+- Vulnerability is the birthplace of connection and the path to the feeling of worthiness. If it doesn't feel vulnerable, the sharing is probably not constructive.
+- One thing that I tell people all the time is, 'I'm not going to answer a call from you after nine o'clock at night or before nine o'clock in the morning unless it's an emergency.'
+- You're imperfect, and you're wired for struggle, but you are worthy of love and belonging.
+- I'm not a parenting expert. In fact, I'm not sure that I even believe in the idea of 'parenting experts.' I'm an engaged, imperfect parent and a passionate researcher. I'm an experienced mapmaker and a stumbling traveler. Like many of you, parenting is by far my boldest and most daring adventure.
+- I think our capacity for wholeheartedness can never be greater than our willingness to be broken-hearted. It means engaging with the world from a place of vulnerability and worthiness.
+- What's the greater risk? Letting go of what people think - or letting go of how I feel, what I believe, and who I am?
+- Waking up every day and loving someone who may or may not love us back, whose safety we can't ensure, who may stay in our lives or may leave without a moment's notice, who may be loyal to the day they die or betray us tomorrow - that's vulnerability.
+- Perfectionism is not the same thing as striving to be our best. Perfectionism is not about healthy achievement and growth; it's a shield.
+- I've learned that men and women who are living wholehearted lives really allow themselves to soften into joy and happiness. They allow themselves to experience it.
+- You cannot talk about race without talking about privilege. And when people start talking about privilege, they get paralyzed by shame.
+- When the people we love stop paying attention, trust begins to slip away and hurt starts seeping in.
+- Kids who have an understanding of how and why their feelings are what they are are much more likely to talk to us about what's happening, and they have better skills to work it out.
+- The intention and outcome of vulnerability is trust, intimacy and connection. The outcome of oversharing is distrust, disconnection - and usually a little judgment.
+- Maybe stories are just data with a soul.
+- The moment someone asks you to do something you don't have the time or inclination to do is fraught with vulnerability.
+- I can encourage my daughter to love her body, but what really matters are the observations she makes about my relationship with my own body.
+- A deep sense of love and belonging is an irreducible need of all people. We are biologically, cognitively, physically, and spiritually wired to love, to be loved, and to belong. When those needs are not met, we don't function as we were meant to. We break. We fall apart. We numb. We ache. We hurt others. We get sick.
+- Live-tweeting your bikini wax is not vulnerability. Nor is posting a blow-by-blow of your divorce . That's an attempt to hot-wire connection. But you can't cheat real connection. It's built up slowly. It's about trust and time.
+- Vulnerability is not weakness. And that myth is profoundly dangerous.
+- I think if you follow anyone home, whether they live in Houston or London, and you sit at their dinner table and talk to them about their mother who has cancer or their child who is struggling in school, and their fears about watching their lives go by, I think we're all the same.
+- The best marriages are the ones where we can go out in the world and really put ourselves out there. A lot of times we'll fail, and sometimes we'll pull it off. But good marriages are when you can go home and know that your vulnerability will be honored as courage, and that you'll find support.
+- The truth is: Belonging starts with self-acceptance. Your level of belonging, in fact, can never be greater than your level of self-acceptance, because believing that you're enough is what gives you the courage to be authentic, vulnerable and imperfect.
+- I hesitate to use a pathologizing label, but underneath the so-called narcissistic personality is definitely shame and the paralyzing fear of being ordinary.
+- Anonymous comments? You're not in the arena, man. If you can't say it to me in person in front of my kids, don't say it.
+- Guilt is just as powerful, but its influence is positive, while shame's is destructive. Shame erodes our courage and fuels disengagement.
+- I'm just going to say it: I'm pro-guilt. Guilt is good. Guilt helps us stay on track because it's about our behavior. It occurs when we compare something we've done - or failed to do - with our personal values.
+- Faith minus vulnerability and mystery equals extremism. If you've got all the answers, then don't call what you do 'faith.'
+- For me, the opposite of scarcity is not abundance. It's enough. I'm enough. My kids are enough.
+- I don't have to chase extraordinary moments to find happiness - it's right in front of me if I'm paying attention and practicing gratitude.
+- Through my research, I found that vulnerability is the glue that holds relationships together. It's the magic sauce.
+- We use work to numb out. We can't turn off our machines because we're afraid we're going to miss something.
+- I love to take, process and share photos - it fills me up.
+- If you think dealing with issues like worthiness and authenticity and vulnerability are not worthwhile because there are more pressing issues, like the bottom line or attendance or standardized test scores, you are sadly, sadly mistaken. It underpins everything.
+- First and foremost, we need to be the adults we want our children to be. We should watch our own gossiping and anger. We should model the kindness we want to see.
+- We judge people in areas where we're vulnerable to shame, especially picking folks who are doing worse than we're doing.
+- Our need for certainty in an endeavor as uncertain as raising children makes explicit 'how-to-parent' strategies both seductive and dangerous.
+- It's hard to practice compassion when we're struggling with our authenticity or when our own worthiness is off-balance.
+- Daring to set boundaries is about having the courage to love ourselves, even when we risk disappointing others.
+- Shame is the most powerful, master emotion. It's the fear that we're not good enough.
+- Normally, when someone we love is turning away from a struggle, we self-protect by also turning away. That's definitely my first response. I think change is more likely to happen if both partners have common language and a shared lens to see problems.
+- I've learned a lot since I was a new mother. My approach to struggle and shame now is to talk to yourself like you'd talk to someone you love and reach out to tell your story.
+- I was raised in a family where vulnerability was barely tolerated: no training wheels on our bicycles, no goggles in the pool, just get it done. And so I grew up not only with discomfort about my own vulnerability, I didn't care for it in other people either.
+- In my research, I've interviewed a lot of people who never fit in, who are what you might call 'different': scientists, artists, thinkers. And if you drop down deep into their work and who they are, there is a tremendous amount of self-acceptance.
+- When we're looking for compassion, we need someone who is deeply rooted, is able to bend and, most of all, embraces us for our strengths and struggles.
+- Social media has given us this idea that we should all have a posse of friends when in reality, if we have one or two really good friends, we are lucky.
+- My husband's a pediatrician, so he and I talk about parenting all the time. You can't raise children who have more shame resilience than you do.
+- We're hardwired for connection. There's no arguing with the bioscience. But we can want it so badly we're trying to hot-wire it.
+- As a shame researcher, I know that the very best thing to do in the midst of a shame attack is totally counterintuitive: Practice courage and reach out!
+- As unique as we all are, an awful lot of us want the same things. We want to shake up our current less-than-fulfilling lives. We want to be happier, more loving, forgiving and connected with the people around us.
+- I carry a small sheet of paper in my wallet that has written on it the names of people whose opinions of me matter. To be on that list, you have to love me for my strengths and struggles.
+- Ironically, parenting is a shame and judgment minefield precisely because most of us are wading through uncertainty and self-doubt when it comes to raising our children.
+- One of the things I did when I discovered this huge importance of being vulnerable is very happily moved away from the shame research, because that's such a downer, and people hate that topic. It's not that vulnerability is the upside, but it's better than shame, I guess.
+- In many ways, September feels like the busiest time of the year: The kids go back to school, work piles up after the summer's dog days, and Thanksgiving is suddenly upon us.
+- There is no innovation and creativity without failure. Period.
+- When you get to a place where you understand that love and belonging, your worthiness, is a birthright and not something you have to earn, anything is possible.
+- Vulnerability is about showing up and being seen. It's tough to do that when we're terrified about what people might see or think.
+- Vulnerability is basically uncertainty, risk, and emotional exposure.
+- 'Crazy-busy' is a great armor, it's a great way for numbing. What a lot of us do is that we stay so busy, and so out in front of our life, that the truth of how we're feeling and what we really need can't catch up with us.
+- Many people think of perfectionism as striving to be your best, but it is not about self-improvement; it's about earning approval and acceptance.
+- Men walk this tightrope where any sign of weakness illicits shame, and so they're afraid to make themselves vulnerable for fear of looking weak.
+- As a vulnerability researcher, the greatest barrier I see is our low tolerance for vulnerability. We're almost afraid to be happy. We feel like it's inviting disaster.

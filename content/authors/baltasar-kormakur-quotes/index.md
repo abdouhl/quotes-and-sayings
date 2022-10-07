@@ -1,0 +1,36 @@
++++
+author = "Baltasar Kormakur"
+title = "Baltasar Kormakur Quotes"
+quotes_len = "30"
+description = "the best 30 Baltasar Kormakur Quotes"
++++
+- I don't see Hollywood as the big enemy, because this is where the money is, and not all of the companies are doing studio movies. I'm not tempted to sell out. If I'm going to become well known, I want it to be for something I'm proud of.
+- For me, the source material can come from anywhere. It can be a poem, it can be a dream, it can be a movie, as long as the end part of it is interesting - that's what it's about for me.
+- 'The Oath' seems like the perfect project for me, coming off the back of a big-scale adventure film like 'Everest.' I want to delve into an intimate, dark and psychological world where the characters are claustrophobic.
+- With a huge storm, you need a lot of volume, but it can't become one loud noise. Dolby Atmos helped a lot because it gave us the separation of those elements.
+- Vikings were pretty brutal, but also very educated people. They were salesmen, businessmen who started raiding when business wasn't good. That's why they had such great boats.
+- If you make a film too American, it won't travel. It will have no life outside of its own country.
+- We will work on ways to digitally enhance Everest, matching it with Dolomites and Everest, but I'll do everything physically first. If there's no other way, then I'll go to CGI.
+- I've always looked at filmmaking as a lifestyle. There is no decision of when you go to work. It's a way of life: you're thinking about scripts; you see things and think, 'That could be interesting'... I don't think about my work as, 'Today I'll work on this, this and that.' It just comes to me.
+- In the case of 'The Deep,' because of the people involved, the talent and the real lives of people who died, I wanted to make the most honest film I could. And sometimes that's the best way to go: Just make the best version of the film you can.
+- I have no problems with remakes, and I think it's interesting. I mean, coming from the theater, we've been remaking 'Hamlet' for a hundred years, so it's no problem to me at all. A good story can be told in many different ways in different places; I just think it's interesting.
+- The winters are too long, and there's only one airline, so it's difficult to escape when you feel frustrated or claustrophobic. The audience for our films isn't very large, so it's difficult to support an industry. But, Iceland is beautiful. Sometimes it's hard to imagine living anywhere else.
+- Real acting is about giving people an insight into a person, letting the audience in.
+- When 'Iron Man' came out, I said, 'Oh - they are trying to have some fun.' It was a relief because every superhero movie had become so damn serious. Some people love that, but for me, it's a weird thing to watch. A man with a cape can have fun, but I won't listen to a lecture from him.
+- I think my sweet spot is to make personal films on not-too-big budgets and also make other people's films, bringing productions to Iceland, upping the business here.
+- In Iceland, the weather is the biggest character you deal with every day. There's nothing more relevant in your life than what kind of weather it is.
+- I started as an actor, then became a theater director. I loved acting but didn't feel as confident as I needed to be, so I started directing theater; then I played in some movies, and then I felt the need to do my own stuff.
+- I'm the first Icelandic director who started working on U.S. movies. There are others behind me now, but it's like when Bjork opened the door for Icelandic musicians to work abroad. We're such a closed-off country, but Bjork broke the spell. And I'm glad it was a woman who did it. She showed us we could break this barrier.
+- I developed 'Trapped' because I was fascinated with the idea of a terrible crime in a small town cut off from the rest of the world.
+- When I made '101 Reykjavik,' people talked about 'Almodovar on ice.' When I made 'The Sea,' people referenced Bergman.
+- I am a big fan of movies that don't take themselves too seriously. You know you won't change the world, but have fun. Movies like 'Butch Cassidy' I enjoyed tremendously, but it didn't alter my opinion of the world.
+- Sometimes those big bloated superhero movies take themselves too seriously compared to the material they were based on. Am I going to listen to psychoanalysis from someone with a mask?
+- Throughout the history of Iceland, men have been lost at sea; every family in Iceland is connected to that kind of story.
+- I consider myself more a European director who is from Iceland than an Icelandic director.
+- I used to sail a lot in all kinds of weather, competing on small sailboats in the ocean. And I travel a lot in Iceland on horses every summer, through the wild areas where there's no inhabitants and there are volcanoes.
+- When I write and develop things myself, I might work for a while on a script from a book, and then I go back and read the book and go back into it to see if I lost something: is there something there?
+- The thing about Iceland is that we are trapped there anyway, all of us. We have been trapped there for thousands of years.
+- I really wanted to make 'Everest' visceral, real. One thing that amazed me when I was scouting in base camp is the volume of Everest: It's humbling. I wanted to find a way to bring that to the screen. One way was 3D.
+- People talk about Hollywood as a myth, but in reality, when you make Icelandic movies and you want to get them distributed in the U.S., you're not really working with Hollywood. The movies I've been making, the first one I made, I made it with Working Title, but it was financed through Universal, so it became a Hollywood production.
+- It's important for cinema to keep on evolving: for people, and not only teenagers, to be able to go to a movie that has huge epic scope but has an intellectual and real story to tell.
+- I want to work with directors who can tell intimate stories in a way that feels universal and with a big enough scope and depth to travel outside of Iceland.

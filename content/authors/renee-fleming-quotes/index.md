@@ -1,0 +1,61 @@
++++
+author = "Renee Fleming"
+title = "Renee Fleming Quotes"
+quotes_len = "55"
+description = "the best 55 Renee Fleming Quotes"
++++
+- Every singer eventually gets around to a Christmas disc.
+- I'm American. I'm eclectic. I'm going to follow my musical passions. And if people don't like it, and it hurts my legacy, I'm not going to worry about that.
+- No voice teacher can be all things to all people. You have to gain information from whatever sources you can. You have to listen.
+- Opera is really fun.
+- I have not changed with the accomplishments. I've remained the same. If I had changed, great. You know, but I haven't.
+- I have had a very difficult time with stage fright; it undermines your well-being and peace of mind, and it can also threaten your livelihood.
+- Very few opera singers in history have been able to cross into popular music.
+- Being steeped in the process of learning and exploring keeps me from becoming too nervous. Partly it's about not getting bored.
+- For my own singing, I used to be attracted by the baroque, the flashier the better, but now I prefer a simpler, purer style.
+- I've spent hours and hours doing research into Appalachian folk music. My grandfather was a fiddler. There is something very immediate, very simple and emotional, about that music.
+- I don't like to sing loud.
+- When a human being without amplification makes a sound that is high and loud, it is almost unworldly.
+- I enjoy the more floaty, exposed, elegant singing.
+- I want to get out of the major opera houses.
+- Well, any time I'm preparing for a performance or even a rehearsal, it's as if in a way, like any other athletes, these are muscles that support the vocal cords which are just I believe cartilage. It demands a kind of constant warming up and a constant feeling of where is the voice today.
+- I think singing is one of the most natural things that human beings do, but it's difficult.
+- My parents were both high-school music teachers.
+- One of my timesaving habits is to save all of my magazines and junk mail for airplane trips. I walk on the plane with a very heavy bundle, but by the time the trip is over, it can all be thrown away.
+- I was constantly being pushed toward a European ideal of what it means to be a classical or opera singer, let's say in the Renata Tebaldi mode. I reject that.
+- I've always been inspired by artists who have shown musical and intellectual curiosity and the courage to take risks.
+- I'm rarely singing in English.
+- For a while it was hard for me to say no to work.
+- I'm reserved, so I've always needed to find a way of opening up. Jazz helped me do that.
+- I do everything in the third person. Performance is about being someone else.
+- Certainly, jazz has become more of a niche, which is surprising, because it's our music. It's the national music of America.
+- Learning operatic roles is ongoing, and I find that I can learn on the train or subway, during a manicure, getting my hair done, and even while driving if I only look at the score at red lights.
+- I think singing it when it's done well is extremely natural. It feels great.
+- I think touring is hard.
+- I don't want to be somebody who stands still and sings pretty. Each song is a world. Each song is a story. I don't achieve nearly what I want.
+- I want to keep my voice young, with nothing heavy.
+- I'm not a reactionary.
+- I'm lucky - I can do two things at once.
+- Because everything about the voice interests me, I felt it would be fascinating to learn a completely different style of singing.
+- My parents discussed singing every night over the dinner table; I had a tremendous music education.
+- I am so envious of my colleagues from 100 years ago who only sang new works, they hardly ever sang revivals.
+- I would love to do more private concerts.
+- I have a certain image that's more classic, and I'm happy to stay out of the fray.
+- My worry is that opera will become an historic art form as opposed to a living, breathing thing.
+- My mother was the worst kind of stage mother. She would make me and my younger sister and brother little duckling costumes and put us in kiddie shows.
+- For years, I had no time for exploratory travel.
+- Everybody's a work in progress. I'm a work in progress. I mean, I've never arrived... I'm still learning all the time.
+- Having to travel so much plays havoc with your personal life.
+- There's no performance where I never have to think about setting up a phrase or making a technical adjustment while I'm performing.
+- I'm not exactly an angry young person.
+- I was always a very good student.
+- I learned so many roles so quickly as a young singer, I thought it was time to come back to them and make them better - deeper, more nuanced.
+- Contrary to the norm, as my technique improved my voice became higher.
+- I listen to archival and historic recordings. I love watching singers. I learned a lot from watching videos.
+- A lot of performers don't want to leave the circuit, the European opera house circuit, partly because most singers don't sing many concerts, or at least not while they are in their prime.
+- I think opera has gained a kind of glamorous appeal. It's a live performance that aligns all of the arts, and when it is represented in the media, in film in particular, it is presented as something that is really a special event, whether it's a great date or something that's just hugely romantic.
+- With classical singing you have to put out so much air - you project, you emit force.
+- I don't want to record anything unless it can be great and genuinely interesting.
+- At this stage in my career, I don't have to take any big risks. You want to take a calculated risk, not one that leads to people saying 'yes, but there was that one time when she made that big mistake.' It's always a shame when that happens, especially if you've gotten by for decades without anything hugely tragic.
+- It is always fragile, being a parent.
+- Some of my first teachers were incredibly tough. You could never sing more than three words without being stopped and having to do it over 20 times. I loved that - that sort of process of dissecting and trying to figure out and master this incredibly mysterious instrument.

@@ -1,0 +1,72 @@
++++
+author = "Bonnie Raitt"
+title = "Bonnie Raitt Quotes"
+quotes_len = "66"
+description = "the best 66 Bonnie Raitt Quotes"
++++
+- One of the biggest obstacles I've overcome in my life was thinking I didn't deserve to be successful. Artistically I'm not as much of a heavyweight as someone like Paul Simon or Joni Mitchell, because I'm not a creator of original music, and I worried about that for years.
+- A lot of political music to me can be rather pedantic and corny, and when it's done right - like Bruce Springsteen or Jackson Browne or great satire from Randy Newman, there's nothing better.
+- Sometimes I don't go into the studio for quite a while because I haven't found enough good songs. They have to have a certain caliber and connect with me because I'm going to be playing them for the rest of my life. I start off with a circle of friends whose songs I love anyway.
+- The fifth member of my band is my non-profit work.
+- It is still a surprise when people tell me that I've had an influence on them, particularly when it's someone I really respect.
+- I was offered to take over for Reba in 'Annie Get Your Gun,' but it wasn't where I wanted to be. I think my fans would be upset if I confined my shows to one city for a long period of time.
+- Playing guitar was one of my childhood hobbies, and I had played a little at school and at camp. My parents would drag me out to perform for my family, like all parents do, but it was a hobby - nothing more.
+- There's nothing like living a long time to create a depth and soulfulness in your music.
+- Finding great songs is the hard part of my gig - it's not as hard as songwriting, that's much more daunting - but I love playing other people's music.
+- I just play the music that I love with musicians that I respect, and fortunately, I'm in a position where people are willing to play with me, and perhaps I can do something to help them.
+- I tend to be freer on the piano. I never took guitar lessons, so my reach exceeds my grasp - what I hear in my head I don't always know how to play. But I love to play over something else. I'm not a self-starter. I get kind of bored with the same three folk chords that I know.
+- Elvis might have compromised his musical style a bit towards the end, but that doesn't mean that artists from the rock n' roll/folk-roots culture - of which he was not really a part - shouldn't get better as they get older, like the great jazz or blues artists.
+- Sometimes I'm more true when I'm up onstage than I'm able to be in my regular life. It's not as exciting to be at home, but I've got to learn how to make that work, and then I will be an ordinary woman.
+- The world I live in is benefiting from things like satellite radio. Jazz and blues fests are everywhere now, and Americana is going strong on college radio. What I'm hearing is an appreciation of real music.
+- I do feel my loved ones that have passed on; I feel them looking over my shoulder... So yeah, that's pretty profound, when you're not expecting it, you didn't particularly believe in it and then it just sort of happens too often to ignore.
+- I like to think I get better with age, but maybe absence makes the heart grow fonder.
+- I'm not that beautiful, and I don't want to be a pop star.
+- The anti-nuke movement has important and far-reaching implications for grassroots organizing. It can unite kids and musicians, everybody, whether they're leftist or rightist, or radical, or Republican, because energy is energy. But in fact, it is a real political struggle - it shows people that it's big business against the people.
+- In 1967 I entered Harvard as a freshman, confident - in the way that only 17-year-olds are - that I could change the world. My major was African Studies, and my plan was to travel to Tanzania, where President Julius Nyerere was creating a government based on democracy and socialism.
+- I never saw music in terms of men and women or black and white. There was just cool and uncool.
+- Especially girls, but any kids exposed to music programs and arts programs do much better on their tests. They have a better chance of going to college. They can focus better. You know, we're not just automatons learning how to work machines and do engineering and math and science. All of that's great, but you've got to build a whole person.
+- I would rather feel things in extreme than not at all.
+- People come up to me all the time who saw Dad in 'Oklahoma!' or 'Pajama Game,' and they say they'll never forget it.
+- I'm honored when young people say they've gone to school on slide guitar with my records. But people get their influence from my live shows and records and YouTube, not me personally. I walk around with a hat on. People don't know it's me.
+- I finally learned to accept that I can't make radio play blues any more than I could get Reagan out of the White House.
+- Thank God for Occupy and thank God for 'The Daily Show,' Colbert and the rising up that's going on around the world.
+- I'm really careful about not slamming my politics home in my shows, but I don't try to hide, either. The arts can be a great way to bring people together. I don't preach from the stage. I try to stay positive on solutions.
+- I think my fans will follow me into our combined old age. Real musicians and real fans stay together for a long, long time.
+- I'm certain that it was an incredible gift for me to not only be friends with some of the greatest blues people who've ever lived, but to learn how they played, how they sang, how they lived their lives, ran their marriages, and talked to their kids.
+- We did a two month tour with Taj Mahal that was really healing and cathartic and a good distraction after my brother passed away. Then I knew I wanted to take a year off, and it was really nice to have that chance to fall apart.
+- Not being a natural songwriter... for me the appreciation of a great song and the writers came early on, growing up in a musical family. My dad got to sing songs by some of the greatest writers of all time, Rodgers and Hammerstein.
+- I've been lucky enough that I can gather all sorts of experiences and find inspiration by traveling around and by spending time with people I admire.
+- The consolidation of the music business has made it difficult to encourage styles like the blues, all of which deserve to be celebrated as part of our most treasured national resources.
+- I don't think there's ever been any music quite like what we came up with.
+- AC/DC's 'Highway to Hell' is the greatest meshing of vocal, guitar, and content I've ever heard. That's what I aspire to.
+- I'm sure I would have been considered a more significant artist if I was a singer-songwriter. It's just not the way I roll. I love being a curator and a musicologist. People write me letters and thank me for turning them on to Fred McDowell and Sippie Wallace, and that's partly my job this time around.
+- Pat Benatar might need a rock band, but I can just sit with a blues guitar for an hour and a half and do folk songs and great contemporary ballads, and not many people can pull that off.
+- My love was Bob Dylan, but as I got older I realized a good ballad was a good ballad.
+- 'I Will Not Be Broken' has really become very healing for me. Any time you go through a cataclysmic event... it's going to inform the richness that you sing from... The experiences of life make all your emotions, I think, deeper.
+- With the new ways of getting music out, you don't need a label if you're a legacy artist.
+- In blues, classical and jazz, you get more revered with age.
+- I think we have responsibilities to be active in the things we believe in, regardless of what our job is. At least in my lifetime, there has been a tremendous combining of activism and music, that came up in the era of Pete Seeger and the Weavers and Joan Baez and Bob Dylan and Peter Paul & Mary.
+- There were so many great music and political scenes going on in the late '60s in Cambridge. The ratio of guys to girls at Harvard was four to one, so all of those things were playing in my mind.
+- Nobody taught me to play bottleneck. I just saw it and taught myself. I got an old bottle and steamed the label off, put it on the wrong finger, I basically did everything wrong until I met some of the Blues legends early in my career who taught me another way. I didn't have anyone to tell me women didn't play bottleneck.
+- At 3 A.M., I'm still up watching videos of jazz heroes I never saw live. It's so thrilling. And not just the music. The Internet is changing the future of fund-raising. I'm thrilled by the potential.
+- I was always drawn to the blues. Alberta Hunter at the Cookery was a life-changing experience. I only wanted to get enriched as a performer as I got older, to have an audience which got older, too, and would come to see me when I'm 80.
+- I've watched my peers get better with age and hoped that would happen with me.
+- I'm just glad that I'm the musical equivalent of a character actress, because blues singers can keep singing and having an audience at 35, and someone like Madonna's gonna have to find something else to do, 'cos I don't care how pointy those bras are that she wears, they're still gonna look a little odd when she's 55!
+- I didn't have to be a pop singer with a certain look. When I started, there was really a revolution in natural artists with blues and folk artists crossing over; otherwise, I wouldn't have been able to get started.
+- What - of all the incredible duets that I've been able to sing, you know, John Raitt was still the one that I just shook in my boots just standing next to him. I loved him so much.
+- When you find a song that you love, you just have to do it - why would I try to match it? When I wrote more of the songs in the '90s - 'Nick of Time' and other songs I was surprised I came up with - it was because nobody else was saying what I wanted to say.
+- People say, 'Gee, you don't really do political music.' Well, I sing a lot of songs about how men and women and lovers treat each other, and none of us want to be talked down to or belittled or ignored or disrespected... So I'm proud to be a feminist.
+- I have a really full life, both within music and outside it.
+- Religion is for people who are scared to go to hell. Spirituality is for people who have already been there.
+- The great thing about the arts, and especially popular music, is that it really does cut across genres and races and classes.
+- I think it's our job to write about what we're going through at the moment, and being 41, I'm not going to write about the same things I wrote about at 20. I don't think artists should be farmed out to pasture just because they're in rock n' roll.
+- I grew up in Los Angeles in a Quaker family, and for me being Quaker was a political calling rather than a religious one.
+- Superficial pop will always exist - there've always been Fabians - but when people like Dire Straits and Bruce Hornsby start having hits, it suggests that there's a revolution going on in music.
+- I think people must wonder how a white girl like me became a blues guitarist. The truth is, I never intended to do this for a living.
+- I think I'm a living embodiment of, 'Don't try to push me around or squash me,' whether its how I talk to a record label or in my relationships.
+- I made my first album, and I guess it wasn't a fluke, because now I'm on my 16th.
+- Since I was 20 years old, I've been a kind of corporation. I'd wake up in the morning and my job was to be 'Bonnie Raitt' in capital letters.
+- Distribution has really changed. You can make a record with a laptop in the morning and have it up on YouTube in the afternoon and be a star overnight. The talent on YouTube is incredible, and it can spread like wildfire. The downside is that it's very hard to convince the younger generation that they should pay for music.
+- I'm happy to say that at 62, I think I've reached that point where stuff doesn't bother me as much, and my gratitude level has gone way up, especially having gone through the loss that I've had, and losing so many of the great artists that I was close to. They taught me how to see it with a grain of salt and a lot of humor and perspective.
+- Quakers are known for wanting to give back. Ban the bomb and the civil rights movement and the native American struggle for justice - those things were very, very front-burner in my childhood, as were the ideas of working for peace and if you have more than you need, then you share it with people who don't.
+- Solar power is the last energy resource that isn't owned yet - nobody taxes the sun yet.

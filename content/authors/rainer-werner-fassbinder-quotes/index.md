@@ -1,0 +1,14 @@
++++
+author = "Rainer Werner Fassbinder"
+title = "Rainer Werner Fassbinder Quotes"
+quotes_len = "8"
+description = "the best 8 Rainer Werner Fassbinder Quotes"
++++
+- The Jews have never been ashamed of being Jews, whereas homosexuals have been stupid enough to be ashamed of their homosexuality.
+- The more real things get, the more like myths they become.
+- I'd like to be for cinema what Shakespeare was for theatre, Marx for politics and Freud for psychology: someone after whom nothing is as it used to be.
+- Yes, actually ever since I saw his films and tried to write about them, Sirk's been in everything I've done. Not Sirk himself, but what I've learned from his work.
+- So certainly, if we can tell evil stories to make people sick, we can also tell good myths that make them well.
+- And I don't believe that melodramatic feelings are laughable - they should be taken absolutely seriously.
+- The best thing I can think of would be to create a union between something as beautiful and powerful and wonderful as Hollywood films and a criticism of the status quo. That's my dream, to make such a German film.
+- It isn't easy to accept that suffering can also be beautiful... it's difficult. It's something you can only understand if you dig deeply into yourself.

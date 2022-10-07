@@ -1,0 +1,14 @@
++++
+author = "Bob Barker"
+title = "Bob Barker Quotes"
+quotes_len = "8"
+description = "the best 8 Bob Barker Quotes"
++++
+- I think that age as a number is not nearly as important as health. You can be in poor health and be pretty miserable at 40 or 50. If you're in good health, you can enjoy things into your 80s.
+- Many people have the idea that game shows are easy to come up with. And nothing could be further from the truth.
+- Nothing gives me quite so much joy as when people tell me they've had their pets spayed or neutered.
+- I'm a vegetarian - I think there's a strong possibility, had I not become a vegetarian, I would not be working now. I became a vegetarian about 25 years ago, and I did it out of concern for animals. But I immediately began having more energy and feeling better.
+- I can tell you that I'd rather be kissed by my dogs than by some people I've known.
+- Networks decide who will have a chance to do shows, but it is the viewers who make the final decision of who stays and who goes. I am very fortunate, in that the television viewers of our country have decided that Bob Barker can stay.
+- I'll tell you one thing, in what I do for a living, there's no substitute for experience. I don't care how much natural talent you may have... In the type of show I do, you can depend on surprises.
+- You can't fool television viewers with dancing girls and flashing lights.

@@ -1,0 +1,23 @@
++++
+author = "Ben Bradlee"
+title = "Ben Bradlee Quotes"
+quotes_len = "17"
+description = "the best 17 Ben Bradlee Quotes"
++++
+- I give Cronkite a whole lot of credit.
+- If an investigative reporter finds out that someone has been robbing the store, that may be 'gotcha' journalism, but it's also good journalism.
+- It took us about a day and a half to find out what had gone wrong.
+- They cut about seven minutes from that broadcast, but it was still vital to the story's momentum.
+- I never believed that Nixon could fully resurrect himself. And the proof of that was in the obits.
+- I think he had a strange, passionate devotion to the truth and a horror at what he saw going on.
+- The Nixon administration really put a lot of pressure on CBS not to run the second broadcast.
+- The biggest difference between Kennedy and Nixon, as far as the press is concerned, is simply this: Jack Kennedy really liked newspaper people and he really enjoyed sparring with journalists.
+- We were right about the slush fund. But Sloan did not testify about it to the Grand Jury.
+- You never monkey with the truth.
+- I must be out of it, but I don't know any good journalists who have excused Clinton's problems.
+- The really tough thing would have been to decide to take Woodward and Bernstein off the story. They were carrying the coal for us - in that their stories were right.
+- The champagne was flowing like the Potomac in flood.
+- Maybe some of today's papers have too many 'feel-good' features, but there is a lot of good news out there.
+- There have been as many investigative reporters on this newspaper working on Clinton's many problems as I can remember there were working on Watergate.
+- Sure, some journalists use anonymous sources just because they're lazy and I think editors ought to insist on more precise identification even if they remain anonymous.
+- We made only one real mistake. And even then we were right.

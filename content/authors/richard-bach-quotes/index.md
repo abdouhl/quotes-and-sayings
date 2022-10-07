@@ -1,0 +1,67 @@
++++
+author = "Richard Bach"
+title = "Richard Bach Quotes"
+quotes_len = "61"
+description = "the best 61 Richard Bach Quotes"
++++
+- Civilization... wrecks the planet from seafloor to stratosphere.
+- Learning is finding out what you already know.
+- In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
+- Get this in mind early: We never grow up.
+- Your conscience is the measure of the honesty of your selfishness. Listen to it carefully.
+- I've owned 41 airplanes. A few of them would talk with me. This little seaplane, though, we've had long conversations in flight. There's a spirit in anything, I think, into which we weave our soul. Not many pilots talk about it, but they think about it in the quiet dark of a night flight.
+- It is by not always thinking of yourself, if you can manage it, that you might somehow be happy. Until you make room in your life for someone as important to you as yourself, you will always be searching and lost.
+- Don't turn away from possible futures before you're certain you don't have anything to learn from them.
+- The more I want to get something done, the less I call it work.
+- There are no mistakes. The events we bring upon ourselves, no matter how unpleasant, are necessary in order to learn what we need to learn; whatever steps we take, they're necessary to reach the places we've chosen to go.
+- I want to be very close to someone I respect and admire and have somebody who feels the same way about me.
+- The meaning I picked, the one that changed my life: Overcome fear, behold wonder.
+- Every gift from a friend is a wish for your happiness.
+- The bond that links your true family is not one of blood, but of respect and joy in each other's life.
+- The simplest questions are the most profound. Where were you born? Where is your home? Where are you going? What are you doing? Think about these once in a while and watch your answers change.
+- I gave my life to become the person I am right now. Was it worth it?
+- Strong beliefs win strong men, and then make them stronger.
+- If it's never our fault, we can't take responsibility for it. If we can't take responsibility for it, we'll always be its victim.
+- To fly as fast as thought, you must begin by knowing that you have already arrived.
+- You are never given a wish without also being given the power to make it come true. You may have to work for it, however.
+- I don't want to do business with those who don't make a profit, because they can't give the best service.
+- Your only obligation in any lifetime is to be true to yourself. Being true to anyone else or anything else is not only impossible, but the mark of a fake messiah.
+- You don't want a million answers as much as you want a few forever questions. The questions are diamonds you hold in the light. Study a lifetime and you see different colors from the same jewel.
+- True love stories never have endings.
+- The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
+- Rarely do members of the same family grow up under the same roof.
+- What the caterpillar calls the end of the world the master calls a butterfly.
+- To bring anything into your life, imagine that it's already there.
+- One of the great cosmic laws, I think, is that whatever we hold in our thought will come true in our experience. When we hold something, anything, in our thought, then somehow coincidence leads us in the direction that we've been wishing to lead ourselves.
+- Avoid problems, and you'll never be the one who overcame them.
+- Happiness is the reward we get for living to the highest right we know.
+- Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!
+- Some choices we live not only once but a thousand times over, remembering them for the rest of our lives.
+- Kindle Singles is publishing on skates. It prints like lightning; our book meets readers in hours. I've spent so many years waiting for publishers to consider whether they wanted to print a book of mine, making contracts, taking months to fit it into the Fall list or the Spring list, fitting it into an advertising plan.
+- Aerodynamics is mathematics for those who haven't learned to do calculus. In my case, too, for one who hasn't learned to add or multiply, at least the first time.
+- I know there's a principle of spirit. It works without space-time. I am subject to that principle, in spirit and in belief of body. Learn how spirit works, a few simple rules, living a perfect spiritual life is easy.
+- Live never to be ashamed if anything you say or do is published around the world, even if what is said is not true.
+- Argue for your limitations, and sure enough they're yours.
+- A professional writer is an amateur who didn't quit.
+- Not being known doesn't stop the truth from being true.
+- Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.
+- The best way to pay for a lovely moment is to enjoy it.
+- Same with anyone who's been flying for years and loves it still... we're part of a world we deeply love. Just as musicians feel about scores and melodies, dancers about the steps and flow of music, so we're one with the principle of flight, the magic of being aloft in the wind!
+- You are always free to change your mind and choose a different future, or a different past.
+- Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
+- Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
+- If you will practice being fictional for a while, you will understand that fictional characters are sometimes more real than people with bodies and heartbeats.
+- If you love someone, set them free. If they come back they're yours; if they don't they never were.
+- Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
+- Listen to what you know instead of what you fear.
+- You teach best what you most need to learn.
+- Allow the world to live as it chooses, and allow yourself to live as you choose.
+- Ask yourself the secret of your success. Listen to your answer, and practice it.
+- Here is the test to find whether your mission on Earth is finished: if you're alive, it isn't.
+- Our soulmate is the one who makes life come to life.
+- Jonathan is that brilliant little fire that burns within us all, that lives only for those moments when we reach perfection.
+- Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there?
+- If your happiness depends on what somebody else does, I guess you do have a problem.
+- In order to win, you must expect to win.
+- Here is a test to find whether your mission on Earth is finished: If you're alive, it isn't.
+- The simplest things are often the truest.

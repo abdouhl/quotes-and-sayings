@@ -1,0 +1,53 @@
++++
+author = "Ben Barnes"
+title = "Ben Barnes Quotes"
+quotes_len = "47"
+description = "the best 47 Ben Barnes Quotes"
++++
+- I often talk with other actors about that time when you've just finished a job, because I think you do take on the characteristics of some of the characters you play. Sometimes it can be a great thing and sometimes it's a bit haunting because you're not quite sure how to leave it on set. My dad talks about it as being 'de-personalised.'
+- I had two family members involved in World War I: two great-uncles. One of them is on a memorial in France. And the other was a trench runner who survived the war. The average life span of a trench runner was 36 hours, but he survived the whole war.
+- Almost every script that I've gotten has been for sort of the generic Hollywood type. I haven't chosen them. All the ones I have chosen are because I've been fascinated with the source material or because of the script.
+- I went to a very academically competitive high school. So I was always quite studious and quiet, just to keep up with the other geniuses who were in my school.
+- There are loads of websites devoted to me.
+- I'm not really an animal person.
+- I was heavily into sport from 10 to 15, I was in all the teams, and it was everything to me. But I was very young for my school year and when puberty kicked in for my classmates I got left behind.
+- When you're doing a film, people are always telling you exactly what to do. Literally, your own decisions are taken away from you.
+- Sometimes success comes in ways you don't expect.
+- I love music, and I love singing.
+- When I was younger I didn't really know what genre of music I'd want to do because I'd always done so many different types, so many impressions.
+- I don't really see the point in making a film unless you can think of a good reason to do it.
+- I think if actors don't think of themselves as funny in real life they think they can't do comedy.
+- Never agree to say or do anything that isn't you.
+- I'm not that kind of Bob Dylan, tortured creative.
+- I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff.
+- I only remember the end of my dreams, like waking up at a steering wheel, or falling.
+- I didn't have any pets growing up.
+- Half my fan mail comes from Japan.
+- You still get these waves of doubt that come over you, for example, when you get a bad review or you accept a part and think, 'Oh, God, what have I just accepted? I can't do that.' I don't think that's something that will ever go away in me.
+- Maybe Oliver Stone doesn't lend himself well to remakes or sequels, because he does them so well the first time.
+- I swim a lot. I swim most days.
+- I don't believe in that kind of pragmatic career ladder stuff.
+- I want to play characters that are interesting to watch.
+- I actually went to university.
+- I'm probably a little too uninhibited.
+- I don't really know who I am as an actor: the best thing would be to experiment with it for the next 30 years and never really find out.
+- We live in a youth-obsessed, aesthetically obsessed culture. That is no more evident than in the film industry.
+- I think every film actor secretly wants to be a rock star as well; just that part of the job which requires the extrovert in you. Even if you've become an actor because it's your way of hiding in plain sight, there's still part of you which has that craving.
+- I have done lots of music projects in my life and some of them I am more proud of than others.
+- I'd rather be shot than be seen falling out of some trendy club.
+- When I finished school, everyone wanted to go to a good university and become a lawyer or a doctor. My A-levels were sort of chosen for me.
+- I think escapism is very important, certainly in my life. I love nothing more than escaping into the world of a film or a novel. To be involved in creating that for other people is a privilege.
+- I've actually, very rarely have I worked in my own voice. I've played, I think, Russian, American, Northern from the North of England. All sorts of different accents I've worked in.
+- My dad is a doctor, a professor of psychiatry, and my mum is a psychotherapist.
+- Jeff Bridges is one of my favorite actors in the history of ever.
+- I would like to work with whoever would like to have me.
+- I am comfortable playing the fool, I think.
+- My mum was raised Jewish, my dad is very scientifically minded, and my school was vaguely Christian. We sang hymns in school. I liked the hymns bit, but apart from that, I can take it or leave it. So I had lots of different influences when I was younger.
+- When I was at school, I was in choirs more than anything else, from a very young age, about 9 years old. And then I started taking drum lessons.
+- There are plenty of people in the world who have tried to be rock stars and have not gotten there.
+- People recognize actors that they see regularly, like people they see on the television every week.
+- I want to take advantage of any popularity I have.
+- No one wants to be with a girl that your mother would pick for you.
+- Sword fighting is just as fun as it looks on the screen.
+- Actually what I'd like is to have a reputation as someone who's been wild and gone straight, but without having to go through the trouble of being bad.
+- That's the thing, when you play younger characters they're always less casual. You're hungrier or more naive. Those things wane in time.

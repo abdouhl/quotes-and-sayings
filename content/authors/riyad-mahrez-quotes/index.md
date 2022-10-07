@@ -1,0 +1,61 @@
++++
+author = "Riyad Mahrez"
+title = "Riyad Mahrez Quotes"
+quotes_len = "55"
+description = "the best 55 Riyad Mahrez Quotes"
++++
+- I work on my recoveries, coming back into the defensive line and things like that.
+- It's better to have a lot of different qualities in the team; it's a good mix.
+- To sum it up, I would say that the Premier League is football's NBA.
+- To be first is something special.
+- When you have quality and show it, there's no problem.
+- Football is a game. So you need to enjoy your football.
+- When there is a Brazilian who is lighting things up, he is at Real Madrid before you know it!
+- I never listened to people who said I wasn't going to make it.
+- When I was at Le Havre, I was always sure of myself. I knew I'd make it.
+- I want to play Champions League every year; I want to be at a big club and win trophies. That's my target.
+- This is Leicester: it is not like Manchester City or Manchester United. They have an obligation to win things. We don't have an obligation; it is just a dream.
+- In life, that is how you advance - by pushing the limits.
+- For every footballer, to finish in the top ten of the Ballon d'Or is a dream.
+- We were definitely not rich, but we were not poor. My mum always came home from work and did everything so that we ate well.
+- When I went to Le Havre, I wasn't physically ready. I was skinny and not strong enough to play in a tough league. They told me to go back to the second team. I was very disappointed, but maybe that helped me to be the way I am now.
+- To score three goals at City is not easy.
+- When you have the ball, you are free.
+- Enjoying myself is something very important for me because that is why I play when all is said and done. And it also allows me to have an engine.
+- When I play at home, I feel like I'm flying.
+- I've always had the ambition to win a lot of trophies.
+- Maybe I am an inspiration for some players. Some young players. But I don't like to speak about myself.
+- I was a street footballer.
+- I have to accept constructive criticism.
+- The picture of me as a child is that I was always with a ball - that's why I was so skinny: I would miss dinner. Mum would have to leave me some food in the microwave.
+- I had confidence in my quality, so I was always positive and had good objectivity.
+- Jamie Vardy and myself, we have fun during matches.
+- Barcelona and Real Madrid wingers, these are the big players at the big clubs and you have to watch them. They are at a top level. I'm not going to say they inspire me, but I take things from them.
+- It is up to me to adapt and to continue to surprise with my positioning, the timing of my runs, the trajectories, when I call for the ball.
+- My father pushed me to be a footballer. At every opportunity, he took me with him to play football. He came with me to matches.
+- It's difficult to have the Africa Cup of Nations during the season because you focus on the league, and then you go to Africa, then straightaway you come back and have to refocus in the league.
+- I always watch Barcelona on TV at home because I like how they play.
+- My father was a big influence. He kept telling me to pursue football, always. He always encouraged me and my brother.
+- When you taste first place, if you then go and finish fourth, you will be disappointed.
+- I don't want to return to France; France doesn't tempt me at all. I like England.
+- When people mention me and Messi together, it's amazing because, to me, Messi is the best of the best. You can't say anything to him; he's the boss.
+- Sometimes you see me on the pitch, and you think I'm playing on the street.
+- My early memories of my dad were taking me to play football when I was six - they are happy ones. They are my favourites.
+- Playing in the Premier League, in front of such crowds and on such perfect pitches, is amazing. I am so lucky.
+- It's hard losing a parent, especially dad because he was always behind me. It was his dream and my dream for me to become a footballer.
+- I always had this talent - it is something you get when you are born, so I have just worked, and it has gone well for me.
+- Even when I was young, I had a reputation for it. I would play with my friends outside, and I was doing all the things you see now a long time ago. I've always done the flip-flap, even when I was young. Stepovers, dummies - I love to dribble. If you speak with my friends, they will say I'm the same Riyad.
+- I've had the four best seasons of my career at Leicester and have loved every moment. I feel immense pride to have been a part of what we have achieved during my time at the club, culminating in becoming Premier League champions.
+- I loved Marseille when I was a boy.
+- To be good is not enough; you also have to make your team win. And, when you are an attacker, that most often happens through a goal or through an assist.
+- I am a very funny guy.
+- When you're in an academy, every day you're in at 9 A.M., and it's, 'Do this, do that,' but we just came with our football.
+- I was born with this talent, so I've just worked hard, and now it's gone well for me. But I'm not going to lie - I didn't expect to be top of the Premier League.
+- It drove me crazy, Scotland. It was cold. It was abuse. It was snowing and everything. I was so cold that one day I faked an injury to go to the locker room.
+- At the end of your career, what you will keep in your head is the memory of winning trophies - Premier League, Champions League. Those are the only things you remember.
+- Deep down inside me, I knew I could do great.
+- You can be first, and then in six games, you can be 12th. The results can just flip, and everybody can forget.
+- A dream is better than obligation.
+- It's difficult in the Premier League.
+- When you go through a moment, and you are down and losing your head, it gives you a lot of experience.
+- Every day, I was on the street dribbling, doing skills. I wasn't in an academy till I was 19.

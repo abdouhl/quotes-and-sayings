@@ -1,0 +1,46 @@
++++
+author = "Bhuvan Bam"
+title = "Bhuvan Bam Quotes"
+quotes_len = "40"
+description = "the best 40 Bhuvan Bam Quotes"
++++
+- Keep a check on your children, but do not force them to do something you wanted to do, or what you wish them to be. Be frank with them, know their interests and promote that too.
+- I chose commerce while at school, but didn't get admission for B.Com in any college, based on my marks. Hence, I decided to pursue History Honours, which I eventually graduated in, from Shaheed Bhagat Singh College.
+- While it is a great platform to showcase your talent, YouTubing is not as easy as it looks. To be successful, remember to ensure your content is what you can relate to, and not what is in trend. Wait for your audience to find you.
+- Bro Court' is set in an engineering college hostel. It is a court where all the grievances of hostel inmates, brothers from other mothers, are addressed and justice is assured.
+- Every child thinks archaeology is about digging up land to find dinosaur remains and gold. I had the same intentions.
+- My brother is my inspiration. From being a star student in school, to the perfect boy next door - he was adored by everyone and I always looked up to him. We all shared a dream that he would become a pilot someday.
+- I was watching the devastations of the Kashmir floods, and a reporter was asking a local, who had just lost her house and her son, how she was feeling. I was stunned at the insensitivity. I did a 10-15 second satire on it and put it up on Facebook.
+- Every day, I learn thousands of things.
+- With YouTube, it's mostly about scripting and editing. Live performances depend on the crowd, their mood and reactions.
+- When a regular guy like me starts getting attention, it's natural to want more. I wanted the next video to be bigger than the last.
+- I come from a middle class family, so most of my content comes from home.
+- In my case, my videos are zero-cost productions. I don't spend a single penny on them. I take 15 to 16 days to come up with a video and do one or two videos a month. That's a long time.
+- Don't start your journey by calling yourself an influencer. I am not an influencer.
+- As for finding comfort in the zone, I'm comfortable singing what I write. I like writing emotional and slow, melodious songs. I haven't tried singing songs from other genres, but yes, I would like to give them a try.
+- I always had funny stories to tell, but my family members never laughed at them.
+- My videos went viral in Pakistan and Bangladesh, but, funnily enough, not in India. India took a lot of time to warm up to my videos!
+- It's a challenging task for every artist to come up with new ideas. Your last video would have made a benchmark, so the next one should ideally be better than your previous work, so there's always a competition with myself to be better.
+- I am very fond of shoes and sunglasses. But the most expensive thing I have bought is a house for my family.
+- To achieve something I don't think is a big thing but to maintain and sustain it, is an art. This is something few people possess while others don't.
+- I went with the flow. I never knew this could be a career option. But as a 21-year-old desperate for people to watch his content and hear his music, I could go to any extent. Creating four videos a week, only a man sitting empty can do it.
+- I keep talking to my followers about relationships. These people have been a part of my journey; they have seen me mature.
+- Make content that makes you happy. Do whatever you want. Don't run after expensive things. Good content and subject will get you viewers.
+- I normally read the comments on my video two hours after it's been uploaded.
+- Social media is a bit tricky but the key is in patience. I know it's easier said than done, but I have been patient for six years and never gave up.
+- Scoring well is great, but not at the cost of straining yourself. Students need to know that there is a life beyond these marks. They should know that five-six years down the line, they will laugh it off.
+- People abuse for no reason, because they can do it anonymously. There's a lot of negativity, criticism and hatred as an artist grows.
+- BB Ki Vines is my baby. I have put so much time and heart into it.
+- My parents, specially my mom wanted me to pursue B.Com honours during my undergrad.
+- I think 'BB Ki Vines' became popular because viewers could relate to it.
+- Fame has not changed me as a person, but life on the whole has changed a lot. I belong to a middle class family and that hasn't changed.
+- In my case, I make it clear to the brand that I'm not a salesman. I can show your product as if I use it every day in my daily life but I won't tell people to buy it.
+- I always look for opportunities where I can prove my mettle as a versatile artist.
+- To own your song is very special. Now that I have a platform and so many people watching me, I have an upper hand.
+- Being a YouTuber, I agree that YouTube's content is much more superior than TikTok. If people say TikTok has cringe content, YouTube also does. But content is subjective.
+- Before me, nobody was making two to three-minute videos in Hindi.
+- Creators cannot make your content go viral.
+- Before starting my YouTube career, I used to play music at a restaurant. YouTube was never a part of my plan.
+- It was during the gap between 12th class and college, that I realized my passion for music, although I did have a keen ear for it all along and also wanted to be a musician.
+- I was getting gig offers from neighbouring countries, but no one knew me in India. Just when I was about to accept an offer, one of my videos went viral in India.
+- I never intended or planned on making a YouTube Channel. I always thought that it was meant for Bollywood movies, trailers, and songs.

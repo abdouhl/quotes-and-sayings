@@ -1,0 +1,100 @@
++++
+author = "Frank Gore"
+title = "Frank Gore Quotes"
+quotes_len = "94"
+description = "the best 94 Frank Gore Quotes"
++++
+- When you think about retiring, you're done. You already checked out.
+- I just always told myself that I can never get big-headed if I become successful.
+- You can be talented, but having great talent isn't enough. You have to work every day or someone will pass you up.
+- I try my best when I get an opportunity and my number gets called.
+- When I'm done, whenever I feel like I'm done, I'm going to come back and retire as a Niner.
+- I just want to go out there and try to get my respect from my teammates and my coaches.
+- When your name gets mentioned with the great guys that played this game in the past, that's very big.
+- I'm not a talker. But I will show in practice the way I work and the way I love the game.
+- When you come from Miami, you're used to winning.
+- When I went to high school, my whole neighborhood, they followed me. They wanted to see me be successful.
+- Whatever the coach calls, I'm going to give 110 percent.
+- I've been blessed to play 15 years.
+- When I see a guy on the football field huffing and puffing, I know I got an advantage over him.
+- I'm only a player; I only do what my coach says.
+- I try to do two workouts three times a week.
+- I'm not the fastest guy, but when it comes to agility, getting in and out of cuts and seeing something and going to get it, I do my best to make sure that's on point.
+- As long as you train and love to compete, you can do whatever you want.
+- I don't like attention.
+- As long as God blesses me in the morning to get up and work hard, I'm going to take advantage of it.
+- You think about when I went to Miami. I played as a freshman, I go in and compete to be a starter, I tear my ACL. Come back, I start, I get off to a good couple of games and I get hurt again. You hear everybody saying, 'Oh, he's done.' I get drafted in the third round. People still said I got drafted too high, saying I'll only play three years.
+- Every time I got opportunities, I did something with it.
+- I'm not a talker unless I really feel I have to say something.
+- My coaches respect me - the way I come to work, practice and play.
+- I don't really have a best friend.
+- I have young guys come up to me after games and say they want to train with me and they don't know how I do it. It's God, it's training and it's love for the game.
+- As long as I'm healthy and feeling good, I will compete with anybody.
+- I tried the Xenith helmet later in my career and immediately wished I had done it earlier. It was comfortable, secure, and allowed me to perform without distractions.
+- I set my goals high.
+- My kids get to see me every day.
+- I take it one game at a time, one year at a time.
+- I want to be remembered as a guy who played the game of football right.
+- Before I got injured, football was very easy, I didn't have to work out.
+- Some guys go to different teams and as they get older, they just want to ride the coattail of the younger guys. I don't want to do that.
+- If I feel like I can't play ball anymore, I'll stop that day. I'm not a fool. I respect the game too much.
+- I want to make an impact.
+- If you know sports in Dade County, you know me.
+- When you hear coaches say your son is good, sometimes you think they are just saying it because it's you.
+- I don't want to just be part of a team, I want to help a team, and I don't want anyone to say I rode the bench to get a ring.
+- I feel like every year it's something with me. I've got to overcome everything every year.
+- I want to make sure I'm not the last NFL player to come out of the Grove.
+- You've got to know what helps you be successful during the season.
+- Coming up, I thought Barry Sanders was the best running back ever.
+- I like Coach Harbaugh a lot. No issues.
+- I watch what I eat a little during the week.
+- I train with young guys in the offseason just to be honest and keep myself sure, to let myself know if I'm ready or will I be ready.
+- I thought my freshman year at the University of Miami, I was balling, I was looking forward to the NFL.
+- Nowadays, kids need promises to play. And I'm not gonna lie, I almost went to Mississippi. But that's the best thing I did, when I changed my mind and went to Miami.
+- But I look at Anquan Boldin the same. If you watch us, we're similar players. We're not the fastest, we're not the biggest, but we get it done. I think we're just football players.
+- As long as I stay consistent as my career goes, I'm good with it.
+- When training camp comes, all the guys in my running back room will see how hard I go every day.
+- I'm very competitive.
+- My first year playing Pop Warner football, my mom had to change my birth certificate because I was too young. I was 5, I think, and you were supposed to be 6.
+- My neighborhood, Coconut Grove, we always played in the streets. It was corner against corner. We all had football teams. Different neighborhoods.
+- I'm going to be a Niner, you know, I've been there - that's who drafted me, gave me the opportunity to come into this league, to be a professional ball player, and I was there 10 years, man.
+- My first goal was to play in the NFL.
+- I don't care what age I am. If I continue to train and feel good and enjoy the locker room and this organization wants me and I feel I can do it, I'm going to do it, no matter what my age.
+- I was always a hard worker, but when I was younger I didn't have to put the extra work in like some of the other guys.
+- My first time playing running back in a real game, I had eight touchdowns.
+- I don't put nothing past no man who ever played the game of football.
+- I know that every team likes a guy who's going to try their best and work very hard.
+- When I'm tired, I tell myself what the people are saying about me. In that second workout when I'm saying, 'Man, I don't want to do this.' I remind myself, 'They're saying you're old. They're saying you're 33. They're saying you can't do it this year.' I play games with myself off that stuff.
+- Once I got into the league, I liked to watch LaDainian Tomlinson. He was nice, man. Quick, strong, great eyes, able to catch the ball.
+- I've been blessed to make pretty good money over the years.
+- I've been through so much. I mean, after an ACL, you have to learn how to walk again, how to run again, you have to get your head strong again.
+- I've always strived to prove people wrong.
+- I want to show guys that when they get up in age, if you love the game and you go out and work hard, it shouldn't matter what age you are.
+- I love when people tell me what I can't do.
+- People said I would be in the league for two to three years and then I would be done. I have been blessed to keep going, and also have success.
+- How I pick running backs, I always go off what situation they're in. I look at guys and what they had around them.
+- I'm from Miami, you know, when you're a child, you always want to play in front of your hometown.
+- To be able to be mentioned with guys like Emmitt, Walter Payton, Barry Sanders, Curtis Martin and my man LaDainian Tomlinson, it's a blessing.
+- I just think I respect the game and care for the game so much.
+- I've been boxing for a while now, and I probably could fight a little bit if I wanted to.
+- When it's time to play, I'm going to come play. I'm going to play the right way. I'm going to try to help my team in all directions, blocking and catching. If I don't have the ball in my hand, I'm going to protect, block down the field. I'm going to do whatever it takes to win.
+- When you're looking from the outside looking in, you don't know what's in the locker room until you get there.
+- I knew that I wasn't the smartest kid in school, but I knew that I had a way to get out if I did the right things in sports.
+- I like to work out with the young guys.
+- My mom, how she raised me, my brothers, my cousins, when I was a kid with one bedroom for 12 people... You think about all that, and God blessed me to get somewhere and do something I love and do something I've done since I was a kid. And blessed me with the talent to do it.
+- If I can go compete with the young guys during training in the offseason, I should be fine during football.
+- When you go up against the best of the best, you're ready for any type of competition.
+- I hear all the critics, man. I hear them saying 'He's done.' I hear them saying 'He can't.' I hear all that. That keeps me going.
+- Defensive guys don't really understand. It's totally different for offense. Defensive guys are convinced they know us but they just don't understand. Quarterbacks have so much that they have to read and adjust to. They have to look at everybody on the defense. It's totally different for the offense.
+- Whatever I feel like I'm good at, I try my best to do.
+- I'm not selfish.
+- When you're a free agent you want to be wanted.
+- I've been doubted my whole life, especially coming out of college with the injuries I had.
+- My son going to college is a big milestone.
+- I could've easily gone the other way, but luckily, I had football and the dream to play in the NFL so I could do something positive with my life.
+- I train hard.
+- I can't really grip the ball with my left hand.
+- When something you love gets taken away, it hurts you.
+- I'm not scared of any man.
+- I'm not going to be done until the man up above says so. It's not me, it's Him. As long as I'm healthy enough to be out there and train and my body feels good, I'm going to do it.
+- I'm better learning by somebody showing me something. I got to see and then do it. You can't be scared to ask for help.

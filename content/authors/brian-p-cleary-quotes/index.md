@@ -1,0 +1,16 @@
++++
+author = "Brian P. Cleary"
+title = "Brian P. Cleary Quotes"
+quotes_len = "10"
+description = "the best 10 Brian P. Cleary Quotes"
++++
+- If I have a talent for making some fourth-grader who hates school and reading to hate it a little less, then I have to do the most with what I've been issued.
+- In writing I found something I could do at least as well as my peers, if not better.
+- Kids enjoy laughing and are seldom bored when they find something funny. They also ask questions, often to adults, because they understand that the more words they can comprehend about a funny story or a joke, the more they'll enjoy it.
+- When a kid can understand that a word can mean two things, there's some real thinking going on. They have a vested interest in finding out what a word means, because it's the punch line to a joke.
+- These are books that want to be read out loud. These are books kids share with each other, and I think that's important.
+- I love the semicolon; it's unnecessary, but graceful and sophisticated.
+- Our cat is kind dove shellfish, and thinks the world is hers, She finds a comfy spot and then we pet turtle sheep purrs.
+- It's perfectly okay if you don't understand every single one of them. For one thing, I make a lot of corny jokes, and you have to be 40 years old to get some of them.
+- You want a story? Read 'Gone With the Wind'. These aren't stories. They're joke books. The whole thing of a beginning, a middle and an end has been done to death.
+- I like all things grammatical, and I had already written several books about parts of speech, and even the alphabet, so everything that makes up a sentence and even a word was covered except for punctuation.

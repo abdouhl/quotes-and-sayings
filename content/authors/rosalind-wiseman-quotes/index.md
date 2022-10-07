@@ -1,0 +1,29 @@
++++
+author = "Rosalind Wiseman"
+title = "Rosalind Wiseman Quotes"
+quotes_len = "23"
+description = "the best 23 Rosalind Wiseman Quotes"
++++
+- So many women keep their anger inside and let it build until they explode and then people blow them off again.
+- Being a parent does not give you an excuse for bad manners.
+- As a teacher myself I've been in situations where parents come at you, and sometimes parents come across like the teacher doesn't want the best for their kid and it can be really, really hurtful.
+- Nobody ever talks about the mean things that girls do to each other.
+- Mothers and fathers do really crazy things with the best of intentions.
+- Many kids who are bullied feel helpless. Sometimes, they think the only thing they can do is hope the problem will go away. But there are things you can do to get some control in the situation and it starts with developing a strategy and a support system.
+- I think that giving mindless praise is ridiculous. But I understand why parents do it. They want their kids to feel good about themselves. But parents are never going to teach their children true, positive self esteem by praising everything they do.
+- The hazing experience and then the subsequent participation in the group forces its members to maintain the status quo and traditions at all costs. It demands mindlessness and unquestioned loyalty, resulting in boring people who have little ability to think for themselves or have an opposing viewpoint from those who have the most social power.
+- Advancements in technology have become so commonplace that sometimes we forget to stop and think about how incredible it is that a girl on her laptop in Texas can see photos and cell phone video in real time that a young college student has posted of a rally he's at in Iran.
+- You can't make someone be your best friend.
+- Sleeping with your phone in your bedroom is never a good idea, but it's even worse when you're bullied online because it's too tempting to stay up all night trying to 'fix' the situation - which isn't possible anyway.
+- Kids don't like being put into boxes, and your kid can act in different ways in different situations.
+- By the time a child reaches out to an adult, the vast majority of kids have been dealing with the bullying and trying to ignore it for a long time.
+- In my own family, my mother had my sister when I was 15 and for various reasons, I was extremely involved in raising her.
+- When I tell people I work to stop hazing in high schools I am almost always met with shocked expressions. 'High school? Really? I thought that was something that only arrogant frat guys do in college.' But it's true - as long as I have worked on preventing bullying in high schools, I have worked to prevent hazing.
+- As an expert, I can deal with complex problems. As a mother it is much, much harder.
+- Sometimes bullies are your friends and very rarely do bullying prevention tips acknowledge this fact or what to do about it.
+- Good home-school educational plans have the kids in groups with other children often and consistently. Because common sense dictates that isolating people is never good and home-schooled children really benefit from being in those type of programs.
+- Communicating a passionate response to world events is no longer limited to protests and rallies.
+- Well, I think having your kids see you role model behavior of dignity when it's hard, when you're upset, when you want to confront somebody but you don't want to and you're nervous about it, when you are having moments where abuse of power is coming on to you. I think it's really important for kids to see how you handle that.
+- I talk to teens everyday about topics that are often extraordinarily uncomfortable.
+- See, at a certain point it becomes cool to be boy crazy. That happens in sixth grade, and it gives you so much social status, particularly in an all-girls school, if you can go up and talk to boys.
+- Boys and boys' body image and clothes have become just as important an issue for boys as for girls.

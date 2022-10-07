@@ -1,0 +1,105 @@
++++
+author = "Bhuvneshwar Kumar"
+title = "Bhuvneshwar Kumar Quotes"
+quotes_len = "99"
+description = "the best 99 Bhuvneshwar Kumar Quotes"
++++
+- I don't bowl at 140 kmph or 150 kmph, so my best chance of getting the batsmen out is by bowling in the right areas and getting it to swing.
+- Whether you're a batsman, bowler, or an all-rounder, fitness is tough if you follow your regimen religiously.
+- It is definitely a good feeling to do well at Lord's.
+- It's all about doing the little things right. It doesn't matter what form of cricket you are playing. Just keep things simple, and you will succeed.
+- In India, the wicket tends to get a bit slower once the ball gets old, but in England, it's pretty much the same whether it's new ball or old ball.
+- You see teams buy a lot of batsmen for a lot of money because they are good batsmen. But you also need good bowlers to get them out or contain the runs.
+- I'm a sports lover. Not just cricket - I play badminton and football, too. When I get some time off, I prefer to play sports rather than working out.
+- As a bowler, there are times when you do not get wickets, and you don't have the numbers to show against your name. But never has the thought crossed my mind that I am not a confident bowler and the wickets are not coming my way.
+- Preparation goes on even when you are out of the team, as you can do it anywhere.
+- Stats are something which can't define everything. It could be hiding more things than it shows.
+- It feels great that my performances in domestic cricket have been recognised.
+- I rely on swing to get wickets, and I continue to do it that way. I have never tried to copy others.
+- I am here to play cricket. No preferences at all. T20, ODI, Test - I just want to perform on every stage and prove my worth as a good bowler.
+- I just try to improve every series.
+- When I watch a match, I always try to understand what the batsman is trying to do so that I know what I should do to get him out.
+- I have tried to improve on my death bowling.
+- The first thing that comes to the mind when you are touring South Africa is bouncy wickets. But that is no surety of what kind of pitch you would get in the game.
+- If the keeper is standing up, in the fear of getting stumped, the batsman will not try to walk down the wicket to negate the swing.
+- Anything that a batsman cannot pick from the wrist is deception.
+- The Oval has always been a good batting track, and there's not much for the bowlers.
+- IPL is something... it's where we polish our skills and be in form, but ODI and T20I are totally different.
+- There has definitely been an improvement in my bowling in terms of pace and variations like the slower ball and knuckle-ball. To add to that, I have improved fitness-wise.
+- I will like to take one match at a time.
+- It is always a good thing that whoever is getting a chance in the playing XI has been performing well.
+- I have batted well in Tests and always wanted to do well in ODIs, too.
+- There is no specific formula that you need to follow to do well on certain wickets.
+- Swing is my main weapon.
+- People forget that I have grown up playing on Indian tracks and have bowled huge number of overs on unresponsive Indian tracks.
+- I never think that I have to be at top every time. Obviously, I have to do well in every game and series; that's what I try to do. I try to improve and work on the swing and variation in my bowling.
+- We all know that spinners dominate in Indian conditions, so it's good if medium pacers can get at least two wickets.
+- If you do not have good shoes, you can get injured.
+- I think in T20, things are related to pressure, and if you handle it well, you are on top of your game. I think about process and not too much about results.
+- I have always said the most difficult batsman to bowl against is the man who is in form. You may have seen the best batsmen get out early when they are not in form, but an in-form batsman is difficult to dismiss.
+- How you practice in nets matters a lot.
+- T20 is such a format that finishes quickly, and you only have four overs. If there are three bad balls in one over, you will go for runs, and your whole analysis suffers. The team is on back foot because of three balls. So each and every ball becomes very important. It makes the bowler think.
+- T20 is a game where you must expect the unexpected.
+- You need an over to get your confidence going.
+- IPL is such a tournament that you end up knowing about the strengths and weaknesses of everyone because you are playing with so many people in the same side.
+- I have learnt a lot from Praveen Kumar.
+- I have improved my pace without losing on the swing. That is something I am really happy about.
+- Breaks are needed after you play a long tour.
+- There are many things that you just observe while watching Steyn. Just seeing him bowl is a great learning in itself.
+- I only have a family pack; never really felt the need for abs or something like that because, to my mind, being fit in terms of cricket is far more important than anything.
+- When I was a youngster, Praveen Kumar was in the same club as me, and because we are similar bowlers, I learnt a lot from him. We used to have conversations, but not a lot. What was very helpful was observing what he was bowling, the kind of fields he had, and what his thinking was.
+- I am grateful to Allan Donald for his guidance and subtle nuances that he taught me.
+- When I started out, I wasn't a thinking bowler, but talking to seniors and coaches helped. They would always tell me that I ought to be clear about where I wanted to bowl before I ran in to bowl.
+- It always gives you pleasure when you score runs in Test cricket.
+- When you are playing Under-17 or U-19, the captain is of the same age as the rest of us. His knowledge was also as limited as the other players, so there was greater responsibility on the bowlers to understand themselves and their bowling, read the pitch, and set fields accordingly.
+- When I began, I was more of a swing bowler with little pace, but I realized it will be difficult to sustain without the pace, so my fitness has now allowed me maybe an extra yard of pace. That has been the secret of my success.
+- In my mind, I work out situations. Like, how I should play if I bat for four overs, or how should I approach myself if its 10 overs. These are things I work at the nets.
+- That's how you win matches - bowling in pairs.
+- It's true that I have got wickets with the new ball in Test matches, but that doesn't mean that I can't bowl with the old ball.
+- The way I am bowling at the death, it's all thanks to the IPL.
+- Almost every bowler bowls a slower ball, but not many can be deceptive. A slower ball can only be deceptive if it is different, if it is floating, swinging.
+- If you bowl well early in the innings, it is also important to finish well.
+- You need to plan your bowling. Whenever things are not working for you - like, if you don't get swing - then you have to be ready with a backup plan and try something else.
+- In the IPL, I learnt from Dale Steyn. Our bowling styles are quite different, but he is a great bowler, and you can always pick something from the way he bowls. He has given me a lot of tips during matches, which I have tried in my bowling.
+- It is always disappointing when you miss a match.
+- As bowlers, we don't worry about the wickets, whether they are flat or not.
+- As a bowler, you want to go and bowl in helpful conditions in South Africa, England, and Australia. But it is also important to bowl in the right areas, and they differ from bowler to bowler, depending on conditions and the opposition.
+- World Cup is a big platform.
+- We all know just bowling won't do in modern international cricket, and we have to contribute with the bat and as a fielder, too.
+- You need wickets to be brave. When you get wickets, you can try anything. But when you don't, you always hesitate to try a few things because it is not always about giving runs and getting wickets.
+- When it comes to AB de Villiers, he is the best in the world, and you have to be at your best to bowl to him.
+- T20 cricket is all about using variations, and timing has to be perfect.
+- All bowlers depend on movement, and I am no exception.
+- I never thought in my dreams that I would score fifty in One-dayers: not fifty but match-winning knock because One-Day is a kind of format which doesn't suit my batting, as I am not the kind of batsman who can hit big sixes.
+- As a bowling unit, you get a lot of confidence if the spinners and pacers are bowling as a team.
+- When you are bowling with a new ball, there are only two fielders outside the circle. With the old ball, batsmen don't care how many guys are outside the circle.
+- I have natural talent when it comes to batting.
+- I'm no different than anyone. If you get more games, you're in the rhythm; that gives you confidence.
+- If you bowl good yorkers in nets and come up with good variation, it helps your on-field performance.
+- When I started playing cricket, I knew that my physique is not at all like a typical fast bowler. My body language is also different, and I am not aggressive by nature; thus, my focus was always on my skills.
+- The Kookaburra is the toughest ball to bowl with.
+- When you create pressure in the previous over for your partner to strike, it is sometimes as satisfying as picking up a wicket yourself.
+- As a new ball bowler, it's my job to stick to the basics.
+- You want to be consistent, and for that, you want to be fit.
+- I used to bowl a lot at the death while bowling in the IPL, but it serves as a confidence booster that I can do a lot more with the ball at the start of the innings and at the death.
+- When it comes to batting, I have a lot of expectations from myself.
+- I don't run after speed. Obviously, it will be better to have some more pace, but I am very well aware that I can't bowl with the speed of 150 kmph. I am working hard on my technique and variations.
+- Sometimes what happens is you're not getting wickets; you're going for runs. You just want to get away.
+- As far as I am concerned, my priority is to perform well and win matches for India.
+- Injuries are a part and parcel of a player's career.
+- As to adding variations to my white ball bowling, ever since I started playing IPL, I realised you need variations. You can't survive on line and length. You need coaches around you who can guide you to get there. I have been lucky that I have had seniors and coaches who have helped me get there.
+- Bumrah has a different action, which creates problems for the batsmen. He has improved a lot of things with his action. He had these yorkers, and slower ones earlier as well, but he has improved a lot.
+- It's most difficult to bowl with wet ball.
+- I have always enjoyed bowling in England because there is some swing around, which is my strength.
+- If you have good gear and shoes, you can go for long runs and sustain yourself for a longer duration.
+- It is never easy to switch between formats, but it is all about practice and preparation.
+- Shankar Basu introduced me to a different type of training that eventually helped me increase my pace. That, in turn, went on to help me bowl at the death, too.
+- I won't say I am a premier bowler or anything, because we are all trying to work hard, and whoever gets the opportunity wants to do well.
+- If you think like a batsman, you have an upper-hand over the man you're bowling to.
+- MS has always been a bowler's captain.
+- It was always a dream to play Test for India, and I was very happy when I got my first wicket.
+- Being a swing bowler, bowling at the death is just an added facet in my bowling.
+- Whatever knuckle ball I have bowled, I wanted batsmen to go after that. That way, you can get wickets, and that's one of the main reasons why I have been successful in power plays.
+- When you are injured and undergoing rehab, it is important to stay positive and not allow negative thoughts to creep in.
+- If there is someone who is able to swing the ball, I believe I have it in me to swing it a bit more than the other bowlers.
+- We all know England conditions help fast bowlers.

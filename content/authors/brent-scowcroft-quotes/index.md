@@ -1,0 +1,35 @@
++++
+author = "Brent Scowcroft"
+title = "Brent Scowcroft Quotes"
+quotes_len = "29"
+description = "the best 29 Brent Scowcroft Quotes"
++++
+- The Iraqis need help establishing a government. We have to provide them with security.
+- If Iraq were to descend into chaos, the Europeans would feel the effects just as much as we would.
+- Osama bin Laden is going after us to get us out of the region, so he can deal with the regimes that he sees in the region, or replace them with purists.
+- America has never seen itself as a national state like all others, but rather as an experiment in human freedom and democracy.
+- You know, different people are going to react different ways. And I don't think we should be intolerable because people do things a little differently.
+- An idea can be as flawless as can be, but its execution will always be full of mistakes.
+- But figuring out Saddam Hussein was one our greatest mysteries. He marched to his own drummer and frequently as this unfolded he made decisions which were sometimes inexplicable to us and sometimes didn't look very smart.
+- It is beyond dispute that Saddam Hussein is a menace.
+- Saddam's ouster will not necessarily lead to the same result, since Iraq lacks democratic traditions. Democracy doesn't just consist of holding elections.
+- Europeans are familiar with terrorism and violence. We have not experienced a true conflict on our soil in a hundred years, and especially not one that involved 3,000 dead.
+- So far the changes in the president in his second term have been mainly of a rhetorical nature.
+- After all, we didn't bring democracy to Germany in 1945; Hitler destroyed democracy there first.
+- But there is scant evidence to tie Saddam to terrorist organizations, and even less to the Sept. 11 attacks.
+- The radical elements in Islam are very dangerous.
+- We must find out where the roots of terrorism lie.
+- First of all, I think the Saudis are deeply concerned about the collapse of negotiations between the Israelis and the Palestinians and the resumption of conflict.
+- I'm afraid that the United States is more isolated today than at any other time in my memory.
+- Many Sunnis, who are still stuck in the Saddam era mindset and believe Iraq belongs to them, are trying to prevent a new country from developing at all.
+- To sum up, the position we took was that since we didn't know the internal situation in Iraq nor Saddam Hussein, that our best bet was to take counsel from the people who did know him and who did deal with him.
+- Simply killing everyone who is already a terrorist today won't solve the problem.
+- My point was that removing Saddam should not have been our highest priority. Fighting terrorism should have been our number one concern, followed by the Palestinian peace process.
+- The Europeans must finally understand the incredible shock triggered by the attacks of September 11.
+- Yes, Israel's our ally. But, are the Palestinians our enemy? No, they are not.
+- Saddam is a familiar dictatorial aggressor, with traditional goals for his aggression.
+- But the central point is that any campaign against Iraq, whatever the strategy, cost and risks, is certain to divert us for some indefinite period from our war on terrorism.
+- But, if you believe we should go around the world overturning regimes to make little United States, I don't agree with that, because I don't think we're capable of doing that.
+- The UN could help the Iraqi government get on its feet and help the United States withdraw a bit more.
+- The Iraqi elections were an important first step.
+- Progress is only possible if the United States and its allies work together.

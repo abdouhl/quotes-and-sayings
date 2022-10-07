@@ -1,0 +1,100 @@
++++
+author = "Ben Rhodes"
+title = "Ben Rhodes Quotes"
+quotes_len = "94"
+description = "the best 94 Ben Rhodes Quotes"
++++
+- Irrespective of our foreign policies, for decades, other nations and peoples could see, in the United States, a strong democracy that could maintain social cohesion, welcome immigrants of all backgrounds, and count on stable institutions.
+- The fact that there were discreet channels of communication established with Iran in 2012 is something that we confirmed publicly. However, we did not have any serious prospect of reaching a nuclear deal until after the election of Hassan Rouhani in 2013. Yes, we had discussions with the Iranians before that, but they did not get anywhere.
+- I found people I really wanted to work for; I made myself available to do whatever I could with the skills I had; I took some risk, packing up and moving to Chicago; and I looked for the opportunities that fit for me. So I think the biggest advice is to find people you love to work for who you're going to learn from.
+- Japan hosts more forward-deployed U.S. troops than any other country and serves as home port for our only forward-deployed aircraft carrier. In 2011, when a tsunami devastated Japan and created the disaster at the Fukushima nuclear facility, the United States stood shoulder-to-shoulder with our Japanese allies to respond and rebuild.
+- Our Cuba policy was a major obstacle to getting things done in the hemisphere and a source of tension around the world.
+- Active citizenship doesn't just mean running for office or going into politics; it means starting organisations that promote change or solve a problem, pursuing social good with economic success.
+- I was a relatively anonymous guy, and for whatever reason, I became one of the villains for the Right.
+- We want a rules-based order in Asia-Pacific like we have had in the Atlantic.
+- For more than fifty years, Americans and Cubans have been isolated from one another even though Cuba is only 90 miles away from Florida.
+- The Asia Pacific region within TPP encompasses nearly 40 percent of the world's GDP. Shaping the rules of the road for trade in this region is good for our workers and businesses - and it is good for our national security as well.
+- Downturns in migration almost always prove temporary, as people adjust to changes in American enforcement. What doesn't change is the basic human impulse to pursue a better life in a place where they believe it's still possible.
+- In China, you just don't have the space for civil society and independent discourse and free media that you do in India. That's why India's success is so important as the world's largest democracy.
+- I don't think people realize how many decisions the president of the United States makes about military action.
+- It was wrenching to read about the brutality of Assad every morning, to see images of family homes reduced to rubble. I felt we had to do something in Syria.
+- Billions of people around the globe had come to know Barack Obama, had heard his words, had watched his speeches, and, in some unknowable but irreducible way, had come to see the world as a place that could - in some incremental way - change.
+- For more than fifty years, the United States pursued a policy of isolating and pressuring Cuba. While the policy was rooted in the context of the Cold War, our efforts continued long after the rest of the world had changed.
+- Where civil society thrives, governments operate with more transparency and accountability. This creates a tangible impact on the lives of everyday citizens.
+- Cuba has long played an outsized role in the world's imagination.
+- When I first went to work in the West Wing, the most daunting thing was how small this place was... You walk in: it's three floors, and there's a few offices on each floor, and that's it.
+- For more than fifty years, our policy towards Cuba was not making life better for Cubans. In many ways, it was making it worse.
+- People make a mistake when they think that if you just accumulate a set number of things on your resume, it's going to lead you to a particular place - the pattern of essentially compiling credentials to climb your way up a ladder. That may work, but that's not at all what happened to me.
+- While President Obama raised the hopes of Americans and Cubans alike with a forward-looking opening in diplomatic, commercial and people-to-people ties, President Trump is turning back the clock to a tragically failed Cold War mindset by reimposing restrictions on those activities.
+- With the 5-to-4 decision upholding Trump's Muslim ban, arbitrary discrimination is now formal U.S. policy, celebrated by a president who campaigned on a 'total ban' of Muslims entering the United States.
+- In both Burma and Laos, we have engaged countries that were once adversaries, and will continue to do so in ways that promote good relations, development, and human rights.
+- To the developing world, Cuba has been a symbol of sovereignty and resistance and a supporter of revolution - for good or bad. From the Missile Crisis to the anti-apartheid movement, from the Kennedys to Obama era, this small island has put itself at the center of world events.
+- Faith leaders, young people, American companies, human rights advocates, and many others have demonstrated a unique interest in our Cuba policy. But no community cares more deeply about these issues than Cuban Americans - young and old - who have maintained a profound interest in Cuba and an abiding faith in the Cuban people.
+- What I do miss is foreign travel, because there really is no substitute for showing up somewhere and representing the United States.
+- Talking and diplomacy is often seen as a concession in America, in a way that it is not in other places.
+- While the TPP - like any trade deal - is a subject of vigorous debate, its benefits are clear. The TPP will open markets and bring down barriers for American businesses in the world's largest emerging market, creating jobs at home.
+- We don't have to kind of be in cycles of conflict if we can find other ways to resolve these issues. We can do things that challenge the conventional thinking that, you know, 'AIPAC doesn't like this,' or 'the Israeli government doesn't like this,' or 'the Gulf countries don't like it.' It's the possibility of improved relations with adversaries.
+- To be sure, the United States will be eternally proud of our civilian leaders and the men and women of our armed forces who served in World War II for their sacrifice at a time of maximum peril to our country and our world.
+- Havana is a source of great pride to the Cuban people.
+- I don't know anymore where I begin and Obama ends.
+- What people admire about Prime Minister Modi is that he is an ambitious leader who is trying to elevate India economically, and enlisting all Indians in that project will make it more successful.
+- I had originally been looking at writing, including fiction.
+- We've supported the development of Cuba's private sector. This is a human rights issue - people should have the right to live with dignity and to control their livelihoods.
+- Cuba is only 90 miles from Florida, but for a long time, the distance between our two countries seemed a lot greater.
+- Laos is a deeply Buddhist country, and my visit included a traditional Tak Bat ceremony, in which you get up at sunrise and make offerings to Buddhist monks.
+- I never set out to work in the White House.
+- Our basic assessment was that if America keeps going down these rabbit holes in the Middle East, we're just going to put ourselves out of business as the world leader because we're just draining resources and diplomatic bandwidth, and we're not producing outcomes.
+- President Obama has been on the world stage for 10 years, and people know what he believes. He doesn't single out individual countries and doesn't say, 'I believe in LGBT rights because I want to embarrass the political leadership in India.'
+- After the separation of children from families seeking to join the United States was embraced as the official policy of our government, we should ask ourselves what story we will tell. President Trump's story is one of cruelty - that we may do something unfathomable to deter families from coming to America.
+- In the course of a presidency, a U.S. president says millions of words in public. You never know which of them end up cementing a certain impression.
+- The events of my twenties felt historic, but the people involved did not. I wanted a hero - someone who could make sense of what was happening around me and in some way redeem it.
+- The world order and American actions in the world have deep wiring.
+- When I think of the things that Trump has done, ironically, everything is sort of - we care so much about Cuba and the Iran deal. I think pulling out of TPP is just devastating.
+- Following one of the most violent conflicts in human history, the United States and Japan built a deep and abiding friendship - an alliance that has underwritten unprecedented economic growth and security in the Asia Pacific for half a century. It is an alliance based on mutual interests and shared values and the ties between our people.
+- If you are a speechwriter, you have to know what the person you're writing for thinks. A lot of foreign policy advisers are thinking, 'How can I get my proposal into this guy's speech?' I was just thinking, 'What does he want to say?'
+- In the Arab Spring, that obviously came to a head in Syria. I found myself arguing for intervention, mainly just because I wanted things to get better, and I had this germ of liberal humanitarian interventionism.
+- There are very few things I've ever been a part of that I believe in more than the Iran deal, and everything I said I believe to be true, and I was trying to make a case about the facts.
+- Anthony Bourdain was the one who hooked me on Laos.
+- One of the most depressing things about President Donald Trump's decision to roll back elements of the Cuba opening is how predictable it was.
+- A critical part of our relationship with Laos involves addressing the legacy of war.
+- There is no question that our security and prosperity will be increasingly tied to the Asia Pacific. If America doesn't set the rules of the road for trade in this region, other nations will.
+- In addition to deep divisions on issues such as trade, climate change, Middle East peace and nuclear weapons, Trump's attacks on leaders such as Trudeau and Merkel and disrespect for NATO and other institutions are prompting a reassessment by allied governments and publics.
+- I had the Secret Service actually patrolling my block at some point. I didn't sign up for that. I went to work to write speeches for Barack Obama!
+- There's this constant narrative of anxieties: Is the U.S. in decline? Is China rising? People forget... no other country is trying to play the role we play. They're not signing up to be responsible for security in the Middle East, responsible for the global economy, responsible for enforcing international norms.
+- There are a very limited number of people in senior roles at the White House, and time is their most precious asset.
+- U.S. leadership has been rooted not just in our own belief in American exceptionalism but in the faith of others around the world. By so wantonly discarding that principle, the Trump Administration has done incredible harm to the families they have separated through the state-sponsored child abuse that has been carried out in our name.
+- If we're going to play a role in shaping a future that is more secure, more prosperous, and more connected, we need to make sure that young people have the tools they need to succeed.
+- President Obama has made the Asia Pacific region a focus of his foreign policy, and Vietnam - a large, growing economy in the heart of Southeast Asia - is critical to those efforts.
+- We have enormous interests in the Asia Pacific. In addition to our economy, we need to secure our allies, protect our environment, promote peace and stability, ensure the free-flow of commerce, and stand up for human rights.
+- The Catholic Church played an integral role in supporting the opening between the U.S. and Cuban governments.
+- Jose Marti, known as 'the Apostle of Cuban Independence,' was an influential poet, journalist, and political theorist who became a symbol for the Cuban people's bid for independence. The concepts of freedom, liberty, and self-determination feature prominently in his work.
+- President Obama started in public life not as an elected official but as a community organizer. He worked with churches and other groups on the south side of Chicago to push public leaders to fight poverty, improve the local school system and make housing more affordable, and to bring about the change the community needed and deserved.
+- No matter what people may think about American foreign policy, there is broad and overwhelming interest in engaging with the United States on issues related to entrepreneurship. People associate this promise with America, and that's an extraordinary asset for our country.
+- When it comes to Israel's security, our military and intelligence cooperation, that's off limits. That's protected. That's sacrosanct.
+- The fact of the matter is the West Wing never gets fully renovated because nobody wants to vacate it. And so you have basically patch-up jobs that are being done, but it's a tight and cramped environment.
+- The U.S.-Israel relationship is so important.
+- The Benghazi attack was one of the more confusing, chaotic days that we had at work because you had these multiple violent protests taking place in the Middle East.
+- All over the world, independent and strong civil society - NGOs, faith leaders, and other community advocates - help governments solve problems and better serve their people better by shining a light on the issues that matter most - like education standards, access to healthcare, the rule of law, and economic opportunity.
+- The only place in the world where, I think, leaders have preferred Trump are in Riyadh, in Saudi Arabia and Israel.
+- Any country must establish control over its borders. That is essential to sovereignty and the security of our citizens. But America, at our best, has balanced that political, legal, and social objective with an appreciation for the benefits of immigration and a sense of respect for the dignity of all human beings.
+- One of the things you learn in government is there's a long tail to American decision-making when it comes to foreign policy. Moving the embassy to Jerusalem, pulling out of the Iran deal, pulling out of Paris, not speaking up for democratic values - the world doesn't end the next day.
+- 'Make America great again,' is not that different from Putin's nostalgia for the Soviet Union or tsarist Russia.
+- Americans will forever be proud of the brave men and women of our armed forces who served in World War II, and we will never forget those who paid the last full measure of devotion for our country. Their service protected our freedom and changed the course of history around the world.
+- Where civil society is welcomed, communities are more safe, more secure, and more prosperous.
+- I profoundly do not believe that the United States could make things better in Syria by being there. And we have an evidentiary record of what happens when we're there - nearly a decade in Iraq.
+- What's interesting about the foreign policy establishment critique is, you know, I think the Blob and I have more in common in some ways than people might think, but also, what I was saying can be misread.
+- America's trade policy has an enormous impact on the economic well-being of the American people and the strategic interests of the United States.
+- I think one of the critiques of me is that I thought I knew it all. But I was learning from the enormous resources available within the U.S. government who have a very different view of the world than many of the people commenting on foreign policy from outside of the government.
+- By heralding President Xi Jinping's accession to permanent leadership, soliciting Vladimir Putin's reentry into the Group of Seven, and declaring that Kim Jong Un is 'beloved by his people,' Trump legitimizes the very behavior that U.S. presidents opposed for decades.
+- All these newspapers used to have foreign bureaus. Now they don't. They call us to explain to them what's happening in Moscow and Cairo. Most of the outlets are reporting on world events from Washington.
+- As people who know me know, probably to a fault, I am usually not without thoughts and words.
+- We are proud of the role our military plays in Japan: defending our allies, ensuring regional peace and stability, and responding to humanitarian catastrophes.
+- The TPP will be good for the American economy, the Vietnamese economy, and the labor and environmental standards that make life better for our people.
+- Laos is the ghost of American military interventions past.
+- For many Americans, 'Vietnam' is a word associated with war and the extraordinarily complex history between our countries. But since normalization began, the U.S. and Vietnam have steadily built bonds of partnership, demonstrating that we can recognize history without being imprisoned by it.
+- Baseball is a great example of the cultural ties between the United States and Cuba and a powerful reminder of the shared experience between people that transcends our difficult history.
+- The complete lack of governance in huge swaths of the Middle East - that is the project of the American establishment.
+- We want to open up more opportunities for U.S. businesses and travelers to engage with Cuba, and we want the Cuban government to open up more opportunities for its people to benefit from that engagement.
+- Since taking office, President Obama has pursued a policy that focused more American resources and engagement in the Asia-Pacific, a region that will increasingly define opportunity and security in the 21st century.
+- Increased remittances to Cuba from the United States has helped Cuban families.
+- Mandela was a guy who didn't come in and just eviscerate the existing institutions. He sought to co-opt them. He brought white South Africans into his government.

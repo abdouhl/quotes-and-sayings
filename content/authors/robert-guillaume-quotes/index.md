@@ -1,0 +1,11 @@
++++
+author = "Robert Guillaume"
+title = "Robert Guillaume Quotes"
+quotes_len = "5"
+description = "the best 5 Robert Guillaume Quotes"
++++
+- Racism may be as systemic as it always was. It is the great problem of America. It's the one stumbling block that I don't believe was ever smoothed over.
+- I've certainly experienced racism, but it has not made a great impact on me. I have always thought, as I got older and older, I was more in charge of who I was. What someone thought about me or said about me made less of an impression on me at very vulnerable times.
+- I'm never a person who likes anything I've done. It's just the way it is. Twenty years later, I can look at something I did, and I'm still thinking, 'You know, that could have been better if you had done it this way or that way.
+- My acting ability would have sent me back to the post office. It was my singing that got me jobs. Ironically, now, people think of me as an actor and don't know me much as a singer.
+- I'm not trying to say that it never hurt or that I never felt its sting, but I can honestly say that I never blamed anybody for racism. I have considered it more of a manifestation of humanity's problem rather than my personal problem.

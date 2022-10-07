@@ -1,0 +1,21 @@
++++
+author = "Beth Broderick"
+title = "Beth Broderick Quotes"
+quotes_len = "15"
+description = "the best 15 Beth Broderick Quotes"
++++
+- This one fellow I met at the gym. I went out to dinner with him and he said, 'I've been watching you for a year and I never thought you'd go out with me!' Then he fainted at the dinner table. I didn't know what the hell to make of that.
+- Nobody wants to sit where I'm sitting and say, 'Hey, this is the reality. I did two movies, six guest-star spots and I starred in a one-woman show, and I'm not making any money. I'm on TV every day in every country in the world, and I don't make any money.'
+- There's a danger in Hollywood of becoming self-obsessed.
+- I cannot imagine a worse job than being president of these Untied States in these most trying of times. President Barack Obama has been under siege from every side for the entirety of his time in office.
+- Bill Clinton was relentless, eloquent and truly charming.
+- The average actor might only be able to book six to eight guest star jobs a year - that would be high. So when you start doing the math, you can't live on that in Los Angeles.
+- I used to do theater in L.A., but it got to the point where everything was really showcase-y.
+- I like having my autonomy; I like going into the vegetable aisle with little fanfare. Very few go into that star category, in that uber above-the-title category. The rest of us, day in and day out, we're there to support what they do.
+- I think it's very important to support the program in your area, as each part of the country has its own challenges coping with AIDS. It can be very different from state to state and city to city. Wherever you live, there is surely someone who could use your help.
+- There's a lot more to being a woman than being 18 years old on the cover of Maxim magazine.
+- I'm a light comedienne; that's really where I live the most often.
+- Examining other people's motivations, other people's language and other people's way of interacting is much more fascinating to me than spending a lot of time worrying about my own. I've said, 'What other people think of me is none of my business.'
+- I was a total nerd growing up. I'd rather sit home and read a novel on New Year's Eve and say, 'Wow, I read the whole thing in one night!' That was my idea of a big time.
+- There was a time when I was enamored of the Clintons. I knocked on doors, phone-banked and rallied during his campaign.
+- I love voting day. I love the sight of my fellow citizens lining up to make their voices heard.

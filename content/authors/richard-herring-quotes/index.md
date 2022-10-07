@@ -1,0 +1,106 @@
++++
+author = "Richard Herring"
+title = "Richard Herring Quotes"
+quotes_len = "100"
+description = "the best 100 Richard Herring Quotes"
++++
+- On one podcast, I attempt to antagonise and lose listeners by commentating on myself playing snooker against myself in my basement. Most people are baffled, confused, even angry about it.
+- I have never been a massive fan of music.
+- I certainly don't get any pleasure from watching someone else dancing. That's weird. Why would anyone pay money to watch an adult dance? Just moving around in a rhythmical fashion. It's the worst medium for artistic expression.
+- People tend to be surprised when they realise I'm only 5ft 6in. Now I tell them on my website. I think you have to point out your own deficiencies if you're emphasising everyone else's for a living.
+- It's easy to pass judgement on someone else's racism, but what about your own?
+- The funniest book I've ever had read to me is 'I, Partridge.' It's a brilliantly written book, but it's the greatest audiobook there has ever been.
+- Personally, I find it very hard to absent myself from any situation, due to overwhelming self-consciousness. There's always a voice in my head passing comment and making sure nothing can be enjoyed for what it is.
+- As I remember it, we pitched 'Fist of Fun' as a sort of adult version of the kids' show 'Why Don't You?' We wanted to overload it with information, really pile it on.
+- I've run a marathon - I think that's the most surprising thing about me.
+- I had a very happy upbringing; I love funny people and love to make them laugh.
+- I have been making podcasts for over five years. It started as a bit of fun.
+- I'm investigating where our boundaries lie by sometimes overstepping those boundaries.
+- Sometimes my jokes are meant to be tasteless.
+- Whoever said having children makes a comedian safer and less dark is an idiot. Having a baby has filled my whole life with fear, and totally destroyed all illusion that the world is safe or fair.
+- I love the vibe of Italy, drinking coffee and wine, and eating pasta and pizza there.
+- I watched the whole of 'How I Met Your Mother.' I wanted to see how they could stretch it out for so long and if it was any good, but it just seems like a sitcom from the 90s.
+- I wonder if Shakespeare ever had to write a play in 10 days while suffering from jet-lag? Probably. It would explain why his comedies are so crap.
+- All the religions are right when they say that all the other religions are wrong.
+- I'm not interested in telling people what to think. I'm interested in making people think.
+- Comedy is a downward slicing sword sometimes, looking down and laughing at people.
+- Nobody at school would have expected me to be involved in anything that might have been perceived as cool. I was trying to make people laugh all the time, but my dad was the headmaster and I was quite swotty.
+- I had always been troubled by the liberal paradox of wanting everyone to be treated the same, while at the same time respecting their cultural differences.
+- My dad is a retired headmaster and my mum is an ex-teacher. I was taught by both of them.
+- I love pulling faces at little kids on the London tube to see if I can make them laugh, and I usually do.
+- I can't be the only one who watches 'Footloose' and hopes that John Lithgow will stop Kevin Bacon ever dancing again.
+- The parents in 'You Can Choose Your Friends' were very much Mum and Dad but my brother wasn't like my brother, and he got quite annoyed because he thought I was saying that was what he was like.
+- Comedians have this happy, charmed life, where they're the centre of their own universe and can do what they want, but when you have kids you get a perspective on how unimportant you are in this world.
+- There are a lot of great disabled comedians.
+- It's a weird thing, having a double act - I think Stew puts more energy into his solo stuff than I do, and tries to establish his independence more.
+- I was in awe of my older brother, but he was also quite a threatening figure - he used to beat me up.
+- Writing is one per cent inspiration and 99 per cent prevarication.
+- I love Pompeii. I first went when I was 18.
+- Watching Billy Connolly at the Hammersmith Apollo in the late 90s was a masterclass of long-form comedy.
+- I did WeightWatchers for a while with my then girlfriend. It worked a bit, but it's all about losing weight rather than fat, which isn't always helpful.
+- I love it when people try to manufacture an injustice out of a position of clear superiority.
+- My Less Than Secret Life' by Jonathan Ames was a revelation, as shocking as it is funny.
+- If I was happy for eternity I don't think I could enjoy it.
+- I really like 'Community.' I like the way they're allowed to have a week when they go crazy and use stop-frame animation or a different pastiche. There's an episode with a fake clip show.
+- Sometimes with relationships where you work in the same job, it becomes all about the job.
+- There aren't many opportunities to be a comedian on TV anymore, it's a lot of panel shows. You don't get much stand-up.
+- I am increasingly excited about the artistic possibilities of the Internet.
+- What I question about the afterlife is how many people just accept it and don't question it, because I think living for an eternity would be much worse than dying.
+- I like any European city where you can sit outside, have a beer and watch the world go by.
+- Personally I find that deadlines are the best inspiration.
+- I've said on one of my shows that I'd like to marry the character Amy Pond, not the actress who plays her.
+- I'd loved 'Monty Python' and 'The Young Ones,' so making something like that for our own generation would have been amazing.
+- When I was a kid I mainly listened to comedy albums.
+- I was into Simon & Garfunkel before my friends got into punk and laughed at me for liking Paul Simon.
+- Happiness is alluring but ungraspable, which is perhaps its ultimate appeal. Who'd really want to have it all the time?
+- When everyone was listening to pop music I was listening to Monty Python records.
+- You can joke about anything. It just depends on your angle and the way you go about it.
+- Like many nerdy youngsters I spent much of my childhood listening to Monty Python records, learning them verbatim, fittingly parroting them.
+- I like churches and Catholic symbolism, and although the art at the Vatican is overwhelming to see, I appreciated it even as an atheist.
+- Laughter is this amazing and healing thing.
+- I often go for ages without getting my hair cut, so every now and then I'll look like a tramp and have to go to a hairdresser.
+- I love ruins and museums but, if I've been working hard, I enjoy a beach holiday.
+- By the time I got to uni sketch comedy was much more fashionable than stand-up.
+- If you are a stand-up you can hone your material over successive performances, based on the audience response. Changing a single word or altering the pace or emphasis can make a previously failed witticism work.
+- Coming from a comprehensive school in Somerset, entertainment didn't seem like something that was open to you.
+- You realise that, with 'Rick and Morty,' each episode is so deep and dense it is extraordinary. It slightly annoys me that it's so good; it's almost unbeatable as a TV show.
+- We have nothing to fear but fear itself - and monsters.
+- There are comedic rules and formulae and, while these tenets should be respected, especially by a newcomer, perversely you can still succeed by openly contradicting them. Because comedy is about breaking the rules. Even its own rules. Though, as with many disciplines, it is wise to master the basics before you attempt to subvert them.
+- Some comedians make a marvellous living doing material that is completely predictable, that reminds people of things that they already know or jokes that they are already familiar with.
+- I've long been obsessed with the fantastical and sometimes unbelievable story of the life and death of Rasputin.
+- I sleep pretty well - seven or eight hours a night.
+- I've got the whole of 'Seinfeld' on DVD and I keep on watching the first four series and then stopping.
+- For me genius is '1% inspiration and 99% procrastination.'
+- I don't like people doing jokes about disabled people for no good reason, but I can still understand why they do them.
+- The truth is that we are all a bit gay.
+- I am nearly 5ft 7in, which is short for a guy. I have the upper body of a taller man, but my legs are only 28.5in.
+- I like leaving things to the last possible minute, then letting blind panic be my stimulus.
+- The show that first massively impacted on me was 'Tiswas,' with people like Lenny Henry, Chris Tarrant, John Gorman and the Phantom Flan Flinger. I loved that kind of surrealist, anarchic humour.
+- I was surprised that 'The Peter Serafinowicz Show' didn't get a second series. There are things like that that get stifled at birth and you wonder why they didn't happen.
+- There are funny things that come from disability.
+- My parents felt old-fashioned, growing up - they were quite disciplinarian. We went to church and had to learn music, but in hindsight it was a good thing.
+- Comedy thrives on immediacy and I got fed up waiting months to find out if a radio sketch show was being commissioned.
+- The gay community has a strength and identity that has been lost by dispossessed, guilt-ridden, straight men.
+- I've always liked science fiction as a way of commenting on ourselves and it's wrong that it is seen as less valid than other art forms.
+- I like running.
+- In the unlikely event that I make it into heaven, I won't be able to enjoy everlasting bliss because part of the pleasure of happiness is its transience.
+- If something's true you should be able discuss it or ask whether it's true. It helps me as a comedian. But it doesn't necessarily help my personal life.
+- There is a rhythm to a good joke, a certain pacing.
+- You have to be quite aware that if you are really looking for something funny it is probably not going to happen.
+- I was religious probably until I was about eight but I always questioned stuff very early on.
+- The Internet is a very exciting way of doing material that's uncensored, and doesn't have to go through TV committees, and people aren't telling you what you can and can't do.
+- In my 20s and 30s, I vociferously wanted to be single. I rarely got into long-term relationships and enjoyed going out with different people.
+- I have got a lovely life. The people who like me come and see me and I make a nice living. Being on TV isn't so important. You have got to be able to do what you want to do.
+- I went to a homoeopath once, but she just told me that I was allergic to everything that I liked.
+- As a comedian you have to remind yourself that it happens; every now and again you can just have a bad gig where things go beyond your control.
+- Rick And Morty' is the most consistently brilliant, densely plotted and enjoyable television show I have ever seen. It's childish, yet super-clever, without ever being clever-clever.
+- My granddad was very funny and I really loved making people laugh. I used to do puppet shows and I really liked seeing people's reactions.
+- It is rare for a joke to emerge fully formed and it is worth grafting away until it is absolutely right. Though perversely too much work, too much thought, can destroy a gag completely.
+- It's rare that you discover something by accident that resonates with your sense of humour.
+- I went to the career adviser when I was 16, and tried to explain that I wanted to be a comedian or a writer. That was not on the list.
+- I am reasonably nice-looking and have quite an expressive face, which is good for comedy.
+- I was just obsessed with Rik Mayall and I copied being him at school for years.
+- Most jokes are based on surprise. They take advantage of a confusion of language, or a twist in logic, or a contradiction of some perceived truth, or sometimes just saying something so shocking and offensive that the audience will gasp and then (hopefully) guffaw.
+- I have a lack of practical skills. I can't mend anything or do anything manly; I don't understand how anything works.
+- I would like to be strapped to a giant rocket and fired into the heart of the sun.
+- Tim Minchin and Daniel Kitson are the two people that when I see them, I think I could never be that funny or that clever.

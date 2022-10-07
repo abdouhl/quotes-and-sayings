@@ -1,0 +1,33 @@
++++
+author = "Frank B. Kellogg"
+title = "Frank B. Kellogg Quotes"
+quotes_len = "27"
+description = "the best 27 Frank B. Kellogg Quotes"
++++
+- Have we so soon forgotten those four years of terrible carnage, the greatest war of all time; forgotten the millions of men who gave their lives, who made the supreme sacrifice and who today, beneath the soil of France and Belgium, sleep the eternal sleep?
+- I believe that in the end the abolition of war, the maintenance of world peace, the adjustment of international questions by pacific means will come through the force of public opinion, which controls nations and peoples.
+- There is no short and easy road, no magic cure for those ills which have afflicted mankind from the dawn of history.
+- There will always be disputes between nations which, at times, will inflame the public and threaten conflicts, but the main thing is to educate the people of the world to be ever mindful that there are better means of settling such disputes than by war.
+- There are but few naval powers, but there are many land powers.
+- If we will maintain our hope and confidence in the genius of our people, they will work out this problem, and their ability and industry will bring us back to normal conditions.
+- The fact that so many of your people are today residents and citizens of the United States, lending their influence to our civic and economic life, which has meant so much to our development.
+- I share the opinion of those of broader vision, who see in the signs of the time hope of humanity for peace.
+- I do not hesitate to say that the limitation on naval craft between the great naval powers was too high.
+- I further value this gift as it gave me an opportunity to accept this distinguished honor in a country so devoted to this cause and whose history marks a wonderful chapter in world development.
+- It is by such means as the prize offered by your Committee that the attention of the world will be focused and that men and women will be inspired to greater efforts in the interest of peace.
+- Competition in armament, both land and naval, is not only a terrible burden upon the people, but I believe it to be one of the greatest menaces to the peace of the world.
+- It is idle to say that nations can struggle to outdo each other in building armaments and never use them. History demonstrates the contrary, and we have but to go back to the last war to see the appalling effect of nations competing in great armaments.
+- Certain it is that a great responsibility rests upon the statesmen of all nations, not only to fulfill the promises for reduction in armaments, but to maintain the confidence of the people of the world in the hope of an enduring peace.
+- It is not to be expected that human nature will change in a day.
+- Each one of these treaties is a step for the maintenance of peace, an additional guarantee against war. It is through such machinery that the disputes between nations will be settled and war prevented.
+- I know of no more important subject to the peace of Europe and the world than the reasonable reduction of armaments, especially in Europe, and of naval armaments throughout the world.
+- These measures may not constitute an absolute guarantee of peace, but, in my opinion, they constitute the greatest preventive measures ever adopted by nations.
+- I have often heard it said that the United States is isolated and is not interested in European affairs. I assure you that this is not the case.
+- France and Italy have not yet signed this treaty or agreed to naval limitation as between those nations, but I have confidence that in time they will do so.
+- To be sure, in some instances these proceedings have been unconstitutional, but we must remember that it is not the first time since a war that there have been changes in governments by such methods.
+- Public opinion shapes our destinies and guides the progress of human affairs.
+- I know that military alliances and armament have been the reliance for peace for centuries, but they do not produce peace; and when war comes, as it inevitably does under such conditions, these armaments and alliances but intensify and broaden the conflict.
+- Adequate defense has been the catchword of every militarist for centuries.
+- It is true not all has been accomplished that the earnest advocates would desire, but a start has been made.
+- There has not been a war in South America for fifty years, and I have every confidence that the countries of Central and South America are deeply in earnest in the maintenance of peace.
+- I know of no greater work for humanity than in the cause of peace, which can only be achieved by the earnest efforts of nations and peoples.

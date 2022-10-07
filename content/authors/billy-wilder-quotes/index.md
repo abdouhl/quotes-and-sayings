@@ -1,0 +1,34 @@
++++
+author = "Billy Wilder"
+title = "Billy Wilder Quotes"
+quotes_len = "28"
+description = "the best 28 Billy Wilder Quotes"
++++
+- An audience is never wrong. An individual member of it may be an imbecile, but a thousand imbeciles together in the dark - that is critical genius.
+- Now, what is it which makes a scene interesting? If you see a man coming through a doorway, it means nothing. If you see him coming through a window - that is at once interesting.
+- He has Van Gogh's ear for music.
+- The Austrians are brilliant people. They made the world believe that Hitler was a German and Beethoven an Austrian.
+- If you're going to tell people the truth, be funny or they'll kill you.
+- Hollywood didn't kill Marilyn Monroe, it's the Marilyn Monroes who are killing Hollywood.
+- I would rather sleep in a bathroom than in another hotel.
+- They've tried to manufacture other Marilyn Monroes and they will undoubtedly keep trying. But it won't work. She was an original.
+- One's too many, and a hundred's not enough.
+- We are on the track of something absolutely mediocre.
+- What critics call dirty in our pictures, they call lusty in foreign films.
+- Hindsight is always twenty-twenty.
+- You have to have a dream so you can get up in the morning.
+- The best director is the one you don't see.
+- Happiness is working with Jack Lemmon.
+- I've met a lot of hardboiled eggs in my time, but you're twenty minutes.
+- I have ten commandments. The first nine are, thou shalt not bore. The tenth is, thou shalt have right of final cut.
+- It was hell at the time, but after it was over, it was wonderful.
+- If there's anything I hate more than not being taken seriously, it's being taken too seriously.
+- A director must be a policeman, a midwife, a psychoanalyst, a sycophant and a bastard.
+- Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
+- I'd worship the ground you walked on if only you walked in a better neighborhood.
+- Don't be too clever for an audience. Make it obvious. Make the subtleties obvious also.
+- My Aunt Minnie would always be punctual and never hold up production, but who would pay to see my Aunt Minnie?
+- France is a place where the money falls apart in your hands but you can't tear the toilet paper.
+- Shoot a few scenes out of focus. I want to win the foreign film award.
+- France is the country where the money falls apart and you can't tear the toilet paper.
+- An actor entering through the door, you've got nothing. But if he enters through the window, you've got a situation.

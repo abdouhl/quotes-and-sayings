@@ -1,0 +1,20 @@
++++
+author = "Rupert Sanders"
+title = "Rupert Sanders Quotes"
+quotes_len = "14"
+description = "the best 14 Rupert Sanders Quotes"
++++
+- We just did the best we could with quite a limited budget, to be honest, and had a lot of success.
+- To me, casting is all about finding a character within the actor off the screen as much as on the screen.
+- So when it was my turn to start developing projects, I knew the writers I wanted to work with, and I had met every head of studio, every executive and a lot of producers. I started finding things, little crumbs off other people's tables that I would make my own.
+- I think that 'Halo' is a hard property because they don't need to make a film. They make far more money out of the games so why risk?
+- Trying to ground everything in reality was the most important thing to me.
+- I went to America with a very specific idea of what I wanted to do.
+- I read every screenplay that was being sent to the other directors. None were being sent to me, but I was reading what others were choosing and what the best writers were writing.
+- I think you can get away with being a bit more political in science fiction.
+- I grew up with a lot of fairy tales. And they had an essence of darkness to them.
+- I think it's possible to make a blockbuster that is actually emotional. They don't need to be mutually exclusive.
+- Our story is a 'once upon a time', but it's not a 'happy ever after'.
+- I'm influenced by a lot of filmmakers; I like English filmmakers because I feel a kin to them.
+- Well, I wasn't just kind of standing in a queue at McDonald's and someone sat down and said, 'You're the director of a $100 million Hollywood movie.' I've been working in commercials for ten years.
+- I mean, you know, sometimes, yeah, you wish for something and you don't get quite what you wish for. But you get something bigger and better.

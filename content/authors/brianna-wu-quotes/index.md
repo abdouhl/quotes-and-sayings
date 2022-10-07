@@ -1,0 +1,106 @@
++++
+author = "Brianna Wu"
+title = "Brianna Wu Quotes"
+quotes_len = "100"
+description = "the best 100 Brianna Wu Quotes"
++++
+- The video game industry traditionally has been a very male-dominated field. You know, with the advent of the iPhone, the number of women gamers exploded.
+- Gamergate gave birth to a new kind of celebrity troll, men who made money and built their careers by destroying women's reputations.
+- I still quite enjoy watching Fox News because I think it makes me think through my arguments and make sure I'm on the right side.
+- I think what a lot of women in the game industry saw with Gamergate is they saw if they came forward, help was not going to come.
+- The public will forgive you almost anything if you're honest about it.
+- In politics, I am facing a lot of structural sexism.
+- If you're fortunate enough not to know, Gamergate is the misogynist hate group of the video game world.
+- Gamergate was the proto-alt right.
+- I've spent a career working in tech as a software engineer. And I believe regulated markets are the best way to build and deliver innovative products.
+- Even when the nation's leaders acknowledge tech issues, details are lacking.
+- In software engineering, we have the term 'technical debt.' When you don't do a job correctly, unaddressed problems become harder and harder to solve.
+- The first game I remember being ridiculously passionate about was Super Mario Bros. 2. It was the first game where you could play as Princess Peach. It wasn't just a game where the boys had their adventure. Peach was in the game and she was so powerful there.
+- Crises like the Mirai botnet can't be prevented by vague calls to protect our cybernetworks or platitudes about working with private industry. We need to be able to force recalls on consumer devices with massive security vulnerabilities.
+- The main thing Twitter needs to focus on are implementing its rules more uniformly. If outing a transgender woman is against Twitter's rules, that needs to be implemented every time.
+- I say this as an engineer: We are profoundly bad at asking ourselves how the things we build could be misused.
+- It's not like I'm advocating that we ban 'Call of Duty' or anything silly like that, I'm asking is for companies to look at their hiring practices, to hire more women... and make sure they portray women in their games in a socially responsible way.
+- To stand up to GamerGate, that's my choice. I can't make that choice for the women I work with.
+- If you run a website where people can congregate, you have a moral responsibility to make sure that community is not harassed.
+- In some ways, the real damage of Gamergate is pushing the public's idea of sexism so far to the extreme, that changes in the professional sphere seem unimportant.
+- With major films costing hundreds of millions of dollars to make, Hollywood is an industry that tends to repeat patterns when they make money.
+- For most of 2016 and 2017, I would say probably 90% of my Twitter feed was automated bots sending repetitive messages at me. Someone would basically pay bots to send me messages over and over and over again. It made Twitter nearly unusable.
+- I don't want to be a hardware engineer. That seems like a terrible job.
+- Before I ran for office, I ran a game studio.
+- For any prosecutor, a decision to show leniency in sentencing must be weighed against multiple factors. Do they show remorse for their actions? Are they a threat to the public and law enforcement? Do they intend to contribute to society?
+- I grew up listening to Rush Limbaugh and Sean Hannity, and it took me getting out into the real world and understanding what I faced as a woman in my career to really open up my eyes.
+- Facebook, Apple, Tinder, Snapchat, and Google create our social realities - how we make friends, how we get jobs, and how mankind interacts. And the truth is, women don't truly have a seat at the table.
+- To its credit, Twitter is at least making an effort to curb hate speech towards transgender people, training its staff how to respond.
+- We need to introduce civil liability for companies that ship products with reckless security vulnerabilities.
+- I have an unfortunate history with Ethan Ralph. Like many women in the game industry, I've been doxed by him multiple times.
+- Anyone can go to 8chan, a website entirely for Gamergaters. You can read what they post about me and other women. It's not just casual sexism, it's angry, violent sexism.
+- I think Gamergate is just a symptom of a disease: a $90 billion global industry that was built by men for men.
+- The truth is, the game industry is a really incredibly difficult place for women to work.
+- Even in the '80s and '90s, many white Southerners were still bitter about court decisions that required racial integration of the schools. It wasn't that they were outwardly opposed to white and black people attending school together, it was that the rulings threatened their proud identity as independent Southerners.
+- It doesn't matter how many women we get into game production. If the only people evaluating the work we do continue to be men, women's voices will never be heard.
+- The truth is, you cannot run a political campaign like a tech startup. Technology is a field that fetishizes disruption. The old ways are suspect, and we place an almost irrational trust on new tools. That's fine for developing games, but it was a failing playbook for politics.
+- The Internet has done so much for so many. It allows women and minorities to have access to education, training, and information that sometimes isn't available to them for whatever reason.
+- There's a common misconception about running for office. People think it's dreadful, morally compromising work. But I've found the opposite is true. It made a better person and a better feminist. It forced me to take a hard look at my shortcomings.
+- Without competition, Silicon Valley will stop taking risks and will stop innovating.
+- A lot of people don't know this about me but actually I started in politics.
+- Sometimes I speak out on women in tech issues.
+- I am a programmer. If I write code, I don't evaluate the results by what I hope the code will be. I evaluate it by what happens when I compile it. I evaluate it by results.
+- We need to invest in telecommunication infrastructure with redundancies to combat denial of service attacks.
+- What's the fundamental problem that VR solves better than anything? To me it's straightforward. It's story. VR tells stories better than any medium.
+- In 1999, I was running my first tech start-up and learning the Unreal Engine, the tool that would define my career as a game developer, when news of Columbine ground all work to a standstill.
+- I love video games dearly.
+- My dad is in Mississippi. He exited the Navy and made a ton of money as an entrepreneur.
+- It's see no evil, hear no evil with toxic male gamers - whose every whim and adolescent fantasy has been catered to for decades.
+- There are some men that are very threatened by the fact that women play games nowadays.
+- Obviously, whenever the government is getting involved with speech, it gives me a lot of pause. I have a background as a journalist, so that's something that I take very seriously.
+- There's a common personality type to software developers - one I certainly fall into. We're more comfortable staring at a screen than staring into someone's eyes. Engineers can be brilliant in the workplace, and something less-than-brilliant everywhere else.
+- Entrepreneurship is in my nature.
+- Growing up as a queer child in Mississippi, I got my Nintendo in 1985, and I've been lost in this world ever since. When I was scared because my church said people like me were going to burn in hell, 'Final Fantasy,' 'Dragon Warrior' and 'Super Mario' offered a lifeboat.
+- For a hate group originally focused on video games, anger over a comedy movie for starring women might seem ridiculous. But at its core, Gamergate is about a toxic male sense of ownership over geek culture.
+- I think there is a war on women in technology.
+- Prosecuting Gamergate is not about justice for me or the women of Giant Spacekat. It's about introducing consequences into the equation for men that treat harassing women like a game.
+- Gamergate is a criminal operation to harass women.
+- GamerGate has had an almost indescribable toll on my family.
+- My capacity to feel fear has worn out, as if it's a muscle that can do no more.
+- The tech industry has a strong bias towards technical solutions to social problems.
+- Gamergate should have been a time of reckoning for the gaming community, which had long been rife with sexism and misogyny. It wasn't.
+- The Democratic Party tends to have this hypereducated ruling-class mentality, and we need to realize that's not making us connect with a lot of voters.
+- Walking is great, I guess.
+- Gamergate taught me that I was stronger than I knew that I was.
+- The BBC called me 'defiant' in a caption. I plan to frame and put it on my wall.
+- I've rarely talked about Obama's share of the blame for the rise of the alt-right and Gamergate.
+- Ordinarily, I develop videogames with female characters that aren't girlfriends, bimbos and sidekicks.
+- For me, especially running for office, being on Twitter is a fundamental part of my job.
+- Competition in the American tech sector is being gobbled up by the largest players, and it's threatening our entire industry.
+- My mom bought a computer in the '80s to do accounting, and she was so smart at computers that we spent all our time with them. My childhood was sitting on the floor of her office and figuring out how to program with my mom.
+- I look at my own party, and I see that we've taken this technocratic, academic, elitist liberal class philosophy as far as it can go, and we got our butts kicked - and I don't know what else to do other than get involved myself.
+- Gamergate is ostensibly about journalistic ethics. Supporters say they want to address conflicts of interest between the people that make games and the people that support them. In reality, Gamergate is a group of gamers that are willing to destroy the women who have invaded their clubhouse.
+- My big lesson from Gamergate is asking the men in charge to do the right thing does not work. So we need women, we need people of color in positions of power not just in the game industry but at social media and tech companies and in Congress.
+- I work in the tech industry and my husband works in biotech. He's head of IP for a company listed on the NASDAQ. And we have a lot of discussions in tech and biotech about the role of unionization in our industries.
+- Unfortunately, I have the equivalent of 7 PhDs in harassment on Twitter. As one of the primary targets of Gamergate, I've had hundreds and hundreds of threats to my life on Twitter's platform.
+- Something that's hard for me, I remember being a child in the '80s and looking at this field. It was a field I wanted very much to go into, but I didn't see people who looked like me working in video games. You can't really be it if you can't see it.
+- Gamergate has grown into a hate group that threatens the stability of the $60 billion a year game industry.
+- Let's not glamorize abuse.
+- I am the head of development at Giant Spacekat, a Boston-based studio that's an industry leader in making games for women. We are passionate about creating narrative games for the avalanche of new consumers who don't fit the old gamer stereotype.
+- I was adopted into an extremely right-wing religious family.
+- I am a software engineer, a popular public speaker, and an expert in the Unreal engine.
+- There's a real sense - that we have to get past on the left - that every person who voted for Trump is evil.
+- The main lesson I took from Gamergate is that asking the status quo to do the right thing doesn't work.
+- In stopping Gamergate, the men who dominate it - not just women - must address the culture that created Gamergate.
+- The real question is whether or not the communities that rule the Internet can make their spaces safer for users, especially women and minorities.
+- I'm a reasonably accomplished journalist. I've worked as an investigative journalist, I've done crime beat stuff.
+- It is not a secret that I am a feminist and I have more liberal views and a lot of these GamerGaters have more right-wing views.
+- I love people that kind of have those life experiences that take them different places.
+- Software increasingly defines the world around us.
+- When I was a teenager, the most valuable American companies were in finance and manufacturing.
+- I don't regret standing up to Gamergate at all.
+- Since Gamergate, many women I know are reluctant to speak publicly on gender issues, because they fear - rightly - that they will be targeted and harassed.
+- Most members of Gamergate, the alt-right movement best known for harassing women in the game industry, operate under a veil of anonymity.
+- Any reasonable person can look at video games and see that we don't represent women well.
+- Justice for all does not apply when women use the Internet.
+- With my company, Giant Spacekat, I was very angry about the lack of games that portrayed women positively in the video game industry, so I launched my own studio, gave a lot of very talented women jobs, and we made some of the most awesome, empowering games in the business.
+- The cost of speaking out is so high for women, I understand why most decide not to.
+- It's sad when 'Grand Theft Auto' has more consequences for criminal behavior than real life.
+- The truth is, the sexist behaviour that really holds women in games back doesn't come from the moustache-twirling cartoon villains of Gamergate. It's the sexist hiring practices of our journalistic institutions. It's the consistently over-sexualised designs we see.
+- Gamergate isn't the problem - it's a symptom of an industry that is deeply sexist and unable to understand it.
+- If you don't know what Gamergate is, my God, do I envy you.

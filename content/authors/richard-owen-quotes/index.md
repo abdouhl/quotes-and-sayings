@@ -1,0 +1,16 @@
++++
+author = "Richard Owen"
+title = "Richard Owen Quotes"
+quotes_len = "10"
+description = "the best 10 Richard Owen Quotes"
++++
+- Cuvier had preceded Lamarck in specifying the kinds and degrees of variation, which his own observations and critical judgment of the reports of others led him to admit.
+- Manifold subsequent experience has led to a truer appreciation and a more moderate estimate of the importance of the dependence of one living being upon another.
+- But, as we have before been led to remark, most of Mr. Darwin's statements elude, by their vagueness and incompleteness, the test of Natural History facts.
+- The relationship between a Russian and a bottle of vodka is almost mystical.
+- Mr. Darwin contributes some striking and ingenious instances of the way in which the principle partially affects the chain, or rather network of life, even to the total obliteration of certain meshes.
+- No naturalist has devoted more painstaking attention to the structure of the barnacles than Mr. Darwin.
+- Every step in the progress of this study has tended to obliterate the technical barriers by which logicians have sought to separate the inquiries relating to the several parts of man's nature.
+- Mr. Darwin refers to the multitude of the individual of every species, which, from one cause or another, perish either before, or soon after attaining maturity.
+- The powers, aspirations, and mission of man are such as to raise the study of his origin and nature, inevitably and by the very necessity of the case, from the mere physiological to the psychological stage of scientific operations.
+- That the variability of an organism to a certain extent is a constant and certain condition of life we admit, otherwise there would be no distinguishable individuals of a species.

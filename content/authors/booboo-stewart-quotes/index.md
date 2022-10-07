@@ -1,0 +1,18 @@
++++
+author = "Booboo Stewart"
+title = "Booboo Stewart Quotes"
+quotes_len = "12"
+description = "the best 12 Booboo Stewart Quotes"
++++
+- 'A Bug's Life' is a really funny movie and the characters have such different personalities. The movie is happy and then gets really sad and I'm like, W'hoa, I'm feeling this way and this movie is about bugs!'
+- I usually travel with a lot of people, like my dad, mom and sisters.
+- I love 'Goodfellas' because it's a great movie - it's funny and there is action at perfect points. I just think Martin Scorsese makes everyone look really cool.
+- If I can raise attention to a cause, I will.
+- I've done a lot of training in martial arts. I started out in warring tempo, I did sports jujitsu, and I've also practiced extreme martial arts.
+- Pet stores just sell their animals.
+- My real name is Nils and Booboo is a childhood nickname. It's not two words or two capital B's, it's B-o-o-b-o-o.
+- If you guys are interested in getting any kind of animal, definitely go and adopt.
+- When a dog is really comfortable, they give off a certain scent and you can smell it on their paws.
+- Obviously, I've been on sets before but nothing as big as 'Twilight.' You forget sometimes that you're on set of one of the biggest movies ever- so when you just sit back and think about it its just so incredible. It's such a great learning experience.
+- My mom was a professional fitness competitor, so I go into the gym with her. I train with my dad and mother. It's embarrassing, because she's really strong.
+- If someone really loves you, they'll do the right thing... for you.

@@ -1,0 +1,26 @@
++++
+author = "Boutros Boutros-Ghali"
+title = "Boutros Boutros-Ghali Quotes"
+quotes_len = "20"
+description = "the best 20 Boutros Boutros-Ghali Quotes"
++++
+- The real problem was not the troops; the real problem was that only the United States had the infrastructure to do the transport of troops with big planes, and then who will pay?
+- For President Clinton, according to this discussion I had with him, Rwanda was a marginal problem.
+- I used to say I never talk about my successor, neither about my predecessor.
+- The change began in Somalia, where we discovered that we were involved in an operation where there was no peace, so there was no more a peacekeeping operation because there was no peace.
+- For us, genocide was the gas chamber - what happened in Germany. We were not able to realize that with the machete you can create a genocide.
+- The problem is when you are writing something in retrospective, it needs a lot of courage not to change, or you will forget a certain reality, and you will just take in consideration your view today.
+- We got involved in the Rwanda peace process for the simple reason that there was a decision which was taken by the Security Council, because the troops were in Uganda, and we decided to have a military presence.
+- When you have an accident, they will save their own people, and those who have worked with you or with the NGOs are left. Unfortunately, this happens always. It is not an excuse at all.
+- Rwanda was considered a second-class operation; because it was a small country, we had been able to maintain a kind of status quo. They were negotiating, they'd accepted the new peace project, so we were under the impression that everything would be solved easily.
+- The failure of the United Nations - My failure is maybe, in retrospective, that I was not enough aggressive with the members of the Security Council.
+- A genocide in Africa has not received the same attention that genocide in Europe or genocide in Turkey or genocide in other part of the world. There is still this kind of basic discrimination against the African people and the African problems.
+- But definitely, when a decision is taken, or when you are trying to oppose a decision, you are in a weaker position than the member states, because they know more about the situation than you. We gave information, but they never gave us any information.
+- In Yugoslavia, I'd asked for additional forces too. I even went to meet the French prime minister, and I proposed additional forces... Nobody wanted to send troops.
+- So this is why I'm always say happy that somebody mentions Rwanda, because behind Rwanda, we have Africa.
+- We were not realizing that, with just a machete, you can do a genocide.
+- But I believe that the DPKO at this time was very much involved with American administration and was acting, taking on consideration the demand or the recommendation of the American administration. American administration was very powerful.
+- The fact that you had disruptions in the peace process was not only in Rwanda. We had the same problem in Cambodia, we had the same problem in Mozambique, we had the same problem in Salvador.
+- But at the beginning, our definition of the genocide was what happened to Armenia in 1917 or 1919, it's happened to the Jew in Europe, and we were not realizing - In our point of view, they have not the tools to do a genocide.
+- There is a greater fatigue concerning the African problem today than five or 10 years ago. The situation now in Africa is worse today than it was 10 years ago.
+- It was a mistake. I was wrong, but I discovered this many years later. I was acting on the basis of this mandate given me by the most important leaders of the world: President Bush's father, prime minister of France, President Mitterand, the Chinese, everybody.

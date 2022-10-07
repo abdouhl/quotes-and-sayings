@@ -1,0 +1,48 @@
++++
+author = "Robert Mapplethorpe"
+title = "Robert Mapplethorpe Quotes"
+quotes_len = "42"
+description = "the best 42 Robert Mapplethorpe Quotes"
++++
+- My father wants me to be like my brother, but I can't be.
+- With photography, you zero in; you put a lot of energy into short moments, and then you go on to the next thing.
+- I just try to live my life and do my thing.
+- I see things like they've never been seen before. Art is an accurate statement of the time in which it is made.
+- I'm not a photojournalist.
+- I'm not photographing anything naked these days. I haven't been concentrating on bodies recently.
+- My lifestyle is bizarre, but the only thing you need to know is where the darkroom is.
+- I'm looking for the unexpected. I'm looking for things I've never seen before.
+- I played around with the flowers and the lighting, so that was a good way to educate myself.
+- I am obsessed with beauty. I want everything to be perfect, and of course it isn't. And that's a tough place to be because you're never satisfied.
+- This AIDS stuff is pretty scary. I hope I don't get it.
+- I became the toast of London. A lot of people I met came from these really decadent families where the married men were gay and no one thought anything about it.
+- I don't think any collector knows his true motivation.
+- I just hope I can live long enough to see the fame.
+- Beauty and the devil are the same thing.
+- I just want to be written about as a normal artist.
+- I am selfish, but that's an attribute that all artists possess.
+- My theory about creativity is that the more money one has, the more creative one can be.
+- To make pictures big is to make them more powerful.
+- People don't have time to wait for somebody to paint their portraits anymore. The money is in photography.
+- I went into photography because it seemed like the perfect vehicle for commenting on the madness of today's existence.
+- I don't believe in dogmas and theologies. I just believe in being a good person.
+- When I work, and in my art, I hold hands with God.
+- I should try to get some sleep as one doesn't know what tomorrow may bring.
+- I can't have just anybody assisting me, I need somebody who I can really communicate with.
+- The photographs that are art have to be separated from the rest - then preserved.
+- The more pictures you see, the better you are as a photographer.
+- Happiness? No, it's not there for me.
+- Sell the public flowers... things that they can hang on their walls without being uptight.
+- I recorded that because it happened to me. I wasn't making a point.
+- One must ease the public into it - that's an art in itself.
+- I've never lied. I think I've lived a moral life.
+- I don't know why my pictures come out looking so good. I just don't get it.
+- You're never going to get anywhere in life if you don't live up to your obligations.
+- If I have to change my lifestyle, I don't want to live.
+- Whenever you make love to someone, there should be three people involved - you, the other person, and the devil.
+- I always thought I was good. That's why it was so frustrating when other people didn't agree.
+- Just because I was out at the bars all the time didn't mean I wasn't looking for someone to love.
+- I wish I could be elegant.
+- I would never have done what I'd done if I'd considered my father as somebody I wanted to please.
+- If I am at a party, I want to be at the party. Too many photographers use the camera to avoid participating in things. They become professional observers.
+- When I have sex with someone I forget who I am. For a minute I even forget I'm human. It's the same thing when I'm behind a camera. I forget I exist.

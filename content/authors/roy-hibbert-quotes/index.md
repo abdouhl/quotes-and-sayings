@@ -1,0 +1,68 @@
++++
+author = "Roy Hibbert"
+title = "Roy Hibbert Quotes"
+quotes_len = "62"
+description = "the best 62 Roy Hibbert Quotes"
++++
+- I'm more of the lone wolf.
+- LeBron and Durant hang out all the time; fans are loyal and they get a little upset when they hear those things, but they need to realize that both are pushing each other really hard to be better.
+- You can't just fast-forward to Game 7 of the Eastern Conference finals. You have to go out there and earn it.
+- Anybody who probably lives alone and they have three or four cars, that's probably somebody that's spending a lot of money that they don't need to.
+- Basketball comes first to me but I also pride myself on being an approachable person online and offline, talking to people when I walk through the mall and stuff like that.
+- I actually reached out to my agent about appearing on 'The Good Wife.' The main character of the show went to Georgetown and that's where I played my college ball so there's a small connection.
+- When you're down 35, it's kinda hard to really show excitement on the bench.
+- I had some rainy days, I didn't handle those rainy days. I walked out without an umbrella sometimes. I'm going to be more mentally prepared for my downs, because there are going to be ups and downs.
+- I'm an only child and grew up in a bad neighborhood. My parents weren't well-off, but they would save up to get me video games. Games were something I did because I couldn't really go outside where bad things were going on.
+- I'm not the fastest guy.
+- I watch 'Parks and Rec.' It's set in a fictitious city in Indiana.
+- Yeah I guess I don't want to end up being one of those stories where the guy ends up spending more than he has and owes money to the IRS and stuff like that. I just want to be able to take care of my family and live modestly.
+- If you ask any referee before the game - they ask me if I have anything to say, I tell them 'I'm going straight up.' Every time. Every game. And they know that and they say I'm one of the best at it.
+- I feel a lot stronger when I back people down.
+- I've got to come out and be aggressive. I've got to be a different Roy Hibbert than I've been.
+- I was letting the lack of touches on offense really affect my defense.
+- I am deeply indebted to Georgetown University and the basketball program for all they have done for me.
+- If I see someone with a gamer tag saying they're fans of the Bulls or the Heat I will trash-talk them and make it known I don't like them, but I don't let them know who I am. If I do, I have to change my gamer tag pretty fast.
+- I try to do a good job of contesting shots and blocking shots and altering shots, but I've got to do a better job of doing more.
+- I expect to play at an All-Star defensive level, and everything else will come.
+- I don't know how I look when I'm on the court to tell you the truth, I'm just focused.
+- I was a black kid in an all-white school, so I had to deal with some of that stress and pressure.
+- When you talk about such a tremendous player like LeBron, just trying to stop him one-on-one, you can't do it.
+- I make sure I keep everything tight, checking on my bills. Going to restaurants, I make sure if I have a coupon, I use it. I try to live like I'm a normal person.
+- My favorite guy is Ben Schwartz. We've become really good friends.
+- Indiana wanted to go in a different direction, wanted to go younger, and the Lakers wanted me, so I said, who wouldn't want to be in L.A? That was a no-brainer.
+- I'm not going to make every shot. I'm not going to get every block. I can't let one play affect me the next two or three times down the court.
+- Would I like to have a red velvet cupcake with cream cheese frosting? Yeah, I would.
+- All I got to say is I've got to put myself mentally and physically in a position where I can play at a high level and help my team win and that's what I plan on doing.
+- The Pacers were pretty up front in saying I have to go in a different direction.
+- Every once in a while you have to go out and treat your family and friends and stuff like that. Once every two months, I'd say, is when you do that. When you do it every weekend it gets a little excessive and the people around you start feeling like you have to do that every time you go out.
+- Winning's not easy. Sometimes, you just have to go and take it.
+- Being a big guy, I've got to shore up the paint a lot more. It's my job.
+- I'm good friends with Tim Duncan.
+- I wanted to play for a coach who actually played in the league if I had my own choice.
+- I feel like I haven't done the best in environments that aren't conducive to me doing well, and I have to do that. Because times are going to get tough, and I'm going to have to let things slide off my back.
+- I said to myself, 'What show could I be on that makes sense?' And with 'Parks and Rec' being in Pawnee, like a fictitious city in Indiana, I said 'that really makes sense.'
+- As long as I'm moving up and down the court pretty good, I'm happy.
+- I like Sonic and all those types of games, and Sega Genesis.
+- Not a majority of the offense is run for me to post. I'm fine with that, but I want to play better on the offensive end.
+- I've been called Hasheem Thabeet more times than I can remember going through an airport.
+- I'm gonna come in and keep doing what I do in practice, work on my hook and get in position down low. Hopefully when I'm called upon I can do it consistently.
+- I can only control what I can control. I can't control plays called for me.
+- Well, I had always been a fan of 'The Office' and thought the mockumentary style of the show was hilarious. So with 'Parks' taking the same approach, it drew me in right away.
+- People said I wouldn't be in the NBA. People said I wouldn't be a starting center, this, that and the other. I just prove people wrong.
+- I always wanted to be an NBA player, and despite what anybody said, I was going to get to that point.
+- I think I'm going to be taking some voice lessons because I'd like to do a voice in a video game. Something like 'Call of Duty.'
+- First year in the league, I tried to block everything. And I'd foul out. I averaged the most fouls per minute.
+- I'm not gonna lie. I used to be in AOL chat rooms a lot causing trouble back when you had dial-up modems.
+- My fiancee and myself watch this show called 'The Good Wife.'
+- I don't usually like to talk about this type of stuff, but I have a huge TV. I bought it just for 'Call of Duty.'
+- I want to be Defensive Player of the Year.
+- I always said in my mind I wanted to be an All-Star and show four-year guys in the NBA can be good players as opposed to just one-and-done guys. If I left after my freshman year, I wouldn't have gotten drafted, I probably couldn't deal with D-League and travel on the bus.
+- I regret that I never learned how to play on the perimeter.
+- I have a whole room fully dedicated to playing games. Special chair on the ground with the speakers in it. The whole thing.
+- I think I'm the best at protecting the paint and guarding my man.
+- One thing I realized, I was making too many excuses and not taking responsibility for how I was playing.
+- Like I said, I enjoyed my time there in Indy. You just have gotta move on, get ready for the next chapter.
+- I root for good, clean basketball.
+- I don't mind being the older guy that has to sacrifice and be the defensive anchor.
+- I just need to be a good teammate if I don't get looks.
+- So if I'm on the court or on the bench, I'm just going to support my teammates, no matter what.

@@ -1,0 +1,22 @@
++++
+author = "Braun Strowman"
+title = "Braun Strowman Quotes"
+quotes_len = "16"
+description = "the best 16 Braun Strowman Quotes"
++++
+- I'm going to give you everything I've got, I'm going to put my body on the line, and I'm going to entertain you. Plain and simple.
+- Behind the scenes, I'm friends with everyone at work, but without a doubt, my best friend is Bray Wyatt. The man pretty much brought me into the industry when they tagged me up with The Wyatt Family; it was my seventh match I'd ever had. I didn't know the difference between a headlock and a beetle throw.
+- I've shouted this from the rooftops, and I'll say it again: There's not another man on this Earth who is my size who can do what I do.
+- If you love me, you love me, and if you hate me, you hate me, but you're going to get me.
+- I'm the monster, and I'm the only man capable of putting Brock Lesnar down for good!
+- I'm Braun Strowman. You can't put me in a category with anyone. I'm my own entity - there's nobody else like me - so I'm going to continue going out there to be Braun. I'm no good guy or bad guy, I'm Braun.
+- If I can get an opportunity where no one will interfere and keep stepping on my toes, it's just a matter of time.
+- I didn't want to go to college, I didn't want to play football anymore, and I kind of just goofed off for about a year and a half.
+- It doesn't matter who you love or who you want to cheer for; at the end of the match, you are on your feet, you are going crazy, you have lost your voice, and we did our job.
+- I like working as a bad guy, and I don't plan on changing the way that I work if they want me to be a good guy.
+- Everything is so fresh in WWE, it's hard to take it all in sometimes. I get moments when I'm riding the road late at night, and I get to reflect on my thoughts a little bit.
+- I don't plan on slowing down. I'm going to keep steamrolling through everybody.
+- I can't really pick a favorite match.I enjoy every opportunity the WWE gives me to wreak havoc on other human beings. I've done a lot of different stipulation matches, and there are still a few I haven't done, but nothing I look forward to.
+- When I graduated high school, I was 6-5 and 305. I think I swallowed a magic bean pill.
+- I am a firm fan of shutting naysayers up; I've done it my whole life. People have doubted my abilities through different phases, and time after time, I've made them put their feet in their mouth.
+- Roman Reigns is, if not the best, one of the best performers in the world, hands down.

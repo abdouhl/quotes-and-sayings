@@ -1,0 +1,19 @@
++++
+author = "Francine Rivers"
+title = "Francine Rivers Quotes"
+quotes_len = "13"
+description = "the best 13 Francine Rivers Quotes"
++++
+- My job is to allow the character to live and breathe - and become as real to the reader as he or she is to me.
+- The goal is to have every character take on a life of his or her own. Sometimes characters will come into the story that I haven't planned.
+- Well, I always wanted to write from the time I was very little, and my mother encouraged me. She wrote a journal from the time she was 15 up until about the age of 76.
+- I actually worked in the general market for many years writing steamy historical romance, and I had more freedom in the Christian market than I ever did in the general market to write about any issue that I needed to write about.
+- I want to see Christian fiction speak to the hard and real issues that tear people's lives apart.
+- That is one of the reasons I write: to feel the Presence of God and know He is speaking to me in a very personal way, instructing me, correcting me, redirecting me.
+- My favorite book is 'Redeeming Love.' It was my first as a born-again Christian, my statement of faith, and the most exciting year I've spent writing anything.
+- I start work by spending time in personal Bible study. Because my projects center on a question in my own faith walk, I find Bible study essential. And God gives me scriptures daily that speak to the question with which I'm struggling.
+- When we love like Jesus does, lives change for the better.
+- Like everyone else, there are days when I don't want to go to work. However, writing is a job like anything else.
+- I became a Christian late, in my late 30s, so I had a lot of things that I was bringing into my Christian life that I regret. And I had a lot of questions about faith, so that's where I start when I write.
+- I'll often dream about characters before I start writing their stories.
+- I had been raised in the church, but I wasn't a Christian. I had a lot of head knowledge but no heart knowledge.

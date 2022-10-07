@@ -1,0 +1,47 @@
++++
+author = "Riley Keough"
+title = "Riley Keough Quotes"
+quotes_len = "41"
+description = "the best 41 Riley Keough Quotes"
++++
+- I'm in New York a lot. And every time I'm in New York, I'm out every night - it's a bit much. After a week, I'm ready to go home.
+- People are judgmental about sex, but everyone has their own moral code. So unless you are hurting people, who are we to say what's right?
+- In major studio scripts, the girls are very similar. They're all witty and hot. I'm more of an oddball.
+- It's weird, I grew up in California, and I've only surfed, like, once.
+- Music is my favorite thing in the world. I grew up completely around it and I think it's one of the most important things to me, but at this point I can't see myself doing that professionally. Luckily, for the most part, I don't feel pressured.
+- My bare minimum for going out is lipstick and curled eyelashes.
+- I feel like the original 'Mad Max' created such a vivid world, that to go back and re-imagine it and kind of replay in that sandbox sounds like fun to me.
+- I started driving really late. It was super freeing and fun to be able to just drive by myself. But the thing is, I don't really like driving.
+- I think it's a really admirable thing to be very sure of your own moral code and not waver from that.
+- I'm not shy. I'm quiet. With my close friends. I talk a lot. But if I'm at a big dinner, I'm not gonna walk in and go introduce myself to everybody.
+- Eventually, I want to move to Hawaii and chill forever.
+- I think acting is a fun thing because you get to have so many lifetimes in one lifetime, being all these different people.
+- I think it's ridiculous when a character wakes up in the morning with lipstick and foundation and contour and fake eyelashes and hair done.
+- I was one of those kids who thought I could be the president of England when I grew up if I wanted to. Then I started acting and realized life is hard, and people are mean. And there's no president of England, and I'm not British.
+- I cannot and will not play something if I still have questions. I feel like I am being fraudulent.
+- What I had heard about TV is that it's very rigid - that you have to hit your mark, look a certain way, do certain things, that there is no freedom artistically - and that's my worst nightmare. I don't work well in rigid environments.
+- I do think we need heroes. It gives people hope and an example to follow.
+- If I'm filming, and I have a day off, I'll just sit at home, read, take baths, chill out, and not go anywhere.
+- I definitely don't have a problem doing sex scenes, but I tend to like to do things that initially make me feel a bit nervous. I don't think you can really grow at any job unless you do things that freak you out.
+- You play to different parts of yourself when you take on various roles. Like, you are your confident self when you're playing this person, and you're your sad self when playing another person - but it's all a part of you somewhere.
+- I don't know why modeling worked for me, because I'm short. But I liked it because it let me buy my own furniture.
+- I was always interested in having my own money - not my family's money. I don't think it had anything to do with me being Elvis's granddaughter. None of my drive was, 'I need to get away from my family legacy!'
+- When it comes to performance, I don't like to prepare at all if I don't have to.
+- There have been so many times when I'm sitting next to someone, and I have no idea who they are. I'm not very up to date on pop culture, and I'm sure I've offended people by being like, 'Oh, what do you do?'
+- A lot of the time, unfortunately for women, there's not a lot of complex roles. I don't mean complex like tortured or whatever. I mean complex like there's more going on with them than, 'I'm a mom.'
+- I'm kind of shy and quiet. But I'm only shy in my personal life. If I'm working, somehow I'm not and it goes away.
+- I'm not snobby about my movies; I just love all films.
+- It's kind of my biggest fear: thinking I know somebody I'm going to be, and then I don't. It's probably only happened to me once or twice, but that was enough for me to definitely not do a role unless I 100% can be that person.
+- Life changes so quickly. feeling grateful to be around such wonderful people to strengthen and grow with.
+- Sometimes I'll make face masks at home, and it's fun. I love that. I've been doing it since I was a teenager.
+- I don't remember the last time I drove. I'd rather be a passenger unless I'm somewhere beautiful.
+- Everyone enjoys music and film. It just makes people happy or makes them feel things. We're not saving peoples' lives, but if we are entertaining them, that's as much as I can contribute in this life.
+- I don't spend money on the lavish life, but I spend on excessive green juices.
+- I'm constantly lying to my dog. He only responds to manipulation and blackmail.
+- I think I should have been an aesthetician, honestly.
+- I've maybe gotten broken up with one time, and I like to think that's because I'm a very good girlfriend.
+- People are afraid to show women with demons. But I think it's important for women to see flawed female characters. We're held to a perfect standard, but every woman is flawed.
+- Honestly, my idea of a fun night out is something like being in the middle of America in a pickup truck with a few friends.
+- I got lucky with 'The Girlfriend Experience' in the sense that it was one season and was meant to be that way. When I signed on, they told me that every season is going to be a different girl. I was like, 'Sweet. If I hate it, then I'm out.'
+- I still want to direct. That's my main love, and that comes from being obsessed with subtleties and people.
+- It's hard when you play something that people are like, 'Wow that's really cool - you just did something really epic,' because you're not always going to be playing epic characters in a role.

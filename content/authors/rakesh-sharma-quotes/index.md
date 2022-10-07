@@ -1,0 +1,27 @@
++++
+author = "Rakesh Sharma"
+title = "Rakesh Sharma Quotes"
+quotes_len = "21"
+description = "the best 21 Rakesh Sharma Quotes"
++++
+- I was the 128th human in space. So I didn't really sweat about it.
+- If I were part of Gaganyaan, I could have been sure that for the next few years, there would have been a second space mission and a third space mission.
+- If you end up doing what you are passionate about, the journey is so easy.
+- Space exploration has taken a tremendous technological leap. India as a developing nation has been recognized globally for how it has economized its missions, which have been comparatively low-cost compared with other countries.
+- Priorities have to be allocated by the government because they have a complete picture of the country's requirements. If priority is allocated to a manned space programme, I'm confident we can swing it. But it's going to be tremendously expensive - the infrastructure and so on.
+- The earth appears fragile and defenceless in the harsh environment of space and when one sees the amount of technology required to keep a human alive in that environment, one begins to feel blessed that one is an inhabitant of planet earth that supports human life.
+- There is one person who sends me three cards every year. One on New Year's, one for my birthday and the third that marks the anniversary of my flight into space.
+- So much had already been done in space before that, it had all been documented and there were no real surprises in store for us.
+- Yes, we have ruined the Earth and have done an exceptionally good job of it. Yes, we should look at sustainable development. But we cannot afford to do things sequentially, but parallelly and make sure that we do not repeat our mistakes.
+- Exploration of closer planets will continue. Only after he exhausts all the resources here on earth will man go further ahead, which is when interplanetary travel may take place.
+- I saw my country first. Because, whoever gets up into space from whichever nationality, the first thing they do is they look out for their country. That is what I did. The Indian peninsula with the ocean on all three sides. And it was a beautiful sight.
+- I hope we don't export conflict from this planet into the others. None of the paradigms that define us here on earth - the borders, the parochialism, the divide, should mar our presence in space.
+- The more people are exposed to science, the more we will move away from superstition.
+- Anyone who goes to space tried to look at his own country first, but soon it appears that there is no boundary between the countries and the entire world is one family where our destinies are integrated.
+- With space exploration picking up, low-cost access to space will be required and I believe that Isro will be the go-to agency that would provide value for this kind of activity.
+- There is hardly a facet of an Indian citizen that has not been touched by ISRO's technology.
+- Theoretically, there are planets with an environment that can support life. As yet there is no evidence that there indeed is life on other planets. It's only a matter of time before we get to know.
+- Stars appear as pin-points of light. They don't twinkle there as they do when we see them from earth because the atmospheric blanket is not there.
+- In my opinion, future space exploration will require us to inhabit the moon, initially, and later Mars. This is a humongous task for any one nation to carry out.
+- Watching sunrise and sunset from space, which is a beautiful sight, has been a personal privilege I have attained while being there. Another reflection from within I felt was that there was nothing which was neither visible and nor with a supportive environment as to how Planet Earth is.
+- I had pretty much done it all before I went into space. So when the opportunity came, I went along. It was that simple.

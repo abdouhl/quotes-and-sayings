@@ -1,0 +1,32 @@
++++
+author = "Richard M. Devos"
+title = "Richard M. Devos Quotes"
+quotes_len = "26"
+description = "the best 26 Richard M. Devos Quotes"
++++
+- Life... It tends to respond to our outlook, to shape itself to meet our expectations.
+- Jay and I used to talk about this: we never had a goal of making a lot of money. We had a goal of having a business of our own. And there were many times we could have sold out and had a lot of money. Billions. We just put it in our pocket and go home, OK? But that was never our goal.
+- If a negative atmosphere pervades where you live or work, go elsewhere. Seek out friends, business associates, and mentors with positive attitudes who share your goals and best interests.
+- People who achieve the highest levels of success - whether in business or in raising families or simply in discovering fulfillment and satisfaction and purpose in life - are those who place their focus on other people rather than themselves.
+- I learned that you appreciate what you earn much more than what is given you. I also learned that decisions have consequences.
+- Few things in the world are more powerful than a positive push. A smile. A world of optimism and hope. A 'you can do it' when things are tough.
+- I've learned that positive thinking and encouragement are essential for leadership and progress.
+- I give God the glory for the people I've worked with who have helped me along the way.
+- I can't dismiss my roots as a kid growing up during the Great Depression in the ordinary midwestern town of Grand Rapids, Michigan. From the standpoint of money and material possessions, we were barely scraping by.
+- My parents instilled a strong work ethic early on in my life.
+- I've by and large been a positive person ever since I can remember.
+- I believe we are more a product of our homes than of any other single influence.
+- If you have a dream, give it a chance to happen.
+- Delivering the 'Grand Rapids Press' taught me responsibility, accountability, and all the principles of the rewards of hard work.
+- Saying 'I'm wrong' is meaningless unless it comes from our heart, not just our lips. That often requires a genuine and profound change within ourselves, because we need to realize it's simply human nature and that everyone makes mistakes.
+- Money cannot buy peace of mind. It cannot heal ruptured relationships, or build meaning into a life that has none.
+- If I had some idea of a finish line, don't you think I would have crossed it years ago?
+- A positive atmosphere nurtures a positive attitude, which is required to take positive action.
+- Every society needs people who can encourage and stimulate and cheer. They are the ones who make the world run. You can be one of them!
+- If the auto plants in Detroit would just sit around the table and say, 'What do we gotta do to make this thing work?' Instead of, 'I want this and I want that,' they might make it.
+- It is fun to be Rich DeVos. It's great fun.
+- It is impossible to win the race unless you venture to run, impossible to win the victory unless you dare to battle.
+- A positive impact stems from our admission that we were wrong or our thinking was wrong. 'I'm wrong' are two little words that can help improve our own positive attitude.
+- I still refer to myself as a 'cheerleader' because I keep encouraging others to have confidence and to use their talents to follow their dreams. It's been one of the most important reasons for my success and my helping others succeed.
+- A positive attitude is a choice, like walking to the other side of a street to avoid trouble or making a 180-degree turn when you feel you're heading in the wrong direction.
+- The easiest thing to find on God's green earth is someone to tell you all the things you cannot do.

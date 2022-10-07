@@ -1,0 +1,31 @@
++++
+author = "Ruth B"
+title = "Ruth B Quotes"
+quotes_len = "25"
+description = "the best 25 Ruth B Quotes"
++++
+- I'm super excited to have people hear little stories about my life, the lives of my friends, people I know.
+- I had a nice talk with my parents and told them I was going to give singing a go. I will go back to studying, but I'd love to get a degree in writing.
+- I was a political science student.
+- At first it was kind of hard, because I had become used to just my phone screen in front of me. But sharing your songs with an audience is incredible.
+- I feel like in every situation in life, I just always end up singing, like, anywhere.
+- I thought it was a prank. There is no way six different major labels trying to reach out to me. But it was actually happening.
+- I felt like that was my calling. I just didn't know how I was going to get my voice out of Edmonton, but I definitely knew that music was what I was going to do with my life.
+- I think 'Lost Boy' is more of a metaphor for oneself. When I listen to that song, I don't picture someone else. I kind of wrote it from a very honest place.
+- When I got my first email from a record label, I decided I didn't want to go in with just one song, so I sat down and kept on writing.
+- What I wanted to make sure of is that I wasn't just tagged as a Viner.
+- I'm not afraid to have my heart broken and go out and meet people.
+- I think as a writer, as an artist, I've grown a lot.
+- I came up with, 'I am a lost boy from Neverland, usually hanging out with Peter Pan' and recorded that simple line on my phone. I watched it back and thought it was kinda cheesy, and I was actually going to delete it. But I thought 'Whatever, it's catchy.'
+- I went down to my keyboard and was playing random chords, and the one line I kept repeating was, 'I'm a lost boy from Neverland.' I decided to post it to Vine, and it got the biggest reaction I'd ever gotten. People wanted to hear more, and I had to explain it wasn't a song.
+- I think 'Lost Boy' is just really relatable. You can be any age from any place in life, and you're bound to feel lonely at some point.
+- I love J. K. Rowling. If I could meet any person, I would meet her.
+- I think music has always been what I always wanted to do, but I didn't know how or when I was going to get discovered.
+- Everyone's been lonely at some point and in need of a friend.
+- I was never chasing to make a career out of it, but every day after school, I'd go to my keyboard and play for four hours and make up songs. It was a constant part of my life.
+- Peter Pan is kind of this metaphor for someone or something that makes you feel at home, that brings you out of loneliness, that makes you free. And that's exactly what music does for me.
+- I just really post what I'm feeling, especially when it comes to Vine and music. For a long time, I just kind of posted six-second original thoughts, and people really gravitated towards that.
+- Even to be flown out to New York was mind boggling for me, and signing with Columbia was great because they really understood my vision. Of all the labels that I met, they were the ones that really seemed to understand that I was really about the music, the writing, and the lyrics, so it was really fulfilling to sign with them.
+- Music has been my greatest passion forever.
+- Before 'Lost Boy,' I was singing, doing six-second covers on Vine, working part-time and in school, but music was always my true love.
+- My brother and I do trivia quizzes all the time.

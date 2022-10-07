@@ -1,0 +1,33 @@
++++
+author = "Busta Rhymes"
+title = "Busta Rhymes Quotes"
+quotes_len = "27"
+description = "the best 27 Busta Rhymes Quotes"
++++
+- I want you to see that I'm looking. Look at me look at you. I'm cool with that.
+- I will be so glad to take the picture and pose and look good for the picture. But when you catch me while I'm looking real sideways and the picture's ugly as hell, I don't want you to have the picture like that!
+- It's been three years since I last performed here so I'm dying to tear the roof off Wembley Arena with some old school joints and brand new bangers. When I'm done, you're gonna remember it for a long time to come.
+- You could put me on any track. I support that one million percent. Whatever the track is, I'm going to smash it. Believe that.
+- Brooklyn is where I primarily developed. I had an opportunity to make records and perform in clubs here and there, and I started networking with the right people in the right places.
+- I'm a fan of making films. Whether I'm on stage or in front of a camera, one of my first loves is performing for the people. I'd like to do more acting.
+- Whether it's working on five or 10 different things at the same time, I've got to stay in people's faces.
+- I have a song called 'Decisions' that features Jamie Foxx, Mary J. Blige, John Legend and Common. It's about people who have made a decision to really stand by you as friends.
+- You're gonna get your traditional Busta Rhymes and Pharrell collabo. My man Focus from the Aftermath crew; Dr. Dre; the late, great J Dilla got work on the album. It's gonna be great - look forward to the new bang-out.
+- I started growing my hair in December '89. I was seventeen. I signed my record deal and said I ain't combing my hair no more. I don't have too.
+- I wanted to make something that reminded people of the way albums used to feel. I wanted something as good as the stuff put out by the Bomb Squad, or Dr. Dre and his production crew, or 'A Tribe Called Quest.' I miss albums like those.
+- With every song I have a person in mind who, in a perfect world, would perform with me. Usually I end up not getting that person, and I'm forced to settle for someone else.
+- My making it is a combination of grinding, grinding, grinding and being lucky enough to finally get a shot.
+- I have no trouble being a good dude because that's what I am.
+- It's almost not safe to be an artist, the way everybody is randomly picking people to feud with.
+- I'm trying to set up opportunities for myself so that I don't only have one outlet to go through and rely upon as far as a support system financially, emotionally and mentally.
+- I called the album 'The Chemo' because it seems like the industry and music overall is dying slowly.
+- My thinking is that if we're going to take from a culture, let's take from a culture that has exemplified success for thousands of years.
+- I feel like I introduce another level of my creative ability on every album.
+- I feel like the quality of privacy and respect of people's personal space has been completely disintegrated. You can ask to take the picture. I will be so glad to take the picture and pose and look good for the picture.
+- The personal threat is something that's always been a part of our lives.
+- At the end of the day, man, you can't protect yourself from a haymaker that's coming in toward your face if you don't see it coming.
+- I appreciate the additional additives and preservatives that help sell a project, but I'm sticking to what works best for me. I gotta sell the album live on stage and make people believe in the songs.
+- For me the best thing about winning an award is when the people cheer for your win. When you can see that the people are really happy that you are winning something, that's the most reward thing in the world.
+- New York is traditional New York, you know what I'm saying? It's the stomping ground of the hustlers and go-getters.
+- I really only respect the Arab culture. I ain't really trying to pay no attention to, ya know, these little people in political positions and executive positions that ain't Arab culture oriented people because a lot of the times, what are you really showing all of this concern for?
+- Hip-hop reflects the truth, and the problem is that hip-hop exposes a lot of the negative truth that society tries to conceal. It's a platform where we could offer information, but it's also an escape.

@@ -1,0 +1,106 @@
++++
+author = "Bobcat Goldthwait"
+title = "Bobcat Goldthwait Quotes"
+quotes_len = "100"
+description = "the best 100 Bobcat Goldthwait Quotes"
++++
+- Listen, you ignorant hillbillies, Lynyrd Skynyrd's dead. They're dead, they're dead, they're dead. The South's not risin' again. The slaves have been emancipated.
+- In genre movies, you usually not only hate the characters, you sometimes hate them so much that you hate the actors playing them.
+- Michael Moore got booed at the Oscars, so how liberal is Hollywood? Honestly, it's not liberal enough for me!
+- If you raise a cool adult, that's an achievement.
+- I like to go to the movies and watch characters who make me question how I see the world.
+- In the rock n' roll world, I'm someone who's responsible and levelheaded.
+- To make the films I want, I just have to live within my means and scale down my lifestyle - and be with somebody who's cool with that.
+- Every time I go to a march or a rally, and I post it on Instagram, people will go, 'I'm going to unfollow you!' And I'm like, 'I used to play arenas. I've lost a lot of fans. I'm fine with that. I've had people unfollowing me for years. You're way behind the times.'
+- I didn't feel ever that people needed to know who I was.
+- Whenever people hear that Kurt Cobain was a fan of my standup, it's like hearing Jimi Hendrix loved Buddy Hackett or something.
+- I have an aversion to comedy where everybody speaks in punchlines.
+- I'm kind of a dummy. I make movies and not realize until afterwards, 'Oh, I'm the protagonist.'
+- I really like 'Disaster Artist.'
+- I had a standup act, and I ended up turning it into something that was really watered down and accessible. Something that went from scary and threatening to something that was almost to the point of being corny.
+- The environment on the sets of the movies I make, it's usually all friends and people that know each other, because no one's getting rich or making money, so it's always about, hopefully, that everyone's on the same page.
+- I was really big in the '80s.
+- I don't find movies shocking.
+- I actually really like being in the woods.
+- I never was obsessed with comedians. When I was a little, little boy, I'd watch, like, George Carlin on 'Dinah Shore.'
+- I'm not really trying to reach a big mass of an audience. My movies are done for a tiny, tiny budget, and that affords me to make them more personal.
+- Occasionally I'll have a slip, and I might watch 'RuPaul's Drag Race' or something. But for the most part, I am out on the reality shows.
+- When Will.I.Am punched Perez Hilton, I immediately purchased a bunch of their music.
+- People go, 'Oh, Trump must be good for comedy,' and I go, 'Ehhh.'
+- I've always been battling this perception people have of me, this character. It follows me around. 'Bubba the Bear' shows up when I'm checking into a hotel, when I'm on a plane. I can't get upset with people if they're only aware of a small part of my body of work. But inside I do.
+- I'd still like to work with Woody Allen.
+- The first time I was on Letterman, I was, like, 20 years old, and I was on a show called 'Camping with Barry White Night.'
+- I like genre films.
+- I just write the stuff that comes out of me, and then after that, I try to get it made. But I don't think, 'Will I get the money?' and 'Who's this made for?'
+- People seem to think that I'm not aware of how people perceive me. But I'm the one that has to talk about 'Police Academy' all day long 27 years later. I'm totally aware of it.
+- I don't read or watch anything that has to do with Lindsay Lohan.
+- I'm a redneck.
+- I try not to stick to any one thing, you know. That's always been important to me.
+- I had fame and wealth and things that are supposed to make you happy, but I wasn't happy, because there's no importance on having a fulfilling life. So in my mid-40s, that was my pursuit - making films that interested me, films that I would like to go see.
+- I like stand-up. I've done it since I was a teenager, so it's kind of my first job and first kind of creative way to express myself.
+- When I first started directing, I could have chosen a more lucrative path, with sitcoms and things like that. But I knew enough after the experiences I had in front of the camera that I was not going to do that, because I was just going to work on my own things or work with people I respected.
+- I really like and admire Michael Moore.
+- I'm the Emily Dickinson of screenplays.
+- My approach to making movies is different than other people, because I just write a lot of screenplays. I'm constantly writing screenplays.
+- I'm not into comedies that are joke-driven.
+- If I was a young man, I might have bypassed the whole comedian-actor thing and just been a filmmaker. Then I'd probably have spent my whole life going, 'I wonder if I could have been a comedian.'
+- Every week, there's a different equivalent of Charlie Sheen having a breakdown. I knew about Kim Kardashian getting married - and then getting divorced - and there's no reason I should. I don't have hostility toward Kim Kardashian - just toward the people who take that stuff seriously.
+- I've been making fun of administrations since I was a teenager onstage.
+- I would love to make a horror picture!
+- Success is for creeps.
+- Being shocking and cruel is a commerce. It's an actual valued skill now. The thing that really annoys me, the perception of it is that it takes intelligence, and it doesn't.
+- When I get to make a movie, I really try to make it on my own terms.
+- I've probably done myself a disservice as a brand because the movies I've made. They've all been completely different.
+- I was actually offered a talk show on CBS at one point, and I just didn't want to do it.
+- Trust me: I entertain Joe Six-Pack 30 weekends a year. I don't really think that I'm an elitist.
+- 'The Blair Witch Project' is a great movie.
+- I think, like, in real life, I'm actually quiet, and I mumble a lot. But that's not very lucrative.
+- I'm always amazed that people are interested in comedy.
+- I actually believe that the basis of a good relationship isn't liking the same things, it's hating the same things.
+- I continue to do standup because there's a connection with a live audience - there are skills that you do learn as a standup comedian that help you on a set.
+- The thing that interested me, there are so many filmmakers I admire - like David Lynch and Quentin Tarantino - they have these themes where there's not much going on, but they were suspenseful.
+- I like writing and directing. I enjoy telling stories, and I think it's born in a comedian to end up directing.
+- Even when I was a kid - I was really young - I was drawn to comedy.
+- The movies I make don't take place in reality.
+- As long as there's a strong theme that I can identify with, that's what makes me interested in writing.
+- I'm fully aware of people's perception of me, so when I start taking myself too seriously, I have to remember that, to them, I'm just the guy from 'Police Academy.'
+- I'm a weird mixture of being cynical but at the same time wanting to live in a world where Bigfoot lives.
+- My heroes, growing up, were people like Andy Kaufman and Groucho Marx and people that very rarely drop the persona.
+- I think, the first movie I saw that made me go, 'How did they do that?' was 'Godzilla vs. the Smog Monster.'
+- Sometimes the wheels just fall off a relationship.
+- I've been known to high-five, and I have a soft spot for Green Day.
+- If I ever got to do television, I would be interested in doing different kinds of characters and stories, and television doesn't lend itself to that.
+- It's really hard to watch Leno. I set his chair on fire.
+- I do live a very Hugh Beaumont existence. I'm up every morning, taking my kids to school and all that, which obviously does interest me. But then it's taking meetings with goofballs and auditioning for crap, and then I spend a lot of time on the road.
+- I think I hang out with some pretty witty people, but we're never that funny.
+- I'm really not a fan of letting the audience live vicariously through stuff.
+- I started doing stand-up when I was 15 and doing Letterman when I was 20. So I've been doing stand-up comedy and clubs for over 30 years. That's a long time.
+- The movies I make, I never see them as accurately portraying a life, but more like fables.
+- Be it in the movies I make or on stage, I think it's a trap to keep doing the same thing over and over again.
+- All I do is I have this insulated life with my wife and my daughter and a couple of friends who I try to see, but it doesn't even happen.
+- My movies are always about the kooks and the outsiders.
+- In the past, the movies I've made are perceived as dark, but a lot of comedies are way darker.
+- I'm making movies about people as flawed as myself and the viewers. So if you just have a reptilian brain and live your life simply by reacting to things, my movies aren't going to work for you.
+- I don't really pursue acting. I jokingly say that I retired right at the same time people stopped hiring me, but I really don't think I'm very good at it, and I'm not really interested in it anymore as an adult.
+- Marketing movies is hard.
+- My daughter and my wife inspire me to make movies.
+- I was in Ann Arbor, and I was told that this singer-songwriter guy wanted to meet me. It was Kurt Cobain. Nirvana had just made 'Bleach.' Kurt interviewed me on a college radio station. It was very strange. He was a fan of mine, and he gave me his album.
+- Although it sounds very trite, I wish people were nice.
+- When I was at my most outrageous and destructive, I alienated almost everybody.
+- I choose not to be in front of the camera. Sometimes I do get offered parts, but I really like just making movies and telling stories.
+- I don't get too hung up on what people think of me.
+- My wife and daughter both bust me on how much I am the guy yelling at kids to get off my lawn.
+- I do think there are more people who would probably related to my movies and who aren't aware of them.
+- I'm always wondering, if Bigfoot's not real, then why does this creature show up in all these different cultures? I'm always fascinated by that kind of stuff.
+- I was in punk bands when I was a kid, and then I would do stand-up in between bands - which wasn't any different from my singing.
+- I'm always dealing with this sadness. I don't want to be Morrissey or anything, but it is a thing I deal with it. Every day, when I wake up, I have to make a decision to fight this depression. That sounds horrible but I'm fine with it; it's who I am; it's my life. I try not to let it cripple me.
+- Certainly, shows like 'Black Mirror' helped me. I should send them a fruit basket.
+- I like movies that don't fit in a category. Like, 'Get Out' - that was one of my favorite movies in a long time, and what is that?
+- I was in this hamster wheel of being famous for being famous, much like a reality star. You would put me on a talkshow, I would say outrageous things. I was just perpetuating myself as a celebrity, and I found that really empty.
+- I always just felt more comfortable just kind of hiding behind a character than being myself onstage.
+- Which is worse - being a has-been or being the guy interviewing a has-been?
+- If Jimmy Kimmel didn't hire me, I wouldn't have the kind of career I have. And I don't know what kind of career I have, but he changed my life.
+- Obviously I don't hate America. I do believe that we are becoming - and I can only judge it by my lifetime, 'cause I don't know what it was like in the 1800s - but it just seems that as a nation, we are becoming really, really nasty, and not concerned with any kind of truth.
+- At the same time most people were getting out of college, I was offered a buttload of cash to star in a movie. I don't think most students would have said no.
+- I started out making fun of comedy. Then I became the thing I was making fun of.
+- I started doing comedy when I was a teenager with Tom Kenny, who is the voice of SpongeBob. I don't want to name drop, but, I've known him since I was 6.

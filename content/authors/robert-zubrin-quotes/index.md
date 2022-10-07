@@ -1,0 +1,120 @@
++++
+author = "Robert Zubrin"
+title = "Robert Zubrin Quotes"
+quotes_len = "114"
+description = "the best 114 Robert Zubrin Quotes"
++++
+- People make their own fates, and if enough of us make our fate to be space explorers, perhaps we can actually get some space exploration done.
+- Every dollar added to the price of oil weakens America and strengthens her enemies.
+- The United States has the largest and best navy in the world.
+- In the 1940s, the petroleum business was an American game, and it was enormously to our advantage that the world ran on oil.
+- The well-stuffed slave masters currently gorging themselves in Cuba's halls of power need to be held accountable.
+- Traditional Marxism attempted to argue against free enterprise by saying that capitalism causes poverty and that, therefore, socialism is necessary. That didn't work, because it was false.
+- Before agriculture was invented, land was not a resource. Before oil drilling and nuclear fission were invented, petroleum and uranium were not resources.
+- Putin himself made his original fortune in the early 1990s, when he stole the funds that had been entrusted to him to buy food in Europe to relieve the starvation in Leningrad that occurred during the economic collapse following the fall of the Soviet Union.
+- In what was called the second siege of Leningrad, thousands died, but Putin and his partners in crime got rich. Then Putin killed even more Russians when he had the FSB explode bombs in apartment buildings in Moscow in 1999 to give himself the pretext to seize dictatorial powers.
+- The largest automobile company in the world is Volkswagen. Who owns it? The answer is the government of Qatar.
+- There is nothing 'conservative' at all about Putin's cause. What he is offering is a synthetic ideology called Eurasianism, composed for him by Dugin, as a means of uniting all the anti-Western movements of the world under Kremlin control.
+- What Russia really needs is not gay rights but human rights, and the rule of law.
+- The NASA humans-to-Mars program is all sizzle and no steak.
+- The pro-American policy is the one that forces oil prices down. The way to do this is to flood the world market with liquid fuel from every source possible.
+- The space program needs a goal, and the goal should be humans to Mars.
+- In addition to virtually banning methanol outright, the EPA has created regulations to prevent cars from being modified by small businesses to optimize their performance, including through the use of methanol.
+- The federal government should end its policies of economic warfare against the United States and allow our nation to develop all its energy resources to the fullest, both for domestic use and for export.
+- Science is not a collection of facts; it is a process of discovery.
+- The bedrock foundation of any rational immigration policy should be to benefit America rather than benefiting potential or existing immigrants, or any other specific group, whether favorable or antagonistic to them.
+- The United States should give former NSA contractor Edward Snowden immunity from prosecution in exchange for congressional testimony.
+- Just think how much poorer we would be today if the world would have had half as many people in the 19th century as it actually did. You can get rid of Thomas Edison or Louis Pasteur; take your pick.
+- Government attempts to ban fracking should be aborted. The government should lift the burdensome regulations that have made the construction of nuclear power plants excessively expensive, thereby freeing up even more natural gas for direct use or for methanol manufacture.
+- The revelation that the National Security Agency has been secretly amassing data on countless law-abiding American citizens has aroused great concern about the potential threat such an effort poses to liberty.
+- Fewer jobs, at lower pay. That's what Obamacare means.
+- By enriching the carbon-dioxide content of the atmosphere from its impoverished pre-industrial levels, human beings have increased the productivity of the entire biosphere - so much so that roughly one out of every seven living things on the planet owes its existence to the marvelous improvement in nature that humans have effected.
+- Mars is key to humanity's future in space. It is the closest planet that has all the resources needed to support life and technological civilization. Its complexity uniquely demands the skills of human explorers, who will pave the way for human settlers.
+- The problem is that the automobile companies are not independent entities capable of pursuing their own interests. Rather, they are owned and controlled by organizations that are much more heavily invested in oil.
+- When the government mandates that everyone must buy a product, its sellers can, and will, increase its price, potentially without limit.
+- Europe certainly needs a genuine conservative movement to combat the creeping bureaucratic collectivism that is stifling the human potential of the Continent.
+- Nothing could be more regressive than carbon taxes.
+- I own a small aerospace company that does some business with the U.S. government.
+- Putin is sometimes described as a revanchist, seeking to recreate the Soviet Union. That is a useful shorthand, but it is not really accurate.
+- The relationship between carbon consumption and human well-being is causal, not coincidental.
+- Federal lawmakers need to change the rules so that vehicles converted to use new fuels can be put on the road; the only restriction should be that they pass the same standard state tests that all other cars do.
+- As I explain at some length in my book 'Energy Victory,' during World War II, the American strength in oil production was a decisive advantage for the Allies. Airplanes, ships, and tanks all ran on oil, and we controlled the supply.
+- The Earth is not endangered by humanity. But humanity is being seriously threatened by those who follow the guides of the WWF.
+- In the wake of the disaster caused by Tropical Storm Sandy, various allies of the Obama campaign have rushed to claim that the event was caused by anthropogenic global warming, thereby justifying the president's program of crushing the economy with regressive carbon taxes, a supposedly necessary measure to prevent future bad weather.
+- As a result of the carbon-dioxide enrichment of the Earth's atmosphere, plants are now growing faster. Furthermore, global warming lengthens the growing season and increases net rainfall.
+- We need to drastically reduce the importance of the petroleum game itself by enacting flex-fuel-vehicle legislation that will open the transportation market to fuels derived from non-petroleum sources.
+- It should be noted that the EPA's banning of methanol is categorically absurd from the point of view of environmental protection.
+- In the courtroom of science, if you have the facts on your side, you don't need a gun - and juries would be well advised to distrust the case of those parties who choose to use weapons to silence adversarial witnesses.
+- Ideas have consequences.
+- The issue comes down to this: The NSA metadata-collection program costs lots of money, and had funds not been expended on it, they could have been used to support other programs that might have been far more effective in saving American lives.
+- The federal government was created to defend the United States, not to wage war upon it.
+- The anti-American policy is the one that keeps oil prices up. The way to do that is to help OPEC limit the amount of liquid fuel available.
+- The key issue is not who is in charge but what. Russia's problem is constitutional. There is no division of powers. The judges, the police, and the legislature all work for the same people, and there is essentially no trial by jury. As a result, anyone can be arrested and accused of anything, and conviction is almost guaranteed.
+- The EPA could act to open the transportation-fuel market to vigorous competition from natural gas as well as coal, biomass, and trash, by legalizing methanol. This would force oil prices down, expand the economy, and create millions of jobs.
+- In their efforts to discredit human freedom, the Putinites denounce the sins that may occur under the reign of liberty with the same ardor, the same sincerity, and the same purpose that animated their Soviet forebears.
+- The EPA code needs to set forth a clear, regular, and rational system of penalties for violations of its code, with the amount of the penalty set in proportion to the amount of pollutant released by a given defendant, and no penalties imposed in the absence of any pollutant released.
+- Were the United States to pass a law requiring all cars to be methanol-capable flex-fuel vehicles, or simply repeal EPA regulations that prevent such conversions from being carried out privately, our immense natural-gas capacity could make a dramatic entrance into the liquid-fuel market.
+- There are many elements needed to secure economic growth. Certainly, people must be politically free to innovate, invest, build, and create things, and they must be incentivized to do so by knowing they can keep the rewards for their efforts.
+- Every dollar cut from the price of oil weakens the enemies of freedom and strengthens America.
+- From 1859 to 1971, the U.S. oil industry grew virtually continuously, in the process serving mightily to drive our economy and win our wars. But that growth was stopped dead in 1971 and sent into decline thereafter, as the advent of the EPA and the accompanying National Environmental Policy Act made it increasingly difficult to drill.
+- In the 1960s, reaching for the moon meant just that. It was a metaphor for attempting the impossible, and we attempted it, and we did it. And it inspired millions of people in every way. The number of science graduates in this country doubled in the 1960s at every level - high school, college, Ph.D.
+- Trillions of dollars in out-of-control entitlement spending cannot be remedied by cuts in NASA, or even in the entire discretionary budget, defense included. Rather, the financial bleeding needs to be staunched where the hole is and nowhere else.
+- Without Ukraine, Dugin's fascist Eurasian Union project is impossible, and sooner or later, Russia itself will have to join the West and become free, leaving only a few despised and doomed islands of tyranny around the globe.
+- As one of its first acts after coming into existence, the EPA banned the vital pesticide DDT.
+- The use of hunger as a weapon of political control is a crime against humanity.
+- I grew up in the 1960s and wanted to become part of the great space exploration effort, but when I graduated from college in 1974, the Apollo program was over, and the country had moved into this pessimistic mode. We had entered the 'age of limits.'
+- Economic growth must be the central issue because it is only through growth that the devastating threat of national bankruptcy can be averted. Furthermore, it is only by reviving American economic growth that the West's global predominance can be sustained, and peace and freedom kept secure around the world.
+- The Soviet Union used the exploitation of workers under capitalism as an agitational issue to subvert Western democracies even as it practiced slave labor at home.
+- The goods of the world market are available for Cuba to purchase, but all the foreign exchange is monopolized by the regime, which uses it for its own power and pleasure.
+- Global warming would increase the rate of evaporation from the oceans. This would increase rainfall worldwide. In addition, global warming would lengthen the growing season, thereby increasing still further the bounty of both agriculture and nature.
+- What the world needs most for its stability, and what the U.S. needs for its national security, is economic growth, which is driven first and foremost by expanded carbon use.
+- Energy powers our economy, both literally and figuratively.
+- We need to improve our horrible position within the petroleum game by eliminating the EPA and other crippling bureaucracies that have turned the U.S. from the game's biggest winners into its worst losers.
+- Like the producers of crops, airplanes, and books, producers of natural gas provide goods to meet the size of their available market. The larger the market, the more they can produce, and the more revenue they can obtain to cover their fixed costs and invest in future development.
+- The 20th century saw three great-power confrontations. Two of them turned into total war. We lucked out on the third. Do we really want to roll those dice again?
+- The No. 1 purpose of the federal government is national defense.
+- I run a small company with 18 employees on its payroll.
+- Putting aside for the moment the question of whether human industrial CO2 emissions are having an effect on climate, it is quite clear that they are raising atmospheric CO2 levels. As a result, they are having a strong and markedly positive effect on plant growth worldwide. There is no doubt about this.
+- Instead of forcing everyone to buy health insurance, Congress should pass a law protecting the uninsured from being charged more than the insurance companies are for a given service.
+- In any economy, the entire population is supported by the part of it that is working. All other things being equal, it thus follows that the most attractive acquisition a society can have is a young adult, whose childhood and education has already been paid for, but whose entire working life still lies ahead.
+- I don't think we should have to do a Mars mission on the basis of hysteria. I think we should do a Mars mission on the basis of a deliberate judgment that what we want to do is open up a new planet for humanity... that we are continuing to be a nation of pioneers.
+- Ireland never lacked the capacity to feed its people. During the entire 'great famine,' the island continued to produce massive amounts of beef and grain. The Irish just couldn't afford to buy any of it due to the enforcement of rack-renting, high taxation, and suppression of manufactures.
+- The more that energy costs, the less economic activity there can be.
+- The problem with Russia is not that it has laws restricting promotion of the gay lifestyle. The problem with Russia is that it has no laws that effectively constrain the strong or protect the weak.
+- Through our CO2 emissions, we are making the earth a more fertile world.
+- The danger facing us comes not from lack of resources, but from people who insist that we have run out of resources. If you embrace their idea of a world where there is only so much to go around, then you are endorsing a program of genocide and a war of all against all.
+- The Putin regime's income comes from oil and gas exports. If we could crash the price of these commodities, we could bankrupt the regime.
+- We have never been in danger of running out of resources, but we have encountered considerable dangers from people who say we are running out of resources and who say that human activities need to be constrained.
+- Snowden and NSA leaders should be brought together face-to-face for questioning in public by a congressional investigatory committee, with both parties allowed to make their points and to counter the assertions of the other. If Snowden is lying, it will come out. If the NSA is lying, it will come out.
+- The U.S. trade embargo on Cuba is almost completely ineffective, as many other countries, including the European Union, do not honor it.
+- The policy of the Obama administration is to employ regulatory strangulation to drive up the price of energy. This must be exposed and opposed for what it is: a policy of forced economic contraction.
+- You can't 'control' a Mars mission from Earth. The Mars mission is going to have to be controlled by the people on Mars... There is just too much involved that is out of sight of Earth.
+- I think that when humans get around to exploring and building cities and towns on Mars, it will be viewed as one of the great times of humanity, a time when people set foot on another world and had the freedom to make their own world.
+- The blockade against American natural-gas exports needs to be lifted, and the war on coal needs to be ended, so that, instead of being wasted to replace perfectly good coal-generated electricity, our natural-gas exports can be expanded even further.
+- The problem with Russia is not corruption per se, or even Putin per se. Russian government is not corrupt because Vladimir Putin has absolute power. Russian government has been corrupt and will always be as long as anyone has absolute power.
+- The Yanukovych regime is a mafia, which regularly threatens, imprisons, murders, or disappears political opponents as well as those whose possessions it covets.
+- Human population supplies the labor necessary for the creation of wealth; carbon supplies the matter and energy.
+- Some conservatives say that whether it's popular or unpopular, imposing strict limits on immigration is the right thing to do, and it must be defended.
+- Despite being bailed out - in some cases repeatedly - by the public purse, the automakers have shown little public spirit.
+- No one can prevent hurricanes, but prosperous communities are much better able to withstand them than poor ones.
+- Our European allies need to be able to buy our fuel, or they will fall to enemy domination.
+- Putin and many of his gang may have once been Communists, but they are not that today. Rather, they have embraced a new totalitarian political ideology known as 'Eurasianism.'
+- When people have their own money at stake, it's a lot easier to find and settle on practical, no-nonsense solutions to engineering problems than is ever the case in the complex and endless deliberations of a government bureaucracy.
+- Prosperous communities are much better able to survive hurricanes or other natural disasters because they have greater resources, both public and private, to fall back upon.
+- The natural-gas industry is screaming for new markets, and there are only two sectors where these can be found: transportation and power generation.
+- Carbon is the stuff of life, and it's the stuff of everything used by human society. All of our materials are made of carbon or of substances, such as steel or glass, which are produced through the utilization of carbon.
+- In August 1994, I was invited to have dinner with House Minority Whip Newt Gingrich. At that time, I was a senior engineer working for Martin Marietta Astronautics in Denver, where I had been responsible for inventing a new plan called 'Mars Direct.'
+- Weather systems are natural heat engines, and like all other heat engines, both natural and artificial, they are driven not by temperature per se, but by differences in temperature between one location and another.
+- America is a country defined by a set of ideas, and when people choose to accept those ideas, they should be able to become Americans, as fully so as any - and perhaps more so than most - regardless of how recently they or their ancestors arrived upon our shores. This is the true American tradition, which as conservatives we must defend.
+- Would offering the Mars Prize damage NASA? I don't think so.
+- If we are to assess the rationality of government expenditures to protect the lives of Americans through massive domestic surveillance, we need to compare this program to others aimed at saving American lives.
+- Nothing could do more harm to America's national security than a carbon-restricted, depressed economy that would make funding our military impossible.
+- Western environmentalists might value their independence, but their organizations are largely donor driven, and if he wanted to, Putin could have a lot to donate.
+- The U.S. federal government may be going broke, but it's not because of NASA.
+- The American people want and deserve a space program truly worthy of a nation of pioneers.
+- The EPA must be forbidden to seize or destroy the property of any person until and unless such person has been found guilty of a crime in a court of law.
+- If the auto companies were free agents, they would act to break the fuel monopoly that is so damaging to their own interests and those of their customers. But they are not, and so they won't.
+- Nothing could do more to help the world's poor than to make fossil fuels cheap and plentiful.
+- Can we achieve 140 mpg fuel economy? You bet. Just get the bureaucrats out of the way, and Yankee ingenuity will do the rest.
+- The facts of the fossil record never justified denying poor people a healthy diet. The facts of the weather record do not justify denying poor people affordable energy. And no set of facts, whatever they may be, can justify denying scientists - or anyone else, for that matter - the right to free speech.
+- Starting as a few bands of hunter-gatherers, humanity expanded the food resources afforded by the land a thousandfold through the development of agriculture.

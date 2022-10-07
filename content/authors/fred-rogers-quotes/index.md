@@ -1,0 +1,39 @@
++++
+author = "Fred Rogers"
+title = "Fred Rogers Quotes"
+quotes_len = "33"
+description = "the best 33 Fred Rogers Quotes"
++++
+- Deep and simple are far, far more important than shallow and complicated and fancy.
+- Just because somebody wants to be alone sometimes, it doesn't mean they don't love you.
+- The number 143 means 'I love you.' It takes one letter to say 'I' and four letters to say 'love' and three letters to say 'you.' One hundred and forty-three. 'I love you.' Isn't that wonderful?
+- To love someone is to strive to accept that person exactly the way he or she is, right here and now.
+- The space between the television set and the viewer is holy ground.
+- The more we can be in a relationship with those who might seem strange to us, the more we can feel like we're neighbors and all members of the human family.
+- Children aren't responsible for wars.
+- I do think that young children can spot a phony a mile away.
+- Love isn't a perfect state of caring. It's an active noun, like 'struggle.'
+- If the day ever came when we were able to accept ourselves and our children exactly as we and they are, then, I believe, we would have come very close to an ultimate understanding of what 'good' parenting means.
+- It's not the honors and not the titles and not the power that is of ultimate importance. It's what resides inside.
+- The whole idea is to look at the television camera and present as much love as you possibly could to a person who might feel that he or she needs it.
+- When I was very young, most of my childhood heroes wore capes, flew through the air, or picked up buildings with one arm. They were spectacular and got a lot of attention. But as I grew, my heroes changed, so that now I can honestly say that anyone who does anything to help a child is a hero to me.
+- Human beings need to feel that they are lovable and capable of loving.
+- Parents are like shuttles on a loom. They join the threads of the past with threads of the future and leave their own bright patterns as they go.
+- I believe that those of us who are the producers and purveyors of television, I believe that we are the servants of this nation.
+- Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people.
+- In my own life, as the nearer I get to the end of life on this earth, the simpler I want to become.
+- I think everybody longs to be loved and longs to know that he or she is lovable. And, consequently, the greatest thing that we can do is to help somebody know that they're loved and capable of loving.
+- I don't think that the basics that kids need have changed in 10,000 years.
+- When I was a boy and I would see scary things in the news, my mother would say to me, 'Look for the helpers. You will always find people who are helping.'
+- I saw this new thing called television, and I saw people throwing pies in each other's faces, and I thought, 'This could be a wonderful tool for education! Why is it being used this way?' So I said to my parents, 'You know, I don't think I'll go into seminary right away. I think I'll go into television.'
+- How sad it is that we give up on people who are just like us.
+- I like to compare the holiday season with the way a child listens to a favorite story. The pleasure is in the familiar way the story begins, the anticipation of familiar turns it takes, the familiar moments of suspense, and the familiar climax and ending.
+- You know, you don't have to look like everybody else to be acceptable and to feel acceptable.
+- The world is not always a kind place. That's something all children learn for themselves, whether we want them to or not, but it's something they really need our help to understand.
+- All of us have special ones who have loved us into being.
+- I think of discipline as the continual everyday process of helping a child learn self-discipline.
+- One of the most important gifts a parent can give a child is the gift of accepting that child's uniqueness.
+- Play is often talked about as if it were a relief from serious learning. But for children play is serious learning. Play is really the work of childhood.
+- When we look for what's best in the person we happen to be with at the moment, we're doing what God does, so in appreciating our neighbor, we're participating in something truly sacred.
+- The underlying message of the Neighborhood is that if somebody cares about you, it's possible that you'll care about others. 'You are special, and so is your neighbor' - that part is essential: that you're not the only special person in the world. The person you happen to be with at the moment is loved, too.
+- When I first saw children's television, I thought it was perfectly horrible. And I thought there was some way of using this fabulous medium to be of nurture to those who would watch and listen.

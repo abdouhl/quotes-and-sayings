@@ -1,0 +1,63 @@
++++
+author = "Bhavish Aggarwal"
+title = "Bhavish Aggarwal Quotes"
+quotes_len = "57"
+description = "the best 57 Bhavish Aggarwal Quotes"
++++
+- Safety is top priority for us, and all our drivers are fully certified; all of them are checked. Their addresses are checked. Backgrounds are checked. To whatever extent the Indian system makes it possible to check.
+- All of us have an entrepreneur in us.
+- I fully agree with innovation and letting the best product win.
+- In Mumbai, even Bollywood stars use autos when they are in a hurry.
+- The value that SoftBank saw in us was that we are a technology company in the mobile Internet space.
+- We will always work on technologies that are required in our market, which is India.
+- I don't think of competition as much as journalists think I do. Our strategy has been very different from Uber. We are very focused on building as per the Indian dynamics.
+- Our ambition is to build a globally competitive and futuristic transportation system in India that will support and accelerate a nation on the move.
+- Even before IIT, I always had an inclination to do something, even when I was in school.
+- In the U.S. or in the West, mobility means owning your own car. Cities are designed around spread-out suburbs, societal customs are that kids get a car after a certain age, and car ownership is very high.
+- Location-based services are here to stay, as it focuses on high relevance and contextual offering to the end user. This means a user sees what he needs with immediate sense and meaning to him.
+- Entrepreneurs are not driven by fear; they are driven by the idea to create impact.
+- We have built many of our systems with maps as the foundation. We are seeing that a lot of intelligent businesses are doing the same.
+- Three-wheelers are a vital means of transportation and a source of livelihood for millions of people every day.
+- When I explained my business model to my family, they asked if I was going to open a travel agency.
+- We profile drivers based on their riding behavior, driving behavior to make sure we weed out the bad-performing drivers, which are considered unsafe in terms of their driving profiles.
+- Not all of Microsoft's businesses are successful, but they have every technology possible.
+- We are building towards the future where people need not own their own cars.
+- China rightly identified consumer Internet as important and moved to protect it, and we need to do the same in India.
+- Our focus is on the customers and improving their experience. We believe that if we do that well, competition, prices, and profits will all take care of themselves.
+- I got to travel a lot and meet amazing people. That was a lot of fun.
+- I don't have a car and have decided never to own one.
+- If we want, we can be profitable, but we are focusing on growth. We don't comment on profitability, but we do look at it internally. And many of our Ola cities are profitable. But our focus across all cities is growth.
+- Challenges keep evolving as you move into different stages. When you are at a prototype stage, it's about getting that sustenance money. Then, talent becomes an issue; your early hires are difficult to get when you aren't too big. Later, it's about handling growth; then, you have competition.
+- As entrepreneurs, we sometimes do not understand the complexities of running a government.
+- Millions of Indians undertake their daily commute in our cities using their own vehicles, cabs, or other modes of personal transportation. With Shuttle, we intend to create a comfortable and reliable commute experience for them at the tap of a button on their smartphones.
+- Global companies can raise capital much easier than local Indian companies can because they have access to many more markets than we do, and this ends up distorting competition.
+- I learnt early that always being analytical is important for a business. Being analytical as an attitude is more important than just having the aptitude.
+- Don't take shortcuts while building your company - keep trying for the best.
+- We are very excited about launching Ola in Australia and see immense potential for the ride-sharing ecosystem in a country which embraces new technology and innovation.
+- Instead of letting the driver-base grow organically , we are setting up driver-training schools across different districts in the country.
+- Compared to Uber, we have a much local business model. We allow the customers to pay in cash as well as use our prepaid wallet. We allow them to book through call centres and pre-book for future travels.
+- There is a glass ceiling for the Indian startups. If I want to meet the PM, it won't be as easy as a foreign guy coming to India. I understand that dynamic, and we need to make sure government sees us as major contributors to society, which is not full there.
+- It's much easier for non-Indian companies to raise capital because they have profitable markets elsewhere. You might call it capital dumping, predatory pricing, or anti-WTO, but it's a very unfair playing field for Indian startups.
+- Raising capital is not the toughest part. The toughest part is building a great team and making sure it's growing with the company.
+- If we launch a new product, we have to time it right. It's not about how soon you can do it but how well we can do it.
+- There are many people who think we had the first-mover advantage. But actually, when Uber came to India, Ola was doing only 2,000 rides per day . We had less than half a million dollars of funding.
+- In 10 years of being together - 6 while dating and 4 in marriage - my wife has never once complained about my physical or mental absence in our relationship.
+- We believe that electric vehicles can transform transportation completely in India by enabling lower cost of operation and ownership.
+- In so many ways, our business is very, very unique. For example, in India, people pay with cash, and we accept cash from day one. And a lot of people in India pay with cash. And that's part of our business model.
+- Globally, ride sharing is a very intense industry with a lot of money being thrown around.
+- I always have my backpack.
+- As far as Ola is concerned, we are focused and determined to build a business that can sustain and be impactful.
+- Mobility in India is going to be different from the West. In America, people would look at an autorickshaw and say, 'This is a passing thing.' But in India, you know it will stay because it is fast and convenient.
+- Though we work with rental agencies, a large part of our fleet comprises individual drivers.
+- Focus on solving real problems and not on making money. There will be enough takers for your solutions. You will help make lives of some people better, and money will follow.
+- I think we are a company that thrives on a good challenge.
+- Our first 100 rides took us one-and-a-half years from the time we started in January 2011. It was only after that we started scaling up rapidly.
+- With a strong focus on driver-partners and the community at large, we aim to create a high-quality and affordable travel experience for citizens and look forward to contributing to a healthy mobility ecosystem in Australia.
+- Maps help us in tracking our cabs - if they're idle, headed for a booking, or in the midst of a trip. With custom systems built atop maps using available APIs, we are able to manage our inventory extremely well, predict ETAs for customers, and optimally allocate the nearest cab to a booking request.
+- The crux of what makes a company Indian is its entrepreneurship. The management needs to be in India.
+- The Indian context is unique. The market is very large, and I believe there is enough room for many players to innovate on different parts of the transportation business. That said, if somebody just brings an American concept to India, it'll only go so far. You have to build for the Indian needs and dynamics.
+- All things can be done by every company in the world. Apple builds a phone, and so does Samsung. It's not about being different but about being better at what you do.
+- There is a reason companies raise money from investors, which is to invest in growth.
+- As we scale, we will be able to drive the business with more efficiency, which will allow us to pass on more benefits to the consumers.
+- Companies need to weed out drivers who dont drive well or have got poor ratings from the customers.
+- As an entrepreneur, I am focused on my business.

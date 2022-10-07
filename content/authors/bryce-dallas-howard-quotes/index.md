@@ -1,0 +1,111 @@
++++
+author = "Bryce Dallas Howard"
+title = "Bryce Dallas Howard Quotes"
+quotes_len = "105"
+description = "the best 105 Bryce Dallas Howard Quotes"
++++
+- There's something really freeing about playing a character that isn't even, like, remotely likeable whatsoever.
+- I'm always looking at my brother and sisters, thinking - do we look inbred, maybe? Maybe a tiny bit.
+- I think the success of the 'Twilight' movies, not just the books, comes down to Stephenie Meyer.
+- My friends knew I was obsessed with these 'Twilight' boys because I love a dangerous love story.
+- Yeah, I'm a little weird. I'm definitely a little eccentric.
+- My dad made a film called 'Willow' when he was a young filmmaker, which screened at the Cannes film festival, and people were booing afterwards.
+- My dad's more three-dimensional than Opie Taylor or Richie Cunningham. He even has a temper! He's a real person. But some people are disappointed by that.
+- I've always been, with acting, very hesitant to get myself into situations where I would be accused of nepotism.
+- I created a fitness club with five friends. We have weekly check-ins and a reward system - and group penalties if one of us slacks off.
+- I'm a little superstitious.
+- When I was grounded, I wouldn't be allowed to go on set. That's how much I loved it.
+- I don't know how many roles I can ask my dad to play in my life, but so far, father, best friend, role model, mentor and grandfather to my children are working out quite well.
+- It was such a paradox for me that the only thing I know how to do is act, but that the first thing I abandoned while writing were the characters.
+- I can only really speak for myself and what I've noticed in my kids and the people in my life, but because dinosaurs were real, and yet they seem so fantastical, is why they held such a huge fascination for me as a child. They're so different from human beings.
+- I want to be the best actor that I can be; I want to be working in this business absolutely, and if that means being a movie star, then OK, that's fine. But to me, movie star, celebrity, all that stuff means something very different than being an actor.
+- I never really dyed my hair anything significant from my natural hair color.
+- As far as what is the line between human and machine? That's a great question.
+- I try to focus moment to moment on being an aware, responsible, contributive member of society. You see trash on the ground, pick it up!
+- When I work on a film, I always tend to relate to the crew.
+- It is an honor for me to take part in Canon's Project Imagin8ion, partnering with a brand that is empowering young filmmakers and is at the forefront of technology.
+- I'm not a strong cook. I can do the crockpot; that's about it.
+- I'm not an NRA member, but that doesn't mean I didn't appreciate shooting blanks out of a machine gun.
+- I loved being pregnant.
+- I shouldn't have acted. I didn't exhibit any ability. I was one of the kids in the school play who was just mouthing words, and they weren't the actual words of the song. I was pretty lame!
+- '50/50' is a comedy. I shouldn't say it's a buddy comedy because it's not farcical, and it's based on a true story, but it's viewing that experience through a very truthful lens of humour.
+- I definitely managed to do different kinds of things. My focus is usually who the director is, because at the end of the day the director is the storyteller, what the movie is all about. I don't want to participate in something that I don't think is constructive storytelling.
+- I want to be a good example for my son. That's the best way to parent - to be the example of what you want to see in them. That's definitely how my parents parented and how my grandparents parented. And it works.
+- Whenever I hear the word 'breakout,' I associate it with acne.
+- As a teenager, I was perpetually grounded. I was stubborn rather than rebellious.
+- My parents would never throw the kids in first class for the flights; they'd be up front, and we'd be economy - we knew we were lucky just to be travelling.
+- I'm drawn toward filmmakers who have a very distinctive voice. I really appreciate people who push themselves and, therefore, push the medium forward.
+- My parents have been together since they were 16 years old.
+- It's not that I'm a serious person; I'm playful and stuff like that, but I take characters very seriously and the work very seriously.
+- My mum told me, 'At that moment when you know you can't do both, the marriage and the kids, choose the marriage because you're going to be spending your whole lives together, so you have to put a lot of work and attention into the relationship.'
+- I'm a little Type A, and I have this really thick binder whenever I do a movie where I make a million notes, and in between takes, I'm checking it out.
+- My mom always told me one of the reasons that she was really happy in her life was that, if Dad never worked again, she was confident that she could support the family.
+- Actors create a fantastic lifestyle thinking they're going to be able to maintain it. Then they can't get work or have to start taking work that doesn't suit them.
+- It's, like, sort of a dream thing for an actor when they're told to gain weight.
+- After I did 'Orchids,' I enrolled back in film school and did a million and a half workshops and worked with great professors and people, trying to hopefully get better.
+- If I was producing something, it wouldn't make sense to me to cast somebody because of who their father is because that doesn't put anyone in the seats in the theatre. I wouldn't go to a movie because that person's father is so and so.
+- My body's my best friend.
+- Getting to have an opportunity to tell a story that is about mental illness and how it affects one's self and one's community was really something that really meant a lot to me.
+- While 'The Help' is in so many ways a celebration of these women's friendships and what they overcome, it's also very truthful and very painful, and it was intense for my mom to read that.
+- Directing 'When You Find Me' was one of the most creatively rewarding endeavors of my career.
+- Using the word 'bossy' for girls can be quite harmful. What is that saying - that being focused, being assertive, being the boss has a negative attribute? And I have heard that term associated more with women than with men. 'He's so bossy' - you don't hear that. It's a very subtle thing.
+- Writing 'when you find me,' it really exposed me to a way of putting together a story I hadn't thought of.
+- I'm very sturdy and very proud of it.
+- I've learned to think in terms of having a long career. Actors can have very long careers that last until the day we die, but there will be moments when you'll feel like you're a failure or when you're disappointed in yourself.
+- My dad is the most humble man on the planet.
+- When I was coming of age, I remembered reading and studying the initial ideas within the feminist movement. There was this idea with my parents' generation that in order to find equality, a woman would need to behave like a man.
+- I've always been a little bit cautious about what projects I step into. I don't mean to be dramatic, but I feel that every single thing you do in life, you give a piece of your soul, and I want to be responsible with that.
+- What I do is not go outside. My hobby is that I write, so if I'm not acting or being a mom, I'm writing.
+- Do I wish I had never endured postpartum depression? Absolutely. But to deny the experience is to deny who I am.
+- For me, breastfeeding was even more painful than giving birth. And despite a lactation consultant, I felt incompetent. I forged on, barely sleeping, always either breastfeeding or pumping and never getting the hang of it.
+- I've always had the perspective that roles come into my life when I need them most and sort of teach me lessons. The same can be true of films, films are released into society to aid in a lesson, inspire people, comfort people.
+- Right now as an artist, what I want to do is be a part of works that are unignorable. I couldn't be less interested in how people receive it, honestly. As long as it's unignorable.
+- Everyone in Hollywood has a screenplay.
+- You can't raise kids alone, you can't heal alone... you really need a community.
+- When I was seven, I was allowed to be an extra in 'Parenthood,' which was amazing. But then I kind of got addicted to it, and my parents didn't want me to want to act. They felt that would be putting your kid in an adult world.
+- Telling everyone I wanted to go into forensic anthropology was my form of rebellion.
+- When I started working, I just had my name be 'Bryce Dallas.'
+- I've done a lot of weird, otherworldly characters, and I think I'm at my best when I'm kind of in the woods running around screaming or depressed.
+- I struggle immensely with celebrities of all kinds. I get clammy hands and turn a little purple.
+- I'm obsessed with my parents.
+- My sister can walk down the street and just know what's going on with people. She'll say, 'Oh, they're going through a divorce' or, 'Their kid just went off to college' or, 'He just got a great job.'
+- Sometimes people are like, 'Do you want to play strong women?' I don't have to play strong women in order to feel like a strong woman myself, but I do feel it's important to play characters that are complex and interesting and believable.
+- Actors are always nervous about not only hurting each other, but maybe perhaps hitting each other's face and ending one's career.
+- I didn't always want to act. My passion was writing, and it still is one of my primary passions to this day, but it wasn't until high school when I started acting in plays that it became a thought of something I might want to do. And when I applied to colleges, at NYU, I was able to study both writing and acting.
+- The thing that every parent hopes for is that the baby's healthy, I'm healthy. No matter how you feel, that's the most important thing.
+- Of course any kind of film process has ups and downs and days where you're stuck and have breakthroughs.
+- Getting on a popular, long-running show like 'Happy Days' is the actor's equivalent of winning the lottery.
+- Ours was a loving, nurturing household, but, at the same time, my parents' goal was to make all their children self-sufficient.
+- I would amputate my toes to work with Lars von Trier again.
+- I did a play in New York at the public theater, a Shakespeare play, and M. Night Shyamalan, who is the writer/director of 'The Village,' came and saw me in the play and asked to go to lunch afterwards.
+- I'm really into sci-fi. I always have been. In addition to that, I've always had a tremendous fascination with the lure of the Apocalypse or Judgment Day or the Mayan calendar, etc., etc.
+- Everything about doing 'Jurassic World' was a dream come true.
+- Tom Hanks is fantastic - he is one of my dad's good friends, and he's very warm and funny.
+- I will never reach the success that my dad has felt.
+- My first pregnancy, I gained 75 pounds.
+- I try to go with the flow and have faith that everything is going to work out.
+- I feel like I almost didn't grow up in the business, because my parents worked so hard at sheltering us from that. I was raised in Connecticut. And I honestly wasn't aware that my dad was a celebrity until I moved to Los Angeles a year ago.
+- My parents taught me many of the things that people need in life to feel confident: practical things, such as managing finances, mucking out the goat barn, cleaning a house, doing repairs, mending a broken roof or a toilet.
+- You have to see, kid by kid, what their needs are and what kind of parent you need to be for them.
+- As far as I'm concerned: Chris Pratt for president! He'd save us.
+- I'm very conventional compared to my parents.
+- I found out I was pregnant seven days after my wedding. I was on honeymoon with my family.
+- I have an amino acid missing that you can only get from certain kinds of eggs. So, I've been eating a few eggs.
+- Kevin Kline is an honorary Brit.
+- I stepped in for Nicole Kidman in 'Dogville' when she left that film.
+- You meet your soulmate, and you're like, 'Well, this is it. This is the feeling of falling in love, and it's the most intense it can ever be.' Then you have a child, and it's like - it's huge!
+- There's not a higher stake than someone having to face their own death.
+- I'm always trying to figure out what my taste is, what my likes and dislikes are.
+- I think what's exciting about playing a villain - particularly a villain who's totally unapologetic about their evil intentions - is that it's not anything remotely like what you get to do in real life. You're never allowed to be evil and not feel bad about it afterwards, let alone be evil, period.
+- There's a lot of wisdom that my dad and my grandparents and my uncle have been able to impart on me, and what I've treasured the most is I've seen examples in my life of people embracing their creativity, not feeling insecure about their artistic inclinations.
+- I was raised in Connecticut. And I honestly wasn't aware that my dad was a celebrity until I moved to Los Angeles a year ago.
+- Creativity is all around us, and some of the funniest, most beautiful, and touching moments happen when you least expect it.
+- I did karate for years and years and years.
+- I've admired Anthony Hopkins for so long, and when I finally got to meet him in person, I became totally immobile and speechless! I stood there looking at him and couldn't say a word.
+- Joss Whedon is a hero of mine, and what he's done for women in film and television, particularly when it comes to writing female roles that would typically go to a man, is awesome.
+- I'm not going to lie. I rarely wear sunblock.
+- My greatest dream is to work with my dad someday as an actress.
+- I don't have any friends who are actors through my dad.
+- I'm a night owl.
+- What keeps me sane the most is, honestly, the Serenity Prayer.
+- My first time I directed a play was 'No Exit,' a play set in a subway.

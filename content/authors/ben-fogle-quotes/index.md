@@ -1,0 +1,104 @@
++++
+author = "Ben Fogle"
+title = "Ben Fogle Quotes"
+quotes_len = "98"
+description = "the best 98 Ben Fogle Quotes"
++++
+- Holidays are our one big family indulgence.
+- I wouldn't want to go into mainstream, Downing Street politics, though - it's just too cut-throat. I've got quite thin skin.
+- In many people's minds, Everest has lost her crown. She has become a mountain synonymous with death, exploitation and pollution.
+- I have spent time in many of the world's popular wilderness locations and I would say Nepal should be proud. It is an example of man repairing the damage he has done.
+- When I was on Taransay, I loved being part of a community, I loved that everyone knew what I was doing, where I was going. I loved that. I liked knowing that if I wasn't back at a certain time people would start worrying a little bit about me, I loved the whole community thing, sitting for hours and chatting to people.
+- I'm equally happy bouncing across the African savannah in an old Land Rover as I am staying in a luxury resort in The Maldives. Travel and the wilderness excite me.
+- Geography was the lesson I always looked forward to most. It was a form of escapism. It could be bleak midwinter outside but inside you're learning about African farming methods or the Great Lakes. No other lesson had that excitement.
+- I loathed my first term boarding at Bryanston school in Dorset. I hated being away from home; I think I had my parents in tears every time I spoke to them. I regret being so spoilt because within two terms I loved it.
+- I saw firsthand the devastating consequences of poaching. I saw elephants with ivory hacked from their faces and the lengths private parks go to protect their precious wildlife.
+- The jungle is my least favourite environment. It's always damp, and everything tries to bite you, whether it's flora or fauna. But I think it's important to face your fears and not just go for the comfortable option.
+- I love reading. I spend a huge amount of time travelling on planes and have always got a book on the go.
+- The wilderness rescued me. I have been shaped by my experiences in the great outdoors. Feeling comfortable in the wild gave me the confidence to be who I am, not who others want me to be.
+- On the face of it there is a pristine white sandy beach, but within an hour, around 100 of us can collect up to 250-300 kilos of rubbish. It's mostly bits of plastic, fishing line, nylon, bottle caps. We've found everything.
+- I don't want my children to feel the same sense of failure I did growing up because they're not good at passing tests.
+- Reading aloud could be humiliating, I was shy about doing it. Bear in mind I failed my English GCSE and A levels, which goes to prove that if I can embrace it, so can anyone.
+- At 19 I left school and embarked on a 9-day bike ride with friends from London to Monte Carlo.
+- I'd be quite happy if cars were banned from central London. Why are we not using little tuk-tuks rather than big black cabs?
+- As our focus turns to the oceans and the seemingly impossible task of repairing our marine habitat, we could look at Everest as a fine example of turning back the clock.
+- Without risk you can't experience life. There have to be risks, physically and mentally, taken by everyone.
+- I don't think you can ever get closer to the natural world, than just a man - as in mankind - in an ocean, just you and it. It's not about conquering the ocean, it's about working with it.
+- I really, really loved Fair Isle. I'd always wanted to go there. It's so beautiful and a very small but very international community. Every nationality that you can imagine have settled there.
+- In terms of TV shows, if you're a public figure, we've all been asked to do some sort of ridiculous show at some stage.
+- I've had enough of the bleak headlines and divisive politics, dark TV dramas and hate-filled social media. I'm embracing a new movement with a slightly ridiculous name and a single mission, to make the world a better place. It's called 'hopepunk'.
+- We as humans, we're not solitary people, we're like dogs, we like to live in packs and know about one another. And, if anything, fame is people trying to attain community on a mass scale, because when you become famous wherever you go people know about what you've done and what you're about to do.
+- I'd love to go to a remote part of the world or maroon myself on a tropical island, and shoot the whole thing myself. I've always adventured with other people and I'd like to spend some time completely on my own.
+- Many of us will endure a lifetime following others. Institutionalisation suits many but not all. Some of us thrive beyond those boundaries.
+- Part of the beauty of wilderness schooling is that the overheads are very low. You want a classroom? Build a shelter from nature's store. You want to eat? Forage for it.
+- I have a terrible memory. I never remember names or faces. It's incredibly embarrassing.
+- If you look at the positives, if you test yourself and challenge yourself... I describe myself as a 'yes' person. If you say no to too many things, you think 'what if'.
+- London really is my city; I was born within a breath of Marble Arch.
+- When I travel with my family it's important that we do stuff together. I'm not the sort to send my children off to a kids' club.
+- Armies and former soldiers are working in the field to help protect elephants. Some have suggested staining the ivory; cameras and trackers have even been embedded within the tusk; others have arranged for tusks to be removed pre-emptively by conservationists.
+- My wife Marina likes salad and fish and I have reduced my meat consumption to just three times a week. It wouldn't take much to go vegetarian and I may well make that decision soon.
+- I am honoured to be taking part in the Diamond Jubilee flotilla along the Thames in my 20-foot rowing boat. The energy levels will be high, partly because I'm planning to ply the crew with thermos flasks filled with Typhoo!
+- It's not a surprise that the mental health epidemic is affecting so many people because we can't escape this bubble from being on our phones and tablets.
+- When I reached the summit of Everest, I scooped some ice into my drinking bottle as I'd run out of water and hoped it would melt. After I got back to base camp, I decided to keep it, so I had a special bottle made with an inscription - it's my lucky water.
+- I take echinacea to ward off colds and I go through phases of taking vitamins, but I'd rather eat a lot of fruit and veg than take pills.
+- I love sharing my travels and I've had some fascinating travelling companions over the years. I really believe travel is made the richer being with people.
+- I'm a very light packer. I don't like checking in luggage. I only like hand luggage.
+- After university, I was desperate to be an ambassador. It went back to geography: I loved the idea of living in exotic and exciting countries, but still driving a Land Rover and having tea. I failed the Foreign Office exams three times.
+- Let's be honest, some people are better suited to exams than others in the same way that some of us are more sporty or arty.
+- I failed my exams and my driving test. I failed to get into the Foreign Office and drama school. The big F was dominant in my early years.
+- There is something very appealing about moving to a faraway place.
+- I stayed with a family in the bush in Alaska and there were absolutely swarms of mosquitos. The crew were wearing full body nets but the family weren't, so I decided that if I was going to do things properly I wouldn't wear them either. I was eaten alive!
+- We so love to stereotype people in this country - I can relate to that myself as I've experienced it. By taking on challenges over the years, I've tried to show people I'm not just some 'posh boy' and that there's far more to me.
+- After all, island living is where I began on Taransay, and I have such fond memories of it.
+- For anyone, taking yourself out of your natural environment and comfort zone is such a great way to reflect where you've come from and where you are going.
+- Although I'm a city boy, I am a rural person at heart - and that comes from school. I'd lived near Marble Arch in London and it was fantastic to be surrounded by fields and trees.
+- Hopepunk is a spirit or a mood. It isn't an actual thing. It is a feeling. It is the Scandinavian concept of 'hygge' or 'coziness' of the mind. It is a warm, happy, charming, uplifting concept that leaves you with a fuzzy feeling in your tummy.
+- I have an overactive mind and I find that doing exercise clears it.
+- I'd quite like to run the Great Wall of China. I've never been to China and there's something about the Great Wall of China that is so iconic and evocative. It's only 3,000 miles. It's not that far.
+- The reality is that my wife would be pretty upset if I went and bought a plot of land somewhere in Outer Mongolia or the Arctic Circle!
+- In some ways, I'm in danger of doing too many things to be able to appreciate and enjoy them. I look forward to thinking back to carrying the Olympic torch, or going to the Royal Wedding, when I'm in the middle of the ocean on my own far from anywhere - that's when I'll relive those moments.
+- I don't enjoy doing exercise at the time, but I enjoy the feeling afterwards.
+- I find 'EastEnders' so utterly bleak.
+- You learn so much about how far you can push yourself and what you can do. How an experience like Antarctica helps you, it boosts your confidence.
+- Often, a seemingly clear clean beach has a huge amount of hidden litter.
+- I love the ocean. Anywhere near the ocean will do. Preferably the Atlantic Ocean.
+- I can't even cook an egg. The only thing I can do well is baking bread. I love it and find it incredibly therapeutic.
+- I would hide behind my parents' legs at social events, I was even shy in front of my sisters. I was a really, really ridiculously shy boy. But the one thing I took from my public school education was confidence.
+- I'm a naturally upbeat person. Friends sometimes compare me to a labrador puppy, and I take that as a great compliment. I love life, I love people and I've got loads of energy right up to the moment when I'm suddenly asleep.
+- Both my wife and I are optimists and we look at the positives in life.
+- When suddenly your focus changes, you see the years going by and it's an extra reminder that you don't want to live life with any regrets.
+- Many locals in east Africa are calling for fences to separate wildlife and people. They argue it will reduce conflict and also make it easier to protect the wildlife from poachers. From my experience in Tanzania, no fence and no militia will hold back the tide of poachers drawn by the huge sums of money at stake.
+- Ivory is quickly becoming the new blood diamond of Africa and one that fuels militia battles. Some of the most notorious armed groups on the continent, including the Lord's Resistance Army, are hunting down elephants and using the tusks to buy weapons.
+- There are a lot of people that I think look very good - Bryan Ferry and Jude Law dress really well, Steve McQueen was cool, and all the James Bonds have been very dapper.
+- I had a short run as the presenter of 'Cash in the Attic'. It's a very popular show but didn't really suit me.
+- I like collecting things, much to my wife's annoyance. I keep mementoes because I'm proud of all the things I've done, but also to remind myself, when I'm having a difficult time at home, that there are always tougher, harder things to get through in life.
+- We tend to default to complacency. Stick to the easy option. We all do it. We've tried to create a business model and society around us that is as easy and boxed as possible. We love creating boundaries and borders.
+- In the presenting area, there's nothing that really sets me apart from anyone else. It's something I enjoy but I was never going to set the world on fire.
+- I am very proud of rowing the Atlantic Ocean.
+- People are being overwhelmed with social issues, political problems and economic problems - and this notion of giving everything up and going to live off-grid and to have a simpler way of life is quite attractive.
+- As United Nations patron of the wilderness, one of my roles is to report back from the Earth's remaining wildernesses and to act as a voice for the wild.
+- Whenever I leave home to film, my wife Marina gets terrified that I'm going to come back having bought a tiny plot of land in rural Alaska.
+- I'm the son of a vet and grew up with golden retrievers. Dogs have always loomed large in our lives but labradors have the nicest personalities: kind, loyal and caring.
+- I remembered reading about a disease called Leishmaniasis, which matched my symptoms. I'd always thought it was an old wives' tale - a sand fly bite that eats your flesh. But when I looked on the internet and saw pictures of people who had it, their lesions looked like mine.
+- Michael Palin and Paul Theroux are my travelling icons. I have a soft spot for Joanna Lumley. I'd love to go on an adventure with her.
+- I got rounded up by the police in Quito as I didn't have my passport with me. I was in prison for a night, which was pretty frightening, made more so when one of my male companions started crying.
+- Lego for many parents is the antithesis of the high tech world. We are desperate to wean our little ones away from the tablets and into the bricks.
+- I have found myself increasingly moving away from meat. It hasn't been so much a conscious choice as an organic change.
+- Where once Lego offered a whimsical form of escapism into the world of the subconscious, encouraging creativity and imagination, it's transformed into a rigid 'box ticking' discipline where children are encouraged to build by conformity.
+- When I was a child, Lego came in brick form, you'd buy boxes of random bricks. You used your imagination and your mind in your build.
+- The majority of the time I live out of a rucksack in some jungle or stuck up some mountain. The luxury tends to be when my wife and children are there.
+- I'm not one to complain about illness. I suppose I have a bit of a stiff upper lip. I just tend to get on with things.
+- Some people confuse confidence with arrogance. There's no doubt in the business world there are a few big egos and I think arrogance can get in the way. But if you have the confidence to go to your higher superior and say this is wrong, it can make a difference.
+- I eventually realised you don't have to understand every single word, and that reading in your head doesn't have to be perfect. Once I took that pressure off, it gave me confidence.
+- Stroking my dog calms me down.
+- What I miss is being close to nature - collecting your own water and generating your own electricity, catching your own food. I still dream of doing that with my own family, even if it's just for a year-long experiment, I would love to have tried that.
+- I'm acutely aware of the environment but I'm far from perfect - I love Land Rovers and fly too much.
+- I do try to reduce my carbon footprint a little bit by travelling around London on my electric bike. A lot of people raise their eyebrows but I love riding it.
+- We're a much more touchy-feely, hands-on generation than our fathers but juggling work, family and social life and trying to be romantic and keep yourself fit is really hard. I want to be the perfect dad but you can't be the perfect dad unless you compromise elsewhere.
+- I met a Swedish single mum called Annalise who is living in the wilderness. Her dilemma is finding enough wood to make a fire to keep warm.
+- Broadcasters and production companies often don't appreciate the complexities of viewing habits, but Gogglebox has highlighted how in-depth people go when watching TV.
+- I know some people obsess about their appearance but I don't - it's not something that bothers me.
+- We experienced a miscarriage at 13 weeks and then a few years later we lost our son Willem at 30 weeks. I held him in my arms and had to organise his funeral.
+- Hopepunk works. Try it and I guarantee you will feel better - and so will the people around you. It's positively infectious.
+- I think we are becoming more obsessed about getting a certain amount of likes on our Twitter and Instagram accounts rather than actually living a proper, real, honest and organic life.
+- I'm a bit dyslexic so I found learning to read hard. I muddled up the letters but learnt to power through.

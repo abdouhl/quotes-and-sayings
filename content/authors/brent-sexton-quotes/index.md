@@ -1,0 +1,17 @@
++++
+author = "Brent Sexton"
+title = "Brent Sexton Quotes"
+quotes_len = "11"
+description = "the best 11 Brent Sexton Quotes"
++++
+- The bottom line is that your performance is made in the editing room.
+- I've learned to take care of myself. You know, I try to stay conscious of whatever my energy is at all times, really. I mean, I come home from work, and, depending on the day or depending on what was going on, if I needed to adjust, I'd just meditate, or play guitar, or watch some 'Monty Python.'
+- Casting directors tend to be the unsung heroes in this business.
+- Depending on the show, I've played a cop, a criminal, or a victim. So there's a range.
+- To me, any character that is conflicted inside as well as outside of themselves is always a better role to play.
+- I watched '12 Angry Men' when I was a kid. It blew me away definitely.
+- Generally speaking, I think it's a good idea to stay conscious of any kind of energy or emotion that you're generating, whether it's at the end of a work day or just in your everyday life.
+- My brother's an aerospace engineer who works for Boeing, and I started thinking, 'Well, my brother works nine hours a day at his job... What if I worked nine hours a day at being an actor?'
+- I come home from work, and depending on the day or depending on what was going on, if I needed to adjust, I'd just meditate or play guitar or watch some 'Monty Python.'
+- I'm definitely a character actor. I've tried to limit anything with a uniform because I've done it so much. There's a lot more I can offer. It's just getting people to see something else.
+- The thing about grief is that it's a roller coaster - it's up, it's down. The emotions sometimes take over.

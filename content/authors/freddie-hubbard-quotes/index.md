@@ -1,0 +1,18 @@
++++
+author = "Freddie Hubbard"
+title = "Freddie Hubbard Quotes"
+quotes_len = "12"
+description = "the best 12 Freddie Hubbard Quotes"
++++
+- I'm going to Yoshi's. I'm taking a few gigs. I'm playing. I'm not going to play all the time. I'm going to take it easy and take it slow and warm up so I can come back.
+- We all kind of grew up together with Art Blakey because we all were young and he gave us a chance to write. We had to write something that was good and to sit up with a great guy like Art Blakey and watch him.
+- Dizzy used to tell me that I am playing too hard. He used to say to not give everything. Miles used to tell me that too.
+- I had heard Ornette a couple of times, but I didn't really know where he was coming from until we started the record and it was beautiful, Fred. It opened up my mind.
+- They always want to sell me as a hard bopper.
+- Yes, I can play. I can play. I can't play as long as I did and as hard, but I don't think I have to.
+- I advise all the young kids to not overwork. You can't be out there blowing hard. You have to pace yourself.
+- I am in discussions with a label. We are talking about doing something.
+- When I got started in New York, it wasn't like it is now. If you were different from Miles and Dizzy, it was very difficult to make gigs and make money with your own style.
+- Well, my sister played trumpet. Can you imagine having a sister blowing the trumpet around the house, Fred? And my brother, he played piano. Everybody was playing some kind of music, so it was natural for me to get into it.
+- I quit drinking, so I can think clear. When you have chop trouble, drinking doesn't help the healing process.
+- That was the biggest thrill, going over to these guy's houses and having them want me to practice with them and they would show me a lot of stuff, which was really advanced stuff to me at my age.

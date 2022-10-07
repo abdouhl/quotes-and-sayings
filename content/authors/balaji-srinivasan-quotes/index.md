@@ -1,0 +1,31 @@
++++
+author = "Balaji Srinivasan"
+title = "Balaji Srinivasan Quotes"
+quotes_len = "25"
+description = "the best 25 Balaji Srinivasan Quotes"
++++
+- Machine translation of signs, text, and speech brings down language barriers and facilitates ever more cross-cultural meetings of like minds.
+- The future of technology is not really location-based apps; it is about making location completely unimportant.
+- Mobile technology makes us ever more mobile, increasingly permitting not just easier movement around a home base but permanent international relocation.
+- Tokenization applies to scarce assets. Today, the most appropriate thing to tokenize is something that's purely digital. Bitcoin and ethereum are the canonical.
+- We need to build opt-in society, outside the U.S., run by technology.
+- If you deal with information, you need the Internet. If you deal with money, you need to deal with blockchains.
+- It used to be that you had to come to Silicon Valley, walk up Sand Hill Road, network with individuals. That's now being completely changed and turned on its head by the whole ICO thing.
+- Every time you load a webpage is a HTTP request. That's a lot of HTTP requests. If you are earning bitcoin on every HTTP request, that could be a lot of earned bitcoins.
+- I learned that despite having years and years of experience in math and computer science and so on, I didn't really know how to code until I formed a company.
+- Don't do a startup unless you're ideologically driven to make it succeed beyond the economic motivation.
+- The Internet is programmable information. The blockchain is programmable scarcity.
+- Conceptually, we believe that embedded mining will ultimately establish bitcoin as a fundamental system resource on par with CPU, bandwidth, hard drive space, and RAM.
+- Isn't the purpose of bitcoin mining simply to get rich - or not, as the case may be? Well, at 21, we are less concerned with bitcoin as a financial instrument and more interested in bitcoin as a protocol - and particularly in the industrial uses of bitcoin enabled by embedded mining.
+- Virtually every major technology has an initial spike of interest, then a dip, and then a long-term rise to success. The dot-com bubble is the canonical example, but there are many more.
+- Our nation of immigrants is, tautologically, a nation of emigrants.
+- There's a tiny number of Bitcoin wizards and an enormous number of smart developers that have no onramp to Bitcoin. We need to make that onramp easier.
+- There are downsides to implicitly trusting banks, as the 2008 financial crisis showed.
+- I think tokenization eventually means everyone becomes an investor once all the regulatory issues are worked out - from your computer itself to a kid in India messing around with $10.
+- I'm interested in businesses that take digital bits and turn them into interfaces for physical atoms. I'm also interested in drones, Bitcoin, and 3D printing.
+- Many great founders have one or more big failures on their track record. What makes them great is that they eventually succeed despite that.
+- We believe the most significant long-term application of bitcoin may be reducing the upfront cost of internet-connected devices to make them more accessible for the developing world.
+- We think of bitcoin as mobile. It's not one company; it's broad.
+- By, say, 2025-2030, I expect that there will be multiple jurisdictions that allow the tokenization of virtually any scarce resource, all the way down to personal tokens.
+- Bitcoin is a way to have programmable scarcity. The blockchain is the data structure that records the transfer of scarce objects.
+- Anything scarce will ultimately be tokenized because the benefits of digitization and increased liquidity are so great.

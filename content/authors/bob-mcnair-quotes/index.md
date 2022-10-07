@@ -1,0 +1,40 @@
++++
+author = "Bob Mcnair"
+title = "Bob Mcnair Quotes"
+quotes_len = "34"
+description = "the best 34 Bob Mcnair Quotes"
++++
+- I'm not a real estate developer. I'm a golfer. I'm a sportsman.
+- Now, would we like to have that super quarterback? Absolutely. And if we have the opportunity to get that person or develop that person, that's what we'll do.
+- If you want to get a good seat at a Texas A&M game or a University of Texas game, it depends on how much money you give the school.
+- We're about winning and accountability.
+- Our players are role models; there's no question about it. Whether they want to be or not. They are. So they're in the spotlight. So if they do something that's wrong, that's in the spotlight, too.
+- Every athlete, I think, would like to play forever. They never want to acknowledge that they've lost a step or they can't quite do what they did before.
+- I have a deep faith in God.
+- At nose tackle, you don't have to run that much.
+- If a local market is supporting the team strongly, you're not going to have a lot of support for a team leaving that market.
+- We protected Andre Johnson, given him long-term contracts. Brian Cushing's got a long-term contract. Arian Foster. So certain key players, core players, we've tried not to tie them up for a long period of time.
+- If you look around, there are very few really super quarterbacks. There are just very few. If you're lucky enough to have one, lucky enough that one of these Andrew Lucks is available when you have the top pick, then that's just a matter of luck. You can't attribute that to anything else.
+- We want people that fit in our locker room. As I said, it's all about teamwork.
+- Unfortunately, when we had a No. 1 draft pick, there wasn't an Andrew Luck out there. A lot of that's pure luck.
+- We concluded that one thing we can do is to just go through the locker room and make sure that if anybody is using anything, it's a product from one of the approved manufacturers.
+- Some people said, 'Why didn't you sign Peyton Manning?' Well, we just couldn't do it. We would have had to let go of two or three of our outstanding players to create enough room in the salary cap to do something with him.
+- A quarterback that goes out and performs for you and is a franchise quarterback is more valuable than a player playing another position, but there's a lot more risk there. It's a more difficult position to play, and there are lot more failures.
+- We don't like to acknowledge that we're getting older. None of us do.
+- I'm not going anywhere. My dad lived to be 102. And we've got Super Bowls to win.
+- Experience shows that those people who were selected to be a head coach in the NFL met with more success if they had had head-coaching experience.
+- I'm not ill. I'm healthy. I'm not going anywhere. We've got Super Bowls to win.
+- We can take action with a player without the league taking any action. But all that we can do is, we can deactivate him. But we're limited under the collective bargaining agreement to four games.
+- The radiation was worse by far. I had bandages all over my head. I looked like a mummy. On the side of my head and neck and down to my collarbone, I had second-degree burns. My skin blistered and peeled before it grew back. That was the worst part of it.
+- If a team needs new facilities, and they've been unsuccessful for a long period of time, and the local community is not being responsive, then I think it's a possibility that team might get a vote to relocate.
+- When you're under stress, your immune system doesn't work as well.
+- The franchise tag is worth something to the team, and you can't be afraid to use it.
+- I knew I wasn't going to play professional basketball.
+- I didn't think I was going to die. I knew some did. I knew there were some rumors.
+- Look at Baltimore back in 2000. They had an outstanding defense. They could run the ball, and they had a quarterback that didn't turn it over that much. I think that is a plan that can bring you great success.
+- I thought I was in a better position to get a team than anyone else in Houston.
+- I worked for twenty-some years with no capital, so I never had any liquidity. Managing my loans alone wouldn't do it, and working hard twenty-four hours a day seven days a week alone wouldn't do it. You have to be properly capitalized.
+- As a matter of policy from the beginning with our team, there have been three things we've said we won't draft a player: if they've been involved in domestic violence, drug abuse, or if they show lack of respect for authority.
+- If you're going to have a satisfactory standard of living, you're going to have to be competitive in this world. And you can't be competitive if you don't have a good education.
+- Sometimes, in order to be successful, a business must reset.
+- The team comes first. We want to keep all of our players. We want to take care of all of our players, but the team comes first.

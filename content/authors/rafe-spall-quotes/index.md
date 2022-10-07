@@ -1,0 +1,25 @@
++++
+author = "Rafe Spall"
+title = "Rafe Spall Quotes"
+quotes_len = "19"
+description = "the best 19 Rafe Spall Quotes"
++++
+- I never mind talking about my dad. I'm proud of who he is, and being his son is one of the things I'm most proud of. To be constantly compared to someone so brilliant, who happens to be your dad, is cool.
+- I've done loads of things people have never seen - dramas on BBC4 and plays upstairs at the Royal Court and the Bush - and because I didn't go to drama school, they gave me an education.
+- By the age of 18, I was very fat. My dad would say there's a Spall fat gene. But I was fat because I ate loads. I used to go and buy six or seven chocolate bars and eat my way through them.
+- My dad's one of the funniest men in the world. I grew up with him making me laugh so much I'd beg him to stop.
+- There's nothing so unattractive as vanity... particularly male vanity.
+- My mum and dad have always enjoyed life, and it's something that's been instilled in me. I wake up in a good mood most mornings.
+- Because I was always a fat child, I got fatter and fatter, and I ended up 18 stone and with a 40-inch waist.
+- Every audition I get, I agonise over and I put everything I can into it.
+- As an actor, you try and be cool, but one of the reasons you become an actor is because you're a film fan. And then you're like, 'Oh my God, Ridley Scott just spoke to me!'
+- One of the biggest gifts you can give a child is confidence, because confidence will take you miles - more than talent, more than anything else. So yes, I want my children to have confidence and to be kind.
+- My biggest ambition over everything is to have kids. It feels great. I'd love a big family.
+- If you're a casting director, you're going to be curious to see what Timothy Spall's son is like. But when you get in the door, you have to have something to offer.
+- Being kind is the most important thing I've ever been taught. That's what my parents always told me - more important than ambition or success is being kind to people. The cornerstone of my life. What I aspire to is to be kind.
+- It's properly scary playing a leading man. Growing up, I always wanted to be a character actor.
+- I'm sure that my father becoming seriously ill when I was 14 had a lot to do with my going from chubby to fat.
+- For a man, there's a big responsibility that comes with having a boy because men are made by their fathers. If you've got a good productive man around it's better. I have such a close relationship with my dad and that responsibility to produce a good man is something I think about.
+- I'll probably always be 'Timothy Spall's son' and it's something I'm proud of. Maybe one day as well as that, they'll say of Timothy Spall that 'He's Rafe Spall's dad'.
+- Doing 'Prometheus' was what you imagine being an actor is like when you're five. In a spacesuit, on another planet, getting killed by an alien. It was a real treat; it felt like being a part of movie history.
+- When you do a film, you get picked up in a car, lunch is free. Theatre is really hard, and you get absolutely no money.

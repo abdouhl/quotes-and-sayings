@@ -1,0 +1,27 @@
++++
+author = "Ryan Frazier"
+title = "Ryan Frazier Quotes"
+quotes_len = "21"
+description = "the best 21 Ryan Frazier Quotes"
++++
+- My interest in this Senate seat really had nothing to do with President Obama's success. I've been convinced that the right person can win, regardless.
+- If you do right by people, and you talk to the basic issues most people care about and have a vision for how we can achieve so much more as a country, as a community, I believe that resonates with people.
+- My goal is to give our taxpayers greater access and visibility into how their taxpayer dollars are being spent.
+- People realized that I'm willing to stand up for things that I believe in, despite the political consequences and overwhelming pressure.
+- I know what it takes to win. I know a general election is going to come down to not only Republican voters but my ability to connect with independent and women voters.
+- I had dreams of high political office.
+- I chose the Republican Party because of the principles the party was founded on. This was the party of freedom. This was the party that sought the abolition of slavery.
+- Good jobs that allow Coloradans to pursue their dreams and provide for their families are vital to a prosperous country and empower each person.
+- I just care about the heart and soul of our country and the direction it's headed in.
+- I was very thankful that my mother was a very strong mom. She was mom and dad. She is mom and dad. She is my hero.
+- We must re-ignite that American spirit in order to create good jobs, to keep America safe from terror, to replace Obamacare with consumer choice solutions, and to secure our borders.
+- Does racism exist in this country? Sure. But I think the overwhelming majority of Americans who care about this country do not care about skin color.
+- As a kid, watching your dad leave, that's pretty powerful.
+- I've found throughout life that people do not care how much you know until they know how much you care.
+- I share certain conservative values, but I also believe there is a certain humanity in the basic way you treat people.
+- I got kicked out of Harvard after three weeks.
+- In order for Republicans... to grow its ranks, it must reflect America.
+- The U.S. should incentivize energy production instead of penalizing it.
+- I was always the one pushing the envelope, stirring things up, sometimes getting in trouble. I was always the first one to get a spanking as a kid.
+- It's going to take more than a handslap to keep me from fighting for what I believe.
+- As a father, small businessman, Navy intelligence veteran, and co-founder of a public charter school, I'm ready to bring common-sense solutions to how we move America in a better direction.

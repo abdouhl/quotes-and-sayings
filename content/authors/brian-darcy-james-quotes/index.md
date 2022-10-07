@@ -1,0 +1,12 @@
++++
+author = "Brian D'Arcy James"
+title = "Brian D'Arcy James Quotes"
+quotes_len = "6"
+description = "the best 6 Brian D'Arcy James Quotes"
++++
+- I have a hard time listening to things I've recorded. I don't necessarily go back and enjoy it. Occasionally I'll have the iPod on shuffle and something will come on. Nine times out of ten I'll wince and go on to the next one.
+- I sang a lot growing up; I always loved music.
+- Most actors are very grateful for what is as opposed to what will be. You spend 98% of your time looking for a job, so when you get it, it's fantastic.
+- I know how I felt when I saw things like 'Fame' on television when I was growing up and how that was an exceptional magnet for me to want to explore the theater. I can only assume that 'Smash' is doing that for anyone who is halfway interested in theater already.
+- I've always wanted to give 'Hamlet' a shot. It's the big one, you know. I haven't done Shakespeare professionally, so I think it would be terrifying.
+- My younger sister's a comedian. She has a sketch comedy group in Chicago called Schadenfreude and I look at her with such admiration and envy because it's such an amazing thing to make someone laugh.

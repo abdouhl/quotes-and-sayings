@@ -1,0 +1,18 @@
++++
+author = "Rupert Holmes"
+title = "Rupert Holmes Quotes"
+quotes_len = "12"
+description = "the best 12 Rupert Holmes Quotes"
++++
+- But thankfully, my first album, 'Wide Screen,' was sort of a critics' darling - everyone raved about it, but no one bought it. They only manufactured 10,000 copies; I wasn't even in the running for failure!
+- I think writing for a world one has invented can be infinitely more interesting than writing for the world we've all inherited.
+- I've tried in my career to do most everything, because it all intrigues me. And I've found the first time I work in a new form, I discover all the things that make that an exciting medium. I've been very busy most of my career. I've had very few vacations.
+- Having in my life been bitten by the jaws of both victory and defeat, I must rush to add that success is to failure as butter pecan ice cream is to death.
+- The truth is, I initially became a singer-songwriter while still in my teens because it was the only way to guarantee that somebody on earth would sing the songs I was writing. Since then, I've performed just about everywhere: rock clubs, concerts halls, arenas, TV.
+- As much as the mystery element is all a lot of fun, when you do go to 'Edwin Drood,' you're going to a theatre to see a show about going to a theatre and what that relationship between actors and audiences has been for years.
+- I type even faster than I talk. I'm very proud of that. I type so fast. And I have to because the characters are living in real time and I've got to keep up with them. It's a miracle they even give me a royalty.
+- I didn't want much. I wanted much more. In fact, I wanted everything.
+- A lot of my early career, I wrote story songs that had narratives, that had plots.
+- I first had the thought about making a musical of 'Edwin Drood' as far back as 1971.
+- I always try to keep in mind that while the characters in a farce may find themselves in outrageous dilemmas, and may behave in a way that the audience finds amusing, the characters themselves don't have the consolation of knowing they're in a comedy.
+- In all my years of performing, no audience member has ever actually assaulted me. I consider this to be the singular triumph of my performing career.
