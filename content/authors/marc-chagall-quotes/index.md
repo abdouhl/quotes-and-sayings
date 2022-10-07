@@ -1,0 +1,17 @@
++++
+author = "Marc Chagall"
+title = "Marc Chagall Quotes"
+quotes_len = "11"
+description = "the best 11 Marc Chagall Quotes"
++++
+- The fingers must be educated, the thumb is born knowing.
+- All colors are the friends of their neighbors and the lovers of their opposites.
+- Work isn't to make money; you work to justify life.
+- If I create from the heart, nearly everything works; if from the head, almost nothing.
+- When I am finishing a picture, I hold some God-made object up to it - a rock, a flower, the branch of a tree or my hand - as a final test. If the painting stands up beside a thing man cannot make, the painting is authentic. If there's a clash between the two, it's bad art.
+- I work in whatever medium likes me at the moment.
+- Great art picks up where nature ends.
+- I adore the theater and I am a painter. I think the two are made for a marriage of love. I will give all my soul to prove this once more.
+- Only love interests me, and I am only in contact with things that revolve around love.
+- The dignity of the artist lies in his duty of keeping awake the sense of wonder in the world. In this long vigil he often has to vary his methods of stimulation; but in this long vigil he is also himself striving against a continual tendency to sleep.
+- In our life there is a single color, as on an artist's palette, which provides the meaning of life and art. It is the color of love.

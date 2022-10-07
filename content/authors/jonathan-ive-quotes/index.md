@@ -1,0 +1,108 @@
++++
+author = "Jonathan Ive"
+title = "Jonathan Ive Quotes"
+quotes_len = "102"
+description = "the best 102 Jonathan Ive Quotes"
++++
+- It's a very strange thing for a designer to say, but one of the things that really irritates me in products is when I'm aware of designers wagging their tails in my face.
+- There are 9 rejected ideas for every idea that works.
+- The benefit of hindsight is we only really talk about those things that did work out.
+- We shouldn't be afraid to fail- if we are not failing we are not pushing. 80% of the stuff in the studio is not going to work. If something is not good enough, stop doing it.
+- Deep in the culture of Apple is this sense and understanding of design, developing, and making. Form and the material and process - they are beautifully intertwined - completely connected.
+- It's easy to think that craft can't change but important to remember that all craft process was at some point new, at some point challenged convention - not to be contrary, but enabled by some breakthrough, some newly discovered principle, or sometimes some wonderful accident.
+- I feel that it's lovely when, as a user, you're not aware of the complexity.
+- It's great if you can find what you love to do. Finding it is one thing, but then to be able to practise that and be preoccupied with that is another.
+- I am keenly aware that I benefit from a wonderful tradition in the UK of designing and making.
+- Apple's Industrial Design team is harder to get into than the Illuminati, and part of the reason is because no one leaves. In the last 15 years, not one of the 18 designers has ditched Apple for greener pastures.
+- Often when I talk about what I do, making isn't just this inevitable function tacked on at the end.
+- Once, even the simple metal needle challenged the conventional thinking of a time.
+- I think it's important that we learn how to draw and to make something and to do it directly. To understand the properties you're working with by manipulating them and transforming them yourself.
+- There was a 'Wired' cover that had a big Apple logo with a crown of barbed wire as thorns, and underneath it just said, 'Pray.' I remember this because of how upsetting it was. Basically saying either it's going to just go out of business or be bought.
+- Apple's goal isn't to make money. Our goal is to design and develop and bring to market good products.
+- With a father who is a fabulous craftsman, I was raised with the fundamental belief that it is only when you personally work with a material with your hands, that you come to understand its true nature, its characteristics, its attributes, and I think - very importantly - its potential.
+- It's easy to assume that just because you make something in small volumes, not using many tools, that there is integrity and care - that is a false assumption.
+- If you are truly innovating, you don't have a prototype you can refer to.
+- It's difficult to do something radically new, unless you are at the heart of a company.
+- What I love about the creative process, and this may sound naive, but it is this idea that one day there is no idea, and no solution, but the next day there is an idea. I find that incredibly exciting and conceptually actually remarkable.
+- So much of my background is about making: physically doing it myself.
+- The form of computers has never been important, with speed and performance being the only things that mattered.
+- All I've ever wanted to do is design and make; it's what I love doing.
+- Simplicity is not the absence of clutter, that's a consequence of simplicity. Simplicity is somehow essentially describing the purpose and place of an object and product. The absence of clutter is just a clutter-free product. That's not simple.
+- Our goal is simple objects, objects that you can't imagine any other way.
+- Growing up, I enjoyed drawing, but it was always in the service of an idea. I drew all the time, and I enjoyed making.
+- One of the things that is particularly precious about working at Apple is that many of us on the design team have worked together for 15-plus years, and there's a wonderful thing about learning as a group. A fundamental part of that is making mistakes together.
+- I think if you do something and it turns out pretty good, then you should go do something else wonderful, not dwell on it for too long. Just figure out what's next.
+- When you're trying to solve a problem on a new product type, you become completely focused on problems that seem a number of steps removed from the main product. That problem solving can appear a little abstract, and it is easy to lose sight of the product.
+- I get an incredible thrill and satisfaction from seeing somebody with Apple's tell-tale white earbuds. But I'm constantly haunted by thoughts of, is it good enough? Is there any way we could have made it better?
+- As a kid, I remember taking apart whatever I could get my hands on.
+- We won't be different for different's sake. Different is easy... make it pink and fluffy! Better is harder. Making something different often has a marketing and corporate agenda.
+- What we make testifies who we are. People can sense care and can sense carelessness. This relates to respect for each other and carelessness is personally offensive.
+- Make each product the best it can be. Focus on form and materials. What we don't include is as important as what we do include.
+- Every new car, you open the door, and you look at all those internal mellifluous swoopy bits, and they have no meaning.
+- My focus is incredibly narrow. I can't talk with any authority other than design and development of product.
+- One thing most people don't know is that Steve Jobs is an exceptional designer.
+- When you feel that the way you interpret the world is fairly idiosyncratic, you can feel somewhat ostracized and lonely.
+- Our goal is to desperately make the best products we can. We're not naive. We trust that if we're successful and we make good products, that people will like them. And we trust that if people like them, they'll buy them. And we figured out the operation and we're effective. We know what we're doing, so we'll make money, but it's a consequence.
+- I like to work in a small team. There is only 18 of us on the design team. Nobody has ever left.
+- Good is the enemy of great.
+- I left London in 1992, but I'm there 3-4 times a year, and love visiting.
+- The nature of having ideas and creativity is incredibly inspiring.
+- That's just tragic, that you can spend four years of your life studying the design of three dimensional objects and not make one.
+- If doing anything new, you're very used to having insurmountable obstacles.
+- I find that when I write, I need things to be quiet, but when I design, I can't bear it if it's quiet.
+- When you do everything to make the very best product, it also means you're very focused on just a few products.
+- I don't know how we can compare the old watches we know with the functionality and the capability of the Apple Watch.
+- Designing and developing anything of consequence is incredibly challenging.
+- Unless we understand a certain material - metal or resin and plastic - understanding the processes that turn it from ore, for example - we can never develop and define form that's appropriate.
+- It is sad that so many designers don't know how to make. CAD software can make a bad design look palatable! It is sad that four years can be spent on a 3D design course without making anything! People who are great at designing and making have a great advantage.
+- If you expect me to buy something where all I can sense is carelessness, actually I think that is personally offensive.
+- The best ideas start as conversations.
+- I think subconsciously people are remarkably discerning. I think that they can sense care.
+- There's no learning without trying lots of ideas and failing lots of times.
+- The computer industry is creatively bankrupt.
+- Successful collaboration, in your mind, could be that your opinion is the most valuable and becomes the prevailing sort of direction. That's not collaborating.
+- Manufactured objects testify to who made them; they describe values.
+- There is beauty when something works and it works intuitively.
+- If something is not good enough, stop doing it.
+- True simplicity is, well, you just keep on going and going until you get to the point where you go, 'Yeah, well, of course.' Where there's no rational alternative.
+- Making the solution seem so completely inevitable and obvious, so uncontrived and natural - it's so hard!
+- When something's made in the smallest volume - as a one-off couture piece - or in large quantities, deep care is critical to determine authentic, successful design and, ultimately, manufacture.
+- I'm always focussed on the actual work, and I think that's a much more succinct way to describe what you care about than any speech I could ever make.
+- I think a beautiful product that doesn't work very well is ugly.
+- I always like when you start to use something with a little less reverence. You start to use it a little carelessly, and with a little less thought, because then, I think, you're using it very naturally.
+- People's interest is in the product, not in its authorship.
+- There's no other product that changes function like the computer.
+- Eight years of work can be copied in six months. It wasn't inevitable that it was going to work. A stolen design is stolen time.
+- We struggle with the right words to describe the design process at Apple. But it is very much about designing and prototyping and making.
+- I discovered at an early age that all I've ever wanted to do is design.
+- You learn a lot about vital corporations through non-vital corporations.
+- Innovation at Apple has always been a team game. It has always been a case where you have a number of small groups working together.
+- To design something really new and innovative you have to reject reason.
+- I think that we're on a path that Apple was determined to be on since the '70s, which was to try and make technology relevant and personal.
+- Why is it when we have a bad experience with a product, we assume it is us, but a bad experience with food, we blame the food?!
+- When something exceeds your ability to understand how it works, it sort of becomes magical.
+- Even in high school, I was keenly aware of this remarkable tradition that the U.K. had of designing and making.
+- There is a clear goal and it isn't to make money. The goal is to desperately try to make the best products we can. We are not naive - if you trust it, people like it, they buy it and we make money. This is a consequence.
+- We try to develop products that seem somehow inevitable, that leave you with the sense that that's the only possible solution that makes sense.
+- The iPhone was broadly dismissed. The iPod was broadly dismissed. The iPad was probably more copiously written off as a large iPod.
+- The thing with focus is that it's not this thing you aspire to, like, 'Oh, on Monday I'm going to be focused.' It's every single minute: 'Why are we talking about this when we're supposed to be talking about this?'
+- Perhaps I'd like to design cars, but I don't think I'd be much good at it.
+- Different' and 'new' is relatively easy. Doing something that's genuinely better is very hard.
+- It never ceases to amaze me what it takes to develop and bring to mass production a product.
+- Our goal isn't to make money. Our goal absolutely at Apple is not to make money. This may sound a little flippant, but it's the truth. Our goal, and what gets us excited, is to try to make great products.
+- We knew that iMac was fast; we didn't need to make it ugly.
+- I am very aware that I'm the product of growing up in England and the tradition of designing and making, of England industrialising first.
+- You cannot disconnect the form from the material - the material informs the form.
+- 'Design' is a word that's come to mean so much that it's also a word that has come to mean nothing.
+- At the start of the process the idea is just a thought - very fragile and exclusive. When the first physical manifestation is created everything changes. It is no longer exclusive, now it involves a lot of people.
+- When we started work on the iPhone, the motivation there was we all pretty much couldn't stand our phones, and we wanted a better phone.
+- We all use something - you can't drill holes with your fingers. Whether it's a knife, a needle, or a machine, we all need the help of a device.
+- A small change at the beginning of the design process defines an entirely different product at the end.
+- What I think is remarkable is the force of habit and the fact that while we can have a practice for doing something that has been repetitive and established over many, many years, it doesn't actually mean there's any virtue to doing it that way at all.
+- There are some shocking cars on the road.
+- When you're doing something for the first time, you don't know it's going to work. You spend seven or eight years working on something, and then it's copied. I have to be honest: the first thing I can think, all those weekends that I could have at home with my family but didn't. I think it's theft, and it's lazy.
+- It's important to remember that Britain was the first country to industrialize, so I think there's a strong argument to say this is where my profession was founded.
+- The emphasis and value on ideas and original thinking is an innate part of British culture, and in many ways, that describes the traditions of design.
+- We won't do something different for different's sake. Designers cave in to marketing, to the corporate agenda, which is sort of, 'Oh, it looks like the last one; can't we make it look different?' Well no, there's no reason to.
+- My father was a very good craftsman. He made furniture, he made silverware and he had an incredible gift in terms of how you can make something yourself.
+- One person's car is another person's scenery.

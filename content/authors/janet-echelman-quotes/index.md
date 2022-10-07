@@ -1,0 +1,25 @@
++++
+author = "Janet Echelman"
+title = "Janet Echelman Quotes"
+quotes_len = "19"
+description = "the best 19 Janet Echelman Quotes"
++++
+- When ideas are young and vulnerable, criticism can be lethal.
+- The spaces I want to be in are nurturing and soft and saturated with color. Our cities don't have enough of that, and as humans we need it.
+- In Portugal, my sculpture 'She Changes' refers to the town's fishing history, to the era of seafaring trade and discovery. The contemporary site is industrial, surrounded by red and white striped smokestacks, which is mirrored in the pattern of the sculpture.
+- I never studied sculpture, engineering or architecture. In fact, after college I applied to seven art schools and was rejected by all seven.
+- Once I began to hear and pay attention to my fledgling ideas, the biggest hurdle was to learn how to respect them. That was hard, because the real way to respect an idea is to invest the attention and work needed to develop it.
+- In my regular life, I am very involved in commissions for cities and sometimes countries. And I think of public art as a team sport. The outcome is only possible with the interaction of all the players.
+- My whole career I've been interested by the distinction between an emotional and an intellectual response to an artwork.
+- You can't stumble upon something new and wonderful if you don't have time to stumble.
+- Advances in technology have opened up possibilities in the cultural realm throughout history. I'm intrigued by developments in technology - as an artist it gives me a new palette to explore.
+- When developing an idea, I remind myself not to start with compromise. I envision the ideal manifestation of the idea, as if I had no limits in resources, materials, or permission.
+- The most powerful part of the art is experiential, yet it's the hardest to describe because it's nonverbal.
+- It's good for art to make us think, to give us a shared experience that creates a dialogue, makes us talk to each other, including strangers.
+- I believe that public space should be intentional: it should be obvious that you belong.
+- I recognize that it is through the engagement with my craft - by recognizing an idea and drawing it out, building physical models, collaborating with experts, constructing the sculptures at urban scale, and maintaining them through years of weather and interaction with the public - that a new art for cities has become real.
+- In Amsterdam, the river and canals have been central to city life for the last four centuries.
+- As a child, I always enjoyed building forts by stringing up bed sheets and clothes. I continue to be inspired by makeshift structures, including my own kids' forts and temporary architecture of all sorts.
+- I pay two full-time assistants in my studio, plus consultants who are architects, engineers, and landscape architects, as well as lighting designers.
+- Whether being battered by the surf or swimming through the gentle undulating surface of lakes, I find inspiration in the movement of water. Sometimes I think about the journey the water has traveled, reconnecting me to the larger cycles of nature.
+- I believe people can have a profound experience by being surrounded by something beautiful - that's what I aim for. My sculpture is about the way you feel when you're standing under it and inside it. It's experiential art.

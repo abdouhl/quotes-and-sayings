@@ -1,0 +1,29 @@
++++
+author = "Gail Carson Levine"
+title = "Gail Carson Levine Quotes"
+quotes_len = "23"
+description = "the best 23 Gail Carson Levine Quotes"
++++
+- My interest in the theater led me to my first writing experience as an adult. My husband David wrote the music and lyrics and I wrote the book for a children's musical, 'Spacenapped' that was produced by a neighborhood theater in Brooklyn.
+- I wrote as a kid, but I never wanted to be a writer, particularly. I had been drawing and painting for years and loved that.
+- My good ideas are shy. But if they see that I treat the stupid ideas with respect, they come forward.
+- 'EIla Enchanted' began in a marvelous writing course at New York City's The New School.
+- As a child, I loved fairy tales because the story, the what-comes-next, is paramount. As an adult, I'm fascinated by their logic and illogic.
+- Ideas sometimes come from nowhere, and sometimes they take lots of thinking.
+- I had to write something and couldn't think of a plot, so I decided to write a Cinderella story because it already had a plot! Then, when I thought about Cinderella's character, I realized that she was too much of a goody-two-shoes for me, and I would hate her before I finished ten pages.
+- I make mistakes on a very grand scale.
+- Most of my job life has had to do with welfare, first helping people find work and then as an administrator. The earlier experience was more direct and satisfying, and I enjoy thinking that a bunch of people somewhere are doing better today than they might have done if not for me.
+- Get to know your kids' minds and how they think.
+- It feels presumptuous to think of writing for adults.
+- Most of the authors I liked were dead, so it didn't seem like a safe occupation.
+- I found that I was much more interested in writing and that I didn't like the illustrating at all. I had always been the hardest on myself when I drew and painted. I am not hard on myself when I write. I like what I write, so it is a much happier process.
+- I loved fairy tales as a kid, so that's where my mind gravitates.
+- I was excited to make my own 'Neverland.'
+- I didn't want to be a writer. First I wanted to act, and then I wanted to be a painter like my big sister.
+- I have a very vivid memory of the way my parents spoke, and the 50's that I grew up in are closer to the 20's, I think, than today in many, many ways.
+- If a big person invests time in reading, kids learn reading is important, the child is important, words are important, stories are important.
+- Sometimes the kids come up with better endings than the real story.
+- Contemporary fiction is the hardest for me because I am not really in the popular culture - I don't watch TV.
+- Managing to tell a story is very gratifying.
+- Encourage children to write their own stories, and then don't rain on their parade. Don't say, 'That's not true.' Applaud flights of fantasy. Help with spelling and grammar, but stand up and cheer the use of imagination.
+- I grew up in New York City. In elementary school, I was a charter member of the Scribble Scrabble Club, and in high school, my poems were published in an anthology of student poetry.

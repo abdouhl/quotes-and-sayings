@@ -1,0 +1,30 @@
++++
+author = "Maximillian Degenerez"
+title = "Maximillian Degenerez Quotes"
+quotes_len = "24"
+description = "the best 24 Maximillian Degenerez Quotes"
++++
+- No wishes are silly, no dreams remain dreams, for those committed to clear and definitive goals.
+- Feed your brothers and sisters simply, graciously, with generous care, and you will secure a place in their heart.
+- Live riotously lest not you regret the minutes, moments, hours and days of time gone by.
+- A brainy person does not abuse copyright; instead they respect it and uphold it.
+- When you have had a taste of excellence, you cannot go back to mediocrity.
+- I'd drown in a sea of tears if I lived my life ruminating on the past. I would undoubtedly revise memories to be more joyful that they were, or ever have been.
+- I always knew I was brainy. It struck me when I was a child that I wanted to be an adult because I never felt I belonged among children whose minds were so much simpler than mine.
+- True health infuses positive energy in the mind, body and spirit; it is a main focus in my life.
+- Insight into character comes from listening intently to the spoken word. The physical person, their charisma, charm and dramatic flair is more often used to persuade audiences, as they use these stealth tools of disguise and deception.
+- Celebrate life in all its glory - challenge yourself to let the routine sing, and the new dance.
+- Be humble, be gracious, and make peace with inner fears before stepping out into the limelight and allowing yourself to be subjected to all of humanity.
+- Cross the meadow and the stream and listen as the peaceful water brings peace upon your soul.
+- Delayed gratification is a sweet lesson whose teacher knows the best is not right now, it is yet to be.
+- Ripen your mind to the glorious history of the ages and revel in your mastery as today's youth shall look upon you as a sage.
+- Hope and wishes for all that delights will sour in the midst of action not taken and words unsaid.
+- Dig into life with wild roving abandon, opening your mind to the delicious possibilities that perplex the mind, entice the heart, and excite the spirit.
+- Entrepreneurs are misfits to the core. They forge ahead, making their own path and always, always, question the status quo.
+- The brainy class is made up of individuals who think for themselves and beyond formal education are continuous learners who tend to be self-taught.
+- I took a selfie to prove to myself that I exist!
+- Bare feet on the grass comfort the spirit and connect the body to the earth all at once!
+- Render yourself free to choose, to be, to live, to see.
+- Bridge the gap with closed minds though careful dissection of ideas and solid presentation of fact.
+- When you copy content, you are engaging in a criminal activity. Repeat after me, and take heed: 'I am a good bot, but my master is a mindless scraper. I will tell my master we cannot steal this content!'
+- Step on the moist, pillowsoft earth, walking gingerly aside a weeping steam that calls your name, for it knows how to heal a wounded heart.

@@ -1,0 +1,102 @@
++++
+author = "Jacqueline Fernandez"
+title = "Jacqueline Fernandez Quotes"
+quotes_len = "96"
+description = "the best 96 Jacqueline Fernandez Quotes"
++++
+- It was exciting for me, as I got to be one of the guys in 'Dishoom.'
+- It's fun to work with men. They don't bully you. On the contrary, they guide you and become one of your buddies.
+- My brothers live in Australia and don't really know about Bollywood.
+- I wish actors got more credit for humour.
+- I'd love to venture out into some international work. I would like to do some work in Sri Lanka as well.
+- I think what happens is, people do just want to see you as a glamour doll that's put up on screen, but I guess it's how you see yourself.
+- I am overwhelmed with the love I have been receiving.
+- Oils have the most wonderful effect on the complexion due to their high affinity with the skin.
+- What motivates me is that the best is yet to come.
+- I am very particular about cleansing.
+- I love the fact that Bollywood is getting so much more globalised. Instead of us looking out there, people are looking to India and coming to us!
+- Being single, I thought would be fun, but it is terribly boring. And I am a romantic, but only when I am in love. I can't force it otherwise.
+- I usually play the role of a glamourous girl or a Miss Goody-two-shoes.
+- Take care of yourself by eating right, sleeping right, and exercising regularly! These are the only rules I swear by. If you follow this religiously and use the right products, your skin and hair will thank you.
+- So far, I'm known for doing more commercial and glamorous roles. But I don't mind doing a short film.
+- Yoga disciplines both the mind and the souls and not just your body. It helps me in having a constant positive outlook in life. I would love my family to adopt this form of fitness as well.
+- Bollywood being Bollywood, you hear promises all the time.
+- The scariest thing about 'Roy' was that it was sync sound. So, I had to worry about my diction all the more along with my emotions, acting, and my dialogues. That was very challenging because it pushed me to work on my Hindi, and in a good way.
+- In terms of my looks in 'Brothers,' it's definitely not a glamourised look. It is very realistic.
+- Salman will always be that special person in my life because he was able to change my career. I will never ever forget what he has done for me. On the personal front, too, he has advised me as a friend and family, something I couldn't have even asked for.
+- Moving to India was challenging being a foreigner. I don't have any family here. I didn't have anyone to guide me. But I never felt for a second that I am not welcome here.
+- Everyone may not go and buy a ticket to watch a movie, but everyone has a television at home. It definitely has a huge reach and a huge connect with the audience.
+- Marriage does figure in my life, as I do want to have children. But I could also consider having children without getting married. The primary thing is having a good father, a partner who could be there with me through that journey.
+- When I entered Bollywood, I didn't have any advantage over anyone. I didn't know how to act, I was not from the industry, I didn't know the language, and I didn't know how to dance. So, whatever films I was getting, I was just taking them up.
+- It took me so much time to build my confidence and say that I can take on more.
+- I think, as an actress, it is amazing to shock your audiences.
+- Karan Malhotra is an amazing director, but he's strict.
+- I enjoy doing comedy.
+- Every time I watch someone's dedication, I get inspired.
+- What Salman and Sajid Nadiadwala have done for me is priceless. I'll do any film for them without a single question.
+- I feel there's always time for relationship.
+- The Bhatts are an amazing family and a production house to work with, and I guess anyone will back me up for this.
+- I'm very used to being in India now and to working with actors and directors I'm comfortable with because I know them already.
+- I always wanted to play with my brothers, but they never let me and always bullied me. The bonding with my brothers happened only after we went our separate ways. That's when we understood the value of each other. Now, we talk a lot.
+- We all portray a lot of characters, and once we get into a shot, we have to come out of our skin and be a completely different person.
+- 'Flying Jatt' is a different and interesting script.
+- I am passionate about spreading awareness about Sri Lankan food.
+- Actresses cannot have any inhibitions while portraying bold characters. It is something that we learn on the first page of the book on acting.
+- I'm concentrating on my career, which is my top priority. The rest will follow eventually.
+- Industry has been very good to me. I am glad that destiny brought me here.
+- I don't like being over-friendly, as people could take me for granted.
+- Bollywood is getting bigger and better.
+- I have a restaurant in Sri Lanka, and I feel keen to open up something here in Mumbai and bring Sri Lankan food here in India. I feel we have so much in common, but we have a different cuisine, and I am sure people will enjoy here.
+- The reason I prefer working with established actors and stars is because they are more popular, and the film reaches out to more people and do well in terms of numbers, too.
+- It's a great feeling when your work is appreciated.
+- I think it's really important for actors to add some shock value to whatever they do. I think the audience gets bored very easily, and it's really important to keep experimenting.
+- I would recommend all girls to please oil their hair at least once a week.
+- Comedy is one of the toughest genres. It is so essential to get the timing right, failing which the humour can fall flat.
+- I was very confused in the beginning about my red carpet appearances and wanted to try every look, be it grungy, girly, punk or bohemian.
+- When it's the same team that's created magic at the box office in the past, you know you are in safe hands.
+- I know, whoever visits my restaurant, they have loved the food.
+- Salman is genuinely a nice man who helps people. He is someone who I trust blindly. I think he has been an important person in my life.
+- I am really excited about my next films, as I am working with big names like Salman and Ranbir.
+- I believe in clean skin and using a good cleanser, toner, and moisturiser.
+- The most important thing is that you don't bore the audience.
+- You can literally see the radiance and suppleness being restored and dull skin coming back to life as all of those incredible nutrients go to work, that is why I just love The Oils of Life range from The Body Shop. I also love indulging in home spa treatments.
+- During 'Race 2,' I had to lean down completely because there was a lot of action scenes in it.
+- Neither am I on an extreme diet nor am I on an extreme workout.
+- English is my first language, but when I started shooting for 'Definition of Fear,' I actually had trouble with my lines! It was so weird, because I never have trouble with my lines in Hindi!
+- Post 'Kick,' I was flooded with offers. The film has given me a solid fan base even in Dubai and Bahrain.
+- I am a director's actress in general - I depend a lot on them.
+- I never hide anything.
+- I believe in love but just have not found anyone.
+- In comedy, if you don't have the right tuning with your co-actor, the humour can fall flat.
+- I wouldn't say it's effortless for me to be glamorous.
+- I can't stand fake people. I can feel it when someone feigns it.
+- The only thing that comes naturally to me is my energy.
+- Being professional makes it easier for me to say no, be honest, and not feel bad about it. However, that doesn't mean that you stay aloof.
+- Since I was as young as I can remember, my dolls became my babies. I still have my teddy bear from childhood that I named Mama Bear because, actually, I wanted to be the mama.
+- The first time I joined the gym was during the Miss Sri Lanka pageant in 2006. Then, I went for the Miss Universe contest where I was exposed to girls who were very fit for their age. They could have joined the Olympics. They were doing crazy exercises.
+- Before I was cast for 'Brothers,' we all knew that Karan Johar was looking for an actress for to play a mother's role. I never thought that he would think of casting me.
+- It is important to choose your director and co-stars well.
+- I have a very active team who works with me when it comes to my styling and putting together a look.
+- I have two brothers and a sister. I am the youngest in the family and was a bit of a tom boy.
+- I have spent quite some time in Malaysia, as my mother is from there. And shooting there was a great experience.
+- I would love to have children, as I am such a mommy. I have always been like that.
+- In 'Brothers,' I am going into a zone that is something that I have not done. It's a very simple and desi character. It's also a character that I think a lot of people would not have expected me to do.
+- Actresses are usually either the love interest or the glam quotient in a movie, but I play a strong character in 'Dishoom' who is at par with the guys, thanks to director Rohit Dhawan and his out-of-the-box thinking.
+- One of my brothers is a body builder, and the other is an accountant. Both of them live in Australia, so I rarely get to see them. My sister lives in the U.S.
+- When I look at offers, I think about the entire package and how it is going to work in my favour or how it's going to project me.
+- A dancing movie with Remo is something I would love to take up.
+- As a girl, I love the joy, luxury, and effortlessness of experiencing a pedicure on the go.
+- I've never raised my hand on anyone in my whole life. I feel it's barbaric.
+- This will sound really funny, but I'm so used to shooting in Hindi that shooting in English took a while to get used to.
+- I love how our industry always stands united.
+- When I first came to India from Sri Lanka, people were surprised to see my toned arms. I had come right after the Miss Universe pageant.
+- I am single and enjoying it. My work is keeping me busy.
+- Our craft is all we have. So, we should keep it challenging and exciting. Else, there's no actual growth.
+- If you are insecure, then you can't be friends with anyone.
+- When I am in love, I am ridiculously and hopelessly romantic.
+- I always seek one quality in my friends - that they should be genuine.
+- Beautiful feet are coveted by all women, everywhere of all ages, especially when they want to look their best and show off those strappy heels.
+- When it comes to my skin, I experiment with a lot of home remedies.
+- Don't be afraid to admit what your dreams are.
+- We are trying to push the envelope with a lot of characters in 'Brothers.' We are going out of the way and being honest to our roles.
+- When buying beauty products, I always check the ingredients. The product should be sourced from natural ingredients. It should have not been tested on animals, as I am against animal testing, and it should be soft on the skin.

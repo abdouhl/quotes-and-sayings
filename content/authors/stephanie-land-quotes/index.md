@@ -1,0 +1,106 @@
++++
+author = "Stephanie Land"
+title = "Stephanie Land Quotes"
+quotes_len = "100"
+description = "the best 100 Stephanie Land Quotes"
++++
+- Once I thought that if you had a house on a hill with a fence and 2.5 baths and 3.5 kids, that was happiness. I naively thought that if I lived in a house like that there was no reason for me to be stressed or depressed, that the things I was experiencing would be untouchable and solved and I would do great.
+- It's unreasonable to expect people who scrape to get by to have emergency savings.
+- My family, for generations, has struggled through the effects of working blue-collar jobs long past the age of retirement.
+- I worked as a housecleaner through college, but I never considered going through the motions of doing it full-time.
+- I'd worn the same Carhartts and hoodies for years, and only bought clothes when the ones I had tore too many holes.
+- If you work a job outside of the hours a daycare that accepts government grants operates, if you are self-employed or you take classes not approved by federal daycare funding, you will have trouble finding ways around high child care costs.
+- I am, by default, a healthy eater. I limit processed food, eat fresh ingredients, all of that.
+- The poor, and especially poor people of color, don't have the luxury of raising 'free-range' children without risking severe consequences. Parents of color don't receive a visit and a warning if their children are found playing alone; they are immediately blamed and far more likely to be arrested or lose custody of their children.
+- Over the years, as I lived in low-income housing, collected government assistance, and lived well under the poverty level as I put myself through college, the comments people made about poor people started to sting. The poor are dirty. Hoarders. Their houses are a mess. Their kids are wild, untamed, and feral-looking.
+- In the world of Tinder and Bumble, where people keep up the appearance that they are low-key, lacking in any drama and partaking in an Instagram-worthy activity during every free moment between trips overseas, admitting you work from home and have small children orbiting you full-time feels like a drag.
+- Cleaning companies often pay their employees less than a living wage and offer no sick days or health insurance. My years of working for them still made me grimace every time I saw a little yellow car with 'Merry Maids' written on the side.
+- As a single mother for 10 years, I brought in around $12,000 annually.
+- I expect to work for as long as I can. I can't imagine retirement.
+- Sometimes you do not see white faces when you think of poverty. That leads to lots of stigmas, systemic racism and all that.
+- If we can at least make sure that our children are taken care of, that will ease the minds of their parents who are trying to work.
+- Tinder makes it obvious that I'm not alone in being single and that there are plenty of single parents looking for a partner. A date not having the potential I'd hoped for is no longer a tragedy, and suddenly dating is fun again. I no longer feel pressured. I trust that someone, eventually, will like me for me.
+- We don't like to listen to people who are still angry, who are still in poverty, especially people of color.
+- I'd had boyfriends berate me for not having dinner on the table, calling me lazy for sitting around with the grout in the bathroom being dirty. My friends who are moms spoke of their husbands, it was a bit of the same, or they sometimes likened them to an additional child: someone who whined and couldn't accomplish simple tasks.
+- As a mom raising two kids on my own, my life requires a certain kind of constant juggling that is hard to keep on track.
+- I signed my first book contract without paying much attention to what it said. I didn't know at the time that the book would be a best seller or that it would one day inspire a Netflix series. I just needed the money.
+- My day planner is a constant companion as my organizer. And shows me that I am, in fact, getting things done.
+- My mom grew up in extreme poverty, and always spoke of it with a look of disgust. She felt pressured to fit in, and felt shame about her house, clothes, and general appearance.
+- As a mother living in poverty, I don't expect my parenting choices to be respected by default.
+- Keeping the magic alive can be as simple as going to the mall to sit on Santa's lap or reading special stories on Christmas Eve.
+- It shouldn't take a pandemic for us to take notice that millions of people can't afford a single sick day.
+- I would never want people to point at me and say, 'Well, she got herself off of food stamps, so anybody can if they work hard enough.' It's just not true.
+- For me and other families struggling to make ends meet, paying for child care out of pocket is an impossible task.
+- During my last year of college, I maxed out what small available credit I had after declaring bankruptcy in my mid-20s to pay medical bills.
+- It didn't take me long to go from financial stability to fearing homelessness.
+- My life as a mother had been one of skipping meals, always saving the 'good' food, like fresh fruit, for the kids I told myself deserved it more than I did.
+- As a poor person and someone who now writes extensively about social and economic justice, I've often noticed a lack of a focus on poverty appearing in news cycles or in debates among White House contenders.
+- I think especially in academia, we are coached to go the route of paying to submit our writing to small publications, like the presses and the quarterly reviews and all of these that are considered 'prestigious.' As a writer in a college program, that's the route that you're taught to go.
+- You need to listen to people in your own communities and you especially need to listen to people of color.
+- As a single mother, I qualified for Pell Grants, and received a scholarship from a small organization for domestic violence survivors.
+- I don't like to think of goals I set at the new year as resolutions. I like to think of them as summits on my personal mountain. Each year gets me closer to the dreams I want to achieve, and the goals are those benches to sit and enjoy the view along the way.
+- For nearly a decade, I thought it was obvious that I was poor.
+- I expected college to feel like a major accomplishment. I walked across the stage, eight months pregnant with my almost seven-year-old daughter watching in the audience.
+- I think having an infant causes a bit of an identity crisis.
+- To me, the only way we'll see a collective change in this country is by listening to people who have experienced life in the margins of society, who have lived less privileged versions of my story, in systemic poverty and facing structural racism.
+- Hunger changes you. As your body begins to claw at you, your stomach churning in anger, every person who shares a photo of the fancy meal they're about to eat is no longer your friend.
+- I have what's known as a 'spirited' child. Mia has run me ragged since she knew how to walk. She'd run across soccer fields as a toddler, never once looking back. I have learned how to navigate her strong nature while nurturing it as well. I raised her to think for herself. I raised her to question.
+- Christmas has rarely been a joyous time for me. I'm estranged from my family, and sometimes I don't have my oldest daughter with me.
+- As a low-income worker, my take-home pay, at best, was about $200 a week.
+- I have had PTSD since I was in a car accident when I was 16.
+- I didn't always handle the stress of raising my kids on little money well.
+- I graduated from college in 2014 and started freelance writing. I'd write anything that paid, including filling local events calendars for hourly rates.
+- I think there's a huge gap between no longer qualifying for benefits and being able to afford a life without benefits. When I went off government assistance - six months before I got the book deal - there were some months that were lean, I mean literally lean, like I lost a lot of weight. I could barely afford food.
+- Many of my single mom friends and I had a fear of appearing poor, especially when we bought groceries with food stamps, or used WIC checks for milk.
+- Struggling to take care of my daughter on my own, I needed whatever government assistance I qualified for - a few hundred bucks a month in food stamps, free school lunches, childcare vouchers and coupons for milk and cheese - while I simultaneously worked as a maid, juggling 10 clients between going to class to put myself through college.
+- I see my self-identity in the same way I see most things: a list, in greatest to least importance. I've found I can't use the multitude of hats analogy or some kind of flow chart where circles are connected by lines and entwined in Venn diagrams. I need a list. I need a top shelf.
+- Being a single mom, I fought my way through living in poverty, feeling like I wasn't ever enough, feeling an annoying tug that we as a family possibly weren't complete.
+- Employers don't want to hire single moms with kids, because if the kid's sick then they can't work, and it goes on and on and on. It's really incredibly difficult to find a job in that situation.
+- I go through phases where all I want to eat are mashed potato patties with fried eggs, or pasta with meat sauce.
+- I graduated with a bachelor's degree, $60,000 in debt, and due to have a baby in a month.
+- Since Mia, my eldest, was born, we've been through the gamut of shelters, transitional housing and even living in a camper in a driveway.
+- I grew up in what some would call an immaculately clean home. I hated my mom a little for it. I wasn't allowed to paint my nails, since they'd chip and 'look trashy.' My brother and I didn't run around in clothes that had holes or were stained.
+- I don't believe life begins at conception.
+- I grew up exploring my neighborhood and beyond, and would love to give my daughter that kind of freedom.
+- I'm a huge believer in universal childcare.
+- The small things that make Christmas magical are the things children will remember. It doesn't matter what they open on Christmas morning, I don't remember what was in half the boxes I opened as a kid. What mattered were the decorations, the cookies that were mysteriously eaten, and the stockings that were filled.
+- Keeping lice out of schools should be a herd immunity type of attitude. Schools should send home brochures with a plastic comb attached in an envelope.
+- Our main purpose of writing is so we don't feel alone and that others don't feel alone.
+- Public speaking is not something my mind and body are able to do easily. I sweat profusely with shaky hands to match a voice that sometimes cracks. I wake up in the middle of the night obsessing over what I said and if it sounded weird or if I shouldn't have said that.
+- I have a lot in common with most Trump supporters. I'm white, I live in a rural area that is predominantly white where many people struggle to find a job.
+- I worked part-time cleaning houses, and went to school full-time.
+- As a parent you know you want to provide safe, healthy environments for your children.
+- I'm white. I have privileges as a parent that many others don't. Of not only teaching but expecting my daughter to stand up for herself because I have no fear that harm will come to her when she does. I am reassured by her teachers that her willfulness will do her good as she gets older.
+- I've seen, and experienced, the anxiety of not being able to find work for months on end.
+- Once it was clear that Donald Trump would be president instead of Hillary Clinton, I felt sick to my stomach. I wanted to gather my children in bed with me and cling to them like we would if thunder and lightning were raging outside, with winds high enough that they power might go out. The world felt that precarious to me.
+- We need leaders who are able to vividly remember how it feels to experience hardship, trauma and pain, who make us feel less alone.
+- Having the ability to walk to the grocery store, ride my bike miles away to a friend's house, and spend most of the day unsupervised gave me confidence in myself. But I don't give my daughter that same freedom, and I never have, because I fear the possible repercussions.
+- This resounding cry of 'welfare to work' enrages me because something like 75% or 80% of people who are on government assistance are already working.
+- Dating means hope.
+- Single parents do not have the luxury of purchasing an abundance of healthy foods for their kids to try. I know this. As a single mom, I've been there.
+- I think people are fed up with struggling to make ends meet. It's so easy to find yourself in a position of not being able to pay the bills for most Americans when we're watching the cost of housing and child care and health insurance skyrocket without an increase in wage.
+- It was interesting to be in a position where I got to know people through cleaning their houses, but I became disenchanted.
+- I didn't grow up in systemic poverty.
+- I believe in the right to choose. I have chosen to end a pregnancy before.
+- I, for the most part, subsist on very little, high-quality, dense-in-nutrition food.
+- While I'd been in school, I had a nagging thought that it'd be so much easier to quit all this higher education nonsense and get a full-time job at wages low enough to still qualify for government assistance.
+- When people think of chronic fatigue syndrome, they imagine someone simply sleeping a lot or who's always tired. The stigma from that name, and the name itself, desperately needs to change. In reality, sleeping doesn't mean rest at all, and it's never enough.
+- Dating as a single parent is tricky. My kids are usually seen less as a 'bonus' and more as a 'situation.'
+- Nobody wants to admit their kid is the one with lice. Not only because of the work involved in getting rid of them, but because lice are still associated with dirt, grime, neglect and often poverty.
+- As a single mom, I barely had time to get to know and date one person.
+- There's a thing called a 'welfare cliff,' and what happens is you get up to a threshold - which is a very firm line - and if you jump over it, then you lose all of your benefits.
+- Most people don't see themselves as sitting on that bottom rung as a defense mechanism. The more they blame poor people for their poverty, the further they feel from being in the same place. Even the working poor who qualify for food, childcare and housing benefits don't see themselves as such.
+- I think my biggest role as a parent is teaching empathy.
+- I don't think there is a true cure for PTSD.
+- If every parent knew that the best way to prevent lice from spreading is by looking for them, cases decrease dramatically.
+- We need to look marginalized people in our community in the eye and listen to their stories of struggle, heartache and impossibility.
+- Remember The Nothing? It was a gigantic, black storm from 'The Neverending Story' that fed on fear and doubt and sadness and hate and uncertainty and didn't stop until everything was gone. That is what Trump feels like to me.
+- My second daughter's birth stopped time. My world lost its momentum in revolving towards goals and dreams.
+- If we can somehow start to remove shame from struggle, if we can truly see people and care for them as our fellow human beings, we'll start to see how many of us are also fighting in our own way.
+- I had a crazy amount of success as a writer, which isn't normal by any means.
+- There is no planning in a life of fighting to keep a roof over your head. It's pure survival.
+- If parents know how many times others are finding lice on their kids' heads, maybe other parents will not hide their own discoveries in shame.
+- Shortly after my first daughter was born in 2007, we had to move into a homeless shelter.
+- When I saw the letter of acceptance for Snap - the Supplemental Nutrition Assistance Program, popularly known as food stamps - it was a moment of gratitude, and brief catharsis and relief. Still, I knew it wasn't a socially acceptable means to feed my family with. I saw the memes friends posted, chastising people on welfare.
+- Americans, if anything, do not like to be told to cut back.
+- Parents of all income levels deserve options for child care while they work so they can be free of the worry that their children are cared for and safe.

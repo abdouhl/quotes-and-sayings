@@ -1,0 +1,76 @@
++++
+author = "Gavin Creel"
+title = "Gavin Creel Quotes"
+quotes_len = "70"
+description = "the best 70 Gavin Creel Quotes"
++++
+- I want to know that I'm proud of what I'm doing.
+- The most powerful thing we can do is get involved locally. Help our local community and become community activists in our own smaller circle.
+- It doesn't inspire young men and women struggling with their own sexuality to be confident in who they are if I'm not confident in who I am.
+- I don't like to hold too much formality in concerts. It's not that I don't like seeing people who are really polished and put together. But I'm more excited by things that are a little bit breaking apart as you're watching them.
+- I can't live without my music player.
+- Love her or leave her, there is no place quite like N.Y.C.
+- There's no way you can deliver 'the greatest musical of the century.'
+- It's exhilerating to be able to explore my own voice.
+- Tina Fey writes crazy, off-color, racist, hilarious stuff for '30 Rock,' but it's always funny because you're in this almost two-dimensional world where there's Jenna Maroney and these over-the-top characters. That's the framework.
+- I'm not much for formality.
+- I want to be a poster boy for the uncool.
+- I have to be able to have music at all times - to shower to, to listen to, to warm up, to dance.
+- I don't want to fit in. I want to make music that can reach out to people of all different ages and backgrounds and beliefs and turn us into one, groovin, 'Goodtimenation.'
+- I have a Bachelor's of Fine Arts in Musical Theatre.
+- I guess I originally got the bug for performing when I was in choirs and school stuff and all that. I don't know when. I guess I decided to do it because a lot of people said I was good, and I liked the attention.
+- To be an actor, it's really tough to find your own voice because you're always tied to other characters and going to auditions and trying to get a job, hoping they'll pick you. And I think it's just so important for an actor to have something else that's creative, something that's creative and you're in charge of.
+- I think what everybody really wants is attention; we just want someone to pay attention to us.
+- I've always been a believer in the power of art - and music in particular - to inspire change.
+- I have so many passions. I'm just going to keep trying to go forward and see where they take me.
+- I was in 'Hair,' which didn't work in London, but it was a show we all believed in.
+- The funny thing about New York City is that if you hide from her, she's just gonna say, 'Whatever, kid!' and leave you in the dust.
+- We have the ability to change people's minds and hearts - that's what we want to do with theatre. That's what theatre does... period.
+- I think 'Hair' is the kind of show that benefits from the live experience - it needs to be seen and heard.
+- Maybe some of the pronouns have changed, but I've always been honest in my music.
+- After Obama was elected president, the same day Proposition 8 was passed, there was this fire in our belly.
+- At the end of the day, I always maintain you can substitute 'The Book of Mormon' for 'The Bible: The Musical' or 'The Quran: The Musical.'
+- I hope that my lyrics have a way that they're so specific they become universal, and they go, 'Oh I've been there, I know what that's like.'
+- The most real thing of all, the only thing any of us wants, is to matter to somebody. To feel and share love, even on a friendship level or as deep as a romantic one. Who doesn't want that?
+- I have two older sisters who were phenomenal sportsmen.
+- I looked at 'Us Weekly' and said, 'I want to be famous.'
+- I have never really referred to my voice as 'gay.'
+- I wanted to be a movie director. I was just obsessed with watching movies and camera shots and directors. I read autobiographies and stuff of directors.
+- I have been a nomad for most of my thirties, even creatively.
+- I have no idea why we bleed maize and blue, but we do. There's something about Michigan. Maybe it's that we're less jaded out there in the Midwest, I don't know, but it's a love of what we do and each other that brings us together. It's just a magic place.
+- I was really proud to be in that show. I will never forget. I got the script to 'Millie,' and I'm flipping through the script and saying, 'Boy, I have some lines... I have a big song.' I was 25 years old and had never been on Broadway before. I got to the end of the script, and I was really nervous and excited. I realized I had a lot to do.
+- I am not a sex symbol of the Broadway community. I know guys who are, and I say, 'Rock it out.' But I'm more comfortable in a different land. I don't know what land it is, but not that one.
+- I feel that the arts have an impact in a way that just makes the world more beautiful.
+- I am a showoff, the third of three kids.
+- I'm a huge 'South Park' fan, loved 'Avenue Q,' and can not wait to work with Trey Parker, Matt Stone, Bobby Lopez, and Casey Nicholaw.
+- I've always had a plan for my music career.
+- I'm pretty independent.
+- I'm tired of all the angry stuff out there.
+- My mom and dad have always, always, and continue to be the most incredible citizens of the world and most generous in quiet ways, that I strive to do even a fraction of what they do.
+- I love Jason Robert Brown.
+- I don't agree with those in our community who think that, as gay people, we are special and should therefore keep ourselves isolated from certain straight-associated thinking or conventions.
+- When I did 'Thoroughly Modern Millie,' it was almost every 'first' I could have imagined: I dreamt someday being on Broadway, and then dreamt someday playing a lead on Broadway, and then dreamt someday of getting to originate a role, and then getting a Tony nomination. It all happened at once. I was just terrified.
+- Sometimes when I do a musical, they'll be a scene that comes up, and I'm like, 'Oh, I hate this scene,' but you get through it.
+- It's really hard to go into a creative process and not think, 'I might or might not get nominated for a Tony.'
+- Being from the theatre, I am always interpreting someone else's thoughts and feelings.
+- I love Kim Kardashian. There, I've said it.
+- I like creating stuff and projects, but at the same time, I do like sometimes just having a routine with somebody else telling me where to go, what time to be there.
+- I still don't go to gay bars all that often, but the difference now is that I'm not not going because I'm afraid, but rather I'm not going now because I don't want to get off the couch.
+- The tech rehearsal for Brits is so different. They have little glasses of wine and walk around saying, 'Lovely, darling, lovely.'
+- I want to be respected by my peers and do really great work, even if it gets panned, even if I get raked across the coals.
+- Musical theater has sort of always been there for me, but I haven't always treated it with the same reverence as it's treated me.
+- I'd be lying if I said that I didn't want to do a TV show or movie, but life comes first, and then there's business. If this business doesn't allow me to have my life, then I'll do something else and be a happier man.
+- I think the '60s were a time where they were singing about what was going on around them.
+- I was never late to a show more often than 'La Cage.' Because I lived close, and I didn't really do anything in that show.
+- There's something about a live theater performance: You can't fake it.
+- I like singing too much, and I believe in the art form, the musical. When it's great, there's nothing better, and when it's bad, there's nothing worse.
+- I auditioned at four different colleges. When I got into the University of Michigan, my parents said, 'Okay, maybe you do have talent.'
+- I'm sick of people putting boxes around everyone, telling you where and how you have to fit in.
+- My life is my life, and I'll live it.
+- The older I've gotten, and the more that I've worked, I cherish that I'm an Ohio boy because, at the end of the day, I believe that I'm a talented person; I believe that I work really hard, but I think that the main reason I'm successful is because I'm kind, I'm easy to work with, and I'm a team player.
+- When people smile in your direction when you do something, you tend to continue to do it.
+- Some scenes are just more people's thing than others, and I know that my Gay New York is truly whatever I make of it. If I want her loud and lively, she's there. If I want sunsets and starlight, Battery Park, here I come.
+- One thing I wanted to say in my Tony speech, which I didn't because I forgot what I was doing because I couldn't believe the view from where I was standing, was that I really, truly believe in an investment in young people in the arts. It is an investment in a more beautiful world.
+- You put these politicians in office, but then you've got to tell them what you want them to do. And it's intimidating to most people. I was intimidated by it. I mean, calling my senator or writing my senator? I'm like, what do I say? What do I do? But we're showing people that the political process is actually less intimidating than we think.
+- I feel like we're constantly getting better musically, and more of what's in my heart and head is coming through.
+- Watching President Obama, for the first time in my life, one of us was running for president. He seemed like one of us - and I got behind him, and I got excited about his message and what he continues to say he's going to do. The day he was elected president, Prop 8 happened. It was this bizarre dichotomy - world history - good and bad.

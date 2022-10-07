@@ -1,0 +1,100 @@
++++
+author = "Jupp Heynckes"
+title = "Jupp Heynckes Quotes"
+quotes_len = "94"
+description = "the best 94 Jupp Heynckes Quotes"
++++
+- Cristiano Ronaldo is a player who often plays on the left side and moves between the lines.
+- Our standards at Bayern are extremely high, with every training session at very high intensity.
+- You cannot underestimate any team that has qualified for a semi-final.
+- I'm keeping myself busy with hobbies and sport. I have my animals and a huge garden.
+- To win the Champions League for a second time or even to have been in three finals and won two of them is a bit special.
+- I know myself that we goalscorers are selfish and always thinking about our goalscoring ratio.
+- Bayern have always been quite successful in European competition, but the competition is not a wish concert: you always have to be fit.
+- Every player who plays at Bayern Munich knows that Bayern Munich is a particularly special club. Whenever we lose, then it is lashed onto almost immediately by the media, regardless whether it is a friendly or losing the away game in a Champions League tie 1-0.
+- I'm, in general, an advocate of moderate ticket prices.
+- I know Spain football very well, because I've always been interested in it, even after I left Spain.
+- If you are at Bayern and lose to Dortmund, it is common that the media voices criticism.
+- I don't like the word 'revenge' so much in football.
+- Robert Lewandowski is a player who plays in front of the opposing goal, especially with his back to the opponent. He is always attacked, and this is one of the big strength of a striker who plays in this position.
+- When I was at Madrid, I knew even by the December of that season that I would be sacked, and if they hadn't dismissed me, I would have resigned.
+- I have watched and coached in the Spanish League.
+- I have many friends in Madrid and, therefore, know that they have a lot of respect for Bayern.
+- It's not very wise to keep a player who has just one year left on his contract and really wants to leave.
+- You should never surrender, never give up.
+- When you become the manager of a leading club, there are so many situations you have to cope with. You have to deal with the people in charge of the club, the players, the media, the expectation... you have to deal with the whole environment around the club, and that is something you can find difficult.
+- I do not like comparisons that much. Each team has its own inner life.
+- I have no ambition to become Germany coach.
+- I think that the Bayern coach is the second hardest job in Germany after the Chancellor.
+- I alone will decide when I'm retiring.
+- It is extremely important to play in a good atmosphere. Fans are part of that. Without them and without loud support, football is without emotions.
+- If you want to win the Champions League, you have to have talent, good players, luck in the draw, and, in certain moments, the right referee.
+- It's very interesting to observe how highly the Bundesliga is spoken of abroad, from the overall quality to the stadiums, the family-friendly atmosphere, and the football itself.
+- It is difficult to play a team with great morale and passion.
+- The best players must play - it does not matter whether they are old or young.
+- Do you think that a Franck Ribery can always expect to play? No. When he is not on form, he will not play.
+- A pro at Bayern doesn't merely have to play football; he has a range of other appointments on behalf of the club. It all drains your energy.
+- Any opponent can be a stumbling block.
+- The way Cristiano Ronaldo plays is incredible.
+- We need the fans.
+- For me, as a coach, it is important to put together a team that not only blends but finds the right balance between defence and offence.
+- Arjen does not need to play anymore to make money; he plays because he enjoys it.
+- There are always cycles in football.
+- The creed of Bayern has always been to never give up, always on, always higher, always more successful.
+- A manager can never accept somebody at the top influencing his decisions about the team.
+- I thought 2013 was the end of my coaching career.
+- You have to respect the opponent as much as possible.
+- The Champions League is special. You play at a higher level, so you have to be very focused and have greater motivation.
+- I was always a great admirer of Zizou the player, but now I also admire him as a coach. I like how calm he is. This shows me that he's not showcasing for the public or the camera. He's a top trainer.
+- Please respect me and my work.
+- For me, there are no 'between players' in football. For me, there are clear positions and clear characteristics for all players.
+- Some feel old at 45.
+- Football has gone off the rails. It's lost its spirit.
+- The team that wins the Champions League is the one that is most united.
+- If you win the Champions League, you become known across the globe, but the World Cup has always thrown up new stars and developments.
+- For me, it is important that your team is allowed to have ups and downs in form.
+- You can never make the mistake of underestimating an opponent, especially in the Champions League.
+- Paul Pogba cost Manchester United €105 million. Does he play like this?
+- I think that Thomas Tuchel has the quality to train a Bayern.
+- You can play just as offensively with one striker as with two.
+- The personal interests of the individual players must be put aside.
+- A coach must be at one with his players.
+- You need a really good mix between young and old, between experienced and hungry players.
+- Arjen does not have to say that he should do the exercises at 100 per cent; he does it anyway. You have to slow him down more. He is unique; he does everything for his job.
+- The game has progressed, but in the end, they are still people out on the pitch, people with different personalities and feelings.
+- There are always surprises in the Champions League.
+- Arsene Wenger has not just brought success to Arsenal. He is a very creative manager, producing almost fantasy football.
+- I appreciate Thomas Tuchel. He made his way through the ranks at Mainz from the youth teams.
+- Games without atmosphere are bad for football.
+- Even Gerd Muller, the top scorer in our nation's history, was not perfect.
+- I never enjoyed being taken off as a striker.
+- I understand my own strengths.
+- Football is business. It's all about being quick, quick, quick - nobody has any patience nowadays. But then again, that is how things are in normal life, away from football.
+- What is the definition of the 'between player'? I have never heard of it, and I have been around for quite a few years.
+- Rich clubs, where money doesn't matter... such clubs don't interest me.
+- Not having to constantly remind everyone what's required is an important part of being successful.
+- After 50 years as a player and a coach, I will not become a functionary. That's not my world.
+- A fully fit Arjen is capable of settling a game by himself.
+- Bayern are so dominant that other teams aim for us.
+- I regard Buffon as one of the best goalkeepers in the history of football. He is a legend for me, a fantastic man, and an excellent goalkeeper.
+- A midfielder should be able to play several positions.
+- Age is a number and nothing more.
+- Wenger is a great coach.
+- German football is very different to football in South America.
+- Bayern know how to celebrate on a big scale.
+- My work gave me everything and allowed me to live out my passion.
+- I think that football has changed, it has become more complex. For example, it's faster, you have less free space, and you have to play from such small spaces.
+- The perfect striker does not exist.
+- I have eight years of experience in Spain.
+- Football has changed, but my style of leadership, my approach, hasn't.
+- I respect Cristiano Ronaldo. He has had a superb career.
+- We need to be aware of what we need to do at every moment... and we have to manage the game; that's the art of a great team.
+- I adore football, and if I do a job, I do it 100 per cent.
+- I always like to remember the year 2008, when we had an amazing offer from Chelsea for Franck Ribery. From that day on, the whole world of football knew nobody can buy a Bayern Munich player against the will of Bayern Munich.
+- Every team has a player like Marco Reus who can make the difference.
+- Tuchel became runner-up, cup winner, and played attractive football. I enjoyed watching his BVB. That's why I appreciate him and consider him a very good coach.
+- You need continuity at clubs.
+- I played at the highest level, so I know what kind of things go through a player's mind and how he might behave, what patterns will crop up in the day-to-day routine.
+- I wish Pep Guardiola the best. I rate him.
+- Many alleged top players can and have still to learn.
+- You cannot play the position Kroos plays in defensive midfield besides Luka Modric better than he does.

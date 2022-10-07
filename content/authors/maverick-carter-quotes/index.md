@@ -1,0 +1,80 @@
++++
+author = "Maverick Carter"
+title = "Maverick Carter Quotes"
+quotes_len = "74"
+description = "the best 74 Maverick Carter Quotes"
++++
+- I'm just that kid from Akron who knows what he knows.
+- There's a difference between Miami and Fort Lauderdale, Brooklyn and Queens. There's a difference.
+- I turn to people who've been successful running networks, building production companies, building music companies, and people who have done it, and I ask them about their successes. And you will see them light up and give you all the information you need.
+- I know LeBron will be owning a basketball team or maybe even a football team.
+- I love to learn about people.
+- I think in order to achieve real change, we as the black community need to come up with real asks and we have to determine, what do we actually want? We obviously want some social reform, on police brutality and things like that. We also need political changes. But it's more than voting. What are we as black people asking of these politicians?
+- LeBron and I have always been interested in the long game.
+- LeBron just wants to win.
+- One thing about Ron Artest, he's a hooper.
+- Some people are just more prepared to take risks than others. I grew up a gambler. That's my name: Maverick.
+- Since the LeBron James Family Foundation shifted its focus on education, it's been important to us to document the innovative work we're doing.
+- I never dreamed of being in Hollywood.
+- I love football. I mean, I've gotten a chance to spend a couple of moments with Peyton Manning and have just deeply intense great football nuance conversation with him.
+- When you win as an athlete that matters the most.
+- I consider myself a basketball aficionado and really understand and know the nuance. I'm a fan of the game. But more than an everyday fan. I love the nuance of the game.
+- It's built into the fabric of this country, you know - oppressing black people socially, politically and economically. They all kind of go hand in hand.
+- After I watched Tom Brady win the Super Bowl, it made me start to think that the only thing that marks greatness is consistency over a long period of time.
+- I will never forget being in Akron the day the I Promise School opened its doors for the very first time. You could just feel the magnitude of that moment.
+- We look at every project as a way to connect with our community and ask ourselves if it will entertain and empower them.
+- What Tom Brady did over the history of my life is the greatest thing I've seen in sports.
+- I'm always reading books.
+- The Heat run a first-class organization. They have one of the best organizations in all of sports.
+- I come from a big family where we tell big stories. All we had was the storytelling.
+- We've always been about empowering people who feel like us and come from the communities that we come from and want to believe in our mission.
+- Getting a reward for reaching certain sales targets is certainly attractive.
+- More than' is the tagline of the company LeBron and I started in November 2014 called Uninterrupted. 'More Than' is Uninterrupted's 'Just Do It' or 'Think Different.'
+- LeBron is always interested in giving fans a very close and detailed look at his life.
+- People want to see something they're not sure they should be seeing.
+- Students come to school hungry, and that affects how they study and read and prepare.
+- LeBron had never interacted with white people before St. Vincent.
+- With '89 Blocks,' we found a special story that needed to be told.
+- I still deal with impostor syndrome. It's a very real thing.
+- Well, like every kid playing basketball, I dreamed of being an NBA player.
+- People love winners.
+- Once the world sees you as that one thing, and the better you are at that thing, the more you can only be that thing.
+- When people ask what college I graduated from, I say: I didn't graduate from college. I graduated from Nike. I started my career as an intern getting coffee.
+- I don't like to do press. But I know sometimes I need to do it because every time I do there's young people - black and white, but I think about young African-Americans because that's the experience I grew up with - who hear it.
+- It's impossible to get to a billion dollars by endorsement deals. The biggest deals only take you so far. It's how you make money when you're asleep that's going to get you there.
+- I have survivor's remorse.
+- When you ask people questions about what they've done, not only do you get knowledge, but they like you because people like to be asked questions about what they've done and talk to someone who's interested in them.
+- Soccer is Europe's biggest sport and the world's biggest sport, so as we look to go into Europe, soccer is the way to do it because of the sport's size and scale, as well as its athletes who know and understand our brand.
+- We want to give deep insight into sports at all levels and bring the viewer inside the journey for an entirely new perspective.
+- We want our content to be insightful in every way.
+- Kids naturally tend to be a bit camera shy, especially in front of strangers.
+- For SpringHill, it's always important that the content find the right platform, not the other way around.
+- You can put my dad in any situation and he's going to figure it out. He's going to figure the people out and how to get along, how to make everyone comfortable.
+- You should do as much stuff as you have the ability to do because it will help you find what you really want to do.
+- What always appeals to us are real stories that are authentic and inspire people.
+- You have to understand that every negotiation isn't about taking everything off the table. It's cliche, but you have to try and make sure the other side feels good and you feel good. Because in my business, when I make a deal, it just means once we're done negotiating, we have to go off and work together.
+- What would surprise people about working with LeBron is he's really into the things that he's into. And I think people don't understand that. They just think he's a basketball player, he's super busy. But he actually pays attention.
+- The best, most creative, most authentic content and stories will win, will rise to the top.
+- When you grow up in a place like where we were, no matter how talented you are, if you don't even know that other things exist, there's no way for you to ever feel empowered because you're like, I'm confined to this small world.
+- Bet on yourself and be... more than.
+- I always tell young people: When you meet someone successful, ask them as many questions as you can. Because there's nothing more successful people love - nothing more - than talking about their successes, and you can learn a lot in that.
+- We look at 'Kneading Dough' as a brand that stands for athletes being empowered to have a conversation about finances, about what they're going to do post-career, what they think about when they're not competing in their sport, what they're investing in.
+- I love basketball. I mean, I watch basketball pretty intensely.
+- I have no special talents, I am only passionately curious.
+- I have to bend my knees now when I pick my son. No more bending from the waist.
+- Whether it's a film, a television show, an event or a pair of shoes, everything Uninterrupted does comes back to the fundamental belief that every human is multidimensional and should be empowered to share their own story.
+- What we do is unique in helping empower athletes and their voice through long-form and short-form content to social to our products.
+- SpringHill Entertainment makes the shows LeBron and I want to watch.
+- In my day-to-day life, I did learn to be passionately curious from my dad and always search and have a hunger for knowledge and want to understand why things work the way they do.
+- In everything, we wanted to own the relationships, the business, our own companies ourselves.
+- When I first left Nike to go work with LeBron and manage him, I was really bullish about managing other athletes. I really wanted to get more athletes besides LeBron and build this big management practice. And in hindsight that was a mistake.
+- We want to get people of color out to vote, because their vote matters. Every politician tries to capture it. But it's More Than a Vote because we want to come up with what's our ask, and hold these politicians' feet to the fire to make real change.
+- LeBron and I have always been about finding companies that we truly believe in and putting real money into them. We're not talking putting in $15,000 or $20,000. It's real money plus the expertise, understanding and knowledge that we bring, as well as bringing LeBron's name and likeness to the product.
+- One thing that really bothers me is when a young black person speaks or leads a conversation, and afterward a white person says, 'You're really articulate.'
+- More Than' challenges every norm, refuses to accept the rules as they are, one-size-fits-all, and most importantly, 'More Than' implores you to take massive risk.
+- You can be known or be a star from anywhere - anywhere in the world.
+- I'd never contemplated being in TV and film. But I love working with athletes and talent and shaping great stories.
+- We're poor black kids from Akron, Ohio. When you tell stories about people like us, sometimes it's going to be considered a social-impact story.
+- I look at everything from 100,000 feet.
+- When you're dealing with students who are at risk, who come from a place like LeBron and myself, you have to really focus on the whole student. And that means their parents, their family life, their home life, food.
+- More Than' means refusing to define yourself according to what society dictates, or everyone around you thinks you should do or be.

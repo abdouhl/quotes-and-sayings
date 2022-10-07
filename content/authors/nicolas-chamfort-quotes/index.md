@@ -1,0 +1,44 @@
++++
+author = "Nicolas Chamfort"
+title = "Nicolas Chamfort Quotes"
+quotes_len = "38"
+description = "the best 38 Nicolas Chamfort Quotes"
++++
+- Do you think that revolutions are made with rose water?
+- Some things are easier to legalize than to legitimate.
+- Swallow a toad in the morning and you will encounter nothing more disgusting the rest of the day.
+- Love is more pleasant than marriage for the same reason that novels are more amusing than history.
+- Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners.
+- There are well-dressed foolish ideas just as there are well-dressed fools.
+- Scandal is an importunate wasp, against which we must make no movement unless we are quite sure that we can kill it; otherwise it will return to the attack more furious than ever.
+- Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.
+- The person is always happy who is in the presence of something they cannot know in full. A person as advanced far in the study of morals who has mastered the difference between pride and vanity.
+- Contemplation often makes life miserable. We should act more, think less, and stop watching ourselves live.
+- People are governed with the head; kindness of heart is little use in chess.
+- There are more people who wish to be loved than there are who are willing to love.
+- It must be admitted that there are some parts of the soul which we must entirely paralyse before we can live happily in this world.
+- Preoccupation with money is the great test of small natures, but only a small test of great ones.
+- The most wasted day of all is that on which we have not laughed.
+- Nature never said to me: Do not be poor; still less did she say: Be rich; her cry to me was always: Be independent.
+- There is a melancholy that stems from greatness.
+- Most books today seemed to have been written overnight from books read the day before.
+- I have three kinds of friends: those who love me, those who pay no attention to me, and those who detest me.
+- Whatever evil a man may think of women, there is no woman but thinks more.
+- When a man and a woman have an overwhelming passion for each other, it seems to me, in spite of such obstacles dividing them as parents or husband, that they belong to each other in the name of Nature, and are lovers by Divine right, in spite of human convention or the laws.
+- There are certain times when public opinion is the worst of all opinions.
+- There are two things that one must get used to or one will find life unendurable: the damages of time and injustices of men.
+- The contemplative life is often miserable. One must act more, think less, and not watch oneself live.
+- Celebrity is the advantage of being known to people who we don't know, and who don't know us.
+- Man arrives as a novice at each age of his life.
+- It is commonly supposed that the art of pleasing is a wonderful aid in the pursuit of fortune; but the art of being bored is infinitely more successful.
+- All passions exaggerate; and they are passions only because they do exaggerate.
+- One must not hope to be more than one can be.
+- Philosophy, like medicine, has plenty of drugs, few good remedies, and hardly any specific cures.
+- Most of those who make collections of verse or epigram are like men eating cherries or oysters: they choose out the best at first, and end by eating all.
+- Man may aspire to virtue, but he cannot reasonably aspire to truth.
+- The only thing that stops God from sending another flood is that the first one was useless.
+- If it were not for the government, we should have nothing to laugh at in France.
+- The art of the parenthesis is one of the greatest secrets of eloquence in Society.
+- Living is a sickness to which sleep provides relief every sixteen hours. It's a palliative. The remedy is death.
+- Conviction is the conscience of the mind.
+- Real worth requires no interpreter: its everyday deeds form its emblem.

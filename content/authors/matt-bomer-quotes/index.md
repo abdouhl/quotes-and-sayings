@@ -1,0 +1,142 @@
++++
+author = "Matt Bomer"
+title = "Matt Bomer Quotes"
+quotes_len = "136"
+description = "the best 136 Matt Bomer Quotes"
++++
+- We didn't get to see a lot of movies in my house growing up, so the first time I got to go to the movies - I think it was 'E.T.' - I was like, 'Oh my God, somebody else gets my imagination!'
+- My favorite thing about working with Lady Gaga is really just the sheer level of creativity she brings to the table. And she's really one of the most intelligent people I've ever known. Her intelligence is equaled by her heart.
+- To be honest with you, my physical state is usually dictated by the project I'm working on at a given time.
+- When I was 8 years old, I asked my parents to get me head shots, and they were like, 'What are you talking about? Go outside and play!' I'm so glad they did.
+- I think you work on the roles that draw you in and the stories you want to tell.
+- I love that Amazon has this incredibly unique, diplomatic process where people's voices are heard, and we're using this great interconnectedness we have, via the Internet, to weigh in and to have a say in what we want to see and what we don't.
+- You have to remember you're an artist and get hungry.
+- I'm from a very athletic family, and I thoroughly enjoyed sports as a kid, but acting was a way of expressing myself and having fun. It was something I found on my own.
+- When it's a really dark emotional scene, you have to make the effort to shake it off, at the end of the day, before you go home to your kids and try to be a normal human being. You definitely want to make that effort to shake it off.
+- I lived in several hotels, yeah. You have to try to make it home.
+- One of the things about the con artist lifestyle is that all the romance is sort of sloppy and fast and loose.
+- I'm so grateful to be born in the times I live in and to be provided the opportunities I've been given. I'd be wrong to complain.
+- I never feel more confident and comfortable than when I'm wearing a Tom Ford suit.
+- I'm completely happy and fulfilled in my personal life.
+- How can you not have preconceived notions and expectations of who Kelsey Grammer is gonna be? He's been in my living room since my TV was on. And he exceeded them all, somehow. He's such a beautiful and open-hearted collaborator and mentor and such a great family man. I was just lucky to get to work with him and learn from him.
+- Human imagination is so much more potent than anything we could put down in words.
+- I think TV, at least most immediately, perhaps more so than film, is a reflection of society.
+- It's all about communication and a dialogue between individuals - get rid of the labels, get rid of the shame, get rid of the stigmas and just be your most authentic self.
+- I think people in theater are pretty open-minded and objective about the talent and what they can bring to the story they want to tell.
+- I think if you start to think too much about things that are completely out of control, it will just drive you crazy as an actor.
+- When you really put your heart and soul into something, the temptation is to try to be in control of circumstances, however you can, and looking and seeing how people are responding. But I realized, early on, that that was just not going to be a healthy thing for me to do.
+- I think anyone who's ever gone through adolescence and wanted something from their parents knows the basic tenets of a con.
+- I have more faith in Santa Claus now than I do an exec.
+- Our high school offered a comprehensive drama department where I was doing 'Angels in America' at 14.
+- I never really endeavored to hide anything. But there were times I chose not to relegate my history to the back page of a magazine, which to me is sort of akin to putting your biography on a bathroom wall.
+- I have, like, three suits to my name. But one thing I've learned is that when you dress up in real life, people treat you differently.
+- I consider 'White Collar' my home base. I'm so lucky to get to play a character that's very multifaceted and the writers take risks on and never get into a staid process with.
+- I remember taking my brother's car out, pushing it down the driveway in neutral in the night, and going out joyriding with friends and getting flat tires and getting busted. My license was revoked by my dad. So, definitely, I was a kid. I was a teenage boy.
+- I sort of take cues from my grandparents.
+- When we were filming the first 'Magic Mike,' we obviously had a limited budget; it was an independent film. And we would entertain extras in between takes.
+- I came from a long line of football players.
+- Kids aren't born to be bullies, they're taught to be bullies.
+- When you work crazy TV hours, you got to have a good sense of humor.
+- 'The Kids Are All Right' is amazing. The performances are insanely good. Julianne Moore is going to wreck you. This is the best I've ever seen her, and I've seen everything she's ever done. I like the story, and I think it's a great alternative to the big summer popcorn blockbusters.
+- Just being attached to 'Superman' actually gave a great boost to my career.
+- I try to just live my life and do my work, and the rest will just fall into place, as it may. As it will.
+- While I feel that I have a great reservoir to draw from as an actor for lots of different roles, it is difficult because it can be an industry where it's people's jobs to thin-slice you really quickly and try to fit you into a niche in the market.
+- I feel very, very thankful to have the family that I do.
+- I'm a kid that went to theater school. I thought I was going to be making my living doing plays regionally or in New York or on Broadway, and maybe if I got lucky I would do a movie here or there.
+- I can safely say that I had an incredibly difficult and trying past growing up and trying to be an artist and standing up as who I am in this world.
+- Well, when you're playing a role, you have to think, 'What is ultimately motivating the character?'
+- I used to go to sports camp every summer. I'd make a lot of new friends, and it was all athletic. It was basically a place for parents to send their kids to run out all their summer energy for two weeks.
+- It's so hard for me to let go of 'The Normal Heart.'
+- Working on TV can be quite insular.
+- Everyone needs a reset button so you can start your day without anxiety. For some people, it's running; for some, it's going to the gym. For me, it's meditation.
+- Look, none of the artists who I admire or respect have ever shied away from a role because it might make them unpopular with somebody.
+- I adore Jane Lynch, so just to get the opportunity to work with her was phenomenal.
+- I like endings that let your imagination do a lot of the work.
+- I pretty much got busted for everything, but I definitely stretched out my boundaries as a kid, as well.
+- I've definitely had crazy acting teachers.
+- There's always a need for new superheroes. As society changes, the types of superheroes will probably change as well.
+- As a gay man in Hollywood, I certainly understand what it means to be in it but not of it, to be marginalized at times and kept out of certain clubs.
+- I love 'Sunset Boulevard.' I love the writing, I love the performances, I love the camera work. I think it's a perfect movie.
+- I think when someone knows who they are and is comfortable and confident with that, I think a lot of the typical, aesthetic things sort of fall by the wayside.
+- My favorite actors are people who I don't know anything about, and I can project any character onto them.
+- I don't care about the size of the roles, or how they're marketed or billed or anything like that. I would love to be a part of stories that tell us about where we've come from, where we are, where we're going - with great directors.
+- I got a .30-30 for Christmas in the seventh grade. It wasn't what I asked for, by the way.
+- I was raised in a conservative Christian household. We weren't even allowed to watch 'secular' television, anything that was deemed not proper for Christians.
+- I was always that fringe guy anyway, the guy who played football and then did the musicals.
+- I've been handling guns since I was a kid.
+- I would say confidence and security and comfortability in one's own skin. I think that's so attractive. Truly.
+- It was a gift to get to play a gay role that was written in a three-dimensional, human way.
+- I would sit on the swing set and swing literally for two hours, just, like, imagining things. Like, what if this happened, and what if I was this guy?
+- In the end, someone is depending on me to show up on their set looking a specific way, whether that's 40 pounds overweight or 40 pounds underweight - or looking like a stripper.
+- I don't think it's a bad thing to go out there and challenge yourself as an actor.
+- I'd like to get a chance to wear two different hats in the business. I also think it would be really great to do an adaptation of a great novel.
+- As actors you're always going to take certain roles that are in your comfort zone and take ones that aren't.
+- Oh, I think Janie Bryant is a genius. I mean, I think she changed menswear almost single-handedly with what she did on 'Mad Men.'
+- There aren't a lot of supernatural things that I'm scared or super terrified of, but clowns are definitely on that list.
+- Unfortunately, in some parts of the country, some kids are taught at an early age that being different is somehow bad or wrong or worthy of ridicule.
+- It's rare that you get to play a great role that has an arc.
+- When I was 27, I felt old. I didn't feel healthy. I just wasn't taking care of my body, and I had a body that wanted me to take care of it.
+- I remember I was really, really proud the first moment I got my insurance and also just going in to get my SAG card and filling out the form and realizing I was a member of all the unions I could be a part of as an actor. It was a really fulfilling experience for me.
+- For some reason, they always gave me a fat suit in high-school productions. If there was a character who needed to be robust, they gave me a fat suit, and I put on a silly voice.
+- You should be watching 'White Collar' because it's a fun, intelligent procedural infused with a lot of great character writing by Jeff Eastin.
+- I like to just work with great directors.
+- We all have a great deal of admirable qualities, and we all have some that could probably be improved upon.
+- There was so much going on in 1936 with the height of the Great Depression and the Spanish Civil War and Germany on the move and all of those things. There was a tension in the air.
+- My personal life is a source of incredible happiness for me, but it's personal, and it's not for me to hock or shop around to the highest bidder.
+- I would love to just keep working with really great directors who really inspire me.
+- I really just try to focus on my job, which is to be an actor, and outside that, the cards fall where they may, and on not getting caught up in how people react to certain things. That's a death trap creatively.
+- I had a wild imagination as a kid - wild! - and I was outside all the time, swinging around in trees by myself.
+- Outside of, as a kid, just wanting to be able to fly and run faster than a speeding locomotive and being able to leap tall buildings in a single bound, we'd like to hope that, when push comes to shove, we can do the right thing. I think as long as there is that hope in our society and in the zeitgeist of superheroes, Superman will be relevant.
+- Playing athletics, playing a lot of different sports, going to drama school... I was one of those kids who wanted to do everything, so I ended up being pretty average at everything.
+- I'm so thankful to have been born in the times that we live in.
+- It's rare that you get to be a part of something that, hopefully, has some significance socially or historically.
+- I love 'Jaws,' and I think Robert Shaw's performance in 'Jaws' is one of the best screen performances of all time. I am a massive Robert Shaw fan. I think he's a brilliant, brilliant talent and we lost him way before his time.
+- Certain characters are sticky, especially if they help you grow up as a person, I think.
+- There were, and still are, a lot of different points of view in the gay community. It's not everybody holding hands and singing 'Kumbaya.' People have very different perspectives.
+- I was in romantic relationships with girls - whatever that means at 14.
+- I don't know anybody who walks through life all the time in the doldrums, constantly serious and morose. But that's become what we generalize as drama.
+- I like 'Citizen Kane,' I like 'The Godfather,' all the ones that everyone should see, whether you're an actor or not.
+- If you're wearing suits and you want to create your own sense of style, get to the tailor.
+- Activism isn't beautiful and easy, or a bunch of people getting together and picketing; it's a lot more complicated and difficult than that.
+- I was cold-calling agents when I was, like, 9 years old, and I was like, 'Mom, I need this thing called a headshot.'
+- For every role, I brought certain elements of the character. Even on 'White Collar' over six years, I tried to keep the set fun and breezy and Howard Hawks-y and very of the tone of the show.
+- It's a struggle for anybody to take their paradigms and set of beliefs and understandings and completely flip the script.
+- There's a level of love that really dissolves a lot of egotism and self-absorption.
+- I love India. I've always been drawn to it, and I hope that I get to visit the country soon.
+- I want to work with anyone who's passionate about telling a story. I obviously have a list of people I really love, but it's a really long list.
+- I'm a huge fan of 'The Vampire Chronicles,' both the Neil Jordan film and the books themselves.
+- I see what kids in the business have to watch. It's tough to do.
+- I had a very progressive drama teacher who would buy all the plays that were in New York and bring them to suburban Texas.
+- For me, I look at a pilot and go, 'I see the landscape. I see the characters. I see the direction and the potential of the story.' And I also go, 'That didn't work. I could change that. Maybe that works. I don't know. We'll see.' For me, I look at it, as an actor, as what can I improve upon?
+- One of the ways I learned how to act, really, is by having secrets and having to function as a kid in a public school in suburban Bible Belt Texas.
+- I'm always so inspired by Jeff Eastin's writing.
+- I married up. He's an intelligent and kind soul.
+- I think every guy and girl would love to get to play Superman at some point in their life.
+- Everybody thinks that equality comes from identifying people, and that's not where equality comes from.
+- Obviously, when you finish something like 'White Collar,' there are so many opportunities to just do something similar because people want that kind of thing, and I really have tried to stretch myself out, for better or for worse. I hope that I'm able to get to continue to do that, as an artist, and I'm not the guy who shows up to be charming.
+- My standard uniform is a T-shirt and jeans.
+- There's a security, a validity of knowing that it's legal. It's hard to put into words. It's just a feeling, I guess - something about saying vows in front of the people around you who love and support you.
+- Thankfully, I have a very full life. I'm married with kids, so I have a lot of things to focus on, other projects either in post-production or pre-production, so you just do the best you can.
+- What we really have to do is stop the adjective before the job title - whether it's 'black actor,' a 'gay actor' or anything actor.
+- I put on muscle really quick.
+- I learned a lot about self-reinvention. How you can be born Milton Sternberg in the Bronx and then become Monroe Stahr in Hollywood.
+- I did a one-off episode of 'The New Normal' for Ryan Murphy, and that was the first time I played a gay role.
+- I'd like to really make the Montgomery Clift biopic happen.
+- Certainly, when you're dealing with more deep, emotional work and sensory work, for me, it helps me to just stay in it.
+- My parents knew if they kept me active, I'd stay out of trouble.
+- I had a normal childhood where I was able to cultivate my own creativity, and I don't think I would have been ready for this crazy business at 8 years old.
+- I'm blessed to have a family, so it's not like I'm twiddling my thumbs. When I'm not working, that's where all my attention comes.
+- Making a great television show is hard enough. To also tackle F. Scott - whoa.
+- New York City is one of the greatest places on the planet. You have the best in food, art, theatre, and definitely people-watching.
+- I think anytime you can show different colors and portray something that you haven't had a chance to do is always really refreshing as an actor.
+- I felt a responsibility to Simon and to our kids to be able to live with integrity and not have some strange split psychology of 'This is who my dad is at home, and this is who he is to the public.'
+- My grandma blows my mind. To me, she exemplifies what a loving, accepting Christian is.
+- I tend toward more adult fare, and I would love to do a voice in an animated film or something the boys could go see, but at a certain point, I made peace with myself about it.
+- Cote de Pablo is one of my best friends! We went to college together.
+- To me, when you're at a hotel, and your home environment is ultimately dictated by somebody else, I always find that a little bit oppressive and scary in a way. Especially if it's not done well or not run well.
+- You're not going to do that. If you gave your best to what you were given, at the time, it's going to play out how it's going to play out.
+- You're really lucky as an artist if you get a role that changes you as a person.
+- I think when you play a role, you always have to be a defense attorney for that character.
+- When I was in high school, there was no safe haven, there was no outlet for you to speak your mind.
+- I grew up on theater, and honestly, I'm trying to figure out a way with a family and kids and living in Los Angeles to get back to the stage because it is my first love.
+- It's not like the right for gay people to marry just happened.

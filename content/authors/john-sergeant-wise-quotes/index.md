@@ -1,0 +1,29 @@
++++
+author = "John Sergeant Wise"
+title = "John Sergeant Wise Quotes"
+quotes_len = "23"
+description = "the best 23 John Sergeant Wise Quotes"
++++
+- It is true, there was no public-school system, and the reason for it was very plain. The wealth of the upper classes enabled them to have private tutors.
+- In those days, slavery was not looked upon, even in Quaker Philadelphia, with the shudder and abhorrence one feels towards it now.
+- That settled Abraham Lincoln with me. I was thoroughly satisfied that no such man ought to be President; but I could not yet conceive it possible that such a monster would be the choice of a majority of the people for President.
+- My mother was a Northern woman, daughter of Hon. John Sergeant, a distinguished lawyer, and for many years representative in Congress from Philadelphia.
+- When I first concluded to print the book, I made an honest effort to construct it in the third person.
+- The first American ancestor of our name was a younger son of these old Devonshire people, and came to the Virginia colony in the reign of Charles the First.
+- Virginians were no more angels or philanthropists than people to the north or to the south of them. They were moved by their affections, their interest, and their resentments, just as humanity is moved today.
+- Of private differences personal to himself, my brother had none.
+- In such a condition of affairs, the practical difference between the abolitionist and the sympathizer, to the man who lost his slave and could not recover it, was very nebulous.
+- Wealthy men, too, like several of those in our neighborhood, had so many slaves that they were compelled to buy other plantations on which to employ them.
+- John Brown was tried for treason, murder, and inciting slaves to insurrection.
+- And let me tell you, you boys of America, that there is no higher inspiration to any man to be a good man, a good citizen, and a good son, brother, or father, than the knowledge that you come from honest blood.
+- As early as the autumn of 1862, I was made very happy by being sent to school.
+- In the year 1857, passing through Washington on our return from the annual visit to Philadelphia, I had the distinguished honor of visiting a President for the first time.
+- The autumn of 1850 brought an event freighted with deep significance to me. My mother died.
+- In all her history, from the formation of the federal government until the hour of secession, no year stands out more prominently than the year 1858 as evidencing the national patriotism of Virginia.
+- I was a tried seaman when, for the first time, I set foot upon the soil of my country, and took up my residence where my people had lived for over two hundred years.
+- Father had notions about manhood suffrage, public schools, the education and the elevation of the masses, and the gradual emancipation of the slaves, that did not suit the uncompromising views of people in places like Richmond.
+- This and many others only confirmed me in the opinion, planted when I saw the sale of Martha Ann, and growing steadily thereafter, that slavery was an accursed business, and that the sooner my people were relieved of it, the better.
+- Even if my mother had no qualms of conscience concerning ownership of negroes, her sense of duty carried her far beyond the mere supplying of their physical needs, or requiring that they render faithful service.
+- However the Southern man may have been master of the negro, there were compensatory processes whereby certain negroes were masters of their masters' children.
+- The attack of John Brown upon Harper's Ferry came upon Virginia like a clap of thunder out of a clear sky.
+- America is good enough for us.

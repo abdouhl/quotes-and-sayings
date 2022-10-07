@@ -1,0 +1,106 @@
++++
+author = "Steven Knight"
+title = "Steven Knight Quotes"
+quotes_len = "100"
+description = "the best 100 Steven Knight Quotes"
++++
+- It's really important to me that 'Peaky Blinders' went down so well in Birmingham. Apparently the audience share in the West Midlands was double that of any other region.
+- It's good sometimes to have a character that starts as one thing and ends as another, but James Bond, Hercules, these are pretty enduring stories.
+- Yeah, I think people are drawn to characters that break the rules.
+- From the age of about 8 to the age of about 15, I was obsessed with Native Americans.
+- There have been times when I've shaved twice in the same morning because I've forgotten I've shaved already.
+- I do lots of projects in film and TV. You have some that are lucky, and some that are unlucky.
+- I think it is best that if you are the writer you just leave the director to it. With the caveat that you state, 'Be gentle with the script. And if there are changes, consult me.'
+- Well directing TV is very time-consuming, so if you are going to direct TV, a season will take a year out of your life.
+- Writing, when it works, one needs to access whatever it is that creates dreams.
+- Getting 'Millionaire' right was as hard as writing 'Dirty Pretty Things.' Harder. In the pilots, contestants kept wanting to take the money; we had to find ways - the lifelines - of keeping them in the seat, answering the questions. But there is so much snobbery about popular culture. A game show just isn't valued as much as a novel.
+- Now because the film industry is what it is, if people are expecting a certain film genre and they're not getting it, there are howls of outrage.
+- I think there's a tendency in England, when you look at the past, to either have upper middle class period drama with its own rules, or if you're going to look at working class people, you have to do that in a particular 'Isn't it a shame, aren't they oppressed' way, or it's treated comically.
+- The whole process of filmmaking can be chaotic, but if you can have an enthusiastic cast, you're pretty much there.
+- The film business seems to attract rules more than any other business. I don't know why it does. I think it's because there's so much money at stake.
+- I am definitely going to continue directing, but I am always going to try to explore new ways of making films. It really is possible to make films in different ways.
+- If I choose to direct something, it's because I don't think it would get accepted.
+- There are always people who are doing things that don't fit the official accounts.
+- In the States a lot of Hispanic and black audiences are gravitating towards 'Peaky Blinders.' A mate of went into a bar in Santa Monica and sent me a photo of four blokes dressed as Peakies - they meet every week for a 'Peaky Blinders' evening.
+- Once upon a time there was a physicality to the business of investigating a serious crime. There were objects, pieces of paper, even good old-fashioned fingerprints. Today it's different. Because all of us are routinely and voluntarily giving the intimate details of our lives to all kinds of people whether we realize it or not.
+- I just don't like cinemas very much. And when I do see a film it depresses me.
+- A funny thing about film is that it's the only medium where people say there are really rules that you have to stick to. Nobody says to the writer - in a film you've got to have three acts - there's a character arc you have to do - there's no reason that's true.
+- No, I don't actually look at Twitter.
+- In Britain, when the working class are summoned for fiction, it's 'isn't it a shame, isn't it a pity, isn't it awful, the terribly poor things... ' whereas from within, it's nothing like that. It's fantastic, it's glamorous, it's terrible and good the same as it is for everybody.
+- The problem with prequels is you're limiting yourself as to where it can go.
+- True stories are always good because they're so odd, and so unlikely. It's always good to have a world that people don't know about - a world that hasn't yet been done. It's like treading on fresh snow. You're the first one there. It always feels good to be dealing with a period of history or a world that no one else has dealt with.
+- Dialogue is what I like doing. It's what I am good at doing.
+- Spaghetti Junction is the most beautiful thing you've ever seen at night.
+- What I like about 'Taboo' just in general, even in writing it, you are not certain what the motives are sometimes because these characters are so odd that you let them speak for themselves and you're never quite sure where it's headed.
+- Manchester's history is cotton and wool. Birmingham's is iron and steel.
+- I think an under-recognized fact is that TV has changed because the screens have, we now have these massive screen in our homes... so it's worth making your show look good.
+- There's a convention in English stuff that if something is more than 100 years old, people have to say 'do not' instead of 'don't. They have to say 'will not' instead of 'won't.' People are speaking in a way that is not accessible or normal. And people didn't ever speak like that.
+- Locke' is a different way of making a film as well as being a different sort of film.
+- I'm a big Birmingham City supporter and seeing the fans dressed as Peaky Blinders is one of my proudest moments.
+- Peaky' has attracted a lot of attention from different disciplines in the arts. It was originally going to be a ballet, which is Ballet Rambert, and there is also a lot of music artists who offer their music to the show to be used on the soundtrack.
+- Making a film is hard because you're not dealing with the intangible. When you're writing, it's perfect because it's only in your head and then you have to take it into the physical world and that's where things drop off and things fall apart and you have to fix them.
+- I'm a massive Bowie fan, always have been.
+- I think certain periods of history don't get dealt with because I think historians, and it's their job, but they look back and look for patterns. They look for sequences and they look for reasons, and certain periods of history don't fit with the general pattern of 1500 to the 20th century, during which there's the creation of the United States.
+- There's such a wealth of literature from the 18th century and 19th century, George Eliot... Jane Austen... that's all about a genteel high society, relationships, all of that stuff. There wasn't ever really, apart from Dickens, a literary evocation of working class life.
+- I think the best actors do both. I think they fulfill what you want them to do, in terms of the vision for the whole piece. And then they always bring something that does surprise you and shock you.
+- I've been banging on about doing stuff in Birmingham for years and years, and everyone says 'We can't, it's the accent thing.' For some reason it's a very difficult accent to get right, harder even than Geordie.
+- You meet people and you hear the way they talk and the way they behave, and that subconsciously gets fed into the characters you create 'cause you have to make them flesh and blood somehow.
+- To get a game show into production is as challenging and as intellectually demanding as it is to write a novel or screenplay.
+- There's no writers room, or any other writer involved. I write everything from beginning to end. Maybe it's just me not being able to let go of something, especially with 'Peaky.'
+- In history there's what's written down and there's what actually happened.
+- I was doing two things at once for quite a long time. I was working in television and writing novels.
+- In terms of the symbolism, I think that if you do it right, writing is a bit like dreaming.
+- With any period piece I think the thing to do is forget that it's not contemporary when you're writing and to have the characters feel as much as possible like characters that you would know.
+- I think it's always good not to listen to what the rules are supposed to be about the arc of the character and the third acts and all this stuff.
+- There's lots of different ways of writing stuff and lots of different mindsets to have, but I think when it's your own creation, it's more pleasurable because you have total control.
+- There's always a concern over budget with film too but people are more extravagant when they're making a feature. In television everything's tight, everything's paired down and it's just a question of making it look expensive.
+- Peaky' is the luckiest project I've ever been involved with.
+- I think it's a bit like saying a painter does a painting everyone loves and it's 40% blue paint, so from now on you have to paint paintings that are 40% blue. That's the film industry at its most blunt, which is why it's constantly bats and spiders and superheroes.
+- The things that are considered to be respectable have their roots in unrespectable things.
+- There's nothing wrong with the classic ways of adapting stuff.
+- Any attempt to recreate a world of 1814, or 100 years before that - I think it's important to understand that the people of the time had a different concept of what reality was. Their reality was much more haunted.
+- My dad's uncles were illegal bookmakers who were known in the area as Peaky Blinders, that's the stories I heard.
+- Expect the unexpected, is what I'd say about 'Taboo.'
+- There has been a tendency only to deal with a certain social class when it comes to stories more than 100 years ago.
+- With TV, your structure is determined by the series not the episode. You can have incident without consequence to the character, but keep your eye on the ticking clock of the series.
+- My mum was a bookies' runner at nine years old and my dad's uncles were Peaky Blinders and gangsters.
+- It's such a gift when you know who you're writing for and you know that that actor is capable of so much that you can relax a bit.
+- Horses do sense things way before people.
+- I've had more reaction to 'Peaky' than anything. People react really intensely.
+- Whenever I went to L.A. the first thing people said in the meeting, no matter what it was about, was how much they loved 'Peakys.' So Hollywood was really going for it which is always a good start. Also Snoop Dogg is a big fan.
+- I never set out to write a script that is 'topical.'
+- Taboo' certainly isn't a commentary on other types of period drama. It's just a different way of tackling one.
+- One of the horribly frustrating things about writing feature films is the rules everyone applies and says, 'You have to do this by the end of the first act and by the end of the second act you must introduce this.' As if there were rules to life or telling a story or the ways things happen, which of course there aren't.
+- Some accents people - internationally - can't understand, also they come with baggage. London means a certain thing, Liverpool means a certain thing. Whereas with Welsh, he can be a middle-class man with working-class roots and still have an accent and it not be an issue.
+- I write about what worries me and, hopefully, things worry me a little bit earlier than they do some other people, purely because I am a writer and it is my job to go out there and be worried by things.
+- I want to make people see that evil is seductive and that we need to be careful.
+- Any genre as it's called, I think can be quite reductive in terms of what a film is, because I think there is an eagerness to put in any film, in anybody's work, to give it a genre title and I think as a consequence of that, the film starts to obey the rules of the genre.
+- Peaky' is a very personal thing for me because it's based on stories that I was told as a kid by my parents. At the very beginning, I tried to have other writers involved but it just didn't work.
+- I want to be influenced by the world not TV or film.
+- I'm not a big fan of prequels to be honest.
+- I remember going to Birmingham City matches as a kid and there were these other kids in Small Heath who had their own odd, partly Scouse accent.
+- What Westerns did was to take a world and mythologise it.
+- There's a grown-upness about television now that wasn't there before. You do know you're doing stuff for adults who can tell the difference between right and wrong, well hopefully, and make judgements about violence. And with 'Peaky,' always if there is an act of violence, there is a consequence.
+- Part of the reason for doing 'Peaky Blinders,' apart from the fact that it was a personal story and I've always wanted to do it, was what was great I felt is that Birmingham is probably the least fashionable city in Britain.
+- I think the East India Company represents what we would think of as a very modern approach to the world where everything was counted, every penny was counted.
+- I love the BBC. I love working with the BBC. They leave you alone; they give you zero notes. It's like being on vacation.
+- So many American and international producers want to shoot in the U.K. because of our crew base and tax incentives.
+- There used to be grandparents who would say that if you were misbehaving the Peaky Blinders would get you, they were the bogeymen.
+- You can make somebody bad for a long time, and people love it when they then do one good thing and it's almost like a triumph. Actors seem to enjoy it more.
+- Any question about narrative storytelling is answered by Dickens.
+- I find in Britain people are both more arty and more willing to rip you off.
+- Locke' was sort of myself trying to find out if you could give yourself the maximum number of obstacles to make enough drama and seeing if you could do it.
+- When you think 'Peaky Blinders,' when it first began it got mixed reviews and people didn't know what to do with it, and it was like: 'Why is there modern music on this?' So I think whenever you do something different you're going to get that response.
+- I will never unravel the mystery of how a script gets into the hands of certain people.
+- There's been a big black hole in the middle of the country as far as TV production goes.
+- TV is a writer's medium, the writer is in charge effectively. So what you write is what gets shot, so in that sense I prefer it. But in terms of the scale of it, features are fantastic.
+- There are so many rules about how you make a film and so many conventions that you can and can't do. I think people have forgotten that they are just rules that were invented for convenience - sometimes it is more convenient not to obey the rules.
+- I often find in the film world, that it's very self-referring. If you talk to someone about films, they talk about them in terms of other films - rather than as something that happened to them in their life. And I'm really keen to get back to film as a reference to real things, not necessarily to other films.
+- Closed Circuit' came out of a general anxiety about surveillance. Government surveillance and private surveillance.
+- I'm not a great film-goer, and I never have been.
+- The great thing about America is that people take its history and mythologise it.
+- A commission and an original are two different things, and both have their virtues and vices. A commission is a bit more collaborative, in that you outline the story that you think should be told, and then you write it. And then, there are notes and you change it, in the conventional studio system.
+- I think the best research is people you meet and things that they say, rather than second hand accounts of something. I think when you meet someone and talk to them, then you get the real thing and that's what you can use. That's the material you can actually put on the page.
+- I never map things out in advance. It would be better if I did and more economical in terms of time, but I've found that if you work out a plot line from beginning to end, at the beginning it becomes very rational.
+- I think there is something about a good person doing bad things for what they consider to be a good reason. Then the battle is on to almost prove to the audience that it's justified. How far can you go with that? How far can that character go before people won't accept it? Trying to walk to edge of that line is a challenge.
+- No money has ever been spent on 'Peaky Blinders' in terms of publicity, there's no massive campaign - because it's the BBC you just get the trailers. But what's happened is people have found it for themselves and I think the loyalty is greater when people find than when they're told to watch something.

@@ -1,0 +1,58 @@
++++
+author = "Joao Moutinho"
+title = "Joao Moutinho Quotes"
+quotes_len = "52"
+description = "the best 52 Joao Moutinho Quotes"
++++
+- I defend like a man who likes to work too because I know that football is not just about what you do on the ball.
+- I do not like to talk about luck.
+- I try to be happy and to give a smile.
+- When I have the ball I try to see as much of the pitch as possible, and movement off the ball helps you see where to play the pass.
+- I want to play for a team that plays every competition to win.
+- Ronaldo is a leader. A complete player. Good in the air, good with his feet.
+- We never give up until the ref's final whistle, we never give up we try to score one more to win the game - that's what we do.
+- Porto is a club which offers maximum stability to help me show my best level.
+- I don't think of anything else, only playing football.
+- We score and stop. We don't celebrate because it has to go to VAR. What are the supporters doing? The passion goes. I think they have to have a little more flexibility, such as with the offside rule. If it's not clear and obvious, maintain the decision of the referee.
+- I work a lot in the gym on injury prevention.
+- It's always good to help the team achieve their goals.
+- The Premier League is the best in the world. It is fascinating because of all the teams, the atmosphere and stadiums. The football is of course a little more aggressive, there is more contact but I like this.
+- I think that Cristiano is a very complete player in all aspects, Messi is too but these two players, they differ from another. I would prefer Ronaldo.
+- Yes, it's true, I absolutely hate losing. A lot. Not only football. It's in me, in my blood and I don't ever want to lose.
+- I don't like to lose, no matter what I am playing. Football, tennis, head tennis, no matter what. If I am playing something, I am playing to win.
+- I have always said that one day I would like to play in the Premier League.
+- That is how I play, I never give up.
+- What I keep trying in my mind is to work hard in the week to be better for the game.
+- You have to be able to analyse things well. Before I receive a pass, I always look to see what options I have.
+- What's important is to find a good balance between the team, the objectives and the financial aspect.
+- I like to talk to my team-mates. Communication is key.
+- My ultimate ambition is to win the Premier League.
+- I changed Portugal to France and France to England.
+- I try to live my life with happiness and with a smile on my face. I try to do my best.
+- To play better, you have to think faster than the others.
+- Play in Ligue 1 is very closed, very aggressive.
+- I like playing more than training so I try to be fit to play.
+- Every day in training you learn. I've been playing football for years, and I understand the game better with time.
+- I want to give the fans a lot of things to celebrate.
+- We enjoy what we do and, for me, playing football is the best work in the world.
+- Football is like my family: everything. It's my dream, what I have always wanted to do and without football I'm not happy.
+- I rest when I need to rest. I come to training every day as if it is the first day.
+- Believe in yourself and believe in your dreams. Follow them, never give up, that's the most important thing. If you believe you can get there, then one day you will.
+- In football we need to be intelligent because sometimes you can have a lot of things but you need to know when to pass or stay with the ball, when you go to the counter-attack.
+- At first, I am a bit timid, but when I know people I feel better. Then I give a real impression of Joao Moutinho.
+- To win is my mentality.
+- If I am not playing to win, I don't want to play.
+- We try to give everything in all the games, but we know it's not always possible.
+- I do what I need to do to stay fit. I train well. I eat well. I drink water and hydration drinks.
+- I joke every day, pranks, sometimes.
+- Nani and Ronaldo? They are two players who are the top in Europe and even the world.
+- It's true I was interested in going to Everton, but I didn't accept the offer.
+- We need to compete to be better and better every day.
+- I am small and sometimes I don't go to the contact but the players need to be intelligent and know what they can and can't do.
+- I like to have the ball and control the game.
+- If I'm on the field I will give my best to help the team.
+- Ronaldo and Messi, those are the two best players in the world.
+- Some things are ridiculous and just as us players and coaches need to improve, so does VAR.
+- A team doesn't have the ball for 90 minutes. It is about the recoveries. I do my best to do that and help the team any way I can. If that's a pass, an assist, a tackle or even if it's only running, I do it for the team.
+- An assist is like a goal for me.
+- If I score, the better. But if everyone could choose, they would choose to win and not to score.

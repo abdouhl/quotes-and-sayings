@@ -1,0 +1,30 @@
++++
+author = "Sue Kelly"
+title = "Sue Kelly Quotes"
+quotes_len = "24"
+description = "the best 24 Sue Kelly Quotes"
++++
+- Yet our small business owners across the country are unfairly losing potential interest income on a daily basis until the Business Checking Freedom Act becomes law.
+- The growth of Stewart Airport creates new jobs for area residents, brings new business and new travelers to the region, and brings new convenient travel options to those of us living in the Hudson Valley.
+- Promoting job creation and economic growth in the Hudson Valley is one of my top priorities in Congress.
+- The War on Terror is one of the most critical national security efforts in our history.
+- The president's budget proposals have neglected water infrastructure.
+- Our agricultural economy in the Hudson Valley continues to face historically low prices and producer income, as well as losses due to weather and other disasters.
+- We have increased conservation spending, enacted legislation that enables us to clean up and redevelop abandoned brownfields sites across the country, and implemented new clean water standards that will protect us from arsenic.
+- With Stewart International Airport located here, the New Windsor Police Department has an added responsibility to take anti-terrorism precautions while protecting our area.
+- While we have made great progress in increasing funding for veterans' benefits, we still have a long way to go in fully meeting the promise to our veterans.
+- Small businesses provide 75 percent of new U.S. jobs and are the backbone of our economy, and no outdated ban should be keeping small business owners from collecting the same interest their money could earn if it were held by an individual.
+- With the enactment of the bipartisan No Child Left Behind Act, we have taken an important step toward achieving federal education policies that will allow students to learn and achieve at the highest possible level.
+- Every bit of money that we can bring from our federal transportation budget in Washington back here to Stewart Airport will benefit our local economy and our local residents.
+- I am staunchly committed to ensuring the long-term solvency of Social Security and preserving full benefits for Americans who have spent their entire working lives contributing to this program.
+- As a former small business owner, I recognize both the important role small businesses play in our economy and the broad universe of challenges that small business owners face in trying to make ends meet.
+- Last year, I co-sponsored the Highlands Conservation Act and in a bipartisan effort we passed the bill through Congress.
+- I remain committed to improving the government services to which Hudson Valley veterans are entitled.
+- As a former teacher and a mother and grandmother, I know firsthand the importance of a quality education.
+- I am committed to strengthening our agricultural economy by protecting the unique interests of small and medium size family farms so that they can continue to operate.
+- Our government makes the simple promise of a secure retirement to every American who works for many years and contributes to our retirement benefit system.
+- But there is a need to explore ways we can preserve the promise of Social Security for future generations.
+- My efforts in Congress are guided by the belief that environmental preservation and restoration are a critical part of the legacy we leave to future generations.
+- The sacrifices made by veterans and their willingness to fight in defense of our nation merit our deep respect and praise - and to the best in benefits and medical care.
+- As a former professional patient advocate, I believe prescription drugs are an essential part of high-quality medical treatment, and I supported enactment of the Medicare Prescription Drug and Modernization Act.
+- Social Security is the very foundation of retirement security for millions of Americans.

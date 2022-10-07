@@ -1,0 +1,42 @@
++++
+author = "Michael Beschloss"
+title = "Michael Beschloss Quotes"
+quotes_len = "36"
+description = "the best 36 Michael Beschloss Quotes"
++++
+- The founders were very worried that if parties developed in America, you might have something like the modern Italian system, where you have 20 different parties that divide Congress and the country and can't govern.
+- Mrs. Johnson was one of our most important First Ladies. Quietly but firmly, she advised LBJ on rhetoric, strategy, and personal relations and helped to dampen his volatile mood swings.
+- To people who remember JFK's assassination, JFK Jr. will probably always be that boy saluting his father's coffin.
+- Oftentimes during the period in which conventions really did business, you had situations where the delegates were divided and you would have ballot after ballot before there was a final nominee.
+- Too few presidents have steeped themselves not just in Lincoln's words but his deeds, which is why Obama's acquaintance with the great man is so compelling - especially since, like President-elect Lincoln, Obama will take office at a perilous time.
+- The Founders deliberately limited presidential authority.
+- During his last 18 months in office, Eisenhower flew to Asia, Europe, and Latin America and deployed his war hero's popularity to seek new friends for America while trying to improve relations with Moscow. By the time Ike left office, most Americans had forgotten their anger over losing the space race to the Soviets.
+- You have had presidential candidates over the last 30 years who would have had a very hard time getting nominated under the old system. One example is John Kennedy.
+- Historians often find important decisions few knew were important at the time.
+- Even if you have presidents like FDR dealing with someone like Stalin, with whom he didn't exactly all the time disagree... He wasn't always in lockstep saying Stalin was wonderful all the time. Donald Trump never criticizes Putin.
+- We insist that ours is a government of laws, not men, but it is striking how often large historical forces pivot on something so unpredictable as the continued good health of a politician.
+- Historians sometimes view presidents very differently from the way the public did at the time. Sometimes they don't.
+- Anyone who writes anything on any subject is standing on the shoulders of 900 people who've come before you.
+- You really do live through someone's life when you hear him six hours a day.
+- The things we obsess about today, in 40 years seem trivial.
+- Kings and queens are expected to have offspring to carry on the name. There are no such demands on American presidents, but there is an expectation. There is a hope.
+- Presidents fall into second-term slumps for different reasons.
+- I'm one of those people who lies awake all night and worries about all the horrible things that can go wrong, whether a comma was wrong.
+- Franklin Roosevelt, Dwight Eisenhower, and Ronald Reagan each suffered through his second four years. FDR was checkmated by Congress and the Supreme Court. Ike was dogged by Sputnik and reckless charges that the United States suffered from a Missile Gap. Reagan had to wend his way through Iran-Contra.
+- Not to be pompous about it - my thing in life is to write history and not to chat on TV 24 hours a day.
+- The more successful sons and daughters know when to lean on their parents - and when to go their own way. George W. Bush helped run his father's presidential campaigns in 1988 and 1992. But in his winning campaign for governor of Texas, he never mentioned his father's name in any of his campaign commercials.
+- Whether history will view Ronald Reagan as a great president depends, more than anything else, on one question: how much credit does he deserve for the fact that the Cold War ended far earlier than almost anyone suspected - and on terms that Americans had fantasized about for 45 years?
+- So the result was that as one approached a political convention for most of the 19th century and for most of the 20th century until the 1960's, part of the drama was the fact that you didn't know ultimately who was going to be the nominee at the end of that convention week.
+- There is a great overlap of tragedy that played out through the generations of the Lincolns. That, coupled with the idea that many people consider Lincoln our greatest president ever and the fact that he was also a man assassinated at the age of 56 and had a widow with mental problems is what makes it all so fascinating.
+- Reagan's defense buildup and SDI, so ridiculed at the time, pressed Gorbachev, while his economy was collapsing, to make arms deals and improve relations with the West, which contributed to the unraveling of his empire.
+- First of all, there's no mention of political parties in the Constitution, so you begin American history with not only no political conventions but also no parties.
+- Troubled celebrities are a dime a dozen.
+- So if 1960 had occurred under the old convention system, Kennedy would have had a very hard time getting the Democratic nomination because he would have been rejected by all those people who had worked with him in Washington.
+- From the beginning of the presidential nominating conventions in the 1830's really through the 1950's, you had conventions that actually did real business.
+- As parties began to develop around the turn of the 19th century, you had party nominees for President nominated in caucuses made up of party members in Congress.
+- It is not always a treat to grow up as the heir to a world-famous leader.
+- American political scions evoke a central contradiction in our thinking. We believe - or say we do - in nurture, not nature. Yet we are comforted by the aristocratic notion that leadership might run in the bloodlines.
+- Then you get to the last half of the 20th century, Americans are getting very skeptical about their leaders and their institutions, and another place that is affected is parties and conventions.
+- More than Nixon or any other 20th-century president, Clinton has devoted his life to winning and keeping the presidency.
+- The Founding Fathers would be sorry to see that America had become so divided and factionalized.
+- Kissinger's monopoly on this historical record has driven many scholars to distraction. Groups of lawyers, scholars, journalists and archivists have used pronunciamento, lawsuit, and other crowbars in a usually vain effort to open Kissinger's Library of Congress cache.

@@ -1,0 +1,112 @@
++++
+author = "Mariella Frostrup"
+title = "Mariella Frostrup Quotes"
+quotes_len = "106"
+description = "the best 106 Mariella Frostrup Quotes"
++++
+- We invest less in our friendships and expect more of friends than any other relationship. We spend days working out where to book for a romantic dinner, weeks wondering how to celebrate a partner or parent's birthday, and seconds forgetting a friend's important anniversary.
+- When a father of a daughter dies, you elevate them. And you sort of deify them.
+- If I was a man, I don't know if I'd settle down long before I was 50.
+- I couldn't choose a favourite author, but two contemporary writers who have never disappointed me are Tim Winton and Alice Munro.
+- Often, those who bruise easily spend too much time thinking about themselves. I'd go so far as to say that oversensitivity is a privilege of the underoccupied. The majority of people don't have the time to lavish care on emotional wounds - they're too busy getting on with living.
+- While the male eye zooms in on a particular element to the exclusion of all else, a woman's gaze flickers from one tedious task to the next, to the point where we can't distinguish between the importance of mopping the kitchen floor and achieving world peace.
+- When I last looked, there weren't queues of eager guys under 40 hanging outside single ladies' doors begging them to give up work and have their babies. It takes two to tango and the same number, without medical help, to make a child.
+- Television executives only commission something that somebody else has already commissioned that's doing well on another station - they're afraid of expecting an audience to concentrate for longer than three minutes on any particular item.
+- Joy acts like a trampoline, everything that touches it bouncing right back off it.
+- The more brutal it gets in the working world, the more appealing the prospect of having someone at home creating a sanctuary becomes. Increasingly couples, particularly with children, are making that tough choice, with one or other partner electing to embrace domestic duties while the other brings home the cash.
+- Seeing the world differently is one of the toughest incompatibilities to reconcile in a relationship.
+- Whenever the party-girl tag gets attached to my name, it makes me want to snort with derision.
+- Emotions are products of our mind, and we can actually train ourselves to choose whether we banish or embrace them.
+- I hate the thought of my children being glued to a screen. Children only play on computers all day because their parents let them.
+- With longer life spans and better health and education, many feel that giving birth to a baby a mere couple of decades after they themselves were in the cradle is a little premature.
+- Personally, I think there's a lot to recommend being friends with your ex, and I'm glad to admit that I'm living proof of its possibility.
+- The sight of parents, children and grandparents all descending on a tented field to enjoy the pleasure of ideas and books renews my faith in humanity.
+- I recognise my old self in a lot of the letters I get from single women who are unrealistic about what they want.
+- Sustaining true friendship is a lot more challenging than we give it credit for.
+- I love my children, but I don't really want to talk about them. I'm not that much of a freakish middle-aged mother, I'm just very lucky, and there isn't much more to say. I'd like not to be constantly expected to be a spokesman for things that are part of the natural rhythm of a woman's life.
+- I was raised a socialist by two very socialist parents, and I still feel very animated about socialist principles.
+- Of course, I'd like to earn Jonathan Ross's money, but I don't have sleepless nights wondering when someone's going to knock on my door with sacks of cash.
+- Choosing to mother your kids full-time may seem to some the easy choice, eschewing as it does the stresses and strains of the workplace, but one of the continuing frustrations for women is the lack of respect they get for taking on the responsibility for domestic life, whether they're also working outside the home or not.
+- For most of us, when our 'dreams' - I use the word with reservations - came true, and marriage and motherhood became a reality, the romcoms, like horoscopes, swiftly lost their allure.
+- Romantic comedies seem to take over where the fairytales of childhood left off, feeding our dreams of a soulmate; though, sadly, the Hollywood endings prove quite elusive in the real world.
+- I used to routinely turn down things that might compound the impression that I was some kind of vacuous blonde. But now, when I look back, I think I should have done them because I would be very rich - being taken seriously isn't all it's cracked up to be.
+- One of my few childhood memories is as an eight-year-old, refused permission to watch the Hitchcock season on Irish television, sneakily viewing 'The Birds' though a crack in the living-room door. It transformed my hitherto perfectly enjoyable half-mile walk to school, down a country lane patrolled by watchful birds, into a terrifying ordeal.
+- Men want children later, but women can't rely on being able to. So I'm all for scientific advances and the help they can give people.
+- The idea of exposing the British public to the full breadth of my personality isn't a good one.
+- Saturday and Sunday mornings are the only time the children are allowed to turn on the television.
+- I've been accused of riding roughshod over others' emotions, and I admit, when I feel a friend is being over-indulgent, my patience is in short supply.
+- First, I was a glacial blonde doing music programmes. Then I was the film kind of sexy bird late at night. It was frustrating like I guess it's frustrating for everyone who is not fully employing their talents.
+- Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.
+- You only need to look at Jane Austen to see how crossed wires can become a defining aspect of romantic life. Then again, if the course of true love ran more smoothly, it would have a terribly detrimental effect on our cache of love stories.
+- Mixed messages are just part and parcel of the romantic terrain, and rather than berate yourself for any crossed wires, you'd do better to work on your future resilience.
+- Only those with skin as thick as elephant hide can hope to sail through their teens unscathed by self-doubt and bouts of depression.
+- Every adult has the right to choose who they wish to spend their lives with, and we're all capable of making mistakes, but no one escapes with their self-regard intact.
+- Finding extracurricular activities with your husband that are unrelated to children, family and work is a priority.
+- You're allowed to have gravitas when you've got the wrinkles to prove it, but not when you're attractive and younger - or, at least, you have to fight really hard to prove you're capable of productive thought.
+- Reading a book you are not enjoying is a torture not to be undertaken without a reward. I leave plays at the interval, too!
+- Placing 'amicable' and 'separation' together creates an oxymoron - we don't usually decide to end a partnership until the very sight of our soon-to-be ex fills us with disgust, misery, agony or a combination of all three.
+- Fridays are always movie night at our flat in Kensington, West London.
+- Girls have a tendency to take responsibility for romantic misinterpretations, when often it's men whose perfectly honed emotional inscrutability makes life more complicated than it should be.
+- Far too many girls' and women's romantic relationships are formed around a negation of their own worth and attributes rather than a confirmation of them.
+- Men that aren't threatened by opinionated, faintly aggressive women are in a minority.
+- It's a universal truth that no parent wishes to acknowledge that the fear and phobias we are in thrall to in adulthood almost invariably connect back to childhood experiences.
+- As for tweeting and texting: impassioned discussions, particularly when they're intimate, don't work in abbreviated script messages. No relationship should begin or end in 140 characters.
+- Life is rife with frustrations, jealousies and, on occasion, an overwhelming sense of its injustices, but it's a big mistake to let such negative sentiments rule our lives and dictate choices.
+- There are more than enough people with serious mental issues who really do need professional help without all the other Toms, Dicks and Harriets rushing to the therapist's couch.
+- I know we should aspire to be higher philosophical beings, contemplating the universe and becoming more refined humans, but if all we did was think, then arguably we'd never have invented the wheel.
+- Had Elizabeth Bennet known how wildly Darcy's heart beat for her, 'Pride and Prejudice' would barely have made it into a short story. Their torturously slow-burning romance is a classic example of how men and women still struggle to communicate the most basic of emotions.
+- I have a producer friend who despairs that I come across as rather frosty and never show the real me, and she might have a point.
+- Normally, the thin-skinned have an endless array of excuses for why their workaday interactions are so much harder to bear for them than for the rest of us. In the eyes of the self-suffering, they are being victimised, used and always abused, when they're actually experiencing exactly the same body blows as the rest of us.
+- Coming from a broken home, I wanted to be as sure as I could be that my kids would have two parents who will stay together and bring them up.
+- With the Internet, we can communicate instantly across the globe, but the net also makes it possible for us to shrink ever further into our own skins - a state of being that neither suits the human temperament nor provides ground for further growth.
+- Loneliness and rootlessness are just symptoms of an insecurity that assails us all when hitting this midlife moment. The world appears intent on blanking you out.
+- There are two ways of approaching your time on this planet: one is to sit around waiting for something to happen that will make sense of your existence, and the other is to get out there and find purpose for yourself.
+- I used to go out with someone who was a really great diver, and we used to go to all the great dive spots all over the globe - although I would spend most of my time crying because I was often too scared to go into the water. But once I was in the water, I loved it.
+- For many, long-term friendships, rather than family ties, are the foundations for sustainable lives.
+- Once you've raised a child to adulthood, you can only be as demanding as your offspring allow.
+- Kids are like glue: they can bond together, unlikely companions, even when there is little else left to maintain the connection.
+- I have a very childish attitude to books - a very non-analytic enthusiasm... like Alice falling down the chute.
+- I met Jason on a charity walk in 2001, and we got married on a friend's boat in Panama two years later. It was the perfect wedding for two people who'd already been married and who weren't teenagers.
+- I would go out with people who really didn't like me very much and then wonder why we weren't getting married!
+- We inhabit a world where we're taught that we can have what we desire, and tend to act on it - the least we can do is admit to it when we succumb to our instincts.
+- Translating any insights I have for strangers' lives into positive action in my own has proved a challenge. While I've learned a lot about what everyone else is thinking, I fail miserably to use such knowledge in my private relationships.
+- While we women dilly-dally, making decisions, leaving jobs half done, forgetting where we've put the house keys while we water the Hoover and leave the laundry in the dishwasher, men, like blinkered horses, look straight ahead, oblivious to peripheral vision, where a discarded pile of wet towels might have caught their eye.
+- I'm a control freak. And more so now that I have children.
+- As we mature, there are people with whom we run out of steam, but there are also those with whom a little straight talking would prove rewarding.
+- I can't sleep in an isolated place without pills, earplugs, and both my children in bed with me for fear of scary, feral characters with a hankering for the wilderness.
+- Having lived a full and stimulating life before I had my kids, I've relished every minute I've had to spend with them and felt a degree of confidence in dealing with their trials and tribulations to date.
+- It's perfectly possible to love your toddler but struggle to like them when times are hard.
+- Ageing is one of those battles you're not going to win. I'll try to look as good as I can as long as I can. I don't think I'll do cosmetic surgery because I'm a wimp.
+- In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
+- In person, George Clooney lives up to all your expectations.
+- The great advantage of being human is that we can employ rational thought and resolve to change our circumstances.
+- Having a baby is a disaster for your career. I don't think there's any sympathy.
+- When the going gets tough, the prospect of delegating half your responsibilities to a willing volunteer, either to play a supporting role or take over the breadwinning, certainly holds allure.
+- What an unappealing responsibility that is to lumber any prospective lover with: the need to be a saviour, not simply an equal partner.
+- I have had demanding jobs since I was 18 years old. I have had two sick days in all my working life.
+- Too often we forget that an ideal partner is someone who enhances an already full existence.
+- Like cars, every relationship requires a bit of an occasional service, and fine-tuning should be compulsory.
+- I was brought up in the countryside in Ireland and would go bonkers if I couldn't escape the city. I like to wake and hear birds tweeting, not the low drone of traffic.
+- I love physical books, can't bear to throw them away, and am drowning under the weight of my collection, but I do a lot of my work reading now on my iPad.
+- In my late teens and early twenties, I thought having children was possibly the most irresponsible thing you could do because I thought that the world was a dreadful place; I thought the sooner we all got off the planet, the better.
+- As a species, we tend to be doers, forever shaping and reshaping the world to better suit our purposes.
+- Since so many romantic comedies vary little in their storyline, the success or failure of such movies depends largely on whether we believe in the relationship of the protagonists.
+- We're naturally programmed to endure a muddle of emotions as we leave childhood behind.
+- From Mozambique to Chad, South Africa and Liberia, Sierra Leone to Burkina Faso, feminism is the buzzword for a generation of women determined to change the course of the future for themselves and their families.
+- In my child's-eye view, whenever I was exposed to pain, it meant that my mother had let me down.
+- If I was going to write something, I'd need to stop for three months and just see if I had any thoughts in there.
+- There are many ways to make the most of your time on the planet, and propagation of the species is just one of them. If you're convinced that it's the key to your happiness, there are routes open to you, whether with the help of modern medical science, marrying into a readymade one, or through fostering and adoption.
+- Writers want to talk. They can't wait to tell you what they've been thinking. And because they've been in solitude, they've had some fairly decent thoughts.
+- It's an absolute disgrace that there isn't a books programme on the BBC.
+- I don't want my daughter to think she has to dress like Beyonce!
+- My parents split up, and a lot of things going on in the outside world made me want to immerse myself in an alternative world.
+- For many young women, the dream of independence and a home of their own is a tantalising goal, while a lifetime devoted solely to catering for another person's needs would be hard to countenance.
+- It's so much easier to count our disadvantages than tot up the mitigating circumstances that generally outweigh the despair.
+- Nothing can prepare you for the all-consuming nature of motherhood, and I am very aware of my good fortune, as I spent years fretting about whether I'd ever meet anyone to have a baby with.
+- If I ever write a book, it will be called 'Bottle Blonde.'
+- In the city, I wake bolt upright in the small hours, convinced that intruders are marauding through our apartment despite Swiss bank-style security arrangements.
+- I feel lucky that I had my children late. Not that I would advise it in any shape or form. But I know friends who had children when they were young, struggled with feeling trapped. I can honestly say I've never once resented the fact that I couldn't go out because of my kids.
+- Quite honestly, if we do manage to destroy the planet with our devil-may-care attitude to natural resources, I'd suggest we leave, as a dossier in our defence, the collected letters to agony aunts and uncles down the generations. It would certainly prove that we weren't all bad!
+- Contrary to popular mythology, the best and most durable relationships are based not on vulnerability or passion but on a conjugation of positive attributes, a meeting of mind, body and soul that is all the more powerful as it is not weighed down with neediness and unreasonable expectation.
+- Many new lovers and spouses struggle to reconcile themselves with their partners' relationship history, but it's an insecurity I left behind in my 20s.
+- The point of the feminist movement wasn't simply to set our underwear on fire and muscle into small spaces in the male-dominated workplace, but to create a world where the contribution of both sexes was equally valued and no one's worth was judged on their take-home salary.

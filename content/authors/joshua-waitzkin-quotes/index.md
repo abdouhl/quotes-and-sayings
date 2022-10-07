@@ -1,0 +1,17 @@
++++
+author = "Joshua Waitzkin"
+title = "Joshua Waitzkin Quotes"
+quotes_len = "11"
+description = "the best 11 Joshua Waitzkin Quotes"
++++
+- One of the main focuses of my training sessions is to help individuals find their unique voices in the learning process. We all have our strengths, our weaknesses, our styles of learning, our personalities. Developing introspective sensitivity to these issues is critical to long-term success.
+- At the very core of my relationship to learning is the idea that we should be as organic as possible. We need to cultivate a deeply refined introspective sense, and build our relationship to learning around our nuance of character.
+- Very gifted people, they win and they win, and they are told that they win because they are a winner. That seems like a positive thing to tell children, but ultimately, what that means is when they lose, it must make them a loser.
+- The truth is that throughout my careers in both chess and the martial arts, I often knew that my rivals were more naturally gifted than me - either with their mental machines or their bodies. But I have believed in my training, my approach to learning, and my ability to rise to the challenge under pressure.
+- In America, people focus on the end result; they focus on the star.
+- My coach and my parents both had this relationship to what I was doing, which was allowing me to express myself with chess. And so I could love it. I had a passion for it. I was expressing myself through chess, and I was learning about myself through chess.
+- One thing about the business and investing world that I connect to very intimately is that there is little room to deny the harsh realities of your mistakes. A bad call can lose you many millions.
+- Initially I was very drawn to the Tao Te Ching, the Taoist philosophy. It was helping me deal with the balance of these external and internal issues with my chess life. Tai chi is the martial embodiment of Taoist philosophy. Initially, I had no intention of competing in the martial arts; it was just the meditation.
+- The moment we believe that success is determined by an ingrained level of ability as opposed to resilience and hard work, we will be brittle in the face of adversity.
+- I tend not to dwell on the parallels between chess and business, chess and the martial arts, or any two things for that matter, because the truth is that all pursuits are connected if we gain an eye for the thematic links.
+- I have never considered myself a prodigy. Others have used that term, but I never bought in to it.

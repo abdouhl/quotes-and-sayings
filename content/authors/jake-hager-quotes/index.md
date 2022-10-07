@@ -1,0 +1,106 @@
++++
+author = "Jake Hager"
+title = "Jake Hager Quotes"
+quotes_len = "100"
+description = "the best 100 Jake Hager Quotes"
++++
+- Chris Jericho is on the Mount Rushmore of professional wrestling.
+- Zeb Colter is unbelievable, he is priceless.
+- I've heard that I'm a wrestler and not a real fighter, but I have nothing to prove to anybody.
+- You know, there's not a lot of guys who don't like Jack Swagger. It's a good problem to have.
+- I'm a competitor. I had that reputation in my time at the WWE. I would walk into a locker room, start wrestling with someone, and all I'd hear is, 'There goes Swagger again.'
+- When you step in front of a camera, and everybody is going to have their hyped-up personality, everyone is going to have the character they are trying to play.
+- As far as the work in the ring, it's so much technique and spacing and timing, and that's what amateur wrestling is, too. So I felt like I learned very fast and a lot of things came naturally for me.
+- In this world, I feel like we all need to be nicer to each other.
+- Before I signed with WWE, I thought my athletic career was done. I was going into the finance industry and I just thought I couldn't compete any more. But the mind is a really powerful thing and you can unlock your potential if you choose to ignore what your mind is telling you.
+- When you get in the cage with me, you'd better be ready to go 35 minutes, not just 15.
+- All Elite Wrestling completely changes the entire landscape of pro wrestling.
+- I am Jack Swagger. My background, it's there for the world to see, and you look at MMA today, you look at boxing today, you look at professional kickboxing today, you need that entertainment value. You want people to relate to you as a character, as a personality. Honestly, that's what they're going to remember.
+- Going through life is always scary doing something new, at the same time it is very exciting.
+- Toward the end of my career with WWE, I found myself in a comfort zone. Looking back at it now with a little more perspective, it was killing me.
+- I think Bellator is the place for me to hone my craft and they have a great selection of heavyweights here. They put on a great card every time so it's really exciting to be a part of that.
+- To be able to change from being essentially a bad guy into a really hot babyface overnight is very hard to do.
+- WWE really likes to keep its fans on the edge of their seats and on their toes.
+- I believe competition makes everyone better.
+- Really, my family is my strength and I realize that and I am leaning on it.
+- Your character has to be an extension of yourself, and you got to be comfortable in it. Otherwise, people are going to see right through it. They're going to see that you're acting or that you're playing wrestling.
+- I've always been a big fan of Hollywood.
+- Big risk means big reward. I want that.
+- I feel like being a professional wrestling has definitely made me a better MMA fighter.
+- It is cool to be a pro wrestler and that makes it so much better for us as pro wrestlers - who go out there and put our bodies on the line and give the fans the entertainment that they deserve.
+- Pro wrestling fans love surprises, so let's surprise them, and not just give them the old stuff.
+- Jumping into something new is always challenging with the schedule and the routine and when you can train, and fit that into your life that you already have right now.
+- For me, the wins and losses in pro wrestling never mattered. The thing that matters is the time on television to tell that story. If you have a two-segment match on television, whether you win or lose, both people's brands win with a great match.
+- A lot of great fighters were amateur wrestlers first and you can study them on film to see how they adapted the techniques.
+- I was never the best athlete, but I knew how to be coached and I knew how to work hard at it.
+- I think 'We the People' is an example of why pro wrestling is so cool because it was a storyline that started out very political and very controversial and very nasty. It really evolved into a movement of the people, not just American people, but people everywhere.
+- In addition to being gifted athletically and being the strongest guy in the room, Cesaro is very smart upstairs. He can go in the back and wrestle a match out in his head, then he'll add his Cesaro-isms in the ring to really make the match special. He knows exactly where to put things and make a match explosive.
+- MMA fans and pro wrestling fans are similar in that they care about their sports very much. They want to see that you're serious and not making fun of them or the sport that they love.
+- If I can make someone tap out with my ankle lock it would be Sasha Banks.
+- I've been a competitor all my life.
+- I think it's surprising for a lot of people to see Jack Swagger crossover to MMA because they know Jack Swagger more than they know Jake Hager.
+- Anyone that holds a championship you are on a list of a very few people that have had that special honor, and it is really incredible to say that no matter what you say about my wrestling career I was a World Heavyweight Champion and you can't take that away from me.
+- Wrestling for wrestling fans is an honor.
+- As a fighter, I'm not one of those people that wants to prove I can go out and throw strikes.
+- All I want to do is go out there and win. That's all that is important to me.
+- When I was competing at Oklahoma in college, I remember always getting a lot of anxiety before wrestling matches. Almost to the point where, 'Oh my gosh, man, this is a lot.'
+- The nerves with WWE performance is more the live television angles because we have time limits and have storylines we want to get through in that time. You're going to forget a lot about the spots.
+- Growing up in Perry, Oklahoma, there's not a lot going on, so we would go wrestle anywhere and anyplace we could. It really is who I am.
+- That's one thing I found out about myself when I left WWE: I'm that guy that needs to be pushed full throttle. That's when you're gonna get the best out of me.
+- Absolutely, it's awesome to be a pro wrestler.
+- If people want to compare me to Brock Lesnar - there's worse people to compare me to.
+- The level of difficulty in most areas of MMA is very high. It's a high learning curve. The footwork in boxing alone takes years to master. I will rely heavily on my amateur wrestling to get out of bad situations and take me from defense to offense. I'll try to dictate the fight on my terms.
+- I love being a dad.
+- Some people work their entire lives to become a professional fighter and see certain guys with exposure or just a name, hop into the professional ranks. It can rub people the wrong way and have them very doubtful of your skills because they see first-hand the hard work and how many years it takes to master this.
+- People know my name, and because of that, I have more leverage as a professional fighter. And as a professional fighter, as a professional wrestler, that is something we are all battling for. We want to make our brand a name brand and a household name. And that essentially gives us more leverage and helps us provide for our families.
+- People want to see fighters who can put on a little show and then back it up. Hopefully I can do both of those things.
+- I'm making MMA great again for pro wrestlers.
+- I look like a winner, I smell like a winner, so why not put it on the big screen?
+- Yes, pro wrestling is damaging on your body. It hurts.
+- If I just keep my head down and I keep working hard, that's just what I do.
+- One of the best pieces of advice I ever got in professional wrestling was use the exposure from cable's number one rated television show to transition and move on to what you want to go into next.
+- I have a lot of experience with the lights on bright - a lot of people watching and performing on live television.
+- I'm lanky and goofy.
+- When I look in the mirror, I'm a husband and a father first.
+- I grew up with two cousins from North Dakota who were junior national champions. They're a lot older than me and I looked up to them as my older brothers.
+- When I was leaving college, getting ready to graduate with a degree in finance, I had job interviews for months and months - and nothing really was moving like a real opportunity. Meanwhile, a lot of my wrestling teammates at Oklahoma had started getting into MMA training.
+- I love being a family man.
+- The more you boo me the better I'm going to wrestle. You don't like me? So what. It's a lot of fun to work like that and wrestle with that mindset.
+- Kofi Kingston has always been one of my favorite opponents to wrestle. He and I started back in McDonough, Georgia in 2006 in developmental at Deep South together. So, our careers have come along at the same time. He's incredible.
+- I want people to say that Jack Swagger/Jake Hager is a world champion in MMA and in pro wrestling.
+- We The People' is public domain, any American can use that.
+- Pro wrestling is all about staying fresh.
+- Cesaro should be world champ. I'm not afraid to say it, Cesaro is my favorite wrestler.
+- You don't see a lot of fighters with no or little experience getting to be on the main card. I know that's an incredible honor, but at the same time, I know my worth, and I know my value.
+- I grew up in one of the most prolific high-school-wrestling programs in the country, and MMA fighters are more successful when they have that amateur-wrestling background.
+- When you get to go out and perform on a great pro wrestling show, it's awesome. It's hard not to enjoy it.
+- Any time you can get Glenn Beck crying it's a good thing.
+- I like to think of pro wrestling as an art, so we're artists.
+- I relate everything to amateur wrestling, including the way I watch basketball and the way I watch football. My brain thinks as an amateur wrestler. That's who I am.
+- I would love to fight Fedor Emelianenko in Russia, maybe we can make that happen.
+- I want to grow my brand and help wrestling continue to grow, too.
+- People think I look like a P.E. teacher or the principal.
+- In my first fight, I acknowledged it. I'm a professional wrestler, this is who I am, who you know me as. But guess what, I've also been wrestling since I was 5 years old - real wrestling - amateur wrestling, Olympic wrestling.
+- From the beginning, make no mistakes, I'm a prizefighter and doing this for the money. Money first. And then championships.
+- My junior and senior year in college is when I first realized what MMA is and really started liking it. I went the other route - I went into the entertainment field and started wrestling professionally, and I did that for about 11 years.
+- Let's come together, let the people stop fighting each other, but let them fight in the octagon.
+- A lot of people want me to say negative things about WWE, but I'm very grateful for my career there.
+- Your natural instinct when people are throwing punches at you is to back up. That just makes it more dangerous for you. You'll get hurt that way. You've got to teach yourself to go forward, move your feet and move your head. I'm not going to lie, that was tough for me to learn.
+- I'm a conservative. I voted for Donald Trump and back in 2016 everybody was talking about, 'Oh my God, here's another TV character trying to run for the presidency.' They didn't really take him seriously.
+- Coming to WWE, where they treat the talent a certain way, I really gravitated toward Bellator because you saw the trend in fighters wanting to go over there because they were getting better deals and getting more freedom with it.
+- Entertainment is a big part of MMA and it is unique.
+- Once you're an amateur wrestler, you're always an amateur wrestler.
+- Luckily, I feel like I was a late bloomer as far as my body developing. I really didn't start developing until I was like 18, 19, 20 years old.
+- If you go back and look at WWE Magazine, they asked me when I was going to win my first world championship and I told them WrestleMania XXVI, so I was only a couple days off.
+- To be successful in WWE, you have to love what you do. You have to want to steal the show every time you go out.
+- As cool as Jack Swagger was, he felt choreographed.
+- I was young; I signed with the WWE when I was 24. I was up on the main roster when I was 26 and 10 years later that is a lot of learning and a lot of growth.
+- I've been wrestling since I was 4 years old, so I have over 30 years in some form of wrestling, non-stop in my life. For me, it's who I am.
+- Whether you speak English, Spanish, Chinese, Russian, everybody can speak wrestling and it's really cool to go to different cultures and societies and see how the littlest things we do as performers influence the biggest things.
+- AEW loves what I'm doing with Bellator and Bellator loves what I'm doing with AEW.
+- If you speak pro wrestling or MMA, you almost speak any language.
+- MMA is very difficult; you can't just be good at wrestling. You need striking, kickboxing, jiu-jitsu and countless other things.
+- I really like Bellator and them as a company and how they are run. It's a popular place for fighters to go to.
+- I need to wrestle, I need to compete.
+- I would say to the critics that they don't have a black belt in time management like I do.
+- A long time ago I learned how to shut my mouth, listen to my coaches and put trust in my coaches.

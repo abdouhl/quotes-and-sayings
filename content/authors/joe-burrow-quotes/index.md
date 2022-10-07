@@ -1,0 +1,54 @@
++++
+author = "Joe Burrow"
+title = "Joe Burrow Quotes"
+quotes_len = "48"
+description = "the best 48 Joe Burrow Quotes"
++++
+- You have to be stern in your voice, because if you are in there wavering and wobbling and fumbling over words, all the guys are going to be like, 'What is this guy doing in here, Coach? Get him out. Get someone else in.'
+- The thing about Louisiana food is that it's really good for about three months, but they only know how to make one thing, and they dip whatever they can find in a bucket of oil.
+- I'm fairly good at connecting with a lot of different people.
+- Coming from southeast Ohio, it's a very impoverished area.
+- Everyone's called me sneaky-fast for about 15 years.
+- I have always been a pretty accurate quarterback going back to high school and it is something that I have prided myself on.
+- Whenever you're coming out in the same draft class with anybody, you're going to be compared to them, but I'm not super worried about that.
+- Every game is decided by one or two plays that teams do or don't make; you've got to make them or else you lose.
+- Whatever team I go to is going to be a challenge at the beginning and I'm going to have to persevere through it.
+- I've won everywhere that I've been. I've never had a losing season in sports from the moment I was five-years-old. I'm not a loser.
+- There's a lot of really good players in the draft and we're all looking to make a name for ourselves at the next level. I guess we'll find out 10 years down the road and there's gonna be discussions throughout time about it, but we can't control that.
+- I was scared of everything growing up. I still don't like scary movies.
+- I'm a Southeast Ohio kid.
+- I know I'm a pretty good quarterback.
+- My junior year, when I completed 57 percent of my balls, I was very very frustrated in myself.
+- Whoever wants to pay me money to play the game of football, I'll play for 'em, it doesn't matter to me.
+- Engineers don't get drafted to certain companies. That's kind of peculiar in the capitalistic ways of the United States. But that's how it is.
+- They gave me my career. Coach O and LSU resurrected my career and made me what I am today.
+- You want to go No. 1. But you also want to go to a great organization that is committed to winning. Committed to winning Super Bowls.
+- I think people really underestimate the power of just wanting to do it, and hard work, and competitive spirit, and preparation.
+- Please don't compare me to the best player of all time. Let me do my own thing.
+- I couldn't watch 'Harry Potter,' 'Lord of the Rings,' 'House'... I was like strictly a 'SpongeBob,' Disney Channel, Nickelodeon kinda guy.
+- I will never adjust or accept losing.
+- I just wanna go somewhere where I can win.
+- I would say my accuracy is probably the best thing that I can do.
+- I'm going to come in and compete and try to be the best player I can be.
+- I'll play for whoever drafts me. I'm just not going to be presumptuous about what they want to do. It's the draft.
+- You just have to keep the same mentality of trying to prove yourself every single day. But it's a lot of easier when you have people telling you how bad you are than when people are telling you how good you are.
+- I just work really, really hard every day, and I think that probably rubs off on people.
+- I try not to focus on all the pressure stuff.
+- You have to meet with your coaches, see what they're thinking, what you're thinking and meet the middle.
+- I'll play for whoever wants to have me. It's an honor to be in the discussion for anything.
+- I'm a ballplayer. Whoever picks me, I'm going to show up.
+- There's a commonality in a lot of the great quarterbacks in the league, that they have the chip on their shoulder - from something. Aaron Rodgers, Tom Brady, Patrick Mahomes, Russell Wilson - I mean, they all have something that got them to have a little chip on their shoulder, that makes you continue to work really, really hard.
+- Losing isn't very fun.
+- I understood it was a poor area when I was young because you're driving through it and you see these low-income homes that I hadn't really seen before. I'd lived in upper-middle-class neighborhoods before we moved to Athens and The Plains. You understand, but you don't really understand the magnitude until you get older.
+- I knew that I was gonna play really well my senior year. And I was going into it thinking I was one of the best guys in the country.
+- I'm graduating and I'm 23 years old, so I can do whatever the hell I want.
+- It's been super weird because you have zoom meetings and then it's like high school again, I'm stuck at home with my parents and the only time I get out of the house is to workout. Let's just say it's not been how I envisioned my pre draft process going.
+- I just want to get drafted to a good team, good organization that is going to maximize my talents.
+- I'm just unapologetically myself, and I think that's a good thing and people respect that.
+- Of course, I want to be the first pick. That's every kids' dream.
+- I don't like haunted houses or anything like that.
+- Going into my rookie year I expect to play well and I expect to win a lot of games.
+- You gotta put me on a team with LeBron or Chris Paul or someone and I can just spot up in the corner and let them go to work, kick it to me.
+- With any rookie quarterback, the more help you can get the better.
+- Coming in, if you are the No. 1 pick, the team that is picking No. 1 is there for a reason. There are going to be ups and downs - you've just gotta stay steady through the process.
+- If you got a good steak you don't need A1 sauce.

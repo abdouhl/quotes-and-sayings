@@ -1,0 +1,22 @@
++++
+author = "Stanley Schmidt"
+title = "Stanley Schmidt Quotes"
+quotes_len = "16"
+description = "the best 16 Stanley Schmidt Quotes"
++++
+- I think the rising and falling popularity of areas like hard SF and far-future SF is, to a considerable extent, the same as any other fashion.
+- There may be something to the suggestion about the pace of technological change intimidating writers, though - it's been awfully hard to keep ahead of real developments.
+- And, of course, some SF is set close enough to here and now that Anglo and European do apply. Since many of the writers come from those backgrounds, so does much of the fiction.
+- Usually if nobody hates a piece, nobody loves it, either; and a magazine which sets itself the goal of provoking thought is not doing its job if everybody agrees with what it does.
+- What SF can do better than anything else is show us the range of our possible futures, and what we can do to realize the good ones and avoid the nasty ones.
+- It's easy to imagine ways the future can be ugly and depressing. It's harder, but more worthwhile, to imagine plausible ways we can make it better.
+- Its limitations are those of the physical universe: it won't let you play with some really wild ideas that aren't possible, but are fun to speculate about.
+- Ideally, I'd like every issue to include a diverse group of stories that meet the qualifications sketched above, but covering a wide range of specific matter and flavour.
+- Some of the biggest changes that have happened are behind the scenes, in the way we produce the magazine. E.g., much of our production has been brought in-house via desktop publishing.
+- There are a significant number of people who appreciate what we do, and most of them gravitate to Analog because this is where they can find it. The other magazines tend to share their audiences, which may result in each of them having a smaller market share.
+- This means I must pay close attention to the writing, but equally so to the scientific background - which sometimes means doing fairly involved calculations.
+- I think the international appeal of SF is quite understandable since the kinds of people who like to read it, are, by the nature of the beast, interested in other cultures, of which other nations on Earth are the closest available example.
+- As for sticking strictly to presently known science, I will simply point out that we have already experienced at least two major revolutions in science in this century alone.
+- Of course, the way writers think about those things is almost certain to be affected by their own cultural background, and it would be hard to deny that, for whatever reasons, a lot of SF writers come from Anglo or European backgrounds.
+- When something hasn't been around much for a while, and one example of it turns up and catches people's eyes, they go looking for more like it - until they get tired of it again.
+- It's most presumptuous to believe we already know all the answers and will never get any more big surprises.

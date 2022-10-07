@@ -1,0 +1,22 @@
++++
+author = "Shea Whigham"
+title = "Shea Whigham Quotes"
+quotes_len = "16"
+description = "the best 16 Shea Whigham Quotes"
++++
+- It was just an incredible experience all around on 'Boardwalk.'
+- I'll say that, Bill Camp, from 'The Night Of,' is one of our great actors.
+- When I think about it, I've been really lucky.
+- I guess the ultimate thing is that you want to keep working, you know, with the best.
+- I've worked with Terrence Malick, Werner Herzog, Olive Stone and David Gordon Green, and Damien Chazelle on 'First Man.' When you have someone at the helm like that, they're gonna make something great.
+- I've always wanted to work with the best directors. Directors lead you to the best material and thus the best actors.
+- It's always about the project itself than a character for me. It's all experiential.
+- In the South, you can't say you're hurting. You can't cry, so you lash out.
+- Vice' came up really quickly. I was doing something else, and I got a call, and I said, 'Absolutely.' It wasn't a lot of time to prepare. I love a lot of lead-in time. But I jumped in.
+- I tell people that I've had a chance to work Sam Esmail, Damien Chazelle and Cary Fukunaga, and those guys are working on a different level.
+- I'd never done television prior to 'Boardwalk.'
+- I can't script my career better than what it is.
+- I don't say that I have a job. I have a gig, or a piece, or a film, or a show, but it's never a job.
+- I've supported myself since 'Tigerland.'
+- I've worked with David O. Russell.
+- I don't know if my father realizes this, but I remember sitting there watching 'Apocalypse Now,' watching Pacino in 'Scarface' and watching James Dean in 'East of Eden' with him. And him he's not in the arts at all just pointing out 'the greats.'

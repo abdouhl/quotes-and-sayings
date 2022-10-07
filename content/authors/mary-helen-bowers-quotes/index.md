@@ -1,0 +1,106 @@
++++
+author = "Mary Helen Bowers"
+title = "Mary Helen Bowers Quotes"
+quotes_len = "100"
+description = "the best 100 Mary Helen Bowers Quotes"
++++
+- I want my workouts to feel like a luxury, a way to pamper yourself and add a beautiful dimension to your everyday life.
+- A lot of fitness has that very masculine energy and drive, and that never worked for me. I want to be challenged. I don't want to be told that I'm terrible and that I suck and that I'm not good enough - that's not motivating.
+- I try and get as much sleep as I possibly can, although it's harder with a baby.
+- I like to customize my tights by cutting them myself to create a stirrup or convert the look into a capri.
+- I adore the tapestries at the Musee de Cluny in Paris!
+- Ballet is an incredible art, but it can be a bit elitist, which is a really big turn off to me.
+- I train a lot of celebrities, including a lot of women who work for Victoria's Secret as Angels.
+- I don't let my wardrobe dictate my diet.
+- All of the vintage photos of Ballets Russes are so inspiring.
+- I've found the entire process of being pregnant to be such a miraculous, beautiful time.
+- The changes that your body goes through during pregnancy are so radical, I've really tried to embrace and celebrate my new body, and hopefully I can encourage other women to do the same.
+- If you don't have the time or money to get to the gym, work out at home. It saves tons of time and makes life more efficient.
+- Making fitness a priority will energize you, make you look and feel better, and help diffuse stress.
+- Ballet Beautiful is a workout that transforms the body without overtaxing the system or joints.
+- Ballet opens up the chest and the arms and elongates the body, so you carry yourself straighter. That's so important for a model. But also every woman.
+- Posture has such a big impact on the way people perceive you.
+- I think being in the right mindset is a huge challenge for women, who often take an all-or-nothing approach to working out or eating well.
+- The image of a pregnant woman embracing her figure and really putting it out there can be scary to some people, but I don't let that stand in my way, and I don't think other women should either.
+- For a ballerina, the center of balance is everything - creating a strong center of balance begins with building strong abdominal muscles.
+- Generally, I snack on lots of fresh fruit and raw nuts, such as almonds.
+- I became completely obsessed with body oils while pregnant.
+- A lot of people think the body is just about genetics, but the right approach can change its shape.
+- By continuing to work out and dance while pregnant, I feel a double reward from maintaining my normal routine but all the while knowing that baby is sharing in my day.
+- Sometimes people feel really trapped by the body that they have. Women are told, 'You have this body shape; you're a pear or string bean, and you can't change the way you look.' That's just not true.
+- Generally speaking, I love a workout that includes stretching and toning exercises for legs and core on the mat paired with ballet-inspired cardio and Barre exercises to get the heart rate up and take the results to the next level.
+- Even if it's snowing or raining, I'm always wearing sunscreen.
+- Nail polish is like the icing on the beauty cake.
+- I find that healthy eating makes me feel happier, stronger, and more confident.
+- An all-white space has a purity that is refreshing and serene.
+- Keep it simple. Layer your leotard with high waisted skinny jeans, legwarmers, and heels or high boots.
+- One of the big things, especially if you're eating out frequently, is either splitting an entree with someone or ordering a protein-heavy appetizer for an entree, like a salmon or steak tartar. If I'm dying for a burger, I'll get the burger but have it with salad instead of fries and a glass of red wine instead of a beer.
+- It's empowering to find a workout that builds strength and grace.
+- For ballet dancers, style is about melding personal expression with physical form.
+- The key to building long muscle as you swim is stretching arms far ahead of you in the water, sort of like a swan.
+- A few times a week, I'll put on La Roche-Posay's Active C Facial Moisturizer. That's probably my favorite cream. It clears up my skin a bit and provides more of an anti-wrinkle element.
+- It's not about having a perfectly sculpted figure; it's about feeling healthy, fit, and confident.
+- I've learned that there are many people out there who want to feel powerful and strong on their own terms, who want to tune out the noise and the punishing nature of grueling workouts. With 'Ballet Beautiful,' we have peeled back the mystery of ballet and allowed people to do these workouts anywhere and in their own time.
+- I'm from North Carolina, so I am really picky about my fried chicken.
+- When you work out a lot, it's so important to eat the right foods.
+- I like to think that when you take care of yourself, when you do nice things for yourself, it has a nice ripple effect on the rest of the world.
+- On weekends, I do brunch at home: whole grain bagels, lox, avocado, eggs, and organic bacon.
+- Working out should be empowering! It should make you look and feel strong, elegant, healthy - the best possible version of you.
+- For a ballerina, the worst thing imaginable is big thighs.
+- Audrey Hepburn was always so chic, simple, and beautiful.
+- It's not realistic to say never eat sugar, but I try to limit my sugar as much as I can to buckwheat honey and dark chocolate, which I love.
+- There's no feeling like performing. It's magical, it's so rewarding, and it just feeds this special little part of your soul.
+- I live in my Ballet Beautiful street shoes.
+- Any exercise is better than nothing, even if it's only five minutes.
+- One of the things I found as a dancer is that you're trying to perfect your body but also protect it and keep it injury-free. When you work against your own weight, you're still building lean muscle and bone density, but you're in a safer zone.
+- When you're wearing pointe shoes, honestly, they hurt - a lot - every day.
+- A leotard is more versatile than you might think!
+- It's important to remember that life is hectic and unpredictable.
+- My style is a little '70s and classic old Hollywood. I incorporate a lot of vintage, bohemian blouses paired with a good wedge.
+- The idea for 'Ballet Baby' started when I was going through my own pregnancy.
+- I sometimes wash my face at night with Cetaphil, which I like because it's a really gentle face wash.
+- My company, Ballet Beautiful, is built around celebrating the strength and femininity of the female body - for me, pregnancy has just been an extension of that.
+- Mid-afternoon, I snack on Greek yogurt with nuts or a green juice from Juice Press.
+- Ballet Beautiful has made my pregnancy a joy. I've avoided back pain and swelling by keeping my core strong and body moving.
+- Ballet was just something that I always wanted to do.
+- Rather than thinking about what not to eat, I like to focus on what I can eat to look and feel my best.
+- A calming place, where you can go to escape it all and just focus on your body, is so wonderful to have.
+- To look and feel your best, it's essential to work out, eat well, and make sure that you are also drinking plenty of water and getting enough sleep.
+- Ballet Beautiful is about finding balance and making fitness a part of your life in a happy, healthy, rewarding way where you get to feel pretty and look beautiful. It's not about beating yourself up in the gym and locking yourself in a dark room with blasting music.
+- Because I dieted so much in the past, I just can't diet again. It's something I don't want to do and I don't even know if I am capable of. I think it's a much healthier and happier way to live.
+- Ballet targets smaller muscles that you don't often use - instead of working your quads, it works the inside and the back of your leg.
+- Carrying a baby is such hard work, I've found that the stronger I am, the better I feel.
+- A simple scoop-neck leotard highlights a ballerina's swanlike neck and elegant posture, both rooted in a powerful core.
+- Pregnancy is magical, I've never felt more connected to my body.
+- In yoga, you hold the positions, whereas in dance, you're constantly moving, extending, reaching through the legs and arms, which helps build long, lean muscles as opposed to shorter, tighter ones.
+- Could you physically lose 10 pounds in 2 weeks? Maybe. But there's no way you could do that in a healthy way or that you could maintain it.
+- I launched Ballet Beautiful not long after finishing at Columbia and met Natalie Portman shortly after. We began training and preparing her for her role in 'Black Swan.' From there, I continued to build and expand the method itself along with the business, always looking for ways to share the workout with others around the world.
+- Have something that you enjoy, that satisfies you. For me, that is dark chocolate, red wine, and cheese. But make room in your life for vegetables and whole grains to nourish your body.
+- My body needs a lot of protein because I exercise so much. I eat dairy, meat, and gluten, but I stay away from white flour, sugar, and processed foods.
+- I don't believe in depriving myself; it's an unhealthy state of mind.
+- For the hair, a few French hairpins and a tortoiseshell clip will dress up any bun!
+- When you dance, you engage your abs in every step.
+- I love how chic yet simple ballet style is for everyday dressing.
+- Most of the time, even if I'm at home in my sweatpants, I probably have a pair of slippers on.
+- You won't find me in a sports bra and low-slung leggings.
+- Ballet can be hard on your joints, and when you're on a movie set doing take after take, it can become really repetitive.
+- I've been so fortunate to have had such a healthy, easy pregnancy and have been incredibly active the entire way through. My favorite part is feeling the baby move - but the entire process is such a miracle.
+- When you're not experiencing your food, that's when it's harder to pay attention to when you're full, and that's what being satisfied really means.
+- A lot of fitness is about contractions - you're doing squats, or you're on a bike and your knees are bending but never stretching all the way, so your muscles get strengthened but look short and thick.
+- I'm very sensitive to salt. I always see and feel a big difference in my body when I eat it, so I try to consume salt in moderation.
+- With ballet, you're really focused on the inner thigh and butt and just lifting and lengthening everything, including your arms. You're not using weights, but holding up the weight of your own arms is a challenge.
+- Stretching before and after every workout keeps muscles supple and helps elongate the lines of a ballerina's limbs.
+- I love white linens and walls mixed with antique Victorian furniture.
+- I love nuts and popcorn with olive oil and sea salt.
+- My approach in general is to take really great care of my skin, but I try not to overdo it and not use too many crazy products.
+- A simple ballet wrap sweater heats the back muscles but is easy to put on or take off without disturbing a dancer's makeup or hair before a performance or during a workout.
+- Designing and creating dance clothes has taken my love for dancewear to a whole other level, melding the creative process with my daily fashion and allowing me to bring my most dreamed-about ballet styles to life.
+- Even if you're having a snack, enjoying it in a beautiful teacup or on a lovely plate makes it feel like more of an event.
+- Before founding Ballet Beautiful, I was a ballerina with the New York City Ballet.
+- I love berries, greens, and salmon.
+- The muscles that are used in Ballet Beautiful are similar to those used in classic ballet. They're also muscles that don't get used very often, which is why it burns so much.
+- I think most people don't need as much cardio as they think they do.
+- I'll buy a special occasion dress even if I don't know when or where I'll wear it.
+- I had the opportunity to train with Natalie Portman for 'Black Swan,' and the program we created was intense and involved a lot of travel.
+- I find that the thing that makes every body look the best is great toning, and really, really targeting the muscles, and low cardio, where you're sculpting and getting your heart rate up but not beating yourself up.
+- It definitely wasn't cool in junior high, when everyone else is trying out for cheerleading, to have a life consumed by ballet.

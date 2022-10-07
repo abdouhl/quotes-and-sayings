@@ -1,0 +1,75 @@
++++
+author = "Maxine Waters"
+title = "Maxine Waters Quotes"
+quotes_len = "69"
+description = "the best 69 Maxine Waters Quotes"
++++
+- We have suffered discrimination. We have suffered isolation and undermining. But we stand up for America, oftentimes when others who think they are more patriotic, who say they are more patriotic, do not.
+- If China is not going to solve North Korea, we will.
+- I want to be the kind of elected official who not only pays attention but who acts on behalf of people - just average people. Fancy lobbyists get to tell their story, but the average person doesn't.
+- Ben Carson was appointed to be the HUD secretary. He knows nothing about the mission of HUD. He doesn't care about people in public housing. He believes that if you are poor, it is your own fault. And he doesn't know the difference between an immigrant and a slave.
+- Policy, for the most part, has been made by white people in America, not by people of color.
+- When I first experienced the millennial response to me, I had come out of a classified briefing, and I told the group of media individuals who were there that I didn't think James Comey had any credibility, and I threw up my hands and walked away - that went viral.
+- I don't have them down here asking me what my urban agenda is. I don't find them really doing in-depth stories on community-based organizations that have been struggling for a long time and who are out trying to get funds. They aren't interested in those stories.
+- I believe that Trump is a danger. I believe that he wants to tighten and build up his relationship to Russia for whatever reasons.
+- How does he support Clinton's urban agenda? He doesn't know what it is.
+- Donald Trump has defined himself very well, not only in the primary election where he was absolutely disrespectful to his colleagues on the Republican side of the aisle and for Fiorina, who he basically said, 'Who would vote for you? Look at her face.'
+- This nation has always struggled with how it was going to deal with poor people and people of color. Every few years you will see some great change in the way that they approach this. We've had the war on poverty that never really got into waging a real war on poverty.
+- I cannot be thought to be afraid of Bill O'Reilly or anybody.
+- I'd like to say to women everywhere: don't allow these right-wing talking heads, these dishonorable people, to intimidate you or scare you.
+- It's unusual for elected officials to step outside of the box.
+- As you know in this committee, we have all of HUD, and HUD is responsible for so many programs that determine the quality of life for women and families.
+- We moan and groan all the time about a lack of involvement of young people. But they have taught me a lot about what moves them.
+- We know that when a woman speaks truth to power, there will be attempts to put her down... I'm not going to go anywhere.
+- I'm accustomed to being harassed.
+- That's what mayors do. They lobby Congress to provide resources for their city.
+- I've seen a lot of poverty - coming up as a young child, lost hopes and dreams and people that never had a chance to have a decent quality of life. I believe we can do a lot greater than that.
+- Most African-Americans really do believe that we are voting for our better interest in voting for Democrats.
+- We have a responsibility as elected officials to do good public policy in the best interest of all the people.
+- The women's movement was just coming into being, and I got involved with Gloria Steinem and Bella Abzug and all these great women. We then got involved with Carter, who was running for president, and we created the first International Women's Conference or the National Women's Conference for Carter.
+- We do not have a crisis at Freddie Mac, and particularly Fannie Mae, under the outstanding leadership of Frank Raines.
+- A lot of young people don't have a lot of faith in politicians. You can't depend on what they say. They talk in circles. They don't speak the kind of language that has truth to them. I'm speaking differently.
+- There are people who love and appreciate this country, but they don't talk about it that way. Now is the time to talk.
+- I had to ask my grandchildren, 'What does it mean? I threw shade?'
+- I'm a strong black woman, and I cannot be intimidated. I cannot be undermined.
+- Women are prepared to run for office. They're prepared to show up. Oh yeah, women have big roles to play, and they have stepped up to the plate already.
+- Priebus has been trying to clean up for Donald Trump for far too long. When he was making outrageous statements, when he was basically lying.
+- I think the Democrats' role is to be vocal.
+- That's why investigations are so important, to drill down and to connect those dots and to get the facts. What we have is a lot of smoke that causes us to want to know more about what has happened.
+- We should have hope because we've earned it. We've worked for it! It's ours.
+- There's a history of enslaved African-Americans having to make their slave masters comfortable. This business of what we call skinning and grinning - that is something African-Americans are very much cognizant of.
+- I saw the real difference between politicians who supported programs like Head Start and those who didn't. I started getting really excited about politics.
+- We use language that has been designed to keep order, and to keep people in line.
+- It's very important that people who are feeling the need to do something... get activated.
+- Some people see me as someone who makes other people look bad... I often get a feeling most people don't know who I am, or have a clue, and I live with that. I don't try to prove anything by talking.
+- I know some people like to follow the tradition, and that's who they are. That's not me.
+- I want our millennials and our young people to do what they started out doing with meet-ups, to talk about what is going on, and spread the education.
+- Why is it that Michael Flynn, who evidently has a great relationship with Putin, who has received payments for so-called speeches and who's spent a lot of time in Russia and was accused of talking about sanctions, he lied about it, and he got caught?
+- This is a tough game. You can't be intimidated. You can't be frightened. And as far as I'm concerned, the Tea Party can go straight to hell.
+- This country cannot tolerate the fact that someone worked with Russia to undermine our democracy.
+- My Millennials, 'stay woke'.
+- Everyone has a part to play. We have the power. You can do it.
+- If I never do anything else in this career as a member of Congress, I'm gonna make somebody pay for what they've done to my community and to my people!
+- I have a right to my anger, and I don't want anybody telling me I shouldn't be, that it's not nice to be, and that something's wrong with me because I get angry.
+- I am talking about strategies that were developed, working with the Trump campaign. I really do believe that much of what you saw coming out of Trump's mouth was a play from Putin's playbook.
+- I don't think it works to just be mad at them - Maxine Waters out ranting and kicking down the doors. It would be so easy to dismiss you and marginalize you.
+- I could not remove myself from this debate about Trump. I could not abide his indecency. I could not live with the way he treated other people.
+- My spirit tells me I cannot be silent.
+- Some people see me as a rabble-rouser. Some people see me as someone who does not care about what other people think about me.
+- I think that people should do what their heart and soul tells them to do.
+- Be who you are, do what you do and let us get on with discussing the real issues of this country.
+- I am one who believes in the power of the people. I am inspired when I see people hit the streets, who challenge their elected officials, and are willing to stand up and fight. I encourage it.
+- I have been adopted by the millennials, and I'm enjoying every minute of it! I'm learning a new language.
+- The constant drip drop of fraudulent activities coming out of Wells Fargo is absolutely outrageous.
+- I have been working hard trying to implement Dodd-Frank reforms. We went through a terrible crisis in 2008. Many people lost their homes.
+- I have been an organizer and then activist and a legislator, all of that. But then there's this big gap after I advanced in Congress and ended up as the ranking member of financial services committee. It took me into the financial services issues and Wall Street and Dodd Frank. And it took me away from the things that I did years ago.
+- I was working at the telephone company in the late '80s as a service representative.
+- Reaching out to other people is important work. I am so pleased and honored that I'm getting the attention from the young people on social media. It's been missing.
+- I'm going to continue to speak my mind in the way that I do.
+- Russia is not our friend.
+- I'm not running for anything but my own seat.
+- I am going to help show the American people that they too cannot trust him, that this is a man that does not live up to his promises, and this is a man who cheated students in the so-called Trump University.
+- Guess what this liberal would be all about? This liberal would be about socializing.
+- I don't have any presidential aspirations. If the millennials want me to do it, I'd do it, though.
+- I'm so proud of this connection that I've made with these young people.
+- I think Hillary and Bill are really liberals at heart. I think that, in addition to being liberals, they are very practical. They have made some decisions about what it takes to win.

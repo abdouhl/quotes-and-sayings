@@ -1,0 +1,116 @@
++++
+author = "Julianne Moore"
+title = "Julianne Moore Quotes"
+quotes_len = "110"
+description = "the best 110 Julianne Moore Quotes"
++++
+- I love my kids with all my heart and the last thing I want to worry about is the air they breathe.
+- Too much makeup on an older woman can really make you look like a freak.
+- I actually think acting is a form of self-hypnosis. You have to be hyper, hyper aware of what's going on around you. You have to know where the lens is, what the shot is, and where you're moving. And then you have to trick yourself into an emotional state where you believe this stuff is actually happening.
+- Being middle-aged is about realising that you've lived most of your life. You don't have as much time in front of you as you have behind you.
+- I've got more freckles than just about anybody. My children didn't get them, thankfully. They have tiny little freckles.
+- When my son first started to take the subway, my husband and I used to follow him to make sure he was all right, and then we had to stop following him and let him do it by himself.
+- I can't wait to get home and wash all those socks.
+- As an actor, all you have is what you know and what you see in other people. The more you know, and the more you've experienced, the more you're able to communicate to other people.
+- People are very reluctant to invest unless they know it's going to be a sure thing, and let's face it: film is never a sure thing.
+- It's hard to keep the romance going sometimes. Because you have a job. And you have children. And you have a house and a dog. And something leaks in the basement, and somebody has to take the dog to the vet... you're exhausted.
+- I have women friends who are significantly younger and older than me.
+- My upbringing has given me sympathy for the idea of isolation and what it is to be a new person in the room, where everyone else has some amount of familiarity and comfort.
+- I think everybody has had emotional distress, but yes, I think I'm pretty stable.
+- Parenthood is a very, very intense experience.
+- I'm a very basic dresser. I'm not interested in calling too much attention to myself. I like to look cool without being too noticeable.
+- When I was seven, these kids in the alley behind our house in Omaha called me Freckleface Strawberry. I hated my freckles, and I hated that name. I thought it was humiliating in the way that only a seven-year-old could hate it.
+- With actors, all our ages are out there for all to see - you can't hide anything, really. And it's kind of a relief. This is my age, this is what I look like without makeup on - who cares? That youth culture - that lying about your age - it's all denial of death anyway.
+- I think everybody's political. The act of being alive is political. Unless you choose to be a hermit, you're automatically political because you're part of a community.
+- I was somebody who was not athletic. I was highly imaginative; I loved to read, and I loved nothing more than being in a story... I didn't want to play ball; I wanted to imagine something and read something.
+- I'm not someone who is driven by big external stories. I like big emotional stories.
+- There wasn't much for me to do after school except the drama club, so when I kind of started doing drama club, it seemed to be something I could do.
+- I have a very, very normal life. I really do - with the exception of being very lucky and privileged. I have two children, a dog, and a husband. We live in New York, the kids go to school, and we're fortunate that we have flexible schedules. I like that. That's what I want.
+- I do remember when I was starting acting, going from one set to the next, with not much else going on in my life. And at the end of the day, you get back to your hotel room and just feel this awful loneliness, because the cameras have stopped rolling.
+- People think that the directors direct actors. No. Really, what the director's doing is directing the audience's eye through the film.
+- I can see how Americans misconstrue British reserve, and I can see how British people misconstrue American enthusiasm. I think I'm somewhere in between the two. Although I'm outgoing, I'm also very private.
+- Green screen's not my favourite thing to do.
+- The one thing that kids need is consistency.
+- You know, comedy's hard. With drama, you have a responsibility to the emotional truth, but with comedy, you have emotional truth and you have technique on top of it.
+- The worst thing you could do is scare a kid or trick them. Never, ever, ever do that.
+- 'Safe' was a script that I read and flipped out for.
+- When someone says, 'I'm not political,' I feel like what they're saying is, 'I only care about myself. In my bathtub. Me and my bathtub is what I care about.'
+- Within childhood behaviors, there are known behaviors; there's teasing and there's name-calling, and different kinds of things happen as kids start to socialize. And then there's serious bullying, and then there's actual aggression and behavioral problems. But you can't put it all under the tent of bullying.
+- When I go to a movie and can't figure it out, I'm just thrilled.
+- In grade school, I was a complete geek. You know, there's always the kid who's too short, the one who wears glasses, the kid who's not athletic. Well, I was all three.
+- I love going to Scotland.
+- My mother brought us to the library every week, and I read a lot. That's what kept me company. I went from school to school, but there was always reading.
+- I do like to work. I have my kids' books that I do, I have movies that I do, and I model.
+- I think people are always really surprised when they realise I'm not a very serious person and that I'm not tremendously serious about acting. I don't like to rehearse; I hate improv. Directors that don't like to talk, they're my favourite ones.
+- There was a period of time in America where the advertising world actually went to the housewives of America and had them write jingles that would appeal to them. It was actually brilliant marketing.
+- The kids go to a Quaker school. Their father and I believe a lot in community, social responsibility, making sure you give to people less fortunate than you.
+- My mother was from Scotland and had very fair skin... she wouldn't allow us to go in the sun.
+- We like drama. Even in our comedy, we like drama.
+- You'd have to spend a lot of time with me before I'd be comfortable enough to show my dark side.
+- Travelling childhoods are a common theme among actors. Army kids, embassy kids, travelling salesmen, clergy. Thing is, you learn about behaviour, that different places are separated by behaviours which are culturally driven.
+- Every modern woman shops everywhere for beauty, but for me it's mostly the airport or the drugstore.
+- If you're 50, you're never going to be 50 ever again, so enjoy being 50. If you sit through the year wishing you were younger, before you know it, it's going to be over, and you're going to be 51.
+- I'm not really afraid of things that are imaginary. I enjoy it. I enjoy big narrative, and I enjoy big feelings. Having a feeling is never going to kill you.
+- I do love my work. As an actor, you live from job to job, though, and you have to be prepared for that.
+- I think every part's a challenge, and you also never know if you're going to pull it off.
+- She's in a situation she tried to, that's what's complicated. She followed orders; she called off the raid. This is a dangerous situation. Somebody in DC police went ahead and started.
+- The idea behind makeup is to enhance whatever color or contours you have in your face. I'm a big believer in that. And don't use to much powder; powder is really aging. I've made that mistake myself.
+- You might have, as a character, 30 pages of dialogue a day if you're what they call a 'front-burner story.' So you go home, you learn your lines for the next day, you get up, you're there at 7 in the morning, you do a quick rehearsal, you're on camera, you might leave, you know, at 7 at night and start the whole thing over again.
+- Comedy is ridiculously hard. And if the rhythm is not right, if the music or the line is not right, it's not funny.
+- I have a husband and two kids, and they're usually around when I'm shooting, then I go home. We have dinner, and that's what I'm dealing with when I go home.
+- I love clothes - I love shopping for clothes, I love wearing clothes, I love talking about clothes - but oddly, putting on the dress and walking around in front of people, that's the place where I'm most uncomfortable.
+- In all of the movies and films you see, people are always in crisis because that's what we watch. We watch them deal with crisis and resolve it.
+- My father was a military judge, and my mother was a psychiatric social worker. My brother and sister and I were moved around constantly, in and outside the U.S., living in Germany for much of our teens.
+- Art is an expression of who we are, what we believe, and what we dream about.
+- Every different social group that I encountered had its different set of rules, so you learn very quickly how to pick up the nuances and change yourself accordingly. When you are not from anywhere, you have to try to find what's universal. You are always trying to fit in.
+- We shouldn't require our politicians to be movie stars. Then again, we're all influenced by charisma. It's hard not to be. We all collectively fall for it.
+- My life may be a pretty crazy life at times, but it's a very privileged one - being able to earn a good living doing what you love. Not many people have such an opportunity.
+- Actually I did, because I saw the film like everyone else, ten years ago and I remembered some of it. I just wanted to see it, to kind of remember the tone a little bit.
+- In my family, there was one parent you asked for money and the other for permission to do things. You could never get both out of one parent.
+- When you have children, you don't have downtime, but I have a family life that is rich and fulfiling.
+- In my opinion, you don't get to have privacy when you're only 16!
+- When the computer and tablets are all about playing games, that's not interesting to me.
+- I did find it particularly difficult to do Broadway. It was not my favourite way to perform. When I do theatre, I like it to be smaller. I like the audience to be closer; I like it to be less presentational.
+- Once I've ascertained that I'm safe and I'm with a director who is taking care of me, then I'm able to go and do what I need to do and know it's not me, it's the story.
+- Frankly, acting doesn't scare me because I really enjoy it.
+- It's not difficult to take care of a child; it's difficult to do anything else while taking care of a child. Trying to clean up the kitchen after you've had a baby is a nightmare because you have to wait for the baby to be asleep, you're exhausted, and you really don't want to clean up the kitchen now.
+- The thing about having a very young mother who had you at 20 is that you expect that you're going to be old ladies together.
+- The only reason I got married in 2003 was for my children. I had a therapist who said marriage is really a container for a family, and that made sense to me.
+- My mom worked as a psychiatric social worker. She was interested in people, and I guess I am, too. So we would talk about the people that we knew, and why they behaved the way they did.
+- My kids have always been allowed to have dessert. My husband thinks I'm too free and easy about that kind of stuff, but my kids will throw out a half-eaten ice cream cone if they've had enough, which I've never in my life been able to do.
+- I think it's always hard to find great roles, no matter what age you are. So I always say to people, 'You have to remember that Hollywood is in the business of making movies that they can sell tickets to; they're not in the business of finding great roles for actors.'
+- Every child is so different. Their experience growing up and their experience relating to the world has so much to do with their temperament, and their likes and their dislikes.
+- When I was younger, I thought I had to shut myself off, work really hard to cry. I learned after a while that that's just not... You know, often in life, you cry when you're caught off-guard. That's where I need to be when I'm acting, too.
+- My mom came to the U.S. very young, and then she married very young. But she was never American. She was always Scottish and would make sure that I knew that I was, too.
+- I can only be in the sun for 15 minutes before burning. I have sunscreen on my face every day. If I'm walking on the sunny side of the street, I'll walk to the shady side. I'm too uncomfortable in the sun.
+- We allow for many more gradations of personality in life than we do in art.
+- Whenever I'm doing anything romantic with an actor, or if there's a director around, I never want anybody's wife to feel threatened by me.
+- As an actor, there are places you can live, and when I graduated from school, it was either New York or L.A., and I liked the East Coast. That's why I ended up in New York.
+- Behavior is mutable. It changes from place to place. It's like accents, dialect - it varies from one area to another. But there are universal truths about what it means to be a human being. All the other stuff is like applique. Learning that was interesting to me and probably useful for becoming an actor.
+- My family life is incredibly important to me. I want to be with them as much as I can. I try to work in New York, or I work in the summer time when my family can come with me.
+- Movie studios aren't making too many dramas anymore; they're in the superhero business. Material for television is much, much stronger for actors now.
+- Even ordinary people aren't ordinary, not really. They're filled up with thoughts and feelings that you might never know are there until they suddenly materialise.
+- I read a lot growing up. It was kind of my comfort, you know; I loved it. I love story. I love narrative. I was academic. I wasn't particularly athletic. I didn't make the drill team. I didn't go out for sports.
+- When I was growing up, the place I felt least alone was when I was reading.
+- If I had to choose between clothes and furniture, I'd choose furniture.
+- The funny thing about my films is that you can make little piles of them. You could make little piles of the movie that were family movies, you could make a little art movie pile, you could make a little action movie pile.
+- At the Golden Globes, they put all the bigger stars in the front; the movie stars in the front, TV actors in the back. But even as a movie star, you can be outseated by a bigger star in any given year. It's kind of hilarious. You have to take it in stride.
+- I've always been somebody who's acutely aware of my mortality.
+- I think that one of the things that you do learn is that falling in love and being in love with someone is a rarity. That you don't fall in love as many times as you think you're going to. And then when you do, it's really special; it's really important.
+- I think to be courageous, you have to be afraid. For me, it feels very courageous when I go skiing because I'm very, very afraid to ski. It's dangerous! I feel very scared. But when I'm acting, I don't feel very scared.
+- Jennifer Lawrence is so talented and so lovely. She has a real ability to connect with people.
+- Really, you want to have variety as an actor. If you spend your career doing one thing solidly, people get burned out.
+- I went with Tom Ford to a bunch of events one year, and he's so wonderful and handsome and so much fun to be with; he made me look, like, 100 percent better in every single picture.
+- Well, you know, I mean, she was so wonderful, and she really played the role to perfection.
+- I'm looking for the truth. The audience doesn't come to see you, they come to see themselves.
+- In grade school, I was a complete geek. You know, there's always the kid who's too short, the kid who wears glasses, the kid who's not athletic. Well, I was all three.
+- It's very important for me to be absolutely present in order to be emotional.
+- I'm not scared of many things in front of the camera. Everywhere else, yes, I'm terrified. But acting is just pretending, and you are exploring feelings in a safe environment.
+- All I wanted was to be a regional-theater actor, to be in a company. I thought it would be a great life. I don't think I understood how difficult it would be.
+- We didn't have a lot of money growing up, so my mom didn't buy a lot of extras, like sweet things.
+- I knew from very early on that I wanted kids. I wasn't one of those women who goes, 'Well, if it happens, it happens.' I really wanted a family. Although I didn't actually have my first child until I was 37, I always felt I'd get there.
+- I moved frequently because my dad was in the army, so I was always new in school. I think if you've ever done that, you know what it means to not matter in a room. I think it's a good experience for everyone to have, to feel like they're not noticed, because it teaches you to be empathetic.
+- You have to be in yourself, but engage with the world and see what's going on.
+- If you're reading IMDB, half of it's made up. You can't trust it or Wikipedia, which is just lies, lies!
+- I don't know why women do Botox. It doesn't make them look younger, it just makes them look like they had work done. You are not going to look the same as you did at 25.
+- This is someone who has a very stringent morality, and believes the system works, and has been deeply, deeply disappointed, and hurt, by it. You know, so she's in a very different place in life.

@@ -1,0 +1,109 @@
++++
+author = "Gia Coppola"
+title = "Gia Coppola Quotes"
+quotes_len = "103"
+description = "the best 103 Gia Coppola Quotes"
++++
+- I always knew my mom was a good actress.
+- I have so much appreciation for movies because I understand how hard it is to make one.
+- It's great because all of my friends from elementary school are still my closest friends.
+- It's hard not to be impressed by my older relatives.
+- I didn't go to film school. My Grampa always says just watch a lot of movies. He didn't go to film school; he went to theatre school. It's interesting to learn about the technical side of it, but I think it's more important to learn about writing and working with actors.
+- I love Serge Lutens orange blossom perfume; my mom got it for me. It's my favorite. It just smells clean.
+- When I was a baby, my mom was always bringing me onto set.
+- Movies are a collaboration, I feel, so I didn't think of myself as an authoritative figure as much.
+- You can't host an Italian film festival without Marcello Mastroianni. It just doesn't feel right.
+- I have a lot of game apps I need to delete.
+- I knew I wanted to make a movie that hadn't really existed in a while in terms of being a teenager.
+- I get to collaborate and tell stories with moving photographs.
+- I really learned a lot when I worked on my grandpa's film 'Twixt' and got to be with him start to finish and sit next to him every day. That was my film school.
+- Usually when I get nervous and don't know how to prepare for something, I just don't do anything at all, which is not necessarily the best idea.
+- The hardest thing on 'Palo Alto' was letting go because I kept working on it, trying to make it better.
+- I got my GED my senior year and ended up taking community college classes before I transferred to Bard.
+- To a certain extent, I like fashion, but sometimes I just want to be comfortable and don't really care.
+- I love to play with the gadgets that come with film.
+- I think my job is hopefully to connect with people emotionally and to feel less alone or understand things in a certain way.
+- I normally wear jeans and sneakers, but given an occasion, I enjoy dressing up.
+- I've been going to the same person for haircuts since I was thirteen.
+- Most movies use older actors, but I thought, if I could just put kids on camera and get them to be themselves, what could be easier?
+- 'Virgin Suicides' was such a big movie to me as a teenage girl. It blew me away.
+- It was kind of intimidating to make a feature without that much experience.
+- I'm Italian, so I need to get someone to wax my eyebrows, but I'm not so good at keeping it up.
+- Now that I'm older, I have a much better appreciation of nature, and I love being alone.
+- I wanted to be a ballet dancer. I was bad - I'm not very coordinated. But I always wished I could have been a dancer.
+- My grandpa showed me how to build stamina onset behind the scenes on 'Twixt.'
+- As a first-time director, you act a lot like a teenager. I made decisions because I was hotheaded. My skin broke out. I was trying to understand who I am.
+- I love so many directors. I love David O. Russell. I love David Fincher, I love Alexander Payne and Jane Campion and my aunt. Spike Jonze. There are just so many amazing directors.
+- Being a little naive can work to your advantage.
+- I never particularly liked it in New York City.
+- I love making movies. But it's a lot of investing your heart and soul. It can be exhausting.
+- It's hard for me to articulate myself.
+- Costumes say a lot about a character. When it came to 'Palo Alto,' it was important for me that the kids didn't look perfect. In most teen movies today, all of the clothes are expensive. I remember wearing a lot of dirty vintage clothes.
+- I went to a private all-girls school where I didn't feel I fit in.
+- I want to learn and challenge myself and grow.
+- I think what's so great about making your first feature film is that you're so naive in some ways; you don't know what to expect, and you don't question things as much because you're just trying to figure it out as you go.
+- My family get so mad at me when they come over. All I'll have in is milk and eggs. I mainly keep film in my fridge - it's better for it; it stops it from going old. I'm bad at eating healthy; I usually just run across the street and get cheeseburgers.
+- My grandpa always tells me that 45-minute lunches are key because an army marches on its stomach.
+- My family and I are so close, it's important to have a close knit relationship and to make time to spend with each other, especially at the holidays.
+- I'm always really impressed when a movie can function like a novel does - that's so hard to do.
+- I wanted to be a bartender for a bit.
+- I knew I wanted to be creative but didn't know how.
+- I'm so proud to be American.
+- When I graduated, I felt a little burned out on taking pictures after so many years of churning out so many for classes.
+- I'm not so vocal. I try to get loud, but my voice will just crack or something.
+- Most people think of Las Vegas, and they think of extravagance. But it's really a mix between fantasy and laziness.
+- I just remember that pivotal moment when you're a young adult, and you realize that these authority figures are human beings, too, and they're figuring out their lives just as you are, and they're flawed.
+- I'm so drawn to photography because you can convey a complex story in a single frame.
+- I don't really wear makeup. I don't like the feeling of it. I just put mascara on, and that's kind of it.
+- My name does help me get in the door, but it doesn't do the work for me.
+- If I'm not comfortable, I just look awkward.
+- I don't like being in front of the camera.
+- I just love seeing other females work.
+- My grandpa told me, 'Learn to love anxiety, because it never goes away in moviemaking.'
+- My mentor in college was Stephen Shore. I loved his color palettes and his taking mundane things but finding them fascinating.
+- I feel like I can communicate much better using images than words.
+- I guess I knew my dad was into photography, so a part of me was interested in picking it up to understand him a little better.
+- I enjoy seeing how my friends - Proenza Schouler, Zac Posen, Rodarte - use clothes to create their vision and art.
+- I studied photography at Bard, but I just felt tired of it. Someone asked me to be in a video but didn't want to be in it, so they told me to make my own, and that seemed more fun to me.
+- I liked to drive around, just playing music for everyone.
+- I've only ever taken a playwriting class, but I like creative writing and writing screenplays.
+- I think when you do things outside of what you're interested in, you meet people and get ideas to bring in to whatever it is you love doing the most.
+- I think there's always this idea in your head, but you have to allow the film to take its own course.
+- I don't like shopping, so I'll look online. I like going to the flea market at the Rose Bowl every once in a while. I like the same stores, Opening Ceremony and APC.
+- I was really nervous working with actors, since I come from a photography background.
+- I went to a private school, and I struggled academically. It was really disheartening to always be considered bad at that.
+- When I was younger, I had pink underneath my hair, and I got detention. I went to an all-girls school where you wore a uniform, and pink hair was not OK.
+- We definitely have to support other female directors because there's not enough of us.
+- Visually, I love the setting of suburbia.
+- I love my family's films.
+- I'm a pyro. I love exploding things.
+- In high school, I didn't always relate to my friends. I was more of a spectator.
+- In Italy, there are a lot of Coppolas - it's like being called Jones. No one really notices.
+- My only vice is 'Keeping up With The Kardashians.' I can't really explain what it is that fascinates me so much, but it just sucks me in.
+- There is always something I gain from watching a movie, whether it's a silly romantic comedy or an art film.
+- I've been very surprised by people asking me what my teenage experience was like.
+- I enjoy fashion photography and textiles, that whole aspect of it. As more of an art form, I like Proenza Schouler. Those guys are really cool because they seem to have an interesting approach to it all.
+- I like the pharmacy makeup. I always get stuck in that aisle... I've always liked looking at it.
+- I remember people - not my family - always asking, 'Oh, so are you going to make movies when you're older?' I felt pressured, and that always kind of deterred me.
+- In California, where you're allowed to drive at 16, you get so much freedom with that. It's a freedom to get outside of your parents' house and to do bad things.
+- If I were to save one possession in a fire, it would have to be my dad's camera, an old, broken Nikon. I always keep it with me - his personal things mean a lot.
+- The teenage years are such a great subject because everything is heightened and on the surface, and it deals with universal emotions that we face even as we get older.
+- I've always been very comfortable in a set environment. All the collaborating going on, seeing how actors work - it all excites me.
+- Friends would ask, 'Have you seen 'The Godfather?' and I'd be like, 'No.'
+- After college, I drove across the country twice with friends. It was one of the most fascinating experiences of my life. I find it really inspiring seeing the country that way.
+- I watched a lot of movies about teenagers, including 'The Last Picture Show,' 'American Graffiti,' 'Rumblefish.' It's one of my favorite genres.
+- With my aunt, I definitely can relate to how she makes a movie because she does it with her own demeanor, which isn't this loud presence.
+- As a teenager, I wanted to be sophisticated and avant-garde, and I was really judgmental. But when you're a teenager, you're fearless because you don't know the repercussions to anything.
+- I love working with other people and bouncing ideas off them.
+- Making a movie is a lot of problem solving.
+- Chanel is a brand that is so inspiring.
+- Women need to support women.
+- Anyone can create and put stuff out there, so then as viewers and listeners, we have access to a lot of different unique view points.
+- I like the camera to be still and not very shaky and have everything happen within the frame.
+- Working with a great actor is really educational.
+- I was always a big James Franco fan.
+- It's tricky to take a book of short stories and turn it into a feature film.
+- When I went to college, my mum was really sad, so she preserved my bedroom, like a weird time capsule.
+- I remember having crushes and longings, but there were all these missed opportunities or things that seemed like such a big deal, but you really don't understand what the other person is going through.
+- So many of the kids on television have really nice clothes, perfect skin and hair.
+- Once I found these sticker things for your nails - Sally Hansen - those were really fun to do. They're really fun to do when you're bored, and it's better than painting your nails because you don't mess up. It looks really good, very professional. I tried a zebra one that was really pretty, but I always get a little bored of it.

@@ -1,0 +1,56 @@
++++
+author = "Joyce Banda"
+title = "Joyce Banda Quotes"
+quotes_len = "50"
+description = "the best 50 Joyce Banda Quotes"
++++
+- My dear husband, Richard, has been the driving force behind my success and rise to whatever level I am now. My story and legacy is incomplete without his mention.
+- My mission in life is to assist women in social and political empowerment through business and education.
+- At the end of primary school, I went to secondary school. I paid $12 a term to go to school.
+- My father once told me when I was a young girl that I was destined to do great things. His belief in my abilities and ambition is rooted deeply in the spirit of Malawians; resilient and determined for a better Malawi and a better Africa.
+- Women didn't go to school when they were young because parents preferred to send their brothers. The women couldn't access loans in their own right because the banks sought the approval of a male dependent.
+- I was privileged because my father was a policeman, and we lived in town. Many people in Malawi are from typical villages. My grandmother insisted I should be in both worlds, and so I needed to be acquainted with village life.
+- Overall, I have formed three major organizations: the National Association of Business Women, the Young Women's Leaders Network, and the Joyce Banda Foundation. Under the foundation, we have a huge program that targets women to teach them about HIV and other diseases and to give them economic empowerment.
+- What I have said to my team is that at a point such as this, with 40% adjustment in our currency, it means that Malawians are paying the price. While that is going on, they need to see, us, the commitment on our part, particularly right at the top. The political will needs to go through this with the people, side by side.
+- I convinced myself economic empowerment of women was going to be key, especially in a country like this where most women didn't go to school.
+- We have decided to diversify agriculture; we decided to develop our tourism sector. We have decided to develop our mining sector. So these are some of the things we're telling Malawians: we say this is what we need to do in order for us to get out of this total dependence on aid.
+- I have spent all my life advocating on behalf of the poor, oppressed and marginalized. As a social justice and human rights activist, and now as President of the Republic of Malawi, I have a deep appreciation for the challenges of those on the margins of society.
+- The seeds of success in every nation on Earth are best planted in women and children.
+- I want you to know that I don't have any right, Malawi has no right to stop any president from coming to an African Union summit because that is an African Union meeting.
+- You ask how I feel to be the first female president in southern Africa? It's heavy for me. Heavy in the sense that I feel that I'm carrying this heavy load on behalf of all women.
+- My dream is for Malawi to be poverty-free, and I intend to eradicate poverty through economic growth and wealth creation.
+- I will forever be thankful to the Malawians and international community, and my professional army and army general, who said: 'No, we will follow the constitution.' That's why I'm here.
+- I don't remember a single day during the time I was minister of gender, foreign minister, vice-president and president when I saw anything on the part of the men that indicated they were undermining me.
+- I learned that leadership is about falling in love with the people and the people falling in love with you. It is about serving the people with selflessness, with sacrifice, and with the need to put the common good ahead of personal interests.
+- Throughout my career, I have been confronted with people who have doubted my ability to achieve the dreams and ambitions distilled into my soul by my father.
+- I got married at 22 and remained in an abusive marriage for 10 years. I made up my mind that that was never going to happen to me again. I made a brave step to walk out in a society when you didn't walk out of an abusive marriage. It was mental and physical abuse.
+- When I took over, the economy had almost collapsed. I told Malawians we needed to pass through difficult times. Two days ago I even cut my own salary by 30% to show we are making sacrifices.
+- I sat down in 1989 and I made up my mind at that point that I was going to spend the rest of my life assisting women and youth to gain social and political empowerment through business and education. I convinced myself economic empowerment of women was going to be key, especially in a country like this where most women didn't go to school.
+- I decided that I was going to leave State House, and I was going also to step up and step aside so that I give President Peter Mutharika an opportunity to run the country without my interference.
+- I prospered very quickly. Very quickly, I became politically empowered. I was running my own business.
+- What I am saying every day to Malawians is that time has come for us to move from aid to trade. We have picked several sectors that we think we can focus on immediately in order for us to grow our economy. So we have decided to diversify agriculture, we decided to develop our tourism sector, we have decided to develop our mining sector.
+- I believe that international support through critical funds, together with the determination of my compatriots, Malawi can be a model country for meeting global health targets and get on with the business of African-driven global economic growth.
+- I shall always be proud of what I've done, regardless of what you journalists or anybody can say.
+- If you want me to be a cry baby, I cannot: I am the leader of a country. If you want to give me something and then withdraw it, fine; I must respect your decision.
+- As a democratic society, Malawi has a moral obligation to ensure that each and every injustice, whether through acts of commission or omission, is met with deliberate and tangible action.
+- You can still sit under the tree where Dr. Livingstone negotiated with slave traders to set people free.
+- My father made sure I was treated equally with my brothers.
+- In 1989, I started the National Association of Business Women. We incorporated microfinance and different job training for women. We did a survey, with USAID, that found women lacked training, credit and information.
+- Lula da Silva was my hero when he was president. I Googled him so many times. The fact that he got 20 million people out of poverty... that happened by encouraging entrepreneurship, by supporting small business.
+- An African woman carries heavy loads anyway. That's how we are trained; we are brought up that nothing is unbearable. I use that now, positively. I use that now to have the thick skin that I have, and not fear, and move forward, and push; and push forward.
+- I am convening the African Leaders Forum on Disability in partnership with Special Olympics so that a marginalized population long unrecognized does not remain in the shadows. I consider this a critical, moral and practical challenge.
+- If we provide the young with a strong foundation, we can leave behind a legacy substantially greater than most are able to bequeath. As for the women, the old adage that you invest in a woman, you invest in a generation, still rings true today.
+- I'm indeed a mandasi seller, and I'm proud of it, because the majority of women in Malawi are like us, mandasi sellers.
+- But the fact that we had to devalue by 40% at once means that Malawians are feeling the shock, the impact of that huge devaluation and particularly rural people, the poor are the ones that are going to be most affected. That is why there is the austerity plan.
+- Most African women are taught to endure abusive marriages. They say endurance means a good wife but most women endure abusive relationship because they are not empowered economically; they depend on their husbands.
+- I am tremendously inspired by many women around the world who work under dire circumstances to make a difference for their families.
+- Millions of women in malaria-endemic areas in Africa become pregnant every year. Malaria is a threat to these women and their babies, with up to 200,000 newborn deaths each year as a result of malaria.
+- I have always said that I want Malawi to attain growth that should not just be seen in GDP, but in the growth of opportunities for all, protection for all, and equality for all.
+- My vision is a Malawi where men and women live in peace and in harmony as equals enjoying their human rights.
+- Malawians must look forward toward a better future.
+- I'm used to hitch-hiking.
+- I began to think about those that were in my situation that were not able to walk out of an abusive marriage, or maybe those that did not know where to go, that were in a single headed marriage, or widows. I was thinking what it was I could do to reach out to them.
+- It's heavy, but I am able to carry it. Why? Because I'm an African woman. An African woman carries heavy loads anyway. That's how we are trained; we are brought up that nothing is unbearable. I use that now, positively. I use that now to have the thick skin that I have, and not fear, and move forward, and push; and push forward.
+- When I gave birth to my fourth child, I suffered from post partum hemorrhaging. I almost lost my life. I was lucky to be under the care of trained health care personnel. I started wondering then what was happening to women in rural villages.
+- After President Mutharika was declared a winner, there was life after State House. For those Malawians that know me, I am an international public speaker. So I went back to my speaking engagements.
+- Misogyny not only for Joyce Banda but for women.

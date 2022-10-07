@@ -1,0 +1,85 @@
++++
+author = "Jeremy Irons"
+title = "Jeremy Irons Quotes"
+quotes_len = "79"
+description = "the best 79 Jeremy Irons Quotes"
++++
+- My father was a CPA. He worked hard in the aircraft industry, and would come home more and more infrequently. He was about to leave my mother, which he did when I was 15.
+- I don't watch a lot of television. I try to watch all the good movies, but I've got about twenty of these television series that I should be watching. I haven't seen 'The Wire.' I haven't seen 'Mad Men.' I haven't seen Kevin's thing. What's that called? 'House of Cards.' I hear it's wonderful.
+- Paris Hilton, that's very interesting what she did. I've never done that. I haven't really sort of ever got into that. As time passes, maybe I should record it and put it in a vault so that when I get a little old don't have the energy I can remember how life used to be.
+- It's always nice working with friends. And if you have a director that you've worked with before, you don't have to go through that first learning thing. There's an element of trust there.
+- The film business has changed hugely. You seem to spend about 30 per cent of the time producing the films and 70 per cent talking about it.
+- I do this work, but I am uncomfortable in situations where you're hyped into something you're not. Just because you're in a long limo doesn't mean anything.
+- And whenever I'm in a situation where I'm wearing the same as 600 other people and doing the same thing as 600 other people, looking back, I always found ways to make myself different, whether it be having a red lining inside of my jacket, having red shoes, it hasn't changed.
+- When I'm not working, I don't mix with actors, really. I have about two or three friends from theater school, and we call each other and meet. But in the main, no. I'm more happy with musicians or horse riders or sailors.
+- There are people who are victims in life, and I don't think they should be encouraged.
+- A trip to the mainland was a big event and happened maybe once a year, although now you can get across in a speed boat in seven minutes but then it was a long way away.
+- Commerce seems to be covering every aspect of our lives now. Which me, because I'm a romantic, is sad for me to say.
+- I came to London. I spent nine months doing domestic work and gardening because I knew I wanted to get a West End show. So, when I was offered jobs in Stoke or Leicester or whatever, I'd say no. Eventually, I got 'Godspell.' It was gently building.
+- I think all of society should be a think-tank where you throw ideas about. I had hoped the Internet would help. Actually, what it has done is make everybody go schtum. They're attacked for saying anything. So they say nothing.
+- I constantly experience failure in that my work is never as good as I want it to be. So I live with failure.
+- What I try to do as an actor is constantly find that, find ways to risk, find opportunities to fall on my face if it's going to be worth it, and then maybe I'll surprise myself.
+- I believe inanimate objects have a spirit.
+- Actors often behave like children, and so we're taken for children. I want to be grown up.
+- I've never disliked a character I've played. I've always tried to find the humanity and the reasons for what he does.
+- So the better my partner or my opposition, however you like to think about it, the better my game.
+- An acting assistant stage manager in a theater in Canterbury, a rep theater. A small wage but just enough to get by on, and I made props and I walked on, and I changed scenery, and I realized that I just loved it.
+- I was not naturally intellectual, but somebody whose interest had to be whetted, still the case sadly.
+- No, I don't believe in hard work. If something is hard, leave it. Let it come to you. Let it happen.
+- I looked at the circus, and I looked at the carnival, at the fun fair. But I looked at sleeping accommodations and decided I was too middle class to put up with that! So then I joined the theater and found I could choose my own bedroom. I loved the atmosphere. I loved that we worked till midnight and didn't start till ten.
+- I have developed a life which seems to need a relatively high income.
+- I was the youngest. The yule lamb. The one who always got away without doing the washing up. My sister was four years older, and my brother six years.
+- There are wonderful things happening all around the world. From Nova Scotia to Kerala, Bristol to Melbourne, and even in the Philippines, zero waste is on the agenda. I think what's particularly inspiring is when communities don't wait to be told what to do but just go ahead and do it.
+- Now in my theater training I showed no aptitude at all.
+- He's a man who... well, one of the great things about Shakespeare is that his characters are inconsistent, and that's something I think makes him a writer above most writers because inconsistency is what we, as people, are full of. We maybe don't see it in ourselves too often, but we are inconsistent.
+- You can be in love and raise a family wonderfully by not being married, but actually, marriage does give us a strength, because it's quite hard to get out of, and so it makes us fight more to keep it together. If divorce becomes dead easy - which it sort of has - then we don't have that backup. Because, for everybody, relationships are hard.
+- However, I wasn't very good at the sciences, or didn't have a lot of help in the sciences or something but certainly didn't set science for my A level. And when I came to take my A levels I didn't get a good enough result to go to University.
+- Film wise, I invariably look at my work and reckon I could have done it better. I'm also conscious that I'm in a profession where we get more praise than we should compared to the usefulness of what we do.
+- The danger of dioxins in our environment, our food chain, and our bodies is difficult to illustrate, since they are not visible to the naked eye. My time in Vietnam allowed me to see the result of large quantities of them and therefore understand better the insidiousness of the smaller quantities that have found their way into our lives and bodies.
+- It was a better time to be a young actor when I started out. There was a repertory system where you could go and practise.
+- Americans enjoy uniformity in a way that the British don't; they wanted everybody of a sort of nice chorus line height and here I was, this person who was a good three inches taller than anyone else on the end of the line.
+- Most people have fallen by the wayside once or twice in their lives, and because the world is so transparent now, I think they're very fearful of running for office.
+- I think nobody since has written such extraordinary work as Shakespeare writes. The characters he writes are full of inconsistencies, which is a great human quality - I mean, we're all very inconsistent in the way we behave.
+- I don't mind getting older. I'm enjoying not having that raging ambition I've had all my life.
+- You ask my wife or my two sons, and they'll tell you that I ain't free with the money.
+- I think the job of artists is to stir things up.
+- The older I get, the less busy I like to be.
+- Nowhere are emissions monitored constantly. So the truth is that the real quantity of dioxin emissions from incineration remains unknown.
+- I keep working with fairly inexperienced directors. You know, if you have a good crew, a good cameraman, you know, I know what I'm doing. If the actors know what they're doing, we can all pull together, and it works.
+- We all have our time machines. Some take us back, they're called memories. Some take us forward, they're called dreams.
+- So nevertheless, what I'm saying is that what one is - one's parameters are constantly narrowed by one's success, and my desire is to widen my field even if I risk failure.
+- I do what I do because I like doing it. I'm well paid for it. I get far too much adulation compared with what it's worth.
+- I wouldn't call myself a method actor, but I have my own method. I do my own research. I come up with a background for the character. I'm not a club man. I don't like isms. I've never really studied Stanislavski.
+- Civility, politeness, it's like a cement in a society: binds it together. And when we lose it, then I think we all feel lesser and slightly dirty because of it.
+- I think I would not be described as a character actor in that I don't take on characteristics which are very alien to me.
+- I believe that most people would like to cooperate in reducing waste, but to encourage them, the national policy should be clear, well advertised, and consistent. Even within Greater London, there is a huge discrepancy between council policies. I believe a national waste management initiative should be designed and implemented by government.
+- I envy children who know that they're going to become doctors, know they're going to go into the forces or whatever. I think choice is one of the hardest things, but that's what I try to give my children, to say you can do anything.
+- Mathematicians are always playing tricks on each other. They're always pulling jokes on each other.
+- I've always tended to play people who relish playing against the rules.
+- My next step must be to go to drama school. Well, I get into drama school, so I did that.
+- Really, ambition has gone. I look for things that tickle my fancy. You begin to see the end of life on the horizon. You think, 'It's not going on forever, this.' Let's make the most of what time I have left.
+- I love touching. I always touch people.
+- Because I'm now successful, what I'm being offered as an actor is more and more of the same.
+- I've always had a desire to live on the outside. That's where I'm most comfortable.
+- My feeling, of course, is that it's ludicrous to try to prove God's existence by science. God has nothing to do with science. God has all to do with soul, and who can explain that?
+- I'm not religious. I'm spiritual. Religious seems too much like a club.
+- It's always great to play a man who sets himself up to be punctured.
+- I had done a fair bit of traveling during the holidays in my school days with my guitar and discovered that I could live on it. Admittedly, I traveled with a sleeping bag but I could always find somewhere to lay my head.
+- At age 10 or 12 he's going to boarding school in the Isle of Wight. The Isle of Wight is, of course, down at the bottom of England just off South Hampton.
+- I think the world is much more transparent now, and I think that's probably a good thing. On the other hand, I think it makes it really tough for people who are natural born leaders who could be guiding us and leading our countries.
+- A comic book and a straight drama all have the same elements. If you're playing tragedy, you have to be aware of the comedy; if you're playing comedy, you have to be aware of the tragedy. If you're playing comic book, you have to be aware of the reality.
+- I have played characters where I haven't been absorbed - you know, what I call a typical film leading man role where you just have to look gorgeous and be attractive and charming. It bores me. I like a bit of dirt, a bit of sand in the oyster.
+- Peter Brook's 'Midsummer Night's Dream,' I remember seeing. That was pretty early on. And suddenly, I realized how theatrical Shakespeare is, how alive, how wonderful it is when it's opened up by a great director and a great company.
+- Godspell was a good leap for me, it was a good shop window.
+- I don't like rules.
+- 'Lolita' was a great wound in the side for me. I stuck my neck out maybe further than I should have and castigated the studio for not getting behind it.
+- There's a great thing about amateur sport: it is purer. And the athletes are not open to so much pressure with amateur sport.
+- So I continued through my next school, which takes me up to the age of 17, moving from the bottom stream of one year into the bottom stream of the next year, all the way through. I showed other talents which gave me self-respect, which is fine.
+- And trust, yes, which is important, but that is what I aim towards. Now that is difficult for some people, and with that desire to get things as good as possible, I would say that I'm probably regarded as quite prickly to work with.
+- I think there's still an appetite among a certain audience to see intelligent movies that have real emotion in them.
+- I succeeded on sort of chutzpah and charm. No technique at all, didn't know what I was doing, but it worked and the character suited me.
+- I wanted to become an actor because I wanted to become a gypsy. I wanted to live the gypsy life!
+- I wanted to find a way of life that allowed me great freedom, not to be stuck. I went to a very traditional school, which prepared people for the army or for banking or for industry, and I wanted to be outside of that.
+- The sad thing about any business I suppose, but in mine you see it particularly, is that you're always asked to do what you've already done.
+- I had people when I was younger trying to feel me up. Older men. I just told them to get lost.
+- I liked the theater. I liked the people. I liked the time that we worked.

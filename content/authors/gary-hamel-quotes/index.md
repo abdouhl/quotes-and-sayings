@@ -1,0 +1,69 @@
++++
+author = "Gary Hamel"
+title = "Gary Hamel Quotes"
+quotes_len = "63"
+description = "the best 63 Gary Hamel Quotes"
++++
+- An enterprise that is constantly exploring new horizons is likely to have a competitive advantage in attracting and retaining talent.
+- It's important to remember that innovators in business don't always get a platform.
+- I was frustrated for a long time with my colleagues in the business school world and with so many management authors who didn't really see themselves as innovators. They were glorified journalists.
+- As the great grandchildren of the industrial revolution, we have learned, at last, that the heedless pursuit of more is unsustainable and, ultimately, unfulfilling. Our planet, our security, our sense of equanimity and our very souls demand something better, something different.
+- Building human-centered organizations doesn't imply a return to the paternalistic, corporate welfare practices of the 19th century. Most of us don't want to be nannied.
+- Like a child star whose fame fades as the years advance, many once-innovative companies become less so as they mature.
+- When a politician bends the truth or a CEO breaks a promise, trust takes a beating.
+- At the pinnacle of great design are products so gorgeous and lust-worthy that you want to lick them: a Porsche 911, Samsung's Luxia TV, an Eames lounge chair or anything by Loro Piana.
+- Most of us understand that innovation is enormously important. It's the only insurance against irrelevance. It's the only guarantee of long-term customer loyalty. It's the only strategy for out-performing a dismal economy.
+- In most organizations, change comes in only two flavors: trivial and traumatic. Review the history of the average organization and you'll discover long periods of incremental fiddling punctuated by occasional bouts of frantic, crisis-driven change.
+- Over time, a successful company will acquire much in the way of resources and momentum, and these things often insulate it from reality once it has stopped being successful.
+- As human beings, we are the genetic elite, the sentient, contemplating and innovating sum of countless genetic accidents and transcription errors.
+- Businesses fail when they over-invest in what is at the expense of what could be.
+- While one should never underestimate the ability of risk-besotted financiers to wreak havoc, the real threat to capitalism isn't unfettered financial cunning. It is, instead, the unwillingness of executives to confront the changing expectations of their stakeholders.
+- I am an ardent supporter of capitalism - but I also understand that while individuals have inalienable, God-given rights, corporations do not.
+- In a world of commoditized knowledge, the returns go to the companies who can produce non-standard knowledge.
+- Fact is, inventing an innovative business model is often mostly a matter of serendipity.
+- Remarkable contributions are typically spawned by a passionate commitment to transcendent values such as beauty, truth, wisdom, justice, charity, fidelity, joy, courage and honor.
+- The real damper on employee engagement is the soggy, cold blanket of centralized authority. In most companies, power cascades downwards from the CEO. Not only are employees disenfranchised from most policy decisions, they lack even the power to rebel against egocentric and tyrannical supervisors.
+- It doesn't matter much where your company sits in its industry ecosystem, nor how vertically or horizontally integrated it is - what matters is its relative 'share of customer value' in the final product or solution, and its cost of producing that value.
+- What's true for churches is true for other institutions: the older and more organized they get, the less adaptable they become. That's why the most resilient things in our world - biological life, stock markets, the Internet - are loosely organized.
+- A noble purpose inspires sacrifice, stimulates innovation and encourages perseverance.
+- Most of us do more than subsist. From the vantage point of our ancestors, we live lives of almost unimaginable ease. Here again, we have innovation to thank.
+- I don't know whether the universe contains any evidence of intelligent design, but I can assure you that thousands of everyday products do not.
+- Obviously, you don't have to be religious to be moral, and beastly people are sometimes religious.
+- In an ideal world, an individual's institutional power would be correlated perfectly with his or her value-add. In practice, this is seldom the case.
+- If organized religion has become less relevant, it's not because churches have held fast to their creedal beliefs - it's because they've held fast to their conventional structures, programs, roles and routines.
+- We owe our existence to innovation. Our species exists thanks to four billion years of genetic innovation.
+- An employee who's one of hundreds, rather than one of a few, is unlikely to feel personally responsible for helping the organization adapt and change.
+- Management innovation is going to be the most enduring source of competitive advantage. There will be lots of rewards for firms in the vanguard.
+- You can't build an adaptable organization without adaptable people - and individuals change only when they have to, or when they want to.
+- If corporate leaders and their acolytes are not slaves to some meritorious social purpose, they run the risk of being enslaved by their own ignoble appetites.
+- Top-down authority structures turn employees into bootlickers, breed pointless struggles for political advantage, and discourage dissent.
+- All too often, legacy management practices reflexively perpetuate the past - by over-weighting the views of long-tenured executives, by valuing conformance more highly than creativity and by turning tired industry nostrums into sacred truths.
+- You have to train people how to be business innovators. If you don't train them, the quality of the ideas that you get in an innovation marketplace is not likely to be high.
+- The biggest barriers to strategic renewal are almost always top management's unexamined beliefs.
+- To create an organization that's adaptable and innovative, people need the freedom to challenge precedent, to 'waste' time, to go outside of channels, to experiment, to take risks and to follow their passions.
+- During the ten years I lived in the U.K., I frequently attended an Anglican church just outside of London. I enjoyed the energetic singing and the thoughtful homilies. And yet, I found it easy to be a pew warmer, a consumer, a back row critic.
+- In most companies, the formal hierarchy is a matter of public record - it's easy to discover who's in charge of what. By contrast, natural leaders don't appear on any organization chart.
+- In a well-functioning democracy, citizens have the option of voting their political masters out of office. Not so in most companies.
+- I live a half mile from the San Andreas fault - a fact that bubbles up into my consciousness every time some other part of the world experiences an earthquake. I sometimes wonder whether this subterranean sense of impending disaster is at least partly responsible for Silicon Valley's feverish, get-it-done-yesterday work norms.
+- At the heart of every faith system is a bargain: on one side there is the comfort that comes from a narrative that suggests human life has cosmic significance, and on the other a duty to yield to moral commands that can, in the moment, seem rather inconvenient.
+- The fact is, society is made more hospitable by every individual who acts as if 'do unto others' really was a rule.
+- In a democracy, you don't need anyone's permission to form a new political party, publish a politically charged article, or organize a 'tea party.' And in open markets, individuals are free to buy and invest as they see fit.
+- Today, no leader can afford to be indifferent to the challenge of engaging employees in the work of creating the future. Engagement may have been optional in the past, but it's pretty much the whole game today.
+- A well-conceived product excels at what it does. It's close to being functionally flawless - like a Ziploc bag, a radio from Tivoli Audio, a Philips Sonicare toothbrush, a Nespresso coffee maker or Google's home page.
+- In most languages, 'control' is the first synonym for the word 'manage.' Control is about spotting and correcting deviations from pre-defined standards; thus to control, one must first constrain.
+- It's not just that individuals have lost faith in the integrity of their leaders, it's that they no longer believe society's most powerful institutions are acting in their interests.
+- An uplifting sense of purpose is more than an impetus for individual accomplishment, it is also a necessary insurance policy against expediency and impropriety.
+- Power has long been regarded as morally corrosive, and we often suspect the intentions of those who seek it.
+- Most companies don't have the luxury of focusing exclusively on innovation. They have to innovate while stamping out zillions of widgets or processing billions of transactions.
+- I'm a capitalist by conviction and profession. I believe the best economic system is one that rewards entrepreneurship and risk-taking, maximizes customer choice, uses markets to allocate scarce resources and minimizes the regulatory burden on business.
+- Truth be told, there are lots of companies that provide exemplary phone support. DirecTV, Virgin America and Apple are a few that regularly exceed my expectations.
+- I'm not one of those professors whose office is encased floor-to-ceiling with books. By the way, I think academics do this to intimidate their visitors.
+- To escape the curse of commoditization, a company has to be a game-changer, and that requires employees who are proactive, inventive and zealous.
+- A titled leader relies heavily on positional power to get things done; a natural leader is able to mobilize others without the whip of formal authority.
+- An adaptable company is one that captures more than its fair share of new opportunities. It's always redefining its 'core business' in ways that open up new avenues for growth.
+- Large organizations don't worship shareholders or customers, they worship the past. If it were otherwise, it wouldn't take a crisis to set a company on a new path.
+- It's not unusual for a would-be entrepreneur to get turned down half a dozen times before finding a willing investor - yet in most companies, it takes only one 'nyet' to kill a project stone dead.
+- Over the centuries, religion has become institutionalized, and in the process encrusted with elaborate hierarchies, top-heavy bureaucracies, highly specialized roles and reflexive routines.
+- Online hierarchies are inherently dynamic. The moment someone stops adding value to the community, his influence starts to wane.
+- As human beings, we are the only organisms that create for the sheer stupid pleasure of doing so. Whether it's laying out a garden, composing a new tune on the piano, writing a bit of poetry, manipulating a digital photo, redecorating a room, or inventing a new chili recipe - we are happiest when we are creating.
+- Trust is not simply a matter of truthfulness, or even constancy. It is also a matter of amity and goodwill. We trust those who have our best interests at heart, and mistrust those who seem deaf to our concerns.

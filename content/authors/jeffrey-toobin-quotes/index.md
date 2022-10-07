@@ -1,0 +1,27 @@
++++
+author = "Jeffrey Toobin"
+title = "Jeffrey Toobin Quotes"
+quotes_len = "21"
+description = "the best 21 Jeffrey Toobin Quotes"
++++
+- Obviously, a big part of the American Revolution was there would be no Church of England the way there was in England. There was a specific attempt not to have an established church.
+- My own career reflects a strange dichotomy between the world we've long known and the world that will become.
+- We have never had a president of the United States or a nominee of a major party who was a Supreme Court law clerk.
+- Rodney King is a progenitor of all these cell phone videos that we have. It was unusual that a person had a video camera to take a picture of the Rodney King beating. Now, of course, everybody has a phone, and that has been one of the key factors in all the new attention to the issue.
+- The assassinations of Martin Luther King, Jr., and Robert F. Kennedy led directly to the passage of a historic law, the Gun Control Act of 1968.
+- The role of the defense is to be an advocate for their client, regardless of whether he did it or not, within the bounds of the law.
+- One of the main things I know about O.J. Simpson is that he is a compulsive talker. So if I were to ask him one question, I would get 45 minutes on the history of the case. It would be irrelevant what I would ask him - he would just start talking.
+- I grew up, like most people in my generation, watching John Travolta. I was thrilled to meet him.
+- The United States, like any great power, is always going to have an intelligence operation, and some electronic surveillance is obligatory in the modern world.
+- I'm a big fan of good grades. But I am going to suggest to you that you will find that the skills of a student are of somewhat less use to you once you get out into what is sometimes referred to as 'the real world.'
+- There is always sleaze in the news. And you know what? The news is always a combination of things that are interesting and things that are important.
+- For a long time, the Court has moved toward outlawing all forms of racial preference, including affirmative action, and Obama seems accepting, even supportive, of the change.
+- I think trials are inherently dramatic and interesting and are always going to be part of the news.
+- Students follow rules. Students complete assignments. The job of students - in part, at least - is to please their teachers. Now, I realize I may be exaggerating a little here, but basically I think I'm right: students do what they're told.
+- Beyond diversity, the story of Obama's influence on the courts is more complex. Indeed, it could serve as a metaphor for his Presidency: symbolically rich but substantively hazy. Obama took office after years of intense conservative focus on the courts.
+- For someone who has been so important to my career, I have had absolutely no interaction with O.J. Simpson one-on-one in my whole life. I've tried many times. I have written him in prison, I've had other contact ... but he never responded, so I have never had a conversation with O.J. Simpson, never met the guy.
+- Courtney Vance and I are college classmates, weirdly enough. We're both Harvard class of 1982. Courtney, as a work-study job, was a typesetter at the Harvard 'Crimson,' the newspaper where I worked.
+- Everyone wants to be paid well - I know that I certainly do. But there are lots of other satisfactions that we get from our work. To feel needed. To feel accomplishment. To believe that our work matters. Being a lawyer gives you a rare chance to experience that kind of success.
+- The transformation of the D.C. Circuit has been replicated in federal courts around the country. Obama has had two hundred and eighty judges confirmed, which represents about a third of the federal judiciary.
+- Cameras in the courtroom is a great idea.
+- When Obama took office, Republican appointees controlled ten of the thirteen circuit courts of appeals; Democratic appointees now constitute a majority in nine circuits. Because federal judges have life tenure, nearly all of Obama's judges will continue serving well after he leaves office.

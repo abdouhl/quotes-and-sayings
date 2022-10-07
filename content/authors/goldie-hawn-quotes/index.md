@@ -1,0 +1,141 @@
++++
+author = "Goldie Hawn"
+title = "Goldie Hawn Quotes"
+quotes_len = "135"
+description = "the best 135 Goldie Hawn Quotes"
++++
+- I've worked alongside some very good directors and some not so good.
+- I believe that we all need to do charitable work. It should be taken seriously in the area of education, as someone from the industry.
+- I don't like facial hair, and I don't like kissing facial hair, as you cant find the lips.
+- My father was Presbyterian.
+- No relationship is easy, and nobody should ever think it is. The minute you start forgetting the needs of the other person is when you get in trouble.
+- Money can destroy people. It really can.
+- Directors didn't want to work with me because I was 'too controlling.' If it had been a man, it wouldn't have meant a damn thing.
+- I like to cook, and I tend to make those one-pot meat dishes of my Hungarian ancestors. Also, I make a great Bolognese.
+- Listening is huge. Learn to listen. And it's hard: relationships are not easy; most of them don't last. I mean, when you look at what's really going on. So every day is a choice, and sense of freedom is important.
+- I'm generally known as a happy person, but years ago, I suffered from panic and anxiety. I've learned to manage the fear and pain.
+- Oftentimes, actors are looked at as court jesters. They are not looked at as deep-thinking, smart people who do many other things or have gifts in other areas.
+- My mother loved the Bible.
+- My eyes are too big, my nose is too flat, my ears stick out, my mouth is too big and my face is too small... my body is thin as a clarinet and my ankles are so skinny that I wear two pairs of bobby socks because I don't want people to see how thin they are.
+- I believe that life is about doing.
+- My parents always supported me, but I was put to task. My father thought when I sang, I was sharp; my mother was upset when I wasn't in the first line at recitals.
+- It's wonderful to know you're aging, because that means you're still on the planet, right?
+- Women, by nature, are a certain way; they think a certain way. Women are web thinkers. We think wide... Why? Because we have children. Why? Because we were born as women to have children and to be able to take care of them. We do so many things at once.
+- Getting older is a fact of life.
+- Paparazzi will try to get the most controversial picture of you in a compromising position because that's how they're going to sell it.
+- Continuing to listen and grow is important because we get into bad habits in relationships.
+- We haven't given our brain the ability to actually analyze something clearly and appropriately before we speak and before we take action.
+- Whether you're successful or not, you'll never actually feel the joys of accomplishment unless you love yourself. Success can be very difficult to deal with. You have to stay in the center. If you let your success define you, then you're really just setting yourself up for failure.
+- I do a lot of juicing. I don't put a lot of food in my stomach, and I don't mix my foods too much. So if I want to have, like, protein, I'll just eat a bowl of lentils; I won't mix it with a bunch of stuff.
+- The only thing that will make you happy is being happy with who you are, and not who people think you are.
+- People talk about the brain weakening as it ages. Mine feels stronger.
+- I would have been long divorced if I got married.
+- If you're going to train your body, it would be a really good thing to also train your brain.
+- I was born Jewish, and I consider that my religion. But I've studied all religions, and as you learn more, you really learn that everyone's praying to the same God.
+- People ask if I feel pigeon-holed by always doing the same kind of humorous role. But my tool has always been humor because it's the most entertaining way to put any ideology across, and it's fun, and it's positive, and it's a healer. Laughter is God's gift. I feel privileged to be able to do it.
+- It's wonderful to move forward technologically, but we cannot forget that we are human beings who thrive on relationships, who thrive on interconnectivity, who thrive on sharing your feelings and emotions.
+- I don't want to sound like you never feel anything - we've all loved and lost, all had a lot of pain, and we're supposed to. We're humans; it's the way it works. But it's how you manage it, how you manage those tears and that pain. How you are able to get yourself out of it.
+- Meditation helps people balance and calibrate their left-right brain.
+- I just wanted to be normal. I wanted to have a normal life. I wanted to have children. And when I was picked out of a chorus line and cast in a TV series, I got anxious, so I took the bull by the horns and went to see a psychologist. And it was the greatest move I ever made.
+- If you have a negative thought - 'I can't stand my boss' - it perpetuates a negative worldview. But if you supplant each negative thought with three positive ones, you begin to restructure your brain.
+- I am compelled to continuously see the bright side. It is in my DNA. My kids look at me and say: 'Mom, you're so happy!' And I do feel happy. I feel joyful inside. I can't explain it.
+- When you get to a certain age, you have to make a decision for yourself: if you want to get old in the industry, and you want to play maybe a few parts that come along now and then - or what else in life interests you?
+- A child's giggle tickles me deeply, and it breaks my heart when that begins to disappear. So I do what I can to create opportunities for children to continue to laugh and rediscover their joy.
+- 'Private Benjamin' was the first movie I produced, and I produced it for practical reasons.
+- We go into restaurants, and people aren't talking anymore. They're texting. While they are sitting at a restaurant with each other. So we're losing this intimacy that we need to have as human beings.
+- I wrote the book because I wanted to be able to share some things that I had learned and as pompous as that may sound, as you get to a certain point in life, you figure so what am I doing?
+- Men are different than women, and men live with - with some very difficult obstacles. I mean, a man, basically, in his true nature, is to spread his seed, and a woman is a gatherer, and that's kind of the way we're - our limbic system is set up, you know.
+- I think that's what makes a successful marriage: a mindful sense of self and the ability to make clear choices to stay together or choices not to.
+- Familiarize yourself with the parts of your brain and their function.
+- I would like to see a mandate for social and emotional learning absolutely mandated in every state.
+- To find someone who loves your children like you do is really rare.
+- By living mindfully, you understand that there are many transitions in life. You just go through them.
+- I've been married twice. It didn't work.
+- If you lose wonder, you've lost everything.
+- In relationships, particularly love relationships, people are impatient.
+- We need to habituate better thinking to appreciate more of your day because that has a neurological correlate.
+- Central to our work and our goal of finding solutions to global problems is the concept of mindfulness, a technique for focusing attention objectively on the here and now.
+- All I ever wanted to be was happy.
+- To me, it's that incredible sense of belonging and peace within your own self and heart that really is joy.
+- I got a heart tattooed on my foot. It's my first tattoo.
+- So curiosity, I think, is a really important aspect of staying young or youthful.
+- Whether you're an actor, producer, writer, or director, it's all about the story you're going to tell.
+- If you have a sense of yourself, your mission, your belief system, those things will lead you to success.
+- The interesting part of my spiritual life is studying as much as you can. Islam and Buddhism and Hinduism and Shamanism and Judaism, Christianity - you try to learn what the precepts are, what the religion is, and ultimately, it's based in the same thought, it's based in the same outcome, you know.
+- It is not the question, what am I going to be when I grow up; you should ask the question, who am I going to be when I grow up.
+- When you're female working in a male-dominated industry, there are unfortunately extra things you need to do - for example, couch opinions in a way that sounds palatable and not threatening. That's a skill I developed.
+- I'm a dreamer with lots of energy and a vivid imagination. That's the recipe for becoming an entertainer.
+- I want to know where joy lives. I'd interview scientists, religious leaders and heads of state. I'd want to find out exactly what makes people happy. I'd want to look into the biology, the chemistry of the human brain.
+- Don't tell me I can't do that. Watch me. Don't tell me I can't direct this movie. Watch me.
+- When the brain is silent, the executive function, which is this part of the brain that makes decisions, can work much better. So when you get quiet, you make better decisions. You're also more rested - you're not as reactive.
+- 'Liberation' is an interesting word because you can be liberated from external things and also from your internal dialogue.
+- I always wanted to understand the causes of happiness. I'm a bit of a scientist, I guess you could say.
+- A body smiles, like, 72 times a day. Where does that smile go? That's what I want to know.
+- I walk every day, and I run and do all kinds of that.
+- I guess I came to know this about myself: for better or worse, I don't give up.
+- Being a dancer is my metaphor for life because you have to know your body. Being a dancer and paying attention to fitness is all about moving in balance.
+- Sadly, so many arts programs have been eliminated from schools due to budget constraints. These creative outlets are so very important, not only for a child's well-being, but also for self-expression and fun.
+- It's important, at least for me, that while we're entertaining, there's also something substantive to talk about.
+- I don't eat a lot. I think we overeat.
+- I believe having religion in your life creates the potential for long-lasting relationships.
+- A lasting relationship isn't about marriage. It's about compatibility and communication. And you both need to want it to work.
+- I can't imagine, as a human being, not being able to grow.
+- When I turned 50, I asked some of my girlfriends, all actresses of the same age, 'What are we going to do now?' I wanted to go live somewhere for a while, learn archaeology, or take part in healing the world on some level. I wanted to dig deep and say, 'Who am I now? What do I have to offer? What do I have to learn?'
+- You have to prepare yourself first before you can create any kind of change for your loved ones.
+- It's ridiculous to have to base your relationship on money.
+- You have to look to the future with optimism instead of negative ideas. Take the good and the bad and face it head on.
+- Peter Sellers was great to work with. A lovely man. A little bit crazy in that he - you know, as I say, it was hard. It was sort of balancing a very delicate spirit on a needle. You know, because you never know where he was going.
+- Mindfulness can help people of any age. That's because we become what we think.
+- I'm extremely proud of my daughter. She's done amazing work. She's worked on herself, which I think is important.
+- Buddhism is really, one of its main practices is understanding and experiencing compassion, and how that ultimately is a road to happiness.
+- After I did 'Private Benjamin,' suddenly the reputation was that Goldie Hawn calls her own shots.
+- What helps with aging is serious cognition - thinking and understanding. You have to truly grasp that everybody ages. Everybody dies. There is no turning back the clock. So the question in life becomes: What are you going to do while you're here?
+- I was always a performer, always on stage, but I also always believed I was going to go home, open a dance school, get married, and have what you would call a 'normal' life.
+- One way to feel good about yourself is to love yourself... to take care of yourself.
+- I love making people laugh and by the way I still do that with the charitable efforts on my part because I believe that people need to laugh.
+- Ditzy dumb blonde? I can be ditzy. I can be.
+- I've been practicing Buddhism for a while. So, I call myself a Jew-Bu, because my tribe is still Jew. But my philosophy and my practice is really Buddhist.
+- Youthfulness is connected to the ability to see things new for the first time. So if your eyes still look at life with wonder, then you will seem young, even though you may not be chronologically young.
+- I don't read much, to tell you the truth, about me, you know. I don't read my articles very much or stuff like that, but I have read things upon occasion, and some of it is true, and some of it isn't true, you know. I mean it's just the way it goes, you know.
+- My mother was the kind of person who was very much part of her tribe and very much a satellite of her tribe. She was the girl who left her family at the age of 17 and went to Washington. My mother was orphaned at three and then was brought up by my aunt Goldie. So, yes she belonged, but there was a part of her that didn't.
+- My tenacity and determination to be true to the person I had become were sacrosanct.
+- I feel there are injustices in the world that I'll stand up for, and I think that it's important to realize that the world is filled with these kinds of issues.
+- During the era when women were burning their bras - which, by the way, they never actually did - but when women were first becoming liberated, I was 23. And I met a woman who asked, 'Don't you feel bad because you're sort of acting like the stupid airhead blonde?' And I totally surprised myself. I said, 'Liberation can also come from the inside.'
+- The biggest lesson we have to give our children is truth.
+- A woman opening a movie with no other star is like a miracle.
+- I'm deeply, deeply passionate about creating peace and well-being in the classroom, and well-being as a global nation.
+- I've been practicing modalities of Eastern philosophy since about 1972. What I've learned through my meditation is a sense of equanimity, a sense of all things being equal.
+- The truth is that no matter how old we are, as long as our mothers are alive, we want our mother. And it's a very powerful relationship if it's healthy.
+- Moms and dads don't last forever. If you've got unfinished business, we need to face that, and that's not easy. Every child wants to love their mother and their father. Love is the most important thing, and when they feel rejected and unloved, that hole can never be filled by anyone else.
+- I'm not a proponent of staying together and being miserable and damaged and coming through actually a more battered person.
+- We can't turn a blind eye to the importance of the well-being of our children, and we need to pay close attention to building the future leaders of tomorrow.
+- I think journaling is an important, intrinsic experience, and a lot of us don't spend enough time on it.
+- I didn't really want to be a movie star. I thought they were so screwed up!
+- When you have a Jewish mother who has a very strong Jewish family, it's very ethnic in its practices. Eating brisket, the food and the family and the interconnectedness for better or worse.
+- Attention for children is so much about input, and the brain can only filter so much - I don't know how many millions of messages that come through the brain, and we can only filter so much through it.
+- I always wanted to be a mother first.
+- A marriage ends up being a business deal: no matter how long or short it is, somebody owes somebody money.
+- The big money goes to kids and young men - big tent-pole movies, which are expensive but have a great return.
+- At 11 years old, I made a very definitive decision, and my decision was that I wanted to be happy. Above and beyond anything I ever did in my life, I wanted to be happy.
+- I'm a woman who was raised to believe that you are not complete unless you have a man. Well, in some ways it's true. I am a feminist to a point. But I'm not going to deny the fact that I love to be with men.
+- It's nice for a woman to go out and have her own money and her own ability to do what she wants.
+- Love is something in the heart and in the mind, so why would you chastise anyone for that? And this is something that I feel very strongly about.
+- I think that men have tremendous ability to lead. And I think women have a tremendous ability to lead, and they lead differently, and it gives a wonderful perspective to the problems.
+- I just love good smells.
+- If you need to be bound to someone, then it's important to be married. If you are independent, then it's important to not be married.
+- The ability to remain calm and focused in stressful situations is central to making positive decisions.
+- I had a tremendous amount of gay friends, so my whole life was basically like that... I never noticed who was gay or who was straight.
+- When I started go-go dancing on tables for a living, I didn't want to tell my mom or my dad. I made 25 dollars a night, and I was able to make my rent, with the four girls I lived with.
+- What we want to help children with is, just because you feel sad or happy or depressed doesn't mean that is who you are. We want them to know, 'I am really sad right now, but I am not a sad person.'
+- I do eat a lot of greens. I eat healthy, but I'm not a vegetarian.
+- We have to embrace obstacles to reach the next stage of joy.
+- I'll bike up the mountain, or I'll do Pilates or spin.
+- I'm not afraid of my femininity and I'm not afraid of my sexuality.
+- What is happiness? Happiness, I think, has to come in the beginning, truly, from feeling a sense of well-being within yourself.
+- I have witnessed the softening of the hardest of hearts by a simple smile.
+- I never quite fit in - at least, from my own perspective, you know.
+- A fearful child cannot learn.
+- You don't meditate once and suddenly your life turns around. What it does is it lets you train your brain to be able to become more stable in an action-oriented way.
+- I try to stay positive and be very, very active.
+- I noted that people are happy here in India. When I went back home, people had everything in the materialistic sense and were surrounded with abundance, but they were not happy.
+- Not every relationship works, and that is the truth, and I don't care whether you're a movie star or just a person on the street, normal life. Everybody's normal, relationships are always normal. I think movie stars have a little bit harder time because the cameras are on there all the time. But you have to be who you are.

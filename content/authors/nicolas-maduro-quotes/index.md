@@ -1,0 +1,18 @@
++++
+author = "Nicolas Maduro"
+title = "Nicolas Maduro Quotes"
+quotes_len = "12"
+description = "the best 12 Nicolas Maduro Quotes"
++++
+- The United States are ruled by a financial, media-centered, military-industrial apparatus. Behind Obama's grin, he orders bombings. He just displays a different image than Bush. That's how he expands U.S. global domination.
+- Venezuelans have a long history. So we are able to listen to each other, to talk to each other. From here were born the liberators of the region, and they said before and after that process we have a culture of political action. We are not in despair. That's the image broadcast to abroad.
+- We are all a little bit hippy, a little bohemian. We take that from the culture we knew, from the '70s and the '80s.
+- The Venezuelan people will never abandon the ideals President Chavez gave us. Modestly, we contribute to ensure the stability of the region.
+- I can tell you that I never aspired to be president. I always honour something that Commander Chavez told us: that while we were in these posts, we must be clothed in humility and understand that we are here to protect the man and woman of the streets.
+- Similar questions were posed to Allende as to me. Allende was told that he blamed everything on a conspiracy, on the economic crisis, that he blamed the high inflation that sabotaged him on the United States, and that he was frequently accusing the little lambs of Nixon and Kissinger of a coup. But everything became known later.
+- Let's dig deep to build the kind of police force that our fatherland really deserves. We need a revolution of the police force here in Venezuela, and I will carry it out without delay, without excuses.
+- I am just a humble worker. Commander Chavez decided I should be president. To President Obama, we remember that young leader and of the workers of Chicago. So we have a different kind of relation. For him and John Kerry. We talked to Edward Kennedy.
+- I have very good relations with Pope Francis. I read constantly what he says and follow his speeches. Pope Francis has come to renew the Catholic Church, and he has new air to renew the spiritual world. Now, Venezuela does not need mediation.
+- President Chavez has always been a loyal friend of Gaddafi, assassinated in the crudest way possible. Europe should think about the bombings and the destruction of Libya that filled the country with terrorists. Who's truly ruling Libya's military and sending thousands of armed men to fight in Syria? It's Al Qaeda.
+- My message to France and Europe is that we will make sure Venezuela won't witness the rise of another Pinochet. And we will do it the democratic way.
+- Fidel Castro represents the dignity of the South American continent against empires. He's a living legend: an icon of independence and freedom across the continent.

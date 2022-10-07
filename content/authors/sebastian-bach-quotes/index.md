@@ -1,0 +1,70 @@
++++
+author = "Sebastian Bach"
+title = "Sebastian Bach Quotes"
+quotes_len = "64"
+description = "the best 64 Sebastian Bach Quotes"
++++
+- I can't drink whiskey like I used to back then, that's for sure.
+- That's why it's called Sebastian Bach. I mean, it's a permanent band, pretty much, but if I jam with other people, it just makes a better album, I think.
+- The way I look at a solo project is, I create what I want with whoever I want.
+- I'm not interested in thinking up the name of a band and a logo and all that. Been there, done that, sold a million T-shirts.
+- I listen to music for emotion and I get zero emotion from rap.
+- Yes, but I have to say this: the band is going to decide where the band plays.
+- I went to audition for an episode of 'Law and Order,' and they didn't understand why I was talking so fast, and I was like, 'No, you don't understand. I was on a show called the 'Gilmore Girls.' We had to say everything like that.'
+- My voice has gotten me everything in my life, not my hair.
+- I had to get out of my record deal that I signed with my previous band and get a full solo record deal going so, with all of the paperwork that, that entails it did take a while.
+- A lot of people when they try to sing Skid Row songs, they're screaming and yelling too much. It's more singing than screaming.
+- There's way easier ways to make money, let's just put it that way.
+- I think if you can get to that point, exercising, when you really enjoy it, then you're pretty much set for life.
+- I think that the best rock n' roll is about the spirit of being young, the feeling of being 16 and getting crazy with your friends and going out to a show and just that whole feeling.
+- Quebec City is the most European of any city in North America; they speak French all the time. There is a part of town called Old Quebec which is really like being in France. The architecture is just gorgeous, food, shopping. I'd say Quebec City is the most beautiful city in North America I've seen.
+- I acted in millions of TV shows.
+- Sometimes you can do things for people other than yourself.
+- I mean, MTV or the mainstream media can tell you one thing, but when there are 40,000 people in front of you, who cares about all that?
+- The worst thing I ever wore, really, was rubber pants, but I don't think that was a cliche. They were just way too hot. Rubber doesn't breathe. I look back on my photos, and I dig them. I think I look really cool.
+- So, it ended up being what you have there, seven songs brand new and ten live songs which is a good mix.
+- You have got to make new music, that is the way that I look at it anyway.
+- I write my lyrics into the computer and I hum my music into the dictaphone.
+- Inside I never said I wanted to do theatre or be an actor.
+- I used to live in Canada. It's a beautiful country with a lot of different kind of topographic regions.
+- I don't understand the mentality of a rock fan, being obsessed with two or three songs from 25 years ago. I'm not that kind of a fan.
+- What is music for? It's to make you feel good.
+- I mean I've never been thrown in jail in New York or Los Angeles.
+- I still get crazy once in a while, but just less crazy.
+- I actually had a bunch of songs that I worked on with Jamey Jasta from Hatebreed, but they were too heavy for me because my voice sounds good when I sing clean. It sounds good dirty too, but when I hear my voice sing really clean, that's a special sound.
+- I would play with Guns n' Roses anytime.
+- Being a cover artist is not like being a real artist. That's just copying what someone else did.
+- I never really knew what fine cuisine was when I was a little boy in Canada. For me, Italian food was 'Kraft Dinner' or pizza. When I moved to New York, that's when I discovered all the Italian food.
+- I am the man who put the hair in hair metal.
+- Maybe one day I can have a reunion with myself.
+- I'm always working on new songs. With the technology these days, any idiot can record on Pro Tools on your laptop. All you have to do is plug a microphone into the input jack and anybody can have their own recording studio. So I'm always down in my basement, singing along to riffs or whoever I'm collaborating with.
+- Every single band in the world has these gigantic songs that people are obsessed with.
+- I do Skid Row every night.
+- Well, you know, if you do 200 shows a year, they're not all going to be like Castle Donnington.
+- If I ever grow up, I don't want to be around for it.
+- It's too easy to do your own site to not have one these days. I guess everyone has one.
+- Kids don't go out and buy CDs, they make their own, they download them from the Internet.
+- No, if it was up to me every record would be brand new studio material but Atlantic records asked me to put out a full live record because my tour really did do well last year.
+- I've been solo since 1996, so I've been doing it for a while now.
+- They don't have the edge that I need. I'm not interested in reliving 1988.
+- They have had such a crazy life living with me as their dad. Not crazy but different from their friends.
+- It is easy for me to go play a rock show, I have been doing that all my life and I love that.
+- To think that when they come out with these gigantic songs, it's pretty tough to top them, you know.
+- It is incredible to me that my Twitter feed is a source of 'news' for every rock news outlet around the world.
+- I would say a must-do in Canada would be to go skiing at Whistler in Vancouver. You could take a chair lift for, like, a half hour to the top of this mountain, and you ski down; it takes like so long to get to the bottom. You go past the clouds. It's absolutely incredible.
+- I guess I watch more MTV than you do. I'm a junkie for it.
+- You know what I'm doing starting 1st November? Jesus Christ Superstar.
+- My first band, Kid Wicked, we did half covers and half originals.
+- My vocal style is called bel canto, which is an old Italian vocal style going back hundreds of years.
+- Metal is still the biggest music now in America.
+- I'm a TV junkie. I'm always flipping through channels.
+- Nobody wants a fat lead singer.
+- I got the whole band set up in the basement and we are jamming.
+- I get noticed for different things I've done in different areas of town. If I'm in a rock club, it'll be Skid Row, if I'm in a mall it's the 'Gilmore Girls.'
+- Twitter is the new rock magazine of the modern age. When I was a kid, we had magazines and journalists and interviews and articles and pinups and posters to follow our favourite artists. Nowadays? Twitter is actually the new rock magazine.
+- America gets rock stars a little more than Canada does.
+- It's weird, like, my life has always imitated art, and my art has always imitated life.
+- I want to do something creative, not just easy.
+- Maybe if they start playing new rock bands videos, then maybe but there is no point in a guy like me spending 250 grand for a video that no one is ever going to see.
+- Bret Michaels and Dee Snider and I know how to step on a stage and front a band, and we're not ashamed to. We're not shoe gazers.
+- There is no singing anymore, everything is yelling and shouting and rapping and that is real boring to a guy like me.

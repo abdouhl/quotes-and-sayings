@@ -1,0 +1,106 @@
++++
+author = "Justin Gatlin"
+title = "Justin Gatlin Quotes"
+quotes_len = "100"
+description = "the best 100 Justin Gatlin Quotes"
++++
+- For me it has always been an uphill battle because my mind's always racing a mile-a-minute.
+- I never stop to think about my age really. I just listen to my body and it tells me if I can or can't.
+- My ankle is giving me a lot of problems.
+- I tried many sports like football, baseball, and swimming. I even played saxophone and piano.
+- I've been to the top, to eat filet mignon, to have sweets, traveling around the world, having everything at your fingertips, to being embarrassed just to walk around in society.
+- No one has to talk disrespectful to anybody. We're just here to run.
+- I think people need to stop looking at trying to be the judge, the jury and executioner and let the system do its job.
+- It's hard academically for an ADD sufferer - but, doing something they love, they can be the most focused person of all.
+- I am fighting because of my innocence. I am fighting because I am a victim. I am not a doper.
+- Usually in the off season, when you're done, you're just done. You eat hamburgers and pizza. You're partying and having a good time.
+- I allowed myself to get beat and I beat myself. That's the worst feeling in the world.
+- Being the fastest/oldest is a crazy title to have.
+- Track, to me, was just a social gather where I left school early, ate pizza and watch the girls in shorts run. Then, I found I was abnormally fast and started to fall in love.
+- At the top, I was flying high. I didn't understand what it meant to be down and out.
+- I've worked hard, all the way from the bottom when I had nothing.
+- I come out to do what everyone else is trying to do, which is run, run fast and win.
+- I have to get ready to run anywhere under the sun.
+- I remember reading one blog site where one blogger said I looked like a professional wrestler on the track. I was a big boy. I was looking at myself in the mirror and saying, 'I look good!' But I wasn't looking race good.
+- At the end of the day, I think that a lot of people saw how hard I worked. And I've gained a lot of respect from a lot of the fans, when they come out and see me, even people not from the United States, when they come out there and cheer me and give me heart gestures and cheer for U.S.A.
+- In 2004 after winning my first Olympic gold medal I was featured in magazines as an eligible bachelor. Soon after I started receiving unique and odd fan mail, mainly from female prisoners. I've gotten prison art and love letters throughout the years.
+- I want to go out there and show the world I can stretch my legs even more and exhibit more talent.
+- Track and field is definitely a science and each year as an athlete you try to develop and become stronger.
+- There is no good runner or bad runner. We are just runners.
+- Just remember I am more than four years. I am more than two bans. I have done a lot before, and I have done a lot after that.
+- My son has asthma.
+- I know what it feels like to have a talent and not be able to use it for almost half a decade.
+- I find that as an athlete, we don't get to speak our mind often or share our hearts. So I chose motivational speaking to help make a difference.
+- I always need to find somewhere to sit, or something to lean on.
+- I really don't feel anything for the jaded fans if they don't feel anything for me. My fans who love me and care about me and support me - those are the ones I run for.
+- I didn't look at age as being a reason to stop running or become slower.
+- At the end of the day, when you command a certain power in track and field, you sometimes you have to exercise it.
+- Once I was away from track and field, I was able to realize that life is something you really have to work on.
+- As a kid, I thought if I could move my feet fast enough, I could run on water.
+- I needed a break from track, the media and the world. I wanted to just be me.
+- Sometimes you can block out a lot of things because you're thinking about so much and you can distract yourself, but sometimes that distraction of being ADD can really set you back.
+- You never realize as an athlete there's going to be an end until the end comes.
+- Every year, I laid out a strategy of what I was going to do, and I was very successful. In 2003, I wanted to take the world by storm, and I did that indoors. In 2004, I wanted to run fast; I did that. In 2005, I wanted to be dominant, and I did that as well.
+- ADD sucks during training, but coming into finals I actually feel such an energy burst because when I step out on to the track, and I hear so much and I see so many people and my mind gets distracted, I kind of just feel at home actually.
+- I'm lucky. My family and friends believe in me a lot.
+- It's my responsibility to put on a great show.
+- Everything was cool when I came back running 10.09. Now that I'm running some of the fastest times in history, people are uncomfortable.
+- All I really want to do is race and get into meets and run.
+- My expectations are to establish my dominance and kick butt. And I want to become a leader in the sport.
+- It's hard for me to dial in sometimes and be focussed, even though I know that I'm ready.
+- Track and field is a sport that's about 'What have you done for me lately?'
+- I need to win back the hearts of the critics and the skeptics.
+- As an athlete you have to think about yourself a lot. Think about your body, think about your mind, staying healthy, staying strong, your goals. So it's always about me, me, me, me.
+- I'm not just a runner. I'm not just a fast guy. I'm a fighter. I'm a survivor in life.
+- It's a showman's sport. I think the rivalry that I have with Usain and myself has turned it into a professional-wrestling feel.
+- When I get up out of bed, I've got to be Justin Gatlin, and I've got to be Justin Gatlin 100 percent.
+- I love myself. I believe in myself. My family and my friends support me.
+- I think that I am a serious threat to anybody out there who is trying to get that medal.
+- Being perceived as a villain gave me energy.
+- Our sport is surrounded by nine seconds, and that's how long the attention span is for fans: if you can grasp those nine seconds, you're the man of the hour.
+- There have been times in my career where I've been so dialed-in and focused, and I realized when people told me, 'Do you remember this?' And I'll be like, 'Oh, I don't,' because I was so focused on everything.
+- I've just remained open to growing. What I mean by that is, when you're an older athlete you can become set in your ways. Each year I try to break a bad habit.
+- I wanted to see what sports were like... I went out for the track team. And then I got a D on my report card and my mom pulled me off the track team; I was very upset.
+- But I don't want to sit back and be an audience to my own life.
+- I wanted to go out there and do what no one's ever done - and that's recapture some kind of glory.
+- If I am given an opportunity to fight for my freedom, then I am going to fight for it.
+- You have got to go through all of the opponents to get to the gold medal.
+- I want Usain at his best, and I think he wants me at my best. That's what people want to see.
+- I'm not my sport, and I know I'm not going to run forever.
+- A lot of people over the last couple of seasons have fallen prey to the unstoppable force Usain Bolt brings to the table. And they just become subdued. That's not who I am. I'm not going to allow myself to become a subdued character.
+- I'm 34 - you guys are like, 'oh, he can't be this fast at 34.' But 35, I plan on running even faster. That's my plan.
+- I respect my competitors, you know, I get respect back from them. I respect people out there who pay for their tickets to come watch us compete. And I respect the reporters because they've got to come out here and tell a good story. That's what it is. It's just a cycle of respect.
+- There are not going to be medals passed out to everybody in the world. It is going to be passed out to one person, the champion.
+- I was jogging in the grass while on a warm-up and there was a sprinkler hole. I rolled my ankle, and it was really bad.
+- You have people who are out there age 30-plus still competing on the grand stage. If I keep in shape, keep to a certain speed and turn it up when I need to, I think I will be able to get out there and run what I need to run.
+- The world knows that I'm capable of running fast when I need to.
+- I was never a steroid user at all, at least not knowingly.
+- Last time I checked, someone who takes medication for a disorder is not a doper.
+- I think a lot of athletes when they get in their mid and late 30s, they focus more on kids, on family.
+- I grew up with a lot of talented athletes through high school, through college.
+- In Brooklyn, the block wasn't very long or very wide, and not that many kids were out there, either. But when I got to Florida, there were a lot of kids on my block, young kids, older kids, and they could play outside until the sun went down and have fun.
+- I look at my family and what they had to go through sitting in those stands and listen to their child be booed.
+- Usually everyone fast is young. But I don't let age define my ability and drive to be the best I can.
+- I feel like once you start to tell yourself that it's your last year, you kind of aren't as sharp and lose some attention, drive and hunger.
+- Running with someone like Maurice Greene - competing shoulder to shoulder with him - and then running against Usain Bolt, Asafa Powell. And now the young guys, Christian Coleman, Noah Lyles. I'm the only guy that's crossed three generations of sprinters.
+- What is it really going to amount to if I go out there and run against Usain when he is not at his best? That is not a great storyline. It is not a race I would like to go out and win.
+- Life is fun. And it's beautiful. But it's cold. Cutthroat. Nasty.
+- I don't put limits on myself.
+- The performance that we put out there as athletes is our heart, our heart.
+- I think of myself as a time-jumper.
+- I'm 34, and I'll be the oldest sprinter ever on a podium. I'm just happy to be here.
+- It's an Olympic year, man, and crazy stuff always happens in an Olympic year.
+- I'm a big believer in the notion that to know where you are going, you have to know where everything has been.
+- People want to label people and that's all they want to do. They don't want to get to know them, they don't want to understand the story, in-depth.
+- I know what it feels like to wake up and not be able to run. You don't feel whole.
+- Once I found out that track and field was an organized sport, the era I followed more closely was that of Maurice Greene and Michael Johnson.
+- If I hadn't have become a runner I would definitely be a zoologist now.
+- Come back stronger and faster, that's what I plan to do.
+- Carl Lewis was definitely a role model.
+- Even if you watch the races I won - the indoor titles and the Olympics - I've never really been a superfast starter.
+- Everyone should give a second chance, but everyone is also entitled to their opinion.
+- Critics are just what they are. They're going to pick at the positivity of things.
+- I don't even know who Lilly King is.
+- That's just the mystery in the air of the Olympics. It's full of dreams, and sometimes dreams don't come true.
+- I find little flaws I have in practice, I work on those and go to the gym or I eat better.
+- I've just got to pull myself together and hold my head up high.

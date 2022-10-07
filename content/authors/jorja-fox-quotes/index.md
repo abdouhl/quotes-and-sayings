@@ -1,0 +1,22 @@
++++
+author = "Jorja Fox"
+title = "Jorja Fox Quotes"
+quotes_len = "16"
+description = "the best 16 Jorja Fox Quotes"
++++
+- I wanted to be a lead singer in a band. I can't sing. I'm almost tone deaf. I still play. Next life, rock'n'roll for sure.
+- The reason the contracts are so long is because actors are very spontaneous; we may want to do Shakespeare one day and be Porky Pig the next!
+- If I have a drink in my hand, sometimes it accidentally falls in the direction of the person.
+- It's so great to have your private relationships play out in the press.
+- I'm a nomad.
+- I'm a yes person. I'm too concerned with trying to make too many people happy.
+- I sit every once in a while and I think about plays and films I can do with William Petersen into our eighties. He's the most incredible scene partner I've ever had.
+- I haven't gone home with anybody who tried to pick me up in a long time.
+- If you've got to get fired, it's really fabulous to get fired with a friend.
+- I think everybody else in Hollywood, including network execs, has the opportunity to ask for a raise or a change in scenery in a much shorter time frame than actors. But I do think the networks have to protect themselves.
+- Maybe the universe will get tired of me.
+- You've gotta wonder what kind of vibe you're putting out there if you're having really creepy people come talk to you.
+- I've never been to college, and I think about that. But I kept putting it off, and I am also thinking about having a child, and that's really important. Also, I want to do a lot of traveling and surfing - two of my hobbies.
+- There are so many things I want to do! Some are personal. Some are professional.
+- Beauty is everything.
+- I think 'Make love, not war' might be the most profound statement that's ever been made.

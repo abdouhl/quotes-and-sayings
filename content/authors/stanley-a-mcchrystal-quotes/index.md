@@ -1,0 +1,108 @@
++++
+author = "Stanley A. Mcchrystal"
+title = "Stanley A. Mcchrystal Quotes"
+quotes_len = "102"
+description = "the best 102 Stanley A. Mcchrystal Quotes"
++++
+- If you talk to a British officer or NCO about the strategic objectives of the end state, you'll often get a spirited discussion that's very well informed.
+- Public broadcasting makes our nation smarter, stronger and, yes, safer.
+- You're going to find out who your friends are. Anything that happens in your life is one of those challenges. It may not be at the level of celebrity, but everybody's going to travel that road.
+- I'm a believer in the Afghan people, so I support an increase in forces there.
+- Strength is leading when you just don't want to lead.
+- When you go through some controversy and you see your face on the news in a negative way for 48 hours... you doubt yourself. And your friends make the difference. They become a safety net that come in and say, 'That's not the case.' And the relationships that you've built... come to the fore.
+- We want to make the insurgents come to us. Make them be the aggressors. What I want to do is get on the inside looking out - instead of being on the outside looking in.
+- Like leaders in many walks of life, my business has been to serve with, and for, others.
+- If we are visiting Afghans, typically the Afghan governor, district or provincial governor, we see he doesn't wear body armor, and yet we're walking through his streets. I'm his guest. I think that that's important that I send a message that I trust him and I don't think I am more valuable than I think he is.
+- Empowering, cultivating, and ultimately serving those who follow you will unlock massive potential within your organization, allowing you to solve for problems in real time.
+- In every relationship, there are two perspectives to it.
+- I resolved to try to steer clear of politics. That wasn't easy.
+- My dad was always the soldier I wanted to be.
+- Public television works hard to engage young learners and build the skills needed for a jump-start on life. We need our youngest to be curious, resilient and empathetic, and prepared for the jobs of the future.
+- There is no avoiding the realities of the information age. Its effects manifest differently in different sectors, but the drivers of speed and interdependence will impact us all. Organizations that continue to use 20th-century tools in today's complex environment do so at their own peril.
+- I go back and think of President Kennedy, who had a military service background, but he comes into the presidency, and he's faced with a decision on the Bay of Pigs, with the C.I.A. and the military giving him data, and it turns out very badly.
+- I find that if the day is terrible but I worked out, at the end of the day I can go, 'Well, I had a good workout'. Almost no matter what happens.
+- I had known Colonel Charlie Flynn since he was a lieutenant 23 years earlier, and I remembered how his first child, Molly, had been born while Charlie was deployed to the first Gulf War.
+- I spent a career carrying typically either an M16 or an M4 Carbine. An M4 Carbine fires a .223 caliber round, which is 5.56 mm at about 3000 feet per second.
+- A year of service has the power to bring young people together from different races, ethnicities, incomes, faiths, and political backgrounds to work on pressing problems facing U.S. society today.
+- I came to believe that a leader isn't good because they're right; they're good because they're willing to learn and to trust.
+- I knew from history that war comes with frightening regularity, often fought over the same ground and similar causes as previous conflicts.
+- Throughout my career, I have lived by the principles of personal honor and professional integrity.
+- A fundamental principle that I learned in my career, and a principle that my consulting company McChrystal Group helps American civilian companies to adopt, is that winning units and organizations ensure that the time they actually spend - daily, weekly, and yearly - must hew closely to their priorities.
+- America needs a big idea that plays to its strength. It should look to national service.
+- There's an art to asking questions. Briefings are valuable but normally communicate primarily what the subordinate leader wants you to know, and often the picture they provide is incomplete.
+- Anyone in a position of power is either corrupt or assumed to be corrupt, and the assumption of corruption is as bad as the reality of it.
+- I think my biggest achievement was being part of a team of outstanding, entrepreneurial military leaders and civilians who helped change the way in which America fights by transforming a global special operations task force - Task Force 714 - that I commanded.
+- Americans enjoy the exciting, cinematic vision of a squad of muscle-bound Goliath boasting Olympian speed, strength, and precision - a group whose collective success is the inevitable consequence of the individual strengths of its members and the masterful planning of a visionary commander.
+- The eight years of war since 9/11 had meant several Christmases away from home for most of these men. For soldiers at war, there's comforting continuity in the traditions and inevitability of Christmas.
+- If who you were was entirely based upon the position you were in or the headlines you got in the newspaper, or you had essentially subcontracted out your self-worth to the judgments of others, then you're going to be like tumbleweed. You're going to be blown.
+- Our bureaucracy had excelled at compartmentalizing intelligence - we had a 'need to know' system - but by 2004, it was impossible to foresee what elements of our organization would and would not need to know a given piece of information.
+- If we want to be members of the world community, we need to think that way.
+- We should get to the business of providing at least one million opportunities each year for young Americans to spend a service year with peers who are different from them - by race, ethnicity, income, politics and religious belief.
+- I was raised with traditional stories of leadership: Robert E. Lee, John Buford at Gettysburg. And I also was raised with personal examples of leadership. This was my father in Vietnam. And I was raised to believe that soldiers were strong and wise and brave and faithful; they didn't lie, cheat, steal, or abandon their comrades.
+- In my life as a soldier and citizen, I have seen time and time again that inaction has dire consequences.
+- I don't miss the bureaucracy of being in the Army. But I still love the relationships you can build. And it doesn't have to be in military service - it can be anything you're doing with someone that matters. You develop a bond.
+- Caution and cynicism are safe, but soldiers don't want to follow cautious cynics.
+- We need a strong civil society where the connection between different people and groups is firm and vibrant, not brittle and divided.
+- The military likes to figure out how to do something, put it in a manual or an operating procedure, and perfect doing it, and have everyone do it the same way. I don't like that.
+- Public, noncommercial broadcasting is also giving kids social-emotional skills like persistence and self-control that are fundamental to success in school, not to mention in the military, the institution where I spent most of my career.
+- President Obama had voiced strong support for the effort in Afghanistan during his campaign, pledging to add two brigades, which he did. But since the inauguration... the administration had signaled that the U.S. commitment needed careful assessment, and we needed to recalibrate the strategy and objectives.
+- I can't sculpt. But if I were a sculptor, as you start to get something that actually looks like what you want, then it starts to be fun. That's the way I find writing.
+- As our leaders in Washington confront tough decisions about our budget priorities, I urge them to continue federal funding for public broadcasting.
+- I think every war certainly wears on national will and national patience, particularly a counterinsurgency.
+- Industrial technologies that allowed for increased mechanization in 19th-century armed forces also spurred Frederick Winslow Taylor to develop his 'Scientific Management' doctrine in Philadelphia steel mills.
+- How we present ourselves matters a lot, and that's every American, not just at the senior levels.
+- Wars often begin with enthusiastic vigor but typically settle into costly, dirty business characterized for soldiers by fear, frustration, and loneliness.
+- Change is painful, and people are always reticent to accept a lot of pain.
+- When I became commander of the Joint Special Operations Task Force, I was leading thousands of individuals, from Special Forces to the broader interagency effort. I quickly realized that while we had the most best and most effective operators and small teams in the world, we were unable to scale.
+- What I'm trying to do is teach people how to actually get individuals in organizations to do the kinds of things to make a difference. It starts with not just studying the mechanics but really understanding how people operate.
+- America needs a restart. It has long devoted its energies to solving its many big problems - unequal opportunity, crumbling infrastructure, lagging education, inadequate training in a changing economy, and threats to peace around the world.
+- Defeat the Taliban. Secure the population.
+- The military does very well taking average people and making them very good leaders.
+- What I really want are students who want to partner with other people, to be part of an organization and to influence people so that they can accomplish things that the organization would not have accomplished otherwise.
+- With my resignation, I... left unfulfilled commitments I made to many comrades in the fight, commitments I hold sacred. My service did not end as I would have wished.
+- When I arrived in the summer of 2009 to command the war in Afghanistan, I entered an effort that was failing. Many Afghans, some ISAF coalition members, and much of the American public had lost confidence in both the trajectory of the war and our ability to correct it.
+- Christmases with Polish and Romanian troops, including religious ceremonies in crude bunkers and huts, were deeply spiritual experiences.
+- There's this intense media spotlight; there's a need to be transparent, and, 'Oh, by the way, I'm also trying to fight a war at the same time.' It's a challenge, but it goes with the job.
+- If every soldier is authorized to make one mistake, then we lose the war.
+- In an organization that is unwilling to change, find the opportunity to talk and interact with people - figure out why they don't want to change. It could be habits. It could be people's personal equities and reputations are defined by the role they're in or the process they've mastered.
+- In June 2010, after more than 38 years in uniform, in the midst of commanding a 46-nation coalition in a complex war in Afghanistan, my world changed suddenly - and profoundly. An article in 'Rolling Stone' magazine depicting me, and people I admired, in a manner that felt as unfamiliar as it was unfair, ignited a firestorm.
+- I think life is hard at the combat outposts, and anything that distracts us from supporting them, in my mind, is something that we shouldn't do.
+- To this day, I am saddened by Ranger Tillman's death, as I am for the loss of every service member I served with, and for the pain such losses cause each family.
+- Throughout history, the organizational evolution of the military has been inextricably linked with that of the business world.
+- One of the great things about America is we should not judge until we know the facts.
+- The reality is when you make 'America First' a bumper sticker and pump it overseas, what you're telling them is 'America Only'.
+- As combat infantrymen and special operators, we received thousands of hours of firearms training.
+- How Americans restore trust may be an existential question for their country, then, but it's ultimately a practical one: What U.S. society needs to answer it in the coming years aren't lamentations but practical measures, especially among the emerging generations that will define America's future.
+- We could do good things in Afghanistan for the next 100 years and fail.
+- The number of people in America killed by firearms is extraordinary compared to other nations, and I don't think we're a bloodthirsty country. We need to look at everything we can do to safeguard our people.
+- If you sit down with British officers or British senior NCOs, they understand the sweep of history. They know the history of British forces not just in Afghanistan but the history of British successful counter-insurgencies - Northern Ireland, Malaysia.
+- I said if you want me to go back to Afghanistan and work, I'm happy to do that. If you think accepting my resignation is best for the cause and for the nation, then I have no complaint with that.
+- The challenge that we faced with the arrival of the Obama administration is, they didn't really have time to build trust before they had to make big, difficult decisions.
+- Trust is an amazing commodity. The Afghan people often talk to me about having to develop trust in America, because they believe that we deserted them in 1990 and 1991.
+- Soldiers fighting a daily battle under frightening conditions can feel their leaders are far removed from their reality. There's no magic cure for this challenge, and soothing words that aren't backed up by action encourage cynicism.
+- In our society, I see public media as a lever. It pushes people by elevating them and their sights. It brings them into more thinking and understanding, and it brings us together.
+- We are a nation of innovators and problem-solvers who sparked revolutions in democratic government, civil rights, communications, flight, rural electrification and technology. We are a country defined by ideals now in need of rescue.
+- By nature, I tended to trust people and was typically open and transparent... But such transparency would go astray when others saw us out of context or when I gave trust to those few who were unworthy of it.
+- I'm not good at eating small meals. Some people can sit down and be very disciplined. When I sit down at a meal, I sort of eat everything I can reach. I know medical people say that's exactly the wrong formula, but I've made it this far.
+- Any war or conflict you enter where you are likely to lose more Americans and expend more treasure is something worthy of very detailed debate. There ought to be a lot of skepticism. There ought to be a lot of discussion.
+- We are alarmed that a known or suspected terrorist can go to a federally licensed firearms dealer where background checks are conducted, pass that background check, legally purchase a firearm, and walk out the door.
+- I think, at the end of the day, you do better when you tend toward being transparent, even though there's some risk.
+- Political campaigns offer Americans an opportunity to adjust direction, reaffirm values, and recommit to the covenant that binds them together.
+- The basic DNA we've got to implant in leaders now is adaptability: not to get wedded to the solution to a particular problem, because not only the problem but the solution changes day to day. Creating people who are hardwired for that is going to be our challenge for the future.
+- What scares me about drone strikes is how they are perceived around the world. The resentment created by American use of unmanned strikes... is much greater than the average American appreciates. They are hated on a visceral level, even by people who've never seen one or seen the effects of one.
+- In combat operations in places like Afghanistan, we often confronted the specter of dangerous people with powerful weapons who were a threat to their community and to our soldiers. Our aim was to quickly determine who in that community was a legitimate actor who could be trusted with a firearm and who was not.
+- My very identity as a soldier came to an abrupt end. I'd been soldiering as long as I'd been shaving. Suddenly I'd been told I could no longer soldier, and it felt as though no one really cared if I ever shaved again.
+- When I was a lieutenant in Special Forces many many years ago, I thought I was getting fat. And I started running, and I started running distance, which I enjoyed.
+- Mike Hall was my old friend and, more important, the finest soldier I'd ever known. After over 30 years of service and then 18 months at a good civilian job, a phone call had brought the retired command sergeant major back on active duty to become the senior enlisted adviser of all international forces in Afghanistan.
+- Leadership contains certain elements of good management, but it requires that you inspire, that you build durable trust. For an organization to be not just good but to win, leadership means evoking participation larger than the job description, commitment deeper than any job contract's wording.
+- Military leaders, many of whom were students of counterinsurgency, recognized the dangers of an incremental escalation and the historical lesson that 'trailing' an insurgency typically condemned counterinsurgents to failure.
+- You can get knocked down, and it hurts and it leaves scars. But if you're a leader, the people you've counted on will help you up. And if you're a leader, the people who count on you need you on your feet.
+- We need to defend against weaknesses within and enemies without, using the tools of civil society and hard power. We don't have to pick one over the other.
+- I want the American people to understand, we have a clear and focused goal: to disrupt, dismantle and defeat Al Qaeda in Pakistan and Afghanistan.
+- One of the big takeaways from Iraq was that you have to not lose confidence in what you are doing. We were able to go to the edge of the abyss without losing hope.
+- I think with the beginning of any political administration, you have to build trust, and it takes time.
+- Over my career, I'd watched senior leader visits have unintended negative consequences. Typically, schedules were unrealistically overloaded and were modified during the visit to cancel parts of the plan.
+- Many leaders are tempted to lead like a chess master, striving to control every move, when they should be leading like gardeners, creating and maintaining a viable ecosystem in which the organization operates.
+- There is only one Army in which you serve. When that identity is gone, it is gone forever.
+- Leaders must establish common purpose and build trust within an organization.
+- Tensions and violence in cities across America are reminders of how quickly communities can erupt with an absence of social trust.

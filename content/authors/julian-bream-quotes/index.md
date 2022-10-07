@@ -1,0 +1,74 @@
++++
+author = "Julian Bream"
+title = "Julian Bream Quotes"
+quotes_len = "68"
+description = "the best 68 Julian Bream Quotes"
++++
+- A violin is tuned to a fifth. But a guitar is tuned to a fourth with a one-third middle. It is very perplexing to composers.
+- I've had a lovely life. I've had a great life.
+- When I feel like improvising, I always improvise on the guitar, never on the lute. It's as natural to me as breathing.
+- I like to play the lute full-bloodedly, with passion, as well as with delicacy and, I hope, refinement.
+- When I was 18, I went into the army as a payroll clerk because otherwise I was headed for Korea.
+- One thing you learn very rapidly in this business is that you are part of a continuing tradition.
+- You have to be serious, and you must have a constantly inquiring mind. But I find it's new music that really stretches me, both technically and as an interpreter.
+- I just knew I had to play the guitar.
+- My father played one of the first electric guitars in England. He built his own in 1940, because you couldn't buy them in those days. He used three telephone pickups under the strings, which gave chronic distortion on chords but was quite good on single notes.
+- I don't mean this to sound pretentious but I think that artists of all kinds are a rung up the ladder of the spiritual heirarchy, and for me there is something very religious about music.
+- The lute I use has 10 courses and 19 strings, which is quite a lot of strings and a quite different fingerboard width from a classical guitar. I use a combination of flesh and nail when plucking the strings.
+- I'm quite reflective - I listen to music, I read, I walk with Django.
+- I don't do much relaxing. When I'm not giving a recital I practise.
+- Whatever it is, music should sound spontaneous, I've derived a great deal of pleasure from playing jazz and having the knowledge of that spontaneity.
+- Ideally the performer has a special function. Which is to bring the listener to the edge of that experience and to open the doors of this perception in such a way that those who wish to enter can.
+- I'm a very bad teacher.
+- The cult of the instrument is O.K. for people who are mad about the guitar. But I love music. The guitar is just the instrument I happen to play.
+- I think that the first World War put an end the kind of music that Mahler, Bruckner and Richard Strauss were writing. A change of fashion was needed.
+- I have cut away what I call the excess stuff in my life.
+- It's quite a feeling to be all alone on the stage!
+- Using modern guitar techniques and modern methods on an early instrument is not a very clever thing to do, because it is the authentic spirit of the instrument that should dictate the quality and characteristic of the sound.
+- Guitar was just a hobby, but it seemed to me that the instrument had possibilities, not least of which was that there was no one else playing it. I could be, as it were, the best boy in an all-girls school.
+- I went to college to study the piano and cello.
+- Segovia was a Spaniard and it seemed natural that he should play the guitar.
+- When my father saw that I was interested in following such a career he had many reservations. His feeling was that there was no chance to earn a livelihood unless I played jazz or something similar.
+- Your experience of life is to a large part distilled into your performing. As you grow older, you concentrate on aspects of music that you perhaps only touched on earlier.
+- I was passionately interested in Elizabethan history at school, so it was natural for me as a musician to take interest in the music of that period.
+- Midwesterners make good audiences.
+- The Nocturnal' was very nearly beyond me.
+- My own style on the guitar grew out of my experience with the lute. I suppose some people might say I play each like the other. And of course I know a lot of guitar fans who wish I would stop playing the lute and vice versa.
+- Some specialist guitar music is not of the highest intellectual calibre, so I must make it sound as though it is. If it bores me, it certainly won't please an audience.
+- What do I think of digital recording? Well, it's all right. But those old thorn needles, now, that was a sound.
+- It is difficult to understand the fortunes of an instrument. There was music written for the guitar until the mid-19th century. Then the instrument declined in popularity.
+- I learned mainly by listening to Andres Segovia and that was a great inspiration. And also the gypsy jazz guitarist Django Reinhardt.
+- My father was a very clever man. My mother was not clever. An extraordinary woman, but simple.
+- I found I could speak through the guitar. Because you have the feel of the strings with both hands and it's up against your solar plexus, it's real, and so there's nothing between you and the music.
+- I love playing jazz because I love the freedom you have to improvise. It has given me a feeling in my classical repertoire of creating the atmosphere of the here and now.
+- The guitar speaks for me and it says things - hopefully - for everybody that I play for.
+- My father started me off on the guitar, and we learned classical guitar together.
+- Some composers end up writing for the guitar as they would write piano music or, more often, harp music. It isn't the same.
+- When I began playing the lute, in 1950 there were not too many lutenists around. I had to work hard, writing out music in museums and libraries. It was before the days of photocopying. And I had just picked up the lute, adapted my guitar technique to it and went from there.
+- Michael Berkeley's 'Sonata' is very - what can you say - melodious.
+- The guitar is the most beautiful of all instruments.
+- I do think there is a valid reason that Segovia commissioned the composers he did. He was very much a pioneer, and what he wanted was a very listenable repertory. But I'm interested in different aspects of the guitar, and of music.
+- You're never static as a performer. You either get better or you get worse. As I see it, you have an equal chance at either.
+- There is no piece of guitar music that has the formal beauty of a piano sonata by Mozart, or the richly worked out ideas and passion of a late Beethoven string quartet, or for that matter the beautiful mellifluous poetry of a Chopin Ballade.
+- I think that Bach has a very nice sound on the lute. But I find that what I want to do with Bach is best revealed on the guitar.
+- What is a seemingly conservative Englishman doing, leading the world in the mastery of a classically Spanish instrument? Debussy wrote some of the best Spanish music, and the only time he was ever in the country, he saw a bullfight which made him ill.
+- I've always played a lot of Spanish music, but not as much as most guitarists do.
+- It takes a lifetime and a half to master the classical guitar.
+- In 1984, I was contacted by Michael Taylor, who had won a commission from a sponsor and decided he would like to paint a picture of me. I agreed to do it, because I'm not unused to sitting for portraits: my father was a commercial artist and I used to model for him.
+- You have to get the attention of the audience. You have to make sure they know you are starting. You have to achieve a rapport with them on the very first chord.
+- I was mostly self-taught on guitar and that had its benefits. It's a great thing to work through problems on your own.
+- I devoted my life to music for a reason, and the reason wasn't because I wanted to get on or make money, but to try to fulfil myself and also to give people pleasure. That's been my credo.
+- Music has been my real solace. And that's why I play music. And that's why I'm so determined, or have been so determined to pursue what I wanted to do, come what may.
+- I suppose that when I started to play the lute it was fairly esoteric.
+- The guitar was not treated very seriously as a concert recital instrument.
+- Wanting to play the guitar was neither a wild dream nor a realistic ambition. It was simply inevitable.
+- The future of the guitar is every bit as important as its past.
+- It's very good for one's brain and muscular system to work in harmony. If you keep up your playing it just keeps things ticking over.
+- I used to drive myself about in an old Austin van... and then have to sleep in the back because I couldn't afford a hotel.
+- I was born understanding the language of music.
+- I think Englishmen or Northern Europeans in general are more naturally attracted to the lute than to the guitar, which always seems Spanish exotic - to our ears.
+- The lute is tuned differently than the guitar and of course it has many more strings.
+- I enjoy having a large audience, but I don't do anything special to attract them.
+- I much rather coach a string quartet in an interpretation of Haydn or Beethoven than to teach the guitar.
+- Quite often, I have to work hard to improve my technical capacity, if you will, before the demands of a new work come within reach. And I find that very stimulating.
+- If the orchestra's not enjoying itself, the concerto will not succeed, with the players confined to using half an inch of bow.

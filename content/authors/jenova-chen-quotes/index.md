@@ -1,0 +1,74 @@
++++
+author = "Jenova Chen"
+title = "Jenova Chen Quotes"
+quotes_len = "68"
+description = "the best 68 Jenova Chen Quotes"
++++
+- I studied Computer Science when I was in my undergrad and minored in Digital Art & Design.
+- I think that our language, culture, age, fortune, property, and our fame is all a facade. In the end, we're all the same.
+- I always have a problem playing text-heavy games. I'm a slow reader. I don't speak English well. As a kid in China, trying to play these games, I just wanted the text to go away.
+- 'Journey' was very much inspired by Joseph Campbell's work for 'The Hero's Journey,' but, from among his works, I like 'The Power of Myth' best.
+- We try really hard to avoid those conventional experiences, these adrenaline rush, anger, competition, violence. We intentionally avoid that. We try to create a game that's serene and tranquil and filled with love.
+- Seeing games become more of a young person thing, I feel like a toy I grew up with has been left behind. I don't want to. I want this thing to be respected by adults. I want this thing to be growing with me. It's important to have games that could be more nuanced and reflective of the real world and relevant to adults.
+- A lot of people asked us why 'Journey' didn't let them play with friends or family, and obviously we had a reason - because that would have defeated the purpose of the game. But for a game to be truly be accessible to both children and adults and to men and women, it has to allow people to play with the ones they love.
+- A teenager can find lots of games, but that's not necessarily true for adults over 30. As you get older, you desire more intellectual, emotional experiences. If you look at film, there's many different genres. No matter how old you are, you can find the type of movie you like. That's a sign of a mature medium.
+- My dream is to make everyone love video games.
+- I like technology, but the blockbuster games use it for the same thing over and over again.
+- I always played games with my friends, but as I got older, my friends stopped playing.
+- It's stressful when you run a company.
+- I feel, as a game maker, we are responsible to make content that stretch the ruling structure and emotions so that everyone can enjoy.
+- We tried to just convince big publishers like EA or other people to make games like 'Cloud'... It's just almost impossible.
+- I would say 'Flower' had a story. It is told through the environment.
+- Even in film, books, and music, there's always action - there's always rock and roll. Young people appreciate that kind of experience.
+- Look at the genres women like: a romantic comedy game doesn't exist. Few examples of a documentary game exist. What is the equivalent of a real drama game? They don't exist. Emotion with that complexity for a more mature, older audience are necessary to make medium-like video games healthy so it can be highly respected like the film industry.
+- I was very impressed with the scope and scale and impact that came from originally one person making 'Minecraft.' It's inspiring for me to think how our team can do more with less.
+- I just feel like I'm on a quest to fail if I try to even compete with myself.
+- Any established media, such as literature, music, or film, offers a wide variety of experiences touching emotions from the very primal to the deeply complex. No matter who the audience are or what kind of mood they are in, there will always be something right for them. Video games, as a fast-growing new medium, is on its way to catching up.
+- I grew up in Shanghai, a big urban city.
+- If a game is meant to be played by everybody, it deserves to be on multiple platforms so everybody can play it.
+- I'm a perfectionist.
+- A lot of the greatest artists, their work is always about life and the world. I think there needs to be that for video games.
+- When I designed 'Flower' I was thinking about making it a positive, almost like a self-healing experience. It's like therapy.
+- Each game we make, we like to introduce an emotion that is rarely experienced by gamers in the console game industry.
+- Creativity is not talent but attitude.
+- I always thought if I was born 2000 years earlier, I would be a monk, probably carving a monastery or some giant pantheon buildings.
+- For adults to enjoy something, they need to have intellectual stimulation, something that's related to real life.
+- 'Journey' is a way for us to explore the crossing, the intersection of our lives between each other.
+- With 'Journey,' we created an emotional arc for two different scenarios. So, if you play alone, it's a good game. You have what we think is a complete emotional arc. You will feel, I guess, a sense of transformation in the single-player. Because it's a hero's journey.
+- Designing a game can be like a Japanese garden. It's not what you put in but how much you take away.
+- 'Flower' is about the sublime.
+- A strong story can move me to tears, and it doesn't matter whether it's a science-fiction or fantasy world. It's about what happens to a person, the choices they make. That's what's interesting.
+- We founded thatgamecompany to push the boundary of video games as an interactive medium.
+- The struggle we went through in the last year of 'Journey' was pretty insane, and I think that is also why, when I was working on the struggle level, I was able to channel my own struggle into the game.
+- The focus of 'Flower' is emotion and to make you feel peaceful.
+- I feel like that nature has this great power.
+- In the free-to-play industry, the most money-making games are often coming from making people fighting against each other and really hating each other and wanting to revenge, so they spend more money to dominate.
+- Our goal is always to make games that can move people, that are designed for everybody so the whole family should be able to play it together, and that bring people together and really move them in a way.
+- We are all born alone and die alone. The loneliness is definitely part of the journey of life.
+- A great painter can paint something really complex, but they can crystallize it into something really simple.
+- When I was a teenager, I felt my life was constrained by rules, school, my parents. I wanted to feel like I was empowered and different; that's why superheroes, comics, manga, and video games filled my needs. When I got older, I realized power is not free; it comes with responsibility.
+- 'Cloud' and 'Flower' are very much egocentric about my own expression. 'Flow' is more utilitarian, and 'Journey' is more about collaboration between various creative voices in the team.
+- There are many sides of the urban life that I dislike, but there are many sides I am deeply in love with and attached to.
+- Video games have always been a part of my life.
+- I don't believe in a particular god, but I believe in the unknown. I believe that there's something bigger than us.
+- For 'Journey' to create a sense of smallness and a sense of awe will encourage the players to be together and exchange emotions. When you put the two players together online and put them in a difficult environment, they will create a bond.
+- I grew up with games. It changed my life. It changed my social relationships with my friends. It defined my childhood. It's something I really cherished.
+- If we can make great games for PS3 players... how many PS3 players are out there? If we can make great games for everybody, that's a much bigger service. There's no reason I shouldn't do that.
+- Games have to be relevant intellectually.
+- I was not grown up in the U.S., nor in Japan. In order to create a video game that people around the globe can enjoy and relate to, I can't draw things deeply rooted in the local culture that I'm not familiar with. That's why we are not doing games about football or samurai.
+- Every artist wants his or her work to connect with someone. I think that's why people make art.
+- I'm a game designer, so I care about the whole experience.
+- Nothing truly bad happens. There's always good and bad in any changes.
+- When we approach games, we're always emotional-focused, so if a free-to-play business model works against the emotion, we won't use it. If it actually works well with the emotion, or if we can come up with a new way to do monetization that's different and that's unique for the game, I would go for that.
+- At TGC, we are firm believers in the value of making games that respect our players.
+- Our vision is for games to offer a wide variety of different experiences and attract all kinds of gamers and nongamers.
+- What I find the most interesting about games is the feeling of accomplishment. I think this is an emotion that cinema can't do and books can't do. You feel like you've personally accomplished something. You feel you get better at something.
+- If you can imagine the delight of visiting a theme park where lasting memories are made, we envision 'Sky' will sometimes feel like that.
+- Language is very deceiving. In certain languages, there is certain vocabulary that doesn't exist in other languages. It totally changes how people feel about things.
+- Humans are lazy but not stupid.
+- I would rather see a game where you play to feel happier and to make other people like you and to make the people you care about happy.
+- I really like 'ICO' and 'Shadow of the Colossus.'
+- If our games can help people, that's the best reward we can get.
+- Thatgamecompany was founded with the philosophy that games are a form of entertainment, and entertainment is the food for emotion.
+- When I read a good story, I often start thinking, 'Should I live my life according to what this character chooses and values?' It makes me think. I feel like I grew up to be a more mature person while thinking about character development in these fictional situations.
+- When humans are hungry, they look for food. But they are also hungry for certain feelings. They go out to look for entertainment - from music to movies to novels to games - to satisfy their emotions.

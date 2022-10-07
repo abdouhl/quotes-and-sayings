@@ -1,0 +1,16 @@
++++
+author = "Jyotiraditya Madhavrao Scindia"
+title = "Jyotiraditya Madhavrao Scindia Quotes"
+quotes_len = "10"
+description = "the best 10 Jyotiraditya Madhavrao Scindia Quotes"
++++
+- Long-term power purchase agreements are very important from an Indian perspective, not only in terms of supplying regular power across the country, but also for efficacy of the transmission network.
+- I'm an unambitious politician.
+- The word 'commercial' implies a notion of profit.
+- To avoid a blackout, electricity generating companies must lower generation in line with low demand.
+- My father - the late Madhavrao Scindia - was clear about the distinction between being 'loving' and 'strict.'
+- Electricity transmission operates on a frequency between 49.7 Hertz and 50.2 Hertz. What I have done is petitioned the Central Electricity Regulatory Commission and squeezed this band to now 49.9 Hertz to 50.1 Hertz. This will contain volatility.
+- In an election, there are no kings.
+- I believe that it is important to have faith in a cosmic, universal power and identify the reasons for one's existence.
+- The family name hasn't fostered my prospects - ever.
+- I had barely turned 12 when my parents packed me off to Doon School. I was transported to a world of confusion with 600 other kids, no home-cooked food, no made-to-order clothes. It was a shock, but I adjusted.

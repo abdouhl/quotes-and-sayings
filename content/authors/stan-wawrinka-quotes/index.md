@@ -1,0 +1,80 @@
++++
+author = "Stan Wawrinka"
+title = "Stan Wawrinka Quotes"
+quotes_len = "74"
+description = "the best 74 Stan Wawrinka Quotes"
++++
+- Once you are on court, everything is different. I focus on the match.
+- I won a grand slam with an Audemars Piguet on my wrist, so I feel it is a great match.
+- As a tennis player, you have to get used to losing every week. Unless you win the tournament, you always go home as a loser. But you have to take the positive out of a defeat and go back to work. Improve to fail better.
+- I like to go to Mauritius on holiday.
+- I always try to find the positives in losing a match, but it's not always easy.
+- There's only really one way to be at the top, and that's practicing - practicing well and practicing hard. And enjoying what you do, because if you don't enjoy it then, it's always tough to wake up and go practice and suffer on the court.
+- Coaching is very complex: it's like a puzzle, and many things need to come together to make it work.
+- In Grand Slam, you play every two days, five-set match. You have a little bit more time to make mistake.
+- I enjoy Indian cuisine a lot. It's delicious.
+- As a child, I was lucky to have the support of my parents because starting a tennis career is a very expensive adventure.
+- Stress is part of your career. You have to accept it and deal with it because there is a lot of emotion in tennis.
+- My favourite film is 'Le Diner de Cons,' a French movie.
+- The schedule is tough in tennis.
+- My parents weren't very sporty, and football wasn't part of my everyday life. I was never a massive football fan either, but, like everyone else, I used to watch matches on TV.
+- I never dreamed to win a Grand Slam. It was never a dream because, for me, it was way too far.
+- I have many good friends on tour.
+- Tennis is a big puzzle. It's not any more physical or mental; you have to have all the pieces first, and then you have to put all the pieces together. For me, it took me time.
+- I enjoy putting myself in situations where you are nervous, but you need to enjoy yourself also. I've done skydiving, bungee jumping. I quite like those sensations - when you feel a little bit nervous and you don't really know where you are going. It's a quite good sensation that I love. I like the speed; I like everything.
+- The only plan is trying to push myself the maximum to be the best player I can.
+- My body is for my tennis - it's for my sport. I'm not a model at all. I don't work out to go to the beach: I work out to play well and to do well on the court.
+- I've always enjoyed playing in Switzerland. The crowd support is amazing here, and Basel is one of the best indoor tournaments in the world.
+- My game takes time to adapt to grass; grass is a little bit different.
+- Every time I step on the court, I know I can beat my opponent.
+- I never start anything 'I want to be No. 1. I want to win Grand Slam.' For me, no. It's always step by step. The only thing I want to do, it's to push the limit.
+- You always need to try hard to find solutions. It's the same in life or tennis.
+- When I was young, I liked to spend hours and hours on the practice court.
+- The ranking never lies.
+- If you want to beat the No. 1 player in the world, you have to give everything.
+- Doubt can be good because it means you want to improve: you want to be a better person, a better player. But it's also good not to have too many doubts on the court.
+- Queen's is one of my favourite tournaments of the year.
+- I'm always proud to play for Switzerland, and that will always be something really special.
+- I don't take anything for granted. In the beginning, my parents put a lot of money on the table so I could live my dream, without putting any pressure on us. We made our own way. But I've seen so many players come and go that I never, not for one minute, thought I could rack up millions on the tour.
+- I love New York. It is an amazing city, and the U.S. Open is a lot about the show. There are tens of thousands of spectators; these are some of the best courts in the world, and there is nothing like being here and making memories.
+- When you win a big title like the French Open, it's tough. The emotion in doing this is really up and down. Afterwards, you feel a little bit lonely, a bit of depression mentally. Because it's so much stress and emotion, so many people around - and then it's completely empty.
+- My parents wanted me and my siblings to practice some sports outside school. And since we lived next to a tennis club, we decided to play tennis. I didn't have an idol, so to speak, but I always enjoyed watching Pete Sampras and Alex Corretja.
+- It doesn't matter the way you're playing, especially the beginning of a grand slam. It doesn't change anything.
+- I just have to play my best game. Not think about anything else - that is the only concern I have and that we should all have.
+- You can always learn when you lose.
+- I love the region around Lake Geneva. The landscape is beautiful, very peaceful, and such a nice place to relax and spend time outdoors. It's always a pleasure to come back home.
+- To say that I won the French Open, it's something completely crazy.
+- As far as fitness is concerned, you have to enjoy it, do good exercises, and integrate them into your tennis practice. The preparation for the season is as crucial as doing good blocks when switching from one surface to another.
+- I was never afraid of getting up early and practice for many hours. I often go to practice very early during winter.
+- All you can do is trust your game and not wait for the opponent to give you the match.
+- I don't really care if I play really well, well, or okay. I want to win.
+- I like Chennai very much. The atmosphere is always great, and the fans are amazing. That's why I keep coming back.
+- Sometimes we have a match at 11 in the morning, sometimes at 9 P.M. We need to always be adapting; we don't have a match at the same time every week, so it's important to be open with everything.
+- The first years when I came to New York, everything was too big and too much. For me, it was too difficult here, but bit by bit, it became one of my favorite places.
+- It's simple - I love food. I am travelling all-year round, so I have the chance to eat every food possible, so I am really lucky with that.
+- There is always disappointment, heartache. You are losing almost every tournament. You need to just accept it and be positive because you are going to lose and fail. We're not all Nadal or Djokovic, who can win most tournaments.
+- I had a very happy childhood. I was lucky to grow up surrounded by nature and animals, to be outside all the time, and to work on a big farm with my dad.
+- Unfortunately, some younger player doesn't understand that if you want to get through, you have to sacrifice, you have to work hard, and there is no easy way.
+- I know if I want to have a chance to beat the top players, I need to be mentally ready for that.
+- For me, motivation is easy. I enjoy what I'm doing, and I'm lucky to play tennis. I enjoy the suffering. It's something quite natural for me to go on the court and suffer, and to go in the gym and to suffer, and to know the only way to get better is to work out - that's what I like.
+- I like my easy life at home. I like to live in Switzerland. I like to be with my wife, with my daughter, to take my daughter to school, to lead a normal life. I try everything possible to keep that.
+- When I was younger, I was a little bit fat. I wasn't, like, big-time fat; I was just overweight - maybe around when I was 13 or 14. At that time, I wasn't practicing that much; tennis was just a hobby. But it wasn't easy to feel that way.
+- I've always enjoyed playing in Paris, ever since I was a junior and won the junior event there. Being Swiss, this is the Grand Slam that is closest to us - the one we watch first and visit first if we are lucky enough.
+- Playing a best of five-set match, you can always bounce back, even if you lose the first set.
+- You can't underestimate rest. Sometimes in tennis we don't realize that to rest your body is as important as it is to practice. We are traveling so much, all year, in different conditions, different courts, different surfaces, different balls - so we always have to adapt.
+- By growing up at a center for people with special needs, I learned to always fight hard to achieve what I want. In this regard, I was incredibly lucky.
+- Those big matches, when you go through so much, are the best thing. Those matches are why you play tennis.
+- I've always been a big fan of Thierry Henry. I enjoy watching all the great players, really. But we're always drawn to some players more than others, and in my case, it's Titi. He's my favourite player. I also really liked Luis Figo when he was at Real Madrid.
+- I was a little bit lost in my head after winning a Grand Slam. You're like: 'So what's the next goal? What do you want now? Where do you want to be? It's not a problem if you lose.'
+- When I'm back home, I try to do as little as possible because I want to take time with my family. That's the most important thing.
+- I'm always trying to improve, always trying to be at my top, trying to push the limit.
+- Every match I won in a Grand Slam, I take confidence of that, and when I arrive in a final, I know my game is there.
+- Every minute counts. Being on time or not can mean the difference of a win or a loss and even of something positive or negative happening in life.
+- I think it is good to grow up on a farm, with nature, with animals and everything when you are young.
+- Put the fight on the court, and you will have a chance to win.
+- I never expected to win a Grand Slam because, for me, I was not good enough to beat those guys.
+- I grew up surrounded by tennis, so I was obviously more interested in it than football - particularly as it's the most popular sport.
+- I think I love my sport. I enjoy to play tennis. It's my passion.
+- You have to make sacrifices. You have to work out, to be relaxed in your mind, to focus on what you're doing.
+- When you don't play those big matches for a few years, it's tough to play back-to-back after that.
+- If you start to hesitate with your game, if you start to not go completely with your plan, then it's tough to play your best tennis.

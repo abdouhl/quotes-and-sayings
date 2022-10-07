@@ -1,0 +1,70 @@
++++
+author = "Joe Nichols"
+title = "Joe Nichols Quotes"
+quotes_len = "64"
+description = "the best 64 Joe Nichols Quotes"
++++
+- The Dalai Lama's entire being is about peace and harmony, forgiveness and self-discipline. Those are qualities to be admired. I am really looking forward to meeting His Holiness.
+- There's been a lot of really cool stuff that's happened to me throughout my career, and I remember everything, but I don't think I savored every moment of it like I should have or like I do now.
+- I enjoy my life very much.
+- I believe in angels. I believe in God.
+- The risks are 'How country can you go?' rather than 'How rock can you take it?'
+- You know, I'd like to sit here and blame everybody else for my trouble. I just can't do that. I can't find it in myself to do it.
+- I think it's a natural fit, major league baseball and country music.
+- I need to find a church on Sunday. I need to say 'please' and 'thank you,' 'yes sir' and 'no ma'am.' Do the little things because that's part of being an adult.
+- In my mind, as long as I did what was right for me, I was cool. But that's not the way it works. You have to think about other people and take their feelings into account.
+- I think it says wonders about people that can write an entire album, and put out an entire album of great songs. I mean, the Brad Paisley's, Alan Jackson especially, even Taylor Swift - those people can really pen great stuff.
+- I would never do anything that makes the perception of country music worse.
+- I've certainly had to bite my tongue on occasion and live to fight another day, so to speak, on certain things. But when you're new and fresh, you come out and think, 'I don't want to screw my chance up, so I'll go along with what everybody else does.'
+- I think every artist would love to just please themselves musically all day long.
+- It's always a pleasure to perform for people who love country music. And Australians definitely fall into that category. Each time I go back, I learn something new about the country, and I get to see some of the most beautiful places on the planet.
+- I want to see success right away. And I want to never give up, never stop.
+- The people who are competing business-wise out there want what other successful labels and artists have. I don't want what they have; I want my own path, my own sound, my own identity. Record labels care nothing about identity or artistic freedom, they want good business.
+- I enjoy every minute, because there are going to be a lot of moments in your future that you're going to wish you held onto longer.
+- Then when I went to Iraq and saw the strength and character the men and women in our military service exhibit every day and their belief in what they're doing, I knew I wanted to get that on film and share it with everyone. They are my inspiration.
+- I married a woman who's not going to take anything. No slips. She's very accountable, and she holds me very accountable.
+- It's important to show solidarity for a child, no matter what. It's important for a child to be raised in a situation where she sees love, solidarity, commitment and honor.
+- I'm a traditional country singer and we're always trying to make that a fresh and modern sound. That's always going to be the challenge with me.
+- That's what we need nowadays, is more children that have goals other than being a sports figure or some kind of celebrity.
+- We have a good opportunity to be good parents right now.
+- Stubbornness and ignorance and determination are a very fine line from each other. I'm a very stubborn person, but not so stubborn that I can't learn new things and meet new people, but I have a one-track mind.
+- You have to believe that things can be bigger than what you see in front of you in order to move forward.
+- It's very hard for me to say I'm sorry... but I do.
+- I was probably nine or ten the first time I heard there was no Santa Claus.
+- The Lord has blessed me more than I deserve.
+- I am a sports fanatic and being able to perform at halftime for the fans of the Steelers and the Jets is such a thrill for me.
+- Performing for the Dalai Lama - those are words I never imagined coming out of my mouth.
+- Sometimes as an artist you get wrapped up in what you are doing and you can't be objective.
+- My previous visits to Australia created fantastic memories, so I'm definitely looking forward to another visit. It is one of the most beautiful places I've ever been. I think every person in the entire country is nice. Seriously, I haven't seen or heard of a mean person yet. And they love country music.
+- If one artist sells five million albums, the tendency is for other artists to say, 'Maybe I should do a little of that, too.' That can be tough to resist.
+- Anybody can get lost in themselves.
+- I think it is a huge honor to get to go play for the troops who have been working their tails off for several years, some with several tours under their belt.
+- You know, I can be the happiest man in the world with minimal record success.
+- It's important that adults get along with each other for the child's sake, and that is our situation.
+- Sometimes you have to listen to other people, and see what the audiences want. That's what entertaining is about.
+- Australia is breathtakingly beautiful, and I can't wait to visit again.
+- It doesn't really matter to me what the rest of country is doing. I'm not caught up in trying to make a record that sounds like everybody else. That, to me, is a record label's absolute biggest downfall.
+- The way that I am now, I don't want to accept mediocrity. I don't want to accept the easy road.
+- The biggest question I have is if you're a rock singer or a rock 'n' roll band, or if you're a pop singer... if you've made your way in another genre of music and now you want to make a country record, why? That's my question. Why?
+- I'm proud to have so many great friends at country radio who believe in what I do - thanks to all of them.
+- I'm big into fishing, but I've never been much of a hunter. I never was really raised around it a whole lot, so I never got a chance to do it a whole lot.
+- I can't sing anything other than country!
+- I love Halloween, trick or treating and decorating the house. And I love Thanksgiving, because of the football and the fall weather. And of course, I love Christmas - that's my favorite of all!
+- For me, I wanted somebody that got me musically, that understood that I'm an artist and this is who I am. I'm not going to be like another artist on your label, probably - hopefully. I found all those things with the Broken Bow group.
+- Everything that's cool that happens, I look at my wife and I say, 'We need to enjoy this moment right here! This is really special!'
+- I believe there's things all around us that make you do good things and some that make you do bad things.
+- I recorded the song 'Believers' because I feel the song has a strong and much needed message. We all need encouragement and something to believe in.
+- Winning the ACM, winning the CMA, my first time on the Opry and having Grammy nominations were all a big deal to me.
+- Life on the road is very different from a normal, day to day life, and sometimes that surrealistic existence can have an effect on you, you tend to forget that's not really how things are supposed to be. But there comes a point where you have to pace yourself and find a place in your mind where you can be real.
+- The passion for doing music, the passion that I have for going out and playing it live - my love for country music is back.
+- The overall physical demand that Iraq has is pretty amazing. It's 130 degrees, and the soldiers are carrying about 100 pounds of extra gear. It's a pretty rigorous schedule and routine for them.
+- I wanted to make a traditional record that had a lot of art and showed my vulnerable side and showed things I'm passionate about.
+- Being an entertainer includes knowing how to connect with an audience.
+- I think the Lord gives us everything we can handle, nothing more.
+- Learning how to relive again on life's terms sure doesn't do much for your confidence. You have to kind of walk in faith that the next step is going to be just a little bit better than the last step.
+- When people have passion there's nothing they can't do.
+- I don't think there's anything wrong with singing a song and having fun with it.
+- When you find great songs, and somehow you get a spark in a little way, it can become brand new.
+- My first record deal was an independent record deal back in 1995 or early 1996.
+- My message to kids who bully other kids is: You know it's wrong! What's really going on? Try not to make somebody else's life miserable because you are.
+- I think it's really important for people to hear what our men and women in the military have to say.

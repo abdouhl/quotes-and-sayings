@@ -1,0 +1,106 @@
++++
+author = "Mikie Sherrill"
+title = "Mikie Sherrill Quotes"
+quotes_len = "100"
+description = "the best 100 Mikie Sherrill Quotes"
++++
+- The Great American Outdoors Act is a significant opportunity to invest in our public lands, including treasures in the 11th District like the Great Swamp National Wildlife Refuge and Morristown National Historical Park.
+- Americans shouldn't have to hold down two or three jobs to make ends meet.
+- The security and integrity of our election system remains paramount.
+- The Child Care is Essential Act and the Child Care for Economic Recovery Act will deliver urgently-needed relief to providers and working families.
+- Congress has made great strides in addressing the disparities in care, recognition, and benefits that our women veterans receive, but there is more work to be done.
+- Iron Dome is a proven defense system that will provide increased protection for our troops in the field.
+- Imposing a $10,000 cap on SALT deductions has nothing to do with thoughtful tax policy. It's simply an attack on New Jersey residents, businesses, and homeowners, and unfairly limits married couples to the same $10,000 cap as individuals.
+- It's critical that we engage the federal scientific community to further our understanding of COVID-19 as we work to keep communities safe and reduce the spread of the virus.
+- I grew up up and down the East Coast mostly. I went to high school in Reston, Virginia.
+- The National Guardsmen and women in New Jersey have been on the front lines of our fight against COVID-19.
+- I do not support the idea of defunding police departments. I believe that it does nothing to solve the root problems we must address and it makes our communities less safe.
+- As a working mom, I know all too well how important it is to know that your children have a safe and healthy environment while away from home.
+- My grandfather served as a pilot with the Army Air Corps, and he was shot down over Normandy in August 1944.
+- I served as a Russian policy officer in the U.S. Navy and worked to implement our nuclear agreements with the Russian Federation.
+- As we continue to discuss ways to make our environment cleaner, and more just, for generations to come we must not forget our nation's history of racial and economic injustice and the health outcomes it's led to.
+- Caring for our nation's veterans and investing in Picatinny are some of my top priorities in Congress.
+- Learning about WWII at the U.S. Naval Academy taught me about military tactics and the importance of fighting for our country's highest ideals.
+- We must stand up to anti-Semitism at home and abroad.
+- I went to the Naval Academy in Annapolis and then I went right into the Navy after that.
+- As a former federal prosecutor with experience prosecuting both violent and white-collar criminals, I've seen what it looks like when the powerful prey on the vulnerable.
+- I've always felt like in a democracy - this is how I was raised - that as a citizen, it's your duty to work hard for the agenda of the country.
+- I was a policy office in my final tour in the Navy, a Russian policy officer, and we were always thinking about our interactions and how they would affect the country 10, 20 years from now.
+- Religious freedom sits at the core of who we are as Americans.
+- Decision by decision, Justice Ginsburg reaffirmed the ideals of our Constitution and our shared values of fairness, equality, and opportunity. Her judicial opinions on voting rights, gender discrimination, and same-sex marriage made this country stronger and will continue to ring out through the ages.
+- I constantly hear from residents throughout my community about the need for common sense action in Congress to reduce gun violence.
+- Families in my community have seen their taxes go up because of the SALT deduction cap and as a result are questioning whether or not they can afford to live in New Jersey. The loss of the full SALT deduction puts an undue hardship on them.
+- If I just said, 'I'm a helicopter pilot and a federal prosecutor' they might think I've served my country, I'm experienced. If I say, 'And I'm a mom,' they think I get it. 'She's a working mom. That's tough.'
+- North Jersey residents rely on mass transit to get to work and our entire region is interconnected by our transit system.
+- I served in the Navy in Europe and know firsthand the importance of our NATO partners.
+- Picatinny Arsenal is essential to the safety of our women and men in the field and to delivering a qualitative edge for our military.
+- He was living proof that this country can improve. That, as a nation, we can peacefully confront historic wrongs and right them. John Lewis may be gone but his message and his legacy remains.
+- There are few things that define us as a country more distinctly than the idea of the American Dream. The idea that anyone can make it here through hard work and dedication. And that dream rests on giving people here a fair shot.
+- I intend to be an advocate for Picatinny Arsenal which plays a vital role in both our national defense and our local economy, and to address emerging national security threats such as climate change and cybersecurity.
+- I told New Jerseyans that I would find ways to work for commonsense, bipartisan solutions to some of our greatest challenges.
+- The Hudson River Tunnel is a chokepoint for the financial center - and most productive region - of the United States. It is the most heavily trafficked piece of rail in the entire country and even a partial closure will suffocate our nation's economy.
+- We must remember both the sacrifices and service of the Greatest Generation who secured freedom and prosperity for our world, as well as the horrors and lessons of the Holocaust.
+- I worked as a federal prosecutor in New Jersey.
+- Harmful Algal Blooms are a serious environmental and economic threat to New Jersey.
+- I've always been interested in politics.
+- If you're born a woman, you have a pre-existing condition.
+- Some of the most important discoveries, innovations, and advances in our history have come from those seeking a new life in America.
+- While no community is immune to the impacts of COVID-19, I'm troubled by the disparate impact to communities of color.
+- I have pledged to work hard to get the state and local tax deduction cap lifted.
+- John Lewis inspired countless Americans across generations with a life dedicated to service and getting into 'good trouble.' He had a vision for a better America, shouldered the weight of change, and put his own safety on the line so that others could live with dignity and grace.
+- State and local governments in New Jersey are a critical line of defense in the effort to respond to COVID-19.
+- I ran on forming broad coalitions with people throughout the caucus and across the aisle, and so that involves the Blue Dogs, people who are talking about tax reform.
+- Due to climate change, wildfires are growing in size, frequency, and intensity, and wildfire seasons are becoming longer.
+- Nothing affects people's lives who go in and out of New York more than their commute. It is unavoidable, and it must be done every day.
+- Instead of looking to male mentors, saying this is the paradigm of a candidate and it looks like this, we're suddenly finding that there's some powerful female mentors - and they look a little different.
+- At the U.S. Attorney's Office for the District of New Jersey, I worked as an Outreach and Re-entry Coordinator and an Assistant U.S. Attorney. I have seen the best of our law enforcement community and the commitment that they have made to the public's safety. But I've also seen too many examples of where our system falls desperately short.
+- When you're on the floor of the House of Representatives in the Democratic caucus, I like to say it feels like New Jersey. You have all different opinions, you have all different ideas.
+- Our leaders must hold themselves to a higher standard and ensure their words and actions do not promote hate or hurtful anti-Semitic stereotypes.
+- We have an obligation to ensure our service members are protected, our national defense is resilient, and our forces are well-equipped.
+- Long-standing bipartisan support for Israel in Congress is grounded in our common values and shared security interests.
+- I began serving my country when I was 18 years old and entered the U.S. Naval Academy.
+- We need to work together to strengthen protections for pre-existing conditions and improve upon the gains made under the ACA, not tear it down.
+- I'm working with the New Dems, who are talking about the future of work, which is something I'm very interested in in New Jersey.
+- The people of New Jersey sent me to Congress because they are tired of partisan gridlock. They want to see our Congress get to work on legislation that will make people's lives better.
+- I think we can build broad bipartisan support for bringing down prescription drug costs.
+- There are serious and legitimate concerns about academic espionage at our universities.
+- Justice Ginsburg is a shining example of how one person can impact our world and truly make a difference. May her memory be a blessing.
+- As a former officer in the U.S. Navy, I understand the importance of a strong national defense and our enduring obligations to all the women and men who serve in uniform to secure our freedom.
+- The Constitution protects freedom of speech, but we must expect more from our elected officials to heal divisions in our country and unequivocally condemn anti-Semitism.
+- I have four kids.
+- You want somebody in Congress representing you that on some level you feel has the same values you do and has the same priorities you do.
+- The toll of COVID-19 on the state of New Jersey cannot be understated.
+- A key part of our democracy is having a marketplace of ideas, open forums where people with diverse viewpoints can be heard and treated with respect.
+- With the incredible rate of growth of autism diagnoses in New Jersey, it is critical that we support the research, education, and access to services that individuals on the autism spectrum and their families need.
+- I want my kids to grow up in a world where everybody gets a fair shot.
+- Picatinny Arsenal is the center of cutting-edge research and development for our Armed Forces, and I'm proud to fight to protect its mission and to bring new, innovative projects to the Arsenal.
+- We should not be playing politics with the security and safety of our commuters.
+- New Jerseyans knew that the SALT deduction cap would hurt.
+- Federal research is vital to the innovation that drives our local economy and global competitiveness.
+- I left the Navy as a lieutenant after spending almost 10 years as a helicopter pilot.
+- Navigating the healthcare system for children with special health needs can be daunting for families.
+- The burden of student loan debt weighs heavily on both students and families across New Jersey.
+- I have spent my life fighting for our country and our values. When those values are jeopardized, when our democracy is threatened, I believe it is our responsibility to speak out and demand accountability.
+- We've seen the benefits of expanded telehealth services during the COVID-19 pandemic and the importance of making sure access to care is available if patients have to stay at home. That value won't go away when the pandemic ends.
+- Each generation is trusted with protecting our open spaces and natural resources to pass them on to future Americans to enjoy.
+- From Picatinny Arsenal to our great universities, New Jersey is leading the way to ensure our nation is secure and our service members are protected with the best possible equipment.
+- I was in the Navy when the World Trade Center and the Pentagon were attacked and Flight 93 went down in Shanksville, Pennsylvania. I remember the selflessness of our first responders, including brave New Jerseyans, who were there when our country needed them most.
+- Justice Ruth Bader Ginsburg was a pioneer and a role model for women across America. She is the reason women like me not only believed we had a right to be in the workplace, but were guaranteed it. She won us equality, and then showed us how to succeed.
+- I believe it is my responsibility as a member of Congress to ensure that I protect our country from any and all threats.
+- Families in the autism community have shared with me their fears as their children transition to adulthood. Many people lose access to crucial services and face tremendous uncertainty if their parents can no longer care for them.
+- We are a nation of immigrants.
+- New Jersey has faced its own history of citizens demanding change and federal engagement in programs to address the needs of our community. We have also seen the success of law enforcement in our state when members work to listen to our communities and build a brighter future alongside our residents.
+- The Great American Outdoors Act is landmark conservation legislation to protect our public lands, including right here in New Jersey.
+- The Peckman River Basin has frequently flooded, and for more than a generation, the towns of Little Falls and Woodland Park have faced these challenges largely on their own.
+- We need to restore the faith and trust between law enforcement and communities across the country.
+- I flew an H3 Sea King. The most famous Sea King is Marine One.
+- The broken VA disability claims process has failed to adequately aid veterans with toxic exposure during their military service.
+- I know John Lewis was a man of deep faith and I pray that his spirit will always guide us as we continue the work of systemic change. He charted a path for us. May we all commit to walk in his footsteps.
+- It's incredibly important that I decided to serve my country before deciding to run for office.
+- Here in North Jersey, our Muslim community is essential to our social fabric.
+- Letting the September 11th Victim Compensation Fund close is not an option.
+- New Jerseyans and their loved ones who live with a pre-existing condition should not have to worry whether or not their health insurance plan will cover them.
+- Designating June 12th as Women Veterans Appreciation Day will help bring attention to the unique needs of women veterans in the United States and to recognize their contributions to our country.
+- New Jerseyans know the importance of clean air, clean drinking water, and protecting our natural resources.
+- It was never something that I thought put me in a good light, that I was a working mom.
+- When sick, the ability to afford a prescription - or whether your plan offers the coverage you need - should be the last thing on your mind.

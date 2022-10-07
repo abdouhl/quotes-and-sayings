@@ -1,0 +1,16 @@
++++
+author = "Scott Patterson"
+title = "Scott Patterson Quotes"
+quotes_len = "10"
+description = "the best 10 Scott Patterson Quotes"
++++
+- Popstars really draws you in. It's fascinating. It's interesting to watch people thrown together in that kind of a situation. Even if the egos weren't involved and they weren't trying to be world famous. It's the Real World, only better.
+- I think L.A.'s terrific. You fly an hour and a half and you're in the mountains in three feet of powder. I also think it's a much better city if you're working as an actor. If you're not working and you don't see your dreams coming true, there can be a lot of heartache.
+- I'd like to settle down eventually, but acting is emotionally draining.
+- I get bored very easily.
+- I never worked in a coffee shop and I don't drink coffee, so I never thought I would become a coffee pusher on TV.
+- My accountant worships me because I'm so cautious with my money.
+- In 10 different takes, you can do a scene 10 different ways.
+- I write a lot of music in my time off and I compose most of the songs on guitar. I've actually gone into the studio and recorded a few things, but it's tough trying to sell a song. It's all about finding that hook, that melody.
+- Passion is the thing that sustains you in acting. If you're doing it for fame and money, don't even bother because it will never happen. The last thing I ever expected was to be paid for this.
+- I throw the best parties.

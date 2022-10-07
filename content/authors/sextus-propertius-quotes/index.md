@@ -1,0 +1,22 @@
++++
+author = "Sextus Propertius"
+title = "Sextus Propertius Quotes"
+quotes_len = "16"
+description = "the best 16 Sextus Propertius Quotes"
++++
+- Every man now worships gold, all other reverence being done away.
+- By gold all good faith has been banished; by gold our rights are abused; the law itself is influenced by gold, and soon there will be an end of every modest restraint.
+- I am climbing a difficult road; but the glory gives me strength.
+- Afflicted by love's madness all are blind.
+- Love can be put off, never abandoned.
+- Age makes all things greater after their death; a name comes to the tongue easier from the grave.
+- Among absent lovers, ardor always fares better.
+- Not only the bull attacks his enemies with curved horn, but also the sheep, when harmed fights back.
+- Tell me who is able to keep his bed chaste, or which goddess is able to live with one god alone?
+- Love never offers to anyone wings so easy that he does not hold him back with his other hand.
+- Let each man pass his days in that wherein his skill is greatest.
+- No rival will steal away my sure love; that glory will be my gray hair.
+- Let no one be willing to speak ill of the absent.
+- Although strength should fail, the effort will deserve praise. In great enterprises the attempt is enough.
+- Even a faithful mistress can be bent by constant threats.
+- Anyone who is an enemy of mine, let him love women, but let he who is my friend rejoice in men.

@@ -1,0 +1,14 @@
++++
+author = "Gloria Gaither"
+title = "Gloria Gaither Quotes"
+quotes_len = "8"
+description = "the best 8 Gloria Gaither Quotes"
++++
+- When we're in trouble, it's usually a line from a song that saves us. I wish it was sermons, but, I'm sorry, it's not. When you're in crisis, what comes to mind is 'O love that would not let me go.' You know?
+- In working with people across the country and around the world, I've come to know that most of us go through times that re-route our prayer life.
+- Everything is a part of what God's up to in your life, so I think our job is to embrace it. Everything. Embrace it all and consider it God's will for this moment.
+- God's will for your life is God's will for today, and it doesn't get any more glamorous than that.
+- I never set out to write prayers at all. But there was a span of time when I didn't find it easy to pray, but, when I went to write one of the things I had to write, a prayer would come.
+- I grew up in a literary home and majored in French, English, and sociology. They all have served me well over the years.
+- Scripture has always been a part of my life. My dad was a pastor. My mother was a speaker, writer, and teacher. I memorized Scripture from the time I was little.
+- The more I come to recognize my story's place in God's grander Story, my once-bewildered questions are turning to psalms of thanksgiving at the wonder that I have been included in what He is doing.

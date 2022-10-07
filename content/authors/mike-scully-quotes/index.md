@@ -1,0 +1,20 @@
++++
+author = "Mike Scully"
+title = "Mike Scully Quotes"
+quotes_len = "14"
+description = "the best 14 Mike Scully Quotes"
++++
+- The idea of 'Napoleon Dynamite' as an animated series made perfect sense to me.
+- I did hidden-camera shows. I've been around the block a few times.
+- I was very active in the Parks and Recreation department. I recall a lot of the things we had to do, from the trips for the department to organizing a Little League, those sorts of things.
+- You've got to pay the bills, and you want to get your foot in. The great shows usually aren't going to look for somebody completely untested, so you have to kind of get your feet wet doing other shows.
+- 'The Dick Van Dyke Show' was a huge influence on me as a kid. It looked like a really fun job.
+- I think if you're not offending somebody somewhere, then your show is probably just very bland and boring.
+- Five years is a good run for a sitcom; seven is good, but usually, it's a couple years of staying past your welcome.
+- I did a show called 'What A Country,' with Yakov Smirnoff and Don Knotts. I used to write jokes for Yakov's stand-up act.
+- I had been encouraged a lot by my parents and my sixth grade teacher, James Doyle at Main Street Elementary School. He was an early supporter of my writing ability.
+- I was born in Springfield and raised in West Springfield. My father ran a dry cleaning business and was a salesman.
+- The Boys and Girls club was basically a second home for me, and I always credit it with keeping me out of trouble. From the ages of 6 to 16, I was there nearly every day.
+- The only guest star I really wanted to get but didn't was Bruce Springsteen.
+- When you do a film as unique and original as 'Napoleon Dynamite,' it's hard then try to repeat what audiences loved the first time.
+- I remember, when I saw the first 'Austin Powers' movie, I was blown away by how fun and original it was.

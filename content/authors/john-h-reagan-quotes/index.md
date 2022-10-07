@@ -1,0 +1,13 @@
++++
+author = "John H. Reagan"
+title = "John H. Reagan Quotes"
+quotes_len = "7"
+description = "the best 7 John H. Reagan Quotes"
++++
+- The success of those doctrines would also subvert the Federal Constitution, change the character of the Federal Government, and destroy our rights in respect to slavery.
+- But I can tell you what your folly and injustice will compel us to do. It will compel us to be free from your domination, and more self-reliant than we have been.
+- You are not content with the vast millions of tribute we pay you annually under the operation of our revenue law, our navigation laws, your fishing bounties, and by making your people our manufacturers, our merchants, our shippers.
+- The Constitution of the United States was made by white men, the citizens and representatives of twelve slaveholding and one non-slaveholding State; and it was made for white men.
+- The people of the Southern States now own near five millions of these negroes, and they are worth to them near three millions of dollars.
+- It is proclaimed by the great leaders of that party, by its political conventions, by its ministers of the Gospel, and by every other means they have of giving currency and importance to the declaration, that it is its mission to abolish slavery in the Union.
+- The irrepressible conflict propounded by abolitionism has produced now its legitimate fruits - disunion.

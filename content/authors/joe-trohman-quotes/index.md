@@ -1,0 +1,16 @@
++++
+author = "Joe Trohman"
+title = "Joe Trohman Quotes"
+quotes_len = "10"
+description = "the best 10 Joe Trohman Quotes"
++++
+- I like guitar sounds to be a little somber.
+- I feel like touchscreen technology blows my mind still. It just makes me think of all of the sci-fi films I enjoyed as a kid.
+- People would be surprised at how much of an electronic dude I am, and I like new wave, post-punk and proto-punk stuff.
+- I feel like I've become less of a music snob and less of a snob about a lot of things because I realize I came off as such a bad person because of that.
+- I have an amp that doesn't have a master volume. It sounds awesome, but we just can't get an appropriate decibel level out of it.
+- I'll never like virtual keypads. Nothing can compete with an actual QWERTY-style keypad.
+- I don't tolerate anything that runs slowly. Whether it be a phone, tablet or computer, it has to run at optimum speed.
+- I've been touring a lot, and I don't always know how to get around. Google Maps on the iPhone is pretty helpful with that.
+- If I was going to do Fall Out Boy, I wanted it to be a real outlet for my writing.
+- I love what I do and the music I make and the bands I've done, especially Fall Out Boy. I also love what I love, and I don't care if other people like it.

@@ -1,0 +1,28 @@
++++
+author = "Martha Gellhorn"
+title = "Martha Gellhorn Quotes"
+quotes_len = "22"
+description = "the best 22 Martha Gellhorn Quotes"
++++
+- In the last camp they all ate grass, until the authorities forbade them to pull it up. They were accustomed to having the fruits of their little communal gardens stolen by the guards, after they had done all the work; but at the last camp everything was stolen.
+- There were ten concentration camps in France from 1939 on.
+- I didn't write. I just wandered about.
+- I found out about the Spanish war because I was in Germany when it began.
+- I see mysteries and complications wherever I look, and I have never met a steadily logical person.
+- I followed the war wherever I could reach it.
+- If I practised sex, out of moral conviction, that was one thing; but to enjoy it... seemed a defeat.
+- Why do people talk of the horrors of old age? It's great. I feel like a fine old car with the parts gradually wearing out, but I'm not complaining,... Those who find growing old terrible are people who haven't done what they wanted with their lives.
+- Between his eyes, there were four lines, the marks of such misery as children should never feel. He spoke with that wonderful whisky voice that so many Spanish children have, and he was a tough and entire little boy.
+- Furthermore, they were constantly informed by all the camp authorities that they had been abandoned by the world: they were beggars and lucky to receive the daily soup of starvation.
+- And though various organizations in America and England collected money and sent food parcels to these refugees, nothing was ever received by the Spanish.
+- After the desperate years of their own war, after six years of repression inside Spain and six years of horror in exile, these people remain intact in spirit. They are armed with a transcendent faith; they have never won, and yet they have never accepted defeat.
+- Gradually I came to realize that people will more readily swallow lies than truth, as if the taste of lies was homey, appetizing: a habit.
+- I only knew about daily life. It was said, well, it isn't everybody's daily life. That is why I started.
+- I daresay I was the worst bed partner in five continents.
+- Thousand got away to other countries; thousands returned to Spain tempted by false promises of kindness. By the tens of thousands, these Spaniards died of neglect in the concentration camps.
+- Then somebody suggested I should write about the war, and I said I didn't know anything about the war. I did not understand anything about it. I didn't see how I could write it.
+- It is alleged that half a million Spanish men, women and children fled to France after the Franco victory.
+- It would be a bitter cosmic joke if we destroy ourselves due to atrophy of the imagination.
+- Citizenship is a tough occupation which obliges the citizen to make his own informed opinion and stand by it.
+- The road passed through a curtain of pine forest and came out on a flat, rolling snow field. In this field the sprawled or bunched bodies of Germans lay thick, like some dark shapeless vegetable.
+- But now that the guerrilla fighting is over, the Spaniards are again men without a country or families or homes or work, though everyone appreciates very much what they did.

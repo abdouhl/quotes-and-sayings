@@ -1,0 +1,106 @@
++++
+author = "Javier Zanetti"
+title = "Javier Zanetti Quotes"
+quotes_len = "100"
+description = "the best 100 Javier Zanetti Quotes"
++++
+- Maldini was a key figure in world football. I have always had great admiration for him as a player and as a human being. I faced him in many derbies - he was tough but always very loyal.
+- It's always nice coming back to the national side.
+- What can you say about Messi? A guy who has won five Ballon d'Ors, four Champions Leagues and has scored 97 goals in a year. There is no need to win a World Cup to certify that talent.
+- I've had an incredible career.
+- Football always gives you a chance to set the record straight. Things go full circle and end up the way they should be.
+- I live every training session to the fullest as if it were a final.
+- My mother was a cleaner and my father a builder. I watched both of them make big sacrifices for my brother and I to study. This is where I get my work ethic from. This is also the source of my generosity and willingness to help.
+- I have always been proud to play for my country and every time I am called up, I play with the same desire and commitment.
+- My only desire was to defend and honour the Inter jersey in any country all over the world.
+- When I was young, as a fan of Independiente, my idol was Enrique Bochini. He was a playmaker and a total legend at the club. He never played for another club in his career. Maradona was a fan of Bochini too. So when I think that I have only played for Inter in Italy, I feel a little like Bochini. Only with far fewer assists!
+- I'm happy with my career.
+- Inter is my second home and put their trust in me when I was an unknown.
+- Every coach has his own ideas about managing the team and how it plays.
+- I've managed to play most games every season for many seasons. That gives you confidence and stability.
+- I grew up in a humble neighbourhood in Argentina called Dock Sud. From my house, about 200 metres away was a football pitch. That's where I spent my childhood. It's a neighbourhood where everybody helped each other because there was a lot of difficulties. There, I grew up happily, because I learned a lot of things.
+- I took after my father who was a bricklayer and used to build everything step by step, brick by brick.
+- Messi is the best player in the world, the things he does with the ball are incredible. If someone knows how to stop him, they have to tell me.
+- It's an honour for me to wear the Inter shirt. To have been involved in so many important moments that all of us and our fans will keep in our hearts and minds forever, I feel privileged.
+- Inter are a huge club and so always obliged to win.
+- I always see Argentina with great players.
+- We believe in a better world, an unglobalised world, enriched by the cultural differences and customs of all the people.
+- Banfield are in my heart.
+- This is football, and one cannot be distracted at any moment because the opposition can put you in difficulty and compromise a result.
+- Football has given me a lot and I have tried my best to give something back.
+- In 2000, with Tardelli at the helm, I really thought about leaving Inter. I had an agreement with Real Madrid and everything was ready for me to move to Spain.
+- I always give my best in training as if it was a Champions League final.
+- A lot of things, experiences I had, helped me to grow up and mature, both in terms of my football career and my private life too.
+- I'm a fan of Independiente, so I'd naturally like to wear their colours, and I also like Banfield, who gave me a lot as a young player. Either would be nice.
+- I have always tried to be myself on the pitch and probably my biggest pleasure is when fans of other teams come to show me their respect.
+- Sportive fortunes get built day after day, week after week through a healthy lifestyle.
+- I go to the hairdresser once a month and even if I don't use products, I always want to look tidy.
+- Recovery after hard work is key for any athlete.
+- I never settle.
+- There's no point in dwelling on the controversies created by others.
+- I am a big fan of Independiente and I played in their youth systems before being released for being too small, so I went to work with my father as a builder. This helped me understand a lot of things about life; it made me mentally very strong and it also pushed me to go and play for another team.
+- The thing about Champions League football is it can turn on an instant. You can have a very good, solid team over the course of the season, but the Champions League is more like the World Cup, where your fate can be decided in a second and you need a bit of luck too.
+- To arrive in a city like Milan as a young man was a huge challenge.
+- The Champions League is more important than the Scudetto.
+- In the past a lot of Italians emigrated to Argentina, and now us Argentinians, and in my case, us footballers, are returning to Italy. We always try to keep our identity.
+- My team-mates at Inter mock me when we are training. 'Stop running, let us win for a change,' they joke. But as long as my body responds, I will keep playing.
+- I am enjoying everything football has given me, and I want to enjoy to the maximum every chance I am allowed.
+- Inter are one big family to me and the club is like a second home to me.
+- I have always taken pleasure from the affection I received from Banfield fans everytime I have returned here, but I will not close my career with them.
+- I couldn't have left Banfield in the ways I would have wanted, but the people here are always great.
+- Inter have given me so much and I am very proud.
+- It wasn't my target to work as Argentina team manager.
+- Destro and Silvestre are two players worthy of wearing the Inter colours.
+- The guys who play in midfield and up front are the ones who decide games.
+- I've been lucky to be part of very good teams and to play with immense players.
+- I will not end my career with Banfield. I will stay at Inter until the end, the Nerazzurri fans should remain tranquil.
+- When I look back to my childhood, many concrete scenes come to my mind, good ones and bad ones.
+- My kids go to school in Italy and after my playing career is over I want to spend time with my family.
+- I want to be useful for the team, depending on whatever position the coach chooses for me. That's the spirit I've always had.
+- I don't mess around when it comes to fitness.
+- I had chances to leave Inter, but this is my home. I stayed here even in times of difficulty and I was always sure that the winds of change would come through.
+- For some reason I have always felt at home here at Inter and this is why I have never thought of leaving.
+- The bond between Inter and I will last forever.
+- Rafael Benitez and Mourinho are coaches with different ideas, but both want to win.
+- I am a precise person in everything I do.
+- It is always a great feeling to win.
+- When I was promoted to the main squad at Talleres de Remedios de Escalada, I felt my dream had become reality.
+- I like my hair. I care about it.
+- I never imagined that I would be at a club like Inter, with so much history and success and also as the captain. I can't see myself as a coach, but maybe as a director to give back to the club.
+- Inter is my life.
+- We Argentines do not realise what Leo represents for the whole world.
+- My relationship with Moratti goes beyond the normal ties between a president and a captain. I was an unknown and he believed in me. It's something that I will never forget. Indeed, I will always thank him for that.
+- You have to accept the criticism but you also have to consider how much of what is said and written is actually true.
+- My secret is to train as intensively as I can, if possible, with the same intensity you experience in a real match.
+- Strikers get periods like this, periods when you do everything right and others when you can't do anything properly.
+- I dreamed of ending my career with the Inter shirt, Inter is my house and I'll try to give my contribution off the pitch as well.
+- If I had a lock of hair out of place then I would not feel OK.
+- Throughout my career I have always done everything with passion.
+- I was close to joining Barcelona and Real Madrid, but I am happy to have remained at Inter because I knew that sooner or later our moment to shine would arrive, and it did.
+- I arrived at Inter when I was very young and I had the chance to play with Giuseppe Bergomi, and I met Giacinto Facchetti too.
+- I am proud to be an Inter player.
+- My story is like many other stories. I started very young. As the years went by, I only cared about playing football. I was never obsessed with money or being a professional though.
+- The important thing is to train well during the week so you perform well physically come matchday.
+- Milan are always a team to be respected.
+- Football is made up of episodes.
+- Messi is an extraordinary player, but your squad is pivotal: at a World Cup, the 11 players on the pitch and everyone else in the group can all play an important role.
+- You need passion and commitment in your sport or else you will never survive that long. Of course you also have to give it your best shot and be responsible for your own behaviour both on and off the field before you can fully enjoy the game for such a long period of time.
+- I do not like to discuss a game with the other players right after the final whistle.
+- I always seek to improve, but I also give a lot of importance to food and sleep too.
+- Even though I started out at right-back, I actually enjoy the contrast of playing both at full-back and in midfield. Both require physical attributes and a lot of energy.
+- I'll never forget my time at Banfield. It is a club that gave me everything and gave me the opportunity to become a man and a player.
+- I can honestly say that there's nothing more beautiful for a sportsperson that to play for his or her country, regardless of the tournament or the location.
+- To reach Bergomi at the top of appearances for Inter in Europe gives me pride.
+- When I look back to my infancy many images come to mind, beautiful and ugly.
+- Before coming to this decision to leave the game I had thought about it a lot.
+- I liked my father's work. But above all I liked the idea of doing something concrete and useful. Building a house is a metaphor that I like, it's at the core of my life philosophy: starting from the bottom and reaching the top.
+- The opponent I have most admired during my career is Paolo Maldini.
+- I've always believed that our public actions need to take account of our social responsibility.
+- Injuries are part of the job.
+- Benitez is a coach with clear ideas and lots of experience in football.
+- Inter have given me everything.
+- Messi is an ambassador of Argentina, and I am also proud of him as an Argentine.
+- In every team there are those who are discontented.
+- I am very happy working with Inter, helping them build the club's international relationship with both Fifa and Uefa, promoting the marketing side, its social responsibility activities as well as being involved with the club's academy.
+- Feeling my hair in place gives me confidence. It's a question of image but also of character.
+- I'm not surprised by Mazzarri's ability, I knew him as an opponent.

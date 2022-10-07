@@ -1,0 +1,19 @@
++++
+author = "Graham Chapman"
+title = "Graham Chapman Quotes"
+quotes_len = "13"
+description = "the best 13 Graham Chapman Quotes"
++++
+- You know, Python should have won a Grammy for our musical work on the show.
+- Dressing up as decrepit old ladies, and even decrepit young ladies, was one of our staples.
+- I hope I will have achieved something lasting.
+- Stormy in love, stormy in interviews, breakfast in bed - that's me, love.
+- Death can really absorb a person. Lik most people, I would find it pleasant not to have to go, but you just accept that it's more or less inevitable.
+- All ideas come about through some sort of observation. It sparks an attitude; some object or emotion causes a reaction in the other person.
+- Health care does not worry me a great deal. I've been impressed by some wonderful old people.
+- John Howard Davies was not a very human person... if you made a mistake of any kind, any sort of pause in speech, he would treat you rather as if he was a schoolmaster.
+- We don't deliberately set out to offend. Unless we feel it's justified.
+- It's nice to see that look of alarm on the faces of the others.
+- I can't talk to a man who bears an undeserved animosity towards ferrets.
+- World War II... did not happen to everyone, but it happened to most. There were people from Germany who were throwing bombs at us.
+- There is no cannibalism in the British navy, absolutely none, and when I say none, I mean there is a certain amount.

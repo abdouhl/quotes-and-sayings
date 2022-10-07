@@ -1,0 +1,65 @@
++++
+author = "Mehmet Oz"
+title = "Mehmet Oz Quotes"
+quotes_len = "59"
+description = "the best 59 Mehmet Oz Quotes"
++++
+- There are a lot of food Nazis in the U.S., but I believe if you can show people what's really important, they'll judge the rest for themselves.
+- The biggest mistake people make is to try to lose too much weight too fast.
+- I really think it would be cowardly to pull back and not challenge the status quo, when the status quo may not be the right way for the field to go.
+- As a surgeon you have to have a controlled arrogance. If it's uncontrolled, you kill people, but you have to be pretty arrogant to saw through a person's chest, take out their heart and believe you can fix it. Then, when you succeed and the patient survives, you pray, because it's only by the grace of God that you get there.
+- I've always felt that, when I looked at my tombstone, it shouldn't say, 'Mehmet Oz banged out 10,000 open-heart operations.' I've probably done 5,000. Am I any better at it than 10,000? He shook his head. It's just a different number on the tombstone.
+- When there is a psyche-disrupting event in your life, it can prevent you from getting the long blocks of sleep at night that are so important to healthy aging.
+- You cannot drive a system that's going to be aiming at preventing illness if everyone is not in it. The whole gaming of health insurance and health care in America is based on that fundamental principle: insure people who aren't sick and you don't have to pay more money on them.
+- Food - I love nuts. I eat them all the time, they're easy to carry around, and I am never hungry all day long.
+- Your genetics load the gun. Your lifestyle pulls the trigger.
+- What happens when you have great grief in your life is the arteries of that heart begins to spasms down, just literally squeezes down like this because you're feeling the tension of your life and then the heart muscle itself will also begin - to get stressed out.
+- Most food you drop is still perfectly edible. If it was in your eyesight the whole time, you can pick it up and eat it.
+- I get up at the same time every morning.
+- I've got so many weaknesses.
+- I think that we're beginning to globalize medicine now. You have to take Eastern approaches and bring them to the West, and share West with the East.
+- I do practice what I preach when it comes to nutrition.
+- I don't operate on smokers. I tell cigarette smokers that I can operate on you, I get paid the same. And you might even do well. But it's the wrong thing to do. So I refuse to operate on you until you stop smoking.
+- In Turkey, you're not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.
+- I feel differently immediately when I start to put weight on. I don't like that sluggish, blunted disposition that I have when that happens.
+- A lot of folks believe their best years are behind them. But I want Americans to recognize that's not true.
+- I used to bicycle to work across the George Washington Bridge, but my wife told me it wasn't professional.
+- I saw many people who had advanced heart disease and I was so frustrated because I knew if they just knew how to do the right thing, simple lifestyle and diet steps, that the entire trajectory of their life and health would have been different.
+- My mother was all about unconditional love, and I don't think we give that to our patients a lot. At the end of the day, what they really need you to do is to look at them in the eye and say, 'I'm here for you. I'm going to make sure this works out.'
+- You learn how to take care of people from the women in your life.
+- I like shows that have some level of intelligence to them. When it's not as predictable, when you don't know what's coming at you.
+- We don't walk. We overeat because we've made it easy to overeat. We have fast-food joints on every corner. By the way, the 'we' is all of us. It's not the government. It's all of us doing this together.
+- The opposite of anger is not calmness, its empathy.
+- No matter how old you are, no matter how much you weigh, you can still control the health of your body.
+- Medications almost always do it better if they're used in conjunction with other supports.
+- You get the health benefits of coffee up through about the first twenty-four ounces. It's the biggest source of antioxidants for Americans, and we think it helps prevent Alzheimer's and Parkinson's as well.
+- The rule I use is, If it doesn't come out of the ground looking the way it looks when you eat it, be careful.
+- I'm sure people think that I'm out in left field you know, playing by myself.
+- I think I'm a better doctor than I am a husband. I give myself a good grade as a doctor, then the next best grade as a father, and the worst grade as a husband.
+- At the end of the day, sleep is a barometer of your emotional health. And so if you're not in the right place where you need to be, then you're going to have voices keeping you up at night because you have to work through those issues.
+- We're all human beings, but some of us are more sophisticated at covering our flaws. We're just smart enough to lie to ourselves that everything is OK.
+- Most allopathic doctors think practitioners of alternative medicine are all quacks. They're not. Often they're sharp people who think differently about disease.
+- True health care reform cannot happen in Washington. It has to happen in our kitchens, in our homes, in our communities. All health care is personal.
+- Medicine has always been my calling.
+- I was lucky enough to marry a wonderful chef.
+- You don't have a family doctor anymore like you did when you were a kid, who treated you throughout your life.
+- We are spending most of our time in American health care fixing the mistakes that either we in the profession are causing or our patients are, without recognizing it, causing to themselves.
+- In my business, if I get too close to you and you die, it hurts me. And so you develop a natural inclination not to be close to the patient, so that if things don't work out ideally, you can still get up the next day and care for the next patient.
+- We don't need sugar to live, and we don't need it as a society.
+- Every hour you sit at work increases your mortality 11 percent. Think about that.
+- Your waist size should not be more than half your height.
+- People say their weight is genetic. But it turns out that people who are overweight don't just have overweight kids. They also have overweight pets. That's not genetic.
+- If you don't know your blood pressure, it's like not knowing the value of your company.
+- Not enough families eat together. We eat in front of the TV while we're absorbed in a program.
+- Biology always beats will power.
+- If I make your workplace conducive to walking at lunch, or working out at some time during the day, or I get people to use the stairs more by creating incentives to do such, then people will start doing it naturally.
+- It's difficult to love someone you don't respect, which is hard to remember when you're having an argument.
+- Food is no longer sacred to us: in becoming too efficient we've changed its nature.
+- Women are much more sensitive. We know that emotionally but their organs respond to the same degree.
+- I get up in the morning and do a seven-minute yoga workout. I know the most likely time I'm going to do something is when I first get up, and I make it short because, like you, I don't really want to do that first thing in the morning.
+- What we have now is doctors who are actually better technically at what they're doing in their specialty than 30 or 40 years ago, but we lost the relationship, when the doctor would look people in the eye and say, 'I care about you. We can do this together.'
+- Unfortunately, several companies are attempting to deceive consumers through the unauthorized use of my image or my name, and my attorneys are pursuing those making these false claims.
+- Hostility comes from loneliness, from not seeing yourself like a drop falling into the ocean of humanity like everyone else.
+- You need to be proactive, carve out time in your schedule, and take responsibility for being the healthiest person you can be - no one else is going to do it for you.
+- I meditate and I'm passionate about it.
+- Medicine grounds me, it centers me, that's why I continue to do it.

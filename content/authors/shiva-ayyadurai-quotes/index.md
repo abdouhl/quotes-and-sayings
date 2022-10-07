@@ -1,0 +1,77 @@
++++
+author = "Shiva Ayyadurai"
+title = "Shiva Ayyadurai Quotes"
+quotes_len = "71"
+description = "the best 71 Shiva Ayyadurai Quotes"
++++
+- If you think about what the Postal Service fundamentally does, those guys are trained to get mail and sort mail - there's trust verification.
+- The reality is, the Republicans in Massachusetts are irrelevant and they're in collusion with the Democrats.
+- Since the day I was born as a low-caste Indian, I've had to fight.
+- Email has explosively supported the growth of letter writing globally.
+- What I see happening to this country is a neo-caste system.
+- Email is not the simple exchange of text messages. Email is the electronic version of the interoffice mail system used for formal letter or memo communication.
+- I, in fact, believe people should work before they even go to school.
+- I was lucky that my parents had supported and guided me with a positive framework.
+- Many people don't even know why they're going to college.
+- I fundamentally do not believe in the patenting of software. It would be like Shakespeare patenting the tragic love story.
+- I think that if the Postal Service dies, it will be the end of democracy as we know it.
+- I am humbled to be selected as a TiE Star recipient and to be included among such an esteemed group of true innovators and intrepid entrepreneurs.
+- The problem with copyright is it only protects that literal work. It doesn't protect the design and the ideas. That's unfortunate.
+- Engineering is about finding solutions with a commitment to ongoing refinement. That's what engineering training teaches you.
+- The Renaissance took place in chaos and plague.
+- I consider myself an embodiment of the American dream: an all-American Indian.
+- Email cannot die in the near future because of its universal acceptance.
+- Even students from rural India may have bright ideas. They need to be tapped.
+- I came in as a legal immigrant. My dad came first. We had to wait about a year.
+- I think only a real Indian can defeat a fake Indian.
+- Innovation actually demands freedom and freedom demands innovation.
+- I named my software 'EMAIL,' (a term never used before in the English language), and I even received the first U.S. Copyright for that software, officially recognizing me as The Inventor of Email, at a time when Copyright was the only way to recognize software inventions, since the U.S. Supreme Court was not recognizing software patents.
+- That's the nightmare for Elizabeth Warren, because I can attack her from the left. I can say, 'Wait a minute, what do you know about the journey of a person of color? You know nothing. This is all theory to you. Because you did lie. You took advantage of affirmative action.'
+- I saw Trump as a necessary force to disrupt a broken system that was no longer serving the American people.
+- Our ancient yogis and sages were not just medical healers, but systems scientists and systems engineers, who saw the body and the universe as an interconnected engineering system, a system of systems that are governed by fundamental engineering systems principles.
+- I'm a brown-skinned Indian immigrant, low-caste untouchable - I don't know how many labels you want to put on me - who's fought all his life.
+- A quick search through the U.S. Copyright Office's website will show that email was first used in 1979 and has been registered under 'Shiva Ayyadurai.'
+- On my 7th birthday, in 1970, I left India and came to America: to this land of incredible opportunity.
+- Jobs cannot be created if innovation is restricted to large corporates.
+- I grew up playing baseball, playing soccer, having a paper route, while running my own small lawn mowing and snow shovelling businesses as a kid.
+- False speech does harm to readers, who are misled by it; it does harm to journalism, which is weakened by it; and it does harm to the subjects of the speech, whose reputations and careers are damaged by it.
+- Innovation and meritocracy was what America was based on.
+- I've always had a deep distaste, since 1984, for both Republicans and Democrats.
+- In many ways I just did not fit the mold of a 1970s high tech innovator. I was not white, I was not working for the military or for a defense contractor, and I must have seemed too young and too naive to stand up for the truth.
+- Lawsuits take a long time.
+- In countries like India or China, a Steve Jobs will never come around. The fundamentals aren't there - there's this feudal hierarchy.
+- Human beings do want peace, stability and harmony and that comes through democracy.
+- The hatred and the vitriol against Donald Trump has nothing to do with Donald Trump. It has to do with the fact that the academic priesthood lost control of what they call quote-unquote 'ordinary rednecks' - that they're stupid, they don't understand. The fact is, those people actually understand a lot.
+- Prior to 1980, people used to dictate to a secretary for preparing written documents and that person would then punch keys on a typewriter. I was inspired to invent a medium for doing this work by engaging just one person.
+- Be the light. Know the truth. God bless you.
+- Clearly texting, SMS and chat are very different than writing a letter or email.
+- Social media is like a big trade-show. You get to network... you get to make friends and followers. But email is where those friends and followers become customers.
+- The Republicans and Democrats profit from war and sickness.
+- I came to CSIR with a passion to apply all of my scientific - entrepreneurial talents to help uplift the masses of Indians through the delivery of technologies.
+- I didn't even know about MIT until two weeks before I applied.
+- Email is a fundamental application.
+- Answering phones synchronously is very different than reading an email, sorting it, figuring out which bucket it goes in, and then responding.
+- Email did precisely what I predicted, back in 1978, it took over the postal mail process and system of writing letters.
+- Much of the email we use today is based on what I foresaw in 1978.
+- For me, defeating Elizabeth Warren in Massachusetts is driving a bigger blow to these institutions of power right in the belly of the beast.
+- Western medicine was developed for crisis and war, such as if you got shot or wounded, to put the soldier back on the battlefield. It works well for catastrophic situations, but it is absolutely ignorant about prevention and lifestyle.
+- We can improve the utility of email by maneouvring its use in a constructive manner.
+- We are one people, and we cannot let the power of darkness or Power, Priviledge, and Control - destroy the Light.
+- Email is here to stay - it's time we got better at using it.
+- When I was at MIT I was a good model minority. But the concept of an Indian immigrant creating e-mail in Newark, N.J., blows the mind of certain people.
+- The way I look at the world is establishment versus change agents. The establishment is those people who want to keep things the way they are. Change agents are people like me.
+- You can't call someone a fraud, a liar, and a fake and hide under the First Amendment.
+- If you look at the origins of the postal service in the U.S., the founding fathers created it to protect democratic rights.
+- As a kid, I learned from my parents, teachers, coaches, and friends that what mattered most was Truth - to uncover it, share it and fight for it. That core value is the foundation of the American Dream. And my life has been about fighting for Truth, at every step.
+- I have no doubt that my origin and ethnicity have strongly influenced controversy over my invention of email.
+- I discovered the foundations of Ayurveda and Siddha, and more importantly I found that all of Western control systems engineering principles had actually been discovered by the great ancient Indian sages, 5,000 years ago.
+- I'm the darkie you can't control!
+- The innovators' spirit of America still exists. However, there is a narrative in America which goes like - you must go to MIT to get your calling card. Or you go to Harvard and then you drop out and then you've made it.
+- The invention of email evolved from a challenge to solve a real world problem.
+- I want to stand up for free speech.
+- On August 30, 1982, I get issued a copyright officially recognizing me as the inventor of e-mail.
+- Fundamentally there is a narrative around where innovation can come out from.
+- When I created the email in the U.S., my mentor could have easily copyrighted it and taken credit for it.
+- In 1978, there was a 14-year-old boy working in Newark. He did in fact create the inter-office mail system and called it email. What they did before 1978 was text messaging.
+- I have lived the American Dream.
+- In our case, I, a working engineer, inventor and scientist, am bringing new innovation to campaigning to enable a grass-roots movement.

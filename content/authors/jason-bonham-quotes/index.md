@@ -1,0 +1,100 @@
++++
+author = "Jason Bonham"
+title = "Jason Bonham Quotes"
+quotes_len = "94"
+description = "the best 94 Jason Bonham Quotes"
++++
+- I remember when I went to see Led Zeppelin live in 1979 at Knebworth, there were certain songs that stood out to me and will stay with me forever.
+- I have lots of memories of Zeppelin. And I know the joy it gives fans when I tell them stories. I see their faces light up.
+- I don't think I've ever met a drummer who didn't tell me that my dad was an influence. He's a tough act to follow.
+- My biggest 'Spinal Tap' moment was a stupid one as well. When we were rehearsing for the Zeppelin O2 gig, I was having an argument with my drum pedals. I actually took them outside, and drove over them several times with the car. Shouting at them and telling them they'll never work again.
+- I found my childhood scrapbook and there's an interview in there with dad from 1970. He talks about how long he's been playing the drums and he'd only been playing drums six years in 1970.
+- Led Zeppelin was Led Zeppelin when John Bonham was on drums. It's timeless.
+- We were both into motocross. My dad would wake me up at 6:30 on weekends, brew some coffee and make some sandwiches for us. Then we'd spend the day racing together. I know he had this reputation as being wild and irresponsible, but I never saw any of that.
+- As far as being a drummer, to me it's a positive that he's my father. To be mentioned alongside him... I mean, you Google his name and mine comes up, too - wow! Not too shabby.
+- He was just dad to me. I never really looked at him as Mr. Supergroup, John Bonham.
+- Led Zeppelin is part of my life, a huge part, that I enjoy immensely. But I don't want people to think this is all that I do. There is a creative side to my brain that needs to be fed, too.
+- I was listening to the 'Song Remains The Same' version of 'Dazed And Confused' and, oh my God, that is such an amazing version live.
+- Everyone knows who Bonzo is - you can just go pick up those books and read these fisherman's-tale stories. But at home he was a regular dad who would ground me and embarrass me in front of my friends. He was in Led Zeppelin and he would still embarrass me!
+- I loved 'Rain' and its take on the Beatles. The way they used a timeline and news reel to create a mood, and crafted set changes throughout, it was stunning.
+- My first four cars, I flipped - not sold them, literally rolled them or flipped them.
+- I am notoriously hard on myself in terms of working on new material and while I am critical of my performance on the Led Zeppelin material, I am way more critical of my own stuff. I'm pretty hard on myself.
+- It's beyond my wildest dreams to come out, represent my family, my father and the music of Led Zeppelin.
+- When my father began playing for Led Zeppelin our family was living in a 14-foot trailer.
+- I've had about 40 cars in my lifetime, maybe more, from Lamborghinis and McLarens to Bentleys and Rolls-Royces, but I always lost so much money.
+- The thing with Led Zeppelin songs is that they were never the same. They were very fluid and tight but loose.
+- As a young kid I never saw myself as a drummer.
+- I've always wanted to do an album with half the people I've worked with. People like Robert Plant, Paul Rodgers, Jeff Beck and Slash.
+- I've loved Range Rovers. That goes back to when I was a kid. My dad had the first ever Range Rover that was ever made - the first wave back in the '70s - and he had one every year from that moment, and mom has continued to do that. From the moment they started Range Rovers, they've been in my family.
+- He might have been in Led Zeppelin, but to me he was just dad.
+- You know at 14, when you lose your hero - your father - that's why I hold him on such a high pedestal.
+- Songwriting is a difficult thing, but it's not so bad when you remove the barriers you put up yourself.
+- When I do the Led Zeppelin Experience I feel sort of responsible and it's a more nerve-wracking gig.
+- Dad was pretty solid. He had great grooves and there was occasional moments of sheer brilliance with fills and things, but in general, the sheer brilliance is the simplicity, how much groove, how much feel he had, all the subtleties that we miss.
+- I'm playing my father's music and I'm a fan of Led Zeppelin. The response has been beyond what I ever imagined it would be. Unreal. Everyone seems to understand the story I'm telling.
+- To play like John Bonham is the hardest thing in the world because you're not John Bonham. It's how you breathe out of your heart. It's your emotions.
+- I'm hugely affected by what people think. It could be a million people saying, 'Great.' And then one person writes, 'What the hell is this kid doing?' and starts slagging me off, for some reason, and then I have to join in the blog and sign in under a different name and go,'Why don't you like him?'
+- I love the fact that young people are into rock 'n' roll music.
+- He was a very quiet and shy person but that drum kit gave him that voice. 'Bonzo' was the guy in Zeppelin. John was my dad.
+- At some point I got sick of people calling me Bonzo junior. But now that I'm older and wiser, I'm just honored to be mentioned in the same breath.
+- There's always got to be one adult in the band, I think.
+- I've searched all of my life for approval from my dad who is not around. So if I can get approval by his fans or from peers and critics, it helps me.
+- But I would say my favorite Zeppelin song to play is 'Kashmir.' I have a great time playing that one.
+- You know, I went through the whole blond hair bit. And dad took me to see The Police when I was 13. And I was like, this is a cool band, dad. See this is a cool band. And I felt bad for years because then a year later... I never had a chance to tell him how great I think was. After he passed away, I would go and listen to his music.
+- As I've gotten older, as I've gotten familiar with all different types of music, stuff that I didn't like when I was younger I actually kind of like now.
+- I don't think there are any easy Led Zeppelin songs.
+- I heard heart wrenching stories about fans who had tickets for the 1980 show in Montreal, the first concert that didn't happen, when my dad died. They'd be in tears. It was hard to deal with sometimes.
+- South Florida was definitely not a bad place for my kids to grow up.
+- Growing up my heroes were American motocross riders. I didn't want to be a drummer; I wanted to be a motocross rider.
+- I think to myself, How would things be for me if my dad was still alive? Would we get along? Would we argue? You know, we never got to the falling-out stage with each other.
+- I've been working on some original songs with the band that does the Led Zeppelin experience. We're going to start writing as an original band and see what comes out of it. It'll be kind of Zeppelin-esque because of the way the guys play - but there's nothing wrong with that.
+- The fan support throughout the years, and the new generation, has made Zeppelin larger than life.
+- It is hard to have your own identity when you dad is John Bonham of Led Zeppelin, but I accept and love the fact of who my dad is.
+- When the album 'Duke' came out, by Genesis, Phil Collins beat Dad in a drummers poll. My dad got me to learn 'Turn It On Again' by Genesis. I'd play it, and he'd go, 'Do it again,' until I got it right. I'd play it until I nailed it, and then he went, 'I don't see what the big deal is. My 12-year-old son could play that song.'
+- I did not want to go onstage and play Led Zeppelin songs; there has to be more than that. I wanted to create a complete experience of what Led Zeppelin means to me, growing up around them and being part of it all my life.
+- I was really into motocross. I started racing when I was 10 years old and did very, very well. That was my dream, if anything, more than drumming.
+- I've been clean and sober for 17 years. I am a control freak and must have a plan for everything I do now. I am also self-contained and happy.
+- I feel that it was my destiny to play with Led Zeppelin, and of course I had the chance and I did it to my best ability.
+- When I turned 17, I had a bike malfunction at a race, and in my head, I went, 'You know what? I'm done. I'm going to go play drums.' I still ride my bikes for fun, but that was the turning point.
+- I've never been a huge fan of drum solos.
+- Performing my father's songs at the Led Zeppelin O2 reunion concert in 2007 was an honor that I will forever remember as one of the most bittersweet, yet greatest nights of my life.
+- Led Zeppelin sounded like nobody else. That spoke to the individuality of the band and the direction Jimmy Page wanted to pursue.
+- My daughter wasn't into that type of rock music and kind of played it off. But then these teenage boys started coming around, and Led Zeppelin, I don't know, it became reinvented. Now she's very proud of her grandfather.
+- I was thrilled to hear Mick Jones wanted me to be involved in celebrating 40 years of Foreigner. I spent three years as their drummer and had a great time.
+- Most of my mannerisms come from my Mum, who is quite a funny, witty, chatty person. My Dad was very shy.
+- Dad's the master, I'm the student.
+- Well, when you grow up in a family situation like in England, you're whole - we call it pub culture, and it is, really. You grow up, you literally come home from work, everyone goes to the pub at 6:30, you drink till 10:30, go home and go to bed. That was our entire life - all my aunts and uncles, and my grandfather drank 'til he was 85.
+- Everyone knows these stories about a wild and crazy guy called Bonzo, but at home he was just like any other father; always hollering at me for not doing my homework.
+- I think I misunderstood the following in the footsteps bit, in a few of my early drinking years. I'd take any form of being compared to Dad as flattery. So if I fell off a stool or smashed up a TV set just because I was drunk, and somebody in the bar went 'Hey, man, that was just like Bonzo!' I would be really happy.
+- To be able to play 'In The Air Tonight' was one of my bucket list things I didn't think I was ever gonna be able to say I did.
+- When your Dad was the creator of 'Moby Dick' you kind of steer clear of getting compared in a solo-ing aspect.
+- I strive to be positive. I begin every day asking myself what I can do to make this a positive day.
+- Dad's influence naturally came into me, rather than trying to emulate every detail. His way of teaching me was to be sparse, and to be explosive when it needed to be.
+- Are people going to be more critical because I'm a Bonham? The answer is yes.
+- A song like 'When The Levee Breaks' has a very simple pattern, but it's hard to give it that feel that my dad gave it.
+- If you had asked me in 2005, when I had just joined Foreigner, that I would leave the band in 2007 to play with Led Zeppelin, I would have said you're nuts.
+- It's imperative that I continue putting together the best shows and take it to the next level. I'm talking to people about holograms, and my dream is to do the hologram drum solo with dad next to me.
+- After my dad passed away, I had this bizarre goal. I wanted to play drums for Led Zeppelin. I just wanted to be able to say, 'Dad, I did it.'
+- My kids still think that, you know, other kids' parents are cooler than I am.
+- My daughter is going to college and I'm very proud of her and my son is pursuing his own career in rap.
+- I always regretted that I never had the chance to tell Dad how great I thought he was.
+- Every drummer I've ever spoken to or read an interview with - my dad is always in their top three. I'm honored to share his name and represent him all these years after he's gone.
+- I'd like to eventually be known as someone who emerged as a songwriter.
+- I always say dad was a lot more funky than people think.
+- I don't mind talking about dad and stuff, because that's part of my life, you know? For me to pretend to be like him, and do the same things he used to do is over. I can see past it now. It took me thirty-eight years and sobriety to realize who Jason Bonham is.
+- We all have to appreciate where we come from and how wonderful our parents were.
+- If you listen to five nights of Led Zeppelin back to back they are all different.
+- I was into the Police. I dyed my hair white-blond and wanted to be Sting.
+- Joe Morello, my dad was really into him and Little Richard's drummer.
+- I never imagined in my wildest dreams when I was 17 watching Van Halen at a Donington Park rock festival and seeing Sammy Hagar later on when I was in the United States playing that I would end up with a band of guys I bought albums of.
+- My dad was a regular dad. At home, he wasn't Bonzo the animal. He was a very intellectual, quiet chap - not the beast we all know.
+- One of my dreams was always to play alongside my father but I never got the chance because we only had one drum kit at home.
+- I'm English, so I can be very 'half empty.'
+- It took a thing like my father's death to make me decide that I actually wanted to pursue drumming.
+- I know I live in the shadow of the greatest drummer in the world, so it's nice to have a bit of sunshine now and again.
+- One of the reasons I do the Led-Zeppelin Experience is because I really didn't get the chance, while he was alive, to understand how great my father was. I never got the chance to tell him.
+- I'm a huge fan of Ayrton Senna and the color scheme of the old McLarens.
+- My first band, we wanted to be like Foreigner and Journey.
+- I think that my performances with Led Zeppelin got better with each performance and I think that our performances as Led Zeppelin Experience have also gotten better with each show.
+- Somebody asked me the other day, 'What do you love the most about the show?' I said, 'The conversations that I have with my father in my head while I'm playing.' If I do something pretty good... I mean, I'm playing the gig and I'm saying in my head, 'Hey, check that one out, dad.'
+- My dad provided me with a great way of life, and he was very charitable man.

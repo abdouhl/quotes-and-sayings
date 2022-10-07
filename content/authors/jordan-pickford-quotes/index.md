@@ -1,0 +1,91 @@
++++
+author = "Jordan Pickford"
+title = "Jordan Pickford Quotes"
+quotes_len = "85"
+description = "the best 85 Jordan Pickford Quotes"
++++
+- While at Sunderland, I was No. 13, which I'd worn since I was 18, so it proved to be a decent number for me.
+- Freak mistakes happen sometimes as a goalkeeper that if you make them, then it's always going to bite you.
+- I never really doubt myself or think that if I make a mistake, I am going to make another mistake.
+- I did a lot of lower league, and in lower league, you're not going to be playing out from the back; you're going to hit it long and try to get the second ball.
+- As long as you are set and in the right position, you give yourself the best opportunity. It's all about the crucial timing of a save, but it's also being in the right position at the right time.
+- I would advise that if you can get out on loan and play football, it is the best path to go down.
+- The gaffer Gareth Southgate knows I can play with my feet, but he knows the capability I have in goal as well. He has put the faith in me, and I had to repay him in the World Cup, and I think I did.
+- I've got power and agility. I don't care if I'm not the biggest keeper; I've got the power and agility to get around the goal, and I'm very good at it.
+- I always work hard on and off the pitch for the Saturday's game, and it's all about performing on a Saturday; that's why I work my socks off during the week.
+- I hate making mistakes, and I hate conceding goals, but I try not to beat myself up too much.
+- As a goalkeeper, you've got to have mental toughness, and that's one thing I'm good at.
+- It is never nice to see keepers make mistakes. All keepers talk about it, and we work very hard not to make those mistakes.
+- I'd travel to Alfreton for games, and my dad, Lee, would drive. I'd eat my pre-match meal in the back. Mam would make chicken and pasta, and she'd stick it in a tub.
+- You've got to accept where mistakes will happen, and it's about not making the next one.
+- There is always a case as a goalkeeper, if you make an error, it will lead to a goal.
+- I know if I have played well or badly. I always ask my dad, and he tells me straight.
+- The pitch is always going to be the same lines, same goal height. It's just a game of football.
+- I want to become the best person as a goalkeeper I can be.
+- It's my job to be a goalkeeper and keep the ball out of the net, and that's what I've done. I've kept a clean sheet.
+- As long as I'm communicating and staying in the game, my concentration is always going to be there.
+- I've saved a few penalties; I'm good at them.
+- I always take my opportunities.
+- I remember going for a drink of water, and one old bloke shouts, 'Hey you, young lad! Your grandad is under that grass!' I just turned around to him, gave him the thumbs up and said: 'Nae problem!'
+- Criticism doesn't affect me. It just makes me want to be better.
+- Nothing really affects me. That's from being brought up well by my parents and where we're from, and we're a hard working family.
+- I wasn't going to McDonald's every week, but a nice pizza after three points isn't a bad way to have it.
+- The only way you're going to get caps is by playing. I've played all the way through the age groups, and that was my experience. Now I'm on the main stage, and I've got to play to my strengths.
+- Sometimes, off the field you learn the most, becoming a better person, and nutritionally, I've worked a lot on it.
+- As a goalkeeper, you want to be the best, but you can only get better by playing games, making saves, and putting in man-of-the-match performances.
+- I've been critcised for going with my top hand, but as long as you save it, that's all that counts.
+- I watched football, but I was a kid who really preferred being out on the street with my mates playing hide and seek!
+- For me, going out on loan and playing men's football was crucial, and I was getting bored of playing Under-23 football because I wasn't getting tested.
+- Sometimes maybe it just doesn't go right in the game, but that's football, and I think I'm definitely improving game by game, and getting more experience is good.
+- I try not to do tricks because I don't want to be caught with it. It's a risk.
+- It's the little things you remember. My mam, Sue, would take me to training in a taxi when I was a kid if Dad, who is a builder, had to work on a Saturday morning. You look back at the stuff like that and realise the sacrifices were all worth it.
+- If you're not ambitious, there's no point in playing football.
+- You don't want to get too comfortable if you're winning and start trying to be a number 10.
+- You know yourself if you are doing well, and I think my form shouldn't be getting questioned.
+- I've crossed every bridge to become a Premier League goalkeeper, I think I'm going in the right direction and I think I'm mature as a goalkeeper.
+- It means a lot to be voted for awards by the fans and your team-mates.
+- The more games you play, the more game management you learn.
+- The quality of goalkeepers is very good in the Premier League - and you have to be good at using your feet.
+- Places like Wrexham and Southport, when there are not that many people there, were tough. You are a young lad, and you're having abuse hurled at you.
+- A goalkeeper's mistakes are always crucial ones - or get talked about a lot.
+- I know straight away if I can do better. It doesn't take people to criticise me for me to realise it.
+- I don't worry about being the best keeper in the tournament. I just focus on being the best I possibly can for myself and for the team.
+- I was growing up watching Rooney as an England legend and as one of the top players in England in my lifetime.
+- The Manchester City game is what the Premier League is all about. You have to thrive on those big occasions.
+- Sometimes you can't help conceding as a keeper, but that's the whole reason you are there.
+- Getting the opportunity to become England's number one was down to being at Everton, I believe, and being able to put in solid performances week in and week out.
+- I always enjoy football.
+- Sometimes I was getting bored playing in youth games and in the reserves; I didn't think it was challenging. I always wanted to be challenged and better myself.
+- It's never nice to make mistakes, but it's just how you bounce back.
+- It is all about concentration, and the more games you play, the more you concentrate.
+- I've been a professional since I was a 17-year-old, over 200 league games from Conference all the way up to the Premier League now, so I think that's experience in itself.
+- I'm always ready to play when called upon; that's why I train so hard.
+- That is what I always do: try and perform well.
+- Being through the England set-up since I was a young lad, passing was the style of football I grew up with.
+- I got a lot of games under my belt in the lower leagues, and I don't feel the Premier League or England is that much different.
+- I have always said you only get one shot in life as a footballer.
+- I am always learning and always wanting to improve.
+- Football doesn't bother me. I just enjoy it. It's when you have to go to clubs and sing and do initiations and all that stuff. That's when I get nervous.
+- I always wanted to be going out on loan and playing football and maturing as a goalkeeper.
+- We do about 600 saves in a training week, just for that one save on a match day. That's why you've got to be in the game at all times.
+- I think everyone can have their own opinion. I think that all that matters is how I feel and my opinion, my coaches, and the people around me, like my family.
+- I am able to mentally block out mistakes.
+- I never put myself under any pressure or anything. I embrace the moment, play in the moment, and I feel strong. Nothing fazes me; I just want to be myself.
+- It is nice when other keepers say, 'Well done for last summer.' Petr Cech said that. It is touching.
+- Physical activity can help improve your mental health, as it helps to take your mind off things if you are having a bad time.
+- My mam and dad have brought me up well.
+- I train hard every day in the gym and on the pitch to show what I can do on a match day.
+- I play in the moment; nothing fazes me.
+- The important thing is to react well to your mistakes.
+- So long as I keep performing week in, week out for Everton, I will have the chance to stay England number one.
+- As a Sunderland fan, I loved Tommy Sorensen.
+- Coming into a new club, it's always exciting.
+- Every chance I've had, I've grabbed the chance to wear the No. 1 shirt.
+- I'm just a lad who likes playing football. I'm not bothered about anything else.
+- Petr Cech has been a top keeper in the Premier League for the last 10-12 years. When you're growing up, you see him making these saves week in, week out. He's probably been the most consistent goalkeeper in these last 10 years in the Premier League, so you can't give him too much criticism.
+- England fans are a different class. When the fans are like that, it makes us even better and so much more relaxed.
+- No, I never go into a game with any doubts. I always feel confident in my ability, and hopefully I can be strong mentally.
+- I don't practice many penalties! I don't mind taking them but don't really practice saving many.
+- When there are just 500 fans inside a ground, you can hear everything they say, every little word that is getting said. So that is what turns you from a kid into a man.
+- I'm just a normal lad.
+- I know I'm only 24, but I know in my head already I am mature, because I've got the right mental side of it.

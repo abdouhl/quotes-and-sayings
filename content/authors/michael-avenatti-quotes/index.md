@@ -1,0 +1,58 @@
++++
+author = "Michael Avenatti"
+title = "Michael Avenatti Quotes"
+quotes_len = "52"
+description = "the best 52 Michael Avenatti Quotes"
++++
+- I have a lot of notoriety now because of the Stormy Daniels case. I was less well known before outside of legal circles.
+- I can be aggressive at times. I didn't get to where I am by being a pushover, O.K.?
+- I'm not avoiding Fox, but they don't seem to want me to be on their shows much. I can't understand that.
+- Women face a very, very difficult time when they run for higher elected office, unfortunately, especially against a guy like Donald Trump.
+- I am blessed to have an incredible staff of other highly competent paralegals, lawyers, and others that I have surrounded myself with. This is not a one-man band by any stretch.
+- For good or for bad, I'm a risk taker. I like high-stakes, high-reward type situations.
+- I'm a mercenary. That's what people hire me for, and I don't apologize for it.
+- I'm not a celebrity. I'm a guy doing a job.
+- 'The Washington Post' doesn't have to report on what I post on Twitter. CNN doesn't have to report on what I post on Twitter. All kinds of media outlets - they don't have to report on anything that I post on Twitter. Just like they don't have to report on all kinds of other things that other people post on Twitter.
+- When you have a white male making the arguments, they carry more weight... Should they carry more weight? Absolutely not. But do they? Yes.
+- Let's face it - Donald Trump is a very, very good con man.
+- I don't generally go after people offensively, but if somebody comes after me, I will absolutely meet them every step of the way and then some, no question.
+- I've been fighting for Davids versus the Goliaths for 18 years, my entire career.
+- You can't go into Youngstown, Ohio, and tell everybody they're going to be retrained and go work for Google or Apple.
+- Part of the problem is that we don't have enough Democrats that will actually stand toe-to-toe with this bully Donald Trump and fight for the rights and values of this republic.
+- I think I've always acted confident, even at times I haven't been confident.
+- Michael Cohen is one of the world's greatest evidence hoarders. He rarely threw anything away.
+- I've never understood this idea of not shooting straight with people.
+- Donald Trump is either going to resign, he's going to be removed from office by impeachment, or I'm going to beat him in 2020. But one way or the other, he's not going to serve a second term.
+- I think that if the Democratic Party focuses on nominating who will make the best president, that's going to be a critical mistake. There's only one question at the end of the day, and that question is, Can the potential nominee beat Donald Trump?
+- In L.A., anytime a show is a success, people come out of the woodwork claiming they had the idea first.
+- Just like there is nothing wrong with calling out unethical attorneys, there is nothing wrong with calling out unethical journalists.
+- I'm not going to opine as to whether I think a particular candidate can beat Donald Trump or not.
+- The attorney doesn't decide what to do; the client ultimately decides what to do.
+- It's pretty clear that a lot of people in politics see me as a threat, and they should, because I am.
+- What you see with me is what you get. I don't have to conduct a poll to figure out what I'm going to tell somebody. I don't have to hire some consultant to come up with some cute catch phrase. I just call it like I see it.
+- My past business dealings, my personal life, who I'm dating, the details of my divorce, other business matters that I've had - all that should be completely off-limits.
+- I ended up working on over 150 political campaigns in 42 states; over a third of those were for Republicans. I want to be clear about that. Approximately two-thirds were for Democrats, so, I worked on both sides of the aisle, across the United States.
+- I'm a student of the law.
+- We live in a different media age, a different realm if you will. And whoever is going to aspire to the presidency is going to need to understand what that realm entails and how to navigate it.
+- Over the years, Democrats have had a lot of very talented individuals, but they have lacked fighters.
+- I'm used to litigating against incredibly competent, high-quality lawyers that are very good chess players.
+- I believe that our party, the Democratic party, must be a party that fights fire with fire.
+- Being president isn't a solo position. You surround yourself with highly qualified people that are smarter about issues than you are. But that's not enough. You then have to listen to them.
+- I completely disagree with the idea of eliminating ICE. We should not eliminate ICE: it's like saying we should eliminate the police force.
+- Michael Cohen is a criminal, and he deserves the max penalty.
+- I would like to think people would take me seriously.
+- Frankly, I am shocked at the complete level of incompetence exhibited by lawyer after lawyer for Mr. Cohen and Mr. Trump.
+- The kind of work I do, there's usually a lot of money on the line; there are jobs on the line. It's not a world that lends itself to everyone being friendly all the time. We're certainly not sitting around holding hands singing 'Kumbaya.'
+- I can't remember the last time I was able to just chill.
+- I'm not an expert on journalistic standards. I want to be clear on that.
+- A lot of people have sought to place me in the position as the leader of the anti-Trump movement. That is not something that I have aspired to. It's not something that I've requested.
+- Frankly, sometimes you have to go into the belly of the beast, as they say, and take on some of these individuals even if they're entirely unprofessional, like Tucker Carlson.
+- I'm not under obligation to provide information to everyone that wants it when they want it.
+- Initially, I was very skeptical about getting involved because I, much like many Americans, had preconceived notions about Stormy Daniels and her motivations and what she is all about.
+- I would not describe myself as a Trump hater.
+- If you're going to be a fighter, and you're going to fight for the future of this country and lead the Democratic Party, then you can't be ducking fights.
+- Anybody that says I don't have any experience in immigration cases doesn't know what the hell they're talking about.
+- I think Donald Trump is a very unique candidate.
+- We have, in this country, this Puritan, hypocritical, nonrealistic view of sex that is entirely different than the view, for instance, in Western Europe.
+- This argument that somehow I'm chasing the limelight is a bunch of nonsense, and it's offensive - highly offensive - to me.
+- Donald Trump - you can say a lot of negative things about him, and I do, and I think he's completely unprepared for the office, and he lacks the fabric to lead this nation, but if there's one thing that he understands, it's branding and how to navigate the media.

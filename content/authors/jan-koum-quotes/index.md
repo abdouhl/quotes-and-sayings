@@ -1,0 +1,74 @@
++++
+author = "Jan Koum"
+title = "Jan Koum Quotes"
+quotes_len = "68"
+description = "the best 68 Jan Koum Quotes"
++++
+- We're not advertisement-driven, so we don't need personal databases.
+- We're not interested in bombarding our users with, 'Hey, play this game, play this game, play this game.' It gets annoying, it gets in the way of messaging, and it gets in the way of staying in touch with people who are important to you.
+- We don't really talk about our future plans. But we, at the same time, try to build things that our users ask us for.
+- We obviously try to be in tune with what our users want.
+- As long as our user base continues to grow, at some point it will have critical mass, and at some point it will tip, and at some point, people will just have to use WhatsApp because their friends are using WhatsApp.
+- The difficult part for us is adding features without making the product more complicated.
+- When I was a kid trying to communicate with family in the Soviet Union, it was very difficult. You had to go through the long-distance phone companies like MCI, which were difficult to navigate and expensive to make calls through.
+- WhatsApp's extremely high user engagement and rapid growth are driven by the simple, powerful and instantaneous messaging capabilities we provide.
+- Advertising isn't just the disruption of aesthetics, the insults to your intelligence and the interruption of your train of thought. At every company that sells ads, a significant portion of their engineering team spends their day tuning data mining, writing better code to collect all your personal data.
+- I only have one idea, that is WhatsApp, and I am going to continue to focus on that. I have no plans to build any other ideas.
+- In terms of security and privacy, what people care about the most is the privacy of their messages.
+- We're somewhat lucky here in the United States, where we hope that the checks and balances hold out for many years to come and decades to come. But in a lot of countries, you don't have these checks and balances.
+- I have many regrets and things I wish I could go back and change, but I have also worked hard and tried to improve myself.
+- No one wakes up excited to see more advertising, no one goes to sleep thinking about the ads they'll see tomorrow.
+- If you look at firms like General Electric or other large companies, they don't just do one thing; they do many different things to generate sources of revenue.
+- In some ways, you can think of end-to-end encryption as honoring what the past looked like.
+- Our phones are so intimately connected to us, to our lives. Putting advertising on a device like that is a bad idea. You don't want to be interrupted by ads when you're chatting with your loved ones.
+- In some countries, WhatsApp is like oxygen.
+- At WhatsApp, our engineers spend all their time fixing bugs, adding new features and ironing out all the little intricacies in our task of bringing rich, affordable, reliable messaging to every phone in the world. That's our product, and that's our passion. Your data isn't even in the picture. We are simply not interested in any of it.
+- I hate spam, and that's what happens when you let businesses onto the network.
+- Users get unlimited 'WhatsApp'. We get happy users who don't have to worry about data. Carriers get people willing to sign up for data plans.
+- When advertising is involved, you, the user, are the product.
+- I grew up in a country where advertising doesn't exist.
+- Everybody who wants to join 'WhatsApp', we'll go out of our way to build a really awesome client for them.
+- People have SMS, right? It stinks. It's a dead technology, like a fax machine left over from the Seventies, sitting there as a cash cow for carriers.
+- I grew up watching 'Disco Dancer'. I watched it some 20 times as a kid.
+- People appreciate a good product, a stable system. They want to communicate easily and use a product that just works.
+- We want to do one thing and do it really well. For us, that's communications between people who are friends and relatives.
+- Experiences from our youth shape what we do later in life.
+- The encryption genie is out of the bottle.
+- Everybody I meet who uses 'WhatsApp', I ask them a question: 'How did you hear about it?' And they say, 'My friends, my sister or my brother, somebody I know hounded me to install WhatsApp.' We think there is more power to the network when it grows organically.
+- I grew up watching Indian movies as a kid in Russia. I am quite familiar with Bollywood.
+- We've taken SMS technology for consumers and improved it.
+- A lot of my time, effort, and focus is spent on 'WhatsApp'. And that, to me, is more valuable and rewarding than to work on anything else.
+- 'WhatsApp' began as a simple idea: ensuring that anyone could stay in touch with family and friends anywhere on the planet, without costs or gimmicks standing in the way.
+- We're obsessed with making sure that voice and video work well even on low-end phones.
+- Communication is at the very core of our society. That's what makes us human.
+- We hear lots of stories where grandparents go to a store and buy a smartphone so they can keep in touch with kids and grandkids.
+- I had so much fun in early days learning about networking, security, scalability and other geeky stuff.
+- Pavel Durov only knows how to copy great products like Facebook and 'WhatsApp'; he never had and will never have original ideas.
+- On my iPhone 3GS, I use 'Instagram', 'Twitter' and 'Touch'.
+- Clearly, you can't believe everything you read in the press.
+- The message growth rate in Brazil - it's not like a hockey stick: it's like a vertical line.
+- I want to do one thing and do it well.
+- Nobody should have the right to eavesdrop, or you become a totalitarian state - the kind of state I escaped as a kid to come to this country where you have democracy and freedom of speech.
+- I didn't have a computer until I was 19 - but I did have an abacus.
+- Utilities get out of the way. Can you imagine if you flipped a light switch and had to watch an ad before you got electricity? Can you imagine if you turned on a faucet and had to watch an ad before the water came out?
+- It's important for people to have freedom to use whatever product they want. We have no problems with other people using other apps, so long as they keep using 'WhatsApp'.
+- The argument can be made: Maybe you want to trust the government, but you shouldn't because you don't know where things are going to go in the future.
+- Ironically, I grew up watching Indian movies as a kid in Russia. I am quite familiar with Bollywood. I grew up watching 'Disco Dancer;' I watched it some 20 times as a kid.
+- Anybody can build a company and sell the company the next day. That doesn't make you special, it doesn't make you unique, it doesn't make you all that great.
+- The F-word here is focus.
+- There were a lot of negatives, of course, but there were positives to living a life unfettered by possessions. It gave us the chance to focus on education, which was very important in the Soviet Union.
+- Facebook, Google, Apple, Yahoo - there's a common theme. None of these companies ever sold. By staying independent, they were able to build a great company.
+- If partnering with Facebook meant that we had to change our values, we wouldn't have done it.
+- I grew up in a society where everything you did was eavesdropped on, recorded, snitched on. I had friends when we were kids getting into trouble for telling anecdotes about Communist leaders.
+- I grew up in a country where I remember my parents not being able to have a conversation on the phone. The walls had ears, and you couldn't speak freely.
+- Marketing and press kicks up dust. It gets in your eye, and then you're not focusing on the product.
+- A lot of companies are global.
+- A lot of times, people start out with a lot of good ideas, but then they don't execute. They lose the purity of their vision. You end up running around in circles.
+- Our team has always believed that neither cost and distance should ever prevent people from connecting with their friends and loved ones, and won't rest until everyone, everywhere is empowered with that opportunity.
+- I grew up in Russia. We had a telephone line, but a load of our neighbours didn't. It became a shared resource for the whole apartment complex. People would come and knock on the door and ask to call their family in another city.
+- What makes our product work is the way we're tightly focused on messaging and being an SMS replacement.
+- In Russia, you really learn about a person.
+- A lot of what I experienced growing up in the U.S.S.R. and coming to the U.S. as an immigrant actually reflects itself in Whatsapp. Experiences from our youth shape what we do later in life.
+- Our focus remains on delivering the promise of WhatsApp far and wide so that people around the world have the freedom to speak their mind without fear.
+- People need to differentiate us from companies like Yahoo! and Facebook that collect your data and have it sitting on their servers. We want to know as little about our users as possible.
+- We continue to grow, and, just like with countries like China or other countries where we are not doing particularly well, we take a really long-term approach.

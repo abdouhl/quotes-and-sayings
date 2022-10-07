@@ -1,0 +1,104 @@
++++
+author = "Mary H.K. Choi"
+title = "Mary H.K. Choi Quotes"
+quotes_len = "98"
+description = "the best 98 Mary H.K. Choi Quotes"
++++
+- I commit words to paper and the Internet for everyone to pick apart, so I think I tend to be a lot more cynical and dulled.
+- Instagram is not a place for tone or irony.
+- My mom is an excellent mom. She knows I am irascible, prickly, and antisocial. She knows that most human interaction makes me tired and that I either scare people away with precise invectives or trot out the fakest, nicest skinjob of myself because it requires zero effort.
+- When I was five, I compound-fractured my arm, pulverising my elbow.
+- The second single from 'Purpose,' Justin Bieber's fourth studio album, 'Sorry' is an infectious confection - a Dorito for your ears.
+- 'Avatar' is staggering. It's seismic. Evolutionarily speaking, it is cladogenesis in a thunderclap.
+- Everyone is such a mystery, yet we chug along so much of the time presuming we're all on the same page.
+- I'm a sucker when it comes to under-explored human potential and 'stuff that makes you be better.'
+- Eventually, I just want to write wavy little short stories.
+- When you have tools with which to stalk everyone all the time, the most seemingly aloof person wins.
+- From the first time I harangued my mother into buying me a pair of platform sandals at the irascible and persistent age of 11, I've worn heels.
+- I'm a big believer in puking out all your thoughts in a single sitting and getting some version of the work down, because the alternative just prolongs the agony. The first draft is hideous and ajskdlkdfksjdfslfjk, but it's just a map for where the big blocks go.
+- Try life as your own boss, on your own voyage. No daily commute. No salad bar at 12:15. No cc'ing about the meeting.
+- I find texting to be kind of a safe space.
+- I love how British people call Asian people 'oriental' unless they're talking about Indian people, who get to be called Asian.
+- Never post boring back-to-back selfies.
+- 'Sorry' is unlike anything Bieber has made in the past. It has been classified as 'tropical house' and 'dancehall,' but everyone seems to agree on one thing: It's a banger.
+- Aside from the can, everything about LaCroix is gentle.
+- Do you know why we pay trainers and nutritionists? Because having to muster interest in the minor successes of someone else's journey toward pedestrian-ass healthiness is taxing and should be compensated.
+- I like science a whole bunch, but I love 'The X-Files' more - I want to believe.
+- Food rules. Little rivals the pleasure of tearing into a glistening burger.
+- My brother's in comics. I work in media.
+- Nothing is more untoward than a grown man tasking another with snapping a pic expressly so he can 'flex the 'fit.' It's tacky -self-aggrandizing - and speaks to an existential neediness typically reserved for failed actresses and phenomenally successful rappers.
+- Nothing beats SoulCycle for dumbing all the way out or re-calibrating a mood in less than an hour, which is reassuring, since I typically wake up in a panic that's candy-coated with a low-grade rage.
+- I'm just going to write whatever I'm going to write, and whatever shelf or section they end up on at the bookstore is just going to be that, and I'll let the marketing people pull their hair out and worry about it.
+- I'm pretty sure I peaked at 15.
+- Manhattan, after eight years here, still reminds me of Hong Kong. There are parts of Chinatown that are the spit and image of streets in Wan Chai, and I am held in thrall by the Chrysler building as much as I was by I.M. Pei's Bank of China Tower.
+- There's a really generous readership with YA.
+- You always feel like a hack and a fraud when you're writing. It's just how it goes.
+- Never hold up your entire group of friends in real life trying to capture a perfect Instagram pose. Nobody cares.
+- SoulCycle feels gross, is gross, and I'm grateful to have found it.
+- As a consumer, I love superheroes.
+- I suspect that living 24/7 in workout attire is the clothing version of the messy topknot. We all know that your hair is dirty, or too long, or too frizzy, or your roots have grown out, but we are all going to accept it as fabulous because that's the deal.
+- 'Emergency Contact' is about the anxiousness that is inherent in meat space interactions.
+- Even the coolest jobs get stultifying with repetition, and the only way to break that cycle is to bring another job into the mix.
+- Join a Bikram-flow-yoga, Flywheel, or Pilates class so you can find spiritual oneness amid grunting socialite moms. Do whatever you want. Just, please, for the love of God, stop talking about it.
+- I'm definitely an indoor kid who's turned into an inside person.
+- 'Awkward' is a ubiquitous teen word to denote socially unsanctioned behavior. It usually implies first- or secondhand embarrassment when you or a friend step outside the rules. Awkward doesn't sound overtly judgmental or negative; it's deliberately vague.
+- I always get super confused by the way we look at technology, because since when were all phone calls created equal? It's not like every text is the same or that all texts are human interactions that are compromised. I don't get how conduits somehow dictate sentiment.
+- There is so much focus on being self-sufficient, and it makes it very difficult to ask for things. I've been crippled by this notion of high-functioning self-sufficiency. And I see it a lot in younger girls. Asking for help brings people closer in a way that I suspected but didn't actually put into practice.
+- I was born in Korea and left before my first birthday.
+- Never post food on your Instagram. Nobody cares, and only old people do it.
+- Twenty-thirteen was the year I got super into SoulCycle.
+- In order to be a good emergency contact, you need a lot of friend-patience and empathy. Often, this comes from personal experience with anxiety, trauma, and depression.
+- Yes, Justin Bieber is a contrivance. Yes, Justin Bieber's lyrics are insipid - worse still, disingenuous. Yes, his tattoos stink. Yes, he's lousy at skateboarding. But what does any of this actually matter? In case you missed it, Bieber won.
+- You are overwhelmed, overscheduled, and dejected because you keep trying to have it all - or at least most of it. You want a fulfilling job and personal life, and it's not working. The way out? Work more.
+- Reading aloud to other people is wonderful - if you have people who will suffer it.
+- I've always been a texting advocate.
+- Jockeying for a popularity position has been a valorized teen tradition since the notion of a discrete teen stage of life was invented.
+- The thing about leaving New York is that you can come back.
+- Hopefully, if I get enough of a fan army together, people will let me write fiction.
+- Privateers, military contractors - these aren't pirates. They have bosses. Real pirates are sellswords on missions of their own making.
+- The thing that I find interesting about teens now is that no matter how desperate we seem to be taxonomically 'othering' them, for one reason or another - because the Internet, because whatever - I feel like a lot of the benchmarks and the experiences are, you know, same for teens through time immemorial.
+- Home is where I climb out of my mecha-suit-of-a-poised-persona and power down.
+- Pedicures are disgraceful.
+- I do not care for musicals. In fact, I hate them.
+- The thing about living in New York as a writer is that you hit that age where it feels like everyone has a book all at the same time. It's like that one year where you're invited to twenty weddings.
+- By the time you're in your 30s, unless somebody makes the god-awful decision to gift you with a cooking class or salsa lessons, it may have been a while since you learnt something new.
+- People bursting into song in unison and then pointing it at me is maybe the worst thing I can think of, never mind that you have to pay good money to go be yelled/danced at.
+- My sweet spot as a writer and, especially, as an essayist is sub-1500 words.
+- Consider this: alms aside, Wikipedia is fueled by competitive pedantry and emo-ness. How great is that?
+- A fanboy's heart is filled with love, enthusiasm, and insecurity.
+- I have horrible shoe hang-ups. Particularly when it comes to flats.
+- I am obsessed with Neil Patrick Harris on Twitter.
+- The notion of this 'emergency contact' is, Do you have someone who is holding you down? Do you know where to go if you're feeling bad? I keep likening it to assigning yourself a godparent of your choosing.
+- Bieber has taste and pull, which is as important to making quality pop as actual talent.
+- Your mom is the first person you fall in love with, so it's loaded forever and carries all this baggage. There's almost always a communication barrier in place. In my case it's a language and cultural barrier, but other times, it's because your mother's love is conditional or because you're fundamentally different.
+- I cannot quantify the physics of friendships and do not know exactly how much intense pressure can be applied before these glittery, brittle bonds break.
+- In New York, you collect a thousand encounters a year, a passel of handshakes, a zillion air-kisses, and boatloads of business cards that you pitch into your purse and eventually deposit your chewing gum into. Amid this break-neck montage of glancing contacts, I'm tormented by the constant thrumming fear of being fingered as a flake.
+- Wikipedia's a collaborative experiment akin to Simon Winchester's account of the creation of the Oxford English Dictionary in 'The Professor and the Madman,' which outlines James Murray's mission to produce the tome in the 19th century.
+- Home is where my house pants live. And they're hideous.
+- I have a lot of respect for people who write a whole book because I've heard it will kill you.
+- I love New York, but sometimes New York is so mean to you.
+- If you're holding your iPhone, and it's the newest iteration of it, you're like, 'Oh, famous people have my phone. Captains of industry have my phone.' And that can be an intoxicating experience for someone who is going off to college for the first time.
+- When I moved to New York City from Texas at 22, amateur hour was over. As a newly grown-up person, I vowed I would wear dresses and skirts, wool trousers occasionally, and heels always.
+- I'm great at leaving. I am less talented at getting left, though I should be better, given how much it's happened.
+- Rihanna's boots are too scared to look bad on Rihanna.
+- Part of me just wants 'Jane' magazine back, and 'Sassy,' too.
+- For people who deal with anxiety or depression or can't be in large social groups cognitively, emotionally, or even physically, phones help bridge the gap.
+- I am anti-Halloween.
+- If you can relate to what another person is going through while giving their experience room to be its own discrete thing, you're probably a crackerjack emergency contact.
+- Texting is incredibly anxiety-laden, but I know people who will have a full-blown panic attack if you call them. I'm one of those nightmare humans where the little mailbox has an ellipsis on it because I have 1000 unread emails. So texting is the most immediate yet least anxious of all the incredibly anxious ways that we talk to each other.
+- I just love the comics industry.
+- The first time I drank LaCroix, I half expected it to be filled with self-tanner. Or Axe body spray.
+- I would never give up 'The Wire,' 'Breaking Bad,' and 'Game of Thrones.' I'm grateful for all these expensive, excellent, graphically ambitious programs.
+- I love my mother a not-normal amount.
+- I love small-business owners, and I actually love the idea of vintage clothing, but I don't get when they pretend that the Internet doesn't exist or that other customers have never been to the whole rest of the country where you can rummage around and buy the same dang belt for a buck and a half.
+- Learning to ride a bike in a public park means anyone can see you.
+- When I was small, I thought I was just cooler than my mom because of how foreign she is. She's really foreign. You'd think it would kill her to get store-bought snacks, she's that foreign.
+- If there was a button that I could push that would agog my brain to the level that I felt first seeing 'Avatar' in its entirety and another one for food pellets, I would die of starvation.
+- If you are someone's emergency contact - you are their person, and they are your person - there is work involved.
+- Teens are strange and magical.
+- Have passion, yes, but acknowledge that side projects are still work. They shake things up, just like switching up your workout helps you stay one step ahead of your torpid metabolism. They scramble the synapses.
+- Never post anything personal to your Facebook wall. Or anyone else's, for that matter. Only snitches and teachers look at Facebook.
+- For my first job interview out of college, I wore a cream-colored cotton suit with cap sleeves and an inverted box pleat skirt that was appropriate for the late-August heat - and wildly discordant with the Red Hook offices of the graffiti magazine I had called twice to find.
+- Pirates, me hearties, are the Patronus of the freelancer.
+- LaCroix sparkling water is absolutely delicious.
+- I roll my eyes at the grandstanding blowhards who have 'fixed' themselves, but I keep up with the gizmos and apps that track people's various rhythms. I'm no lifelogger or body-hacker, but I'm curious, and I want to be in-tune enough to know what's really the matter so I can level up and be at my most awesome.

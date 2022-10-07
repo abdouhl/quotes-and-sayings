@@ -1,0 +1,50 @@
++++
+author = "Jose Bergamin"
+title = "Jose Bergamin Quotes"
+quotes_len = "44"
+description = "the best 44 Jose Bergamin Quotes"
++++
+- Only one thing has to matter for everything to matter.
+- When there is nothing to fear is the time to begin fearing everything.
+- It may be impossible to have a revolution without crimes but that does not make revolution a crime.
+- A piece of advice always contains an implicit threat, just as a threat always contains an implicit piece of advice.
+- To be ready to fail is to be prepared for success.
+- To light one candle to God and another to the Devil is the principle of wisdom.
+- True art tries not to attract attention in order to be noticed.
+- If you really believe music is dangerous, you should let it go in one ear and out the other.
+- The man who gets drunk in peacetime is a coward. The man who gets drunk in wartime goes on being a coward.
+- Try not to turn your life into a race, least of all an obstacle race.
+- Even if you're not going anywhere, don't get in the way.
+- Sensuality without love is a sin; love without sensuality is worse than a sin.
+- The only time a man thinks is when he's alone.
+- You can say the opposite of something you've said but you can't do the opposite of something you've done.
+- A German immersed in any civilization different from his own loses a weight equivalent in volume to the amount of intelligence he displaces.
+- Better than succeeding little by little is failing at one go.
+- To be thirsty and to drink water is the perfection of sensuality rarely achieved. Sometimes you drink water; other times you are thirsty.
+- When you are listening to music it is better to cover your eyes than your ears.
+- The most original sin is not the thinker's but the poet's.
+- Happiness is always a coincidence.
+- Drinking spirits cannot cause spiritual damage.
+- An ignorance of Marx is as frequent among Marxists as an ignorance of Christ is among Catholics.
+- You can hesitate before deciding, but not once the decision is made.
+- Do we have to talk in order to agree or agree in order to talk?
+- A reformer knows neither how to do nor to undo.
+- In French literature, you can choose a la carte; in Spanish literature, there is only the set meal.
+- A belief which leaves no place for doubt is not a belief; it is a superstition.
+- Art is good but it isn't the best.
+- Man is a question; woman is an answer. The mistake women make today is to offer themselves as answers before being questioned.
+- Theology is the logic of the Devil.
+- A woman who does not become the slave of just one man becomes the slave of all men.
+- Effort and result are never simultaneous. In art, only the result counts.
+- The man who spends all his time looking up to heaven is not always the best; in fact, he is usually the worst.
+- Pride in a man is confused with dignity; in a woman, with self-love.
+- The first condition for making music is not to make a noise.
+- The novel is born of disillusionment; the poem, of despair.
+- True solidarity is only possible among the solitary.
+- The quality of a man's mind can generally be judged by the size of his wastepaper basket.
+- Who learns most from a good book is the author.
+- There are those who dance to the rhythm that is played to them, those who only dance to their own rhythm, and those who don't dance at all.
+- There are no good or bad habits. All habits are, by definition, bad.
+- We say of an animal that it is intelligent, and we say the same thing of a woman; but in neither case is it usually appropriate, clearly for very different reasons.
+- Perhaps it's more merciful to forget the dead instead of remembering them.
+- To sin offers repentance and forgiveness; not to sin offers only punishment.

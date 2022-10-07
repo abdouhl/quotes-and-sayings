@@ -1,0 +1,14 @@
++++
+author = "Jeff Flake"
+title = "Jeff Flake Quotes"
+quotes_len = "8"
+description = "the best 8 Jeff Flake Quotes"
++++
+- Our government shouldn't tell us where to travel and where not to travel.
+- Many of the earmark request forms are actually filled out by lobbyists and then just turned in by the member's staff to the appropriations committee.
+- If we can't have the courage to tell our constituents, hey, we've got to cut back, then if we can point to something and say, I would like to vote for more benefits for you, but this balanced budget amendment or statutory spending cap or whatever the device is, is preventing me from doing it.
+- There are some Republicans who say that any time you raise new revenue, you have to have a tax cut to match it. I am not one of those Republicans.
+- I feel at some point that the farm state politics will overwhelm the Florida politics.
+- For one, I think as a missionary you gotta be stubborn. And you gotta try to be persuasive.
+- Senator Jon Kyl has given all of the eventual candidates in this race an excellent model of how to best serve Arizona and the country. He's set the bar extremely high, and I'll do my best to meet that standard.
+- The country is facing a fiscal crisis, and the United States Senate is at the center of the debate about how to bring federal spending under control.

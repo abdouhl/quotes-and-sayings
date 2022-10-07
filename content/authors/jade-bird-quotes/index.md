@@ -1,0 +1,65 @@
++++
+author = "Jade Bird"
+title = "Jade Bird Quotes"
+quotes_len = "59"
+description = "the best 59 Jade Bird Quotes"
++++
+- Audiences in the U.S. can sometimes be a lot less refined. If they like something, they tend to express it more loudly.
+- I really like a lot of American country stuff, so my music has that influence, but I don't like to be set within a genre. It feels very limiting.
+- I was always the sniffly kid with bags under my eyes.
+- No artist is one-dimensional. I get the sense that if I push myself now and if I create a million different-sounding songs - I just feel that's going to be such a set-up for my ability in the future.
+- As a songwriter, I've got a lot of facets, so to speak. When you come to a live show, you get a better sense of that, because you'll see me performing a piano ballad and some acoustic songs and some not acoustic songs, all in the same set.
+- There's not point in doing anything without conviction.
+- I'm just thinking about the vision for how I want my music to go and what I want it to say. I'm always creating in a way, even if it's just thinking about it.
+- The first song I ever wrote that I liked was called 'When You're Alone.'
+- I've been surrounded by incredibly strong women: incredibly, unapologetically strong women, and I guess that for me has just been the biggest inspiration.
+- I like my jumpsuits. They're easy to get about in, I can move a bit onstage, there's nothing to tuck in, and I don't look like a little girl.
+- I'd been gigging since I was 14, doing little competitions and pubs and clubs and old people's homes.
+- I'd always been a kid that loved literature, reading, writing - anything to do with words - so music was just a path.
+- I think I'm eclectic and I'm never afraid to not know an artist or a band or an album because I want to hear it.
+- I want to start thinking about other people and the political climate. I can't sit here and write an album about myself. It just feels wrong.
+- You do have to kind of sit down and try to write, because it's not the easiest thing when you're off and on planes. I'm sure if you're always on a bus, it's a little bit easier.
+- I'm a real big fan of words.
+- I work a lot on words, so if I hear a word or see a word or a phrase or a sentence that someone says to me it just immediately sparks a concept.
+- I listen to a lot of artists like Tori Amos, Cherry Glazerr, and Patti Smith, and I kind of wanted to follow in their footsteps, or at least try to be that genre-defining.
+- People like to associate you with hard times and I pride myself on coming through them more than experiencing them.
+- I'm always up for new places and new locations... I think it's the funnest part about the job.
+- I always respected country music for its narrative and how it's so solid, you can get the picture in your mind.
+- I can't emphasize enough how much of a writer I am.
+- There's quite a stigma attached to country music in the UK - but I kind of enjoy that.
+- Songwriting really kicked in with the guitar. I was going through a lot as a kid. There had been a lot of transitions in my family. So it just became a total therapy, like most artists.
+- A big part of the reason that I make music is that I want to be a part of people's memories - you're there; you're present in someone's life.
+- I write 100% of my material by myself. That's really important to me because I don't want what I'm trying to say to be diluted by anyone that might not know my circumstance or who I am as a person.
+- I never really put nature into my record, but I think environment is important, and I think environment has an effect on your person.
+- My mum brought me up by herself, pretty much. She had me at the age of 20, and my grandmother was a single mother, too, for most of her life.
+- A good song always has to do with the person representing it - how they're feeling in that moment - but I think my songs don't need to be exclusive in terms of gender or race or that kind of thing.
+- I think that I'm a powerful female, a young singer-songwriter with an energy that's not really been done before. I think that's what people need to know about, you know.
+- I always say the diversity, and culture is the one thing I love the most about the U.S. How you can travel across one borderline and you end up with this whole new set of people that I find super-interesting and great on tour.
+- I am a bit of a granny, I feel older than my years. I like to read rather than go to parties but at the same time my band and I have a lot of fun on tour and can be big kids.
+- It was always quite negative messages on love I was given as a kid.
+- I like to keep morale up and not take things so seriously all the time. I enjoy life and laughs but I'm serious about the music. Serious about the craft of songwriting.
+- Every time people try and define me, it gets battered around. I like to keep people guessing.
+- I've had to tell people that I'm not co-writing. I don't want to do it and that's that.
+- I don't see any reason why young women shouldn't relate to me and have that connection with my music.
+- My grandparents divorced, both of them, and then my mum and dad did. So it's like, divorce, divorce, divorce.
+- I always try to be myself, be it a festival crowd or my own crowd.
+- I write great songs and the mistakes make them even better. No one else could write a Morrissey song.
+- Connecting with fans online can be the make or break or some artists, and I think that's a bit dangerous.
+- I never expected I was going to travel the world playing gigs with my band and best friends. I have surpassed any dreams I had.
+- But when I was 12 or 13, I found the acoustic guitar and got into guitar music ultimately, like Black Motorcycle Club, obviously Neil Young, Crosby, Stills and Nash.
+- My grandma divorced my granddad and became a finance manager to get her own house, and my mum worked very hard to make sure we could have our own space.
+- My focus on everything is songwriting, so I write all of my stuff by myself.
+- I think with how society makes me feel like I should grasp onto the inner strength of me being a woman, and I felt like it was all just very much married into what I'm listening to, what I'm writing, how I'm feeling.
+- I don't really get inspired by landscapes that much, it's all people.
+- I've often been told that if music doesn't work out I could be a comedian.
+- I don't want a middle-aged white man telling me how to write my feelings. It's not gonna work for me.
+- I just always really loved music that was coincidentally from the States.
+- I've always been into music. My mom and dad used to always play music in the house.
+- No one ever wants to be the girl that got her relationship wrong again, but if you let your cynicism take over you risk never falling in love.
+- I'd gig three to five times a week while I was doing my A-levels. I'd always come in with a runny nose 'cause I was always ill and run-down. But I just pushed through.
+- If you write your own lyrics now, and those are the main focus in the EP... people tend to approach it as Americana, which is wild. That's what leads people to it. But it's just whatever people want; as long as they like the music.
+- I love playing live, and doing big TV shows are exciting.
+- Cheating tends to come up a lot in my songs. Betrayal fascinates me. I think the fact that you can trust someone so much and then they go against that has always plagued my writing for some reason.
+- I make sure that everyone on the team and in my band really love music. They live for music, and it's our whole life, and we choose it to be so.
+- I see magic in conversation and words, and music is purely speaking to others, isn't it?
+- Songwriters such as Alanis Morissette write about the constant balance of contradictions, and that's something I adhere to in my life and work.

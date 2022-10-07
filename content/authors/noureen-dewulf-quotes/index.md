@@ -1,0 +1,22 @@
++++
+author = "Noureen Dewulf"
+title = "Noureen Dewulf Quotes"
+quotes_len = "16"
+description = "the best 16 Noureen Dewulf Quotes"
++++
+- One of my personal indulgences is getting a weekly massage - it helps to re-align my body. I usually feel so much less tense after I've gotten rid of some knots in my shoulders and back.
+- I was in more of the artsy crowd in high school.
+- Ironically, it was because I was raised as a Muslim in the South, that I realised the value in being true to who you really are. I've just got so many things going on inside. I don't know how to resolve all of them other than being true to who I am.
+- Friends always ask me what the best Indian restaurant in L.A. is. I'm like, 'I don't know, dude. I have an app on my iPhone for that.'
+- Yoga is the most boring exercise. It's for people who are too lazy to get on the elliptical. Bikram, where they heat up the room to mimic India's climate, is especially stupid. People in India are not skinny because they're doing yoga in 105-degree rooms; they're skinny because there's no food.
+- I put a lot of pressure to keep working. And when I'm not working, my agent books three auditions a day. I'd rather go to the set and work.
+- I really enjoy Martin Sheen - he is very unexpectedly funny, very quick.
+- I like to make sure I get enough rest, so I don't make it a priority to go out late night.
+- I think it's great when dramatic actors do lighter, funny roles.
+- I recently have gotten into juicing as an in-between-meals snack. I think the more vegetable ingredients the better, especially if they are green. I find that a good juice can really curb my appetite when I need to wait for the next meal.
+- My go-to drink is a mix of cukes, kale, apple and other healthy stuff.
+- I'm used to always being different, in any context. People always want to know how I grew up, so I just say I grew up Muslim. That's the truth. Two Muslim girls can write me two extremely different letters - and they do. Some are very supportive, and some question what I do.
+- Even in comedy it's important to get your body acquainted with what you're going to do.
+- Sometimes I go through a yoga phase or a spinning phase, but I try to vary my workouts so my body doesn't get used to any one thing.
+- I love my heritage both as someone who grew up as a Muslim and as an Indian - it's part of who I am and I would never deny it.
+- It is challenging and hard not to accept all stereotypical roles that get thrown your way. For me, I've been really, really lucky because I have been able to play a lot of different parts.

@@ -1,0 +1,38 @@
++++
+author = "Gary Cohn"
+title = "Gary Cohn Quotes"
+quotes_len = "32"
+description = "the best 32 Gary Cohn Quotes"
++++
+- I did get introduced to the financial markets while I was in college. And I think I learned also how to sort of filter out all of the nonrational, or nonsensible, noise and sort of concentrate on what matters, and that's really what markets are about.
+- We want to go back to a tax system where Americans sit down at their kitchen table, and they do their taxes on a single sheet of paper. That's what we should have in this America.
+- I don't drink hot beverages.
+- We do not believe that death should be a taxable event.
+- Gary Cohn doesn't care about the estate tax, I can guarantee you. I can guarantee you.
+- We need to get a business tax system that makes us competitive to the rest of the world.
+- Going to school is not really education. It's really who's in front of the classrooms and who's endearing themselves to the kids and who's making the kids want to learn and who's inspiring them to be curious about any topic in the world.
+- Keep yourself motivated. You've got to be motivated, you've got to wake up every day and understand what that day is about; you've got to have personal goals - short term goals, intermediate goals, and long term goals. Be flexible in getting to those goals, but if you do not have goals, you will not achieve them.
+- When I look at myself, I have been - really - a lucky American to end up where I am.
+- Have a goal. Know where you want to end up. Knowing where you want to end up is a lot easier than figuring out how to start and how to get there. You will figure out how to get there. Do not chart your career. Trust me; you do not want to chart your career.
+- When our economy grows, it is good for the world. When the world economy grows, it is good for the United States.
+- We spend millions of hours doing taxes and spend so much money doing our taxes. It should be very simple.
+- China is the big economic engine in Asia, so what happens is, as China growth expands, these countries in the periphery of China, whether it be Indonesia, Malaysia, Singapore, the Philippines, they end up growing with China because they become big exporters.
+- Upon graduation, believe it or not, I had no job. I had no interviews. I had no prospects. I had no worries. What I did have, I had passion. I had enormous passion. I had passion for financial markets. I had fallen in love with financial markets.
+- Our belief in free markets and a level playing field are values that make the world more free, fair, and prosperous.
+- Every time you get into a new job, new location, you have an amazing opportunity in front of you. You get to play dumb for as long as people will allow you to play dumb. You get to ask all the dumb questions, you get to ask multiple people the dumb questions, and you get to make mistakes. That's how you stand out in the crowd.
+- Investment in America does not just benefit the United States - it benefits the world.
+- If we get a tax system that is competitive, we will hire people. When you hire people, you have to compete for labor. When you compete for labor, you drive wages.
+- The one thing you realize if you're going to be successful - no matter where you grew up, no matter what your educational level is - A. You can succeed, but B. The only way you're going to succeed is by outworking everyone else.
+- The one trait in a lot of dyslexic people I know is that by the time we got out of college, our ability to deal with failure was very highly developed. And so we look at most situations and see much more of the upside than the downside.
+- We want to keep a preferred rate for capital gains - we think it is important to encourage investment.
+- On the estate tax, if you look at the couple of groups who are the biggest advocates for repealing the estate tax, it really is the pass-through business, and it's the farmers.
+- As a patriotic American, I am reluctant to leave my post as director of the National Economic Council because I feel a duty to fulfil my commitment to work on behalf of the American people.
+- If someone's getting a tax cut, I'm not upset that they're getting a tax cut. I'm really not upset.
+- I don't think it's good for anyone to be in the public light - for negative reasons.
+- I would like to get the tax rate as low as possible so that businesses want to create jobs here.
+- There is a finite group of major financial players... and overall, the best thing for all of us is to be in an industry that's well respected, well regarded, and well thought of.
+- I was a horrible student.
+- I know from my experiences in life that educators had an enormous impact and influence on me. And fortunately or unfortunately, I had a lot of experience with different educators.
+- I've thought about it many times, I really have, because it defined who I am. I wouldn't be where I am today without my dyslexia.
+- Many people are smart enough to know how to manage themselves out of the estate tax.
+- Education is important. And the difference of the zip code you grow up in or the zip code you are born in and how you turn out really isn't fair to the kids of our world.

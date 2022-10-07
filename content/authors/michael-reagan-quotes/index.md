@@ -1,0 +1,40 @@
++++
+author = "Michael Reagan"
+title = "Michael Reagan Quotes"
+quotes_len = "34"
+description = "the best 34 Michael Reagan Quotes"
++++
+- I am a free man.
+- It was my sister Maureen who was responsible for my becoming a Reagan.
+- I mean, people need to remember without the grassroots, Ronald Reagan probably doesn't become president of the United States of America and he worked the grassroots on a regular basis during his political career and especially between the years of 1976 and 1980 after the loss in Kansas City.
+- Everyone seemed to want a piece of Ronald Reagan. It was maddening.
+- I didn't feel I belonged in so perfect a family.
+- I'm getting a little tired of everybody quoting Ronald Reagan.
+- I can fake anything.
+- Dad sometimes patted me on the knee and called me his Little Schmuck.
+- My adoption was treated as a celebration.
+- Because of my father, we are that Shining City on a Hill.
+- It's hard to learn about your parents' courtship.
+- You know my father as governor, as president, but I knew him as dad. I was so proud to have the Reagan name and to be Ronald Reagan's son.
+- You just watch somebody you love slowly, slowly disappear and go away.
+- I think he would have been proud and smiling... when we laid him to rest because his family was together. I think that was a great gift to be able to give Dad at the end.
+- People think I should be a success, but I'm afraid of it.
+- I wonder if these people today would think Reagan was a Reagan conservative.
+- I had never said, 'dad, I love you.'
+- I didn't spend much time with my parents when I was growing up.
+- Being sent away to school was no different from my biological mother giving me away.
+- I thought the Secret Service would protect me from the press, but they were at my house to protect me from assassins with guns, not with assassins with pencils.
+- Dad was the only adult male I ever trusted.
+- I knew if I waited long enough, the Republican Party would rock.
+- I constantly looked for motherly protection.
+- I've been living a lie all my life.
+- I was an angry kid.
+- I didn't know if I was heterosexual or homosexual.
+- With the blessings of liberty, we have responsibilities to defend it.
+- I was so proud to have the Reagan name and to be Ronald Reagan's son. What a great honor.
+- Hollywood was never great for children.
+- The odds against an adoptee ending up as the child of the President of the United States are staggering. But then, so are the odds against a movie star becoming president.
+- I started to build barriers between myself and others to protect myself.
+- Senator Arlen Specter hasn't really switched parties; he's simply realized he cannot win the Pennsylvania Republican primary election.
+- Everyone thought I had everything. I had nothing.
+- Nancy is superstitious.

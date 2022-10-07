@@ -1,0 +1,18 @@
++++
+author = "Jean Louisa Kelly"
+title = "Jean Louisa Kelly Quotes"
+quotes_len = "12"
+description = "the best 12 Jean Louisa Kelly Quotes"
++++
+- I would love for musicals to come back on the screen.
+- My character in 'Mr. Holland's Opus' was kind of coming of age, learning about a world that was opening up to her.
+- You have more time to work in movies. My experience with movies is that you have more time to experiment with the character and camera angles and things like that.
+- In TV, it is important to get everything on film as fast as possible. You rehearse every day of the week, and each day, the performance may be changed. The process is more result-oriented than in the movies. It's more about working quickly.
+- There aren't too many things that make you feel better than a little kid seeing you, yelling your name, and running to you.
+- When they're watching musicals, I've heard people say, 'That's not realistic! Why would they just start singing?' But, I think they can believe it if they try! I mean, science fiction requires a suspension of disbelief, but people allow themselves to sit back and enjoy it anyway.
+- It's real difficult to sing out in the elements at 2 in the morning in 35-degree weather while you're dancing in a sleeveless chiffon dress.
+- John Candy gave me a Hard Rock Cafe jacket, which was awesome because I was really from a very rural, small town, and it seemed so exciting to me. I think my mom still has that jacket.
+- I always sang around the house. My brother and I would sing songs like 'Take Me Out to the Ballgame' and stuff like that.
+- There weren't a lot of 'Singin' in the Rain' fans in my age group.
+- My family moved from Massachusetts to Maryland after my sophomore year of high school, and that's when I got the audition for 'Uncle Buck.' I took the train into New York, and I think I did the test with John Candy. Then I got the part, and it was my first movie and my first screen anything.
+- I'm terrified for what is in store for me as a parent!

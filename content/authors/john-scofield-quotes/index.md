@@ -1,0 +1,19 @@
++++
+author = "John Scofield"
+title = "John Scofield Quotes"
+quotes_len = "13"
+description = "the best 13 John Scofield Quotes"
++++
+- Who isn't a fan of Ray Charles?
+- When I write a tune - and it's been like this for many years - I always hear in the back of my head some sort of vague, orchestrated, fully fleshed-out big-band version of the song with other parts going on.
+- It's really good to be forced to get away and try something else, find something that's exciting.
+- The jazz clubs wind up having only rich tourists - the kids can't come. If they do, then they spend their entire monthly allotments on a 45-minute set.
+- Generally, when a record label suggests album ideas for you, you smile politely, and then proceed to shoot it down, because it's never what you as an artist feel is right for you.
+- I guess I got lucky with my sound.
+- I find as much inspiration from the forerunners of jazz as I do the modern-day innovators of jazz.
+- It's one thing to sit at home and write a piece with your guitar, and quite another to have it performed by four people. For me, it's always trial and error.
+- It turns out kids today still learn that four-chord progression when they're just picking up the guitar.
+- I like forms that are flexible, that can let you feel creative.
+- I have to work at tunes to get them to come out. Sometimes I'll sit there for four or five hours and get absolutely nothing.
+- In the States, this type of jam-band phenomena has opened it up for groups to improvise, admittedly more in the groove area, as opposed to the straight-ahead jazz thing - which is good for me, as that's one part of where I'm at. It's been so great playing these gigs and seeing kids come out and the whole college scene.
+- The Meters are, I think, the most influential group in our time to come out of New Orleans, to have changed and introduced us all to a way of playing, and to a groove and a level of feel in playing funk-jazz.

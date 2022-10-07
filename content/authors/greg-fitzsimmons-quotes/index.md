@@ -1,0 +1,20 @@
++++
+author = "Greg Fitzsimmons"
+title = "Greg Fitzsimmons Quotes"
+quotes_len = "14"
+description = "the best 14 Greg Fitzsimmons Quotes"
++++
+- Growing up with Bronx Irish parents during an era of protests against the status quo, I was especially committed to doing the opposite of what I was told to do. Forty-four years later, I am left with only one means of making a living: comedy.
+- I feel life is to be lived. You want to spend your time doing things and being with friends and all that.
+- The compulsion to do the opposite of what you are told does not lend itself to many occupations outside the entertainment industry. Within the industry, it is unlikely that you will be very successful without it.
+- My dad was in radio; he was a broadcaster, and it was in the family. He hosted kind of a game show at one point on TV; he was the original host of 'Good Day New York,' and he hosted the Jerry Lewis telethon for 15 years.
+- When I work in San Francisco doing stand-up, I usually schedule it for July, and we'll drive up the coast and camp in Santa Barbara, San Luis Obispo, Big Sur, and we'll just camp our way up the coast, and then we'll get to San Francisco and hang out there for four days.
+- When I was in college, I would go out, and I would go to these open mic nights at Stitches and Nick's Comedy Stop, so I was going to classes during the day, and then at night, I would be signing up on the lists.
+- I don't like to change things too much. I think pretty hard about things before I jump in, and once I do, I feel, 'All right, I don't want to waste the energy of buying, selling this, going on Consumer Reports, test driving, buying, selling a house.' I feel life is to be lived.
+- I don't gamble anymore since I had a kid. I have fun in Vegas. I see shows, Cirque du Soleil. Don Rickles was in town last time I was there. I'll have lunch with George Wallace. I just look in the Weekly calendar and see who's performing, and inevitably, we all meet up late night at one of the casinos. Jesus, I sound boring.
+- What is most difficult is when the large part of me that is a narcissist grows weary and is overtaken by the self-loathing part that always lurks in the shadows waiting for an opportunity to shine.
+- There's so many ways to do stand up, and I think for awhile, people weren't really maximizing the freedom of it.
+- Since first hearing the story as a child, any mention of the 'Boston Tea Party' has elicited in me an excitement that is uniquely American. When I heard rumblings that there was a new Tea Party, I got goose bumps. I love tea, I love parties, I hate taxes; I'm in! It seemed that most of America joined in my excitement!
+- That is the thing about being a writer; your subject matter may not stay your subject matter if you break their trust by revealing personal and editorialized information about them.
+- Driving around with a receding hairline and two kids in a Prius feels a bit boring for me.
+- I'm sure people are shocked when they see a guy speeding and cutting them off and having road rage while in a Prius.

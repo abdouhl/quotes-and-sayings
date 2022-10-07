@@ -1,0 +1,25 @@
++++
+author = "Graham Hawkes"
+title = "Graham Hawkes Quotes"
+quotes_len = "19"
+description = "the best 19 Graham Hawkes Quotes"
++++
+- There's something just magical about flight. Period.
+- One time on a dive, I wound up drifting up in darkness surrounded by billions of photoluminescent creatures. It was a religious experience, one only a poet could do justice to.
+- If you go back to the early days of aviation, the guys designing it built it, and then they got in it and flew it. I mean, who does that anymore?
+- The crazy thing is we live on an ocean planet - nobody gets that yet.
+- 'Earth' is a silly name for this planet.
+- I think the future of this planet depends on humans, not technology, and we already have the knowledge - we're kind of at the endgame with knowledge. But we're nowhere near the endgame when it comes to our perception. We still have one foot in the dark ages.
+- I grew up before computers. Computers are changing things, not all for the good.
+- Science is about filling in the details.
+- The bulk of life on Earth lives in a peaceful place where the temperature is stable. There's hunting going on, but it's very civilized, like a slow ballet.
+- If you build a Model T and you can see the Camry, you don't spend time tinkering with the T; you go straight to the next thing. Once you build the Camry, you can see the Ferrari, so you go straight to that.
+- Movies like 'The Abyss' and 'Jaws' make people think the ocean is threatening. It's not. It's very tranquil.
+- The Deep Flight Challenger technology is a game-changer for ocean exploration.
+- With the super-wealthy, I think what a lot of them want isn't things, it's experiences. Preferably ones that few people can have.
+- Pressure hulls collapse at the speed of sound. Once that starts, you're inside your own little imploding atomic bomb, and you're gone.
+- Space exploration promised us alien life, lucrative planetary mining, and fabulous lunar colonies. News flash, ladies and gents: Space is nearly empty. It's a sterile vacuum, filled mostly with the junk we put up there.
+- The ocean is this beautiful, unexplored place. Why on Earth everyone isn't down there, I don't know.
+- Scientists are always the ones who head into the ocean, but I want to take writers and politicians, people who can convey the beauty that is there and perhaps do something to take care of it.
+- I don't have to be smarter than anybody else. I've just plain worked harder and longer than anybody else.
+- Everyone loves to fly, and flying underwater is even better than flying in air because there are things around you.

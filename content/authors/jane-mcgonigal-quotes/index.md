@@ -1,0 +1,54 @@
++++
+author = "Jane Mcgonigal"
+title = "Jane Mcgonigal Quotes"
+quotes_len = "48"
+description = "the best 48 Jane Mcgonigal Quotes"
++++
+- Game developers know that people have more fun when they're in large groups. They feel more fired up when the challenges are more epic.
+- Urgent optimism is the desire to act immediately to tackle an obstacle, combined with the belief that we have a reasonable hope of success.
+- If you make it a game, gamers will play it no matter what your motivation is in making it.
+- Evidence shows that having even weak social connections in a stressful situation is really good for your health and your ability to handle that situation.
+- Positive health means becoming whole-heartedly engaged with our own health care. It means not outsourcing our health to the health care system. It means getting rid of the fear and paralysis we too often feel, and instead cultivating a sense of agency.
+- Growing up, I was prone to anxiety.
+- I'm not a fan of simulations. Where, 'Oh, we'll go play a simulation of world peace and figure out how to make peace' and then somehow magically that will get translated into the real world. No, that's not the kind of games that I make.
+- Games that make you feel good about yourself are good games to be playing.
+- I'm always thinking about whatever game I'm working on. My brain works subconsciously on design pretty much every hour I'm awake.
+- We are moving towards a new form of collective intelligence.
+- Things like depression and obesity are global challenges.
+- We can boost our immune systems by strengthening our social networks and decreasing stress.
+- Games are work. There are economies popping up in games now because people value them.
+- 'SuperBetter' is fundamentally about a mind shift. It's about claiming your power to be in charge of how you spend your time and energy, and focusing it on the things that matter the most to you. Focusing on things that will bring real happiness, real well-being.
+- Scientists have demonstrated that dramatic, positive changes can occur in our lives as a direct result of facing an extreme challenge - whether it's coping with a serious illness, daring to quit smoking, or dealing with depression. Researchers call this 'post-traumatic growth.'
+- In entertainment, we have a comfort level with crisis.
+- The single biggest misconception about games is that they're an escapist waste of time.
+- Although I'm perceived as very optimistic and upbeat, it comes out of being the opposite of that - feeling isolated or lonely, looking for meaning and the kinds of things that ease that suffering in life, and finding them in large-scale social interaction, like theater and games.
+- I remember the first year at the Game Developers Conference I wore these big red giant knee-high boots. Nobody cared. You can wear anything you love, because that's what you do in games. You make yourself who you want to be.
+- I want to see a game designer nominated for a Nobel Prize.
+- For most people, an hour a day playing our favorite games will power up our ability to engage whole-heartedly with difficult challenges, strengthen our relationships with the people we care about most - while still letting us notice when it's time to stop playing in virtual worlds and bring our gamer strengths back to real life.
+- I've been running since high school. My boyfriend was on the track team, and I'd run with him.
+- It seems like what happens when we play games is that we go into a psychological state called eustress, or positive stress. It's basically the same as negative stress in the sense that we get our adrenaline up, you know, our breathing rate quickens, our pulse quickens.
+- When my life is stressful, my favorite game is called 'Pop It,' where you pop balloons and prizes fall out. It's a five-minute game that focuses my mind and gives me extra attention when I'm stressed.
+- My favorite part of running is the thinking time.
+- My mom is a public school teacher and works with third grade students.
+- Game designers are obsessed with emotion. How do we create the emotions that we want gamers to feel, and how can we really make it this intense, emotional experience?
+- There is no problem that doesn't have some underlying need for more optimism, stamina, resilience and collaboration. And games are, I believe, the best platform we have for providing that.
+- I don't do 'gamification,' and I'm not prepared to stand up and say, 'I think it works.'
+- I don't want a gamer to feel like they have to commit their whole life to changing the world.
+- A dramatic decrease in oil availability is not at all far-fetched.
+- Surveys of thousands of gamers have shown that they're more likely to play real music if they play a music videogame. So it's an interesting relationship where the games aren't replacing something we do in real life, they're serving as a springboard to a goal we might have in real life, like learning to play an instrument.
+- Whenever I do talks around the country, I map out my run. Gives me something fun to do and to look forward to doing.
+- 'Superbetter' looks more like a social media platform or a social network than a typical video game. You know, there aren't any 3-d spaces to explore. You don't have this avatar that you're building up. It's more about thinking like a gamer.
+- There are people who are very dismissive of games and gamers.
+- There's no reason why the 'Lost' alternate reality game had to be officially made by the 'Lost' production crew.
+- Gamers always believe that an epic win is possible and that it's always worth trying, and trying now. Gamers don't sit around.
+- The idea of the 'lone gamer' is really not true anymore. Up to 65 percent of gaming now is social, played either online or in the same room with people we know in real life.
+- When we're in game worlds, I believe that many of us become the best version of ourselves: the most likely to help at a moment's notice. The most likely to stick with a problem as long as it takes. To get up after failure and try again.
+- Every game designer should make one explicitly world-changing game. Lawyers do pro bono work, why can't we?
+- Clinically speaking, depression is a pessimistic sense of your own capabilities, and despondent lack of energy.
+- I ran through most of college and ran through most of grad school. When I was writing my dissertation for my Ph.D., it was literally the only hour of the day that I wasn't working. It was nine months of torture, but I made sure I got out to run.
+- We've been playing games since humanity had civilization - there is something primal about our desire and our ability to play games. It's so deep-seated that it can bypass latter-day cultural norms and biases.
+- I worry a lot about people using games just for marketing, to get people to buy more stuff, which I think would be the worst possible use.
+- In the future, I think it's pretty plausible that collective intelligence tools and skills will be important in order to be a part of global dialog, global business, and global creativity. People who know how to negotiate collective intelligence networks are going to be in a good position to contribute to global society.
+- Compared with games, reality is disconnected.
+- The Gamifaction Movement is trying to help companies engage their audience and community by using game mechanics and wrapping them around shopping or achievements, so you get achievements for coming to a store or purchasing things, like rewarding activities.
+- When parents or gamers ask me, 'What's the best game to play?' I say that playing face-to-face is more beneficial than playing online.

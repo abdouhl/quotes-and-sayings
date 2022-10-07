@@ -1,0 +1,25 @@
++++
+author = "Jack Davenport"
+title = "Jack Davenport Quotes"
+quotes_len = "19"
+description = "the best 19 Jack Davenport Quotes"
++++
+- Gay nightclubs offer better dance music.
+- Before my son was born, I use to tell people that I was looking forward to no longer being the star of my own movie; then Harry came along, and it was like, 'Whoa, I'm really not!'
+- My parents divorced when I was seven. Because divorce is messy, for good or ill, they sent me to boarding school.
+- I don't get recognised that much in the street.
+- If you ever meet an actor who's the child of actors, they'll never tell you that they wanted to be a star. But what I did realise early on was that I just wanted to be in that tribe.
+- In terms of the pilot, you have to introduce a lot of characters in a very short period of time, and you have to paint with slightly broad brush strokes because you just need to give an audience an idea of who these people might be.
+- I was a confident, outgoing little boy. If you're an only child, you're living in a very linguistically adult world, and you've got to keep up. So I did. Maybe I was slightly annoying.
+- When my father was a young actor, it is absolutely true that the vast majority were fairly middle class. Then all of a sudden, people like Albert Finney burst through and turned all that on its head.
+- What you look like, whether you're Brad Pitt or Charles Laughton, is significant for actors.
+- I try to choose the projects that I think are the most well-written and well-executed, and the rest of it is so beyond my control to be almost not worth thinking about at all.
+- I'm close to both my parents and very proud of what they've achieved.
+- Cue actor platitude, but I've been very fortunate and worked pretty consistently and have felt rather annoyingly grateful that I got to do what I got to do.
+- My maternal grandmother, Penelope, was a very big figure in my life. She was a child of the Raj, born in India, a debutante who hobnobbed with royals, then married a Canadian, Bill Aitken, who became MP for Bury St Edmunds.
+- Ask Mother for advice on breaking into show business.
+- People tell me that Hollywood loves new faces, but I don't know. They're probably just being nice.
+- Acting is a cruel enough business. One minute everyone's going 'Hey!' and the next they're going 'Who?'. You certainly don't need people knowing your private business, especially if you want to come out with your head still attached.
+- During my childhood, I was surrounded by actors, and all I remember is they were fun to be around. That kind of sticks.
+- Adult actors are really childish, and that's nice to be around when you're a kid. So the big reason I wanted to be an actor was I really enjoyed actors' company - which probably makes me about as shallow as a puddle. But it could be worse. I could be working for a living.
+- I grew up in an acting family. I was heavily discouraged from doing it myself when I was young, which is the only responsible route to take with any child, because it's not necessarily the easiest of lives.

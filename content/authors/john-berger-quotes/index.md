@@ -1,0 +1,71 @@
++++
+author = "John Berger"
+title = "John Berger Quotes"
+quotes_len = "65"
+description = "the best 65 John Berger Quotes"
++++
+- As Nelson Mandela has pointed out, boycott is not a principle, it is a tactic depending upon circumstances. A tactic which allows people, as distinct from their elected but often craven governments, to apply a certain pressure on those wielding power in what they, the boycotters, consider to be an unjust or immoral way.
+- I actually think of myself as quite a shy person, although I know I give the impression of someone much more confident. I think what I do have is a capacity to listen to the other, even if the other is an opponent. That leads, in all senses of the word, to an engagement.
+- Autobiography begins with a sense of being alone. It is an orphan form.
+- Ever since the Greek tragedies, artists have, from time to time, asked themselves how they might influence ongoing political events.
+- Hope is not a form of guarantee; it's a form of energy, and very frequently that energy is strongest in circumstances that are very dark.
+- Nakedness reveals itself. Nudity is placed on display. The nude is condemned to never being naked. Nudity is a form of dress.
+- Propaganda requires a permanent network of communication so that it can systematically stifle reflection with emotive or utopian slogans. Its pace is usually fast.
+- A drawing is essentially a private work, related only to the artist's own needs; a 'finished' statue or canvas is essentially a public, presented work - related far more directly to the demands of communication.
+- A boycott is directed against a policy and the institutions which support that policy either actively or tacitly. Its aim is not to reject, but to bring about change.
+- Glamour cannot exist without personal social envy being a common and widespread emotion.
+- Traditional Chinese art looked at the Earth from a Confucian mountain top; Japanese art looked closely around screens; Italian Renaissance art surveyed conquered nature through the window or door-frame of a palace. For the Cro-Magnons, space is a metaphysical arena of continually intermittent appearances and disappearances.
+- Ours is the century of enforced travel of disappearances. The century of people helplessly seeing others, who were close to them, disappear over the horizon.
+- Until 1954, I'd only ever thought of being a painter, but I earned my money when and where I could. You could say I drifted into writing.
+- I very seldom read back into what I've written.
+- Publicity is the life of this culture - in so far as without publicity capitalism could not survive - and at the same time publicity is its dream.
+- In ethics, there is a humility; moralists are usually righteous.
+- The human imagination... has great difficulty in living strictly within the confines of a materialist practice or philosophy. It dreams, like a dog in its basket, of hares in the open.
+- You can plan events, but if they go according to your plan they are not events.
+- Boycott is not a principle. When it becomes one, it itself risks becoming exclusive and racist. No boycott, in our sense of the term, should be directed against an individual, a people, or a nation as such.
+- The human quality Degas most admired was endurance.
+- It can happen that a book, unlike its authors, grows younger as the years pass.
+- Perspective is not a science but a hope.
+- What makes photography a strange invention is that its primary raw materials are light and time.
+- Words are so often used in the opposite sense, as a screen of diversion. It's the struggle towards truthfulness which is the same whether one is writing a poem, a novel or an argument.
+- The industrial society... recognises nothing except the power to acquire... No other kind of hope or satisfaction or pleasure can any longer be envisaged within the culture of capitalism.
+- Degas was obsessed by the art of classical ballet, because to him it said something about the human condition. He was not a balletomane looking for an alternative world to escape into. Dance offered him a display in which he could find, after much searching, certain human secrets.
+- Without ethics, man has no future. This is to say, mankind without them cannot be itself. Ethics determine choices and actions and suggest difficult priorities.
+- The Cro-Magnons lived with fear and amazement in a culture of Arrival, facing many mysteries. Their culture lasted for some 20,000 years.
+- We live in a dominant culture of ceaseless Departure and Progress that has so far lasted two or three centuries.
+- Compassion has no place in the natural order of the world which operates on the basis of necessity. Compassion opposes this order and is therefore best thought of as being in some way supernatural.
+- I think I'm very permeable. I can very easily, without even choosing to do it, enter the life of another. Or, to put it in a more modest and accurate way, for that life to enter mine.
+- Propaganda invariably serves the long-term interests of some elite.
+- A drawing is an autobiographical record of one's discovery of an event - either seen, remembered or imagined. A 'finished' work is an attempt to construct an event in itself.
+- Being a unique superpower undermines the military intelligence of strategy. To think strategically, one has to imagine oneself in the enemy's place. If one cannot do this, it is impossible to foresee, to take by surprise, to outflank. Misinterpreting an enemy can lead to defeat. This is how empires fall.
+- Globalisation means many things. At one level, it talks of trade, which since the 16th century has exchanged goods and now, increasingly, ideas and information across the globe. But globalisation is also a view of the world - it is an opinion about man and why men are on the world.
+- For the artist, drawing is discovery. And that is not just a slick phrase; it is quite literally true.
+- In drawing after drawing, pastel after pastel, painting after painting, the contours of Degas's dancing figures become, at a certain point, darkly insistent, tangled and dusky. It may be around an elbow, a heel, an armpit, a calf muscle, the nape of a neck.
+- The camera relieves us of the burden of memory. It surveys us like God, and it surveys for us. Yet no other god has been so cynical, for the camera records in order to forget.
+- In Degas's compositions with several dancers, their steps, postures and gestures often resemble the almost geometric, formal letters of an alphabet, whereas their bodies and heads are recalcitrant, sinuous and individual.
+- When I was about seven, one or two people encouraged me, and art became an enormous and important refuge. By adolescence, I was absolutely passionate about it and felt those paintings and those painters, whether they lived a few hundred years ago or were still alive, were somehow my companions.
+- Post-modernism has cut off the present from all futures. The daily media add to this by cutting off the past. Which means that critical opinion is often orphaned in the present.
+- The past grows gradually around one, like a placenta for dying.
+- The autobiographical doesn't interest me. I could think of few things less interesting than rooting about in my life.
+- When we read a story, we inhabit it. The covers of the book are like a roof and four walls. What is to happen next will take place within the four walls of the story. And this is possible because the story's voice makes everything its own.
+- It has always seemed to me that those who are without power, who have to create their own in a makeshifit way, know more about life than those who govern.
+- Painting is something that you need to do, if not every day, then certainly most days. It is almost like being a pianist: if you stop, you lose something.
+- Nothing in the nature around us is evil. This needs to be repeated since one of the human ways of talking oneself into inhuman acts is to cite the supposed cruelty of nature.
+- I wanted to write about looking at the world, so it's more about helping people, or persuading people, to see what is around us; both the marvellous and the terrible.
+- The point about hope is that it is something that occurs in very dark moments. It is like a flame in the darkness; it isn't like a confidence and a promise.
+- A cigarette is a breathing space. It makes a parenthesis. The time of a cigarette is a parenthesis, and if it is shared, you are both in that parenthesis. It's like a proscenium arch for a dialogue.
+- The poverty of our century is unlike that of any other. It is not, as poverty was before, the result of natural scarcity, but of a set of priorities imposed upon the rest of the world by the rich.
+- That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.
+- Emigration, forced or chosen, across national frontiers or from village to metropolis, is the quintessential experience of our time.
+- A line, an area of tone, is not really important because it records what you have seen, but because of what it will lead you on to see. Following up its logic in order to check its accuracy, you find confirmation or denial in the object itself or in your memory of it.
+- Protest and anger practically always derives from hope, and the shouting out against injustice is always in the hope of those injustices being somewhat corrected and a little more justice established.
+- Modern thought has transferred the spectral character of Death to the notion of time itself. Time has become Death triumphant over all.
+- 'Fahrenheit 9/11' is astounding. Not so much as a film - although it is cunning and moving - but as an event.
+- One can say of language that it is potentially the only human home, the only dwelling place that cannot be hostile to man.
+- Hope is a contraband passed from hand to hand and story to story.
+- Fanaticism comes from any form of chosen blindness accompanying the pursuit of a single dogma.
+- Unlike any other visual image, a photograph is not a rendering, an imitation or an interpretation of its subject, but actually a trace of it. No painting or drawing, however naturalist, belongs to its subject in the way that a photograph does.
+- Drawing is a way of coming upon the connection between things, just like metaphor in poetry reconnects what has become separated.
+- Art is the provocation for talking about enigma and the search for sense in human life. One can do that by telling a story or writing about a fresco by Giotto or studying how a snail climbs up a wall.
+- A peasant becomes fond of his pig and is glad to salt away its pork. What is significant, and is so difficult for the urban stranger to understand, is that the two statements are connected by an and not by a but.
+- Never chain your dogs together with sausages. One must accustom one's self to be bored.

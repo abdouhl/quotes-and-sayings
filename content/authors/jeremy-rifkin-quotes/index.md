@@ -1,0 +1,39 @@
++++
+author = "Jeremy Rifkin"
+title = "Jeremy Rifkin Quotes"
+quotes_len = "33"
+description = "the best 33 Jeremy Rifkin Quotes"
++++
+- Many of the genetically modified foods will be safe, I'm sure. Will most of them be safe? Nobody knows.
+- The insurance companies aren't covering that. Should Monsanto be liable for these losses? Should the state government? Who's going to cover the losses? The fact is, here's an industry with no long-term liability in place.
+- They're now turning those seeds into intellectual property, so they have a virtual lock on the seeds upon which we all depend for our food and survival.
+- Back in 1983, the United States government approved the release of the first genetically modified organism. In this case, it was a bacteria that prevents frost on food crops.
+- A refuge is supposed to prevent what? The genes from flowing out of sight? This refuge idea won't stop insects from moving across boundaries. That's absurd.
+- What I'm suggesting to you is that this could be a renaissance. We may be on the cusp of a future which could provide a tremendous leap forward for humanity.
+- You can eliminate, for example, a Brazil nut gene if you know that it will create an allergenic effect.
+- I wanted to make sure that this be the first scientific and technology revolution in history in which the public thoroughly discussed all the potential benefits and all the potential harms, in advance of the technology coming online and running its course.
+- The position I took at the time was that we hadn't really examined any of the potential environmental consequences of introducing genetically modified organisms.
+- When we seed millions of acres of land with these plants, what happens to foraging birds, to insects, to microbes, to the other animals, when they come in contact and digest plants that are producing materials ranging from plastics to vaccines to pharmaceutical products?
+- The interesting thing is, while we die of diseases of affluence from eating all these fatty meats, our poor brethren in the developing world die of diseases of poverty, because the land is not used now to grow food grain for their families.
+- The 10 largest antitrust law firms in the United States have gone into the federal courts charging Monsanto with creating a global conspiracy in violation of the antitrust laws, to control the global market in seeds.
+- What's different here is that we have now technologies that allow these life science companies to bypass classical breeding. That's what makes it both powerful and exciting.
+- If your corn has a herbicide-tolerant gene, it means you can spray your herbicides and kill the weeds; you won't kill your corn because it's producing a gene that makes it tolerant of the herbicide.
+- In this country, the health concerns and the environmental concerns are as deep as in Europe. All the surveys show that. But here, we didn't have the cultural dimension. This is a fast-food culture.
+- We now have an opportunity, though, to do something we didn't do in the industrial age, and that is to get a leg up on this, to bring the public in quickly, to have an informed debate.
+- Europe will not accept genetically modified foods. It doesn't make any difference in the final analysis what Brussels does, what Washington does, or what the World Trade Organization does.
+- The public should know that the liability issues here have yet to be resolved, or even raised. If you're a farmer and you're growing a genetically engineering food crop, those genes are going to flow to the other farm.
+- The electronic media introduced this idea to the larger audience very, very quickly. We spent years and years and years meeting with activists all over Europe to lay the groundwork for a political response, as we did here.
+- The antitrust litigation currently in the federal courts in the U.S. against Monsanto will be the test case in the life sciences, just as the Microsoft case was the test case in the information sciences.
+- Back in the mid-1980s, congressional hearings were held after we brought this litigation, and held up the first experiment. At that time, I went in front of Congress, along with the major agencies involved with this.
+- What the public needs to understand is that these new technologies, especially in recombinant DNA technology, allow scientists to bypass biological boundaries altogether.
+- So my attorneys brought litigation in the U.S. federal courts. The judge ruled in our favor.
+- Here we are 17 years later. Those agencies never did come through.
+- It may be that everything the life science companies are telling us will turn out to be right, and there's no problem here whatsoever. That defies logic.
+- Many of the mainstream agricultural scientists, especially at the agricultural schools, but at all of our major universities, are tied into all sorts of contractual relationships and consulting relationships with the life science companies.
+- The industry's not stupid. The industry knows that if those foods are labeled 'genetically engineered', the public will shy away and won't take them.
+- We were making the first step out of the age of chemistry and physics, and into the age of biology.
+- One thing I've learned over these last 30 or 40 years is that people make history. There's no fait accompli to any of this.
+- I know quite a few farmers all over the United States who have tried this and have said the opposite, that they have to use more herbicides, not less. The same holds true with BT.
+- We are entering a new phase in human history - one in which fewer and fewer workers will be needed to produce the goods and services for the global population.
+- The American public is not aware that there might be potential allergenic and toxic reactions. With regular food, at least people know which foods they have an allergy to.
+- We are already producing enough food to feed the world. We already have technology in place that allows us to produce more than we can find a market for.

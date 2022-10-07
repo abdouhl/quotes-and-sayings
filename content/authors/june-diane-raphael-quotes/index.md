@@ -1,0 +1,12 @@
++++
+author = "June Diane Raphael"
+title = "June Diane Raphael Quotes"
+quotes_len = "6"
+description = "the best 6 June Diane Raphael Quotes"
++++
+- I love 'Les Mis' so much, like, since I was younger; I saw it when I was like, you know, 10, and I've seen it almost 18 times.
+- One Christmas I had no money, and so I went home and just, like, wrote a poem; I mean, I didn't write them, but I just handed out poems as Christmas presents. Like, 'Here's a Pablo Neruda poem that really made me think of you.'
+- I remember in second grade, everybody in the class had to come up with adjectives for each other, and I got shy. In a way, I force myself to perform, because if I didn't, I'd stay home rolled up in a ball watching 'The Real Housewives of Orange County' all day.
+- I took a couple of classes in clowning, but that was more like Lucille Ball kind of slapstick, not Ringling Brothers. But we had to do things silently, and the teacher would do this running commentary. 'Does this make Clown sad? Oh, Clown doesn't like that, does Clown?' Always 'Clown.' Never a name.
+- My go to karaoke song is 'Stars' from 'Les Mis', which is Javert's song. And it's super strange, and every time it comes on people are really weirded out, but that's what I do.
+- Comedy fans are the best fans. They embrace and support you doing low-budget work and will follow you to the end of the earth!

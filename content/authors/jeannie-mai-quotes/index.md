@@ -1,0 +1,96 @@
++++
+author = "Jeannie Mai"
+title = "Jeannie Mai Quotes"
+quotes_len = "90"
+description = "the best 90 Jeannie Mai Quotes"
++++
+- She's there for life, but even though it's hard to date with my mom around, I'm so thankful for it because the person who can't take Mama Mai is not the person to take me.
+- I like talking about it, I like talking about world change. I like talking about things that you want to do in your community.
+- Jobs give people a sense of independence, security and self-confidence.
+- I really love, honestly, just being with your best girlfriends.
+- It's horrible dating with Mama Mai! She is nosy. When I was a kid she would be the first one eavesdropping on my phone calls: 'Hello? Who you call for? Huh?'
+- I know one of the blessings of being a mother is getting hips and I'm not going to have that because I chose not to have kids, so I believe God is going to give me some hips if I work for it.
+- Feeling good about your body and feeling sexy comes from within, not from a number on the scale.
+- I was low-key abusing myself. The idea of being skinny became something that was most appealing to me. Even if you watch 'The Real,' from season 1 to season 4, I was always 100 lbs. I started to really work hard to stay petite and to not gain weight and to stay sample size.
+- My goal is to develop curves on my body.
+- I think when people let their inhibitions go, they're so fun and so free. I think we all have it within us, but the world, your job, responsibilities, stupid stuff you have to do as a grownup, Instagram, makes you feel like you always have to be cool, and I like any opportunity where you don't have to always be cool.
+- I definitely watch reality shows where I'm not learning something better in the end.
+- You hear all the time that money can change people. Well, divorce can really change people.
+- I practice wearapy: it is a psychology between colour and texture. Take your emotions - what is it that you want to accomplish for the rest of the day? Pick that feeling and channel it into a colour.
+- Just speaking for myself, when I'm complimented for being Vietnamese-American in television - the only one - that doesn't make me feel happy, that makes me feel really lonely, actually.
+- Loose, breathable fabrics are great... choose brands that have soft blazers such as loose linen or cotton - it doesn't have to be a structured blazer with shoulder pads.
+- Nutmeg and cinnamon are my favorite fragrance enhancers.
+- Summer is always a great time to have fun with beauty and fashion and celebrate our changing looks.
+- I'm a sapiosexual, you know.
+- There's a tiny vial of turmeric I like to add to my tea and my facial cleanser. It revitalizes and detoxifies - it does everything.
+- I love the Duo strip-lash eyelash glue. For all my ladies who love a pair of falsies, if you're using the glue in a tube, you're so 2000.
+- My work in television is part of my ministry. My ministry is not religious at all - it's part of my life purpose of empowering women.
+- The best part of a white pant is the bump of great booty this color can give.
+- The No. 1 thing you have that costs nothing is your imagination: role play.
+- Vests are very flattering on every body type. The key is to make sure you get a vest that's soft in fabric.
+- Spring is all about looser garments.
+- My ultimate getaway is Vietnam. It has a little bit of everything when it comes to culture, amazing food, beautiful people, exotic sights, sounds and profound history of love, bravery and resilience.
+- In spring, you can have a little bit more fun with color and be out there.
+- I used to be a not-healthy 130 lb. girl, all in my stomach, all in my arms so I lost the weight and I stayed there then I became a control freak about the way I was eating and it just became the norm.
+- I've had past boyfriends and a couple girlfriends.
+- I'm a Capricorn and I'm mad loyal - mad loyal! - and I will always look for the good in people.
+- Holey Moley' is the funnest, craziest, most extreme miniature golf series you will ever experience. It was insane. If you've ever played miniature golf, this is unlike everything you've experienced.
+- If there were only one place to eat, I would pick anywhere in Northern Vietnam where you get the French and Vietnamese culinary fusion.
+- I learned that you can never ever have enough quality time with Mom.
+- Sometimes I carry a Green Marble SeLr setting spray. It's the one drag queens use. That is bomb.
+- No matter how expensive an item is or how good it looks, if it doesn't fit you properly, it's not going to deliver the same image that it should.
+- There are several different traits that make up a person's identity. For me, being Vietnamese American is the entirety of who I am.
+- If you don't know where to find self-love, you're going to spend the rest of your life trying to find it somewhere else.
+- For those of us that wake up every day and go to our jobs, we know our worth because we know the value we add to the world.
+- I was married to someone who had more money than me, but because I was the stronger earner and we lived in California - a shocking thing slapped me in the face when we divorced and I had to end up paying him my earnings.
+- My favorite thing about beauty and fashion in all seasons is that it's a way to reinvent ourselves.
+- I have this bookmark with glued-on macaroni. I made it in the fourth grade while in detention for giving a girl a tattoo using two rocks rubbed together and a stick.
+- I always say, men's ankles are kind of like men's version of cleavage. That's what I think, because it's sexy. It shows, like, you dare to go there.
+- Selling the commodity of humans has to be the biggest business out there, as it is the most lucrative. I cannot go to sleep at night, unless I know that I am using all of my platforms to fight human trafficking.
+- One thing he always said, and I love this quote and I really believe it, my ex said, 'You don't truly know a person until they don't get what they want. That's when they show you who they are.' You wouldn't think that the person you were married to and were with for 10 years and taught you the quote would be the best number one example to prove it.
+- We all have experiences and memories from miniature golf. I had my first kiss at hole nine at Golfland.
+- People say money changes people. So does ego and so does social media. And so does the press. I think that all of that mixed in between - you really gotta keep yourself grounded.
+- I speak Vietnamese and conversational Spanish.
+- I believe the green movement is gaining momentum because people are becoming more educated about the real importance of living green.
+- I love how it feels to go into the gym, crank all my favorite music and literally sweat out all of the things that stress me out.
+- So my mom really taught me to be fearless and I love her! She's just so much fun! She is completely the reason why I am a personality and a success to myself today.
+- Everywhere you go somebody is on a diet. Everywhere you go in L.A. there is a no-carb option.
+- Technology's role in human trafficking cannot be ignored. But if we focus on how to prevent human trafficking, technology also has a powerful role. Like Ashton Kutcher's app Thorn, which directly spots human trafficking and connects you with officials.
+- I think women are very attractive.
+- I was 103 pounds for 12 years, and what's crazy is that I actually wanted to weigh 100. Honestly, it was for no other reason than the fact that I thought it would be cool to say that I weighed 100 pounds.
+- I'm Asian. Anything Boba please.
+- Most women don't think to wear bold lip colors, which is just all the more reason to dig out those lipliners and lip colors and put them on.
+- My favorite memory was tubing with Mama Mai. We had never done it before, and we told the guy driving to go as fast as the boat could take us.
+- I embrace both my Vietnamese and American sides, 100 percent.
+- I was a cardio bunny and spent hours in the gym a day working up a sweat.
+- I realized that I had an eating disorder in which I controlled myself to a point that I would not let myself enjoy what I wanted to eat or eat what I needed to eat, all to stay a certain size.
+- I learned watching Sesame Street how to speak English, and Bert and Ernie were my best friends. I believed in them and I learned from them, how to have a healthy and happy relationship.
+- Like, in Asian culture, you have to be down with the family. You have to be down with all the crazy traditional or non-traditional things we do.
+- I used to hate being short.
+- I think when you get to that point in your life where you're the first to laugh at yourself, you're at the best place of your life.
+- There is nobody else, on the entire earth, like Mama Mai. Nobody who thinks like her, says what she says, or drags you into the trouble she does. It's the most exhilarating and fun time of anyone's life.
+- Embracing my origin has made me the confident and grateful person I am.
+- I only wear underwear from Target.
+- Tosh.0' - I consider it my ab workout from laughing so hard.
+- Anything that's shiny, you can mix together. I love rhinestones with sequins, or baubles with fun gold metallics.
+- I recently learned that Lake Como is one of the most romantic places two people could go. That beautiful great lake is a majestic reminder that love is unconditional when you flow and nourish one another, constantly and unconditionally, like water.
+- The best investment would be a Monika Chiang handbag. Her stuff is so on point. Her pieces are really classic, sophisticated, expensive-looking and they're just chic.
+- I have a childlike spirit.
+- I was the person who had a 10 lb baby on my arm called my purse, and now that I have a crossover bag it's stupid. I realize I need my wallet, my phone and my lip gloss - that's it.
+- In L.A. there's diet trends, there's the new nip and tuck people are doing, the new person who is in town you never saw before.
+- Stop baby shaming people to make us feel like there's something wrong with us if we don't want children.
+- I think we as women go too far with bags that are super-weighted and I have found that when you give yourself that room to stuff things in you will do it.
+- On my show 'The Real,' we often encourage women to fight against body-shaming and own the skin that they're in.
+- My family would try and trick us and I would come to a party and she would be there. When I tell you the 'Love & Hip Hop' scene is nothing compared to what was happening with me and mom... throwing things at each other, the cursing, the words.
+- There's a difference between a job and purpose. If I did my job without purpose, I wouldn't have the intention to put things out there that should be heard. But I have a purpose.
+- Your story, background, the music you listen to, the emotions you feel, your lifestyle, goals - all of this is your personal style.
+- Every woman should absolutely own at least one staple skinny jean that is a) a dark wash denim and b) at least 2 percent spandex to have that everyday comfortable wear.
+- Some people are really, really attracted to looks first, or money, or things like that.
+- Now that I think about it, my 40th birthday was the most anxiety I've ever had, and my wedding was also the second time I've had that much anxiety. So I'm starting to realize that I can't be throwing these big bash parties because I need to own that I get anxiety with a lot of people diverting their attention to me.
+- As a kid, I hung out a lot at Golfland in Milpitas.
+- My Aunt Linh had to reimagine her life after she was diagnosed with RMS, especially when she was faced with certain challenges related to her fashion and beauty routines.
+- However, I've learned in my life that life is about living authentically. And for me, the best moments as I look back in my life, that I became the best versions of Jeannie that I'm proud of, was when I was honest with myself.
+- I like watching movies at home and recreating my own theater.
+- Think about the blouse you want to wear for that big meeting with your boss, or the skirt you want to reserve for a client dinner. Once you've pinpointed the item that you'll feel good in, the other pieces will fall into place.
+- I love Marie Osmond. Marie Osmond is really cool.
+- While many of us use beauty products every single day, we fail to recognize how much waste this can actually create if the empty bottles aren't recycled.

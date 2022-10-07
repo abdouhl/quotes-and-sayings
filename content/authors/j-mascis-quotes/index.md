@@ -1,0 +1,23 @@
++++
+author = "J Mascis"
+title = "J Mascis Quotes"
+quotes_len = "17"
+description = "the best 17 J Mascis Quotes"
++++
+- I've always worn earplugs, but I'm sure my hearing's not great.
+- I've never liked rehearsing too much.
+- It's harder to play drums than guitar, physically. I'm always kind of on the edge. I guess that's how I play everything: on the edge of my ability.
+- I play a Fender Jazzmaster and three stacks and a combo, two old Marshall Plexis and a Hiwatt combo and a Hiwatt combo with Marshall cabs.
+- You might as well play at the show everyone else is playing at.
+- I have a couple of gold teeth. I had braces for a year but I didn't wear the retainer.
+- When I play a solo I'm just expressing that moment. It can go horribly wrong easily enough.
+- All labels are offensive in some way.
+- I enjoy having some boundaries to work within. That's why I generally don't like alternate tunings and stuff like that. I like the boundaries of regular tunings.
+- I was just reading about Paul Simon in 'Uncut', and it was fascinating. I never think about him much or think about his music or anything, but it's interesting to hear his ideas on stuff.
+- People have to do what they want to do.
+- Generally my songs are just some riffs slung together as an excuse for a guitar solo.
+- Usually I like to have them, but going drum-less pushes everything in a new direction and makes it easier to keep things sounding different.
+- I prefer cynical people. Nice guys grow on trees.
+- Yeah, you know, I'm always into cassette. At least they seem to be the longest-lasting medium we used to have. I don't play cassettes much anymore, but I play records all the time.
+- 'No Bones' has some reverb that I kick around.
+- It's good to have certain restrictions sometimes, but it's definitely more fun to play really loud, with distortion.

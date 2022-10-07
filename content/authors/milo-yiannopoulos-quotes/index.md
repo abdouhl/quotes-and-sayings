@@ -1,0 +1,96 @@
++++
+author = "Milo Yiannopoulos"
+title = "Milo Yiannopoulos Quotes"
+quotes_len = "90"
+description = "the best 90 Milo Yiannopoulos Quotes"
++++
+- On campuses, where Liberal softies still rule with an iron fist, feminism is as safe as a city with no women drivers. That is the only thing I support about Saudi Arabia, by the way.
+- It's not okay to lie about people and particularly not okay to hurl the worst imaginable names at people just because you think you might not like their politics.
+- Hillary Clinton was rejected soundly by America, but instead of changing course, the Democrats and their media allies are intent on telling Americans just how terrible they are for embracing Donald Trump.
+- Got freedom? Thank a man, or rather, thank all the men willing to die so the rest of us can go fetal in our safe spaces if somebody hurts our feelings.
+- The dirty little secret the media doesn't want to admit is that Trump generates such good content that they can't help covering him even when they hate him.
+- I love myself. I am the best person I know.
+- Some day, when I'm done triggering special snow flakes on campus, when I'm tired of all this, I might quite like a little Milo.
+- Deep in my heart, I care about social-justice warriors.
+- The Clintons represent three decades of the Democrat party being completely sure of getting the black vote, while doing nothing to help the black community in return.
+- I want to crack jokes about people. That is my right.
+- I have ridiculously bad eyesight, but I have learned to live with an impressionistic view. Life is a Monet painting. I wander around enjoying myopia.
+- Calvin Coolidge was one of the best presidents. Why? Because he did absolutely nothing.
+- It's a shame that gays who ought to be pushing boundaries have been domesticated and tamed and turned into pets by the Progressive Left.
+- As a foreigner, I used to think all of Michigan was a post-apocalyptic wasteland of burning buildings, trashed cars, abandoned factories and broken dreams. But now I know that's just Detroit. It's only the Democrat-controlled areas that are a disaster.
+- The thing I most hate about the Left is that they want to stop us laughing - to prescribe which jokes are OK and which are not OK to make in public and to draw artificial lines around certain subjects. I find all sorts of inappropriate things funny.
+- Of all the threats to free speech in history, the one the media give the most credibility to without question is the feminist movement, which is trying to rebrand public debate as harassment.
+- To be honest, I'm shocked the University of Washington's sports teams are called the Huskies. Why haven't the Leftists that run this entire state demanded they be renamed the 'Athletes of Size' so as to not fat shame anyone?
+- Perhaps what's needed now is a bolder form of censure after all, because the Internet is not a universal human right. If people cannot be trusted to treat one another with respect, dignity and consideration, perhaps they deserve to have their online freedoms curtailed.
+- What I want is a sort of new political realignment on libertarian/authoritarian lines, and I want a new consensus to emerge of disaffected liberals, classical liberals, dissident minorities like gays, small-state conservatives, libertarians, people who basically want to be left alone.
+- The alt-right for me is primarily a cultural reaction to the nannying and language policing and authoritarianism of the progressive left - the stranglehold that it has on culture.
+- What's revolting is the body-positivity movement. What's revolting is this idea now that you can tell women they'll be happy and healthy at any size. Why? Because it tells women that you can be fat, and you can be unattractive, and you can be happy anyway. That's a lie.
+- Something inside of me tells me that being homosexual is probably wrong.
+- Believe me, I've known a lot of journalists, and their opinions on most subjects are wrong. If the entire mainstream media is aligned against Trump, it is just about the best endorsement he could hope for!
+- Trump might become deeply unpopular in the way that I, with some people, am deeply unpopular, but that doesn't mean that we don't get things done. You can be unpopular and successful.
+- I'm not in the business of being 'friendly.' First and foremost, I'm a journalist. My business is the truth. Now, I happen to be other things, too - a pop-culture phenomenon, the most in-demand speaker on the campus lecture circuit, whatever. But I believe in facts.
+- The only real shaming I've ever experienced has been from other gay people when I reveal my politics or my religion.
+- Every voice on the Left bleated about how they feared protests and riots by angry Donald Trump supporters if and when he lost the election, yet it is the Leftists themselves destroying property and blocking roads. Everyone can see where the hate is coming from. Everyone.
+- Democrats don't understand what is wrong in the black community or how to fix it. If they do, they don't care.
+- The only person really at risk at any of my talks is me.
+- Trump is going to drain the swamp; he's going to get back control of America's borders, and if the establishment try and stand in his way, they'll go the way of the Clintons and the Bushes. Stumped.
+- Most journalists are idiots.
+- It's as if a psychological norm is being established whereby comments left online are part of a video game and not real life. It's as if we've all forgotten that there's a real person on the other end, reading and being hurt by our vitriol.
+- Political correctness never rears its ugly head independently. It always shows up as a series of actions designed, to this observer, to crush the souls of those blessed with common sense.
+- In their rush to placate everyone and offend no one - and in particular to pander to Islam - the Left wants to shut down Christianity.
+- Just telling the facts are no longer enough. You now have to be persuasive, charismatic, interesting, and funny. Just telling people things isn't enough anymore.
+- In the minds of a Liberal, someone who isn't Christian might be offended if we say Merry Christmas to them, so we shouldn't say Merry Christmas to anyone. The logic is bizarre!
+- The white working class wants jobs. They don't want to be stuck trying to make ends meet with part-time work and government assistance. They want a good paying job that they can take pride in. The type of job that has fled America thanks to the Left.
+- One of the favorite things I've learned about Michigan State is that they set up a 'Women's course' in 1896. It sounds like the first gender studies department! But when I looked into it, they taught women home economics, liberal arts, and science. So the women's course was actually a useful degree! It actually teaches something productive!
+- I delight in offending people. I think the grievance brigade, victimhood, the idea that hurt feelings are some kind of special currency - I think that needs to come to an end.
+- I've come around to thinking that having Donald Trump in the White House would be wonderful. Even if he isn't able to achieve very much. Now, daddy's gonna build the wall, daddy's gonna fix trade. That's going to happen.
+- If the Internet, ubiquitous as it now is, proves too dangerous in the hands of the psychologically fragile, perhaps access to it ought to be restricted. We ban drunks from driving because they're a danger to others. Isn't it time we did the same to trolls?
+- People assume because I have a very thick skin that I don't have feelings. I don't, for the most part. But occasionally, I'm capable of great acts of charity. I tend to do it quietly.
+- Black Lives Matter is the culmination of racial divide. They're nothing more than the last socially acceptable hate group in America.
+- Shallow emotions. An incapacity to feel genuine love. A need for stimulation. Frequent verbal outbursts. Poor behavioural controls. These are just some of the things that social media are encouraging in all of us. They're also a pretty comprehensive diagnostic checklist for sociopathy - in fact, that's where I got the list.
+- 'White supremacist' and 'white nationalist' aren't like 'meanypants' - you can't just attach them to people you don't like without any thought to the consequences. The progressive Left has done it to ordinary Americans for decades. The result? President Trump.
+- Media cycles end, but the Internet never forgets. This is a valuable lesson, especially for college students.
+- Leftists wage the war on Christmas using their traditional methods - government fiat and the court system. They never win voting, and they certainly don't win in the free market, so they bravely fight their battles through big government.
+- Black Lives Matter is the ultimate divisive movement. They aren't shy about what they don't like, which is western civilization, capitalism, and the rule of law. They really dislike the police, and certainly get the credit for the war between black men and police.
+- You should always take what I say about religion with a grain of salt, because the 7 deadly sins are more like my seven daily activities. I try to check them all off at least once a day. All of them except gluttony; my trainer keeps that under control.
+- It is easy for Americans to forget a simple fact that is very clear to the people around the world that yearn to live in this country: America is the best country in the entire damn world! It deserves to be made great again, because America is, in the words of President Ronald Reagan, 'the last best hope of mankind.'
+- Feminism is cancer.
+- I like to think of myself as a virtuous troll.
+- Twitter could save a lot of money by writing its executives' names on their doors with pencil instead of fancy placards. Like an episode of 'Suits,' Twitter execs come, go, change jobs and disappear under black clouds every few minutes. Office administration costs must be astronomical!
+- Feminism is like any female-dominated group - a perpetual catfight.
+- One of the remarkable things about Donald Trump is that he didn't just beat the Progressive establishment - he also beat the Conservative establishment. Two political tribes that dominated Washington for half a century were defeated in the space of one election campaign.
+- The Republican party has become as hostile towards its own base as the Liberals have always been.
+- Cal Poly is my kind of school. So many universities I visit boast about boring alumni like pioneering surgeons and Olympic athletes. But Cal Poly has none other than Weird Al Yankovic!
+- Hillary herself has said that before it was called Obamacare, it was called Hillarycare. She probably isn't so happy with that comparison now, is she?
+- Behind every racist joke is a scientific fact.
+- As is now painfully obvious from my Twitter ban, boycotts tend to make the shunned more popular.
+- In modern society, there are fewer and fewer opportunities for men to be men. For masculinity to flourish in all its glory. For daring and risk-taking to live free, or at least relatively free. Fraternities are one of those places. They deserve to be protected.
+- I'm an invention of the Internet. I'm like, the Internet went away for a few years and designed what the perfect online personality would look like and came back with me.
+- The alt-right believes that Western culture is currently imperiled and that the elites on both sides of the political divide are not doing enough to protect it. In that analysis, I think they're right.
+- You see, feminists don't really like to define the Patriarchy. They prefer to keep it nebulous and amorphous so they can conveniently blame it for everything that goes wrong in their lives. Not being paid enough? Patriarchy! Not getting a promotion? Patriarchy! Too many catcalls? Patriarchy! Too few catcalls? Patriarchy!
+- If you recall, we have a huge list of celebrities who had announced they'd leave the country if Trump won. It probably seemed like a safe play for attention at the time, but now they've got egg on their faces, because, of course, none of them are actually leaving. Some of them have gone silent, while others, like Amy Schumer, say it was a joke.
+- I do say things in a way that is going to elicit a response from people.
+- Abortion is wrong. I think everyone knows that, which is why abortion activists are so angry all the time. It's a bit like when you catch someone out in a lie, and they get really mad at you really quickly, and you can't work out why until later. It's guilt.
+- The white working class desires safety for their families, but Islam brings everything but safety. Look at Europe!
+- I have never been offended. I don't know what it means. It's not that I disagree with it. I don't understand it. I've never had that feeling. I don't let feelings control my life. I'm more disciplined than other people.
+- Besides Christianity and specifically Catholicism being wonderful, Christmas is intrinsic to American culture and worth defending. Think of what happens at Christmas time. People play Mariah Carey Christmas songs... What else do you need in life?
+- I care about facts. I don't care about your feelings.
+- Let's be clear: no one is forced into hazing. If you don't want to be hazed, don't join a fraternity.
+- I don't see it as a bad thing that I surround myself with edgy people. Because they're interesting.
+- America has a problem with fake hate crimes. The Left is always searching for the next big outrage, and sometimes when the pressure gets too high, they just decide to make them up.
+- Twitter died when the company banned me from its platform. I know that sounds egotistical. But remember what I just said. I'm right about everything.
+- The state of Michigan going to Trump was an amazing thing. Of course the fake news media was shocked; they never considered that white working class residents of Michigan may not like being called evil racists clinging to guns and Bibles.
+- Muslims know that Islam clashes with Western Civilization. They make no bones about choosing Islam over their new home country, like the Syrians in Germany, or the Somali at Ohio State University. They are very open and honest on polls, because they know they have nothing to fear from the governments that welcomed them with open arms.
+- I enjoy upsetting the right people. I love poking fun at earnest censors. I want to push the bounds of what can be said on the Internet.
+- Back before our civilization despised itself, we applauded tough men. But you can't produce tough men - or honorable women - without tough love. If you want to keep civilization, you better start by insisting that boys grow up, instead of trying to infantilize them so they're afraid to stop sucking their thumbs.
+- How can feminism be pro-women without being pro-motherhood? There is nothing more unique about being a woman.
+- What Trump means for us is that we've won the first battle. At a minimum, he's a necessary course correction from the excesses of the social justice Left. At most, he's the saviour of the First and Second Amendments, protector of the Supreme Court, and champion of the little guy. In other words, just what America needed.
+- Feminists are like the Borg from 'Star Trek.' They don't know anything about other groups beyond the fact that they need to be assimilated into a hivemind that mindlessly follows the orders of a Queen.
+- Donald Trump can take his message directly to the people via rallies and addresses carried over social media. I'd call them updated versions of Roosevelt's fireside chats, but a portion of my younger readership doesn't even know what a radio is thanks to a Democrat-run education system.
+- My theory is that women simply can't get along with each other or work well together.
+- Men and women are different: we have different tendencies, skills, and behaviors. This should be accepted and fostered, not demonized. Because the end result is simply more effeminate men and more masculine women. Who wants that?
+- Cyberbullying isn't real. But bullying and harassment certainly are real. Trust me, friends, I went to school in England. They've got bullying down to a fine art. I know, because I was one of its chief architects. I was awful to my fellow schoolboys.
+- When it comes to culture, I'm sort of like Nostradamus if he'd been a handsome, witty minor celebrity with a great head of hair instead of a crusty old dude from the olden days.
+- Why are Washington and Oregon the home turf of every violent Left-wing radical? It seems to be a never-ending cycle of radical Lefties burning down Starbucks and moderate lefties upset they can't get their lattes.
+- Let's be clear about one thing. Non-college educated doesn't mean stupid. It means you wisely chose not to pay $40,000 a year to be lectured on microaggressions.
+- Trump is a cultural candidate for president, not an economic one. He clearly loves America and wants America to stay America. America won't be America if it has open borders and mass Muslim immigration.

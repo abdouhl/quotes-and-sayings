@@ -1,0 +1,90 @@
++++
+author = "Grimes"
+title = "Grimes Quotes"
+quotes_len = "84"
+description = "the best 84 Grimes Quotes"
++++
+- You want people to hate you. If you're just making people happy, you're like Mumford & Sons.
+- I'm not trained in music.
+- I like creating beauty out of scary things.
+- It's kind of like I'm Phil Spector, and I'm forcing a young girl to make pop music and perform exhaustively. Except, instead of it being someone else, that girl is also me.
+- I can tell really early on in a painting if I'm going to toss it or not.
+- I'm just very obsessed with Japanese stuff in general.
+- I like to aestheticize every possible thing that can be aestheticized.
+- There used to be a lot of industry in Montreal, and now there's not, so it's really easy to get huge, empty spaces where you can practice and make music or make art for very, very cheap.
+- I'm a super-introverted person.
+- The thing is, I really like working. If I sit around too much, I get really bad anxiety.
+- If I'm a bad mood, I can't go on stage and smile.
+- I can't censor myself; it's really important for me to say how I feel.
+- If you tell someone you're doing something innovative, they'll think you're doing something innovative.
+- I just can't perform well unless I'm wearing jeans.
+- I don't own anything designer.
+- It's interesting to be a front person who is controlling the majority of the sound.
+- I'm not good at being, like, a sexy girl.
+- I think I have serious latent Catholic guilt issues.
+- Fashion can be a really powerful tool, but it's also a place where you can be totally humiliated and have your power taken from you.
+- I feel like vocals are to music what portraits are to painting. They're the humanity. Landscapes are good and fine, but at the end of the day everyone loves the Mona Lisa.
+- It's really hard to be on stage and packing your gear when people who just saw you play are in the room, because they all just want to talk to you.
+- My favorite music is never the music that anyone else likes, and other people's favorite songs are always my least favorite.
+- Removing all stimulation around you is a really positive thing in terms of stimulating your creativity.
+- My image seems to be so infantilized, and I don't really know why. It belittles the music.
+- I'm not interested in making art unless I'm totally freaked out and worried people are going to hate it.
+- If you focus too much on development of the visual angle, it could be a detriment to what you're doing musically.
+- I always wanted to be really experimental.
+- When I first started out, I was making really slow, psychedelic ambient music because it was all I could do.
+- I don't want to have to compromise my morals in order to make a living.
+- Basically, I'm really impressionable and have no sense of consistency in anything I do.
+- My manager lives on my block; four of the apartments in my apartment complex of seven are people I know. It's a really close-knit community, and almost everyone on these few blocks are artists or graphic designers, because we live right on the cusp of a warehouse district.
+- My dream job would be sitting in a room, cranking out hits for Rihanna.
+- There's definitely a solitary aspect to not having a band, and there are times when I wish that I did.
+- Miami is just really fun whenever I go there. It's like this post-apocalyptic Barbie world: everything is pink, and there're palm trees everywhere. But then there are also all these people in crazy sunglasses, warehouses with sick parties where all the girls are covered in spikes and black leather. It's a very weird place.
+- I think my sound is post-Internet.
+- You rarely find someone who sings really well and who produces really well; it's a problem, and I just think it's a missing link in the music scene.
+- The most valuable live thing for me is when people look like they're having a good time.
+- I like performing, but I usually get really sick when I'm on tour, and it's just hard.
+- I want to make Grimes a high-fashion sci-fi act.
+- I went through my adolescence having this revelatory experience - I can have any music I want, and I can get it immediately. For me and for a lot of people I know, there's this musical eclecticism that happened.
+- I think if you're good at art, you'll be good at most types of art.
+- I'm a very unhealthy person, and Montreal is very cold, and I'm usually sick when I'm there.
+- I'm a very nervous, shy person.
+- As a producer, I'm trying to challenge myself to just make something that is of a professional quality - not necessarily pop music, but maybe in the sense that Nine Inch Nails is professional quality.
+- Music is a religion to me and my friends.
+- My set can get really screamo and aggressive, or it can be ambient and Enya-esque.
+- If I went on 'American Idol,' I would definitely be kicked out immediately.
+- I'm tired of being considered vapid for liking pop music or caring about fashion as if these things inherently lack substance or as if the things I enjoy somehow make me a lesser person.
+- Usually I perform with dancers.
+- I listen to a lot of medieval music.
+- I've seen Animal Collective live, and I suffered permanent hearing loss from that show!
+- I want to make an a cappella record to release for free.
+- Most of my music videos were made for under $200.
+- Especially with music, people want confidence.
+- The way that you present yourself visually totally dictates your audience and everything that anyone thinks about you.
+- There are a lot of musicians I've met on Twitter where it was like, 'Hey, I like your music' - and then I ended up meeting them and it turned into a friendship.
+- Success, for me, is a song that can deliver shivers.
+- I'm against spending money to record.
+- It's obviously funny to be a meme, so I could be down with it in that regard, but it also belittles one's art.
+- I'm not, like, a natural performer. It's sort of a thing that I've had to learn to do.
+- I love a lot of very sentimental music, but I shouldn't necessarily be the person who makes it.
+- I have an intense desire to constantly make music, and I don't feel that way about anything else.
+- I'm actually not a particularly negative person, but I feel like most things are better when they're not actualized. The motivation that comes from wanting something is so much more driving of people than actually getting it.
+- I start a lot of songs and throw them out because the energy is not right. It's almost like the file becomes cursed. I have to delete it.
+- You don't just have to be influenced by rock, or goth, anymore. It's okay to say, 'My influences are Tin Pan music from Bali and Rihanna.' There are still so many combinations that haven't been done yet.
+- From an early age, I knew I would be unhappy if I wasn't doing something creative.
+- When I'm making a song that's very Grimes, it just feels very insular and it feels weird to have someone else do something on it.
+- I truly love 'Gangnam Style.' I guess it's a meme. I feel like it's one of the few times where the meme and the quality combines nicely.
+- If you look at the way people behave at shows, icons are now musicians; they are the people that we worship.
+- I need to be able to work for 20 or 30 hours in one go in complete darkness, alone with just the computer glow.
+- The thing about music is it's not an obscure pursuit, it's a very natural thing for human beings to do. Once you put in the effort, the learning curve is very fast.
+- I have a lot of Japanese friends: I grew up in Vancouver, and there's this huge Japanese population over there.
+- I was incredibly unpopular in high school but also extremely notorious.
+- By the time I'm 50, there is probably going to be a nuclear holocaust. I should just enjoy myself.
+- I've always been very intense about everything I do.
+- I don't even wear shoes with heels because I hate making a noise when I walk and people looking at me.
+- I believe the human mind is a very fallible thing, but it's the only thing that I can really know, I guess.
+- I'm sad that it's uncool or offensive to talk about environmental or human rights issues.
+- I like going crazy. And not just for art - I like extremes in general.
+- I get offers to do huge-budget music videos with big production companies all the time, but I have no interest.
+- I've always been such a nerd.
+- In America there's lot of cool cities, but in Canada there's, like, well, Vancouver, Toronto and Halifax may be cool, but they're so expensive. Montreal is the only city that's affordable but also has buses and culture.
+- I don't think I know anyone who has a steady job in Montreal.
+- I'm tired of being congratulated for being thin because I can more easily fit into sample sizes from the runway.

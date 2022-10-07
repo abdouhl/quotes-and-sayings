@@ -1,0 +1,35 @@
++++
+author = "Sarah Dessen"
+title = "Sarah Dessen Quotes"
+quotes_len = "29"
+description = "the best 29 Sarah Dessen Quotes"
++++
+- I always wished I could move around and switch schools. It was hard to have these radical transformations. You'd think, 'I will be a totally different person tomorrow,' but it never worked.
+- I'm always hopeful. I feel like I'm at the prom sitting against the wall waiting for someone to ask me to dance.
+- I've been writing, in one way or another, for as long as I can remember.
+- I've never envied the person who had to put my books together in one script.
+- I've changed in my sympathies since I've become a mother myself. In high school I went through a period where I was close with my mom and had to break with her in order to find myself and come back. Since that was my experience, that's often what happens in my books.
+- I think my mother characters have changed a lot since Sasha was born, just because I understand what a hard job it is now, and I'm coming at it from another angle - like you just love and care about this person so much, and just want to protect them from everything.
+- When I was a teen, I was never really into the captain of the football team or the student body president. The guys I liked were quirky and different: They listened to music I'd never heard of, never had lunch or gas money, and could always make you laugh.
+- You're not supposed to have it all figured out in high school. If you knew it all, and it was the best, it's all downhill from there.
+- I just started to put texting and phones in my books. I want my books to be read 20 years from now; I don't want them to be dated.
+- I'm all about shrimpburgers, reading, and going to the beach.
+- In high school, I was lucky enough to have a big group of girlfriends that have really inspired a lot of the stories in my books. I'm still close with my friends from that time, so it's never very hard to put myself back into that place, that voice.
+- I think part of the problem sometimes is that there's so much happening in my books, to whittle it down into a single script is hard.
+- I'm famously secretive about my work. Nobody reads my books till they're finished.
+- I was born in 1970 in Illinois, but all the life I remember I've spent in Chapel Hill, N.C.
+- I love writing about the summer between high school and college. It's the last gasp of really being a teen.
+- I write thank-you notes the minute I throw the wrapping paper away.
+- Maybe other writers have perfect first drafts, but I am not one of them. I always try to get the book as tight as I can, but you reach a point as the author where you have lost all perspective.
+- On the whole, I think I spent a lot of high school just trying to stay under the radar: I don't think I was all that memorable.
+- My books are so tame!
+- Teenagers are a great audience and they are fearless about asking what they want to know.
+- I can't sit and twiddle my thumbs. I have to start writing even if it's miserable some days.
+- I was always a big reader, mostly because my parents were.
+- I'm really happy to have the chance to talk about the editing process. It's something that I think doesn't get the weight it deserves, especially with the rise of self-publishing.
+- I love YA, and it's been a really good fit for me. But at some point, I would like to try something else: a collection of short stories, or writing about something other than high school. A lot has happened to me since I was eighteen.
+- Each time, I think I'm never going to write another book. It never gets easier.
+- If I had to pick, I'd say my favorite book is 'A Prayer For Owen Meany', by John Irving.
+- I was so thrilled that I was having a girl, because I just am so girly myself, but I think the teenage years are going to be very interesting.
+- I really just love to read, period, whether it be books or magazines or the back of the cereal box. It's the one thing I can always count on to calm me down, take me away and inspire me, all at once.
+- I don't live in New York or California. I'm in the grocery store, at the park with my kids, and I'm a normal person. I'm feeding my chickens and agonizing about my next book!

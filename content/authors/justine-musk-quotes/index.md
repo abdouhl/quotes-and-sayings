@@ -1,0 +1,42 @@
++++
+author = "Justine Musk"
+title = "Justine Musk Quotes"
+quotes_len = "36"
+description = "the best 36 Justine Musk Quotes"
++++
+- Fear is a powerful beast. But we can learn to ride it.
+- We are born into a particular place and time with a particular set of gifts and limitations. The challenge isn't to pluck the best career out of the air, but to learn yourself from the inside out: to know your gifts and accept your limitations and shape your life accordingly.
+- When we dare to hope for a certain outcome and take action after action toward that outcome, we're dealing with nothing less than the spirit of creativity itself.
+- From childhood on, both males and females learn to do whatever we need to do to get the attention we need to survive. We fashion ourselves accordingly. And then, should that attention ever go away, it's only natural to do the same things we've always done, rely on what we've always relied on, in order to make it come back.
+- We live in a culture that does not encourage women to be epic heroes of their own Big Stories but the mothers and lovers and wives and mistresses and muses and personal assistants, the femme fatales and fantasies and manic pixie dream girls, in someone else's Big Story, and this someone else is usually a dude.
+- As a girlchild in the early-to-mid 1980s, I wasn't expected to like math. So I stopped liking math. As a young woman, I wasn't expected to have high self-esteem.
+- Extreme success results from an extreme personality and comes at the cost of many other things.
+- Artemis women often have difficult childhoods. She's the kid who seeks comfort in the woods, or animals, or books. If trapped in an authoritarian family, she blends in to get by - but keeps a fierce autonomy inside her head and heart, looking to the day she breaks free.
+- The world doesn't throw a billion dollars at a person because the person wants it or works so hard they feel they deserve it.
+- Hope is much more than wishful thinking. Hope is a way of moving through the world.
+- Attention isn't really earned. It's invoked; it's manipulated. It can be heady and make you feel powerful, but it isn't something you accomplish; you get it - or you don't.
+- I have struggled with self-esteem issues since my teens, but it's clear in my first long-ago diary that I didn't start out that way. I acquired my low self-esteem. I learned it.
+- In the late spring of 2008, my wealthy entrepreneurial husband, Elon Musk, the father of my five young sons, filed for divorce. Six weeks later, he texted me to say he was engaged to a gorgeous British actress in her early 20s who had moved to Los Angeles to be with him.
+- One of the many qualities that separate self-made billionaires from the rest of us is their ability to ask the right questions.
+- Sometimes it is a way of controlling others, including family members, because you don't know how to connect to them in any other way. Money can also serve as a scorecard to indicate how well you are doing, the impact you are having, if you are winning.
+- Extreme success is not like other kinds of success; what has worked for someone else probably won't work for you.
+- The world gives you money in exchange for something it perceives to be of equal or greater value: something that transforms an aspect of the culture, reworks a familiar story or introduces a new one, alters the way people think about the category and make use of it in daily life.
+- Every time a confident, successful woman like Marissa Meyer distances herself from feminism, I think of Athena. Athena women, with all their brilliance and strategy, are the ones smashing up through layers of glass. They tend to identify with men, keeping femininity at a distance.
+- We live in a culture that celebrates determination and hard work, but understand, these are the qualities that keep you in the game after most everybody else has left - or until somebody bigger and stronger picks you up and hurls you back out to sea.
+- 'Obsession' has a bad rap.
+- A lot of people work extremely hard and through no fault of their own - bad luck, the wrong environment, unfortunate circumstances - struggle to survive.
+- People who become 'elite' at what they do aren't striving to be 'elite' just to join some special club. They take great joy and satisfaction in the pursuit of mastery, and they compete against themselves, not others.
+- I love how feminism is often blamed for giving women too many choices. Like this is a bad thing.
+- Money is rarely just money. Sometimes it stands in for love or self-esteem or freedom or a sense of control over your destiny (especially if you lacked these things in childhood).
+- Recognition happens when you see yourself from the inside-out: as someone who can make an impact on the world instead of navigating the impact the world has on you.
+- I've learned to separate my fears from my intuition and, at times, to follow my intuition through the fear.
+- Why strive to be 'elite'? Because it infuses your life with purpose and meaning that does not depend on anyone or anything that can ever be taken away from you.
+- I've noticed that women who pursue recognition rather than attention have a different relationship with aging. They're not dropping tens of thousands of dollars on plastic surgery. When they have to choose between looking older - or looking odd - they'll go with older.
+- Extreme people combine brilliance and talent with an insane work ethic.
+- Don't pursue something because you 'want to be great.' Pursue something because it fascinates you, because the pursuit itself engages and compels you.
+- Keep your body sharp to keep your mind sharp.
+- I had turned into a trophy wife - and I sucked at it. I wasn't detail-oriented enough to maintain a perfect house or be a perfect hostess. I could no longer hide my boredom when the men talked and the women smiled and listened. I wasn't interested in Botox or makeup or reducing the appearance of the scars from my C-sections.
+- I don't believe that we - and this holds true for both genders - have as many choices as we seem to like to think.
+- What is it that you're not doing - in your work, in your life - because you feel you need permission? If someone had given you that permission as a youngster, what do you think you'd be doing now?
+- I don't think it's that difficult to distinguish between people with narcissistic disorders and people with high self-esteem.
+- You have to have a spirit of courage and adventure, or else you're going to find it tough to get up in the morning sometimes.

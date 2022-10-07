@@ -1,0 +1,23 @@
++++
+author = "Jaya Bachchan"
+title = "Jaya Bachchan Quotes"
+quotes_len = "17"
+description = "the best 17 Jaya Bachchan Quotes"
++++
+- The biggest baby takes the most attention.
+- My parents never sat down to teach me anything; they lived exemplary life to set a lesson for me.
+- I like visiting the parliament, listening to the discussions and raising questions. It's a stimulating environment and it opens your world view.
+- I do not believe in superstars. For me the only superstar has been Dilip Kumar and he will always be. I don't consider anybody after him as a superstar.
+- I'm fortunate to have a home in both Mumbai and Delhi, and to be a part of cinema and the political world. Both are different and engaging.
+- People who have made their name in this film industry have called it a gutter. I completely disagree. I hope that the government tells such people not to use this kind of language.
+- I married a good man and a family that believes in commitment.
+- I can't be part of what is being done in films these days and hence I don't do films anymore.
+- I'm not the interview-giving kind.
+- When you are absolutely new and face failure, you want that one big chance to prove yourself.
+- I don't think my husband has any plans to pen his memoirs. There are enough people doing that for him.
+- You must not get too possessive, especially in our profession, where you know things aren't going to be easy. You can either drive the artist crazy, or you can help him or her grow.
+- In the film industry, 60 per cent is luck and 40 per cent is availing the right opportunities.
+- I belong to a middle class family from Bhopal. My father was fearless.
+- You are a human being, you do react. If you react to negativity, you also react to positivity.
+- I see Amit spends a lot of time with the kids which is even reflective in their behaviours because most of their mannerisms seem to be influenced by their father.
+- I am greatly influenced by my father who was a journalist.

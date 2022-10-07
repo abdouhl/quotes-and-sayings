@@ -1,0 +1,31 @@
++++
+author = "Martha Graham"
+title = "Martha Graham Quotes"
+quotes_len = "25"
+description = "the best 25 Martha Graham Quotes"
++++
+- We learn by practice. Whether it means to learn to dance by practicing dancing or to learn to live by practicing living, the principles are the same. One becomes in some area an athlete of God.
+- You are unique, and if that is not fulfilled, then something has been lost.
+- Misery is a communicable disease.
+- First we have to believe, and then we believe.
+- Fire is the test of gold; adversity, of strong men.
+- Nothing is more revealing than movement.
+- Censorship is the height of vanity.
+- Some men have thousands of reasons why they cannot do what they want to, when all they need is one reason why they can.
+- The body is a sacred garment.
+- The body never lies.
+- The body is your instrument in dance, but your art is outside that creature, the body.
+- Great dancers are not great because of their technique, they are great because of their passion.
+- Learn by practice.
+- There is a vitality, a life force, an energy, a quickening, that is translated through you into action, and because there is only one of you in all time, this expression is unique.
+- Practice means to perform, over and over again in the face of all obstacles, some act of vision, of faith, of desire. Practice is a means of inviting the perfection desired.
+- Think of the magic of that foot, comparatively small, upon which your whole weight rests. It's a miracle, and the dance is a celebration of that miracle.
+- No artist is ahead of his time. He is his time; it is just that others are behind the times.
+- Theater is a verb before it is a noun, an act before it is a place.
+- Every dance is a kind of fever chart, a graph of the heart.
+- The only sin is mediocrity.
+- Dance is the hidden language of the soul of the body.
+- 'Age' is the acceptance of a term of years. But maturity is the glory of years.
+- I did not want to be a tree, a flower or a wave. In a dancer's body, we as audience must see ourselves, not the imitated behavior of everyday actions, not the phenomenon of nature, not exotic creatures from another planet, but something of the miracle that is a human being.
+- To me, a building - if it's beautiful - is the love of one man, he's made it out of his love for space, materials, things like that.
+- The body says what words cannot.

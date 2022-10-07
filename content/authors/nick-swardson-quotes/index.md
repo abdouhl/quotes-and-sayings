@@ -1,0 +1,17 @@
++++
+author = "Nick Swardson"
+title = "Nick Swardson Quotes"
+quotes_len = "11"
+description = "the best 11 Nick Swardson Quotes"
++++
+- When you live the life of a comedian, it's such a state of arrested development. I can't deal with anything very maturely. I'm still really bad at paying bills or doing anything that would be considered semi-adult. I'm really bad at it. It's weird I can create and run a TV show, but I can't pay my phone bill.
+- For me, honestly, one of the first movies I did I was always pounding coffee, and I crashed so horribly. So I've kind of weaned myself off. You keep getting second and third winds. But for me, I've stopped doing energy drinks or any kind of stimulant. I just kind of go natural.
+- I always thought that the fastest way for me to get ahead and get noticed and to do well was to make my act very accessible. When I first started, I talked about family stuff, my dog, my cat. It was all I knew back then; I wasn't forcing anything, but I wasn't like, 'Hey, don't you hate doing homework?'
+- No one will ever be as good as Phil Hartman. He was such an amazing genius, and may be the best sketch performer of all time.
+- If you want to be a comedian, go out. Do a week in Des Moines, Iowa. Try to make those people laugh.
+- Improv plays such a huge role in finding great lines - you'll be surprised at what comes out of your mind inadvertently. A lot of times it's better than a script you've worked out ahead of time.
+- I'm developing more stuff in my voice, more Nick Swardson. It's me as myself in a sense and kind of in my voice, no accent no affectation. I'm growing into my own persona.
+- I started in the club route. I did the alternative scene later on. When I lived in New York, I did the Luna Lounge and stuff, where Janeane Garofalo and David Cross and all those guys worked out of, but I came from a comedy club background. I'm proud of that background. I'm one of the people that really crossed over and did both.
+- Improv kind of goes hand in hand with what I do. I was on 'Reno 911!' for six years, and that was a completely improvised show.
+- Most sketch aficionados have an enormous amount of respect for 'Mr. Show.' I didn't have HBO back then, so I was always trying to find episodes. Bob Odenkirk and David Cross became celebrities, and Jay Johnston - who's lesser known, but brilliant - deserves a lot of credit, too.
+- Comedy is so subjective, you know what I mean? To sit there and technically pick it apart is so stupid.

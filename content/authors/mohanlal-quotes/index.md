@@ -1,0 +1,106 @@
++++
+author = "Mohanlal"
+title = "Mohanlal Quotes"
+quotes_len = "100"
+description = "the best 100 Mohanlal Quotes"
++++
+- I don't prepare for my characters.
+- I have done films in Tamil, Telugu, Kannada. I don't find any difference.
+- I have a fairly good collection of paintings, both classical and contemporary.
+- Morality depends on individual freedom, and it requires some sense to know where to draw the line.
+- I studied, gained friends, became a father, faced the clipboard unexpectedly for the first time, earned some beautiful moments with family and buddies in Thiruvananthapuram.
+- When I have something to say or share with my viewers, I turn to my blog, and even then, I make it clear that it is my take on certain events.
+- For an actor, it is great to have fans.
+- It's my right to write on what I feel about certain incidents, and it's your choice whether to read it or not.
+- As an actor, we can only do what the director wants. Only the director has a vision of the entire film.
+- It's not enough that you act in a movie - if it has to work, the audience should like it.
+- There's this tendency to be held in great esteem if you are judgmental. A sort of moral policing, being opinionated. What right has one to act like judges? What right has one to police another?
+- I don't get bored at all while acting.
+- Acting is only my profession.
+- No amount of praise should go to your head. You should always remain humble.
+- 'Company' has become a cult film. When people see me at the airport, and when I travel, they call me 'Companywala.'
+- Just like films, food is also a passion for me.
+- India has a law. The political parties or the religious heads have no right to control that law.
+- In the Indian system of filmmaking, you don't plan well in advance, stick to a storyboard, or deliver only the scripted lines.
+- When I was in school, I used to go to the Pangode army camp, a stone's throw away from where I was staying in Mudavanmugal in Poojapura, just to watch the army parade.
+- If I had not made a film like 'Vaanaprastham,' I would not have been able to go to Cannes or any other festival. I would not have had a chance to act as a Kathakali artiste. I would not have had a chance to be with some of the greatest Kathakali artistes. I consider all this my good fortune.
+- I have never, ever argued about money with any of my producers because that is the kind of relationship and understanding I have with them.
+- I believe that football can inspire youngsters to find the path of success in life.
+- Cinema has given me everything in life, and I will continue acting till the end.
+- Life is not about acting in films alone. There are so many things in life other than films and acting.
+- Cinema is an art form, a result of dedication of a number of people.
+- If my co-stars perform better, I perform better.
+- Robert de Niro is my favourite actor.
+- Friendship is accepting a person with all their qualities - good and bad.
+- I used to act in plays when I was in school and college, but you cannot say that I was passionate about acting. I was only interested in being a part of the group, and the group was passionate about filmmaking.
+- Happiness is not merely a word. It is a state of mind.
+- Good films will happen only if there are people to produce good films and there are people to encourage the endeavour.
+- I was in school when 'Sholay' was released. I think recreating a film like that is a good idea.
+- I never argue with any director. When they say something will click, I believe them.
+- All my success belongs to those who have contributed in my pursuit of art, ranging from writers and directors to makeup artists, lighting crew, etc.
+- I want to do roles that no one else has ever done, which I know is difficult.
+- I was not the producer of 'Vaanaprastham' earlier. The first producers backed out when they became doubtful about the monetary benefits. I do not blame them. But as an actor, I wanted to make the film. So, I told Shaji sir that I would produce the film. It was only then we started shooting.
+- I never ever aspired for anything in life. I don't believe in planning or yearning for something very strongly. If something has to happen, it will happen.
+- Sometimes, you fall into a ditch without knowing it is there, without seeing it, but you try to come out of it. If you fall again, you will jump out again.
+- In developed countries, strong rules are in place to restrict sound pollution and curb its deadly effects. As law-abiding citizens with social responsibility, we should all come together against this unhealthy trend.
+- I have learned to take things as they come.
+- Even when I was young, I never felt extreme feelings.
+- There comes a turning point in the life of every person when he reflects on his journey and work and ponders on the next road to take. Is this the pinnacle, the ultimate? What next?
+- All my films can't be like 'Narasimham.'
+- If you are a very ordinary human being, nothing affects you, nothing bothers you, and nothing troubles you. That's how I live my life.
+- Nothing was planned in my career.
+- I feel there is an unknown energy pushing me to do certain things in life.
+- I acted in my first film while in my second year of degree college, in 1978.
+- My first film was 'Thiranottam.' I cannot discount that film because I got initiated into films with it.
+- I love to take some holidays. In fact, I am a guy who wants to take a break for at least 10 days after each movie.
+- Destiny plays a very important role in my life.
+- The thing about movies is that till it goes on floors, it's just preparations for the film.
+- The entertainment industry is humungous, and people have so many choices right now - they can watch web series, movies, stand-up comedies, and plays.
+- Films are not meant to be watched only by fans but by everyone. Fans are those who like what we do. When we do things that only they like, then we are becoming their fans.
+- To me, only the filmmaker and the role matters.
+- I use my hands a lot while acting.
+- For me, every film is an interesting experience.
+- You feel hurt when you hear things which you are supposed to have said, which you wouldn't even have given a thought to.
+- There is no big problem in the Malayalam industry. You shouldn't think of the #MeToo as a movement, actually. It is a fad, and it is turning into something of a fashion. Anything like that will have a lifespan for a bit.
+- My roles have given me a lot of satisfaction. I became many individuals who were so different from me and whose experiences were so different from mine. I could experience all their emotions, their pains, their worries, their happiness.
+- Acting is my profession; I enact all roles with sincerity.
+- I own a couple of restaurants in places like Dubai and Sharjah.
+- There was a time when not many people had access to Malayalam films. So those who did have access went on to copy the films, add a few bits, and present it like it was their own.
+- In most films, when we act, we don't see such meanings in what we do. Rather, we don't realise it. Only when we see it as a continuous film later on do we realise such deep meanings. That is the brilliance of the director.
+- A film will be a hit or a flop in spite of my worrying about it.
+- People know I am not blind or have super strength, yet they believed in my characters in 'Oppam' and 'Pulimurugan.' It's that belief of the audience that is also my greatest strength. Once that is gone, I might have to shut up shop and look for another job.
+- People want to see other's secrets and get a peek into their lives.
+- Be it cinema or TV, I have always been interested in taking up challenging projects.
+- Death can come at any time to anyone. Everybody is equal before death.
+- Priyadarshan has directed over 84 films and more than 150 ad films. With every film, he is growing. He knows his job well; he is thorough. His way of making a film and song or choreographing a scene is entirely different from other directors. He knows how to use an actor's talent and how to handle an actor.
+- Every actor or director has their ups and downs.
+- Digitization has altered the nature of the film industry. Social media, especially, has become a decisive factor in determining a film's box office success.
+- I know it's a craze in Bollywood to have six-pack abs, but here, it's not the abs or the biceps that make us feel or look macho. Down south, the moustache still works for us!
+- Every actor, director, and producer want all their films to do well. So you choose the role carefully, listen to the script, and work hard. But there is no way of predicting whether it will be a hit or a flop.
+- When I started acting, I did many films without even an idea of what the script was about. The film would start, and then we would discover what we were expected to do on the sets. Those days have changed.
+- 'Oppam' is more of a director's movie, especially because I play a visually-challenged hero in it. The character doesn't have a perspective, and so cameras aren't placed like how they are usually done in other movies. The angles and the way the scenes are captured are different.
+- I generally have confidence in my directors.
+- I can never forget my first film - it was instrumental in me becoming an actor.
+- Kunjali Marakkar is one of the first naval commanders of Kerala. He was an expert at his craft.
+- I have been lucky enough to portray many, many characters.
+- We tend to have so many more close shots, which compels an artist to actually put in more effort than it is required otherwise. So, it is the expressions on the face, and how an actor presents his or her character, that really makes a scene. In such ways, Mollywood is a fabulous training ground for actors and actresses from other industries.
+- Life is a collage of events, really.
+- I have been writing my blog for several years. Whenever I have written about pertinent subjects, no one has supported them. For instance, the stray dog menace. I cycle in the morning every day, and I am still scared of stray dog attacks.
+- I work, or spend much of my time with the same friends who were with me right from my first movie.
+- I don't hope for anything. Not only in my professional life, but in my family life also. My total lifestyle is like that.
+- I liked the concept of 'Lucifer.'
+- Somebody has to make good artistic films. Somebody has to break open the doors so that others also will follow and make good and meaningful films.
+- TV has the most reach among the audience. Movies are watched only by those who like cinema.
+- Being an actor doesn't mean that I can't react to what's happening around me.
+- I have a shot a lot of movies in Dubai.
+- Many talented actors have come into this industry and, in spite of their best efforts, haven't been able to win over the audience.
+- I was into movies before my graduation results got out. In fact, I was on location of a movie when they came.
+- I do all my films happily, and I enjoy every moment of it.
+- You cannot judge the performance of an actor in isolation. A performance becomes good because of so many factors, including the other actors.
+- I don't think I'm unduly extravagant.
+- I have seen 'A Wednesday,' and it is a wonderful film.
+- If you ask me whether I can direct, I can. In fact, I have shot several songs, scenes and stunts. When certain directors of my movies were not able to be there for some reason and had asked me to help out, I have directed. But to helm an entire movie is a different art altogether.
+- It's a great honour for me to be a part of a Kamal Haasan film.
+- Once the director calls for action, we act; we stop when he says 'Cut.' It is sort of like meditation - unknowingly, you are moving out of yourself, becoming someone else. That is why I consider acting a form of meditation.
+- Priyadarshan makes good films because he is a good writer.
+- Even in Hollywood, filmmakers are re-creating classics at regular intervals.

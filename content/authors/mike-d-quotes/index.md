@@ -1,0 +1,95 @@
++++
+author = "Mike D"
+title = "Mike D Quotes"
+quotes_len = "89"
+description = "the best 89 Mike D Quotes"
++++
+- LCD Soundsystem - they put the drummer in front. I always thought that was cool. Because the drummer is usually the guy in the back.
+- Growing up in New York City and hip-hop are two inseparable things, two things that are totally intertwined in our lives.
+- We never set out to be superstars.
+- What a lot of the world missed was just how caring New York became post-9/11.
+- I'm in need of a man apron. A very manly apron.
+- Denver and Boulder are good record-buying cities. I don't know why.
+- No Catholics in my family.
+- When you get to a point where you're not beholden to a record company, then it's up to you to say, 'OK, enough knob-turning. We're done.'
+- We have rocked the ozone radically, man. They could probably fix the ozone if everybody stopped what they were doing and they put some cement up there.
+- We have not been able to tour since MCA, Adam Yauch, died.
+- When I was growing up in New York, we were the anomaly. Our family stayed, but back then families didn't stay. Once you had a second kid, you immediately left, so the kids could run around outside.
+- Obviously, there are moments that you look back at and cringe - things in the past involving violence or disrespect to women or disrespect to other people that are so far away from what I want to put out there now. But it's actually a privilege to be able to change and be making records that reflect that change.
+- Yauch was a gifted MC.
+- In the time we made 'To the 5 Boroughs,' there was a political seriousness because of what was happening in the world.
+- With '5 Boroughs,' we were each working on beats, sitting in front of our laptops and samplers.
+- I kind of idolized older punk-rock and hip-hop bands, and I was, like, 15 when I started the Beastie Boys. And what business did we having doing that at that age?
+- LL Cool J is very well known in Hollywood. He's an established commodity across several platforms, including motion pictures.
+- It might shock you, but I haven't been to that many fashion shows, and I'd never done a commissioned piece for a fashion house.
+- I'm really kind of a little bit romantic for the lost era. There's a lot of us that are - kind like James Murphy, same thing - we feel like it's this magic era that happened before us. And it wasn't even necessarily disco.
+- Mr. Philippe Zdar is a little bit like the uncle of the whole Daft Punk-Phoenix-Air thing in Paris and known for being in the group Cassius. It was interesting working with Philippe.
+- New York isn't segregated the way many American cities are, where there are specific ethnic neighborhoods that don't necessarily co-exist, or they co-exist but in a much separate sense.
+- That's the thing with all of us music geeks - music is the soundtrack to the things that happen in our lives, and there's music that's unique to that movie.
+- I'm the first to admit that we were totally dependent on a particular place and time... for us, seeing Minor Threat at the CBGB hardcore matinee was just as necessary a force in our lives as the Treacherous Three at Club Negril or the Funky Four + One More at the Rock Lounge.
+- I'm always careful to even guess, at any juncture, about things before we do them.
+- Each time you present a tour, you're faced with these questions of, 'How do you want to present visual information? How do you want to take the music that we're making on stage and visualize that?'
+- For me, growing up in New York, it started with Elvis Costello and the Clash and then got into louder things like Bad Brains and Stimulators, because those were, like, the local bands. Then I started getting into bands from England like the Slits. I remember seeing Gang of Four at Irving Plaza; that was a really big show for me.
+- Dub has been a big influence in terms of production. It's inspired so many people and so much music - in terms of music where mixing desk was the instrument. Central to that is the echo chamber, and I think there's a little bit of a romantic thing there.
+- Things change. I used to have a real resistance to it and hold on to things, but let things happen and go with it, and you will actually go through it, and it's a lot less stressful.
+- Real life is much stranger than fiction, man.
+- It's really hard to find a lot of things that rhyme with Michael Diamond.
+- I guess when time came to make 'To The 5 Boroughs,' we had something important to say.
+- If people pay money to see you, they have to cheer. They can't boo, or else they're chumping themselves.
+- The initial notion for 'Check Your Head' was just all three of us getting back to playing instruments.
+- Music is more available than ever. It's up to people to figure out. Ultimately, it's up to the business to figure out what the business is, monetizing that.
+- My parents were very, very good about not separating us as kids from their adult friends. So on any given night, we'd have, like, this kind of freak show - artists and art dealers coming over. And these are the people I feel like I learned from.
+- Arrogance generally is a bad thing, but with a band, somehow you have to have this gang mentality or this certain degree of arrogance to push forward an idea that's new enough that people aren't comfortable with it at first.
+- I was showing up at the studio all the time with no bag, being like, 'I don't want to have a backpack. I've had backpacks my whole life, and I'm a grown man now. I should have something better.'
+- Leaving Def Jam was kind of a blessing in disguise because we can make whatever record we want.
+- We do not let our music get used in commercials for commercial products.
+- What would've been the downside of holding bin Laden accountable by our own values of justice by which our country is based on?
+- I don't like the George Costanza-style wallet.
+- Hopefully everybody in the audience thinks, 'That's cool. I could do that.' I don't like the thought that they say, 'I saw the Beastie Boys last night, and they're mega-stars.' I'm a lot happier when the kids who come backstage or to the hotel try to give us tapes of what they've done instead of just getting an autograph.
+- All the music I listened to in high school that I loved and that moved me wasn't the same music other kids were listening to in school. I got into punk rock and new wave, then dub and hip-hop.
+- Having to wake up at seven and go take the subway every morning, having to get over there with all these commuters and see every possible face of humanity and realizing that you're just the same as these other people is actually an amazingly positive thing.
+- L.A. is a town built upon segregated, individual fantasies.
+- I don't know - the idea of a specific wine paired with a specific piece of music seems a little far-fetched to me. But maybe I just need to be opened to it.
+- We are exercising our constitutional right to be fresh.
+- Wine needs to have a context in a social gathering to fulfill its historical place in this world.
+- The bottom line with a lot of bands that funk is being applied to is that they don't really listen to funk and aren't versed in funk. Like, you know, Gordon Lightfoot.
+- Food was always a focus for us, lyrically.
+- At the time, I was living pretty close to Ground Zero. I had to grab some necessary equipment, put it in my backpack, and flee the immediate proximity on my bike.
+- The amazing thing about music is that however many thousands of records I've got now, I know that there are still thousands more that I haven't even begun to discover.
+- When you start rhyming, it's hard to find things that rhyme with Yauch, Horovitz and Diamond.
+- It's what happens when you've been in the game a long time. We had to grow up in a very public way.
+- If it's genuinely new, when people are hearing it, they're not really gonna be comfortable because they haven't heard it a thousand times before.
+- We just have to be careful of our actions as world citizens.
+- I know for myself, and maybe I'm weird or whatever, but the whole thing is about constantly redefining identity.
+- When Yauch died, it was really like losing my older brother. I mean, I have biological older brothers, but growing up, Adam really was my older brother.
+- Maybe some people, when they sit down to write their great novel or make their great record or paint their great painting, they have it all planned out in their head. But for me, it's never worked that way.
+- Every vote matters.
+- When I first became aware of music, it was probably the same way a lot of people do - even more suburban or rural people - from my older brothers playing music.
+- We're banned from a whole lot of hotels, and we're running out of hotels we can stay in.
+- I feel no compunction to defend L.A. People criticize it, and for the most part, it's well-founded.
+- Most interviewers basically just want us to rephrase the bio. You already know us - why do you need to interview us?
+- On 'Check Your Head' and 'Ill Communication,' most of the lyrics are much more, 'OK, you take that, and I'll say that' - they're split up.
+- I don't think about Yauch in the form of his death. I think about him in the form of his life. He was like my closest older brother. There's just so much that we lived through together.
+- For 'Paul's Boutique,' we had a lot more money and a lot more time. It was definitely more on our own terms.
+- I have an equal amount of patience as my grade-school children, which is not great.
+- I wanted to create this dialogue between music and visual art and vice versa. No matter what part of the spectrum they fill, whether it's visual, music, or whatever, artists are interested in other art forms. Your brain is already kind of firing in that way.
+- We make all the decisions on our records... We have complete veto power.
+- I was going to clubs in Manhattan when I was 14.
+- For a dude, I think I do cook. I'm a stay-at-home parent a lot of the time.
+- What was interesting about grunge was that it was this death sentence to the rock that had preceded it, which was hair metal.
+- To me, the whole thing with the roots of rap music was when the DJ had to supply all the music for the group with two turntables. And the whole criteria of what that DJ would use had nothing to do with what type of band made a record.
+- Wine is similar to music in that it's a purely experiential realm, and it's a purely subjective practice. That's sort of the funny thing about wine criticism or, for that matter, music criticism. At times, those are useful guides, but ultimately it's all about how you react to that music or wine.
+- There is an overall seriousness in tone that pervades 'To The 5 Boroughs.'
+- We're downtown New Yorkers and had very close proximity to the events of September 11th. Like everybody on the island of Manhattan, we were impacted by it in so many ways in terms of what we saw, what we felt, what our daily experience became in the wake of it.
+- I grew up with a clock radio next to my bed.
+- London cabs always dis me. I purposefully give them a good tip because I'm trying to straighten up the image where they don't want to pick up some shady-looking, bummy kid like myself. I'm trying to teach them that if you pick up the bummy-looking kid, you still get tipped, man. But they still jerk me around.
+- I don't know if it's just me getting older or if it's a reflection of times changing, but it just seems to me like among most of my friends and peers, there's a lot more time being spent at home than out.
+- I do really enjoy Jay McInerney's wine writing. He's a good writer. He brings his fiction-writing skillset. He's not afraid to put wine in kind of a racy context and speak very candidly about it.
+- Lofts are great. But with a home, there is a lot to be said for delineated space. To have the luxury of a little separate work space is huge - and to have the dream-sequence master bath.
+- We're kind of doing what Bob McAllister did with 'Wonderama,' which is making people realize that kids are people, too.
+- Japan is brilliant for vinyl. There's all this rare stuff that I've been looking two years for, and you walk into a store, and you find it straight away.
+- Thinking about the cold weather in England... Don't be afraid to rock the David Niven look.
+- It's never been our intention to sell millions of albums, but if our message touches that many people, then so be it.
+- I remember going to the East Village for the first time as a fifteen-year-old and going to Tompkins Square Park. That really seemed like a pretty edgy thing to do.
+- We're doing what we want to do, and that's why the kids respect us.
+- I was a nerdy punk-rock kid.

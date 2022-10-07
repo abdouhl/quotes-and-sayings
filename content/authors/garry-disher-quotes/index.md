@@ -1,0 +1,14 @@
++++
+author = "Garry Disher"
+title = "Garry Disher Quotes"
+quotes_len = "8"
+description = "the best 8 Garry Disher Quotes"
++++
+- Delaying and withholding tactics, red herrings, partial and doubtful outcomes are stock in trade for fiction writers, especially crime writers.
+- At one level, an award is an endorsement, a confirmation, but I always find myself looking askance at awards and good reviews, as though another Garry Disher had earned them.
+- To be a writer, you must be a reader, yet as many as 30 per cent of my writing students were not readers.
+- I grew up in a house full of books, and we belonged to the Country Lending Service - each month the State Library would send us a parcel of books by train.
+- A good writer can set a thriller anywhere and make it convincing: the trick is to evoke the setting in such a way that it highlights the crime or unsettles the reader.
+- Chopper Read attended a writing school I gave for inmates at Risdon Prison in Hobart many years ago. Even if I hadn't known about his hacked-off ears and his criminal history, I'd have found him powerful and compelling.
+- From my years of teaching creative writing, I know that new writers take the setting for granted, as simply a place to set the action, but setting is a vital element in fiction writing and deserves serious treatment.
+- I have no favourite genre or style but treat each novel with the same care, imagination and craftsmanship. It's as difficult to write a crime or a children's novel with a touch of style and grace as it is a literary novel.

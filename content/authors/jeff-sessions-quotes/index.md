@@ -1,0 +1,97 @@
++++
+author = "Jeff Sessions"
+title = "Jeff Sessions Quotes"
+quotes_len = "91"
+description = "the best 91 Jeff Sessions Quotes"
++++
+- At a time when this country needs a good military, the last thing we need to be doing is turning out of our military of people who served and then bringing in people who are illegally in the country.
+- Well, first of all, let's go right to it. We're going to balance the budget. We should live within our own means, and we should read the bills and work with the American people.
+- I have never used the word 'boy' to describe a black, nor would I tolerate it in my office.
+- I do believe we have voter fraud in America.
+- My previous 15 years working in the Department of Justice were extraordinarily fulfilling. I love the Department, its people and its mission. I can think of no greater honor than to lead them.
+- I remain deeply concerned about falling wages and the lack of good jobs for Americans. Too many of our citizens are either stuck in place or falling behind, and too often their needs are forgotten.
+- Hybart is a little community I grew up in, so it was just a wonderful time in those years.
+- I'm often loose with my tongue. I may have said something about the NAACP being un-American or Communist, but I meant no harm by it.
+- It is not legitimate that an American citizen feels that they are more likely to be arrested or held to account or stopped and searched than someone else simply because of the color of their skin.
+- If we can get this economy moving and quit doing the things that prohibit growth, Alabama... can sustain that growth.
+- In retrospect there were failures enough to go around. There were failures before the storm and failures after the storm.
+- Our nation needs to say clearly once again that using drugs will destroy your life.
+- Even moderates, they can see in Trump the potential to have logjams broken and things finally get done. This makes some conservatives and some liberals furious, nervous, and me nervous a little bit, because I'm a pretty pure conservative. So that's a potential of his leadership.
+- The goal of this Nation, I so strongly believe, is to be a preeminent world power. We have to understand what comes with that: The responsibility to be strong.
+- Iraq assumes responsibility for its own future... They have got to step up.
+- I'm a big fan of the DEA.
+- Scripture says, 'He didn't know the Lord, didn't respect the Lord, but the Lord used him to advance his kingdom.' I just believe that at this point in history, Trump will defend religious faith. I talk to him about that.
+- Bin Laden, who was in his country, attacked and damaged our Pentagon, and killed our soldiers right out here at the Pentagon. But his pentagon no longer exists. It is rubble.
+- We have a lot of bad leaders around the world that operate in ways we would never tolerate in the United States.
+- This country does not punish its political enemies. What this country ensures is that no one is above the law.
+- Donald Trump is right. We need to figure out a way to end this cycle of hostility that's putting this country at risk, costing us billions of dollars in defense, and creating hostility that should not exist.
+- I am pleased to endorse Donald Trump for the presidency of the United States.
+- All soldiers who serve their country and put their lives at risk need to know that if something happens to them, their families will be well taken care of. That's the bond we have with our military men and women and their families.
+- Legal immigration is the primary source of low-wage immigration into the United States.
+- You know the discrimination: African-Americans couldn't go to certain schools, they couldn't use certain restrooms, there were other kinds of routine biases against them.
+- We have a toxic ideology, hopefully very small, within Islam; certainly most people, most Muslims, don't agree with this violent, jihadist approach.
+- If we want an international trade deal that advances the interests of our own people, then perhaps we don't need a 'fast-track' but a regular track: where the president sends us any proposal he deems worthy, and we review it on its own merits.
+- The elite denizens of Washington and Wall Street scorn and mock the good and decent people of this country for wanting their laws enforced and their communities protected.
+- I like to discuss things. I am open: I like to discuss with liberals better than I do with conservatives.
+- My belief is that the nation-state remains the one entity that can function, the one entity that can demand sacrifice from its constituents in the national interest.
+- Congress has taken an action now that makes it absolutely improper and illegal to use waterboarding... or any other form of torture by our military and by our other departments and agencies.
+- We need to resist the temptation to create more entitlements and more entitlements, which is one of the reasons we are heading recklessly toward fiscal crisis.
+- It is a core principle that prosecutors should charge and pursue the most serious readily provable offense.
+- I think it is likely that within every department there are some officers who subtly, if not otherwise, are biased in the way they go about enforcing the law. I think that is just life. We know that to be true.
+- After years of mass immigration, falling wages, and surging joblessness, isn't it time we focused on the needs of the people living here today? Isn't it time we got our own people back to work?
+- Know when cities and states refuse to help enforce immigration laws, our nation is less safe.
+- The basic social contract is that citizens agree to follow the law, pay their taxes, and devote their love and loyalty to their country, and in exchange, the nation commits to preserve and protect and serve their interests, safeguard their freedom, and return to them in kind their first allegiance and loyalty.
+- Trump has a way of driving a message so people hear it.
+- You pay a price when you have an objective sentencing system. That is, nothing is perfect.
+- Honest people can disagree on policy. But where there can be no honest disagreement is the need to change our nation's debt course.
+- The United States has the burden to lead for peace. And not just peace - we need peace with justice, a much harder goal.
+- I couldn't vote to confirm any candidate who supports executive amnesty. The attorney general is a top law enforcement officer in this country - the senior person - and anyone who occupies that office must have fidelity to the laws of the United States duly passed, and to the Constitution of the United States.
+- I did not have any private meetings nor do I recall any conversations with any Russian officials at the Mayflower Hotel.
+- How many thousands of lives would be saved if we enforced our immigration laws, our guns laws, and our drug laws? Public safety is not being held hostage by the 'gun lobby,' but by the open borders lobby and the anti-law enforcement lobby.
+- I am humbled to have been asked by President-elect Trump to serve as Attorney General of the United States.
+- It's not so much the attorney general's job to decide what laws to enforce. We should do our jobs and enforce laws effectively as we're able.
+- Drug trafficking is an inherently dangerous and violent business.
+- The elites have become international, and they've ceased to have a primary loyalty to the nation-state.
+- I recall saying that civil rights organizations, when they demand more than is legitimate, it hurts their position.
+- The largest untapped constituency in American politics are the 300 million American citizens who have been completely left out of the immigration debate.
+- I told Donald Trump, 'This isn't a campaign, this is a movement.' Look at what's happening. The American people are not happy with their government.
+- We can't do everything with a budget, but we can put the country on much sounder financial footing.
+- Every senator needs to stand up and represent their constituents - not big business, not the ACLU, not activist groups, not political interests, but the American interests, the workers' interests.
+- I have supported civil rights activity in my state. I have done my job with integrity, equality, and fairness for all.
+- I certainly believe that improving our intelligence is of important national interest.
+- Donors don't win elections; voters win elections.
+- All of us who work in law enforcement want to keep people safe. That is the heart of our jobs; it is what drives us every day.
+- I will not vote for - and no senator should vote for - anyone who will not render justice impartially.
+- The proven method for saving the lives of innocent Americans is not disarming them. The proven method for saving the lives of innocent Americans is to arrest, prosecute, convict and jail criminal offenders, especially armed career criminals illegally using guns. This is the way to reduce gun violence.
+- Congress has the responsibility to ensure that any international trade agreement entered into by the United States must serve the national interest, not merely the interests of those crafting the proposal in secret.
+- The caricature of me in 1986 was not correct. I do not harbor the kind of animosity and race-based discrimination ideas that I was accused of. I did not.
+- In America, the Supreme Court and the American people believe no one is above the law.
+- It is clear that IDEA '97 not only undermines the educational process, it also undermines the authority of educators.
+- As Washington prospers, workers suffer.
+- I cannot and will not violate my duty to protect confidential communications with the president.
+- I enjoy repartee and frequently engage in devil's advocacy. In short, when I talk to friends, I do not guard every word that I say because I think that I know they know that my commitment to equality and justice is real, and they would not twist my words or misinterpret what I am saying to them.
+- It is time to stand strong for the American people. It is time to champion the interests of those constantly neglected on the question of immigration: the men and women and children we represent - the citizens of this country to whom we owe our ultimate allegiance.
+- I think people are free to marry any way they want to. But churches are free to set standards for marriage.
+- Whereas the handling of the case against President Nixon clearly strengthened the nation's respect for law, justice and truth, the Clinton impeachment may unfortunately have the opposite result.
+- I worry that we risk losing the hard-won gains that have made America a safer and more prosperous place.
+- All of us know that when the confidence of a private conversation is breached by a party with ulterior motives or one who simply misunderstands what the speaker says or means, the speaker can always be embarrassed.
+- I am not the Jeff Sessions my detractors have tried to create. I am not a racist. I am not insensitive to blacks.
+- Every day, lax sentencing costs lives.
+- The American people should be the one to decide which direction the Supreme Court will go.
+- Is our national goal to place as many people on welfare, food stamp support, as we can possibly put on that program? Is that our goal? Is that a moral vision for the United States of America, just to see how many people we can place in a situation where they're dependent on the federal government for their food?
+- The question is, can we have a more peaceful, effective relationship with Russia, utilizing interests that are similar in a realistic way to make this world a safer place and get off this dangerous hostility with Russia.
+- Marriage has been defined by every legislature that has ever sat in the United States from every State, now 50 States, the same way, but now we have unelected judges altering and changing that fundamental institution.
+- The massive debt we have racked up to finance our wasteful government is pulling down growth today. Gross debt over 90 percent of GDP weakens growth now. Not tomorrow - now.
+- I do think it's a real problem when we have 'Black Lives Matter' making statements that are really radical, that are absolutely false.
+- The job of elected officials is to answer to the people who sent them to Washington - not to scorn them, not to demean them, not to mock them, and not to sell their jobs and dreams to the highest bidder.
+- My great-great-great-grandfather or something, I think his father came before him; but, in the 1840s, he was a circuit-riding Baptist preacher.
+- We are in a movement that must not fade away. The bosses are you. The people in Washington are public servants, and they serve you.
+- Republicans do not believe in identity politics.
+- You don't have a constitutional right or a moral right to demand entry into any country.
+- I think it's clear to me that what - when I look at the tea party, it's about one-third Democrat, one-third Republican, one-third independents. But 100 percent of them are sure that the agenda that is taking place in Washington, D.C., is about extremism and is about bankrupting this country and every state within this country.
+- Failure to deport aliens who are convicted for criminal offenses puts whole communities at risk - especially immigrant communities in the very sanctuary jurisdictions that seek to protect the perpetrators.
+- My father never ran for office or supported anybody for office, and was not engaged in that at all.
+- I think we have a high responsibility to base any criticisms that we have on a fair and honest statement of the facts, and that nominees should not be subjected to distortions of their record, taking things they've done out of context.
+- You do not walk into any hearing or committee meeting and reveal confidential communications with the president of the United States, who's entitled to receive confidential communications in your best judgment about a host of issues.
+- I was the youngest of about nine boys in the neighborhood, and we played ball all the time, and I looked up to them, and they let me play around with them, and we just had a good time.
+- The Senate cannot confirm an individual... who would support a scheme that violates our Constitution, eviscerates congressional authority.

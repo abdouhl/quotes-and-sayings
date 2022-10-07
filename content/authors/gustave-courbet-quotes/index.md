@@ -1,0 +1,16 @@
++++
+author = "Gustave Courbet"
+title = "Gustave Courbet Quotes"
+quotes_len = "10"
+description = "the best 10 Gustave Courbet Quotes"
++++
+- The expression of beauty is in direct ratio to the power of conception the artist has acquired.
+- When we see men of worth, we should think of equalling them; when we see men of a contrary character, we should turn inward and examine ourselves.
+- France is the only nation in which astoundingly small numbers of civilized patrons reside.
+- Painting is an essentially concrete art and can only consist of the representation of real and existing things.
+- Fine art is knowledge made visible.
+- Painting is the representation of visible forms. The essence of realism is its negation of the ideal.
+- The beautiful is in nature, and it is encountered under the most diverse forms of reality. Once it is found it belongs to art, or rather to the artist who discovers it.
+- Beauty, like truth, is relative to the time when one lives and to the individual who can grasp it. The expression of beauty is in direct ratio to the power of conception the artist has acquired.
+- I hope to live all my life for my art, without abandoning my principles one iota.
+- I am not one who was born in the custody of wisdom; I am one who is fond of olden times and intense in quest of the sacred knowing of the ancients.

@@ -1,0 +1,68 @@
++++
+author = "Jagapathi Babu"
+title = "Jagapathi Babu Quotes"
+quotes_len = "62"
+description = "the best 62 Jagapathi Babu Quotes"
++++
+- In 'Legend,' I was burning with ego. In 'JJN,' I am playing someone who can die for his prestige.
+- I am happy that my 30 years as an actor has been completed by 'Goodachari.'
+- With my debuts in Tamil and Kannada, I have opened more doors for myself.
+- We need to be our natural selves.
+- Jai Bolo Telangana' did very well and I am happy about that.
+- If I trust a director, I don't even listen to the script.
+- The Kannada industry is a good place to work in and I have a huge fan following with people over there appreciating me and my films.
+- If people are a little more selfless, I am sure we can contribute a lot more to the green revolution.
+- I like change.
+- I want to satisfy my audience.
+- When I played the lead actor, it was a stressful job right from the starting to the release of the film. I even used to put in money from my pocket for a few films. But once I accepted the negative role, filmmakers started writing different kinds of roles for me.
+- I never made a fortune by defrauding others.
+- We have four good film industries in the south and language for us is no barrier.
+- We can't compare 'JJN' with 'Legend,' but I hope the film will bring me an as much good name.
+- I'm more keen on roles that have a lasting impact even if I get only a minute on screen.
+- India needs honest bureaucrats; most officers in the system are corrupt.
+- Different characters help you grow in cinema.
+- Although I and RGV had been friends for years, it was in 'Gayam' that he cast me as he believed in me.
+- There is a long-lasting strong bond between me and Venkatram garu.
+- Life is all about learning and growing as we go along.
+- I am careful with my diet, but at the same time, I regularly meditate and do yoga early in the morning. That's the only reason for my fitness.
+- In 'Chattam,' the climax was good and that was enough for the film. But the film was not promoted well.
+- In 'Gayam,' I didn't act. RGV took care of me. In 'Goodachari,' I at least did some acting.
+- When 'Legend' came to me, I was down. I thought my career was over.
+- What I thankfully realised in time is that just being a commercial hero means the market is limited.
+- Actually, I want to work in all the languages in India, even if there is no money in some of the industries, like Bhojpuri, for instance. I like travelling, I like doing other films, checking out technicians and working with actors in different film industries. This is my plan.
+- People still love me as a family man.
+- Just as a doctor is important for saving lives, every IAS officer is important for societal development; he's like a messenger sent by God to serve the public.
+- It's Chiranjeevi garu who gave the clap to my first shot. It was a risky shot. After doing it, I told myself that a star was born. Only later did I realize that it was a flop star who was born that day. I had 10-12 flops for the next few years.
+- Usually, I like to play sophisticated-looking characters. I want to do 'Godfather'-like characters. Given my voice and style, such characters will be apt for me.
+- Let us be truthful to ourselves and the public.
+- I am going to do films till the end.
+- Having portrayed a lot of villainous characters in Telugu cinema, voicing Scar was a different and memorable experience for me, and I was glad to be part of such a grand big-ticket entertainer. Disney films are a perfect package for the entire family and I hope to lend my trademark style to 'The Lion King' as well!
+- I always believed life is simple and you have to take it as it comes.
+- I have faith in myself.
+- I used to have worries about my film releases and I used to pay money just to get them released.
+- The only reason I took up a negative role in 'Lingaa' was because I got to work with Rajinikanth. I'd never have even considered it otherwise.
+- If every civil servant does his job perfectly, then I am sure the world will be a better place.
+- I have played a terrorist in 'Goodachari,' a feudal lord in 'Rangasthalam' and a factionist in 'AS.' The variations in all these characters are so different. It's only because of my directors that this was possible.
+- I am not a superstar to recommend a particular actress as the lead opposite me.
+- I believe in friendship over money and that's how I lost a lot.
+- I am not the hero of this film. It is Lakshmi Narasimha Swamy. The story is related to him. That doesn't mean that 'Kshetram' is a devotional subject. The climax scenes will have the audience in tears. No, it is not a sentimental drama either. Devotional values have been interspersed with commercial elements in this film.
+- When I consider a part, I understand that it will not be as important as that of the hero. My only criteria is that it has significant potential, at least that of a second-in-command.
+- Although I've watched most of Spielberg's films, I haven't watched many animated films. I prefer reality over animation.
+- Anybody can be killed by Covid-19.
+- There is a dearth of proper producers in the industry.
+- Actually, being a hero is not easy. You have to dance around trees, not to mention all the odd and unnatural things you have to do.
+- I feel that the industry takes time to recognise local talent. It usually looks for artistes who are difficult to reach and don't usually approach local artistes who are available.
+- Chennai has been my home for many years and I am comfortable here.
+- My plan is to give new ideas to writers. They will come up with new subjects keeping me in mind.
+- Even though my father was a producer, I had to struggle a lot in the industry. There are many days when I wept.
+- I am a bad businessman who would make a bad producer.
+- I am not calling 'Aravindha' a wise movie because it's a blockbuster.
+- I like to break the rules once in a while.
+- Nothing wrong in taking more money.
+- Once I started 'Nagaram Nidrapotunna Vela' I had to finish it. I made a wrong decision. I knew the film would be a flop and told the producer so. Everyone failed - director, producer and all.
+- Legend' is a stylised film. The character I play is a complete egoist. He cannot tolerate anyone touching him or slapping him. Whenever anyone antagonises him, he becomes cruel. That's how the 'war' between the hero and him starts. It's a solid meaty break for me!
+- It feels nostalgic and emotional to shoot with Ilayathalapathy Vijay as it rekindles some beautiful memories of how his father SA Chandrasekhar and my father VB Rajendra Prasad teamed together to make some good films.
+- At one point of time, I was jobless, and was too lazy to even trim my beard and dye my hair. I let them grow, without any conscious thought of doing so. That's when I decided to do a photoshoot, and well, you won't believe this, it worked big-time for me.
+- Steven Spielberg is a big name in the Hollywood Industry and to be associated with a film that he has made is truly an honor for me.
+- If an artiste doesn't turn up on the sets on time, I will lose my cool.
+- A good director will always identify the actor whom he wants to work with.

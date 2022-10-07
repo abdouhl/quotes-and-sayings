@@ -1,0 +1,43 @@
++++
+author = "John Varvatos"
+title = "John Varvatos Quotes"
+quotes_len = "37"
+description = "the best 37 John Varvatos Quotes"
++++
+- Music has always been a dominant force in my life. As a young kid, it was a way for me to escape everyday life.
+- When I started working in fashion, I didn't have money to buy photographs, so I'd Xerox pictures from magazines and put them in notebooks. When I'd start a collection, I'd sit with my old notebooks and look through them for inspiration.
+- I wasn't into pop music, even at a really young age.
+- My passion in life, besides my family, was always music. From the time I was a kid, I was obsessed. I'm like the ultimate fan.
+- There's rock n' roll in hip-hop, there's rock n' roll in pop music, there's rock n' roll in soul, there's rock n' roll in country. When you see people dress, and their style has an edge to it, that rebellious edge that bubbles up in every genre, that's rock n' roll. Everybody still wants to be a rock star, you know?
+- People will always have their opinions; I've come to learn whose matter.
+- Success is a funny thing. It means different things to different people. For me, I am always pleased when people connect to our brand. It means we are executing in a manner that speaks to a wide variety of businesses.
+- My vision is the ability to design clothes for a man who wants to create his own style and doesn't want to dress like he's in uniform, to look like the guy in the ad, or to feel like he has to put it together that way.
+- When a man's suit fits, when the construction is beautiful, when the sewing and fabrics are there... in the end, you'll look the best in it.
+- Sometimes, we need an obstacle to challenge us and push us further than we would if things were always status quo. I'd say one example is the market crashing. It's like, just when we started to get into a rhythm, everything changed! But, it taught us a great deal about how we do business and how we can improve.
+- For me, growing up in Detroit, scarves meant cold weather. But I remember working in a store, and we had some silk scarves - like, wide scarves with fringe - and because I had seen the English rockers wearing skinny silk scarves, I took the scarves, cut and sewed them, and made them long - almost like a tie.
+- Music and fashion have had a kind of incestuous relationship since the Fifties. It started with people like Elvis Presley and pop icons like James Dean. Then it exploded in the MTV days. Now, with the Internet, it's instantaneous.
+- I always talk about a great-fitting pair of jeans. Girls are concerned about the way their butt looks in a pair of jeans, and I think a guy having a really great-fitting pair of jeans is just as important.
+- Bruno Mars is pretty fashionable. Gary Clarck Junior, who was also in our ad with Jimmy Page, is a super super stylish guy.
+- A black suit can be classic and timeless and certainly for most occasions. But remember, it's not so much the color of suit as it is about the fit, cut, style, and, of course, attitude you have when wearing it.
+- I loved the MC5 and the Stooges, but also, the British Invasion - the Kinks and the Yardbirds - and then Led Zeppelin, of course. Alice Cooper was one of my favorite bands.
+- The music alone wasn't enough. It was great, but when an artist had an amazing look - like the MC5, or the Stooges, or Alice Cooper - you really got sucked in. The wardrobe was so important. At a show, you were engrossed in the music, but you were also engrossed in everything from the haircuts to what they were wearing.
+- In the early '70s, coming out of the '60s, it was very hippy or it was very uniform, like The Beatles all wearing the same suit. Into the '70s, it became much more about a personal style. You had the glam period, which was a lot of fun, and then you went into punk.
+- Guys out there have no sense of how their clothes should fit.
+- Women tell me they won't date a guy with bad shoes. There are good-looking guys with good-looking outfits, and then really bad-looking square toe I-don't-even-want-to-mention-the-label kind of shoes. There is no reason for that. Again, invest in something that looks proper. A great pair of shoes can make your old outfit look great, too.
+- I shop a lot online... and just the ease of it makes a lot more sense.
+- I enjoy looking at old photos of some of my favorite rock icons, but also get inspired from the younger bands that are coming up and really creating their own style, their own image.
+- Sit-ups and push-ups work without a gym.
+- Style is timeless. It transcends generations - it's enduring. If you're thinking about fashion, it's of the moment. And that doesn't mean that it's not important at times to embrace trends and that type of thing, but style is less about trends than it is about how you carry yourself.
+- Canada - they won't like me saying this, but it's really like it's a part of Michigan, that area.
+- When you do men's wear, it's less about thinking outside the box than about pushing the walls of the box outward. Men want to be evolutionary, not revolutionary.
+- The great thing about living in New York is the constant change of things. It inspires me to keep moving, push forward, question ideas.
+- I spent a lot of years working for Ralph Lauren, and he had so many copycats, from Tommy Hilfiger to Abercrombie & Fitch to J.Crew.
+- I never wanted to be the face of the brand. You haven't seen me in my own ads. You don't see my logo all over my clothes. From the beginning, I wanted the clothes to stand on their own.
+- I like someone who has a little bad boy in them, a little edge.
+- A lot of designers become hot, attend every party, and then you don't hear about them again.
+- I believe that if you think about what style means, you won't become a fashion victim.
+- I collect vintage vinyl records.
+- I think the record industry has gotten to be more about labels wondering what the new single is rather than labels nurturing artists. It's gotten away from making a full album of music that someone would want to listen to all the way through.
+- The thing about the basics is they don't really change - it's the details and the proportions that change. The shirt may be cut slimmer or looser, the suit might be darker or lighter, the sneakers might not have laces, but you're still talking about shirts and suits and sneakers.
+- A part of my kind of design and inspiration ethos is that I carry around a leather notebook and I sketch in it, doodle in it, write notes in it, and I put pictures in it.
+- When I think of artists that I would have loved to work with, it's Jimi Hendrix. And Steve McQueen. He's not a rock star, but he's kind of a rock star to me.

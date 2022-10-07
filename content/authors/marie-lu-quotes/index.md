@@ -1,0 +1,54 @@
++++
+author = "Marie Lu"
+title = "Marie Lu Quotes"
+quotes_len = "48"
+description = "the best 48 Marie Lu Quotes"
++++
+- Boys are different from girls, but boys are also different from other boys, just as girls are different from other girls. Calling a book 'for boys' or 'for girls' is well-meaning, but to me, not terribly helpful.
+- When I first came over to the States, I started writing, I think, as a way to help myself learn English. I would start stapling together little booklets for myself.
+- Before I ever begin writing a new story, I have to sketch my characters out on paper. It's part of my process of understanding who they are.
+- I'm a big fan of the trope of 'the poor boy meets the wealthy girl.' I like the idea of this boy from the other side of the tracks who doesn't have a lot, but he'll give that little bit that he has to you.
+- I don't think anything really consciously went into 'Legend' that was influenced by videogames, but I'm pretty sure some of my experiences and love for gaming contributed to a few of the factors that are in 'Legend'.
+- A lot of the moments and experiences in 'Warcross' were inspired by specific moments that I remember as an intern working at Disney or having fun with my coworkers. A lot of it is very anecdotal.
+- I can't write when it's silent. But the music can't have lyrics.
+- I started writing seriously when I was a teenager, around 14 years old.
+- Writing the first draft of a new story is incredibly difficult for me. I will happily do revisions, because once I can see the words on the page, I can go about ripping them up and moving scenes around. A blank page, though? Terrifying. I'm always angsty when I'm working my way through a first draft.
+- I'm fascinated by young people who do extraordinary things.
+- On the one hand, I'm so relieved that I've actually managed to finish my very first series and that I've been able to see my characters through to the end of their journeys. On the other hand, I feel like how parents must feel when they send their kid off to college. It's a bittersweet mix.
+- In general, I write for ages 12 and up - although I've received emails from readers between the ages of seven and seventy. My books are science fiction.
+- Comics and animation have some of the deepest stories I've ever seen.
+- Movies require so many moving pieces to align that it really is a miracle that anything is made!
+- When I was young, I drew as often as I wrote.
+- I remember playing 'Mortal Kombat' when I was a kid and the other 'Tekken'-style games.
+- I'm one of those people that, if I'm sad or depressed, I don't talk to people about it. I bottle it in.
+- I write the story as it comes to me - YA is my natural voice, not a conscious choice.
+- Growing up, I didn't know any writers and felt somewhat isolated.
+- For me, as a fan, when I read book series, I tend to be the most judgmental of the last book.
+- My very first system was the Sega Genesis back when I was 7 or 8 years old. I played that into the ground. Like, my parents had to confiscate it and put it in attic, the whole thing.
+- I had a wonderful fan who once sent me an alpaca hat all the way from Peru, where he'd gone to volunteer in a remote village because he was inspired by 'Legend' to do good. That's probably one of the sweetest fan moments I've experienced.
+- I think writing is very, very therapeutic.
+- I've always had this interest in sibling relationships because I don't have any siblings. I'm completely a product of the one-child policy in China, so I always kind of wished that I had an older brother or a younger brother or sister just to have that bond, so I find myself constantly writing about that relationship.
+- I have an obsession with describing hair. I don't know why - hair is just really pretty.
+- I remember my favorite books when I was a kid: 'The Redwall Adventure' series, 'Ender's Game,' things like that.
+- I think I was always meant to write dark stories.
+- As a writer, I try to appeal to the 'elusive boy audience' the same way I try to appeal to everyone: I do the very best I can to create interesting characters, addictive plots, tons of conflict, believable settings, unexpected plot twists, intriguing beginnings, and satisfying endings.
+- My first three manuscripts were epic fantasy - like high fantasy - and then the fourth one was a historical fantasy about Mozart as a child. I still have a soft spot for that one!
+- Fantasy and science fiction are where my brain lives.
+- I had a lot of really emo stories as a kid. I wrote a lot of fan fiction.
+- A really fun fan moment was when a fan gave me a copy of 'Legend' that he had turned into a functional clock!
+- I used to work in the video game industry before I became a full-time writer.
+- We are both disturbed and fascinated by visions of bleak futures, predictions of what might come if we as a society aren't careful.
+- We determine whether a book is for boys or girls long before the reader gets a chance to decide: we package them with soldiers and ballet slippers on their covers, war machines and glittering gowns.
+- I've always been interested in exploring the concept of child prodigies. When I was younger, I wrote a story about Mozart as a child, and I just always loved this idea of young people who are able to take control of their lives and bring a whole lot of change at such a young age.
+- Writing is an extremely rewarding and humbling process, and I've learned to go with it, that even if it feels absolutely impossible, I will find a way to tell the next story.
+- I am a hopeless pantser, so I don't do much outlining. A thought will occur to me, and I'll just throw it into the story. I tell myself I'll worry about untangling it later. I'm glad no one sees my first drafts except for my poor editor and agent.
+- I went into writing 'The Young Elites' with a great deal of fear - I'd been told repeatedly that a villain's story would be far too dark for young readers to want and that no one would like my villainess, Adelina. I braced myself for epic failure.
+- When I was young, I couldn't process emotions well.
+- I receive emails from readers that both break my heart and give me a profound sense of connection. Several months ago, I received an email from a teacher who told me that 'Legend' was the first book one of her troubled young students had ever read to the end. He cried when he finished it. Stories like that stay with you forever.
+- 'The Rose Society' was definitely the hardest book I've ever written, because it's so difficult to stay in that dark space.
+- Fantasy and science fiction are my comfort spot.
+- I'm not much of an outliner in general. I tend to wing my way through all my drafts, which means writing a series is a very chaotic and panic-inducing experience.
+- I had an erroneous idea that writing a duology would be simpler than writing a trilogy because I would get to cut out the middle book. It turns out it was actually harder because 'Wildcard' became this combination of having to write a book two and three at the same time.
+- What can I say: I'm a writer - I enjoy forcing pain and suffering on my characters!
+- It feels like it's the end of the world if you don't do well on your SATs.
+- I've seen fan art from readers that is professional-grade in quality.

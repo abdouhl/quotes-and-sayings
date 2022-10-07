@@ -1,0 +1,24 @@
++++
+author = "Joseph Wood Krutch"
+title = "Joseph Wood Krutch Quotes"
+quotes_len = "18"
+description = "the best 18 Joseph Wood Krutch Quotes"
++++
+- Cats seem to go on the principle that it never does any harm to ask for what you want.
+- When a man wantonly destroys one of the works of man we call him a vandal. When he destroys one of the works of god we call him a sportsman.
+- The most serious charge which can be brought against New England is not Puritanism but February.
+- Any euphemism ceases to be euphemistic after a time and the true meaning begins to show through. It's a losing game, but we keep on trying.
+- If we do not permit the earth to produce beauty and joy, it will in the end not produce food, either.
+- Cats are rather delicate creatures and they are subject to a good many different ailments, but I have never heard of one who suffered from insomnia.
+- Security depends not so much upon how much you have, as upon how much you can do without.
+- It is not ignorance but knowledge which is the mother of wonder.
+- What a man knows is everywhere at war with what he wants.
+- Only those within whose own consciousness the sun rise and set, the leaves burgeon and wither, can be said to be aware of what living is.
+- It is sometimes easier to head an institute for the study of child guidance than it is to turn one brat into a decent human being.
+- Though many have tried, no one has ever yet explained away the decisive fact that science, which can do so much, cannot decide what it ought to do.
+- The snow itself is lonely or, if you prefer, self-sufficient. There is no other time when the whole world seems composed of one thing and one thing only.
+- Happiness is itself a kind of gratitude.
+- Few people have ever seriously wished to be exclusively rational. The good life which most desire is a life warmed by passions and touched with that ceremonial grace which is impossible without some affectionate loyalty to traditional form and ceremonies.
+- If people destroy something replaceable made by mankind, they are called vandals; if they destroy something irreplaceable made by God, they are called developers.
+- Both the cockroach and the bird would get along very well without us, although the cockroach would miss us most.
+- There is no such thing as a dangerous woman; there are only susceptible men.

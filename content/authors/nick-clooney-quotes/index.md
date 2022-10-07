@@ -1,0 +1,36 @@
++++
+author = "Nick Clooney"
+title = "Nick Clooney Quotes"
+quotes_len = "30"
+description = "the best 30 Nick Clooney Quotes"
++++
+- No matter how many troops we have in place or how long they stay, we cannot impose a parliamentary democracy there any more than the insurgents can impose a theocracy.
+- It is statesmanlike for the administration and Congress to look to our nation's welfare beyond their terms in office.
+- Conventional wisdom holds that setting a timetable for getting American troops out of Iraq would be a mistake.
+- We decided that how we react to and treat those fellow mortals, wild and domestic, tells us more about ourselves than, perhaps, some of us want to know.
+- Our nest eggs, no matter how small, are safe.
+- It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.
+- A salute from this corner to President Bush for saying he was willing to investigate raising or eliminating the cap on salaries subject to the Social Security tax.
+- Respect and affection for animals, particularly those who share our homes, recognize no geographic borders.
+- Social Security is at last on the nation's front burner.
+- Our actions in the Middle East over the last 15 years have already guaranteed radical Muslims quite enough ammunition to kill Americans for the next century, even if Guantanamo did not exist.
+- For some reason, on that sparkling afternoon last week, I actually saw the coal that was passing by and it set me to thinking how important coal was to our everyday lives when I was a little boy.
+- America has faced much more difficult times, including potential national extinction, without flinching.
+- America, the temple of invention and industry, doesn't make things anymore.
+- Perhaps our Irish friends should not so completely turn their backs on their historical dishes, no matter how many jokes they might have to endure.
+- We don't defeat evil by becoming evil.
+- The kind of Iraq that emerges from all of this is ultimately out of our hands.
+- Those who actually hate animals to the point of being cruel to them are outcasts to the rest of us, no matter where in the world they live.
+- In my opinion, the president is right to address future funding, even though Social Security will show a surplus through 2018 and will not run out of funds until 2042.
+- In economic panics throughout history, the wiping out of the savings accounts of lower earners and the middle class has often led to social revolution, sometimes violent upheavals.
+- One of the pleasant duties of America's most famous announcers during the relatively short swing era of the big bands was to host late-night remotes from some of the most famous ballrooms throughout the country.
+- We didn't defeat the Nazis by becoming Nazis.
+- The quality that defines us as Americans is the courage to respond to being hit. The courage to root out and destroy the killers. And, most importantly, the courage to hold on to our values and protect our hard-won freedoms while doing it.
+- As I listened, it occurred to me that interest in and affection for the animals that share the planet with us may be a more unifying force than any other.
+- Currently, 94 out of 100 of us pay the Social Security tax all year round.
+- In matters large and small, many people seemed concerned about churlishness, an ugliness in our relationships that appears to be increasing rather than decreasing.
+- What the F.D.I.C. does is to put the full faith and credit of the United States government behind every savings account in the nation, up to a limit that has changed over the years and stands now at $100,000.
+- We like to believe that, in our lifetime, the human condition is improving.
+- When runaway inflation and bank failures struck in Germany in the 1920s, the middle class was destroyed, which led directly to the rise of the Nazis.
+- The worst thing that can happen to us in an ideological struggle is to become what we are fighting.
+- Whatever its other limitations, the Big Apple and those who live there make room for their dogs and cats, take good care of them and abide by the rules made necessary by a huge population.

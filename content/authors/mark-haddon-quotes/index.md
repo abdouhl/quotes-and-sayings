@@ -1,0 +1,92 @@
++++
+author = "Mark Haddon"
+title = "Mark Haddon Quotes"
+quotes_len = "86"
+description = "the best 86 Mark Haddon Quotes"
++++
+- What I love about the theatre is that it's always metaphorical. It's like going back to being a kid again, and we're all pretending in a room. Sometimes, when the pretending really works, I find it much, much more moving than something on film.
+- I think I've learnt that there is no character so strange that you haven't shared their experience in some small way.
+- I've always really enjoyed writing different things because I get bored very easily.
+- I've come to realize that most good ideas are precisely the ones you can't describe.
+- When I was writing for children, I was writing genre fiction. It was like making a good chair. It needed four legs of the same length, it had to be the right height and it had to be comfortable.
+- A lot of roles for people with disabilities are quite patronising. It's a real pity when they are just used to give dull PC kudos to a drama, or when they're wheeled on in a tokenistic way without any real involvement in the plot.
+- That's important to me, to find the extraordinary inside the ordinary.
+- Fiction that responds to recent world events is a hostage to fortune, because all momentous events look very different a year, two years, three years later.
+- I always thought I'd eventually learn how to draw really well, and despite constant evidence to the contrary, I just kept on trying. If you're too good at anything, you don't have to think about the process, whereas I feel like I spend my life with my head under the bonnet, trying to understand how everything works.
+- I suffer depression only in the sense that I am a writer. We don't have proper jobs to go to. We are on our own all day. Show me a writer who doesn't get depressed: who has a completely stable mood. They'd be a garage mechanic or something.
+- As to the number of novels I've abandoned... I shudder to think. I have thrown away five completed novels, and that's a gruesome enough figure. But not necessarily a waste of effort.
+- Madness doesn't happen to someone alone. Very few people have experiences that are theirs alone.
+- Every life is narrow. Our only escape is not to run away, but to learn to love the people we are and the world in which we find ourselves.
+- If you're trying to be a successful writer, and you go into a second-hand bookshop, it's the graveyard of people whose books haven't been wanted.
+- My best days do seem like a distillation of all that was best about school. Write a story! Paint a picture! Write a poem! Make a print!
+- I started writing books for children because I could illustrate them myself and because, in my innocence, I thought they'd be easier.
+- Use your imagination, and you'll see that even the most narrow, humdrum lives are infinite in scope if you examine them with enough care.
+- There's something with the physical size of America... American writers can write about America and it can still feel like a foreign country.
+- Indeed, I am repeatedly astonished by the number of really good writers who understand human beings so well on paper but don't know how to deal with them in real life.
+- I think most writers feel like they're on the outside looking in much of the time. All of us feel, to a certain extent, alienated from the stuff going on around us.
+- I really like the idea of being a bit unpredictable. I'm known for being a nice, easy-going person with a straightforward exterior. So I think a bit of me wants to be sort of sly and devious.
+- I have very fond memories of swimming in Walden Pond when we lived in Boston. You'd swim past a log and see all these turtles sunning themselves. Slightly disturbing if you thought about how many more were swimming around your toes, but also rather wonderful.
+- I think Britain has this tradition which suggests that if you make the readers laugh too much, you can't really be serious. Whereas, I think one of the functions laughter can perform in a book, as in life, is that it's a reaction to genuine horror.
+- If one book's done this well, you want to write another one that does just as well. There's that horror of the second novel that doesn't match up.
+- Stories about mental aberration and oddity only make sense in context. Just how do people live with someone who is peculiar, gifted, strange or alien? It's odd because there's a little part of me that wants to write about exotic, strange bizarre subjects. Instead, I've rather reluctantly realised that what I write about is families.
+- The most difficult book I wrote was the fourth in a series of linked children's books. It was like pulling teeth because the publisher wanted exactly the same but completely different. I'd much rather just do something completely different, even if there's a risk of it going wrong.
+- I don't remember deciding to become a writer. You decide to become a dentist or a postman. For me, writing is like being gay. You finally admit that this is who you are, you come out and hope that no one runs away.
+- I think one of the things you have to learn if you're going to create believable characters is never to make generalizations about groups of people.
+- I think good books have to make a few people angry.
+- I'm really interested in the extraordinary found in the normal. Hopefully, my books don't take you to an entirely different place but make you look at things around you.
+- Children simply don't make the distinction; a book is either good or bad. And some of the books they think are good are very, very bad indeed.
+- Bore children, and they stop reading. There's no room for self-indulgence or showing off or setting the scene.
+- I don't mean that literary fiction is better than genre fiction, On the contrary; novels can perform two functions and most perform only one.
+- When I was 13 or 14, I started devouring novels; literature took quite a while to take me over, but it caught up just in time to save me from becoming a mathematician.
+- If kids like a picture book, they're going to read it at least 50 times, and their parents are going to have to read it with them. Read anything that often, and even minor imperfections start to feel like gravel in the bed.
+- At 20, 25, 30, we begin to realise that the possibilities of escape are getting fewer. We have jobs, children, partners, debts. This is the part of us to which literary fiction speaks.
+- I'm a writer! If you work in an office, it dampens you. It makes you fit a routine. The effect of being a writer is not dissimilar to being long-term unemployed. And everyone knows that is not good for you.
+- Appalling things can happen to children. And even a happy childhood is filled with sadnesses.
+- I am really interested in eccentric minds. It's rather like being fascinated by how cars work. It's really boring if your car works all the time. But as soon as something happens, you get the bonnet up. If someone has an abnormal or dysfunctional state of mind, you get the bonnet up.
+- Many children's writers don't have children of their own.
+- I've worked in television long enough to know that when you stop enjoying that type of thing you go home and do something else.
+- There's something rather wonderful about the fact that Oxford is a very small city that contains most of the cultural and metropolitan facilities you could want, in terms of bookshops, theatre, cinema, conversation. But it's near enough to London to get here in an hour, and it's near enough to huge open spaces without which I would go insane.
+- I read very, very little fiction as a kid. All the books I can remember are junior science books.
+- As a kid, I didn't read a great deal of fiction, and I've forgotten most of what I did read.
+- I thought Bill Bryson's 'A Short History of Nearly Everything' was remarkable. Managing to be entertaining while still delivering all that hard science was a pretty good trick to pull off.
+- If kids like a picture book, they're going to read it at least 50 times. Read anything that often, and even minor imperfections start to feel like gravel in the bed.
+- It took me a long time to come out as someone who doesn't like film. It's a bit like when people say they don't like books: you get that sharp intake of breath.
+- I've written 16 children's books and five unpublished novels. Some of the latter were breathtakingly bad.
+- No one is ever really a stranger. We cling to the belief that we share nothing with certain people. It's rubbish. We have almost everything in common with everyone.
+- The way of creating believable characters is not by conforming to a set of PC rules.
+- I'm really lucky in that I can do lots of different things. It must be really hard to just be a poet or just be a novelist - a constant cycle of effort and exhaustion and recuperation.
+- The one thing you have to do if you write a book is put yourself in someone else's shoes. The reader's shoes. You've got to entertain them.
+- There was a time in my life when I was going in and out of houses that were extraordinarily different - from a working-class terrace in Northampton to the homes of friends who were really very wealthy. It was quite an odd position to be in, I realise looking back, and quite a nice one.
+- The main impetus for being a writer is thinking, 'I could invent another world. I'm not terribly keen on this one.'
+- I better make the plot good. I wanted to make it grip people on the first page and have a big turning point in the middle, as there is, and construct the whole thing like a roller coaster ride.
+- Most adults, unlike most children, understand the difference between a book that will hold them spellbound for a rainy Sunday afternoon and a book that will put them in touch with a part of themselves they didn't even know existed.
+- When I was writing for children, I was writing genre fiction. It was like making a good chair. However beautiful it looked, it needed four legs of the same length, it had to be the right height and it had to be comfortable.
+- Most of my work consisted of crossing out. Crossing out was the secret of all good writing.
+- From a good book, I want to be taken to the very edge. I want a glimpse into that outer darkness.
+- As a teenager, I was always this strange mixture of kind of vice-captain of the rugby team and sensitive artist type the rest of the time. I was sent away to this public school in the middle of nowhere, and I think we managed to completely miss out on normal youth culture.
+- I think the U.K. is too small to write about from within it and still make it seem foreign and exotic and interesting.
+- Writing for children is bloody difficult; books for children are as complex as their adult counterparts, and they should therefore be accorded the same respect.
+- I like having my back pressed against a wall and being made to work harder so I don't embarrass myself.
+- No one wants to know how clever you are. They don't want an insight into your mind, thrilling as it might be. They want an insight into their own.
+- Young readers have to be entertained. No child reads fiction because they think it's going to make them a better person.
+- Jane Austen was writing about boring people with desperately limited lives. We forget this because we've seen too many of her books on screen.
+- Humour and high seriousness... Perfect bedfellows, I think. Though I usually phrase it in terms of comedy and darkness. Comedy without darkness rapidly becomes trivial. And darkness without comedy rapidly becomes unbearable.
+- My book has a very simple surface, but there are layers of irony and paradox all the way through it.
+- If you came from Mars and tried to analyse British or American society through novels, you'd think our society was preponderantly full of middle-aged, slightly alcoholic, middle-class, intellectual men, most of whom are divorced from their families and have nothing to do with children.
+- Reading is a conversation. All books talk. But a good book listens as well.
+- Obviously I have a capacity for feeling extreme anxiety, and there are people out there who don't. I'm to some extent rather jealous of them.
+- Things can be funny when people are uneasy. It softens them up and stops them falling asleep on the sofa. I like those moments where people half-smile and half-wince.
+- B is for bestseller.
+- If you enjoy math and you write novels, it's very rare that you'll get a chance to put your math into a novel. I leapt at the chance.
+- I am quite amazed how, when people earn lots of money, they think they have to spend it on things that give them access to the club constituted by the people who are in their tax bracket.
+- I am atheist in a very religious mould. I'm always asking myself the big questions. Where did we come from? Is there a meaning to all of this? When I find myself in church, I edit the hymns as I sing them.
+- Science and literature give me answers. And they ask me questions I will never be able to answer.
+- I was born too late for steam trains and a lazy eye meant I'd never be an astronaut.
+- I knew there was a story; once you find a dog with a fork through it, you know there's a story there.
+- Show me the artist anywhere who's had an utterly stable mental life, and I'll buy you hot dinners for the rest of your life.
+- One of the freedoms you get if you earn a lot of money from a book is to throw away what you want. And if you throw a lot away, the good stuff always comes back; nothing is lost.
+- For me, disability is a way of getting some extremity, some kind of very difficult situation, that throws an interesting light on people.
+- I like poetry when I don't quite understand why I like it. Poetry isn't just a question of wrapping something up and giving it to someone else to unwrap. It just doesn't work like that.
+- With English literature, if you do a bit of shonky spelling, no one dies, but if you're half-way through a maths calculation and you stick in an extra zero, everything just crashes into the ravine.
+- You make a film you feel is as real as possible and hope people react as though it were real.
+- I went to boarding school, and then I went to Oxford, and I know how easy it is for certain groups of people to become wholly insulated from ordinary life.

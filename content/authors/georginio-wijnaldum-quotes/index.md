@@ -1,0 +1,105 @@
++++
+author = "Georginio Wijnaldum"
+title = "Georginio Wijnaldum Quotes"
+quotes_len = "99"
+description = "the best 99 Georginio Wijnaldum Quotes"
++++
+- He gave me a lot of confidence because he said he liked my way of playing football. He said I was a person he really wanted to have in his squad. Something like that is always good to hear. It made me happy, especially as it came from such a great trainer like Jurgen Klopp. He showed how good he is at Dortmund with all the success he had.
+- Every team learns when they lose a game.
+- The most important thing is to enjoy football because you don't know how long your career is going to last, but it is difficult when things don't go well.
+- There were loads of managers who said, 'You have to concentrate on being a winger because you have more potential there.' But I was like, 'You can say what you want, but I'm a midfielder, and I know what's the best for me.'
+- It is a fault of the whole team if you don't deliver.
+- Sometimes you need luck to score.
+- At Under-11/12, I was playing as a right-back. The manager then was Cyril Helstone, and he said to me, 'No, you're not a defender. You should be in midfield.' That was the big change in my career because from that moment until I made my debut in the first-team at Feyenoord, that was the position I played.
+- At a club like Liverpool, you have to win everything possible, and you have to play for both - the Premier League and the Champions League.
+- You must play with the same intention: to win the game and give everything you have.
+- I've always scored through the years, no matter who I've played for.
+- I wanted to be a gymnast when I was young - I used to do backflips and all those things in the street and at home - but my grandma said it was dangerous and made me stop.
+- Learning to play different roles has made me a more all-round midfielder.
+- You want to be able to look back and feel you were part of Liverpool's great history - win something here, and they will always remember you.
+- As a player, you want to play a lot of games.
+- Of course I want to score.
+- If you don't win games, it's difficult to enjoy and see the fun in football.
+- I was only one year at Newcastle, but that time there meant a lot to me. I met some great people who helped me to play good games in the Premier League, and it was because of them I got the move to Liverpool.
+- Liverpool will always buy good players, even if they already have good players. That's normal. I think it has to be normal for a club like Liverpool because that means you're a big club.
+- Liverpool is a great club.
+- I want to play in a stronger league than the Eredivisie.
+- It's not normal to score four goals in a game.
+- When you lose games, you analyse them more than when you win.
+- I was full of confidence in myself that I would reach the top or be a professional player as a midfielder.
+- To follow in the footsteps of Dirk Kuyt would be sensational. He triumphed at Feyenoord and has had great success at Liverpool.
+- It doesn't matter who you play - you can win against anyone; you can lose against anyone.
+- When you play at home, you want the fans behind you, and you must give them something back.
+- As a football player, you must have a big ego to respect yourself. So if you are a good player, you must say that you are good. You need to have the confidence.
+- You always learn from a defeat, even more than when you win games, because when you win, you don't see everything you did wrong.
+- PSG wanted to sign me. For me, it was confirmation that I am on the right track and was in a good spell. My heart told me I had to stay at PSV where I still have things to achieve.
+- I always try to perform, and not because you have players on the bench or on the pitch that can play in your position.
+- I think if you think that far ahead about the first four, or to be champions, that is something you cannot control. You can control the training, and then the performance will come game by game, and do not think that far ahead.
+- At Newcastle, I was playing in the No 10 position but also in midfield as a left winger.
+- You can't afford to lose games. It is always possible that you will not win, but it is the way you play the game.
+- Everything is possible in football.
+- I don't care what other people say about me. I know what I'm capable of.
+- I remember my last game for Newcastle in the pre-season, when their fans were singing that they wanted me to stay, but when the opportunity came to play for a great club like Liverpool with such a great history, I had to take it. I hope they understand why I made that choice to go to Liverpool.
+- If you are busy with a good performance, something you can control, then the chance to win the game is much bigger.
+- Van Gaal is a teacher, pays attention to everything you do, but Hiddink is more linked to the players. He gives more freedom than Van Gaal, but I worked with both of them pretty well.
+- I saw Spurs as being a very good fit for me - but we were unable to agree financial terms with them... With hindsight, though, that was not a disaster.
+- You're always disappointed when you lose a game.
+- You will always learn from games. But every game is not the same, not the same emotion.
+- We play for Liverpool. It is always our intention to win. All the players here want to compete at the top and win. The manager does not have to say to us, 'We want to win a trophy.'
+- I have to be honest: in my career, I've really had to fight to come in the middle again. A lot of managers told me, 'You are way more comfortable as a winger than as a midfielder,' but I always kept my trust and confidence in what I knew about my qualities.
+- I am happy at PSV, but I am a player with a lot of ambition.
+- Anfield comes alive on big European nights.
+- I was always happy to play for the Dutch national team.
+- No team can play really good in 50 games. During the season, you will not play that well all the time.
+- At seven, I played centre-back. When you're so young, though, it's more to enjoy the training and to get a feel for the game. It's not heavy on tactics of a position. We were playing on a half pitch, seven against seven or eight against eight, so they say you're a centre-back, but it's not like the real definition.
+- You can lose games, but when you look back on the games you lose, you must be, 'Okay, we lost, but we did everything to win it.'
+- I want to move to one of Europe's best clubs if I leave Rotterdam, just like Robin van Persie and Kuyt did before.
+- I only worked with Rafa Benitez for a short time, but he's a great manager, and he showed it from the first moment he came. He worked with the players and made us a better team. He's a good person, always trying to help players out.
+- It's irrelevant how I prefer to play and what I want. It's all about what works for the team.
+- Normally, I am a player who can play in different positions, but never in defence.
+- If you want to compete for the Premier League title, you need to win ugly sometimes.
+- Some games don't go the way you want them to go, but you still have to find a way to win.
+- With my quality, I feel I can bring a lot to a team that I will join. I want to show it in the big leagues: England, Italy, Spain, Germany, and France.
+- During the season, you have to grow.
+- I think, a lot of teams, when they come to Anfield and they play a draw, they think it is a good result.
+- Pochettino is a terrific manager if you look at the way his teams play.
+- I can play in different positions, and if I can do what I'm good at, score goals, show how good I can play football, then it's OK with me.
+- Every game is different.
+- It's my dream to play in a big league, and England would be the perfect choice.
+- Every opponent in the Premier League is a warning.
+- I like to score goals, as, back in the day, I was used to scoring goals.
+- From the moment I first spoke with him, I knew that I wanted to join Liverpool. I fell for Klopp - hook, line, and sinker.
+- Before I signed for Liverpool, I was playing for Newcastle as a No. 10 - basically, I was always attacking. I didn't have to do much defensive work; I didn't play as the No. 6 or the No. 8.
+- I think I've shown I have the defensive discipline to play deep as the No.6 and start the build ups with my passing. I can also play higher up the pitch and make a difference in the opposition area. Being able to do both has helped me to play so many games.
+- I think Anfield is a fortress.
+- It makes it easier for you to play more often and it makes it easier for the manager if he has players who can be used in different positions.
+- I'm quite a shy person, but I know I'm a good football player. That's just the way I am. That's the way I grew up. My grandmother brought me up, and she is the same way. She's understated, but she knows what she's worth.
+- I like Liverpool. I like the club, and I like the fans. The people appreciate me. That's the most important thing.
+- As a player, I have this feeling - and I think every player thinks this - that I am responsible for how my team-mates feel. I just want to do my best and give 100 per cent, and if I do that, they will feel better and think, 'I will give 100%.'
+- The more you are together as a team, the better you become.
+- You will not create a lot of chances in every game, but if you stop the opponent getting chances, you will win more.
+- When a lot of players come to a club, it can be difficult to gel because you don't know each other properly.
+- It's always a blow for a team if important players get injured or suspended.
+- Some days, you don't score, but then you have to make sure you don't concede.
+- Everyone in the Champions League has quality.
+- Because I was fast, technical, and could dribble well, it was always the easy thing to label me just a winger and have me stick to that.
+- Every game is a new game, and anything can happen.
+- When it goes bad, you know supporters will be angry at players who were bought for most money.
+- If you look at the difference games between the bigger and smaller teams, the difference in concentration, and being passive is big; that is my opinion.
+- In a year, you can learn a lot.
+- I want to be remembered as a Liverpool player who was part of something special.
+- For Feyenoor,d the biggest game is Ajax, but if Sparta are going to play for the title, then that will be the biggest game. It depends how both teams are doing.
+- I don't want to leave Feyenoord before having made an impact at the club.
+- In the Premier League, almost everyone is difficult to beat; it depends on how you begin a game and how you play in the game.
+- You always have to put pressure on an opponent.
+- I don't think it's wrong to have a big ego. Sometimes a big ego can help you also.
+- It would be absolutely fantastic to play at Real Madrid together with my friend Royston Drenthe.
+- I was sad when Van Gaal left the national team, but I was also sad when Hiddink left.
+- If a whole team doesn't perform, you cannot pick one player especially and say, 'He doesn't do this or do that.'
+- I can play in a lot of different positions; I can do a lot of things.
+- It's always a special game when you play against your previous club.
+- You have better players and teams in England, and for myself, it is better to play in a better league against better players.
+- You want to play against the best and beat the best.
+- You don't always have to win beautiful.
+- Every player wants to score more.
+- What I loved the most about the Champions League was the games at home.

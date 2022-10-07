@@ -1,0 +1,106 @@
++++
+author = "Sean Baker"
+title = "Sean Baker Quotes"
+quotes_len = "100"
+description = "the best 100 Sean Baker Quotes"
++++
+- A movie will live or die with your casting.
+- I remember, at one point, I was actually studying it kind of intensively around 2001, when Hrithik Roshan was big. I wanted to learn more about it, as I've always been intrigued by the craft of Bollywood, in that how well they were shot in glorious widescreen. I would actually go to see Bollywood films in the theaters in New York and New Jersey.
+- 'Man Push Cart' is very similar to 'Take Out.'
+- I had never even heard of the term 'hidden homeless' before... It's not just Orlando and Kissimmee. It's a national issue; it's a national problem.
+- Shooting on the iPhone has become more of a directors' tool to lower inhibition of first-time actors and nonprofessionals. While it's helped me become more mobile, no pun intended - running around, finding tight areas and different ways of moving the camera - to me it's more about using this device to catch candid moments. That's the biggest thing.
+- I'm actually very critical of digital cinema.
+- 'Tangerine' was less than half the budget of 'Starlet,' and 'Starlet' was already a microbudget film. A director always wants more time, and we had a limited amount of resources.
+- Filmmaking has been my love since my mother brought me to see James Whale's 'Frankenstein' at the local library at the age of six.
+- I love celluloid. I love the look of it.
+- Nobody is going to just come and give you money unless you've proven yourself, especially if you're doing something that is unconventional or unorthodox and outside the way the industry thinks.
+- 'The Little Rascals' was set against the background of the Great Depression: the characters were living in poverty. It's just that it wasn't focused on it. It was focused on what makes childhood universal. We're all laughing at kids because we see ourselves in them; we remember our childhood.
+- New York City is the most culturally diverse city in the world, and yet there have been few films about the Chinese, Latino, and Middle Eastern experience in New York.
+- When people talk about first-timers, I always think of Spike Lee. In every film he's made, he has A-listers, but he's always giving roles to first-time actors and breaking careers. He's brought such wonderful actors into the spotlight, and I love that.
+- So many films are being shot on the DSLR, that they're all starting to look the same. There's a shallow depth of field. It's a nice look, but I can always identify a film shot with a DSLR.
+- There are characteristics of Central Florida you don't see anywhere else. It's quite beautiful.
+- I believe that human beings shouldn't live in climates that they cannot survive naked... and New York, although full of energy and heart, does not fall within that rubric.
+- I'm very influenced by Mike Leigh and the way that he always has these climactic confrontations, like in 'Secrets and Lies' and 'High Hopes,' in which the ensemble cast meets in one location.
+- When it comes down to it, I'm still in love with film - I'm a cinephile.
+- Kids are kids. They still need handholding. No matter how trained they are, they need to be told what to do. They need to learn lines and understand blocking. You can't just say, 'I want you to walk from here to there and deliver your line.'
+- With a lot of these social realist films, the first thing you do is drain the color.
+- A lot of independent films try to pull off a 14-day shooting schedule, which I think is ridiculous. No matter how big or small you are, it really kills whatever sort of time you get to allow the actors to find their characters, and to spend time to think about what they're doing.
+- I have a feeling that I might even disappoint some people by staying in this two to three million range and continuing to make character-driven stories.
+- Most of the characters in 'The Little Rascals' were living in poverty, but they decided to focus on the joy of being a kid: the humor, the heart, the resilience.
+- All I know is this: The reason that I've gotten attention from this industry is that I just kept making films until they paid attention.
+- When you see bad acting, that's usually what it is - they're not listening to the other characters. It's always hard with first-time actors to get them in that moment where they are really listening to the other characters and reacting to the other characters.
+- Honestly, in retrospect, when I referred to the actors from 'Prince' as non-actors or non-professionals, it was actually a great disservice to them. The fact is that they are all actors and should be viewed that way by the industry. It was our casting process that was non-professional.
+- Because I'm a dramatist, I'm allowed to take liberties, but I want my films to be based in truth, and it's very important to me that the community we're focusing on is happy with the film. From an ethical point of view, that's everything.
+- I don't see myself as a short-film director, and I'm not a commercial director.
+- There's an alchemy that happens in my eyes when you mix it up, when you have a seasoned actor on set and your first-timer.
+- Somebody who doesn't understand my directing style could be pretty taken aback by it if I start going off the schedule and focusing on something because I'm inspired in the moment.
+- I think most of our eyes are trained to background being completely out of focus, but you can't do that with an iPhone unless you manipulate it quite a lot in post. You have to accept the fact that your film is going to look a little different on the big screen. Even though the resolution holds up, it does have something very different about it.
+- I'm fine with a title that's open to interpretation.
+- From a filmmaker's point of view, there is something undeniably cinematic about a location like Santa Monica Boulevard, which is so chaotic and busy and over-stimulating.
+- I work with different actors with varied degrees of experience.
+- In our most desperate times, people going through true hardships use humor to cope.
+- Route 192 is its own thing, and you can't find that anywhere else. The colors and shapes of the buildings, the way that all the small businesses in a way feed off of the parks and sort of rip off the themes of Disney - you're not going to find that anywhere else.
+- In so many reviews that I'm reading of 'The Florida Project,' everyone is assuming it's my second film.
+- Many trans women of color come from poverty and are forced to live on the streets. Their families have shunned them, and their remaining family are the friends they've come to rely on.
+- If more stories are told about marginalized communities, subcultures, and minorities, the less marginalized they will be.
+- I would like to make sure I'm not homeless.
+- When you're a child, the colors are brighter, sounds are louder and whatever.
+- If I'm telling an L.A. story, I want to tell a fresh L.A. story and show places that haven't been shown before.
+- I have friends who are trans advocates, and they were upset that Jared Leto played a trans person.
+- It feels dangerous when people say, 'Oh, Sean Baker focuses on marginalised people.' And offensive. As if I'm standing there with my planner thinking, 'OK, where's the next marginalised group I can make a movie about?'
+- I come from the school of thought that feels that if you can shoot film, you should shoot film.
+- I love to combine first-time actors with seasoned actors.
+- I'm not looking to get rich.
+- I try to create a very casual working place, where everybody - down to production assistants - can throw out ideas and not feel intimidated. When it becomes a collaborative environment, it becomes a small family, and everybody becomes invested.
+- We're all getting in trouble on Twitter - just get off and use your Instagram.
+- Like with 'Starlet,' we intentionally did not look at 'Boogie Nights' before making 'Starlet,' and I should have. Because there are one or two scenes that come too close and it looks almost like - because it's about the same industry, and you're going to be covering certain subjects.
+- You know, master classes are essentially extended Q&As. That's how I always approach them. I don't mean to downplay it. It's just that I never fancy myself as someone who is taking a class. 'Master class' insinuates a teacher, and I'm not one.
+- I'm not a material guy, so I don't need to surround myself with wealth.
+- I'm from outside most of these worlds I'm focusing on, and I feel there's an ethical approach to making these kinds of films. My biggest fear is that if you paint your characters in, you could be doing them wrong.
+- We're living in an age of the think piece.
+- I cannot stand Hollywood child performances. It just reeks of artifice, and it's weird that, for some reason, Hollywood feels they have to make their child characters smarter than adults, and suddenly kids have the vocabulary of a college grad.
+- I hoped 'Starlet' would finally open doors for me and lead to a much bigger budgeted movie, but that didn't happen.
+- There's always this hump, this 1-week hump where the first-time actors have to get used to the fact that there's a camera in their face. It takes them about a week to get comfortable.
+- Film is the only art form where we feel we have to title our stuff literally. Musicians don't have to title their songs literally. It can be more about what's conjured up when you think of a word.
+- I grew up torturing friends and family by making super-8 and VHS epics.
+- I know that 'Tangerine' is getting a lot of attention for pushing the iFilm, but I am really mourning the death of celluloid.
+- If you look over the history of cinema, changes happen when directors embrace new tools and technology and think outside the box.
+- I spend a lot of time on my phone, so I have two Mophie backups myself.
+- Some have said I focus on marginalized communities, but it's not like that was my mission statement. I've just told stories that interest me, and that I'm not seeing enough of, on groups of people and subcultures that are often not seen.
+- Cinema is always evolving.
+- I've told my agent to push the idea of me as a director for hire off the table. Otherwise, we're wasting people's time.
+- My way of directing is definitely unorthodox, definitely unconventional.
+- Most filmmakers, if not all, come from a place of privilege, if only because of the expense.
+- Children are funny.
+- I'm seen as a little risky to the industry, I think. All my favorite directors are.
+- I make dramedies, but 'Tangerine' really has a lot of comedy, and I saw that it had a great effect - it reached a larger audience.
+- The minute you're laughing, some people will say you're laughing at people.
+- My one hope for Netflix and Amazon is to be a little more art house- and indie-friendly, pushing those just as hard as they push their originals.
+- I went to NYU thinking I was going to make a 'Die Hard' sequel, or maybe action and genre films for the studios, but I ended up falling in love with personal cinema.
+- I've fallen in love with Los Angeles, and I love to explore it myself.
+- Everyone's asking if I've been offered a superhero movie, and no, I definitely have not.
+- When I see a billboard that literally just has five names, and they're all A-listers, I'm just like, What is that bringing to the world that's new?
+- Dealing with kids, you're always going to have to deal with something. I mean, they're kids.
+- I grew up with 'The Little Rascals' and always try to work a link into every one of my movies.
+- The films that are coming out of SXSW are incredible, and they should get the same bids that films at Sundance are getting.
+- A small lens gives you a very specific look. You don't have a shallow depth of field.
+- I'm always looking for authenticity in my films. They're based in realism.
+- I definitely learned a lot about how to be more communicative with my crews.
+- I don't have a family. I'm not planning one. I don't have to support anyone but me and my dog.
+- The iPhone in conjunction with the Filmic Pro app - the resolution is HD quality.
+- I like hearing from everybody and not just my co-screenwriters or producers. For example, while on set, I find it valuable to turn to my PA and ask, 'What do you think? Is this scene working? Do you like what you see? You got any ideas for that line there because that idea isn't working for me.'
+- There are so many directors who don't like any kind of interaction on set except for producers. I am the opposite.
+- The iPhone always has a different look from model to model - 'Tangerine' is quite smooth, but that was the 5s. I was using the iPhone 6s Plus for 'The Florida Project,' and it has what's called a rolling shutter, and it gave it this hyperactivity and a very different, jarring feel, and we liked that.
+- 'Tangerine' being my fifth film, I was out of favors. I couldn't afford to get the Arri Alexa or RED cameras and I definitely couldn't shoot on film.
+- Digital is great; I see the benefits and beauty in both formats. But it doesn't give you that organic quality that celluloid brings.
+- I think with 'Tangerine' we were taking that gamble - it was a risk - that we could tell the story in a comedic fashion to attract an audience and shed light on an issue.
+- I'm an advocate of all mediums - it's a larger canvas for us as artists - but we have to keep in mind that celluloid film is what created this wonderful art form, and we have to keep it alive.
+- I want my films to be different, to use different techniques, not just make a calling card film.
+- A lot of the LGBTQ community accepted 'Tangerine,' which was something we worked really hard to achieve.
+- I think I'm my own worst enemy.
+- As long as I can pay rent, that's all I care about.
+- I'm not really the type to jump into a $20 million film just to do it.
+- Talent is out there. But sometimes it doesn't work. You're going to find people who you think are wonderful, and the minute you turn on the camera, they just don't understand the concept of acting.
+- I have been very inspired and influenced by 'The Little Rascals' my entire career.
+- 'Greg the Bunny,' the comedy television show that I co-created, happened almost by accident. Dan Milano, Spencer Chinoy and myself made a public access show that caught the eye of IFC, and it has had three incarnations since then with a season on Fox.
+- 'Tangerine' taught me that if you win an audience over with comedy, then hopefully have a soulful message at the same time.

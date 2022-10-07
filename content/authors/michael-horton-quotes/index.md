@@ -1,0 +1,16 @@
++++
+author = "Michael Horton"
+title = "Michael Horton Quotes"
+quotes_len = "10"
+description = "the best 10 Michael Horton Quotes"
++++
+- Does Scripture forbid homosexual behavior? Of course it does. Jesus and his apostles taught that God's intention in marriage is for a man to leave his parents and join himself to one woman.
+- Evangelicalism as a movement is rushing headlong toward theological ambiguity, which is another way of saying apostasy.
+- The gospel frees us to confess our sins without fear of condemnation.
+- Baptism is not only a sacrament of our union with Christ; it is also a sacrament of our communion as the body of Christ.
+- There are versions of the pro-gay and anti-gay agenda that assume a simplistic rather than simple understanding of the issue - at least from a biblical perspective. Reject it or embrace it: that's the easy choice that makes for great sound-bites but ruins lives.
+- The gospel is entirely a message about what someone else has done not only for me but also for the renewal of the whole creation.
+- No one has to be taught to trust in themselves. No one has to be taught that what you experience inside yourself is more authoritative than what comes to you externally, even if it comes from God. Since the Fall, it has been part of our character to look within ourselves.
+- Long before genetics became a flourishing field, Christians have spoken about sin as an inherited condition.
+- Once we truly grasp the message of the 'New Testament', it is impossible to read the 'Old Testament' again without seeing Christ on every page, in every story, foreshadowed or anticipated in every event and narrative.
+- In such a therapeutic, pragmatic, pull-yourself-up-by-your-bootstraps society as ours, the message of God having to do all the work in saving us comes as an offensive shot at our egos.

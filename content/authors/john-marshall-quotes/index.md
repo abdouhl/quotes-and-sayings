@@ -1,0 +1,24 @@
++++
+author = "John Marshall"
+title = "John Marshall Quotes"
+quotes_len = "18"
+description = "the best 18 John Marshall Quotes"
++++
+- I have always believed that national character... depends more on the female part of society than is generally imagined. Precepts from the lips of a beloved mother... sink deep in the heart, and make an impression which is seldom entirely effaced.
+- When a law is in its nature a contract, when absolute rights have vested under that contract, a repeal of the law cannot divest those rights. The people can act only by their agents and, within the powers conferred upon them, their acts must be considered as the acts of the people.
+- The power to tax is the power to destroy.
+- When a law is in its nature a contract, when absolute rights have vested under that contract, a repeal of the law cannot divest those rights.
+- During intervals of humanity, some disposition has been manifested to permit the return of those who have never offended, who have been banished by a terror which the government itself has reprobated, & to permit in case of arrestation, an investigation of the fact of emigration as well as of the identity of the person accus'd.
+- My father superintended the English part of my education, and to his care I am indebted for anything valuable which I may have acquired in my youth. He was my only intelligent companion, and was both a watchful parent and an affectionate friend.
+- If the agency of the mother in forming the character of her children is, in truth, so considerable, as I think it - if she does so much toward making her son what she would wish him to be - how essential is it that she should be fitted for the beneficial performance of these important duties.
+- The events of my life are too unimportant, and have too little interest for any person not of my immediate family, to render them worth communicating or preserving.
+- The very essence of civil liberty certainly consists in the right of every individual to claim the protection of the laws, whenever he receives an injury. One of the first duties of government is to afford that protection.
+- The constitution controls any legislative act repugnant to it.
+- To listen well is as powerful a means of communication and influence as to talk well.
+- The most lively fancy aided by the strongest description cannot equal the reality of the opera.
+- What is it that makes us trust our judges? Their independence in office and manner of appointment.
+- Paris presents one incessant round of amusement & dissipation but very little, I believe - even for its inhabitants of that society - which interests the heart. Every day, you may see something new, magnificent & beautiful; every night, you may see a spectacle which astonishes & enchants the imagination.
+- I was born on the 24th of September 1755 in the county of Fauquier, at that time one of the frontier counties of Virginia. My father possessed scarcely any fortune and had received a very limited education - but was a man to whom nature had been bountiful, and who had assiduously improved her gifts.
+- The government of the Union, though limited in its powers, is supreme within its sphere of action, and its laws, when made in pursuance of the constitution, form the supreme law of the land.
+- The constitution is either a superior paramount law, unchangeable by ordinary means, or it is on a level with ordinary legislative acts, alterable when the legislature shall please to alter it. It is emphatically the province and duty of the judicial department to say what the law is. This is the very essence of judicial duty.
+- The French Revolution will be found to have had great influence on the strength of parties, and on the subsequent political transactions of the United States.

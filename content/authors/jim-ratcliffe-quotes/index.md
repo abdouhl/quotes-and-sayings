@@ -1,0 +1,35 @@
++++
+author = "Jim Ratcliffe"
+title = "Jim Ratcliffe Quotes"
+quotes_len = "29"
+description = "the best 29 Jim Ratcliffe Quotes"
++++
+- Growing Ineos has been a lot of fun.
+- I'm very cheerful about coming back to the U.K. We increasingly found ourselves gravitating towards London. There was so much going on for our business, and we had grown substantially here.
+- The U.K. is already disadvantaged on the wholesale cost of energy, and then it puts taxes on it. Anybody who's an energy user is just going to disappear.
+- There's no substitute for seeing firsthand a well being drilled.
+- The Brits are perfectly capable of managing the Brits and don't need Brussels telling them how to manage things.
+- Brussels has become inefficient and very bureaucratic, which makes it slow to do things. The concept of the United States of Europe will never work.
+- Gas is by far and away the most important element of our energy policy.
+- It's always been hard work for us to manufacture in the U.K. It's not a particularly profitable place for us.
+- What we want to see is a long term future for Grangemouth.
+- While unions did not play a part in my family life when I was being brought up, my early years were most certainly spent in a working-class community.
+- Shale is one answer to the U.K.'s energy problem, and it has obviously worked extraordinarily well in America.
+- If you have spent your life building Ineos, and you find yourself in a crisis, you are going to do anything you can to save what you have been building.
+- It would be nice if areas could be revitalised - like places in the U.S. such as Pittsburgh, for example, which have been transformed through shale. There you have shiny cars in a shiny city because of the development of shale in an old industrial heartland.
+- Do your analysis of energy costs. Either it comes from windmills and solar or things like nuclear and shale gas. You have to think about how you provide competitive energy for U.K. Ltd.
+- It is not necessary, nor appropriate, to sow dissent and misrepresent employees or constantly to threaten industrial action.
+- If it's hemorrhaging cash, you've got to do something about it. You can't live with your head in the sand.
+- Towards the end of 2005, Ineos acquired Innovene, the petrochemicals arm of BP, for $9 billion. It quadrupled the size of Ineos overnight and brought with it some of the world's largest industrial sites.
+- Unions can play a valuable role in large organisations where it is difficult to talk to a thousand people. They can negotiate annual pay awards with management, represent grievance cases, and explain and advise on complicated changes in employment or pension law.
+- Unions do have a proper role in negotiating for employees and advising employees, but they have to engage with the employer.
+- I'm not sure we could spell 'shale' in 2008.
+- If you go to the U.S., you've got a huge market, cheap energy, good skills, and pensions are a sensible cost.
+- In America, if you are a landowner, you own the minerals vertically underneath your plot. So if there is shale, you get a share.
+- We believe Ineos is a refreshing place to work. We believe strongly in employee share ownership.
+- Germany has great skill levels, great infrastructure, high-quality plant. If you go to the U.K., we're very creative, and we've got the language, but energy costs are pretty much the most expensive in the Western world; pensions are pretty expensive, and the skills are significantly below those in Germany and the U.S.
+- You can't have an energy policy that means you can only have a bath when the wind blows.
+- I think the U.K. would be perfectly successful as a standalone country, part of the European marketplace like Norway and Switzerland but without the expensive E.U. bureaucracy.
+- America's got quite reasonable tax rates from an employee point of view.
+- Ineos is a friendly organisation. Very few people leave. It's collegiate. There's not much politics, and we like decent people. We don't like arrogance or bullies.
+- The U.K. is one of the few places in the world that has final salary pensions.

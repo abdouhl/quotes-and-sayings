@@ -1,0 +1,102 @@
++++
+author = "Shaggy"
+title = "Shaggy Quotes"
+quotes_len = "96"
+description = "the best 96 Shaggy Quotes"
++++
+- A lot of people do records, and they get hit records, but we were blessed with a lot of monsters. 'Oh Carolina' was a very monstrous record in 1993; so was 'Boombastic,' 'Angel' and 'It Wasn't Me.'
+- I'm inspired by day to day life, things that people go through, things that make people tick. Everybody has a story, so you try to put stories into songs and try to make it as entertaining as possible.
+- I think the reason I got into the music business was basically for the live aspect of it.
+- The thing about Shaggy's records are those records are very timeless.
+- You got to understand: when you go into a record company and give them a something that doesn't sound like what's on the radio, it's hard to sell it.
+- My thing is to get people out of the stigma of what a reggae artist should be like.
+- I live in Kingston. When I tell people I live in Kingston, they start fearing for my life. People ask me if I have Internet in Jamaica. Like, seriously?
+- After I made 'Oh Carolina' in the 1990s, the record company wanted me to copy that sound, and I refused.
+- I didn't just sit down and write 'Summer In Kingston' from scratch; it came about from a bunch of songs I already had.
+- The mainstream is very fickle. If you're hot, they'll mess with you. If you're not, it's out of there.
+- America is a symbol of freedom - it's a symbol of democracy - and if that is threatened, we have to take this platform and use it to be a voice for the voiceless.
+- I love Indian food.
+- I just think, as a people in general, we should always look at ourselves as the underdog, so we should always go harder than the next person.
+- The best thing about my house is that I live five minutes from the airport, and since I fly more than I drive, it saves me a lot of time.
+- If you look at reggae and dancehall artists in general, there isn't really a big success story. A Shabba Ranks or a Yellowman might have a hit, but there's never a follow up. There's no consistency.
+- I prefer working with artists who are prepared to get down in the dungeons and get the job done.
+- I'm no stranger to making timeless music.
+- I don't make as many records as other people do because I prefer the live side of it - and my records are so big that they keep me touring for years upon years and years.
+- I don't want another 'It Wasn't Me.' I've been asked that question so many times. Do I want a song of that magnitude? Great, always, but not the same type of music.
+- The biggest thing I take away from the Army is that work ethic and being able to focus and put your eyes on a goal.
+- I constantly tour every year, around the clock. That's how I make my living, and I do very well. Because I have classic songs.
+- You don't create legends out of other legends.
+- Gays and lesbians should have the same rights as anybody else, and when they're in Jamaica, they do have the same rights.
+- 'Shaggy' was a nickname before it was ever a stage name. I have no problem with it.
+- India is a great place.
+- 'Shaggy' is a brand.
+- My children are a joy to be around.
+- The Police, they were the guys that were like the gateway to the mainstream. In England, there was a very strong reggae movement that was going on. Anything that was happening in reggae happened out of England. They were brilliant. They could spot a sound that was cool, the 'it' sound.
+- The pop market is a very fickle market, and that's why for me to go into the teeny-pop, 'TRL' mode, it's not really for me.
+- Music, music, music. It doesn't get much better than that! It pretty much consumes my life.
+- You might be like, 'I want really big hits.' But when you get really big hits, and your label is making $150 million, they are people who are now interested in what you do. They are going to begin to tell you what to do, and so you become important. So your creative freedom - you're not going to have that again.
+- I fought for the U.S. government. I live in New York. I pay taxes in America.
+- I've always been faced with all kinds of criticism. People were saying, 'Oh, Shaggy is pop. He can't do dancehall,' even though I came from dancehall.
+- I have a festival called Shaggy and Friends, which is a charity event to raise funds for a hospital.
+- When magic happens, it just happens, brother.
+- I got the name in primary school because my hair was shaggy. And I didn't like it; I thought it was derogatory.
+- I like that raw energy that I get from an audience.
+- There are those women who degrade the name of women, and there are men who degrade the name of women. But for the most part, we can't live without them.
+- We're fortunate to have had success, not just in America but worldwide.
+- I did a record with Janet Jackson, and it went to the top of the charts, and we had all of these complications, and she couldn't be in the video and couldn't do anything for the record. I went through something similar with Pitbull. I think it works really well for a lot of other artists, but for me, it just doesn't work that well.
+- When I was doing 'Hot Shot,' I didn't even have an album deal.
+- I just do what sounds good to me, and people seem to like it.
+- I always had these big records with people who were relatively unknown.
+- I'm not the guy to get big record company budgets. My budget is Britney Spears' catering money.
+- I live vicariously through my songs.
+- I cleaned many a toilet.
+- When we do reggae, it's normally a one-chord or a two-chord, or whatever it is. With Sting, there'll be chord changes, key changes.
+- When I look at my catalog, most of my songs are about love or relationships. And I'm smart enough to say if it's not broken, don't fix it.
+- The Irish want to smile, and they want to have fun.
+- I used to do three or four songs a day, just write them - boom, boom, boom, and done - because of how spontaneous I was.
+- I go to bed late, and I wake up early; in this game, to win it, you have to do that. The military prepared me to do that: you go to bed late and wake up early.
+- I've never been one that really won with major-name collaborators. You take, for instance, 'Angel' with Rayvon. 'It Wasn't Me' was with Rikrok. Nobody knew who those guys were.
+- I'm from a single-parent family. My mom is like my mom and dad. She's my world.
+- Making records is not brain surgery.
+- 'Lucky Day' is what I would call the Shaggy roller-coaster ride. It takes you to different moods. I listen to music in moods.
+- We don't have all this gay-bashing crime. You don't see that. It's not there. That is not really happening in Jamaica. But because a few artists basically sing it and put records out and the media runs with it, then the stigma becomes big, and now we're trapped with that whole thing. It's really sad.
+- If you listen to all my earlier stuff, it wasn't 'authentic reggae,' so to speak.
+- I've been criticized for doing so - crossover music. But I never claimed to be a pure dancehall artist.
+- The reggae fraternity is a small fraternity.
+- I like having big hooks and big records and sing-a-longs.
+- I'm used to people not getting it. I'll make amazing music, but it's convincing people that it's amazing - that's the problem.
+- A lot of true Jamaican artists don't understand the importance of radio so tend not to tap into that as a result.
+- I'm Shaggy. I'm a business.
+- Women love to talk, so you gotta be the guy that listens - not just listens but is interested.
+- I get called everything from 'Mr Boombastic' to 'Mr Lover Lover' to 'Mr It Wasn't Me.' It's whatever is hot at that point.
+- My existence wouldn't be the same if there weren't women.
+- I just put people on my records that I think bring something really unique to the song, and that's what's going to make it live over time. Not the fact that an artist might be 'hot' at the time.
+- I came to the Unites States and realised I had a knack for coming up with rhymes and lyrics.
+- You've always got to try and reinvent yourself.
+- Reggae is a culture. It's easy, laid-back.
+- I'm one of those artists that nobody ever sees coming. We started with Virgin in 1993. If you look at the climate of that time in reggae and you were to pick the top five people that'd have a shot at having mainstream success, I was nowhere in that equation at all.
+- 'Fields of Gold' is my favourite record.
+- I have mixed feelings about Napster. I like what it can do for an unsigned band. It can help them sell 10,000 records. But for an established artist, there's already so much piracy around. They need to regulate it.
+- Some people get a little shy, you know, and it can take a certain mood or a situation or a vibe for you to relax and come out of your shell.
+- I like things that catch your ears.
+- When you see a Jamaica video, it's always the hood. Everybody in the video's got guns, and the world looks at it like that's what Jamaica's about. And it affects the economics of the music.
+- When I was doing dancehalls, nobody was doing well in dancehalls. Dancehalls was not mainstream music that was blazing charts and knocking down barriers. This was an underground phenom.
+- I really didn't think I was going to make records to where I make a living out of it.
+- I've seen the harshest of reggae purists come give me my props because I've been at it for so long... They've seen me come from the hardest of hard-core dancehall to where I am, and they've heard my music change through the years. Some might not agree, but they respect.
+- I fought for this country.
+- I'm not big on collaborations with 'superstars.' It generally doesn't work for me.
+- I got to prove myself all the time. And that's good. It makes you stronger.
+- I want to build a fanbase. I want people to like my albums even more so than singles.
+- I'm still amazed at how the universe works.
+- When I look back at the people who shaped me, that made a difference in my life, most of them were women.
+- I have to be me, which is, don't like a lot of crowds, don't like a lot of attention - kind of being by myself.
+- Ireland kind of reminds me of Jamaicans - there are a lot of Irish people in Jamaica. It's the blend of their easy-going nature, cool mentality, and warmth.
+- The greatest thing about me is I have always been able to reinvent. We have done that about three or four times with my sound.
+- I am not from a musical family.
+- If you look at my track record, there was nothing on radio that sounded like 'Oh Carolina,' 'Mr Bombastic' when they came out.
+- My career has taken so many directions.
+- Even my mom is calling me Shaggy now, which is weird, because Shaggy is more like a character that I play. Shaggy is flamboyant; he's cocky. And I can't live that twenty-four hours a day - hell, no.
+- Music really evolves as it goes along. It's an evolution.
+- I think that anybody, once we leave Jamaica, automatically, any citizen becomes an ambassador for the flag, for Jamiaca. It's a country that's so rich in culture. We even have a bobsled team, and we ain't even got snow. We do everything in extreme.
+- If I'm not on tour, then I'm sometimes laying down four or five records at a time.
+- I would never be about waking up early and do morning radio and TV back to back had I not been in the military, where they are throwing a garbage can in the middle of my squad bed at 5 o'clock in the morning for four years straight.

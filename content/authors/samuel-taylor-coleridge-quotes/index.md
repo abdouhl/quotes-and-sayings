@@ -1,0 +1,65 @@
++++
+author = "Samuel Taylor Coleridge"
+title = "Samuel Taylor Coleridge Quotes"
+quotes_len = "59"
+description = "the best 59 Samuel Taylor Coleridge Quotes"
++++
+- I have seen great intolerance shown in support of tolerance.
+- Exclusively of the abstract sciences, the largest and worthiest portion of our knowledge consists of aphorisms: and the greatest and best of men is but an aphorism.
+- People of humor are always in some degree people of genius.
+- No one does anything from a single motive.
+- What is a epigram? A dwarfish whole. Its body brevity, and wit its soul.
+- Talent, lying in the understanding, is often inherited; genius, being the action of reason or imagination, rarely or never.
+- A man's desire is for the woman, but the woman's desire is rarely other than for the desire of the man.
+- Brute animals have the vowel sounds; man only can utter consonants.
+- Advice is like snow - the softer it falls, the longer it dwells upon, and the deeper it sinks into the mind.
+- The three great ends which a statesman ought to propose to himself in the government of a nation, are one, Security to possessors; two, facility to acquirers; and three, hope to all.
+- The genius of the Spanish people is exquisitely subtle, without being at all acute; hence there is so much humour and so little wit in their literature.
+- The love of a mother is the veil of a softer light between the heart and the heavenly Father.
+- Every reform, however necessary, will by weak minds be carried to an excess, that itself will need reforming.
+- Until you understand a writer's ignorance, presume yourself ignorant of his understanding.
+- Alas! they had been friends in youth; but whispering tongues can poison truth.
+- Sympathy constitutes friendship; but in love there is a sort of antipathy, or opposing passion. Each strives to be the other, and both together make up one whole.
+- I wish our clever young poets would remember my homely definitions of prose and poetry; that is, prose = words in their best order; - poetry = the best words in the best order.
+- Swans sing before they die - 'twere no bad thing should certain persons die before they sing.
+- Not one man in a thousand has the strength of mind or the goodness of heart to be an atheist.
+- That willing suspension of disbelief for the moment, which constitutes poetic faith.
+- Nothing is so contagious as enthusiasm.
+- The man's desire is for the woman; but the woman's desire is rarely other than for the desire of the man.
+- Talk of the devil, and his horns appear.
+- To sentence a man of true genius, to the drudgery of a school is to put a racehorse on a treadmill.
+- Good and bad men are less than they seem.
+- No mind is thoroughly well organized that is deficient in a sense of humor.
+- If a man could pass through Paradise in a dream, and have a flower presented to him as a pledge that his soul had really been there, and if he found that flower in his hand when he awake - Aye, what then?
+- Intense study of the Bible will keep any writer from being vulgar, in point of style.
+- All thoughts, all passions, all delights Whatever stirs this mortal frame All are but ministers of Love And feed His sacred flame.
+- Language is the armory of the human mind, and at once contains the trophies of its past and the weapons of its future conquests.
+- The principle of the Gothic architecture is infinity made imaginable.
+- To most men experience is like the stern lights of a ship, which illuminate only the track it has passed.
+- Reviewers are usually people who would have been, poets, historians, biographer, if they could. They have tried their talents at one thing or another and have failed; therefore they turn critic.
+- A man may devote himself to death and destruction to save a nation; but no nation will devote itself to death and destruction to save mankind.
+- He who begins by loving Christianity more than Truth, will proceed by loving his sect or church better than Christianity, and end in loving himself better than all.
+- He is the best physician who is the most ingenious inspirer of hope.
+- No man was ever yet a great poet, without being at the same time a profound philosopher.
+- I have often thought what a melancholy world this would be without children, and what an inhuman world without the aged.
+- A man's as old as he's feeling. A woman as old as she looks.
+- Poetry has been to me its own exceeding great reward; it has given me the habit of wishing to discover the good and beautiful in all that meets and surrounds me.
+- Our own heart, and not other men's opinions form our true honor.
+- All sympathy not consistent with acknowledged virtue is but disguised selfishness.
+- How like herrings and onions our vices are in the morning after we have committed them.
+- In politics, what begins in fear usually ends in failure.
+- Poetry: the best words in the best order.
+- General principles... are to the facts as the root and sap of a tree are to its leaves.
+- And though thou notest from thy safe recess old friends burn dim, like lamps in noisome air love them for what they are; nor love them less, because to thee they are not what they were.
+- Works of imagination should be written in very plain language; the more purely imaginative they are the more necessary it is to be plain.
+- Friendship is a sheltering tree.
+- The most happy marriage I can picture or imagine to myself would be the union of a deaf man to a blind woman.
+- Greatness and goodness are not means, but ends.
+- The happiness of life is made up of minute fractions - the little, soon forgotten charities of a kiss or a smile, a kind look or heartfelt compliment.
+- Plagiarists are always suspicious of being stolen from.
+- Common sense in an uncommon degree is what the world calls wisdom.
+- Christianity is not a theory or speculation, but a life; not a philosophy of life, but a life and a living process.
+- A mother is a mother still, The holiest thing alive.
+- A poet ought not to pick nature's pocket. Let him borrow, and so borrow as to repay by the very act of borrowing. Examine nature accurately, but write from recollection, and trust more to the imagination than the memory.
+- As I live and am a man, this is an unexaggerated tale - my dreams become the substances of my life.
+- Love is flower like; Friendship is like a sheltering tree.

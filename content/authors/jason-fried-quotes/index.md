@@ -1,0 +1,105 @@
++++
+author = "Jason Fried"
+title = "Jason Fried Quotes"
+quotes_len = "99"
+description = "the best 99 Jason Fried Quotes"
++++
+- If you tell your story well, it can help attract customers; it can help people understand your business better, and you are more approachable as a business and a company.
+- When it comes to making decisions, I'm not what you'd call a numbers guy.
+- I've found that nurturing untapped potential is far more exhilarating than finding someone who has already peaked.
+- Lots of business owners spend their lives trying to land the whale - the single, massive, brand-name account that will fatten the top line and bestow instant credibility. But big customers make me nervous.
+- Remind yourself that other people's jobs aren't so simple.
+- I've seen small businesses turn into terrible midsize or big ones because they let their desire to achieve some arbitrary metric get the best of them. Whatever is compromised as a result doesn't matter anymore, as long as the company is growing.
+- The reality is that companies are full of things that are left unspoken. And even when they are out in the open, the CEO is almost always the last to know.
+- The risk of relying on a handful of customers is not just financial. Your product also is at risk when you're at the mercy of a few big spenders. When any one customer pays you significantly more than the others, your product inevitably ends up catering mostly to that customer's specific needs.
+- Meetings should be like salt - a spice sprinkled carefully to enhance a dish, not poured recklessly over every forkful. Too much salt destroys a dish. Too many meetings destroy morale and motivation.
+- Sometimes you get lucky and things are as easy as you had imagined, but that's rarely the case.
+- Respect the work that you've never done before.
+- Being a salesperson prepares you for just about everything in business: how to listen, empathize, and persuade; when to back off and when to step in; and, of course, how to close.
+- As businesses grow, all sorts of things that once were done on the fly - including creating new products - have a way of becoming bureaucratized.
+- When it's all about the work, it's clear who in the company is pulling their weight and who isn't.
+- When something is working well, it becomes too easy to let things run themselves.
+- Entrepreneurs love to view risk as binary. The more you put on the line, the greater the potential for reward.
+- A large user base helps shield us from things we can't control. You can spend years catering to a major corporation, for example, only to see your contact there move on.
+- You cannot ask somebody to be creative in 15 minutes and really think about a problem. You might have a quick idea, but to be in deep thought about a problem and really consider a problem carefully, you need long stretches of uninterrupted time.
+- A computer doesn't have a mind of its own - it needs someone else's to function.
+- Nearly every boss has said it. And just about every employee has heard it. Yet it's one of the most meaningless lines ever spoken in the office: 'My door is always open.'
+- I used to think that deadlines should be ignored until the product was ready: that they were a nuisance, a hurdle in front of quality, a forced measure to get something out the door for the good of the schedule, not the customer.
+- People pulling 16-hour days on a regular basis are exhausted. They're just too tired to notice that their work has suffered because of it.
+- One of the secret benefits of using remote workers is that the work itself becomes the yardstick to judge someone's performance.
+- Selling to small businesses and selling to enterprises take two very different approaches with two very different kinds of people.
+- Success isn't about being the biggest. It's about letting the right size find you.
+- When we launched the first version of Basecamp in 2004, we decided to build software for small companies just like us.
+- If yesterday was a good day's work, chances are you'll stay on a roll. And if you can stay on a roll, everything else will probably take care of itself - including not working from the moment you get up in the morning until you nod off to sleep.
+- I like to think of myself as a leader whose door is always open. But I recently learned that an open door isn't enough.
+- As the number of people who work at Basecamp has grown, I've noticed places where we could use more features, like management, structure, and guidelines. I've also noticed places where we've overengineered ourselves and should pull back.
+- Sustained exhaustion is not a rite of passage. It's a mark of stupidity.
+- I live in Chicago but own some property up in Wisconsin.
+- When meetings are the norm - the first resort, the go-to tool to discuss, debate, and solve every problem - they no longer work.
+- A fixed deadline and a flexible scope are the crucial combination.
+- I'm not sure a lot of companies know their story, or can explain why they exist and who they are, without just spewing just corporate speech.
+- Bottom line: If you can't spare some time to give your employees the chance to wow you, you'll never get the best from them.
+- That's the great irony of allowing passionate people to work from home. A manager's natural instinct is to worry that her workers aren't getting enough work done. But the real threat is that they will wind up working too hard. And because the manager isn't sitting across from her worker anymore, she can't look in the person's eyes and see burnout.
+- I'd love to see more businesses take this approach - intentionally rightsizing themselves. Hit a number that feels good and say, 'Let's stick around here.'
+- Many of the things we do at Basecamp would be considered unusual at most companies: paying for employees' hobbies, allowing our team to work from anywhere, even footing the bill for fresh fruits and veggies in our staff members' homes.
+- Who you work with is even more important than who you hang out with because you spend a lot more time with your workmates than your friends.
+- I casually advise a few young companies, and I'm always surprised when I see them overthinking simple problems, adding too much structure too early, and trying to get formal too soon. Start-ups should embrace their scrappiness, not rush to toss it aside.
+- The office during the day has become the last place people want to be when they really want to get work done. In fact, offices have become interruption factories.
+- A lot of people relate leadership to formalities. They believe that leadership is about being professional and strong and always right and being a booming voice. I just don't buy that. I think that leadership is a soft skill; it's a people skill.
+- If working remotely is such a great idea, why isn't everyone doing it? I think it's because we've been bred on the idea that work happens from 9 to 5, in offices and cubicles. It's no wonder that most who are employed inside that model haven't considered other options, or resist the idea that it could be any different. But it can.
+- I think what really people want is just a few things done really, really well. And if you think about ever day of your life, the things you really appreciate aren't the complicated things. They're the simple things that work just the way you expect them to.
+- We like to bully deadlines. Pick on them; make fun of them; even spit on them sometimes. But what a terrible thing to do. Deadlines are actually our best friends.
+- Fix a few things here, improve a few things there, launch a new feature every so often. That's coasting. And I don't want Basecamp to coast.
+- It feels good to be productive.
+- Give your employees a shot at showing the company a new way, and provide the room for them to chalk up a few small victories. Once they've proved that their idea can work on a limited basis, they can begin to scale it up.
+- I know plenty of entrepreneurs who are numbers first. They tend to be highly analytical people, and before they pull the trigger, all the numbers have to line up just right.
+- Like many entrepreneurs, I started out in sales. I began at 14, when I got a job selling shoes and tennis rackets at a pro shop, and I've been selling one thing or another ever since.
+- Statistics rarely drive me. Feelings, intuition, and gut instinct do.
+- When you spend time with potential customers, you get to hear about their struggles firsthand. You see their eyes light up with excitement or darken with confusion. You learn things you would never find in a survey, database, or questionnaire. You learn why people buy.
+- The reality is, risk is variable. Those in the financial world know it.
+- When you're short on sleep, you're short on patience. You're ruder to people, less tolerant, less understanding. It's harder to relate and to pay attention for sustained periods of time.
+- A company gets better at the things it practices.
+- We've never much liked the idea of charging a participation tax, a phrase we coined to represent what it feels like when a software company charges you more money for each additional user. Participation taxes discourage usage across a company.
+- Whenever you need something from someone else before you can move forward, it's a dependency. We believe dependencies slow people down. We want people to be more independent, because that will keep them moving forward.
+- Even companies that do big business online struggle to be noticed by Google users. The Web, after all, is home to some 120 million Internet domains and tens of billions of indexed pages. But every company, big or small, can draw more Google traffic by using search-engine optimization - SEO, for short.
+- I think the story is important in every business. Why do you exist, why are you here, why is your product different, why should I pay attention, why should I care?
+- Deadlines are great for customers because having one means they get a product, not just a promise that someday they'll get a product.
+- When time, money, and results are on the line, it's easy for tension to build.
+- Unlike a goldfish, a computer can't really do anything without you telling it exactly what you want it to do.
+- I think that sleep and work are very closely related - not because you can work while you're sleeping and sleep while you're working. That's not really what I mean. I'm talking specifically about the fact that sleep and work are phase-based, or stage-based, events.
+- Customers buy Basecamp without ever having to interact with us. If they do have a question, we handle everything via email. We've been in the business of automation. We've never really valued full service.
+- By rationing in-person meetings, their stature is elevated to that of a rare treat. They become something to be savored, something special.
+- I'm a designer, but I rely on programmers to bring my ideas to life. By learning to code myself, I think I can make things easier for all of us. Similarly, I want to be able to build things on my own without having to bother a programmer.
+- Your employees have lots of opinions about everything - your strategy and vision; the state of the competition; the quality of your products; the vibe in the workplace. There are tons of things you can learn from them.
+- It's easy to forget, as a leader, that when employees don't get the wide view, not only does the point of their work escape them, but it can also lead to real frustration. It's hard to feel pride and ownership when you don't understand where things are going.
+- Whenever I speak at a conference, I try to catch a few of the other presentations. I tend to stand in the back and listen, observe, and get a general sense of the room.
+- In almost every case, cutting things back is a way of favoring what is left.
+- It's like, the front door of the office is like a Cuisinart, and you walk in, and your day is shredded to bits because you have 15 minutes here, 30 minutes there, and something else happens, you're pulled off your work, then you have 20 minutes, then it's lunch, then you have something else to do.
+- Hiring people is like making friends. Pick good ones, and they'll enrich your life. Make bad choices, and they'll bring you down.
+- If you could taste words, most corporate websites, brochures, and sales materials would remind you of stale, soggy rice cakes: nearly calorie free, devoid of nutrition, and completely unsatisfying.
+- It's incredibly hard to get meaningful work done when your workday has been shredded into work moments.
+- Since your company is the product that makes all of your other products, it should be the best product of all. When you begin to think of your company this way, you evaluate it differently. You ask different questions about it. You look at improving it constantly, rather than just accepting what it's become.
+- It may be irrational, but if you're local, the client often feels that, if worse comes to worst, they can knock on your door. They 'know where you live.' But when you're remote, they're going to be more suspicious when phone calls go unreturned or emails keep getting 'lost.' Stay on top of communications, and you'll reap the benefits.
+- When you write like everyone else and sound like everyone else and act like everyone else, you're saying, 'Our products are like everyone else's, too.'
+- If you care about your product, you should care just as much about how you describe it.
+- Very, very few people actually have long stretches of uninterrupted time at an office.
+- I've run into a lot of companies that invent positions for great people just so they don't get away. But hiring people when you don't have real work for them is insulting to them and hurtful to you.
+- The owner of a company with supertight margins - say, a restaurant, retailer, or producer of commodity goods - would be a fool not to keep a close eye on the numbers. But when I make big decisions, numbers are seldom, if ever, the tiebreaker.
+- Your company is a product. Who are its customers? Your employees, who use it to do their jobs.
+- Practice quality, and you get better at quality. But quality takes time, so by working solely on quality, you end up losing something else that's important - speed.
+- We think of computers as smart and powerful machines. But your goldfish is smarter.
+- You have to live with your decisions every day. Why live with one you're uneasy with? 'Because it'll make you money' is a common reply. But I don't think that's good enough.
+- If an employee can demonstrate results produced in a way that the company didn't think possible, then a new way forward can begin to take shape.
+- Great people want to work on things that matter. Inevitably, a great person working on imaginary work will turn into an unsatisfied person.
+- Meetings should be great - they're opportunities for a group of people sitting together around a table to directly communicate. That should be a good thing. And it is, but only if treated as a rare delicacy.
+- When you can't see someone all day long, the only thing you have to evaluate is the work. A lot of the petty evaluation stats just melt away.
+- We don't want to bank all our risk on a small collection of big companies. We don't want to lose 20 percent of our business if one big account goes away.
+- To say that the grocery business is cutthroat would be a major understatement.
+- In my mind, declaring that an unfamiliar task will yield low-hanging fruit is almost always an admission that you have little insight about what you're setting out to do.
+- What's bad, boring, and barely read all over? Business writing.
+- I believe if you start a business with the intent of making it huge, you're already prioritizing the wrong thing. Size is important, but it's a byproduct of a whole bunch of other things that are worth way more of your mental energy - customers, service, quality.
+- I'm generally risk averse, and most great entrepreneurs I know are as well.
+- Most work is not coming up with The Next Big Thing. Rather, it's improving the thing you already thought of six months - or six years - ago. It's the work of work.
+- A diverse customer base helps insulate you; a few large accounts can leave you vulnerable to their whims.
+- If you ask people where they go when they really need to get work done, very few will respond 'the office.' If they do say the office, they'll include a qualifier such as 'super-early in the morning before anyone gets in,' or 'I stay late at night after everyone's left,' or 'I sneak in on the weekend.'
+- These two staples of work life - meetings and managers - are actually the greatest causes of work not getting done at the office. In fact, the further away you are from both meetings and managers, the more work gets done.

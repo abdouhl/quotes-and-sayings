@@ -1,0 +1,32 @@
++++
+author = "Meghan Trainor"
+title = "Meghan Trainor Quotes"
+quotes_len = "26"
+description = "the best 26 Meghan Trainor Quotes"
++++
+- My uncle is from Trinidad, so, ever since I was 7, I grew up listening to Soca, the genre that's from there. It's my favorite sound.
+- I just think women should love themselves more than they do. Because I think - with all the social media stuff - we look at ourselves too much, and we just destroy ourselves when we're way cooler than we know.
+- Growing up, I didn't get the talk of 'Make sure boys take you on a date and treat you right.' So I was the girl who wasn't dating and would just text. I dated these guys who didn't have jobs, and I would always be paying. At one point, I remember looking in the mirror and thinking, 'You're too pretty and cool to be treated like this.'
+- I had a reporter ask me how much I weigh. I said to him, 'You go first: How much do you weigh?' People always ask me what I eat. Other artists don't get asked these questions.
+- After two years in the songwriting world, I wrote 'All About That Bass.' L.A. Reid heard it and signed me as an artist.
+- With social media, with Instagram and selfies and all these apps that are trying to make you look perfect... it's hard for girls to grow up nowadays with all that stuff.
+- I totally agree with equal rights and women's causes, and most of my songs are woman-power, but I don't want to be labelled at 20 years old.
+- At 18, I got a publishing deal, so I was like, 'I can do this for real and not go to college.' When I was a teenager, my parents dragged me to a lot of songwriting conventions.
+- A lot of people think I came out of nowhere. When you start as a songwriter, nobody knows who you are. I met the guy who wrote 'Yeah' by Usher, which was a huge smash, and nobody knew who he was.
+- Since my father is a musician as well, he taught me growing up that if you can play jazz, you can learn all instruments and write on them. He wanted me to be a songwriter that can do anything in any genre. I'm all about doing every genre.
+- When I got signed as a songwriter, I immediately thought, 'Oh, no one sees me as an artist because I don't look good enough.' So I shut down the whole idea.
+- I like Ariana Grande's nice thigh-gap; she's got good legs.
+- I've never been a die-hard fan, like a crazy fan for an artist.
+- I was always a little insecure. I had brothers that played football, so I was just a straight-up tomboy for a minute. I didn't know makeup and hair stuff. My friends had to tell me what a straightener was. I didn't know fashion or any of that until the label gave me a stylist.
+- I wasn't strong enough to have an eating disorder. I tried to go anorexic for a good three hours. I ate ice and celery, but that's not even anorexic. And I quit. I was like, 'Ma, can you make me a sandwich? Like, immediately.'
+- I'm from a little island off of Massachusetts, Nantucket. It's hard getting into the music business from there, but my parents took me to songwriting festivals because I would write and produce my own music.
+- Radio was my life growing up. Then, I started in our family band with my uncle, my father, my aunt and my little brother. We would go to The Chicken Box and all the bars and play.
+- I grew up a chubby girl. I had two brothers. My parents loved us, they just fed us whatever we wanted.
+- I cry for a lot of good things that happen. I cry a lot, okay?
+- Any body type is beautiful. It's all about loving what you got and rocking it.
+- I don't consider myself a feminist, but I'm down for my first opportunity to say something to the world to be so meaningful. If you asked me, 'What do you want to say?' it would be, 'Love yourself more.'
+- I'm definitely bigger than a Rihanna. Pop stars nowadays are all perfect Barbie-doll bodies, and they talk about how they keep their bodies up with hard work, so in my eyes, it's good to have a regular, average body type in the charts.
+- When I was 13, I told my dad I needed to record myself because I sounded awesome, even though I didn't. By 18, I was a lot better. Then I got a publishing deal, so I was writing songs for other people professionally.
+- All my friends were cheerleaders, and I was the girl who hung out at home. I just worked on my music all the time.
+- In high school, I didn't date awesome dudes.
+- I don't read books. I read 'On the Road' in high school, and that was awesome, so I guess that's my favorite book. 'To Kill a Mockingbird,' even though I didn't read it, that's the greatest story. SparkNotes came in when I was in high school, and that was the greatest invention.

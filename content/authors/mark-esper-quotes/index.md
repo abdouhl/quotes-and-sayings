@@ -1,0 +1,59 @@
++++
+author = "Mark Esper"
+title = "Mark Esper Quotes"
+quotes_len = "53"
+description = "the best 53 Mark Esper Quotes"
++++
+- We are at war, if you will, in the cyber domain now, constantly battling countries, such as Russia or China, who are trying to do everything from steal our technology to influence our elections to put out disinformation about the United States.
+- I think artificial intelligence will likely change the character of warfare, and I believe whoever masters it first will dominate on the battlefield for many, many, many years.
+- If you see something that doesn't make sense, ask. Change it. Think about dollars, think about your soldiers' time, think about efficiency.
+- In my day, we had mastered high-intensity conflict, which is why I think we were so successful in Desert Shield, Desert Storm, and then eventually the 2003 invasion of Iraq.
+- The goal is to deter war, and this can only be done with a strong, modern, and ready military that has overmatch in all domains.
+- I think the presumption is, for some reason, anybody who comes from the business or the corporate world is corrupt.
+- I felt that I had, again, great freedom to do what I wanted to do. I felt that I was trusted to train my soldiers, and I was accountable for it.
+- If confirmed, my overall guiding objective for our relationship with India would be to solidify an enduring strategic partnership underpinned by strong defence cooperation with an Indian military able to collaborate effectively with the United States to address shared interests.
+- I think, generally, the NCOs and officers in a platoon or company want to take care of their soldiers, and they understand it doesn't run from nine to five, like in the civilian world.
+- The Army is a big mixing bowl, and we know that we wear one uniform. We identify with one set of Army values. We serve one Constitution, and we see ourselves as one team.
+- I've been studying China for quite some time now, and I'm big on China as well. And I think we need to be very concerned about Chinese technology getting into our systems or the systems of our allies.
+- Clearly, we need a strong economy to build a strong military.
+- I've got a lot of military kids who are not in on-base child care, and they should be. So it's things like that I'm going to change, either from a funding perspective or a policy perspective.
+- If Turkey procures the S-400, it will mean they will not receive the F-35. It's that simple.
+- AI will allow the soldier to act and think much more quickly. Whoever gets to AI first, I believe, will have dominance for many years afterward.
+- We certainly have the best special operations forces in the world and know how to do counterterrorism extremely well.
+- Our warfighting doctrine is that we don't want to be in a fair fight, and we want the fight to always be tilted in our favor.
+- The National Defense Strategy remains our guiding document, and everything we do should support its stated objectives.
+- You have to give the soldiers, the Army, a clear vision.
+- Together, we will remain the most ready and capable military force in the world, which is what our nation expects and deserves.
+- Now, 'high-intensity conflict' is a fancy word for saying tanks on tanks, aircraft shooting each other out of the sky, a great deal of violence at a level we haven't seen since probably the Korean War or World War II, where you have big armies facing off against one another.
+- Stay focused on your mission, remain steadfast in your pursuit of excellence, and always do the right thing.
+- Seventeen consecutive years of irregular war, extended years of budget uncertainty, and an increasing complex security environment have eroded our competitive edge.
+- In many cases, the reason why our child development centers are not at full capacity is that we have an insufficient number of providers.
+- One of the key challenges the military has faced - and the Army, in particular - is defining our requirements and keeping them stable.
+- The bottom line is this: in an era of mounting fiscal challenges and competing demands, we must actively seek ways to free up time, money, and manpower to invest back into our top priorities.
+- Having previously served in the regular Army, National Guard, and Reserve, I understand well the sacrifices our service members, civilians, and their families make to protect this great country.
+- I can't tell you what the Army end strength will be. I know it has to be above 500,000. I know it has to be above 500,000 in the regular Army - and I've always said associated growth in the Guard and Reserve.
+- If you talk to any senior Army leaders, you'll find one, if not all, their children are in the Army.
+- The Army I grew up in was focused on high-intensity conflict against a peer competitor called the Soviet Union.
+- A collective security relies on everybody doing their fair share.
+- The international rules-based order in the wake of World War II is the order that has ensured prosperity and security now for 75 years. I'm fully committed to that.
+- At the end of the day, the Army is a standards-based organization.
+- Child care is very important, so I want to put dollars there, and I want to make sure we get the policies right.
+- The biggest challenge is clearly China, in the years 2035 and beyond. I mean, the size of the country, its economy, and everything - they're - it is a big strategic competitor for the entire Department of Defense and country.
+- We closely track the systems Boeing builds for us, and they're some very capable systems. So that's been my focus. It is something that I look at every month. I look at the metrics for all major combat systems and our platforms, which Boeing builds many, and they're successful platforms.
+- At the age of 18, I went to West Point, and I swore an oath to defend this Constitution, and I embraced a motto called duty and honor and country. And I've lived my life in accordance with those values ever since then.
+- I've stepped down from jobs that paid me well more than what I was working anywhere else. And each time, it was to serve the public good and to serve the young men and women of our armed services.
+- Good alliances are made of strong, capable partners.
+- When I went to West Point, I was there with cadets from 50 other states and territories. Cadets from other countries, and you learn all of these things about our country, about our culture, our heritage, our ethnicity. At the end of the day, you come back, we all wear green, and we all consider ourselves an Army.
+- It is an honor of a lifetime to be appointed secretary of defense and to lead the greatest military in history.
+- It's my commitment to the nation's security, it's my commitment to the men and women in uniform that drives me. Not anything else.
+- Our adversaries must see diplomacy as their best option because war with the United States will force them to bear enormous costs.
+- In the Army, I grew up with this view that you're asked to do anything that is illegal or immoral or unethical, then that would be the point at which you have to consider resignation, and you'd be willing to do that.
+- President Trump has called on other nations to do more, and they have responded. By the end of 2020, our NATO allies will spend an additional $100 billion on defense, an unprecedented increase that will make the alliance stronger.
+- I went to war for this country. I served overseas for this country.
+- I raised the standards on recruiting.
+- The Brits are escorting their ships, and we will escort our ships, and I assume other countries will escort their ships.
+- The surest way to deter adversary aggression is to fully prepare for war.
+- Our legacy platforms have served us well for decades, but we're running out of upgrades that will keep us ahead. Technology is changing too fast, and our enemies are too adaptable.
+- We do not want war with Iran.
+- We are extending basic training. It'll be the longest and toughest in the world.
+- We may be a little bit late - we are late - coming to the recognition that we are in a strategic competition with China.

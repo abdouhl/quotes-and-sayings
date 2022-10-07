@@ -1,0 +1,106 @@
++++
+author = "Malcolm Brogdon"
+title = "Malcolm Brogdon Quotes"
+quotes_len = "100"
+description = "the best 100 Malcolm Brogdon Quotes"
++++
+- I was thinking about the NBA after my fourth year, but I also realized I could get my master's paid for and have another year on the court to raise my draft stock even higher. I felt if I could do those things, I could have my cake and eat it, too.
+- When you have a coaching change, when you have trades, an injury, when you have all these things happening - these are all things that are out of your control. Quickly, you start to understand that, really, the only thing you can control is going out and playing hard every night and being ready for your opportunity.
+- I didn't party. I didn't go out. I didn't really hang out with friends as much as other guys.
+- I wasn't sure how it would unfold once I got to the NBA, but I knew if I got to the NBA, I could then have the platform and have the resources and the connections and the people around me that had more connections and more resources to help me really impact a lot of people's lives.
+- I think just consistency. That's the hardest thing to do in this league, especially for a rookie. There are going to be ups and downs.
+- I know what my role is.
+- I always look forward to playing great players, great scorers, because I pride myself on my defense.
+- I think a lot of the problem with foreign aid and things like that is you go in, give a bunch of stuff, and then it runs out. It's about helping them learn how to continue to be sustainable and live.
+- I think, at heart, I'm a leader.
+- I'm a guy that's all about not trying to take the easy way out or get out of things too early.
+- I think college has helped me.
+- I just go out there to show them I'm going to play the right way regardless of what position or what situation I'm in.
+- When you bring a winner onto your team, he knows how to win, he's going to help your team win, and that's the goal at the end of the day.
+- I see guys like Colin Kaepernick in the NFL. Guys like Marshawn Lynch, they're sitting down; they're making statements. They're standing up for what they believe in, and I think it's terrific.
+- The game is about making the right decisions.
+- LeBron is one of the greats. He's going to hit tough shots. You have to be able to live with them and limit everyone else around him.
+- My best asset to my game is my IQ. I play the game thinking the game first.
+- I want people to have clean water. People in this country take it for granted, the ability to drink clean water whenever they want. There are millions of people far less fortunate in this world, and it's my duty to do as much as I can to change that. I don't see that as insurmountable at all.
+- My whole career, I've been an underdog, I've been underestimated. Therefore, I've had a chip on my shoulder my entire career. Being drafted in the second round when you think you're supposed to be in the first round, a lottery pick, the chip grows bigger. And you have more to prove.
+- It's not about making the most shots or even dunking the ball or any of that. It's about being consistent every day you step on the court.
+- If you have an open shot, and you're a shooter, and you've put hours and hours on the practice court shooting the ball, you shoot the ball in the game. It's just that simple.
+- Thanks to Coach Bennett for a great education in basketball and for making me better.
+- Regardless of what the stakes are, our attitude and our mindset doesn't change.
+- Giannis is selfless.
+- A lot of scouts and people are enamored with athleticism and youth. So they take that any day over mature, high-quality basketball players.
+- In college, I prided myself on defense and guarding the best player every night.
+- My game from college has translated into the pros.
+- My parents never planted the seed that anything was impossible. They planted the seed that things were doubly hard for a black man. My brothers and I made sure we outworked people and were better than everyone we were around.
+- Guys are coming into the league a little more mature when they take the three or four years in college.
+- I think Africa is the most interesting continent on the planet. You look at a country like Egypt, and you look at a country like Ghana. It's just completely different, and the people look completely different. It's just a fascinating continent with the most culture.
+- I'm going to play the right way, I'm going to know my role, and I'm going to be who I am.
+- When you're running next to a guy who's about to lay it up in transition, you just get out of the way because you know Giannis is coming to block it.
+- Thanks to the great fans of Milwaukee. Their work ethic truly inspires me every night.
+- People would downplay how good I was, or my athleticism would be the knock, and that added fuel to the fire.
+- My older brother was always in the gym, and I saw how hard he worked. Around middle school, I was in there with him, and I started to love it. But it wasn't like I had a basketball in my hand at age 2.
+- For me, keeping it simple is the best way to live life, to not complicate things, to sort of keep things in perspective.
+- I saw from a very young age the value of clean water in communities in Africa. I made a promise to myself that once I reached a time and place in my career where I could do more, I would.
+- Kaepernick is a hero.
+- I stay in character at all times regardless of whoever's playing well, the team isn't playing well. if we're up or down, I'm going to stay in character.
+- I'm not a guy who really gets nervous.
+- I was lucky I had a mom who had seen it all. From seeing my grandfather march in the Civil Rights era, she understood the depth, character, and stability you need to go through racism. She taught me not to accept it to but deal with it and be better than it.
+- There are going to be ups and downs, but you have to have a steady mindset, regardless of the situation you're in.
+- I had a pretty bad injury the end of my freshman year in college, and that taught me just to be patient.
+- I think it speaks a lot to Coach Kidd and my teammates to trust me as a rookie to make plays down the stretch. When they put that confidence in you, it's hard not to try to make plays.
+- I know we have a lot of poverty and we have a lot of problems over here in the U.S., but for me, I've been outside the country, and that's really where my heart is - to help others outside.
+- I've heard a lot about what second-round picks usually do - whether it's D-League or whether it's not playing - but for me, I have high expectations of myself regardless of where I'm picked.
+- It differs from game to game, how aggressive I should be.
+- I love being around kids. When I see a kid that wants to talk to me or wants my autograph, I see myself in them. I just want to be a good example and be very approachable and want them to know that I'm just a regular guy, too.
+- The better the competition is, the more skilled guys are, the more fundamental you have to be.
+- I'm not flashy. I'll do nice things on the floor, but I'm not going to do the really impressive dunk or make the really impressive block. I think that's what fans enjoy most about coming to basketball games, but that's not what I provide night in, night out.
+- Defense is about will and effort and a certain toughness you have to have.
+- Playing four years of college, you learn a lot; you learn more about yourself than anything.
+- You always have to think in the back of your mind that someone's working harder than you, someone's getting better than you. That's what drives me every day. I always think there's someone out there working harder.
+- I don't let people score on me. I think that's my biggest asset.
+- We try to pride ourselves in having a chip and being hungry every game.
+- I think, as a rookie, what guys need to be judged on most coming in the league is feel. Not skill, not shooting, not stats, not even passing, but that feel for the game, the ability to read situations and make the right play.
+- Momentum is everything in this league.
+- I think who I am on the court is who I am in person.
+- When you're getting an opportunity and playing well, that's all you can ask for.
+- As a three shooter, seeing one go through the net, that's all you need to just be shooting it confidently again.
+- I think my play will talk for me, It will show people, and it will show the league.
+- I don't pay attention to accolades or any of that stuff because I think it can serve as a distraction, so for me, I just focus on winning games, trying to make the playoffs.
+- It takes experience to get through your lows.
+- I think we live in a country where we go overseas, and we fight other people's wars, and we fight terrorism overseas internationally, but we don't want to fully acknowledge the terrorism that goes on domestically.
+- I don't think any other college coach could have prepared me as well as Coach Bennett, just in terms of mental toughness, being able to grasp concepts and retain information.
+- I've been a bit surprised, and encouraged, by the NBA's support for athletes that speak out. Compared to the NFL, it's night and day.
+- I think I always naturally lead on the court by just working.
+- Before I came to Milwaukee, I'd heard the city was the most segregated in the country. I'd heard it was racist. When I got here, it was extremely segregated. I've never lived in a city this segregated.
+- It's easy for especially NBA players to get caught up in the stress of the job, to get caught up in negativity and in what other people think, and it's hard, but the best way to live is to keep things simple and enjoy every day.
+- I knew who I was coming into the NBA, so I knew what I could contribute to a team, and I just had a high level of confidence in myself and what I could do.
+- I don't play for the attention; I work on my skills every day so I can go out and play my role to the fullest to help the team win. That's my No. 1 goal when I step on the court.
+- The big thing that Giannis brings to the game for us is pace, being able to get up and down the floor and play fast. We got to continue to do that and not lose momentum when he comes out of the game.
+- Everybody has losses, and sometimes they're worse than others, but you can always bounce back.
+- You have to keep shooting, even on tough shooting nights. You have to believe the next shot is going in.
+- I want to play for a team that has a strong defensive reputation. One that relies on a system and where assists are valued. And a team that needs what I do - making other guys better, leading a team, being a defensive stopper every night. I want to be a good fit.
+- Who I am is a guy who's going to do whatever the team needs.
+- In my family, graduating and getting your bachelor's is just the beginning. It's only expected. You're underachieving if you don't strive for more than that.
+- It's amazing how sports is a way to control the masses. But it also unites people.
+- I want to make a difference.
+- Things aren't always going to go your way. You wake up one day, and things are rough. But then you wake up the next day, and things are going great.
+- My five years at Virginia truly prepared me for the NBA and for life after the NBA.
+- I help my team win. That's overall what I do best. If you watch me play, I'm usually going to be on the winning team. Whether it's scoring enough points or rebounding enough or guarding the best player on the other team, I'm gonna do what it takes to win.
+- I pride myself on what I do every night. I pride myself on my work ethic and how I carry myself. I want to be mature in my approach but focused and disciplined.
+- When you have a year of experience and also the experience of playing in the playoffs, it just makes a world of difference.
+- Being raised, I think, in a household where your parents really taught you never to let people see you sweatin' - that's the motto I live by.
+- I think it's the way I'm wired, the way I'm built. I want to improve. If you're not improving, someone's passing.
+- A Final Four would be pretty amazing.
+- Starting you automatically gets into your rhythm faster. Coming off the bench, you're colder; it can be harder at times.
+- I don't pay attention to what people think. I don't really care what people think. All that matters is my teammates and my coaches.
+- I think winning games is my biggest asset, knowing how to win.
+- I think teams make the same decisions every year based on the same information and based on the same decision-making. I think a lot of it is flawed, but it's the way they draft.
+- Policy is the way you can change the world.
+- I have great memories from childhood. Of course, the divorce, when I was 11, was tough. But my mom, especially, did a great job in raising us.
+- When guys were going out to parties, I was going to the gym. I figured, for all my mom sacrificed for me, it was the least I could do.
+- Soccer is still my favourite sport.
+- For me, personally, I feel like that's my duty while I'm on this earth is to serve others and use my blessing to bless others. If I'm not doing that, I feel like I'm not serving my purpose. That's my goal, that's my passion, and that's what I intend to do for the rest of my life.
+- You're going to go through ups; you're going to go through downs. But staying steady is most important, and being able to bounce back is also very important.
+- My grandparents really wanted me to go to Harvard. They thought that was writing your ticket for the future. How could I turn that down? But my mom knew I needed a balance. She knew that I loved basketball.
+- I'm a guy that tries to eat right. I try to keep my body right. I try to do all the right things. But like everybody else, I have flaws. I slip up. I eat the wrong things sometimes. I have cheat days. I think I make mistakes just like everybody else, but I try to minimize them.
+- A lot of times,, you are not going to fit in; a lot of times you are going to have to skip those parties to get to where you want to be.

@@ -1,0 +1,106 @@
++++
+author = "Steve Young"
+title = "Steve Young Quotes"
+quotes_len = "100"
+description = "the best 100 Steve Young Quotes"
++++
+- You become a leader in times of trouble. Leaders emerge when things don't go well. When everyone else starts pointing fingers, a leader takes responsibility.
+- Football's an intense game. I love that. It's awesome.
+- I think I always wanted to be quarterback so I could call the play.
+- My biggest problem when I was younger was trying to balance my ability with what the team needed me to do to officially run the offense.
+- To play 18 years as a pro and have a great college career, it's awesome.
+- If you're playing for 10 or 15 years, you can't every week run six option plays. It can be around. It can be a part of the game, but sooner or later you've got to deliver the ball from the pocket. That's the game. Now, if the game changes, and it's proven a championship can be won from the pistol spread, then I'm wrong.
+- In 2010, my kids came home telling these ridiculous stories about me they heard from school. I realized my kids didn't know my story, and they were hearing it from the goofballs at school.
+- When fans showed up at Candlestick, there was a great sense of anticipation that they would watch not only winning football, but also artistry. Our offense was that sublime.
+- I grew up in Greenwich, Connecticut.
+- You don't know the demons people deal with, and you just have no idea.
+- You can play with a brain that is injured - you can't play with an injured knee. That's the problem.
+- At the time I retired I was kind of known for it, as one of the guys whose career ended technically as a result of a big hit.
+- Peyton Manning, you look at his physical abilities, there are a lot of things that are middle of the road. But his mastery of the data allows him to be ahead. I love watching him because he throws the ball so proactively.
+- As a kid, I was fearless during the day. But at nighttime, I needed to be home.
+- As the story about CTE got more real, it became more clear that players are playing that without a full understanding of the risks they face, and the long-term effects.
+- I think when you look at the quarterback position, and this mastery of the craft we talk about, it really is an advanced degree. It's like going to med school, or law school, or getting your PH.D. It really is that type of educational effort, on the field and off the field.
+- When it's all over I might be able to say I've had the strangest career in pro football history.
+- I loved the expectation that every year we were going to the Super Bowl.
+- If quarterbacks learned the West Coast offense in college, oh man - it would make a huge difference.
+- I don't regret any of the places I went in football. Everything gave me an experience or memories that I'll have forever. We had more success in San Francisco, but it was a great time everywhere. I always had fun.
+- I never asked to be the highest paid player in sports.
+- I always likened retirement to falling off a cliff, and then you have to kind of brush yourself off.
+- I always say football is very unnatural sport. Nobody loves to just ram into people.
+- I've played more golf with Joe Montana and Steve Bono than I've played with anyone else. We've played a ton of golf. I always tell people; my relationship with Joe was as good as it could be.
+- Bill Walsh was a genius in many ways.
+- Scrambling, when no one's around, getting down, getting out of bounds, taking a glancing blow, those are all fine. You can do that all day long.
+- Some of the great John Wayne hero things that have ever happened in football happened because people play hurt.
+- It's so exhausting in the pocket taking shots when you know I can go. I don't want to take that shot and maybe make a bigger play. To dedicate and discipline your mind that 'I have to find a way, that's the only way I can learn... ' That's the challenge.
+- I loved playing Green Bay.
+- In the NFL, you're always facing an obstacle.
+- BYU I think had a philosophy of nameless, faceless athletes for the greater good of BYU which is fine. We all did our thing and we're grateful for it.
+- While it's great for a quarterback to have athletic ability, his goal is to get the ball out of his hand, orchestrate the offense and not allow his ability to stand in the way of the offense running efficiently.
+- Donovan McNabb has great, fast feet and has learned to lock them in to run the Eagles' offense effectively.
+- So the truth is, if there's a lesson to be learned from mobile quarterbacks, it is deliver the ball from the pocket, which demands mastery of the data that is involved working in the pocket, which is, 'I know everything about everything.'
+- I don't think my experience with professional football has been what you'd call normal but I don't regret it.
+- Playing football in San Francisco was almost a transcendental experience.
+- Bye weeks are nerve‑wracking.
+- Golf is one of those games that I want my kids to know and learn so that they can play it all of their lives.
+- The demands of excellent NFL quarterbacking I always said took every piece of me, emotionally, physically, mentally, spiritually. It was like it just took it all, and I think that was what was so energizing about it and unreplicable.
+- I don't want to look like I'm money-hungry.
+- Football, no one wants to ram into people. It's not human nature. You have to have a lot of incentive to ram into somebody to benefit others.
+- Third and 10 down by four at Lambeau Field in the drizzling rain... two minutes left. There's nothing like that.
+- The best West Coast coaching job I've seen was when Mike Shanahan left the 49ers, became the head coach in Denver and made it available to John Elway.
+- You have to take certain truths. One truth is that to have championship success in the NFL you have to learn to deliver the ball from the pocket.
+- I loved playing Dallas.
+- Call me a quarterback, not a running quarterback.
+- Perception is reality.
+- There are a lot of places you can play quarterback and you won't know. You won't know if you're good or bad because there's just not a chance to find out.
+- I'm a positive person.
+- People always want to grab the negative, but that's not my reality. It comes from my dad. He cracks me up the way he always says, 'Suck it up and be a big girl,' to my sister, or 'Suck it up and be a man,' to us guys. That's what I'm about.
+- Just after I retired, Michael Vick came in. And just as background, I really thought the position had changed. I thought the dynamic pass-run, triple-threat quarterback was going to take over the league. And guys like Michael Vick and others would follow and that's what we'd do. But I learned the truth with Peyton Manning and Tom Brady.
+- There's a negative effect when you run around without exhausting everything that happens with the play call.
+- If you exhaust every play out of the pocket, what happens is you find more opportunities.
+- The great thing about football is that it's a game that involves so many people.
+- I have a photographic memory that enables me to visualize what everyone in the huddle is supposed to do on each of the hundreds of plays in our playbook.
+- I believe there will be players who, instead of playing eight years, will play six. Who will closely watch how they feel. It will shorten careers.
+- Most young quarterbacks are on the field because their team stinks.
+- I played 18 seasons. That's a lot. There is some that played more. Brett Favre I think played a couple more. There is a few. There is a few guys that played more, but not many.
+- I've come to a real understanding of the enormity of what owner entrepreneurs do in founding great businesses. They are rare and a thing of art in many ways.
+- The scary thing is I took 12 years of French, and I can barely say, 'My name is... ' And that's not because of the concussions.
+- I got good grades. I played sports.
+- No one will ever say Dwight Clark was selfish.
+- When you play quarterback in San Francisco, not much goes under the radar.
+- I had worked hard my entire career to establish myself as a leader. But I wasn't a leader until I was perceived as one.
+- My generation, people who played with me, they're suffering from football.
+- There's some glory years, where if you play long enough and you've figured the game out, and physically you're still healthy enough, there are some years in there where you can really be productive. And those are fun years.
+- People don't remember that Sid Gillman was my coach. He was an old crotchety guy, but he was the first one to basically say, 'You can't just run around'... I remember, he literally tied my feet up.
+- If I could have my kids be great when the lights are on, whatever the moment is, to be accountable and then fix it, they're going to be fine.
+- Something like speed of play can be a big deal.
+- My dad's an old football player.
+- I'm telling you, studying for week to week in the NFL, and memorization, and reflexive recall... you have to drive it into your brain so far.
+- It's hard to explain anxiety to those who don't experience it.
+- The truth is that in the NFL, the job is to deliver the ball from the pocket. That's the job.
+- Golf is important to me. I love the game.
+- I can't imagine as a rookie actually playing good football. I went through it.
+- Most veterans detested training camp, but not me. I loved having a dorm room and a little fridge with snacks, and I looked forward to goofing around in the meetings.
+- Over time, I learned that how a quarterback moves the chains and leads his team to touchdowns is about as important as whether he actually does it or not.
+- The pistol isn't going to go away, but the job in the long run is going to be to deliver the ball from the pocket.
+- Private equity is a science project for many, many years, and when you have a science project, it leaves the human beings as a secondary fact.
+- I went to law school.
+- Staying connected to the game and working for ESPN are very meaningful to me.
+- I'm willing to share my experiences with any young quarterback.
+- For me, football is a quest. Quests entail overcoming hardship, trials of adversity in the pursuit of true joy.
+- A lot of what you get done in the NFL is by perception. They perceive you as really talented, and they worry about you. You've got to come out of the locker room with something.
+- I always look at the NBA as kind of a muddled mess in the regular season, and then you just get in the tournament, just get in. And then the great teams just get on a roll and play well or the team that is hot gets hot and goes and wins it.
+- I don't go out a lot. I do go to a lot of movies.
+- When I played for the 49ers, we loved to see man-to-man defense. I could get the ball quickly to the receivers.
+- I think Tom Coughlin is an amazing motivator. When you look at his personality, you say, 'Oh, I don't know about that.' But there's some ability he has to laser-focus a football team when it's most important. He seems to be a real valuable asset, kind of Knute Rocke almost.
+- If you're going to run a lot of plays, you better score a lot of points.
+- I wish I could've met my wife earlier. I do the math and I want 30 more years. I wish I'd started having kids earlier.
+- I can hit the whiskers on a cat with a football from a distance of forty yards.
+- Obviously, I love the idea of athletic quarterbacks.
+- I am the recipient of the best coaching that one person has ever had.
+- You can be an astronaut, knowing it can be super dangerous but understand intuitively what the risk issues are. Not having the same usable knowledge about the risk of football, or any line of work, doesn't work.
+- Success is really about expertise.
+- If sports has anything to do for society, football plays a great role.
+- Most people have an off switch and they choose when to go all out.
+- I've put football behind me.
+- My favorite player I ever played was Reggie White. He played so ferociously. What I loved about playing against him was the millisecond you went down, he became your friend and would ask, 'How's your family?' In a way that could feel weird and awkward.
+- My wife hates football, and my kids don't really care.

@@ -1,0 +1,59 @@
++++
+author = "John Major"
+title = "John Major Quotes"
+quotes_len = "53"
+description = "the best 53 John Major Quotes"
++++
+- I mean if you have ever found a politician who says, 'No, no, I would do everything exactly as I did,' then you can tell when he is lying because his lips are moving.
+- I think it's extremely unlikely that the European Union will fracture with nations dropping off the edge.
+- The British don't runaway from terrorism. We have had 30-odd years of terrorism in our own country from the Irish Republican Army. We're used to it.
+- Society needs to condemn a little more and understand a little less.
+- I have a huge admiration for the House of Lords, I have a huge admiration for the people who work in the House of Lords, they're great public servants and they do an absolutely tremendous job.
+- I think the biggest mistake I made was this wretched ability to see both sides of an argument.
+- What happens when there is a conflict between the Scottish parliament, if it was established, and the Westminster parliament? Who is supreme?
+- Certainly we've seen the enormous changes across the whole of the Middle East. The democratic genie is out of the bottle.
+- Recovery begins from the darkest moment.
+- There are more myths about Black Wednesday than the Greeks ever created.
+- If we want to deliver opportunity for all, we need an economy that delivers jobs for the future.
+- You've had an extremely weak euro on the foreign exchange markets, you've had a very dubious policy being followed.
+- My mother was the center of the family.
+- I don't think it's the role of the prime minister to court the press.
+- The first requirement of politics is not intellect or stamina but patience. Politics is a very long run game and the tortoise will usually beat the hare.
+- The argument that someone is a bad man is an inadequate argument for war and certainly an inadequate and unacceptable argument for regime change.
+- If you look back historically, admittedly a long time ago, there were three Afghan wars in which Britain didn't even come a good second. In more recent years the Russians were there with 120,000 men for ten years.
+- 'Government gets things right' does not encourage sales. 'Government makes another blunder' does encourage sales, so there's a commercial imperative that pushes sensationalism.
+- I'm not about to write my memoirs. Not for a long time.
+- I don't have a shred of regret about entering the exchange-rate mechanism.
+- My father was 64 when I was conceived, my mother 38, which was late for babies in the 1940s.
+- Whether you agree with me or disagree with me; like me or loathe me, don't bind my hands when I am negotiating on behalf of the British nation.
+- I don't think nations can stand aside for ethnic cleansing and genocide.
+- I want Britain to punch its weight in the European Community.
+- The politician who never made a mistake never made a decision.
+- Too many people looked to me in the eye and did not tell me the truth.
+- September the 11th was a huge shock in the United States. It was the first time you had been hit at home in your own territory by terrorist on this scale.
+- It is time to return to core values, time to get back to basics, to self-discipline and respect for the law, to consideration for the others, to accepting responsibility for yourself and your family - and not shuffling it off on other people and the state.
+- Whatever efforts for peace President Gorbachev had in mind, they were pretty substantially undercut very swiftly by Saddam Hussein.
+- Well, I think there's a distinction between sexing-up the intelligence and sexing-up the presentation of the intelligence.
+- Let's turn British inventions into British industries, British factories and British jobs. Let them make pounds for us, not dollars marks or yen for others.
+- Well what would happen is that if Greece defaulted and couldn't pay its debts, all the Greek bonds that are held in other banking systems across Western Europe would suddenly have no value. You could as a knock-on effect create a banking crisis in Western Europe.
+- A consensus politician is someone who does something that he doesn't believe is right because it keeps people quiet when he does it.
+- I have been reading the press more regularly than others over 50 years and it seems to me that there are things that have changed in the press that have changed its character.
+- Well British troops are superb in the field in terms of conflict.
+- I'm very proud of what my parents achieved and what they stood for. They didn't have much, but in many ways they were richer than most.
+- I like the best of the British press. The best of the British press is very good.
+- Ronnie Barker will forever be remembered as one of the great comic actors.
+- Of course there are regrets. I shall regret always that I found my own authentic voice in politics. I was too conservative, too conventional. Too safe, too often. Too defensive. Too reactive. Later, too often on the back foot.
+- When I was in office the fundraising was done by the party treasurers.
+- When the euro was born, it was born in the wrong economic circumstances.
+- I think the majority of the British people are still sanguine about the need for war.
+- You don't forget crises and neither does the Queen.
+- I inherited a sick economy and passed on a sound one. But one abiding regret for me is that, in between, I did not have the resources to put in place the educational and social changes about which I cared to much; I made only a beginning, and it was not enough.
+- In housing in the fifties in Britain and the sixties, we pulled down the terraces - destroyed whole communities and replaced them with tower blocks and we built walkways that became rat-runs for muggers. That was the fashionable opinion. But it was wrong.
+- Well, I have concerns about the effectiveness of Europe to compete.
+- Disunity costs votes.
+- If you look at things that really affect people's lives - sport, the arts, charities - they were always at the back of the queue for government money - health, social security, defence, pensions were all way ahead. And each of those areas - sports, the arts, the lottery - got relatively petty cash from the government.
+- The sight of allegedly sophisticated politicians parroting complete tripe trivialises and demeans government and it has to be stopped. It's played a significant part in public disillusionment with politics and has led to the absurd situation where more people vote for 'Strictly Come Dancing' than voted in the general election.
+- Life is full of surprises.
+- Only in Britain could it be thought a defect to be too clever by half. The probability is that too many people are too stupid by three-quarters.
+- I thought I could do something different from any Conservative prime minister before me. But I couldn't.
+- I think we can get respect for Parliament back providing governments and oppositions are frank.

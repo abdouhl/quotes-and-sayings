@@ -1,0 +1,20 @@
++++
+author = "Marcel Dionne"
+title = "Marcel Dionne Quotes"
+quotes_len = "14"
+description = "the best 14 Marcel Dionne Quotes"
++++
+- We suffered a setback and there were too many trades until Dave Taylor came along and Charlie Simmer.
+- Being around all the great names of the game at a young age because they were my heroes; the fact this meant so much to Canada. It was just an incredible thing to be a part of.
+- Until Charlie broke his ankle in Toronto, we were as good a unit as anybody.
+- I've done the same thing in the world of business that winners do in the game. I watch them, admire them.
+- I'll tell something, a lot of times I'd listen to Charlie and some of the interviews he had and he said, 'Well, yeah, I was a garbage goal collector.' But he knew the timing. I knew where he was.
+- The only thing is we didn't have the supporting cast.
+- I've never seen anything like it since. Some of the Canada Cups came close, but by then a lot of European players came and played in our league so we were more familiar with them.
+- Now you watch reality TV, you watch them in all those pools or Jacuzzis and I say to myself was I that stupid? But that was me then.
+- To be on the same team with Orr was great because when I turned pro, nobody had more charisma.
+- I watched Gretzky, I watched Lemieux. Maybe it's the time when you're playing, but for a kid coming into the league, you play the Boston Bruins and you just watched Bobby Orr.
+- There was tremendous emotion. Every shift was so emotional.
+- The thing is, playing with us, whoever was the left winger had to come to play every night because that's the way it was. Charlie came in and he just fit that role - big and strong around the net.
+- People ask if I regret not winning a Stanley Cup, but winning the series against the Soviet Union was the best. It was the greatest experience of my hockey career by far.
+- They have had three years to get a resolution and they failed. Both of these guys have failed.

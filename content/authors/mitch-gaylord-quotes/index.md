@@ -1,0 +1,23 @@
++++
+author = "Mitch Gaylord"
+title = "Mitch Gaylord Quotes"
+quotes_len = "17"
+description = "the best 17 Mitch Gaylord Quotes"
++++
+- You hit one level of the sport, and then you want to get to the next level. Until, eventually, the Olympics becomes part of that dream, part of that goal set and the mindset of wanting to get there. And then you realize there's so much incredible hard work and determination and effort that you need to put in along the way.
+- I've turned down soap and deodorant commercials - it wasn't my route.
+- I have to feel good about what I'm endorsing because I have to live with it.
+- Everyone has emotions; you just learn to use then and be comfortable with them.
+- The greatest memory for me of the 1984 Olympics was not the individual honors, but standing on the podium with my teammates to receive our team gold medal.
+- I don't want to be considered a gymnast anymore.
+- When I was young, all I wanted to do was to compete, have fun and travel.
+- A team championship doesn't happen because three people score 10s, it happens because all the guys score well. In my opinion, everyone deserved 10s, we're all 10s on this team.
+- I'm going to be an actor.
+- Celebrity was fun, and I had a good time.
+- As a competitor, you have to learn pretty quickly how to deal with pressure.
+- Discipline is the quality that carries over from gymnastics to acting.
+- If you do a scene the right way, you can go home at the end of the day and really feel like you accomplished something.
+- I don't like condo life.
+- Adrenaline is an amazing thing.
+- You try and learn from some people's mistakes. But you have to really trust the people who are working for you because they make a lot of decisions that could either do well for you or really screw up your image.
+- The camera doesn't intimidate me.

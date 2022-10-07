@@ -1,0 +1,60 @@
++++
+author = "Mathew Knowles"
+title = "Mathew Knowles Quotes"
+quotes_len = "54"
+description = "the best 54 Mathew Knowles Quotes"
++++
+- Well, there's no way that we can get into the mind of Beyonce.
+- I grew up in Gladstone, Alabama, on a dirt road, with an outside bathroom.
+- My second book will be the autobiography of Destiny's Child.
+- Blue Ivy is a star. She is just a star. I can see.
+- My kids, they take a lot from me and I always come from an intellectual place. Like intellectually, not emotionally, and most people come from an emotional place and it's unfortunate.
+- The thing with R Kelly was, he liked to record late at night, around midnight. And what was different with his studio was that one room had a recording suite, and next door was a club, with 40 or 50 people dancing.
+- I don't even read social media.
+- I was a stage dad. When I was with Earth, Wind and Fire, I was their stage dad - the O'Jays, I was the stage dad.
+- Focus on one thing and do one thing well.
+- If I needed money, I wouldn't sell $5 t-shirts. I'd sell a Grammy or an MTV award.
+- I've never in my life hit my daughter.
+- My mother's last name, maiden name is Hogue. She is Cherokee and African. My grandfather, Dave Hogue, owned 300 acres of land in Marion, Alabama. He was an entrepreneur and someone I looked up to as a kid a lot.
+- I grew up in a small town and never went to a Black school.
+- I think the parenting of Tina and myself combined allowed our kids to really find their passion at an early age.
+- See, my philosophy is had Beyonce or Solange came to me and said Dad, I want to be a doctor. My personality is how do I buy a hospital? And that has nothing to do with stage. That has to do with the entrepreneurial inside of me.
+- See, I would never have Beyonce up here public speaking. She's not good at it. Solange was just at Yale. She's incredible at it.
+- I've been an educator all my life pretty much. It's important as a manager and also as a record label, to educate your artists on public speaking, how to build that connection, how to communicate effectively, to have a general working knowledge of the music industry.
+- We as label executives, we have to know the limitations of the artists.
+- I guess I kind of have been known as the guy that shakes up girl groups.
+- Every one of us have been disappointed before and have had to go through the grieving process of anger and, you know, disappointment and then acceptance and forgiveness.
+- Business is business and family is family.
+- I would describe my relationship with my daughters as 'loving.'
+- My father was a truck driver, made $50 a week. And the reason why I know that so vividly is my Mom used to just constantly give him a hard time for that.
+- I would think Beyonce will be the greatest female artist of all time.
+- It's nobody's business how much I see my daughter or my grandkids, that's something personal that I care not to share.
+- Destiny's Child has never broken up officially. So don't be surprised one day if there's a new record or a tour because the group never officially broke up.
+- I actually thought when I met Tina, my former wife, that she was White. Later I found out that she wasn't, and she was actually very much in-tune with her Blackness.
+- Only a fool manages himself.
+- Beyonce did an incredible job of differentiating the sound of Destiny's Child in her songs. When you hear Destiny's Child, you know it based on the harmonies and the melodies.
+- At University of Tennessee at Chattanooga, I was one of the first Blacks there. I didn't go to a Black school until my junior year of college, when I went to Fisk University.
+- It's a lot of stress being a manager - a lot of moving parts.
+- The decision for Beyonce and Music World Entertainment to part was mutual. We did great things together, and I know that she will continue to conquer new territories in music and entertainment.
+- What I'm really proud of Beyonce and Solange, they understand the importance of creating the narrative. It's all about the narrative and how you position yourself with your narrative.
+- Kids watch their parents, right? And when kids are three, four, five-years-old, that's when they're like a sponge, and who they are is really developed by the time they are seven.
+- I'm a little bit more proud of Solange. She chose to do it her way. Because in the beginning, we wanted to mold her into this pop star, and that is not who she is. And we were wrong. I was wrong, the record labels were wrong... She wanted to do it her own way, and she did.
+- When I was growing up, my mother used to say, 'Don't ever bring no nappy-head Black girl to my house.' In the deep South in the '50s, '60s and '70s, the shade of your Blackness was considered important. So I, unfortunately, grew up hearing that message.
+- I only do things that I'm passionate about.
+- As a father I am extremely proud of Beyonce. I mean, Beyonce just keeps pushing the envelope, pushing the envelope and setting an example of the whole industry.
+- I am a co-writer of 'Survivor,' so there's publishing that I'll receive for some of the records.
+- I choose to let the press say whatever they want and let people say whatever they want.
+- One of the great aspects of a Destiny's Child movie... is the empowerment of the songs and the empowerment that Destiny's Child has given to women.
+- Yes colorism does exist if you look at historically what's happened as far as crossing over to pop radio.
+- There's a difference between a rumor and a lie.
+- Only one percent of artists are really profitable and successful. Beyonce is one‑tenth of one percent. When we talk about what she can do, ninety-nine percent of artists can't do that.
+- I have four things to be concerned about: prostate cancer, pancreatic cancer, melanoma and breast cancer. The rest of my life I have to be very much aware and conscious and do all of the early detection.
+- Blue Ivy can say she knows who her great-great-great-great-grandfather is. How many people can say that?
+- It was very clear that I had breast cancer. From a man's perspective, I'm thinking, 'Why me?'
+- I love a spirited debate.
+- You can't equate me with Joe Jackson. I've never hit my kid, I'm educated, I understand the business world.
+- I wanted people to begin dialogue about racism, about colorism. I wanted people to really become honest about our beliefs, about racism and how it exists in America today.
+- But I try to always have a positive mind about things.
+- There are some times when I have to take off the manager hat and be a father. And sometimes I have to take the father hat off and be a manager. And just to balance of that - and I'm not perfect so I make mistakes with that.
+- Mariah Carey, Rihanna, the female rapper Nicki Minaj, my kids - and what do they all have in common? They're all lighter skinned. Do you think that's an accident?
+- I stopped drinking, I just wanted to have a clean bill of health... Exercise, meditate.

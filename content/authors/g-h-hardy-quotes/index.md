@@ -1,0 +1,17 @@
++++
+author = "G. H. Hardy"
+title = "G. H. Hardy Quotes"
+quotes_len = "11"
+description = "the best 11 G. H. Hardy Quotes"
++++
+- Archimedes will be remembered when Aeschylus is forgotten, because languages die and mathematical ideas do not.
+- It is not worth an intelligent man's time to be in the majority. By definition, there are already enough people to do that.
+- Young men should prove theorems, old men should write books.
+- There is no scorn more profound, or on the whole more justifiable, than that of the men who make for the men who explain. Exposition, criticism, appreciation, is work for second-rate minds.
+- A mathematician, like a painter or poet, is a maker of patterns. If his patterns are more permanent than theirs, it is because they are made with ideas.
+- I wrote a great deal... but very little of any importance; there are not more than four of five papers which I can still remember with some satisfaction.
+- Pure mathematics is on the whole distinctly more useful than applied. For what is useful above all is technique, and mathematical technique is taught mainly through pure mathematics.
+- Beauty is the first test: there is no permanent place in the world for ugly mathematics.
+- I was at my best at a little past forty, when I was a professor at Oxford.
+- I am interested in mathematics only as a creative art.
+- A mathematician, like a painter or a poet, is a maker of patterns. If his patterns are more permanent than theirs, it is because they are made with ideas.

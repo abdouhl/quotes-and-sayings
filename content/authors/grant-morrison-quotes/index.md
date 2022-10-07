@@ -1,0 +1,22 @@
++++
+author = "Grant Morrison"
+title = "Grant Morrison Quotes"
+quotes_len = "16"
+description = "the best 16 Grant Morrison Quotes"
++++
+- I guess my inspiration is this - I like to pretend that every story that ever happened to 'Batman' was real and is part of this one guy's life.
+- Write comic books if you love comic books so much that you want to write them. Don't write them like movies. Comics can do a lot of things that movies can't do, and vice versa.
+- I was always interested in myths growing up. So, first I got into some Roman myths, then I was interested in Norse, then Celtic, then I started spreading to all the other mythologies.
+- It's hard for me to believe that a shy, bespectacled college graduate like Brad Meltzer who's a novelist and a father is a really setting out to be weirdly misogynistic.
+- I think any writer coming on to 'Batman' should at least attempt to do their own definitive version. What it means to them. Whatever they think that symbol or character can say.
+- I don't like to think of my readership as 'fans,' a word which has always suggested a kind of power relationship I'm uncomfortable with.
+- I'm lucky to have a job doing something I really love to do, and I'm happy to accept the pressures of relentless deadlines or reader expectations as necessary evils. It's probably not as stressful as mining coal or leading men into battle.
+- I tend to only read comics written by friends or people I've known. And I'm not a great comic reader.
+- The only time I ever met a character that I wrote was when I met Ian McKellan, when he was playing Magneto in the 'X-Men' movies.
+- Burnout is grist to the mill. I write every day, for most of the day, so it's just about turning into metaphor whatever's going on in my life, in the world, and in my head. Every nightmare, every moment of grief or joy or failure, is a moment I can convert into cash via words.
+- I was a clubber in the Nineties. I went dancing every week.
+- Consciousness, rather than being something that we have, is something we participate in.
+- Unlike novel characters, comic book characters last an eternity. When a character is changed beyond recognition, there's no longer the merchandising aspect.
+- There are dozens of unfinished or aborted projects in my files, but I can only assume they don't get done because they're not robust enough to struggle through the birth process.
+- I love 'Batman.' I love the Adam West 'Batman.' I love the animated 'Batman.' The character of Batman can encompass any interpretation, which is what makes that character so brilliant and why it's survived so many different media.
+- The thing that's been exciting about 'Superman' is to see how the character has developed through generations.

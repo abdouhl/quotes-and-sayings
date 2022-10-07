@@ -1,0 +1,80 @@
++++
+author = "Madeline Brewer"
+title = "Madeline Brewer Quotes"
+quotes_len = "74"
+description = "the best 74 Madeline Brewer Quotes"
++++
+- I'm not exactly a religious person, but I am very spiritual.
+- I like the exactness of baking. I'm not someone who's like, 'I'll just throw a bunch of stuff together. This is gonna taste delicious.' I am a rule follower: I really like the measuring. It's completely tedious, but I love that. It's calming. And I am a total sweetaholic.
+- The women of Gilead have so little power.
+- You can't turn individual human beings into baby-making machines.
+- That's one of my favorite things about 'Hemlock Grove' is that it's just unique and really just weird, and that's really what's happening with Miranda when she kind of gets thrown into the middle of this vampire-werewolf world.
+- I'm not tough.
+- There's absolutely no part of what I do that my dad doesn't have the utmost pride in. It doesn't matter what the job is - he's... supportive. Same with my mother.
+- I had an amazing French teacher in high school - it was the one class that I enjoyed. And I studied opera for 11 years, so I did a lot of singing in French.
+- I get my love of acting from my dad.
+- For some people, makeup is their war paint; that's putting their best foot forward. Others feel better with no makeup. It's so personal - who are we to judge?
+- I studied Shakespeare at the American Musical and Dramatic Academy in New York City, and 'Orange' was my first audition ever for TV or film.
+- It's excruciating to be away from your child.
+- 'Hemlock' is so intelligently written and brilliantly put together. Every detail in the show is there for a reason, and it fascinates me.
+- I loved working on 'Grimm.' The entire cast and crew were wonderful and welcoming.
+- I really enjoyed entering a new world and getting to know a new character - the world of 'Grimm' and becoming a Wesen.
+- You can never just write off a person as crazy. I think that is the most inhumane thing you can do to someone without physically abusing them.
+- Always be kind, especially in times when it seems like everyone is giving up on each other. Love harder.
+- A mirror reflects what you see, and a black mirror shows the dark side of it.
+- I trained classically for 11 years and then studied musical theater at AMDA New York. My dad is a singer-songwriter, so I followed in his footsteps.
+- I do think everybody pays their dues in Gilead, whether you're the most high-up commander or not. Everybody has to face the consequences of their actions.
+- I can only speak for myself and what feminism means to me, and that is equality for every human being: equal rights, equal representation, equal pay, etc.
+- I hated it at first, because I hate the cold even though I'm from a cold area, but I love Toronto. I think it's gorgeous. I think it's an amazing city. Everybody runs here or rides a bike. I've had to become more active so I don't feel left out.
+- Netflix gives a lot of creative and artistic freedom to its actors and to its production team and whatnot.
+- I'm, like, a tiny musical theater fairy.
+- I am 150 percent the first person to say it: I am a feminist through and through.
+- I did my first play when I was 7.
+- I use Garnier's micellar water to take off my makeup. I love the Mario Badescu Aloe and Rosewater spray. And I'm one of those people who's a sucker for a hot towel.
+- When I told my mom I was auditioning for 'The Handmaid's Tale,' she lost it. She was so excited.
+- We want to make legislation; we want to put laws on women's uteruses and whether or not they can protect themselves from pregnancy or whatever, but we don't want to protect you once you're pregnant.
+- Step outside your comfort zone because that's the only way you're going to grow.
+- I have an all-black Mahalo ukulele - it's like my baby. It has brought me so much peace and comfort.
+- I was really an actor before I knew I could sing. And I just put the two together and went to musical theater school. But acting is a huge passion of mine, so it doesn't matter which medium as long as I have the opportunity to grow and to learn from a piece of work and work with good people, and on a very good-quality project.
+- With any character, you have to put part of yourself into it because we are the soul that brings that character to life.
+- It was a really interesting thing to explore, the strength it takes for someone to stay when they truly do not want to be on this Earth anymore.
+- I grew up doing musical theater. I went to a school for musical theater, so that was always what I wanted to do growing up.
+- None of the atrocities in 'The Handmaid's Tale' are pure fiction. Everything Margaret wrote was something that has happened somewhere in the world to human beings.
+- When I first read the scenes I got to audition, I just could tell there was obviously something there. The writing speaks for itself, but also it's just the fact that 'The Handmaid's Tale' is such an amazing story. I had never read the book before I auditioned.
+- When I was in Toronto shooting 'Hemlock Grove,' I'd spend a couple of hours in the makeup trailer every day because my character had all these tattoos. I was telling one of the artists how bored I was - I didn't really know anybody - and he said, 'Pick up a ukulele and start playing. They're 30 bucks for a cheap one.' And I did!
+- 'Black Mirror' was amazing.
+- When you read a book by its cover, you see one thing, and then you find out so much more about them as a human.
+- I don't need a man to tell me he loves me; I don't need this industry to tell me it loves. I love myself.
+- When it comes to fashion, I never wear makeup and always stick to black clothing.
+- We want to have our beliefs, and we want to enforce them on everyone else, but we don't want to have to think about everything that comes along with it.
+- It is one of the most ignorant things you can do to a person, to say they're nuts or they're crazy. It diminishes the layers of who they are as a person.
+- Fullscreen is doing some really interesting work. They are taking these YouTube stars and people who have made entire careers out of social media and bringing them into an even bigger limelight on a new entrepreneur platform - and that's fascinating! That's genius to me.
+- I'd never wear something that's too generic.
+- A lot of the best of what's come from working on 'Orange Is the New Black' is working with the Women's Prison Association and kind of getting to see firsthand what they do for incarcerated women.
+- I grew up in Pitman, New Jersey, which is a tiny 2-square-mile town near Philadelphia. Everyone knows each other there.
+- My mom loves me a lot, and I think if I was taken from her, she would have lost her mind.
+- Whether people agree with you or not, take an active role in what happens in your life.
+- I miss my family, and I miss the New Jersey beaches. They have beaches here in L.A., but they aren't the same.
+- Clothes should always feel personal.
+- Every time I've talked about the Republic of Gilead, I always say, 'The still-fictional Republic of Gilead.'
+- Let your voice be heard. Don't stand idly by and let things happen to you. Question everything; be informed.
+- When you're on set, you're constantly surrounded by people - talking to people, being touched by people. So I like to just spend time with myself.
+- I try to take my emotional pulse more now, to recognize when I need to go scream and cry for 20 minutes and then come back to center. Allowing yourself that time, it's a gift.
+- 'The Handmaid's Tale' breaks my heart. It's a show based on the book written in the '80s by Margaret Atwood - who is a spectacular talent. That book is a work of art.
+- I look for roles that are a good story for me as an actress and what I think will grow me as an actress and person. I also just really enjoy working with people who are passionate about what they do.
+- Any story about a powerful woman owning herself in any way is automatically deemed feminist.
+- I'm definitely a homebody, so when I have an emotional day on set, I have to go home, take a bath, and go to bed.
+- We have a beautiful right in this country, which is freedom of speech.
+- I listen to everything: The Pixies, The Beatles, The Avett Brothers.
+- Filming with Laura Prepon, Taylor Schilling, Natasha Lyonne, it just blew my mind.
+- When I went in for the 'Orange' audition, I was just doing what my agency told me to do. Truth be told, I wasn't prepared. I didn't even know how to prepare. I couldn't remember my lines.
+- My faith falters at times. But I have a very, very strong faith in work ethic, for lack of a better way of putting it.
+- I want people to be awake. I want them to be aware.
+- 'The Handmaid's Tale' will blow people away.
+- I really love my hometown. I carry that with me.
+- I'm realizing that a lot of people don't really care what happens to other people as long as it doesn't affect them.
+- I'm a horror fan in general.
+- After 'Orange' wrapped and my character wrapped, I felt like I went through a bit of a mourning period.
+- There's so many times when you see into the lives of these women in Gilead, and it's just unbearable. It's a fate that's just, I don't even know how to say it. I don't have words.
+- The best thing about my job is meeting people who are able to express their creativity in a way that suits them and gives them purpose.
+- When I went to New York, I was exposed to things I definitely wasn't exposed to in South Jersey and Pitman.

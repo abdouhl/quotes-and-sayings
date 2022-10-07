@@ -1,0 +1,57 @@
++++
+author = "Jaron Lanier"
+title = "Jaron Lanier Quotes"
+quotes_len = "51"
+description = "the best 51 Jaron Lanier Quotes"
++++
+- Web 2.0 ideas have a chirpy, cheerful rhetoric to them, but I think they consistently express a profound pessimism about humans, human nature and the human future.
+- If there's any object in human experience that's a precedent for what a computer should be like, it's a musical instrument: a device where you can explore a huge range of possibilities through an interface that connects your mind and your body, allowing you to be emotionally authentic and expressive.
+- I view advertising as being this romanticizing element that helps us appreciate, understand and enjoy how remarkable it is that we've been able to do so much, and learn so much. I view it as really vital, even though sometimes it can be really annoying.
+- My parents were kind of like me in that they had tons and tons of weird, amazing stuff.
+- The interesting thing about advertising is that the things that annoy us sometimes about it are really human. It's us looking at ourselves - and like all human endeavors it's imperfect.
+- I'd much rather see a world where, when you make some quirky comment on a blog or news story or you upload a video clip, instead of just a moment of fame for your pseudonym, you'll get 50 bucks. The first time that happens, you'll realise that you're a full-class citizen. You have the potential to make money from the system.
+- I've occasionally been wrong about certain things, which is in a way more delightful than being right.
+- I think complexity is mostly sort of crummy stuff that is there because it's too expensive to change the interface.
+- My dad has sometimes felt that I grew up a little lacking in sufficient eccentricity - in the sense that I'm willing to live as an adult in a house with walls that are parallel to each other, that sort of thing.
+- Technologists provide tools that can improve people's lives. But I want to be clear that I don't think technology by itself improves people's lives, since often I'm criticized for being too pro-technology. Unless there's commensurate ethical and moral improvements to go along with it, it's for naught.
+- Facebook says, 'Privacy is theft,' because they're selling your lack of privacy to the advertisers who might show up one day.
+- After my mother's death, I had such difficulty relating to people.
+- A remarkable thing about the Silicon Valley culture is that its status structure is so based on technical accomplishment and prowess.
+- People try to treat technology as an object, and it can't be. It can only be a channel.
+- The mass culture of childhood right now is astonishingly technical. Little kids know their Unix path punctuation so they can get around the Web, and they know their HTML and stuff. It's pretty shocking to me.
+- An intelligent person feels guilty for downloading music without paying the musician, but they use this free-open-culture ideology to cover it.
+- I think most of the dramatic new ideas come from little companies that then grow big.
+- Human beings either function as individuals or as members of a pack. There's a switch inside us, deep in our spirit, that you can turn one way or the other. It's almost always the case that our worst behaviour comes out when we're switched to the mob setting. The problem with a lot of software designs is that they switch us to that setting.
+- Advertisers and marketers should be looking to bring new experiences to different parts of the brain. It's a more profound idea than just dropping a billboard into a video game.
+- I've always felt that the human-centered approach to computer science leads to more interesting, more exotic, more wild, and more heroic adventures than the machine-supremacy approach, where information is the highest goal.
+- Mobs and dictators were made for each other, and when mobs appear, dictators will soon flourish.
+- The basic problem is that web 2.0 tools are not supportive of democracy by design. They are tools designed to gather spy-agency-like data in a seductive way, first and foremost, but as a side effect they tend to provide software support for mob-like phenomena.
+- Advertising is the edge of what people know how to do and of human experience and it explains the latest ways progress has changed us to ourselves.
+- Wal-Mart impoverished its own customer base. Google is facing exactly the same issue long-term, although not yet.
+- If we enter into the kind of world that Google likes, the world that Google wants, it's a world where information is copied so much on the Internet that nobody knows where it came from anymore, so there can't be any rights of authorship.
+- Musicians and journalists are the canaries in the coalmine, but, eventually, as computers get more and more powerful, it will kill off all middle-class professions.
+- I feel drawn to experiment with ways that technology can interact with notions of intimacy, because so much of technology is done in a way that's very cold and has such an opposite effect.
+- Create a website that expresses something about who you are that won't fit into the template available to you on a social networking site.
+- Every time we give a musician the advice to give away the music and sell the T-shirt, we're saying, 'Don't make your living in this more elevated way. Instead, reverse this social progress, and choose a more physical way to make a living.' We're sending them to peasanthood, very much like the Maoists have.
+- People have to be able to make money off their brains and their hearts. Or else we're all going to starve, and it's the machines that'll get good.
+- Services like Google and Facebook only exist because of the social acceptance of a mass amount of distributed volunteer labor from tons and tons of people.
+- Advertisers are not thinking radically enough - they look for technology to lead instead of trying the neuroscience approach and thinking about what parts of the brain haven't been activated before. These new experiences bring new capabilities to the brain.
+- I'm astonished at how readily a great many people I know, young people, have accepted a reduced economic prospect and limited freedoms in any substantial sense, and basically traded them for being able to screw around online.
+- We're losing track of the vastness of the potential for computer science. We really have to revive the beautiful intellectual joy of it, as opposed to the business potential.
+- I'm not in any sense anti-Facebook.
+- What does it mean to not be alone? I've approached that question through music, technology, writing and other means.
+- If you're old enough to have a job and to have a life, you use Facebook exactly as advertised, you look up old friends.
+- I do real paintings, you know. I'm a little messy in the studio, so I'm a bit of a danger. But I just adore it.
+- Criticism is always easier than constructive solutions.
+- If we allow our self-congratulatory adoration of technology to distract us from our own contact with each other, then somehow the original agenda has been lost.
+- Writing and thinking is not economically sustainable.
+- I mean, you can't have advertising be the only official business of the information economy if the information economy is going to take over.
+- It is impossible to work in information technology without also engaging in social engineering.
+- America's Facebook generation shows a submission to standardization that I haven't seen before. The American adventure has always been about people forgetting their former selves - Samuel Clemens became Mark Twain, Jack Kerouac went on the road. If they had a Facebook page, they wouldn't have been able to forget their former selves.
+- Style used to be an interaction between the human soul and tools that were limiting. In the digital era, it will have to come from the soul alone.
+- I'm an advocate of human nature.
+- When you have a global mush, people lose their identity, they become pseudonyms, they have no investment and no consequence in what they do.
+- Governments oppress people, but so do mobs. You need to avoid both to make progress.
+- Google's thing is not advertising because it's not a romanticizing operation. It doesn't involve expression. It's a link. What they're doing is selling access.
+- The wisdom of crowds works when the crowd is choosing the price of an ox, when there's a single numeric average. But if it's a design or something that matters, the decision is made by committee, and that's crap. You want people and groups who are able to think thoughts before they share.
+- Anonymous blog comments, vapid video pranks and lightweight mash-ups may seem trivial and harmless, but as a whole, this widespread practice of fragmentary, impersonal communication has demeaned personal interaction.

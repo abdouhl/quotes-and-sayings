@@ -1,0 +1,106 @@
++++
+author = "Jurgen Klopp"
+title = "Jurgen Klopp Quotes"
+quotes_len = "100"
+description = "the best 100 Jurgen Klopp Quotes"
++++
+- The emotion to handle the pressure is one of the biggest challenges in football - it's the top challenge.
+- The more players I have, the more difficult choices there are for me, but the better it is for LFC.
+- I'm really a normal football manager.
+- Bayern want a decade of success like Barca. That's OK if you have the money because it increases the possibility of success. But it's not guaranteed.
+- I am a very emotional guy. What I love, I do with all I have.
+- I love football and the intensity of football in Liverpool, this is what is very good for me.
+- I am not a dreamer. I am a football romantic.
+- It's not about changing people; it's sometimes about changing a situation. How can we build an even better situation for them?
+- The Premier League is one of the most difficult in the world. There's five, six, or seven clubs that can be the champions. Only one can win, and all the others are disappointed and live in the middle of disaster.
+- I'm not a one-man show. I was never that in my life, and I never want to be that.
+- I only change things where I know about a situation. I'd never change just for change.
+- The intensity of the football and how the people live football in Liverpool - it is not a usual.
+- Winning the title in England is the biggest challenge of them all.
+- In Dortmund, they say the derby is more important than the championship. You can feel it around the game.
+- When I started analysing games in 2001, I had a DVD recorder. I'd be at home watching the games just on a normal TV, watching what I could and trying to figure out what we would be facing a few weeks later. The problem was, in the team meetings, I'd always have to keep going back and forwards with the footage, trying to get to the right part.
+- I think a father is important for everyone. If you don't have, then maybe not so much. In the world today, it's possible that you grow up with only one parent in the family.
+- In Germany, they all thought I was a bit mental, very emotional.
+- When you create circumstances together, when you try everything, then you can lose. But you need to show the importance.
+- Coaches will say that it's not important for their team to run more, and they prefer to make games the right way. I want to make games only the right way and run 10 km more.
+- It needs time. Nobody wants to hear it, but that's the truth: if you want to have success in the future, you have to be ready to work now.
+- Derbies are always difficult to play because you have to handle the pressure. There's no advantage or disadvantage for either side.
+- I always thought about working in England because of the kind of football, the intensity of football. Liverpool was first choice.
+- When we have the ball, the other team has to run. The most important thing is for the players to be prepared to be a little bit wild.
+- People should not make me out to be like Jesus; I don't walk on water.
+- The best football is always about expression of emotion. Always.
+- Football is a game you cannot play without making mistakes.
+- Shinji Kagawa is one of the best players in the world, and he now plays 20 minutes at Manchester United - on the left wing! My heart breaks. Really, I have tears in my eyes. Central midfield is Shinji's best role.
+- I'm not a genius. I need other people to get the perfect information. When we have this, we will decide to sign or sell a player.
+- Without being the most confident person in the world, I think I am the right person for Liverpool.
+- He is really something. I love him. He is Sir Arsene Wenger.
+- If you want special results, you have to feel special things and do special things together. You can speak about spirit, or you can live it.
+- Louis van Gaal is one of the most successful managers in the world.
+- Bad performances can happen and are not that serious - even with new players. You can't, say, sell him, get a new one.
+- Just like every person who works for Dortmund is a fan of the club, it was the same at Mainz. When I was a player there, we had 800 supporters on rainy Saturday afternoons, and if we died, no one would notice or come to our funeral. But we loved the club, and we have this same feeling at Dortmund.
+- We should play free football, defend lively with a passion, and have the best understanding in offence.
+- I am not saying I am the best manager in the world. But I'm quite good.
+- My biggest skill is common sense. I understand life.
+- You'd be waiting 30 or 40 years for me to build a table. I have more than two left hands.
+- I'm pretty positive, optimistic, so I always expect the best.
+- We don't want people to leave the stadium until the game finishes.
+- It is my job to help the players react better.
+- In England, football is a big thing to talk about, but Liverpool, it's a special place. You feel it when you make your first step.
+- Players who are not from the U.K. have to get used to the winds. I have to adapt my style as a result as well. Often, you are forced to keep things simple.
+- I don't feel too much pressure. I only see an opportunity.
+- I'm an absolutely normal guy.
+- When I left Dortmund, I said it's not important what people think when you come in but what they think when you leave.
+- I like learning more about people; I like to talk to people.
+- My first win feels better than a draw!
+- There is a place in the net where the keeper cannot reach the ball.
+- Each doctor makes a much, much more important job than I do, but at the end, nobody talks about him. We all know about it, but we don't really think about it.
+- I have only one understanding of development and of making success, and that's by going step by step.
+- Anyone can have a good day, but you have to be able to perform on a bad day.
+- If two smart, intelligent, clever guys sit together on a table, and you both want the same, where can be the problem? We all want to be successful.
+- My experience is listen, see, feel - and then think about what you change.
+- I have no problem if someone wants to hug me - if I know him!
+- I've thought sometimes about what I like about football, and it's playing together.
+- It's absolutely normal that different human beings want to go different ways.
+- The only thing I can say is that I like people; I like human beings with their faults and with their strengths.
+- There is something special which rides on a game between Liverpool and United.
+- Liverpool is a club with a big, big, big history, and all the clubs in the world have a big history if the present is not too successful. If you have never had success, then nobody knows how it is, but in Liverpool, everybody knows how it was.
+- I am a normal guy from the Black Forest, and I do not compare myself with the geniuses.
+- If you watch me during the game, I celebrate when we press the ball and it goes out.
+- I don't want to spend money the club doesn't have; I don't want to hold a player that doesn't want to stay.
+- My problem is I am Christian, so I think other people must have success, too; it's not about me.
+- The wind can be quite extreme in England. We are not familiar with that in Germany, and you have to keep things simple.
+- What is Champions League level? I saw a lot of rubbish games at Champions League level.
+- When the players go home, I can't tell them what to do, so you need to create an atmosphere of trust. I don't want to think, 'What are they doing now? Do I need to call them?'
+- The English game is not faster than the German game. Perhaps there are a few more sprints. But there is a different style of football here, partially due to the weather.
+- If you are full of motivation as a player, if you are full of concentration, I am open arms.
+- I understand aggressiveness in only one way: being prepared to hurt yourself, not someone else.
+- For me, it's enough that I have the first and last word.
+- I left Mainz after 18 years and thought, 'Next time, I will work with a little less of my heart.' I said that because we all cried for a week. The city gave us a goodbye party, and it lasted a week.
+- To be successful, you need results in a row. You can't win, lose, win, lose.
+- I was a very average player and became a trainer in Germany with a special club.
+- Fighting football, not serenity football - that is what I like.
+- We all started playing football against our best friends, and I can't remember a moment where, because it was my best friend, I did not want to win against him.
+- The challenge is to stay cool enough to handle the pressure in the moment so that you can succeed in the future.
+- I'm not sure what you need first - the players believing or others believing in them - but in the end, both have to think it.
+- I know I'm more on television, and I'm more recognisable than maybe even the players because they run and train, but I just stand there, and my face does all these funny things that everyone can see all the time.
+- Only stupid people are changed by success.
+- My father gave me some advice when I was very young - whatever someone tells you in the future, don't forget Pele is the best.
+- That's what you live for as a sportsman. You have to put up a fight.
+- In England, you have stadiums in the middle of the city.
+- I love pets, especially dogs.
+- When you play sports like tennis, you're alone, and that's a good school for life, but it's also a good school for life to bring your best and make those around you better, too - helping others in difficult moments.
+- As Dortmund manager, I lived in a street, and my two neighbours were Schalke fans. They showed it every day, flying flags!
+- I'm looking forward to the intensity of football and how the people live football in Liverpool. It's a special club.
+- It's a rule to give all, and it can make the difference if you work more. If you don't have to give all, and you still win, what's this?
+- In London, you'll be walking around and, 'Oh, there's the ground.' Every area of the city has a Premier League club. They all survive; they all exist with enough money, and that's good.
+- I had no bad moment in my relationship with Dortmund. Not one second.
+- Crazy players love me. I don't know why.
+- Sometimes I don't use the words 'will' and 'want' in the right way. The German word 'will' is the English word 'want,' so that's a little bit of the problem.
+- I get a little bit emotional during a game!
+- Yes, it is one of my ultimate aims - it is the ultimate sense of football: to make the people happy, to let them live some emotions that you usually can't get.
+- I was a fighting machine with a will of iron.
+- I've met some Evertonians in the street, and they've been friendly. I've had taxi drivers who have been Everton fans. They've been really nice.
+- I don't think I'm an unlucky person.
+- To win is always good for the feeling of the whole team.
+- Life is too short not to celebrate nice moments!
+- I didn't take many penalties, but I never missed one.

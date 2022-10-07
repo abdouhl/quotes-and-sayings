@@ -1,0 +1,20 @@
++++
+author = "Naya Rivera"
+title = "Naya Rivera Quotes"
+quotes_len = "14"
+description = "the best 14 Naya Rivera Quotes"
++++
+- I used to be a workout fiend and I was so unhappy because I wanted to eat what I wanted to eat. So now if I know I have to be in a bikini, I'll obviously watch what I eat for a week.
+- My passion for music is one of my greatest loves.
+- Honestly, I never thought I'd actually be playing a teen lesbian. I didn't think it was going to go this far. But I'm glad that it did, because there have been a lot of fans who have expressed that they've been going through similar situations in their lives.
+- It's on my bucket list, to get in a real fight.
+- I think it's important to be able to say that you did live a normal life and struggled to make ends meet. It all has to do with work ethic and how I apply myself to my awesome job now. I've always been used to working because I've been working since I was four.
+- I want to play Lena Horne because I've always been fascinated with her. Her talent was astounding and more than that, her life story is incredible.
+- I will admit to hoarding beauty products. I'm a beauty lady.
+- Getting hit on by both genders is such a champagne problem.
+- If you think back to your first love, you always remember them and little things always remind you of them.
+- I am half Puerto Rican, a quarter German and a quarter black. That was always a big issue for me - being mixed race - because casting directors tended to be very like, 'OK, are you Hispanic for this role?' 'Or is she going to be African American?'
+- From the time I was 16 to really up until turning 21, the roles were really, really few and far between. I had people say that I just wasn't a good singer. They didn't know what to do with me; I would never fit in any markets. I almost quit acting altogether.
+- I find it's really hard for anybody to meet anyone. I'm not big on dates anyways. I still have to work that out.
+- I love hot yoga. I go to a sculpt class with weights. That's really good for the core and it's obviously super hot. I love cardio bar. I'm not a big gym fan, so I like to go to classes.
+- For people to even think that I'd be considered or a good candidate for a supporting actress nomination is mind blowing to me.

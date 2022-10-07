@@ -1,0 +1,15 @@
++++
+author = "Nick Tosches"
+title = "Nick Tosches Quotes"
+quotes_len = "9"
+description = "the best 9 Nick Tosches Quotes"
++++
+- As a young man, I felt a need to communicate with somebody or something, but it seemed in my own particular environment that that wasn't an option. On the other hand, I probably lacked the courage to do so, even if it was an option.
+- Mortality applies to every aspect of life. The fear of death is the driving fear of life.
+- The things I wanted to be when I was a kid were an archeologist, because of dinosaur bones; a garbage man, because they got to ride on the side of the trucks; and a writer.
+- To me, music's something I can dance to or listen to. To write about it is always more of what the music represents, or what it reflects. Like an ideal song, to me, is a song that you can dance to, that summons up some darker and greater mystery.
+- Life is a racket. Writing is a racket. Sincerity is a racket. Everything's a racket.
+- For years, I never really pondered how I came to be a writer from where I came from.
+- When I was young, I kept trying to read 'Moby-Dick', and I couldn't get that far into it. And I kept thinking, 'Well, man, if I can't read the great American novel, I could never be a writer.' And this bothered me a great deal.
+- I don't have a college degree.
+- I often wonder if I had the complete freedom to not have to write, if I would write. That's the one mystery that I hope I get to experience.

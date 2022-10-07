@@ -1,0 +1,81 @@
++++
+author = "Marcia Gay Harden"
+title = "Marcia Gay Harden Quotes"
+quotes_len = "75"
+description = "the best 75 Marcia Gay Harden Quotes"
++++
+- I'm fortunate to have a team of people who help me. I've got an assistant, an office manager, a nanny - she's not full-time, but she's there when I need her.
+- Whether you win or not, the night the Oscars are over, the curtain goes down and you go back to the grind. Period.
+- I'm not a big fan of mediocre.
+- Doing theater is such a specifically energetic and almost acrobatic work.
+- I always wanted to be in movies.
+- Harlem is a very family-oriented neighborhood, and it always has been.
+- All those days of waiting on tables until I could get a role on Broadway, all that time going to school taking lessons, and all those years of being a nobody following a dream-and now here it is.
+- Shakespeare set a lot of his dramas in a historical perspective or war perspective, or he would study what was going on at that time.
+- I love being a mother; I hate being a housewife - the cooking, the laundry - because it takes away time I could be with my kids.
+- Sometimes I ride my bike to see the kids after a matinee and then ride back to do the show. That's the hard part, but I wouldn't have it any other way.
+- Anybody who is really walking with the Lord is embracing the foibles and the beauties and the differences of humanity, regardless of race, color, creed, economic stature and sexual proclivity, whatever. You embrace the beauty of humanity and not be exacting and belittling about the differences.
+- It's important that kids learn, but I really don't like all the testing, testing, testing.
+- I think irrationality is one of the scariest things in the world.
+- I have a theory that there's almost this primal viewpoint on women in the business, that once you're beyond childbearing age, you are perceived as nonthreatening, nonsexual, noncastable. Sure, I already knew it before I got into it. I just didn't know I'd end up making my living from low-budget, independent films.
+- The only thing that seemed to me I could do in such a way that no one else could was acting. I thought, I can be a doctor, but there's going to be someone else who is just as good or better. I can be a lawyer, which I still sometimes think I would love to be, but I think there's someone who can do it just as good or better.
+- You want to know how I'm feeling? Just look at me, and I'll tell you how I'm feeling. Nothing is hidden. I'm all out there. I cry like a baby, I get upset, I stamp my feet. I'm not stoic.
+- I think families should vacation together, and cruising is a wonderful option.
+- I had a science teacher in middle school who inspired me... simply because she acknowledged me and made me feel that what I had to offer was worthy.
+- Having a dad in the service was helpful. I was forever meeting new kids, going to new schools, moving to new neighborhoods. I was encouraged when I attended the American School in Germany.
+- In Hollywood, a lot of acting feels like grandstanding.
+- You're over there in the corner either thinking about the dead dog or whatever, you're bringing up your personal life and you need the space, and then somebody throws you a joke. Especially if it's an emotional scene, you don't want the joke.
+- If you think someone committed a crime, you should turn them in to whomever you perceive authority to be.
+- Working on 'King Of Texas' was a life experience for me.
+- The important thing is that when you correct your children, they see what they've done wrong and why you're upset.
+- There are certainly a billion, ker-trillion girls out there more attractive than I am.
+- With any tween, you have issues, from what they are going to wear to school, to how do you get them to speak politely, to how regularly they lose their contact lenses.
+- I think to visualize failure as you're starting off is really a bad thing to do.
+- In 2005, I had the great honor of playing Shailene Woodley's mother in 'Felicity: An American Girl Adventure.' I was immediately impressed by her work ethic, both on and off set.
+- Isn't it nice not to have to compartmentalize yourself?
+- I do pottery.
+- People have such false perceptions of how stardom really works.
+- In theater, you have a rehearsal period and you know just who to be.
+- So far, the thing I seem to have been rewarded for in film is leaving myself behind and transforming myself into other people.
+- In my opinion, Zac Efron is a total hero. Him seeking help encourages other people with addictive issues to seek help. It's brave of him.
+- In any film, there are 10 male roles for 1 female role, especially in the action films. They're heavy with the guys.
+- In the theater, it's about taking time in a musical segment, a pause in a musical way and then moving on.
+- They tell us in magazines and in ads, 'Oh, you should look like this, you should wear this, you should look like this movie star, or you're nothing.' And so we're all totally unsatisfied.
+- You have to make sure that you and your child are connecting, and it does help when they are looking directly into your eyes.
+- It's hard to balance work and family.
+- I think in terms of family, in terms of relationships, in terms of work, competition to be the favorite, to be the noticed, to be the one - I don't know if it exists for all personalities, but I know for sure it did with me.
+- In my kids' school, the married family is an anomaly... which I do think is sad. I do believe in marriage.
+- My schools were quite diverse - those who serve their country come from every race and religion - and so the military schools I attended were a wonderful melting pot.
+- I've never really liked horror films.
+- I examine other people's characteristics, so when I'm playing characters, I don't always have to make them me; I can transform into others.
+- We can be incredibly disconnected in this day and age with computers and cell phones.
+- I love it when ugliness is beautiful. I love character flaws.
+- I've had an amazing career and amazing blessings. But I'm an everyday person, and I have lived an everyday life, and I drive an everyday car.
+- I don't think any extremism is rational.
+- Reading is a joy for my kids, and to swing in a hammock on a lazy summer day reading a good book just goes with summer.
+- Back in the days of Barbara Stanwyck and Bette Davis, beauty wasn't the be-all and end-all it is today.
+- Sometimes in film and television, I don't have the opportunity to play roles that really stretch and challenge me.
+- You've got to understand what makes the character human.
+- Everybody says 'Good Morning' in Harlem because it's true! And that's lovely.
+- I'm just a pack mule. I've played leads and I've played character roles. Any actress in Hollywood will tell you as your age climbs, the leads thin.
+- My work often takes me away from my family for long periods of time, so I've really come to appreciate the time I do spend with them.
+- The people who stood out in the Sandy Hook incident, the heroes, were the normal, ordinary people who went to save those children.
+- The trophy wife must be in her 20s to earn the title 'trophy wife.'
+- I played Laura Bush in a Tony Kushner piece, and afterward, I think my phones got tapped.
+- I relate to people and roles that are about the arc of human experience, things that everyday people deal with every day.
+- I'm always a little starstruck anyway. So to work with a movie star, which is Brad, I was excited about that; to work with a movie legend, which is Tony, I wouldn't have passed that up. Just to get to watch him and watch how he works.
+- I loved playing Anne Bancroft, because she was so wonderfully arch.
+- You know what I miss? I miss myself, that time to just do things for myself.
+- I love physical comedy. I adore comedy of any kind.
+- You want people - I want people to relate to me as a character. I want them to go, 'That could have been me,' or, 'I know someone like that.'
+- I was always an exhibitionist. I liked it when everyone laughed. But I didn't do plays in high school. I was too nervous.
+- As a mother, I love the Leapster handheld because it really delivers on educating children while they play. My daughter enjoys it because it's fun and touches on all of the activities she is interested in - videos, books and art.
+- Everyone thinks offers are always pouring in. Offers have never poured in. Never. I was auditioning a lot, but I didn't get the jobs.
+- After I won the Oscar for 'Pollock,' some newspaper printed, 'She should get a million-dollar bump.' My sisters would write me, 'You're gonna get this million-dollar bump!'
+- I've been so lucky to work with some great, great writers: Tony Kushner and Yasmina Reza.
+- A New York casting director, who shall remain nameless, once said to me, 'Marcia, you have what I call the flaring-nostril look, and until you get something done about it, you will never, ever work.'
+- I just never wanted to be too much in the background. I always wanted to be a part of things.
+- I was always the child who wore her emotions on her sleeve.
+- Oh, I just love being a character actress. You have a lot of fun, and not only that, you save tons on cosmetic surgery because you never have to have liposuction.
+- It's very hypocritical to constantly say, 'We want to keep our kids close,' then send them home with so much homework that family time becomes nonexistent.
+- You can manipulate the viewer in film. With theater, what you see is what you get.

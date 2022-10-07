@@ -1,0 +1,25 @@
++++
+author = "Noel Redding"
+title = "Noel Redding Quotes"
+quotes_len = "19"
+description = "the best 19 Noel Redding Quotes"
++++
+- Hendrix rehearsed different drummers, before we met Mitch Mitchell.
+- My personal favourite is Jeff Beck. All the others are wonderful as well.
+- At the age of nine, playing the violin at school, and then onto the mandolin.
+- But people are now realising why I was playing bass with Hendrix.
+- On Ain't No Telling I came up with the bass solo.
+- We had no sleep or days off or anything like that and then, when the band became big, Hendrix became a star and looked down at us lot.
+- It was rehearsing in the studio, at which point they were setting up the sound, and once we'd got the thing together they'd actually record it, without us knowing sometimes!
+- Well, the first day we went through three songs, very basically.
+- I took up violin because my best mate had taken it up, so I did likewise.
+- The Fat Mattress consisted of people I'd played with before joining the 'Experience and it was put together as a song writing situation.
+- I wouldn't know how I would have coped with The Beatles' sort of fame.
+- Everybody was starting to grow long hair and wear pink suits and purple glasses and stuff and then, I suppose, some people thought we were crazy, but we weren't really crazy because we're all still here!
+- My lady, Deborah McNaughton is doing a documentary on me.
+- I was the first guy to join the band with Hendrix.
+- I suppose the old natural stuff would be ok, the old mushroom, but I wouldn't advise anyone to do it.
+- The first band I was in, I think was called The Strangers. I got the sack because I was too small!
+- I came to join the Experience by going for an audition for Eric Burdon who was just forming the New Animals at that point, after the original Animals had broken up.
+- I'd gone professional when I was about seventeen.
+- Well, I'd had the Fat Mattress earlier as a writing outlet for songs and that.

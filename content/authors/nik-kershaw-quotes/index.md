@@ -1,0 +1,16 @@
++++
+author = "Nik Kershaw"
+title = "Nik Kershaw Quotes"
+quotes_len = "10"
+description = "the best 10 Nik Kershaw Quotes"
++++
+- It's the most ridiculous business to be in. It's full of people who have never grown up.
+- I'm off to sit on a cliff.
+- There's always some promoter having an '80s night, saying, We'll supply the band. All you can drink.
+- I love Neil Finn. I've loved everything he's done since Split Enz.
+- Glasgow is less polite than Edinburgh but that's a good thing - they keep it very real.
+- I can understand why those bands do it. It can be a hell of a lot of bloody fun. People are allowed to have a bit of fun after the age of 40, and a lot of them do need the money.
+- I tried several times to get the song right. The tune and the chords that I started with, there really wasn't anywhere else it could go. I stopped fighting it and let it take me away.
+- There is a major turning point in life when you have to decide: shall I grow old gracefully or shall I try everything to stem the tide? For me, that point came in 2001, when I stopped dyeing my hair.
+- There's stuff that everybody does that they don't know they do.
+- I might have to go on breakfast TV, which would mean getting up early.

@@ -1,0 +1,106 @@
++++
+author = "John Barnes"
+title = "John Barnes Quotes"
+quotes_len = "100"
+description = "the best 100 John Barnes Quotes"
++++
+- Generally speaking, ego isn't a good thing. Humility is the most important quality in a human being.
+- New managers have to come from somewhere, everyone has to be a learner at some point.
+- Yes, my clothes don't reflect my personality at all. Because I'm a very straightforward and serious person. My clothes are much flasher than I am. Yeh. Yeh, yeh. It's a good contrast. I don't think your clothes should reflect your personality... keep people on their toes.
+- I think Liverpool, when Coutinho left, they were a much better team.
+- Policing language and even legislating against certain behaviours will only go so far to address the pervasive problem of racial bias. To get at the root cause we must have open, honest and sometimes painful conversations.
+- Football can do nothing about getting rid of racism. Society can.
+- Football is all about scoring goals.
+- Until we get rid of racial bias, sexism, homophobia in society, it will exist in all walks of society.
+- Racism is never personal - it's about someone saying the group I am part of is superior to the group you are part of.
+- I've never bought a pint of milk in my life.
+- I don't really eat biscuits.
+- I am no different from a lot of people. I am concerned for the future of my children and concerned for the future of all children.
+- There are lots of different ways of playing football. It depends on how tall you are, what position you're in.
+- As I've been saying for decades, as long as racism exists in society, it will exist in all facets of society. Until we eradicate it from society, football will be like any other industry.
+- For a team like Brighton, just being in the Premier League is important. That is the name of the game.
+- For most footballers, they just have to give their all for 90 minutes two times a week, and apart from a few training sessions spend the rest of the time resting. They only train intensively for six weeks before the new season.
+- Race, for me, should be social and cultural, rather than the colour of your skin. Anton Ferdinand would have more in common with John Terry than he does with some West African from Nigeria. John Terry will have more in common with Anton Ferdinand than a Slav from Eastern Europe who happens to be white.
+- I remember when I was 13 or 14 friends coming over and my father telling them the benefits of joining the army. But he knew that army life wasn't for me. I was a little bit too laid back and lackadaisical and ill-disciplined.
+- I used to think you had to be very selfish, but as I get older my views on life change.
+- African society and culture varies much more than European society but it's just considered 'Africa' as if they are all the same.
+- Just passing laws saying you are not allowed to be racist won't work. You need an educational system in place.
+- While we have to take personal responsibility for our actions, I have a great deal of empathy for people who are unconsciously racially biased, and indeed count myself among their number.
+- In the 1970s people were afraid to call me black because they thought it was an insult. They would say 'coloured.' Now it has gone full circle. It's not an issue. The intention is the most important thing.
+- How many black people are there in the higher echelons of any industry? We can talk about journalism, we can talk about politics. So why should football be any different?
+- Britain has always told the world that being British is about the humanity, compassion and moral fortitude that we have. All great things that we are supposed to have spread across the world. A leave vote now says that we don't really care about anyone else, we don't care what happens to the European Union.
+- Most people would accept that we are, to a certain extent, products of our environment.
+- You have to give 100 per cent in every game and you cannot give more than 100 per cent.
+- We all have preconceptions of people based on what we have been told about them and their race and ethnicity.
+- If you believe you always have to sign players and the players start to believe that, that's when you lose matches.
+- White players always said to me: 'You can call me 'a white so and so,' I don't mind.' But that's because society has indoctrinated us over the past 400 years to think that that's like saying 'you handsome so and so.'
+- As much as footballers want to talk about how terrible it is for them, look at what's happening in the black community of kids without an education and who haven't got jobs.
+- Young English managers don't get enough time, young black managers aren't given enough time, there are a lot of reasons why.
+- I grew up in a middle-class family in Jamaica, I had no self-worth issues whatsoever.
+- We have to look at it holistically and as a whole and say let us tackle racism or discrimination in life. Then you can look to get rid of it in football.
+- People have been taught not just to have a negative perception of black people, but to have a belief in the superiority of white people. Their behaviour is the result of centuries of indoctrination.
+- I'm a big believer in fate.
+- My dad came from Trinidad to Jamaica when he was 19. He had to go to Jamaica to join the British regiment, where it was based. After Sandhurst, he returned to the Caribbean as a junior lieutenant, based in Jamaica. He met my mum and became a Jamaican citizen.
+- I come from a very political and military family.
+- The fight against racial bias in society will not be won by hounding Liam Neeson or boycotting his films. It will be won by allowing honest discussions about why people hold biased views and exposing the flawed logic behind them.
+- I felt I had to take the Celtic opportunity. You quickly learn that any managerial vacancy attracts up to 60 or 70 applicants, so you need a good reason to turn a job down. A start is a start.
+- I think Hazard influences the team so much that anywhere he goes you have to give him the ball.
+- In the 1970s you would have had lots of black goalkeepers and defensive midfield players but never made it professionally because the perception was, 'You don't think too much, you can't play in positions of responsibility so you play on the wing or up front.' Lots were lost to the game because of the perception.
+- The teams which embrace the socialist ideology rather than having superstars, are the teams that are successful. Or if there are superstars they don't perceive themselves to be that. That's why I use Messi as an example. As much as he's a superstar he respects his team-mates and their collective efforts.
+- Top managers, like Pochettino, Klopp and Guardiola don't make excuses.
+- For a long time, images of black men with big lips and a round head were used to make us feel inferior, but it doesn't need to be like that, we don't need to self'loathe. We can change the narrative.
+- Yes, you have people shouting racist abuse and throwing bananas on the field, and there are issues regarding the number of black coaches and managers in the game, but which other industry allows a young black boy the exact same opportunity as a young white boy?
+- History shows that black people have been second-class citizens, less than human. That's what had to happen with slavery. You had to dehumanise a person, to say, 'He is not like us. He is used to hard work in the sun. He can handle being whipped because he doesn't feel any pain. He doesn't need to be educated.'
+- My mother, Jeanne, was a TV and radio presenter in Jamaica. Bob Marley used to appear on her shows all the time and so she knew him quite well.
+- The racism I am really interested in stamping out is in everyday life. Joe Bloggs, who nobody knows, walks down the street and gets racially abused. He goes into a shop and people think he is going to steal something. He cannot get a job.
+- Football is a socialist sport. Financially, some may receive more rewards than others but, from a footballing perspective, for 90 minutes, regardless of whether you are Lionel Messi or the substitute right-back for Argentina, you are all working to the same end.
+- I'm quite laid-back but some people say I'm unemotional. I don't get carried away with success and similarly I don't get depressed when something bad happens. I didn't take it personally when rival fans threw banana skins at me when I was playing for Liverpool. I can't control 50,000 idiots shouting at me, so why would it bother me?
+- I got racist abuse at Liverpool when I played for Watford. Then I played for Liverpool and didn't get it. If I had played for Everton against Liverpool then maybe the Liverpool fans would have racially abused me.
+- I'm desperate to work in football. I could make a lot more money doing other things but this is what I want to do.
+- I don't see why black should be a negative and it's not negative. The people perpetrating that particular thought are wrong.
+- If you are black then you have to be better than your white counterpart to be equal. That's life.
+- When you score a goal by dribbling you don't remember it because it is instinctive.
+- I'm quite unfit. It's the motivation that's the problem, I need a goal. When I was a professional footballer I trained every day because I had to.
+- I think the only thing you should be judged on is your performance in whatever field you happen to be in.
+- The simple fact is there are no laws you can pass to stop people racially abusing black footballers. So the solution is to come up with something that doesn't make people want to abuse black footballers in the first place.
+- We have to deconstruct the idea of racial superiority. We have had it for hundreds of years so it is not going to happen overnight but we have to tackle it in the right way.
+- I was a real fast food junkie - KFC, McDonald's - but all the training kept it off.
+- I don't have to manage a big club. That won't fulfil me. I will get more satisfaction from the work that I put in than where I am.
+- If every racist who came to football was silenced, football stadiums would still be full of racists. Racism is everywhere in our society, it is inside every one of us.
+- A white manager loses his job and gets another job, he loses his job, he gets another job. Very few black managers can lose their job and get another job.
+- Very much like a disease, we have to tackle the cause of racism, not the symptoms.
+- I don't differentiate between racism in football to racism in life so, therefore, as a football manager I knew that I would get racist abuse.
+- Mass migration and the refugee crisis is one of the biggest problems facing the world. In this country we assume that everyone just wants to come to the U.K. - but it's an issue in Germany, Greece, Sweden, all across the E.U. Why should we be the first to turn our backs on the problem?
+- There wasn't a game in the Eighties when you didn't get racial abuse as a black player.
+- Once you have players you like and a good enough squad there's no need to spend money.
+- Yes, I went through overt racism as a footballer in the 80s and early 90s but that was, or is, nothing compared to what the average black person in the inner cities of England goes through every day.
+- I would have loved to have been Henry VIII; I would have been big and fat and no one would have cared.
+- We are the first on the frontline to go into countries to liberate people in the name of freedom - that's what we've claimed. And now, all of a sudden, they need our help and we turn them away. Yet the rest of Europe stands ready to help. Why are we the first to jump ship?
+- Societies go backwards sometimes.
+- There is no right or wrong way of playing football.
+- I'm a real meat eater.
+- If you want to consider yourself one of the best teams, you need to be as close to the top as possible.
+- Normally when you look at the Ballon d'Or winners, they're either attacking midfield players or centre-forwards. They are goalscorers and eye-catching players.
+- The only fight worth fighting is to give all children equal opportunities regardless of race or gender, to judge individuals on their qualities and not their backgrounds. The victory won't come when nobody feels able to voice racist abuse, but when nobody thinks of doing so in the first place.
+- We should be the first to help disadvantaged people. What would happen if other countries decided to follow our example?
+- I give balanced, constructive views and what happens is that bits and pieces of what I say are used against me.
+- There are so many intelligent former black players, guys like Luther Blissett and Cyrille Regis, who never got a chance to become a top manager or a top coach because of the perception that surrounds people who look like them. They are black - which, for many, means they are good athletes but incapable of being anything above and beyond that.
+- I used to go to the school plays my kids were in, and who were the angels at Christmas time? The blonde, blue-eyed girls. Who was Mary? And the shepherds were all the black and Indian kids in the background.
+- Until we change our perception of a BAME person's capabilities, in all walks of life, we will be given less opportunities and less time to succeed.
+- Just by saying it is wrong to be racist and saying we are going to arrest people and kick them out of stadiums does not stop them being racist.
+- From the perspective of what happened with Celtic people might argue that I didn't have the experience for another big job but I don't think my experience with Celtic explains why I couldn't get a job in the fourth division.
+- If you are forced to give someone an opportunity when you don't want to, that's going to turn you even more against it.
+- Before we are footballers or fans, we are ordinary members of society. We are doctors, lawyers, milkmen, postmen, unemployed people, students... So why are they called racist football fans? Are they just racist for the 90 minutes of a match, when the other six days a week they're not?
+- Talking about what any one section of our society has to do to combat racism just stops people outside that group asking difficult questions of themselves. We keep looking at symptoms and not treating the cause.
+- I moved into midfield because I ruptured my Achilles tendon and couldn't run anymore - it's not what I wanted to do, it's what I had to do!
+- The truth is that those at the top of British football do not care about getting rid of racism, they just don't want to hear it or see it.
+- Why should racism go away when we are not tackling it in the right way? We are influenced by what we see in the world and what we see in the world is certain people being considered more worthy than others - and we continue to see that.
+- What I say about myself, black footballers or black pop stars is that we have been 'elevated out of blackness.' Because when people see us, they don't see us as being black. These are the issues that we should address.
+- My dad was a proper old English gentleman, even though he was from the Caribbean. He used to stand up and salute during the Queen's Christmas speech.
+- When you talk about kicking racism out of football, people automatically assume you are talking about on the terraces and on the football field. But all racists have to do is keep their mouth shut for 90 minutes and they're fine.
+- No, I never drink beer. I've never had a pint of lager in my life.
+- You love football because of the game, not because of some idiot who is going to shout at your from across the street.
+- If Arsene Wenger came down to League Two he would have to adapt, he couldn't work in the same way he works at Arsenal.
+- There is a misconception over whether black ex-players can make successful managers.
+- Because I have experienced a prosperous, healthy and happy existence, I must have been a decent person in a past life.
+- My mother made me believe in reincarnation, in karma. If I live a good life, I believe I will be reincarnated as a higher being. If I live a bad life, I believe I will be reincarnated as a lower being.

@@ -1,0 +1,79 @@
++++
+author = "J. B. Smoove"
+title = "J. B. Smoove Quotes"
+quotes_len = "73"
+description = "the best 73 J. B. Smoove Quotes"
++++
+- I was the hallway clown in high school.
+- I've done everything. Selling door-to-door fire extinguishers... In bars, I used to repair those machines that have 10 different buttons on them to spray club soda and seltzer.
+- I can apply myself to the format of 'SNL,' I can apply myself to the format of 'Conan,' but at the same time, I'm still being J. B. Smoove. I'm not changing up my style, I'm not changing up how I think, what's funny to me, my delivery, the way I carry myself.
+- I'm big on facial expressions, and I'm big on mannerisms, which I find to be hilarious.
+- I believe, even when I'm doing my standup or my acting or whatever I'm doing, I believe in painting pictures.
+- I'm street smart. You can't con me. But that's just from living in New York. Now if a guy came from Mississippi somewhere, Ohio somewhere, to New York City for the first time, he don't have the street smarts. You can take him.
+- I may even show up behind the camera. I love to put things together; I love to give direction. I have a great eye for pace.
+- I don't like to dabble in anything I don't do well. I don't talk politics.
+- I'm sure back in the Greek days or the Roman Empire days, when guys fought in arenas and were fighting lions, people were talking smack. Every era in history has someone talking smack. No way you can have talent and not proclaim your victory.
+- I try to dress smooth, I try to keep my face shaved, I try to keep my head cut. I try to do all the things to keep it smooth going!
+- I'm trying to be the Jay-Z of comedy one day. I don't know if there's any comedy moguls out there, but I would love to be the first comedy mogul.
+- I should be European, man. I'm long and lean. I'd look good in a trench coat.
+- There's book smart, there is street smart, there's relationship smart, there's too many different kinds of smarts to know all of them. Everybody doesn't know every kind of smart. There's money smart, there's movie smart, there's computer smart. There's just too many different kinds of smarts for people to know all the smarts.
+- I'm afraid one thing - I don't like heights. Heights bug me out. I'm not cool with heights. I refuse to do a comedy show 12 stories up. I'm fearless about everything else.
+- You don't want to take the world over with a whole hamper full of dirty clothes. That's the main thing people overlook. And take a shower, take a bath every day.
+- 'The ruckus' is different experiences you go through throughout your life which builds your ruckus points up - your tolerance. You've got to have a high tolerance for dealing with stuff all the time.
+- Live TV has an amazing pace to it. You've got to be able to think quick, make changes last minute, and be funny and fast.
+- For me, standup will always be some part of my life, and other things will move around and find their place.
+- What happens in improv is you create your own storyline.
+- When you speak directly at things and don't say you're going to try to do something or that you hope to do something, the universe will work with you. Think about it this way - a boomerang goes out and comes back to you if you throw it. If you throw it out at the universe, it will come back down to you on Earth.
+- When you're babysitting a kid, all you're seeing is a version of them, a small dosage.
+- Improv relies just as much on listening as it does you delivering dialogue. That's the hard for some people. Some people just concentrate on what they're going to say, and they're not listening. You have to listen in order to see where the other person is going to.
+- I tell people all the time, as I was going through my process of being a comedian or being an actor and a writer at 'SNL,' I tell people that everything you do is all a piece of your puzzle to determine where you're going to end up at.
+- To be a true comic, you have to have a signature move. You ever watch wrestling? And your favorite wrestler has the one move that he always does to finish his opponent off, right? Like when he climbs on the rope, and he always jumps off the top rope and finishes off his opponent - that's what a comic has.
+- It's great when a director like Cameron Crowe can take what you do and fit it into what he's doing. If someone's a fan of you already, they can take what you do and make it work for what they're doing. You don't know their vision, and you're thinking, 'How is this guy going to take what I do and make it work in this movie?'
+- Before I got into stand-up, I used to be a hip-hop dancer in a crew, and my name was J. Smoove, and my partner was J. Groove.
+- You want your lady to be a contortionist. What man wouldn't want a lady who's a contortionist?
+- I would only take a role that I know I'm comfortable in and I can do. I've turned down plenty of things because I'd feel it's not me, and I wouldn't want to come on someone's project and flip that.
+- If a director brings a guy to their movie who does improv, they've got to let him do what he does - otherwise it's like bringing Michael Jordan to your basketball team and telling him to just pass the ball and don't shoot.
+- I think what I do in my acting world and what I do in my standup world is bring up a brand that I want to bring across. Once you figure out your brand and what you do, it's kind of easy at that. You end up getting your audience.
+- When I first started doing comedy years ago, I used to be the biggest Michael Richards fan. I used to love this dude. He was on a TV show called 'Fridays,' and man, he was tall and lanky - and I was tall and lanky. I love physical comedy, and he was a physical comedian, and I said, 'Man, I love this guy.'
+- I steal scenes, I steal opportunities. I am the ultimate thief. I got sticky fingers, man. They all call me The Thief.
+- I am addicted to hockey now. I've seen it on TV, but to be there? I had no idea that white people were having so much fun without me.
+- I have big hands. I can't do the touch-screen thing. I'm a button guy. I want to press buttons.
+- Kids love me. I can bounce back and forth. I can discipline kids, and I can get into the mind of a kid. In my brain, I consider myself the ultimate video game player. The ultimate snack maker.
+- My life is gardening, cleaning around the house and power washing.
+- I thought 'Pineapple Express' was hilarious.
+- Remember Tupperware? That was the toughest stuff ever. Why can't they make a phone out of Tupperware?
+- Police blog or entertainment news, it's just good to see your name in print.
+- Being a parent is about your survival. Surviving the terrible two's is the most important thing.
+- All you wanna do in life is do what you do well. That's when you're happiest.
+- I wouldn't want to be someone's roommate, that's for sure. You can't do certain things: you can't leave the bathroom door open... you can't put your feet on the couch, you can't hide stuff in the couch.
+- I just always found it easier to be the same guy onstage as you are offstage.
+- You know how you put peanut butter on a piece of bread and the bread falls - it never falls on the bread side down, it always falls peanut butter side down. That's because of gravity.
+- I have to satisfy my audience.
+- Believe it or not, I write on stage. I can't write anywhere else; I have to be in a moment. I also have to challenge myself to make something funny out of a premise. I never have my own jokes written. I have to change things as I go along, and I have to entertain myself.
+- You buy a new iPhone, a few months later, another new iPhone comes out, and you get online to buy another one. You can't get enough. You are addicted to Apple.
+- I'll drive down the street, and I'll practice improv. I will sit there at a red light and see two guys talking to each other, and I will just start playing both characters. I can't hear them, but I can see their mouths moving, so I'll just put words in their mouths.
+- True Yankees fans know an up-and-coming player when they see one.
+- I have my website, The Ruckus, which is an Internet site, similar to the Funny or Die format, where people post funny videos. I get a chance to rate their videos; they get a chance to blog and kick it with me.
+- It's an ongoing joke that a black man is always the first one to get killed in movies.
+- I wish black people had a flag they could put into the ground, like when the troops stormed Iwo Jima.
+- People love things about Hollywood. People love to see the inside of what's going on.
+- Oh, yeah, I've seen 'Seinfeld' 1,000 times.
+- You know what I like? I like classic stuff. I like 'The Andy Griffith Show' - the variety of characters was so amazing to me.
+- I love to pitch things that I believe in and products that I love to use.
+- Some of the best dramatic actors have started in comedy.
+- My wife is a vegetarian. When my wife is with me, I eat vegetarian. When she's not, I eat meat. I'm just being honest.
+- It's not even race; it's a certain type of person that gets 'Pootie Tang.'
+- I drive a big Dodge truck. I drive American cars.
+- I loved Peter Sellers. I thought he was the perfect mix of physical comedy with out-of-the-box humor. I loved his tone; I loved his physicality; I loved everything about what he was doing as a comedic actor.
+- Women put guys through tests all the time.
+- A lot of comedians are selfish.
+- When I started stand-up, the first thing I did was to take an improv class.
+- If your boss asks you why you're comin' in late, you say it's 'cause you stayed late.
+- I'm, like, everybody's friend. I'm one of those dudes. I can be friends with anybody. Any race of person, any personality, I can kind of deal with them. I accept different types of people.
+- Mel Gibson is losing it. I don't know how people still supporting this dude's movies like it's all good. That dude is nuts. All you gotta do is shut him down and don't support any of his movies.
+- I'm on my version of the protein diet, but there ain't no protein in it. It's a Krispy Kreme doughnut between two Cinnabons. And you soak it overnight in Red Bull. Then you chase it with a Snickers.
+- You gotta improvise in life. You gotta improv if the police pull you over.
+- Sometimes you can make friends, and sometimes you can take friends. Sometimes people want to be friends with you, and you gotta be like, 'Okay, I can deal with this person's personality and be their friend, but not necessarily do I have to change who I am. I'm not gonna change myself to be their friend.'
+- I've had jokes stolen a thousand times. But if you can do it better than me, you can have it. I've had jokes stolen from me in the club when I'm next on stage. And my brain will start to turn, and the gears will start turning, and I'll go onstage and create a whole new bit.
+- You got to start by doing little things if your quest is to take over the world.
+- You turn hotdogs with tongs. Don't you ever use those tongs on a hamburger.

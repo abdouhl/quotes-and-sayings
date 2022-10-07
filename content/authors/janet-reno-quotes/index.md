@@ -1,0 +1,127 @@
++++
+author = "Janet Reno"
+title = "Janet Reno Quotes"
+quotes_len = "121"
+description = "the best 121 Janet Reno Quotes"
++++
+- We cannot forget the need to use the law as a shield, but we must remember other forces of the law.
+- We're all in this together, and we all have to make an investment in our most precious possession and in the foundation of our future: our young people.
+- If the end brings me out right, what people said about me won't make any difference, and if the end brings me out wrong, 10 angels saying I was right won't make any difference.
+- If somebody thinks I have an integrity problem, then the honest thing to do is to tell me what they think it is and let me address it.
+- You are not going to put 100,000 police officers on the streets overnight and do the right job. To put them on the streets, to see that they're properly trained; you have to do it in an orderly way over a period of time.
+- I want to do what I can to make the law make sense to citizens and businesses alike. I want the laws to assist them in worthwhile endeavors, not to stand as bureaucratic obstacles.
+- Under a death penalty statute that is going to stand up to constitutional muster, you look at the aggravating circumstances and the mitigating circumstances.
+- We tried our best for the longest time to negotiate a peaceful resolution to the matter, and at each step, we were thwarted by those that said, No, we will not turn the boy over to his father.
+- When I went to law school, I had Roger Fisher for Civil Procedure. I never heard anything about negotiations.
+- A street criminal can steal only what he can carry, but with a stroke of a pen, the dialing of a telephone or the pushing of a computer key, the white collar criminal can and does steal billions.
+- I want there to be a real partnership between the Department of Justice in Washington and U.S. attorneys.
+- Let us develop an agenda for children that says we can do something about teen pregnancy. Let us make sure that parents are old enough, wise enough, and financially able to take care of their children.
+- It helps to know how to lose. You know it is not the end of the world, and you pick yourself up and move ahead.
+- I'm not fancy. I'm what I appear to be.
+- I think the answer to civil disorder in America, the answer to police problems in America, the answer to jail overcrowding and all the problems that we see is - the one answer is that government must go back to its people.
+- We recognize that violence is a learned behavior. One of the best classrooms for learning violence is in the home.
+- While service in the Department of Justice is itself one of the highest forms of public service, the Department further strides to increase access to justice for all and to strengthen our communities.
+- Do and act on what you believe to be right, and you'll wake up the next morning feeling good about yourself.
+- One of the problems in America is that everybody focuses on their own narrow little bit of the problem without connecting punishment and prevention together, without connecting the schools and the police together, without connecting the pediatricians and the social workers together.
+- Juveniles as well as adults need to know they're going to be punished for their violent acts.
+- U.S. attorneys have taught me a lot over the years, and in the Southern district of Florida, they have been to me partners.
+- We've got to look to our educational programs and focus on doing what we can to stem violence in the schools.
+- Schools can do extraordinary things given the chance; teachers can do remarkable things if we eliminate the paperwork that sometimes binds them and give them a chance to really teach in our schools.
+- What we must do is to sit down together as reasonable people and make our government do what is right, and stop doing what may be wrong-headed or wasteful.
+- We're building on an international network with many others for the passage of the Americans with Disabilities Act. There are so many things we can do to carry forward policies.
+- Sometimes we're tone-deaf in Washington, and we listen only to ourselves. We do not hear the cry of people who want answers, want action, want protection, and have some darn good ideas as to how to provide it if only we would listen.
+- I hope I will be a good Attorney General, but one of the things that will be as important to me is to know that I made a commitment to my family and honored it, a commitment that has been repaid 10,000 times over.
+- I think our young people are our most precious possession.
+- The president really shouldn't be involved in terms of dictating what course the investigation should take.
+- The Bar Association can do so much in teaching people how to resolve conflicts without knives and guns and fists.
+- I would like to use the law of this land to do everything I possibly can to protect America's children from abuse and violence and to give to each of them the opportunity to grow to be strong, healthy and self-sufficient citizens of this country.
+- I was personally opposed to the death penalty, and yet I think I have probably asked for the death penalty more than most people in the United States.
+- I think that a woman's right to choose should be protected. I think it should be protected from physical conduct that prevents that right to choose from being freely exercised.
+- My earnest hope is that what we started in terms of building partnerships with communities across America will continue, that we will continue our efforts to reduce crime and violence.
+- It was not the president's responsibility to run a law enforcement operation. It was ours.
+- A cop by themselves on every corner is not going to make that much difference.
+- Unless the law issues from all of the people, some of the people will feel left out. They will come to feel alienated. They will be angry. And this will not be a cohesive democracy.
+- The lawyers who really begin to address the problems of their clients address them without recourse to our courts, although that recourse is absolutely essential in providing leverage.
+- Lawyers are very important people to me.
+- Everybody should want to make sure that we have the cyber tools necessary to investigate cyber crimes, and to be prepared to defend against them and to bring people to justice who commit it.
+- We simply must find ways both to bridge the differences that still seem to divide us and focus on the things that we share.
+- The Justice Department is staunchly committed to ensuring that all Americans are treated in a fair and just manner.
+- I have been surrounded by some of the smartest, brightest, most caring lawyers, by agents who are willing to risk their lives for others, by support staff that are willing to work as hard as they can.
+- The first job I ever had in my life was in the Dade County Sheriff's Office in the Identification Bureau in the summer that I graduated from high school and was getting ready to go to college.
+- Anybody that thought that I tried to protect the president has forgotten that I asked for the expansion of the Monica Lewinsky matter.
+- I admire law enforcement agents who put their lives on the line to enforce the law while building trust and understanding within a community and around the world. I honor those who seek justice for all the people of this country.
+- I didn't like the Feds coming to town when I was in Miami, telling me what to do. I didn't like them coming to town and thinking that they knew more about Miami than I do.
+- Peer mediation is a chance for students to work with other students to help them resolve problems, arguments, disagreements without having to get the teacher or the administration involved.
+- We must honor, protect and support our police officers and their families every day of the year.
+- I'm vitally interested in cyber crime and in preparing law enforcement for a time when crime is international in its origins and its consequences.
+- We must heal the divisions caused by intolerance and bigotry.
+- America, in all its institutions, whether it be the family or government, has forgotten and neglected its children.
+- It's fine to get paid and get a big verdict, but to go out and represent people, sometimes in unglamorous ways, is really what lawyering is all about.
+- I had concluded when I was the prosecutor that I would vote against the death penalty if I were in the legislature but that I could ask for it when I was satisfied as to guilt.
+- Being a lawyer is not merely a vocation. It is a public trust, and each of us has an obligation to give back to our communities.
+- We must try to understand the true weight of law enforcement officers' burdens.
+- I'm a scuba diver but not certified.
+- I think lawyers who engage in pro bono service to protect those who cannot help themselves are truly the heroes and the heroines of the legal profession.
+- Each generation looks to its children to keep our society moving and to make life better.
+- What has too often happened in the past is that people have threatened punishment but have failed to carry it out. It's imperative in any initiative that is undertaken that punishment be real and that there be truth in sentencing, and that the truly dangerous offenders - the recidivists and the career criminals - be put away and kept away.
+- Young people have such tremendous energy.
+- Police and prosecutors and the courts have got to talk together.
+- At this moment I do not have a personal relationship with a computer.
+- We have initiated programs for re-entry offenders, since some 500,000 to 600,000 offenders will come out of prison each year for the next three or four years. We want to have positive alternatives when they come back to the community.
+- I made a promise to myself when I graduated from law school that I would never do anything that I didn't enjoy doing, and almost every day of the year since that June of 1963, I have awakened glad that I was going to work, glad that I was going to court, glad that I was going to grapple with a problem.
+- Our challenge is to remind ourselves that we do have common interest, common grounds, and common dreams.
+- The good lawyer is the great salesman.
+- One of the reasons I love the law is because I was raised in family - my grandfather was a lawyer, but more importantly, my grandmother was his secretary. And she taught me that lawyers were some of the most civil, most courteous - and in those days, most courtly - people that she knew.
+- I think one of the keys to any crime-prevention program that's got to be developed is to focus on punishment - to let people know that there is a sanction and a punishment for hurting others.
+- Simply put, if we can reduce the risk while increasing protection during the course of a young person's life, we can prevent problems and promote the healthy development of our children, our families, our economy, and the institutions we hold dear.
+- In 1960, I earned my Chemistry Degree from Cornell University.
+- I'm humbled by the honor that President Clinton has done me in nominatinq me as Attorney General of the United States, and I'm going to do my very best to deserve his confidence.
+- I love good and caring lawyers who are advocates, who are defenders, who are problem-solvers, and who are peacemakers.
+- I love lawyers. And I like to talk to lawyers, and I like to engage in a spirited discussion with lawyers.
+- The keystone to justice is the belief that the legal system treats all fairly.
+- As a child, I wanted to be a lawyer because I thought lawyers and the law were wonderful. But they are more wonderful, I think, than I had thought.
+- People should look at the government as 'us,' not as 'them' and not in terror.
+- We've got to understand that the ages of zero to three are the most formative years of a person's life, the time they learn the concept of reward and punishment and develop a conscience, and that 50 percent of all learned human response is learned in the first year of life.
+- What good is telling America's children that they will have equal opportunity for education if they don't have the skills that will even get them to the point of benefiting from education, because they didn't have the child care, the health care that would enable them to grow as strong and constructive human beings?
+- I think police officers can work with social workers and public health nurses to do so much in terms of addressing the problem of American families, of children in American families as a whole, and giving them an opportunity to get off to a fresh start, to become self-sufficient, to lead safe, constructive lives.
+- I would like to visit with people who are so interesting and so... and there are so many wonderful people out there that I would love to have the chance to talk to for a longer time.
+- If you have a good community behind you and a good family supporting you, then, when the buck stops with you, there is the strength of that community and that family to draw upon.
+- Stereotypes should never influence policy or public opinion.
+- I think that affirmative action programs can be very important.
+- While I'm the Attorney General, we will address each issue with one question: What's the right thing to do?
+- All lawyers are going to have to - if we really want to attain civil justice - address the issue of how complicated we have made the laws: what we have done to ensnarl the American people in bureaucratic rules and regulations that make access to services or compliance with the law sometimes difficult, if not impossible.
+- It is the police of America who are on the front lines, who are on the streets, who are in the daily contact with American citizens, who translate the dreams of American citizens when they succeed and frustrate the dreams when they fail.
+- There are those who profess to support law enforcement but who have attempted to undermine the efforts of hard-working officers who make difficult decisions.
+- Most lawyers aren't trial lawyers. Most lawyers, even trial lawyers, don't get their problems solved in a courtroom. We like to go to court. It seems heroic to go to court. We think we're the new, great advocates, better than anything we've seen on TV, and we come home exhilarated by having gone to court.
+- I get accused of being a social worker every now and then.
+- I collected child support in Dade County, and they wrote a rap song about me, so the kids knew about it, and they started asking me questions about child support. What happens if she wastes the money? What happens if he doesn't pay? And I answered the questions.
+- There is so much to do, and I want to continue my efforts.
+- This is a beautiful country. Each of us has a favorite river, a mountain, just a patch of sky for some of us. I want to use the law to make sure that the waters, the land, and the skies of this nation are protected.
+- My mother taught us to play baseball, to bake a cake, to play fair - she beat the living daylights out of us sometimes, and she loved us with all her heart; she taught her favorite poets, and there is no child care in the world that will ever be a substitute for what that lady was in our life.
+- Draw great strength from your family and give in turn to those who come after you.
+- I would like to explore and see this country. I have had so many opportunities to see it from the air! I would like to climb the mountains that I wished I could climb at the time but had to get back to Washington.
+- Until the day I die, or until the day I can't think anymore, I want to be involved in the issues that I care about.
+- We, the American people, owe the nation's police officers our deepest gratitude, our best efforts, and our strong support, for they have done so much for us against such great odds.
+- In 1960, when I graduated from college, people told me a woman couldn't go to law school. And when I graduated from law school, people told me, 'Law firms won't hire you.'
+- There may sometimes be a mistake, but I think that the citizens of America who are sworn to uphold their duty in a jury setting are going to try to do their best to do that regardless of the consequences.
+- Too many Americans mistrust their government. And unnecessary government secrecy feeds this mistrust.
+- I think young people can make such an extraordinarily important difference in making this world a better place.
+- I just don't like greedy, indifferent, selfish lawyers. And there are not that many of them.
+- I have learned that raising children is the single most difficult thing in the world to do. It takes hard work, love, luck, and a lot of energy, and it is the most rewarding experience that you can ever have.
+- My father was born in Denmark. He came to this country when he was 12 years old.
+- I just try to do my best and make the best judgments I can.
+- Though the Attorney General of the United States carries many responsibilities and undertakes many tasks, there can be none more important than the pursuit of civil rights on behalf of all the people of this country.
+- I think, clearly, where you have a situation in which the Solicitor General tells me, 'I cannot in good faith argue a certainly legal position,' and if the president told us to argue that position, we would have to tell him, 'No, we can't do that, Mr. President.'
+- The law is very special to me.
+- Diversity is valued, and it is prized. We learn to appreciate each other and each other's struggles. From diversity, we draw our enormous and our lasting strength.
+- If you disagree with me about a position I have taken, or what I've done, tell me, argue with me, debate. Sometimes, right and good are not that clear; at other times, it is only deliberate and respectful debate that leads us to understand what road we should take.
+- What makes our country unique is its commitment to being open, to making its leaders accountable.
+- The law as a profession has provided me with more satisfaction than I ever dreamed.
+- We want to look at everything we can do that's right and proper under federal law, and with federal laws to see that the children of America are given a chance to grow as strong, constructive, healthy human beings. It's the best investment we can possibly make in America.
+- We've got to make sure that the young, violent, serious juvenile offender is punished, that it's fair punishment, that it's punishment that fits the crime and that is understood and that is anticipated and expected.
+- I'm interested in elder justice and what we can do about elder abuse and neglect.
+- We want to continue the efforts against domestic violence and spread the drug courts, and develop real effective means of providing treatment for drug abusers without having to have them arrested.
+- One of the most important parts of my life has been community.
+- I worked with some wonderful people, tried my best and I feel comfortable.
+- I know from personal experience what it's like to be discriminated against. I remember people telling me, 'Ladies don't become lawyers,' and now I look at America and know what can be done.
+- I want to make sure there are no gatekeepers at the AG's door, and that anybody in the Department - they may have to come relatively late in the evening, just judging by the schedules to date - but if somebody has suggestions for how to make this a better department, that they know I am available.

@@ -1,0 +1,21 @@
++++
+author = "Sete Gibernau"
+title = "Sete Gibernau Quotes"
+quotes_len = "15"
+description = "the best 15 Sete Gibernau Quotes"
++++
+- So while I was studying, I rode my Trials bike, then I moved to roadracing.
+- With roadracing, it takes a lot more time and money.
+- In Malaysia where the front end pushes so much, extra engine braking is really going to help you.
+- I'm proud of my triumphs. I've dreamed of being world champion, I've had some difficult times and they've made me value the good times.
+- It's quite easy to start Trials riding. You just need a bike and you're set.
+- I've decided to retire from top class racing. It has been an incredible experience and has provided with me some unforgettable moments.
+- I've always like roadracing, but you know how it is in a family when you're young. They thought it was a little too dangerous so I started with Trials riding.
+- I needed some stability, which is why I chose not to change from HRC for this season, which was an option that we had. Apart from being the best team in the world, I also needed some consistency.
+- What the other teams do is something that I can never control, so I just keep focussed on my direction.
+- I would obviously like to have been arriving in Valencia with the title still up for grabs, let's not kid ourselves, but even though Valentino has won, the season is not over for me.
+- We've done all the work that HRC wanted on the twin and the project has been completed. We were consistently up there with the top guys and that is what HRC wanted to prove.
+- The rider and the team need to understand one another and work in the same direction. Then the rider's happy, and only then will the rider be able to give 100%.
+- I love this sport and I don't want to get involved in politics.
+- I've enjoyed winning races in both 500cc and MotoGP and enjoyed leading the world championship and contesting it right up until the end.
+- If I had accepted the offers to continue just for the sake of carrying on then it wouldn't have made me happy especially if it was just for money. Now I've got other projects to concentrate on.

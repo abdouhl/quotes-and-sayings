@@ -1,0 +1,21 @@
++++
+author = "Jonathan Hickman"
+title = "Jonathan Hickman Quotes"
+quotes_len = "15"
+description = "the best 15 Jonathan Hickman Quotes"
++++
+- I always thought I was going to be an artist. All I ever did was draw. I only ever turned to writing because I couldn't find somebody to write the kind of stuff I wanted to do. That just spiraled out of control.
+- '100 Bullets' is probably my favorite thing, ever. It's pretty close with early 'Hellboy' stuff.
+- You're either on team Republican or team Democrat, and it's the idea that one of these sides has a perfect record of being correct and is worth supporting on 100% of the causes. I find that kind of thinking extremely dangerous and very intellectually dishonest.
+- Artwise, I'm kind of a chameleon. I don't have an established style or anything like that.
+- I think that, whether you liked the outcome or not, the reasons for doing 'Ultimatum' were necessary. The Ultimate Universe had become too much like the regular Marvel Universe, and that was certainly not a good thing for the line.
+- I think it's good that we're not embarrassed that we're comic book creators anymore. It's good that people are able to make a good living at doing it, and not doing the traditional sort of mainstream fare.
+- I tried to get into comics initially after I graduated Clemson in 1994. I spent a year trying to get in, and I quit reading books because not getting in made me sad.
+- The thing that probably trips me up the most are people getting tattoos of stuff that I've designed in my books. That always spins me out in a weird way. It seems like such a permanent commitment to something I've done. I don't know that I could do that for anyone else.
+- There's that old cliche that art is never finished, only abandoned. That's the nice thing about comics. It forces you to abandon it long before maybe you're ready to let it go.
+- As far as personal philosophies go, I think you should know your ending. I know that's radically different from a lot of other writers who just organically like to find the story. Other than that, I try different things and mess around. I'm still just playing a good bit.
+- I have an architecture degree; that's what my college degree is in. And that sucked. I started doing Web and CD-ROM development really early on, and then that grew into being an art director and doing advertising work.
+- I do believe that sci-fi or historical fiction finds an easy home in comics because there are no budget constraints in regards to the necessary world-building or visual effects necessary to bring those stories to life in other mediums.
+- I've always been a sci-fi/fantasy guy. My book reports in school, whenever you didn't have to do it on Shakespeare, I did it on, like, Piers Anthony and Raymond Feist.
+- The first comic book I ever read was an issue of 'Legion of Super-Heroes' where the earth was surrounded by all of these chains. I remember the cover; I got it at a birthday party.
+- My overall artistic goal is to marry graphic design with comic books and traditional storytelling.

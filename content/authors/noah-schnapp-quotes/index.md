@@ -1,0 +1,88 @@
++++
+author = "Noah Schnapp"
+title = "Noah Schnapp Quotes"
+quotes_len = "82"
+description = "the best 82 Noah Schnapp Quotes"
++++
+- It's nice that I can do what I want with my hair when I'm not filming.
+- I always wonder if Apple iPhones and all these electronics that we use today are still going to be a thing in like 10, 20 years.
+- I love getting to work with amazing actors because it kind of makes you look better.
+- There's nothing set in stone - some people perceive it as Will could be gay, asexual or whatever. Or, like how I see it, he was stuck in the Upside Down, and he was away for so long that all of his friends started growing up while he was in this other world.
+- In Season 1, Will is more shy and reserved, and then in Season 2, after the monster attacks him and takes over his body, Will gained more courage and became braver. Throughout Season 3, you see how the monster's still lingering inside him, and how he deals with that. Because he's not fully better.
+- One time, I went to a Bruins game and I had to pretend that I was a Bruins fan, but I'm truly a Habs fan.
+- My parents always told me about VHS tapes. And the Walkman, everyone had those. I had never even seen one until I got onto 'Stranger Things.'
+- Emotional scenes can be especially difficult because I'm such a hyper, excited person, so sometimes that can be hard.
+- When I had to have a little seizure, I looked up videos of people having seizures. I remember looking up symptoms and what happens to your body. You kind of just lock up and I had to prepare for that. A lot.
+- There's always so many opportunities and different movies that I can do, but it depends on what interests me and what I think is a fit for me.
+- It's pretty cool to watch a film where the character barely says anything but you can see exactly what he's thinking.
+- I mean, who's not obsessed with Zendaya? I know I am!
+- I've done enough running from monsters. It's time to do some chasing.
+- I like meeting fans. It's amazing to me.
+- It's definitely pretty overwhelming sometimes. But I'm really lucky and grateful to have all these fans. I know I'm lucky.
+- I like Zendaya.
+- In preparing for my recording audition, my mom told me to YouTube the old 'Peanuts' Thanksgiving and Christmas specials to hear how Charlie Brown speaks. So I listened to as much as I could find online to get the voice right. Winning the role took a lot of hard work, but good fortune as well.
+- I was so excited to play Will. He goes into the Upside Down, and he has some pretty crazy experiences.
+- Adam Sandler would always be cracking jokes; he's really great.
+- I mainly use Instagram and Twitter to be able to interact with fans and talk to them, and then Snapchat is the app I use to interact with my friends.
+- A lot of 'Stranger Things' is having to be able to, in your mind, turn a little tennis ball into a huge monster. In Season 2, there was one scene where I was screaming at the monster and I was screaming at nothing. It was just the sky. So I really have a big imagination, I guess?
+- I've always been a foodie. I love food!
+- I first heard about TikTok because all my friends were using it and I would always see popular TikToks come up on my Instagram feed. I finally decided to download it at the end of 2019 and ever since then I've been addicted.
+- I've never been stuck in the Upside Down, and no one else I know has, so it was kind of something new to just create.
+- You really disconnect yourself from the world being in the middle of nowhere.
+- I feel like everyone, at least all teenagers these days, wears Air Force 1s or Converse. But I would much rather have Air Force 1s over Converse for sure. I think Air Force 1s are cooler and they're more comfortable.
+- I love having new cast members; it just really changes things up.
+- I love being online because I feel like you can just be yourself and it's so easy to open up.
+- I'll be Spider-Man. I'm just kidding, I love Tom Holland.
+- Everyone always asks me, 'What advice did they give you on set?' but when you work with amazing actors like Anjelica Huston, Winona Ryder and Tom Hanks, the special thing about working with these people is getting to act alongside them. You see the decisions they make and the things they do. You learn from what they do and follow their footsteps.
+- Being with Winona Ryder, she's so good at what she does that she makes my job easier.
+- Being comfortable with everyone on set really helps to do these intense scenes when you are not worried about everyone looking at you and what they think. You can just kind of let go and let the scene happen.
+- I didn't even really know who Tom Hanks and Steven Spielberg were, and my parents kept trying to tell me, 'Noah, what is wrong with you!? This is the biggest actor and director in all of Hollywood!' And then I was like, 'Who cares? Whatever.' I was nine; I didn't know anything.
+- I love to relax.
+- I started 'Outer Banks,' because there's so much hype around it. I saw one episode and I didn't really continue, but I got to keep going at it. Two of the actors on there were also in 'Stranger Things,' and all my friends always ask, 'Oh my God, you know Madelyn Cline. She was in 'Stranger Things' too.'
+- In 'Stranger Things,' of course, I have all these kids around me and I feel like on a TV show, you're more connected with everyone already. But it's fun getting on a movie set and getting to know everyone. There're pros and cons to everything.
+- It's always different for whatever the scene asks for but usually, I listen to music before the scene just to get into the mood, mellow myself out and really put myself into the character's shoes. I zone out from everything going on around me and just focus on what I have to do. From there, I just let it happen.
+- But, I feel like I grew up in the '80s now from 'Stranger Things.'
+- I go to camp every summer for seven weeks and it's like sleepaway camp.
+- Well I actually came to shoot 'Stranger Things' straight from filming a movie called 'Bridge of Spies,' which is directed by Stephen Spielberg, so I was recommended to watch a bunch of his movies, like 'E.T' and stuff.
+- I am a big fan of 'E.T.,' of course. And I remember watching 'Jurassic Park' - I was so into it. Oh, and 'Schindler's List.' That one was amazing, too.
+- Some people come up to me in public and they're like, 'Oh my God, are you Noah from TikTok?' It's so weird to get recognized for that. I think it's the really young fans who have never even heard of 'Stranger Things.'
+- I've tried watching shows before while I'm filming and it doesn't go good because I binge-watch all night and then I wake up with like one hour of sleep on my filming day.
+- I love using TikTok for comic relief.
+- I decided to start a YouTube channel a while ago and it kind of failed because I stopped posting and forgot about it. So a few years later I decided I wanted to make one for real with a team behind me. So that's what I did and I love it!
+- I love filming at night. I'm like a night owl.
+- Like, from my middle school dance... the boys were on one side, and the girls were on the other side, and we never interacted with each other.
+- I go on YouTube just for fun when I have nothing to do. I love watching Lilly Singh.
+- I had to always decide - am I playing Will in the scene, or is it the monster, or is it a little bit of both? I had to show two different sides of one person in a scene. They were definitely very opposites, because Will is this sweet little innocent sort of kid, and the monster is fierce; he's intense. You really have to show both sides.
+- I was working with Tom Hanks and Steven Spielberg when I was nine years old.
+- I mean, I'm pretty sad that I have to leave all of my home friends and I can't see them for basically half a year. That's not a great thing, but we'll FaceTime and stuff. What I'm excited for is to be on the set with all the 'Stranger Things' cast.
+- I have trouble watching myself sometimes because I nitpick the littlest things.
+- My dad is a huge Habs fan. He'd always be yelling at the TV and screaming at the players. I just started watching with him once, and I became a big fan.
+- It's very corny, 'never give up' - but it's just a great quote that I always follow.
+- For me, Will being gay or not is besides the point. 'Stranger Things' is a show about a bunch of kids who are outsiders and find each other because they have been bullied in some way or are different.
+- I try to make sure that I still get a normal life and go to school - do all the normal things. I still want to have a childhood.
+- I always wish I could just see the 'Stranger Things' from an audience standpoint and not from mine. 'Cause when I watch it, I remember someone was behind there and behind there. I just can't watch it like a viewer. But I love seeing something on paper come to TV.
+- I think Facebook is more for old people and, like, adults. My parents use Facebook. I honestly have never been on Facebook.
+- It's just nice to see something from paper come to life on the screen.
+- My lips are always chapped and it's a problem.
+- After I saw 'Annie' on Broadway, I came out of the show crying, because I wanted to be on that stage.
+- I always say what makes acting so much easier is when you get to act off of good actors.
+- I was very excited, but I didn't really think I could get the work in 'Peanuts.' Still, I really, really wanted it, because I knew I could do it. And I got it.
+- I go to Montreal a lot - maybe twice a year.
+- I do school on set and then when I come home I go back to school and kind of balance it out. One day I'll be 18 and then I won't have to do it.
+- It's really exciting to get to be the main character of something.
+- I found this book that had every 'Peanuts' strip from 1952 to 1955 and read every one. Amazing. So now I can say I have become a big 'Peanuts' fan.
+- Not everyone stops me on the streets, but when you're at airports or public places like that. It's kind of weird for me. I don't know how they recognize me. It just happens when people see me.
+- Usually there will be a funny trend that I put my own twist on or something hilarious happens to me and I think - 'This would be a perfect TikTok.'
+- I feel like with 'Hubie,' it was just a matter of the difference between working on a movie versus a TV show. TV shows, it's like a long period of time and you're living there, and with this movie, it was kind of in and out.
+- I thought it would be really cool to play a role where I go missing and people look for me and I'm in this other world.
+- Just filming Season 1 was different because I had to fly back and forth, in and out. I remember the show was just so relaxed because no one knew what the show was; we used the words 'Stranger Things' on all the sides, and all the cast names. Then in Season 2, you used code names for everything, and they just had to up the security.
+- Well with just this business, this whole acting thing, it's so competitive and there's like such a small chance of making it. I'm very lucky that I got to be on this big show, and I just think if you push past that 99 percent who give up at a point, you will have a chance at making it and going somewhere.
+- A good book, or a good show leaves a lot of unanswered questions but makes you think.
+- One of the worst. I can't begin to explain... I literally ask them all the time, 'Why doesn't Will, maybe he shaves his head?' But really, did everyone have that haircut in the '80s? Who would choose to have that haircut?
+- I have made a few 'Stranger Things' related TikToks because my fans love that and I definitely plan on making some while on set of 'Stranger Things' when production starts up again.
+- Like, shooting with adults is great, but being with kids my own age, it's different.
+- I've always loved shoes; I'm kind of a big sneakerhead.
+- Being in the public eye, especially, can be hard sometimes. It's kind of like anything you do is... if you make any mistake... It can definitely be overwhelming sometimes.
+- With a movie you just film for a few months and when you say goodbye, sometimes you never see the people again.
+- I am still a normal kid, but when I'm walking on the street, there will be people who ask me to sign a poster or take a picture with them.
+- If I'm trying to get into character and it's an emotional scene, I'll listen to depressing or really sad music.

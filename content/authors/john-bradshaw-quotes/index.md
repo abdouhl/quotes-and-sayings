@@ -1,0 +1,28 @@
++++
+author = "John Bradshaw"
+title = "John Bradshaw Quotes"
+quotes_len = "22"
+description = "the best 22 John Bradshaw Quotes"
++++
+- As a child I was not allowed to express my feelings, so I had to go back through therapy and express the child's pain.
+- Our beliefs create the kind of world we believe in. We project our feelings, thoughts and attitudes onto the world. I can create a different world by changing my belief about the world. Our inner state creates the outer and not vice versa.
+- In my family, as in all dysfunctional families, instead of parents who act as strong and nurturing role models for their children, you get these needy people who use their children. I was the kid who tried to take on the marriage.
+- In a sense, all of my books have been about a 'poisonous pedagogy,' which engenders a culture of obedience, this underlying theme of patriarchal systems.
+- When I walked out of the seminary, I was 31, but I was like a scared, frightened kid. I had no place to live, no license, no clothes. I was just a lost soul.
+- Evil is a source of moral intelligence in the sense that we need to learn from our shadow, from our dark side, in order to be good.
+- Children are natural Zen masters; their world is brand new in each and every moment.
+- The unlimited power that many modern gurus offer is false hope. Their programs calling us to unlimited power have made them rich, not us. They touch our false selves and tap our toxic shame.
+- Healthy shame is an emotion that teaches us about our limits. Like all emotions, shame moves us to get our basic needs met.
+- It's okay to make mistakes. Mistakes are our teachers - they help us to learn.
+- I try to get people thinking, to consider their pasts and presents, ultimately encouraging them and giving them the tools to embrace the work of reshaping their lives.
+- The idea of evil is always subject to denial as a coping mechanism.
+- It's essential to tell the truth at all times. This will reduce life's pain. Lying distorts reality. All forms of distorted thinking must be corrected.
+- Many self-help books give you these neat, tidy formulas that are really illusions. They dupe people into thinking, 'Well if I can just do that, then everything's going to be okay.' My work differs in that I don't offer quick solutions and simple explanations.
+- I know from my own clinical work that when people are beaten and hurt, they numb out so that they can't feel anymore.
+- The spiritual quest is not some added benefit to our life, something you embark on if you have the time and inclination. We are spiritual beings on an earthly journey. Our spirituality makes up our beingness.
+- In 'Reclaiming Virtue,' I argue that we have had an element missing in moral education. That element is 'affect.' Affect is simply the technical word for feeling or emotion.
+- Virtue is an inner strength. It expands your nature.
+- You can find more traditional Shakespeare than we do. But what we want to bring to these works is energy, passion, freshness.
+- The figure of Satan and the fires of hell have been demythologized by modern Christian biblical scholars, theologians and philosophers.
+- I define a 'good person' as somebody who is fully conscious of their own limitations. They know their strengths, but they also know their 'shadow' - they know their weaknesses. In other words, they understand that there is no good without bad. Good and evil are really one, but we have broken them up in our consciousness. We polarize them.
+- Ego is to the true self what a flashlight is to a spotlight.

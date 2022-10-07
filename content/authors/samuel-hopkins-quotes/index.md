@@ -1,0 +1,13 @@
++++
+author = "Samuel Hopkins"
+title = "Samuel Hopkins Quotes"
+quotes_len = "7"
+description = "the best 7 Samuel Hopkins Quotes"
++++
+- These Scriptures, therefore, are infinitely far from justifying the slavery under consideration; for it cannot be made to appear that one in a thousand of these slaves has done any thing to forfeit his own liberty.
+- If it be not a sin, an open, flagrant violation of all the rules of justice and humanity, to hold these slaves in bondage, it is indeed folly to put ourselves to any trouble and expense in order to free them.
+- However, I am willing to hear what you can produce from Scripture in favor of any kind of slavery.
+- Furthermore, the slaves cannot be put into a more wretched situation, ourselves being judges, and the community cannot take a more lively step to escape ruin, and obtain the smiles and protection of Heaven.
+- Willingness to be damned for the glory of God.
+- God saw fit, for wise reasons to allow the people of Israel thus to make and possess slaves; but is this any license to us to enslave any of our fellow-men, to kill any of our fellow-men whom we please and are able to destroy, and take possession of their estates?
+- In a word, if any kind of slavery can be vindicated by the Holy Scriptures, we are already sure our making and holding the Negroes our slaves, as we do, cannot be vindicated by any thing we can find there, but is condemned by the whole of divine revelation.

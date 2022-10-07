@@ -1,0 +1,102 @@
++++
+author = "Grover Norquist"
+title = "Grover Norquist Quotes"
+quotes_len = "96"
+description = "the best 96 Grover Norquist Quotes"
++++
+- The Democratic Party is made up of trial lawyers, labor unions, government employees, big city political machines, the coercive utopians, the radical environmentalists, feminists, and others who want to restructure society with tax dollars and government fiat.
+- As more and more Americans own shares of stock, more and more Americans understand that taxing businesses is taxing them. Regulating businesses is taxing them. They ought to be thinking long-term about their ownership, not just their income, and that they should pay taxes on capital, as well as taxes on labor.
+- There's no reason to raise taxes. Taxes should be lower... The problem we have is that government spends too much, not that taxes are too low.
+- There are several reasons to oppose tax increases. First, every dollar of tax increase is a dollar you didn't get in spending restraint. Two, if you walk into the Democrats' Andrews-Air-Force-Base, Lucy-with-the-Football trick for the third time in a row - they don't have have a saying for being fooled three times!
+- Spending should be transparent. All spending by the Pentagon should be online. Every check. Exceptions should be made for legitimate national security issues. But military and civilian pay and retirement benefits are not state secrets. This has already been done in many state governments.
+- Conservatives should insist that defense spending be examined with the same seriousness that we demand in examining the books of those government agencies that spend taxpayer money in the name of welfare, the environment, or education.
+- I know the activists I deal with, we sort of try and check each other to make sure that we haven't gone native, that you come to Washington thinking it's a cesspool, you don't want to end up thinking it's really a hot tub and getting used to it. So that's something one has to keep an eye on all the time.
+- The American taxpayers are a powerful force. They don't want their taxes raised.
+- The tax issue is the most powerful issue in American politics going back to the Tea Party. People say, 'Oh, Grover Norquist has power.' No. Grover Norquist and Americans for Tax Reform focus on the tax issue. The tax issue is a powerful issue.
+- If you let people own their land, they take care of it. That's why privately owned land is always taken care of, and the parks look like cesspools. Nobody takes care of what everybody owns.
+- Democrats are people who raise your taxes and spend your money on weird stuff. They steal your guns, and they spit on your faith.
+- We laugh at liberals who declare that their favorite spending programs should be exempt because the spending is for a noble cause.
+- I think it's very important to always make sure that you're talking to the entire coalition and to as many Americans as possible; not to go chasing after one little group or another. The Democrats would bring new groups into their party and not notice that larger groups are going out the back door.
+- We have to have a conversation about whether Obama's plan to increase spending to occupy Afghanistan helps make America a safer country, or not. I think at some point, we may decide that we don't have to have that size military and cost footprint in the country. You look at what you want to accomplish, how many soldiers you need.
+- The American taxpayers are a powerful force. They don't want their taxes raised. Obama and the Democrats have a fight with the American people, not with me.
+- Clinton and Obama practice this politics known quaintly as the Richard Speck strategy: if you cannot take on everyone in the room at once, take them out of the room one at a time.
+- If you're so committed to liberty that you see the Soviet Union as a threat, you're a Republican. If you're kind of indifferent to freedom and the level of the lack of freedom in the Soviet Union is just a question of extent and not really threatening to anybody, then you're a Democrat.
+- Spending is not caring. Spending is what politicians do instead of caring. Spending more does not guarantee success. Politicians like to measure spending because it is easier than measuring actual metrics of accomplishment.
+- The central issue of our time - of all times - is the size, power and scope of government.
+- Smaller government, more individual responsibility, more individual control creates more Republicans. More state power and ownership and control and top-down decision-making creates more Democrats.
+- I run a taxpayer group - the most powerful guy in D.C., nonsense. OK? There are buildings with thousands of people in them, all lobbying for more spending and higher levels of spending and more government commitments. And there are a handful - a handful of groups that fight for less spending.
+- Historically, opposition to immigration in the United States has been racially and religiously motivated in the ugliest, nastiest way possible.
+- I was an anti-communist before I was political in other ways.
+- The statists want to control the economy.
+- Government should enforce rule of law. It should enforce contracts, it should protect people bodily from being attacked by criminals. And when the government does those things, it is facilitating liberty. When it goes beyond those things, it becomes destructive to both human happiness and human liberty.
+- People who say that there's a vote within the Republican Party that moves against immigrants is just factually not accurate.
+- A lot of young people just starting out unskilled, as all Americans do when they're born here, come to this country, and so the business community is for immigration. Big businesses, small businesses, high-tech, low-tech, the communities of faith, and the Republican leadership.
+- Someday I hope Americans will not believe that anyone had to spend his or her days fighting for limited government because everyone they know wants maximum freedom and minimum statism.
+- People who are willing to stick to a strong pro-life position aren't going to be pushed off a strong anti-tax position. For people who like to think in ideologically cohesive ways, it makes no sense, but that's the way it is.
+- The problem is government spends too much. So raising taxes is what politicians do, instead of reducing spending.
+- Americans for Tax Reform is a national taxpayer organization dedicated to opposing any and all tax increases. We work at the national, state and local level for lower taxes, less government spending and limited government.
+- Most Republicans have made it very clear they're not interested in raising taxes. They want to reform government.
+- Reforming Social Security to make it fully funded and independently held, that's compassionate because it allows people to control their own lives; cutting taxes on families and all Americans to let people have more control over their lives.
+- We should reduce total government spending as a percentage of the economy.
+- My ideal citizen is the self-employed, homeschooling, IRA-owning guy with a concealed-carry permit.
+- As long as we're focused on spending, there are only two ways to do that: One is spend less, and Democrats have no solutions for that. Or we have pro-growth policies that make the economy grow so the dead-weight cost of government becomes a smaller percentage of the economy and therefore less expensive.
+- We plan to pick up another five seats in the Senate and hold the House through redistricting through 2012. And rather than negotiate with the teachers' unions and the trial lawyers and the various leftist interest groups, we intend to break them.
+- Income should be taxed one time at one rate, not again and again.
+- I read murder mysteries. I exercise 40 minutes a day. I watch videotapes while I exercise. I listen to audiotapes when I am in my car. And I try to stay in three different centuries.
+- The welfare state creates its own victim/client constituency. By making individuals free and independent, we reduce the need for 'charity' to those truly needy citizens what we can certainly afford to help through real charity.
+- I was a math guy as a kid. I was really good at math. I wasn't particularly interested in it.
+- Our job is to make people free.
+- When I was younger, I thought of myself as a Nixon Republican because he was the anti-Communist.
+- People learn their politics at a young age and tend to stick with it.
+- The job of the government isn't to go around and try and make people sacrifice, it's to try and make people free. The reason why we have a national defense is to protect our freedoms.
+- What's hurting the U.S. economy is total government spending. The deficit is an indicator that the government is spending so much money that it can't even get around to stealing all of the money that it wants to spend. But the tip of the iceberg is not what hit the Titanic - it was the 90 percent of the iceberg under water.
+- It would be unwise for the modern Republican Party to come across as hostile to immigration. That has been the losing position in American history for 200 years.
+- The tax issue is the most powerful issue in American politics going back to the Tea Party.
+- Wars are expensive and dangerous. They're not political winners.
+- Tax reductions are usually simpler and less distortive. I'm certainly willing to look at getting rid of tax deductions/credits, and go to dramatically reduced rates.
+- Hypocrisy is the tribute that vice pays to virtue.
+- Not continuing a tax cut is not technically a tax increase.
+- If the Republican Party works with the Hispanic community, the immigrant community, they're natural allies. People who came to this country are more freedom-loving and more American than people who just happened to be born here.
+- The Republican Party and the conservative free market movement have been presidentially focused for too long.
+- Every time you cut programs, you take away a person who has a vested interest in high taxes and you put him on the tax rolls and make him a taxpayer. A farmer on subsidies is part welfare bum, whereas a free-market farmer is a small businessman with a gun.
+- Compromise is moving in the right directlon more slowly than one might like.
+- The goal is to reduce the size and scope of government spending, not to focus on the deficit. The deficit is the symptom of the disease.
+- I'm for tax reform, not tax increases.
+- Our goal is to shrink government to the size where we can drown it in a bathtub.
+- Democrats are people who raise your taxes and spend your money on weird stuff. They steal your guns, and they spit on your faith. And because the Democratic Party was taken over by the aggressive secular guys, they became hostile not just to conservative Catholics and evangelical Christians, but Orthodox Jews and Muslims and Mormons.
+- Look, the center right coalition in American politics today is best understood as a coalition of groups and individuals that on the issue that brings them to politics what they want from the government is to be left alone.
+- Obama wants to take the individual small business tax to 44 percent, and the corporate rate - he says - down to 28 percent or whatever. But that really damages the small businesses. And it doesn't make us competitive. You got to take them both down to 20, because state and local corporate taxes are 5 percent.
+- This always confuses liberals, that conservatives like the military and don't like the bureaucracy. That's because the military has their guns pointed out and the bureaucracy has them pointed in.
+- The question is: How do we reduce spending from 25% of GDP, which is where Obama put us? The focus is on total government spending. Can we bring it down, in a reasonable and politically acceptable way? That's what the Paul Ryan plan does. It puts us on a gradual reform path to reducing the size of government.
+- If you raise taxes, it won't reduce the deficit. The other team will simply spend the resources.
+- We need a Federal government that does what the government needs to do and stops doing what the government ought not to be doing.
+- Every time we've cut the capital gains tax, the economy has grown. Whenever we raise the capital gains tax, it's been damaged. It's one of those taxes that most clearly damages economic growth and jobs.
+- My goal in life is to get the federal government down to half its present size and under control, and then I can write murder mysteries.
+- If you feel the government should leave you alone, you're a Republican. If you think the job of the government is to go push people around and take things for you, then you're a Democrat.
+- My goal is to cut government in half in twenty-five years, to get it down to the size where we can drown it in the bathtub.
+- We want to reduce the size of government in half as a percentage of GNP over the next 25 years. We want to reduce the number of people depending on government so there is more autonomy and more free citizens.
+- The future of the Republican Party, all the different folks looking to lead the Republican Party at the national level in the future, recognize we should do immigration reform.
+- Twenty-five years ago, I created the Taxpayer Protection Pledge at the federal level. Then I brought it to the state and local level. About 97 percent of the Republicans in the House and 85 percent in the Senate have signed on, and the number of candidates who have taken the pledge is even higher. It's become a party position.
+- Everyone would have bigger and safer cars if they didn't have those CAFE standards: corporate average fuel economy.
+- Obama has been perhaps the most partisan President since Truman. He hasn't learned to be civil - note his insulting speech to Paul Ryan, who did us the courtesy of scoring a budget. The president has to talk to Republicans when it comes to the debt ceiling. He has reached the debt ceiling before anyone expected.
+- My wife and I have what's known as mixed marriage. I am a Methodist, she is a Muslim. So we're keeping it in the M's.
+- We should reduce total government spending as a percentage of the economy. The left wants to focus on the deficit so they can take us away from the focus on spending as a percentage of the economy.
+- Obama is a guy who claims to be unaware that there was a Tea Party, a guy that's detached from the country.
+- Immigration is America's No. 1 economic asset. The rest of the world can't do that. We can have every smart person we want, every high-skilled person we want.
+- I'm not for no taxes. That would be an anarchist. I am for lower taxes.
+- Spending an extra dollar on the D.C. public school system isn't spending an extra dollar on education. Spending an extra dollar with the Pentagon doesn't buy you an extra dollar on defense. Republicans need to look skeptically at military spending.
+- There are 100 different doors to come into the conservative movement. You can disagree with 99 of them, as long as you agree on one: more-limited government.
+- Tax increases slow economic growth. Why would you raise taxes? We need to reform spending, the tens of trillions of unfunded liabilities can never be funded by tax increases, that can only be fixed by reducing spending.
+- If the parties would brand themselves the way Coke and Pepsi and other products do so that you knew what you were buying, it had quality control. I vote for the Republican. He or she will not raise my taxes. I'll buy one. I'll take that one home.
+- It is wrong to divide the nation white against black, native born against immigrant or one religion against another. It is also wrong to divide people by income. East Germany was not an improvement over South Africa. Obama divides Americans against each other. This is wrong.
+- The taxpayer group in every state is always - always referred to as nuts.
+- Stupider than France is not where we want to be on tax policy.
+- Obsessions turn people off.
+- A 20-pound weight on the back of a small horse is more damaging than a 20-pound weight on a very big horse.
+- The important thing about tax reform is you make the tax code less complicated, easier for people to understand.
+- If you have to change the law to get more money, that's a tax increase, and Americans for Tax Reform supports all efforts of tax reform, getting rid of deductions or credits, or something that's misclassified, as long as you at the same time reduce rates so that it's not a hidden tax.
+- Less government, less regulation, lower taxes.
+- We cannot allow anything that's called 'national defense' to justify any and all spending. We need to be very, very careful that we don't overspend and say, 'Oh, that's defense,' when perhaps it isn't.
+- Taxation is not charity. It is not voluntary. As we shrink the state and make government smaller, we will find that more and more people are able to take care of themselves.
+- Well, certainly the Democrats have been arguing to raise the capital gains tax on all Americans. Obama says he wants to do that. That would slow down economic growth. It's not necessarily helpful to the economy. Every time we've cut the capital gains tax, the economy has grown. Whenever we raise the capital gains tax, it's been damaged.
+- Being married is kind of like being a Ken-doll; you don't get to dress yourself anymore.

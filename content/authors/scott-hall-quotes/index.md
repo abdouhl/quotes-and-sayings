@@ -1,0 +1,74 @@
++++
+author = "Scott Hall"
+title = "Scott Hall Quotes"
+quotes_len = "68"
+description = "the best 68 Scott Hall Quotes"
++++
+- Dallas is somebody who genuinely likes helping other people.
+- Once you learn how to work inside the ring - once you learn how to tell a story - then you can come to a big company like the WWE and learn the extra stuff, like the video, the pyro, the music, and that adds to everything you can do.
+- I was Razor Ramon, and I started the nWo.
+- I don't even know what a gluten is, bro.
+- For me, I was really struggling because I was Scott Hall in the gym and Scott Hall in the grocery store and in the ring. Until I got a gimmick, a look, and got to be a character, that's when I started making strides. As Scott Hall, I didn't have a gimmick, so I didn't know what to do.
+- I'm happy for anybody who gets an opportunity or a break in the wrestling business.
+- I want to do a travel show.
+- I'm a big Kevin Sullivan fan.
+- The NWO, yeah, we're a bunch of outlaws, thugs, whatever you want to call us, but... we do what we want, when we want. And we're having fun doing it.
+- If you think TNA sucks, you're right.
+- My deal with WCW was if I'd choose to show up, I was guaranteed a certain amount, but I'm not required to come to work for WCW.
+- I think it's great you have guys like Finn Balor and Shinsuke Nakamura in WWE.
+- When guys leave NXT and go to the main roster, those guys are already over.
+- My life is like driving down a road. I occasionally glance in the rearview mirror, but I'm not focused on the past or looking back anymore.
+- I always find it really flattering when people are going to line up and wait in line for hours to tell you how cool you are and to take a picture with you. I always have time for that. It makes you feel good.
+- My most important legacy is being a good father to my two children.
+- Obviously, I'm against bullying, but it does happen.
+- Anybody who shows love for my kid, I got love for.
+- Dallas is obnoxiously positive. He's been a good friend to me.
+- I think the best thing I can do for me is to show up places and be clear-headed. Because when I'm clear-headed, my phone rings. I get opportunities.
+- I was kind of like the Tito Santana of my era.
+- The WWE machine is a lot stronger than it was when I was there. When you go to TV, it's unbelievable the production that's going on.
+- I never really thought about the fact I wasn't world champion. It's all fake, so having a belt really means having extra weight in your luggage.
+- You don't get any better unless you're around guys who know more than you.
+- God has blessed me many times. I had some great genetics.
+- If you have any talent, you can't be held back, and you can't be held down.
+- I always wanted to be a main eventer in pro wrestling. I lived my dream, but the excess of the '80s and the huge money of the '90s became a great temptation for many of us.
+- I would love to help guys transition from 'NXT' to 'Raw.'
+- When I came in, there wasn't a bunch of women wrestlers. There was maybe one or two who came in a couple months a year.
+- Curt Hennig was my buddy, and he had great success with Mr. Perfect.
+- I'm a big fan of Finn Balor.
+- When I'm in the ring, I'm doing great. As Razor Ramon or the 'Bad Guy,' I don't have a care in the world. But when I come back through the curtain, reality is there waiting.
+- My daughter is on academic scholarship at the University of Central Florida. I feel so blessed.
+- I had the inability to ask for help when I needed it. People offered to help me, but I refused. They'd ask 'How are you?' and I'd answer, 'Better than you.'
+- One time in WCW, I was the U.S. champ, tag champ, and the TV champ. I had three belts, and I wore them all. I just think it's hilarious, and I never really got caught up in the world title thing.
+- I would consider myself one of the highest-paid job guys in history.
+- What sucks the most is when you can't even keep a promise to yourself.
+- Whether they cheer or whether they boo really doesn't bother me as long as they're paying attention.
+- Shawn Michaels really helped me a lot. We helped each other. It was a good partnership.
+- I've always said it ain't 'Show Friends.' It's 'Show Business.'
+- Coming to Atlanta was like being in a country club. It was really tame in the locker room in WCW compared to New York.
+- Mental illness is real, and I got them. I don't know if it's the multiple concussions or the lifestyle choices.
+- What I want to do is bring back managing in the wrestling business.
+- What I'm doing with the NWO is for me, for my family, so I can leave a legacy for my kids.
+- I had been successful in Japan, Mexico, and Puerto Rico, but nothing in the U.S. where it really matters.
+- Powerbombing someone on the apron or into the turnbuckle, those are not moves Sting and I grew up with.
+- For me, the only thing I had to look forward to was the ring because my personal life wasn't doing that great, so my fake life was what I was holding onto.
+- If I had to do it all over again, I'd probably live the same way.
+- I'm working on a cooking show; I'm going to do some of it at Dallas Page's performance center. I'm going to do a cooking show called 'Dude Food,' where I show young guys how to eat good and clean, cheap.
+- Everybody knows you can't have a party on 'Raw' without the bad guy.
+- I'm not a Bret Hart fan.
+- When the fans spend money, you normally leave the audience happy.
+- WCW is a television company that produces a wrestling show. The WWE is a wrestling company that produces a television show.
+- Everybody's going to have their own tolerance toward ribbing or bullying or whatever. If somebody's more sensitive, then you can't rib them as much.
+- Look at my life. I almost died. I almost died several times. My shoulders were down, man. But I kicked out. I kicked out again. Someone upstairs obviously likes me. So maybe I should, too.
+- In a perfect world, I'd end up at NXT.
+- You can't choose your family, but you can choose your friends.
+- Dusty Rhodes was really good to me and helped me and started me.
+- Fans in Madison Square Garden are a little bit hipper, but they are more vocal. It's like, 'Hey, you work for me, bro. I bought this ticket. Now get out there and entertain me.'
+- I don't want to die, but I'm not afraid to.
+- I don't work any different in Japan than I do in the U.S. Some guys do, but if you're entertaining, you're entertaining, and if you're not, you're not, and that plays worldwide.
+- If people are offering you help, swallow your pride and accept it because people who care about you want to help you.
+- I'll go on record and say it's way more fun riding in front of a cop car then riding in the back cuz you can get out if you want to.
+- It's hard to ask for help. It's even harder to accept it when people offer it.
+- The NWO... we feel like we are the people's choice; we're doing things for the working man.
+- If I could leave anybody with anything, it's this - if you need help, ask for it.
+- I feel like I couldn't have screwed up that bad as a dad, because I have a pretty good relationship with both of my kids.
+- In WCW, your future was determined by the time you signed the contract. I was the lowest-paid guy in the company at $75,000.

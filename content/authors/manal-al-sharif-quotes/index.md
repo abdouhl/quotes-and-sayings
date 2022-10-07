@@ -1,0 +1,38 @@
++++
+author = "Manal Al-Sharif"
+title = "Manal Al-Sharif Quotes"
+quotes_len = "32"
+description = "the best 32 Manal Al-Sharif Quotes"
++++
+- My mother gave birth to me on the floor of our apartment in Mecca with only my toddler sister to help her because my father was at work and no male guardian was available to take her to a hospital.
+- In May 2011, I drove a car in the city of Khobar, Saudi Arabia, to protest the kingdom's ban on women driving.
+- For me, driving - or the right to drive - is not only about moving from A to B; it's a way to emancipate women. It gives them so much liberty. It makes them independent.
+- I measure the impact I make by how harsh the attacks are. The harsher the attacks, the better I am doing.
+- We won't stop until the first Saudi license is issued to a woman.
+- For us, driving is not what we are looking for, but being in the driver's seat of our only destiny. That means ending guardianship in Saudi Arabia, which means recognizing women as full citizens.
+- Women's rights are nothing but a part of the bigger picture, which is human rights. Women are trusted with the lives of their kids, even serve as teachers and doctors, but they aren't trusted with their own lives.
+- I almost got kidnapped trying to find a taxi in the street. In Saudi Arabia, it's not normal for a woman to walk in the street alone, and I don't cover my face, so I am an open target.
+- I'm a normal woman, a normal person, and I just want to drive.
+- All I did was ask for rights. I didn't attack anyone. I didn't harass anyone. I didn't oppose the system or the country or the authority. All I said is, 'Why can't I drive?'
+- We should not label people who speak up, because it should not be the exception - it should be the norm. When you see something wrong, you speak up.
+- When you see corruption, when you see injustice, you speak up. You don't just shut up and say it's none of my business.
+- My message to the world is to surrender your ego: try not to think that you are not as fortunate as some people or inferior or not as good as someone else.
+- I realised it is impossible to live with the rules they give Saudi women. Just impossible. You trying to do everything by the book, but you can never stay pure.
+- Everything is possible; we just need to be hopeful and think of the world from a human perspective. The world is so small compared to the universe, so we shouldn't fight for petty things.
+- I love my sons, I love my husband, and I love my country. But in kingdoms of men, there are few - if any - choices for women. Or the choices are such that there is no greater pain than having to choose.
+- The rain begins with a single drop.
+- That is life for a Saudi woman: wherever we go, whatever we achieve, we are the property of a man.
+- The Saudi ideal of a woman is a religious mother who rarely ventures out: She shouldn't work with men, she should be completely covered, and she shouldn't go out alone to run errands.
+- In Saudi Arabia, they always tell us we are queens. We are pistachios. You know the nut? Like something that is protected. So even if you have a very good education, restraints are put on women.
+- Women want to drive and they are taking actual steps towards that.
+- The bicycle freed 19th-century women from their homes and from their dependence on men. I hope that in Saudi Arabia, the car will do the same.
+- My father's generation of Saudi men are more liberal than the men of my generation. But with women, it's the opposite.
+- I always say that countries that keep women in the backseat will always end up on the wrong side of history.
+- It took me a long, long time to break the chains that's inside me.
+- Denying women the right to drive has imposed huge costs on Saudi citizens.
+- When women break that taboo and they're not afraid to drive that car by herself - that's it. Now she has the guts to speak up for herself and take action.
+- When I see something wrong, I speak up.
+- I'm just a human being who would not accept being wronged.
+- I went to a technology conference in Germany, and there were these beautiful, model-like women standing there in front of the products. I asked a question, and she had no clue what the product was. She had to call someone from the back to explain it to me. To me, that's using a woman as an object. To me, that's totally wrong.
+- Women tell me they are different since 21 May - the day I was arrested - it's a positive change, they believe now.
+- In the Saudi system, women are considered inferior. No matter our age, we have male guardians. We must get permission from men to attend school, to work, to marry, to travel overseas - even to have basic medical procedures.

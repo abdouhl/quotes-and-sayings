@@ -1,0 +1,123 @@
++++
+author = "Jessica Chastain"
+title = "Jessica Chastain Quotes"
+quotes_len = "117"
+description = "the best 117 Jessica Chastain Quotes"
++++
+- I do know that people treat me different with blonde hair than they do with red hair.
+- I always say I am a realist, and my mom says, 'No, you just have anxiety.'
+- Gian Luca and I have been together for such a long time, we're in it for the long haul.
+- I'm so inspired by the women who are far braver than I am, who have come forward with their stories and risked everything to help others. What is important is that the voices of these women do not disappear. We must amplify them.
+- My grandmother came with me when I moved out to New York. She stayed with me for a week. I was, you know, living in the dorm. The first year, I had a lot of anxiety, and, I remember, my teachers kept saying I had so much jaw tension.
+- When I first moved to Los Angeles, I don't think anyone knew what to do with me.
+- If someone doesn't want to hire me because they think I'm too vocal, fine. I will do a play. I will always find a job. Let them try to get me out of this industry. I am not going to be silenced!
+- I don't like the idea that fame could mean that people can no longer relate to me.
+- Acting, for me, has never been about wanting attention or wanting to be seen. It's funny that I'm in a profession where that's where I am. There's so much I want to express; it's about connecting with another person and the intimacy of what that is, and so I have to overcome my shyness.
+- I'm very sensitive in real life. I cannot not cry if someone around me is crying. I will start to cry if someone is crying, even if it's not appropriate. I have that thing in me, a weakness or sensitivity.
+- I'm the first person in my family to go to college.
+- I'm not taking jobs anymore where I'm getting paid a quarter of what the male co-star is being paid. I'm not allowing that in my life.
+- My grandmother took me to a play, and... there was a little girl on stage. And as soon as I saw her on stage, I thought, 'This is my job'... I was probably, like, 7 or 8. I was very young... It was 'Joseph and the Amazing Technicolor Dreamcoat'.
+- I was a dramatic kid. I remember, I was very young, and once I knew what I wanted to do I, like, created a theater company, and I would direct, and we would sell lemonade to buy props.
+- For me, I'm not in an industry where I'm starving.
+- You know, it's recently come into focus for me why I want to be an actor: It's because of the connection I feel to people.
+- The reason we like acting is connecting to other people.
+- I think when you congratulate yourselves for diversity, that means nothing's really changed.
+- I don't want to be in my car all day. I love getting up in the morning in Venice and walking my dogs down to the cafe to get my tea, and then perhaps going to a bookstore and sitting and reading, then walking to the beach.
+- One of my goals is to play a villain in a Bond film. People ask me if I want to be a Bond girl, and I say, 'No, I want to be the villain.' I'm waiting for that call!
+- If I can help create empathy and balance in society, I'm going to do whatever I can to tell stories that subconsciously create that.
+- I never heard in my entire life that a man was overprepared for anything. I am overprepared in my life. What's wrong with being ambitious, being overprepared, being one step ahead?
+- I'm the unknown everyone's already sick of.
+- I'm a shadow whisperer: I hide in the shadows. And I tend to avoid places where I might get photographed and end up with my picture in the press.
+- I went to public school, and I didn't do well in school. And it wasn't until, actually, I got into school at Juilliard - it was the first time in my life that I thought, 'Oh, maybe I'm not stupid,' because I was so inspired and passionate about what I was learning, and it was the first time in my life I had felt that.
+- I just don't think of myself as a movie star - I'm an actress.
+- Only a woman can tell you what it's like to be a woman in a society where men are in charge. When you have one demographic that controls the livelihood of minorities, then you're always going to have abuses of power. So this goes way beyond Hollywood.
+- I understood the importance of doing an Aaron Sorkin film. He's a political filmmaker.
+- I take great responsibility in any character that I play.
+- Before, it was just about making the films - and now it's releasing them. Which is a steep learning curve.
+- I've never been in New York for the whole time of Fashion Week.
+- I started a production company - all female led, actually - called Freckle Films.
+- Making films can be very lonely, and that's the part I don't like. I don't want to feel like I'm pressing 'pause' on my personal life to make a movie. I want to feel like I'm still creating relationships and things are moving forward.
+- I sometimes go to a movie and eat my popcorn and turn my brain off. I love those movies. But the movies I like to be in, for the most part, are the ones that challenge you.
+- Okay, I'm going to let you in on a little secret: I'm a very superstitious person. I'm walking onto the plane as we speak. I'm putting my hands on the outside of the plane and my feet are on the lip of the plane. I have to do it every time before I fly.
+- I love being around great actors and film-makers, and I try to hide the fact that I'm in awe of them.
+- My whole life, I wanted to be an actor. Perhaps the seed was planted when I saw Sigourney Weaver in 'Alien', wiping the floor with the men on the ship.
+- I actually chose to do 'X-Men' because I'm working with Simon Kinberg, who's also a first-time filmmaker who I met on 'The Martian' and is an incredible writer and producer.
+- In our society, women are valued for their sexual attraction. I'd like to get away from the sex symbol idea of what beauty is. Actually, that's probably the farthest thing from beauty, because it's makeup and hair, it's pouty lips - it's not real.
+- I don't want people to look at me.
+- People were confused by me, and at first I was auditioning a lot for the crazy characters or the victim, someone who'd been attacked. Which is great, because usually those are the best acting roles.
+- I like characters and stories that challenge the status quo. Lately, I'm really interested in history because I find that in my public school education, I didn't learn about women in history. I want to introduce the world to some great stories and incredible heroes.
+- I've spent my life being embarrassed.
+- My goal is that a girl will watch 'The Martian' or 'Interstellar' and think, 'I want to be an astronaut or a quantum physicist.' It's important to show powerful women who are good at their jobs because young girls need those examples.
+- I'm going to do anything I can to be there and support any organization that empowers and creates opportunities for women.
+- I was excited that my films would finally see the light of day and people would see them. But I never imagined that such nice things would be said about a lot of my films.
+- I'm such a geek.
+- My favourite smell is the smell of cut grass, and the sound of sprinklers going on.
+- I don't know if there will ever be a day that I'm not wearing heels. I'm a very big personality, and I don't like to look up at other people.
+- I can't tell you how many incredible directors I long to work with, but then I look at their IMDb page, and they haven't made a single movie about a woman.
+- I think, in the past, being brave - being powerful, being strong - were qualities that people associated with being masculine. And I think... no, I don't think - I know that now we're realizing they can be feminine, too.
+- I'm inspired by people who are so sensitive and vulnerable that they try to cover it up.
+- One of my favorite parts of being an actress is being a detective.
+- No one ever recognizes me.
+- If you want me in your film, do a favored-nation clause. Don't determine my worth based on what's left over.
+- Funny how defined we are by how we present ourselves to the world.
+- We know in our society, women are valued for their sexual desirability and not necessarily for what they have to say.
+- When you take away healthcare from women, you're keeping women out of the workforce because you're eliminating their choice of when to start a family.
+- There's a lot of criticism on how an actress is aging. Why do we do that with women? I work with a lot of men who take terrible care of themselves - they drink too much, or they eat too much. We need to allow women to age.
+- My grandmother was my inspiration. She was the person who took me to the theater and encouraged me to act, and she's the one who always believed in me.
+- It takes me a long time to make a big purchase.
+- We have a long way to go in the world in all industries. If I'm in the situation where I have equal experience to the other actor and my role is just as significant, there is no reason why I should be paid less. It's not really part of my world anymore, because I just won't accept it.
+- I was the first one in my family to go to college.
+- Whatever anyone says, I think the opposite will happen.
+- I find it very interesting: when 90 percent of the critics that review films are men, how is that helpful when trying to create stories from a feminine point of view?
+- There is this immediate connection, this intimacy when you're acting because there's no room to be polite or shy. Also, as an actor I get to connect with women I've never met before.
+- I grew up in a low-income family. I was raised by a single mother.
+- If you're one of the only women on a set - if it's you and a bunch of men - you feel like your value doesn't come from your thoughts and your talent and what you say: your value comes from how you look and how you're perceived by the men around you.
+- I cut school to read Shakespeare and to learn about that because, for the first time, I felt like I really discovered a passion - the passion of my life.
+- I'm very much a hippie from Northern California.
+- I can't even open my eyes underwater.
+- What's wrong with trying hard and showing up and being good at your job? We really need to look at ourselves and say we need to reevaluate this. We need to reevaluate that women who ask for a pay raise or ask for a promotion - it's actually an okay thing. It's okay to be ambitious; it's okay to be over-prepared.
+- This is what the media does with women. You try to divide and conquer women so you can intimidate and victimise them. This is why they don't make movies where a lot of women get to be on set together. It's about dividing.
+- When I get a script that has the opportunity to create discussion and inspire young girls, I don't want to say no to that... I just want to contribute.
+- I try not to fake anything.
+- Green tea throughout the day is the healthiest thing I've discovered for me.
+- I'm really inspired by stories I didn't know about.
+- There I was at 'The Tree of Life' premiere, holding hands with Sean Penn and Brad Pitt. That walk down the red carpet was a real rite of passage for me. Suddenly, journalists began asking, 'Who's this actress?'
+- When 'Tree of Life' went to Cannes, all the interviewers were asking me about my favorite actors and actresses because I was new to the industry, and they wanted to get to know me.
+- I'm a true believer that you get out of something what you put into it.
+- I'm working hard to break free of stereotypes that the film industry has created and nurtured around women.
+- What I do now, when I'm taking on a film, I always ask about the fairness of the pay. I ask what they're offering me in comparison to the guy. I don't care about how much I get paid; I'm in an industry where we're overcompensated for the work we do.
+- I grew up poor.
+- When something happens, I always check myself and know it's going to go away. So be prepared for it. This is a tough business for actors who are sensitive. If you try to hold on to things, you'll go crazy.
+- If I get a role, it's because I fought for it.
+- I've had to learn how to say 'no' to offers.
+- Being a woman has always been a powerful thing, where history has sometimes dictated otherwise, but I believe that a woman can be compassionate, sensitive, soft, kind.
+- Women can be powerful, graceful, and complex, with the ability to make any choice they desire.
+- I'm either thought of as ethereal or fiery. And maybe that's the interesting thing about red hair: there's that fiery Renaissance connotation and the ethereal.
+- I'm inspired by antiques. I look at things that have a wink to the past but are also reinterpreted in some way and made to feel modern... and maybe that's what I am.
+- For the longest time, people would say to me that I didn't feel very modern, that I seemed from another time.
+- I've actually been given a great gift. When I walk into an audition with a director, I'm carrying no baggage. They haven't seen me in anything, even though I've done nine films.
+- We need to understand that femininity is not weakness. And our society, for some reason, equates the two.
+- If I were Elizabeth Sloane, I wouldn't be wearing makeup. I'd just be focused on getting the job done.
+- There have been situations where I have lost movies because I've said, 'This is not a fair deal,' and I've walked away.
+- I struggled for so long to try to create a career.
+- This is an industry rife with racism, sexism and homophobia. It is so closely woven into the fabric of the business that we have become snowblind to the glaring injustices happening every day.
+- If I'm in Italy, I'll have an espresso, but I try not to get my energy from things like that.
+- We have grown up watching women be used as props on a man's journey. It's not our fault that that's what we saw as children. But we need to acknowledge that and do better.
+- I just want to see more women in film and behind the camera. I'm tired of seeing movies from one perspective.
+- For the most part, I was surprised by the representation of female characters onscreen. I do hope that when we include more female storytellers, we will have more of the women that I recognize in my day to day life.
+- I am not one to go for traditional female roles, because I don't think traditionally female characters are very interesting, and I don't think they represent real life.
+- I love fall because I love the whole cuddling aspect of it, and a sweater dress has that vibe of I'm going to hunker down and be warm, but it's also very feminine.
+- I have a feeling that very soon I'm going to fail very, very big. I'm going to try something and everybody's going to be like, 'What was she thinking?'
+- I talked to congressmen who really hate having to go to the many fundraisers, but they see it as a necessary part of their job.
+- I'm used to working really hard to get a role. I was always auditioning and talking my way into roles.
+- I think that with any emotion - fear, love, nervousness - if the actor's feeling it, then the audience feels it.
+- The great thing about modern feminism is that women can define what it means to them: it can mean being ambitious, it can mean being emotional, it can mean being sensitive and compassionate and also a leader. It can mean all those things.
+- I have problems because I'm very expressive, and usually red lipstick gets on my teeth and face.
+- What can I do to create a healthy work environment? Because we have all been groomed to the normalization of violence and the normalization of abuse. And we refuse to live in that society.
+- Broadway has always been a dream of mine.
+- I look at all the ingredients of a film and say, 'Is this a positive thing that I'm putting into the world? Is there honor and respect in the way the story is being told about them? And would they approve of that?'
+- Some people think I've had a nose job. I've never had anything like that done, but I have no judgement of anyone that does.
+- Everyone has to learn how to live in an environment that has not made it easy for women to claim their place, so I think it's all women's responsibility to step forward.
+- The power of 'no' means you're educating people in how to treat you.
+- In the characters that I play, I'm so involved in the look; it's very, very important to me. Because how a person presents him or herself to the world, they're saying something about themselves. It's their first form of advertisement.
+- As an actor, I have a lot of fear, thinking that if I speak my mind, or something that feels like it deviates from the norm as a woman, am I going to be made to disappear in my industry?

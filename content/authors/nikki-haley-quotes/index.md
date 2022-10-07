@@ -1,0 +1,109 @@
++++
+author = "Nikki Haley"
+title = "Nikki Haley Quotes"
+quotes_len = "103"
+description = "the best 103 Nikki Haley Quotes"
++++
+- I think you have to look at the fact that every presidential candidate, Republican or Democrat, has all said that Jerusalem is the capital of Israel and the embassy should be moved. President Trump's the only one that had the courage to actually do that.
+- Jerusalem is the capital of Israel. Take that off the table. Tell both sides to come together and say, 'Okay, you decide how you want to split up Jerusalem. You decide if you're going to create boundaries or borders there.' And let them decide.
+- For a bill to become law, it truly has to be the will of the people, and for a president to stop the will of the people and stop what you're trying to do in your state is not the role of Washington.
+- We don't see a peaceful Syria with Assad in there.
+- Do things that are uncomfortable to do. I say that because women tend to step back from things that they don't know about. And the second, most important one is, push through the fear.
+- The people of South Carolina support conservatives who are trying to push real change, and the people of South Carolina expect their presidential candidates to back them up when they show courage.
+- Any country needs to know that there are consequences when they get involved in our elections. And I think that's why it's good that the investigations are going on and we're analyzing and we're looking into all of that, and I think we need to manage it accordingly.
+- I'm saying that ammunition comes with multiple options, and it's not always military. Ammunition also comes with sanctions. Ammunition also comes with trade.
+- I have no doubt that if we act with proper focus, we can protect our borders, our sovereignty, and our citizens, all while remaining true to America's noblest legacies.
+- I fight for the things that I care about, which are jobs and the economy. I fight for the things I think are important, which are reducing the debt and getting more companies to come to South Carolina.
+- I think any label is bad. I'm more than a label.
+- No one who is willing to work hard, abide by our laws, and love our traditions should ever feel unwelcome in this country. At the same time, that does not mean we just flat out open our borders. We can't do that.
+- I do think that climate change is real. And I think that it's something that we have to deal with. But I also think it has to be a balance. And, you know, as governor of South Carolina, that was what I did.
+- Republicans need to stay strong on the fact that marriage is between a man and a woman. Those are values that are true to the party and true to who we are. They could focus on jobs and the economy, but we all know that keeping the family structure intact is very important in our country.
+- When we come into the NSC, everybody has different opinions. At the end of the day, we present the president with all the facts. We let him make the decision. And we all, as a team, go out and support that decision.
+- God bless the people of the State of South Carolina.
+- The key is we have to keep those communications together, and we all agree on one goal - a denuclearized North Korea.
+- Contraception doesn't define a woman.
+- You always have to come from the element of 'What do you have in common?' first. It makes it easier to work through your differences.
+- We are now changing the culture at the United Nations. And with that, we're changing the culture in the world in the discussions that we're having.
+- What he does, faults and all, he's our president. And so I want him to be successful. When these tweets come out, I mean, do I look at 'em and say, 'Okay, where did that come from?' Yes. But I don't pick up the phone and say, 'What are you doing?' I just know that's who he is.
+- I'm a strong voice by nature. I'm sometimes a bull in a china shop.
+- I don't think we should ever ban anyone based on their religion. That is un-American. It is not good. What the president is doing, everybody needs to realize that what he's doing is saying, 'Let's take a step back. Let's temporarily pause.'
+- What we wanted to tell North Korea is, look, we have told you we are not looking for regime change; we are not looking for war. But don't give us a reason to get involved in any of this, and so we're going to go ahead and push for a strong resolution against North Korea.
+- I'm a huge fan of women; I think we're great.
+- I did read Indian scriptures when we could get the English versions, but the problem was I never took the time to learn the language. Really, what it comes down to is that I knew the emotion of faith; I knew what my parents were trying to teach me, but we always said 'No' when my mom was trying to teach us Punjabi.
+- Unfortunately, these past few years, you can work hard, try to be as successful as possible, follow the rules, and President Barack Obama will do everything he can to stand in your way.
+- I work with the president and speak with him multiple times a week. This is a man, he didn't become the president by accident. And as much as everyone wants to talk about stability, was he unstable when he passed the tax reform? Was he unstable when we finally hit back at Syria and said no more chemical weapons?
+- Today, we live in a time of threats like few others in recent memory. During anxious times, it can be tempting to follow the siren call of the angriest voices. We must resist that temptation. No one who is willing to work hard, abide by our laws, and love our traditions should ever feel unwelcome in this country.
+- We're going to push hard against China because 90 percent of the trade that happens with North Korea is from China, and so, while they have been helpful, they need to do more.
+- I was raised by the Indian community, and those families are still very close to us. We used to go to each others' houses one Sunday a month, so we got to know everyone well. Also, we love Indian food and can't get enough of it.
+- The public likes to think that women only care about contraception.
+- I have seen the president and Secretary Tillerson work together. They work very well together. They talk through things. And then they manage it properly.
+- I think that we are at a point in our country where we're trying to decide what role should religion play in the political arena.
+- Immigrants have been coming to our shores for generations to live the dream that is America. They wanted better for their children than for themselves. That remains the dream of all of us, and in this country, we have seen time and again that that dream is achievable.
+- That's one of the things that I'm going to talk about, is the need for the Human Rights Council to actually deal with human rights. We've got countries on the Human Rights Council right now like Venezuela and Cuba.
+- We don't have unions in South Carolina because we don't need unions in South Carolina.
+- I try not to miss anything because of work. And I didn't want to have to say that, because that doesn't sound realistic. But it is. Family has to come first. It has to. Especially for a mom. Because if your family's happy, you can do your job.
+- I am the proud daughter of Indian immigrants who reminded my brothers, my sister and me every single day how blessed we were to live in this country. They loved the fact that only in America, we could be as successful as we wanted to be, and nothing would stand in our way.
+- It is time for all civilized nations to stop the horrors that are taking place in Syria and demand a political solution.
+- American businesses deserve a federal government that doesn't stand in their way, not one that tries to chase them overseas.
+- Everyone can have a bad day.
+- I encourage people to find and use the power of their voices just as much when I do not agree with those voices as when I do agree with them.
+- I think the media's a little frightened of women.
+- This was not a decision made with the Israelis. This was a decision by the president for the American people. And so, it was a decision that we all said Jerusalem should be the capital and the embassy should be there. This decision should not weigh in on the peace process.
+- We must fix our broken immigration system. That means stopping illegal immigration. And it means welcoming properly vetted legal immigrants, regardless of their race or religion. Just like we have for centuries.
+- Ultimately, my connection to my Indian-ness comes back to my mom and dad. They would all tell me and my siblings stories about their life in India, so it was very close to my two brothers and my sister and I.
+- The reason I actually ran for office is because of Hillary Clinton. Everybody was telling me why I shouldn't run: I was too young, I had small children, I should start at the school board level.
+- The foundation that has made America that last, best hope on earth hasn't gone anywhere. It still exists. It is up to us to return to it.
+- We cannot continue to allow immigrants to come here illegally. And in this age of terrorism, we must not let in refugees whose intentions cannot be determined.
+- At the United Nations, that's the number one comment I get is they're just so happy to see the United States lead again.
+- Ann Romney makes all women proud by the way she has conducted her life as a strong woman of faith, as a mother, as a wife and as a true patriot.
+- When the United Nations consistently fails in its duty to act collectively, there are times in the life of states that we are compelled to take our own action.
+- There's certain things that we do work with Russia on, and then there's certain things when they do something wrong, I have no problem calling them out on it.
+- I've always felt like there are certain politicians that wear their religion on their sleeve in a way that you almost feel is disingenuous. I think that your faith has to be first personal. I struggle with those people that preach something and go back behind closed doors and live differently.
+- Boeing started a new line for their 787 Dreamliner, creating 1,000 new jobs in South Carolina, giving our state a shot in the arm when we truly needed it.
+- Courage breeds leadership.
+- I had a white senator call me a rag head, and I had an African-American legislator call me a conservative with a tan.
+- On matters of race, South Carolina has a tough history. We all know that. Many of us have seen it in our own lives - in the lives of our parents and our grandparents. We don't need reminders.
+- Almost forty-five years after my parents first became Americans, I stand before you and them tonight as the proud governor of the state of South Carolina.
+- I wear heels, and it's not for a fashion statement - it's ammunition.
+- I think the rest of the world would like to tell us how to manage our own environment. And I think that anybody in America can tell you that we're best to decide what America should do.
+- Soon, the Obama presidency will end, and America will have the chance to turn in a new direction.
+- What I'm trying to bring attention to is that human rights is a big important part of how to prevent conflict in the first place if we focus on how the governments are treating their people.
+- South Carolinians are strong, independently-minded people. At the end of the day, they make their own decisions. And I respect them for that. And I welcome that.
+- There is no war on women. Women are doing well. But women are thoughtful. And what we in the Republican Party and across the country, Republican, Independents and Democrat women say is we're more thoughtful than a label. We care about jobs and the economy and healthcare and education. We care about a lot of different things.
+- Government was intended to secure the rights and freedoms of the people; it wasn't intended to be all things to all people.
+- There is an obvious truth here that must be spoken. The truth is that Assad, Russia, and Iran have no interest in peace.
+- My job is to create jobs. In the end I'm going to have jobs to show for it.
+- My parents started a business out of the living room of our home and, 30-plus years later, it was a multimillion dollar company. So, President Obama, with all due respect, don't tell me that my parents didn't build their business.
+- Some people think that you have to be the loudest voice in the room to make a difference. That is just not true. Often, the best thing we can do is turn down the volume. When the sound is quieter, you can actually hear what someone else is saying. And that can make a world of difference.
+- Protests are fine. But in South Carolina we believe in the rule of law, and the people of this state should never doubt that as governor, I will enforce it.
+- Our forefathers paved the way for us. Let's take their values and their strengths and rededicate ourselves to doing whatever it takes to keep America the greatest country in the history of man.
+- I have had the pleasure of knowing Mitt Romney for several years now. There's so much to appreciate about him. He fixes things. He's results-driven. He's taken broken companies and made them successful.
+- In 2009, South Carolina was blessed to welcome a great American company that chose to stay in our country to continue to do business. That company was Boeing.
+- This is America. Anyone is free to protest about anything they want.
+- Everything that has happened to me in my life has defined who I am, and all of the things leading up to being governor, that all came from overcoming challenges in childhood and overcoming challenges as I got older. When you have God, you quickly understand there's nothing you can't overcome.
+- All of my policy is not based on a label. It's based on what I lived and what I know.
+- I don't think we should focus on what church that person walks into .. I think we need to focus on what they do when they walk out of church.
+- You don't go to the people that are just like you. You go to the people that you have to earn their credit.
+- It's - getting Assad out is not the only priority. And so what we're trying to do is obviously defeat ISIS.
+- My parents always used to tell us not to complain about things but do something about them, so 'Can't is not an option' was almost a way of life.
+- We're going to fight hard on this. We're going to push hard - not just on North Korea; we're going to push hard on other countries who are not abiding by the resolutions and not abiding by the sanctions against North Korea.
+- The second a political consultant tries to play dirty tricks, it will backfire, and it will hurt that candidate.
+- We now should hope and pray for a peace process. We've had good negotiations with both sides. Those are going to continue; those are going to be a commitment by the president and something that we're going to work hard on. And we all hope, for the sake of Israeli children and Palestinian children, that we do have peace.
+- I've never been a planner. I didn't know I was going to run for the State House. I didn't know I was going to run for governor. I don't know what's next, and I love not thinking about it because the doors open at a certain time.
+- If Russia has the influence in Syria that it claims to have, we need to see them use it. We need to see them put an end to these horrific acts. How many more children have to die before Russia cares?
+- My brother and I have converted to Christianity, and my other brother and sister are still Sikh. So for me, it's not something that I ever want to be judgmental on. I know my parents are two people of a very strong faith. I respect all that they've done in raising their four kids and in the opportunities that they've given us.
+- You will see us going forward talking about those things to bring Iran in compliance: not just of the deal, but of the international community and what is expected to be a good community citizen.
+- I think what you can see is that we have worked very closely with China. China has really stood up in putting the pressure on North Korea.
+- As I said, my parents loved that when they came to America, if you worked hard, the only things that could stop you were the limits you placed on yourself.
+- You had two men who knew the exact same thing, which is Russia did meddle in the elections. I think President Trump wanted to make sure that President Putin was aware that he was acknowledging it, that he knew it. I think President Putin did what we all expected him to do, which was deny it.
+- I think any woman who has felt violated or felt mistreated in any way, they have every right to speak up.
+- Secretary Tillerson is not going anywhere. I can vouch for that. He is where he is, he continues to be strong in how he handles foreign policy, and I continue to work well with him.
+- People ask the question, 'If you're offered VP, would you take it?' No, I won't take it.
+- I'm very proud of the way that I was raised, I'm very proud of the way that my parents raised me.
+- Growing up in the rural south, my family didn't look like our neighbors, and we didn't have much. There were times that were tough, but we had each other, and we had the opportunity to do anything, to be anything, as long as we were willing to work for it.
+- I'm not going to stop beating up on the Democrats for wasteful spending.
+- I'm not going to stop beating up on the unions.
+- My husband was adopted, and we had difficulty having both of my children, so we know the gift that life is. We do believe marriage is between a man and a woman. It's how you stand on that kind of thing or how you vote that really makes a difference.
+- I'm Nikki Haley, Governor of the great state of South Carolina.
+- I think it's very important to get ego out of the room. I think it's important to realize it takes two hands to clap - stop the pointing, stop the blame game. I think we've seen enough of that, I think the country is tired of it. I think they want to see Washington function, they want to see action.
+- Courage doesn't come by doing what everybody else says. Courage does by what you know is right.

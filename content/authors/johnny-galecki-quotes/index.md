@@ -1,0 +1,48 @@
++++
+author = "Johnny Galecki"
+title = "Johnny Galecki Quotes"
+quotes_len = "42"
+description = "the best 42 Johnny Galecki Quotes"
++++
+- It's that one thing that you're passionate about, that you end up developing tunnel vision for and everything else tends to fall by the wayside. Passion is appealing and universal.
+- I'm not at all competitive. I'd rather play Solitaire than ping-pong.
+- In a series, you really need to stay open-minded. It's not like a play or a film, where you can create and fully commit to your character's back-story.
+- We've all seen great actors and actresses who are missing a certain chemistry. And it's not about getting along or not getting along.
+- I love to work. I absolutely love to work.
+- We can't really do any improv on 'The Big Bang' because we don't understand a lot of what the dialogue means to begin with, because of the physics jargon.
+- I don't know what to do with myself between films. I end up doing unhealthy things like shopping or drinking. I'm pretty schizophrenic about it.
+- I'm still a Chicagoan in the fact that I can't do Christmas with sand and palm trees. It just doesn't compute - it's not Christmas unless your face hurts when you step outside.
+- Comedy is similar to hockey... in only one way. You get a lot of credit for assists. So I try to serve whatever the intention is, be it the joke or the story or the scene or the moment or the kiss, even if it's not my joke or moment.
+- I bought a little hideaway up north, so I'll ship my motorcycle up there. It's much less dangerous than West Hollywood.
+- I know a lot of incredibly, profoundly talented, skilled people that aren't given certain opportunities or any opportunities, and that aren't working.
+- When you read the news, and you see all this bad stuff happening, there's a tendency to lose faith in humanity. But I meet so many people who restore it and realize that, actually, 99 percent of people are great.
+- Perhaps 'Big Bang' fans feel so protective of the show because it is, despite being a hit show on a big network, something of a word-of-mouth phenomenon.
+- Scientists are not these guys in lab coats deep in the inner bowels of universities and hospitals with their Bunsen burners. They're the people molding the culture that we live in, the future of our culture, and the technology we rely on every day. These are the rock stars of our time right now.
+- When I'm back home in Chicago, since 'Roseanne' was such a Midwestern, blue-collar show, that's what sticks out in people's minds.
+- I read the papers, and I watch the news a lot. I watch 'Dateline' and '48 Hours.' And I think we have a tendency to become terrified of one another, thinking that there is a serial killer that is on either side of you.
+- You know, I read the papers and I watch the news a lot. I watch 'Dateline' and '48 Hours'. And I think we have a tendency to become terrified of one another, thinking that there is a serial killer that is on either side of you.
+- Growing up in Chicago, I was a theater nerd. That might be very cool on the East Coast, but in Chicago, it's really the athletes that come in No. 1 on the cool scale. Maybe musicians after that. Community theater? That's way down the list, my friend.
+- It's never been a priority for me to concentrate on the likability of the character.
+- It's always interesting for me to watch the pilot of an established show because you see how the writers and actors weren't really sure what the show was and what the dynamics were. If you look at the pilot for 'Seinfeld,' for example, it's practically unrecognizable.
+- As they say, there are two rules in improv: Never say no, and never ask why. When another actor asks 'Why?' or says no to something you're suggesting, then it's very clear that they're putting the onus on you, because they're not comfortable with it themselves.
+- I used to know Jennifer Love Hewitt. We lived in the same apartment building when I was about... jeez, I guess it was when I was doing 'Christmas Vacation', so I was about 13 or 14.
+- There is that stereotype of a nerd with the high pants and pocket protector and that kind of thing. That can sustain comedy for maybe a movie - hence the 'Revenge of the Nerds' franchise - but not for hopefully years on the air. It's a sight gag, not a story.
+- You can't really claim too much ownership of your character. They really do belong to the writers, and in many ways, you're just their puppet.
+- People are complicated; you put two of them together and it's generally a mess, but hopefully a beautiful mess.
+- It took me a long time to realize that to walk around without a certain amount of belief in myself, to walk onto a job with my tail between my legs, wasn't behooving anyone else.
+- I watch '60 Minutes' and 'Dateline' and '20/20.' I work in fantasy all day, so when I go home I want to touch reality.
+- I work in fantasy all day, so when I go home, I want to touch reality.
+- Scientists are not these guys in lab coats deep in the inner bowels of universities and hospitals with their Bunsen burners. They're the people molding the culture that we live in, the future of our culture, and the technology we rely on every day.
+- My parents would have their friends over - their friends who thought, 'How can you live without a TV?' By the time they left, they understood why, because I had done the second act of 'West Side Story' and the first act of 'Jesus Christ Superstar,' playing all the parts. In many ways, that's what I'm still doing. I'm just getting paid better.
+- You get to a certain point - gratefully - when you're out of your twenties, and you realize how fleeting life is. So, it becomes important to feel as if the people in your life know exactly how you feel about them at all times.
+- People always ask about learning all of your lines as an actor, and it's generally the easiest part of the job.
+- I was the sibling that kind of kept it all on a level when life at home got tough. I did it through comedy, sarcasm and distraction. All families are complicated, but my home life was glaringly uncomfortable much of the time, and it was me that took the onus.
+- 'Entourage' is a great show, but it's fantasy. I spent my twenties in L.A. in this business, and my life didn't look anything like that. 'Big Bang' reflects a side of men that is rarely shown. We see their flaws - all of them.
+- When I grew up, scientists were anti-social people who worked in basements and wore coats and worked with bunson burners, and now they're in our technology every day, and our technology has almost become fashion accessories.
+- When I started on 'Roseanne,' it was a great achievement for me at the time. But I wasn't a part of building it; I wasn't a carpenter in creating that juggernaut.
+- We didn't have a TV because we didn't have a whole lot of money. My parents would have their friends over - their friends who thought, 'How can you live without a TV?'
+- Theater audiences don't pull punches. They'll let you know when they're feeling ripped off.
+- I'm a fan of music in general.
+- Right now, I'm very healthy. I have no vices left. Except sugary breakfast cereal. And absinthe, of course.
+- I'm not at my best when I'm not working - I'm certainly not at my happiest. Acting will always be my first love.
+- I was a huge theater geek growing up, and that was not the easiest thing in the world, especially growing up in Chicago, where sports are really the norm. I was always off to the theater at night, from 7 years old on. Friends there in the Midwest who could talk to you about the idiosyncrasies of 'Pippin' were few and far between.

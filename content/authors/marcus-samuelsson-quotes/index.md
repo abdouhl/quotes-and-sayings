@@ -1,0 +1,169 @@
++++
+author = "Marcus Samuelsson"
+title = "Marcus Samuelsson Quotes"
+quotes_len = "163"
+description = "the best 163 Marcus Samuelsson Quotes"
++++
+- In the hot summer months, popsicles are a perfect way to cool down while enjoying a delicious, fruity treat. Frozen, refreshing, mouth-friendly candy on a stick cannot get any better... or can it?
+- I love using rice as a flour; I'll grind roasted rice and dip fish in that. It gives a beautiful, crunchy texture.
+- The fact is that more and more people are developing a sensitivity to gluten, without necessarily being allergic to it.
+- Here's a thought: what if we ban the word 'healthy food' from our culinary vocabulary? I'm not talking about banning foods that are considered healthy. I'm talking about changing the way we think about food overall.
+- When I ride the subway back and forth, sometimes I look at the other passengers and wonder if any of them are children who have been adopted or parents who have adopted.
+- You have to balance, but you can be aggressive as a chef. It benefits the food. You have to be passionate. You can't be angry cooking.
+- I've been lucky to travel and work all over the world through the lens of the back of the house, and I love that monocle. I love that lens, because it's real people.
+- What makes Harlem special is that at any given time, food seekers can not only find food deeply rooted in Southern, Latin and African traditions, but also can taste the newer Senegalese, Chinese, and Italian influences as well.
+- Coconut is one of those love-hate ingredients.
+- There has long been a debate in the aid community and in Africa about how to most effectively help situations of poverty in developing nations and underprivileged communities.
+- To become a good cook is to know yourself, and I, at this point, know myself. I know myself, and I know the cook I want to be and the cook I am striving to be.
+- Without food, we cannot survive, and that is why issues that affect the food industry are so important.
+- The food business is very tough, but there's also a lot of love and very giving.
+- The holidays are my favorite time of year! Christmas was always one of the biggest celebrations in Sweden, and I look forward to the festivities each year.
+- I stand behind everything I've done.
+- I feel like there's a lot of tasks in cooking that I want to master, that I want to do better.
+- While most individuals use the flesh of the coconut in their cooking, coconut water and oil are also known to have numerous health benefits.
+- I get so tickled when that pilot happens to be an African American because I rarely see that. The same is true when I go to find restaurants. I mean, most places I go, I kind of have some idea who the chef is, which is why I want to go.
+- I came into this environment where there was so much love, so much positive energy. I never heard my parents say, 'We have adopted kids.' The minute my sister Linda and I landed in Sweden, we were their kids.
+- I think it's very expensive to not eat healthy. Eating healthy is the only affordable option we have left.
+- As a chef and activist, I'm particularly concerned with food politics issues such as the farm bill.
+- Thanksgiving is probably my favorite holiday - it's a day that's American to the core and it's a day that's all about what and how we eat.
+- It's often hard for us to imagine going without some of our luxuries like travel, dining out, or Internet, much less our basic necessities like food and water. But try for a minute to imagine how life would be with such deprivations.
+- For decades, many blacks were reluctant to pursue a profession that was associated with servitude. If you went to school, it was to become a lawyer or doctor. Older generations didn't understand why one would spend money to learn how to chop, peel, dice, and saute vegetables when that trade could be taught at home.
+- Avocados have a creamy texture, making them a healthier replacement for ingredients like butter and mayo in recipes, though they do contain a surprisingly large amount of fat - a whopping 30 grams per medium-sized avocado.
+- I always get asked for suggestions on what to get food-lover friends. While there are many gifts out there that a foodie would love, it's always good to do some research beforehand so you know you're getting a gift that will last.
+- I met Charlie Trotter before I actually saw him in person; I was 24 when I first opened the pages of Charlie's cookbook 'Charlie Trotter's' and was greeted by a man I would know and admire for the next 20 years.
+- People come up to me all the time and ask how I stay the way I am, and it's no secret. The first lesson a chef needs to learn is how to handle a knife; the second is how to be around all that food.
+- In Ethiopia, food is often looked at through a strong spiritual lens, stronger than anywhere else I know. It's the focal point of weddings, births and funerals and is a daily ceremony from the preparation of the meal and the washing of hands to the sharing of meals.
+- As a chef, I always have in mind how to properly feed the public, but at times it's easy to forget that some people have trouble even getting any food, much less adequate nutrition.
+- I learned at a young age what chasing flavors meant, and I've been doing that my whole life.
+- In the harrowing aftermath of Haiti's earthquake, one of the greatest needs became desperately clear: safe water.
+- Children want to mimic adults. They notice when you choose to prepare fresh vegetables over calling in another pizza pie for dinner. They will see that food made with love and care outweighs going through the drive-through window.
+- Since the gluten-free diet is not for everyone, it's recommended that you stick with a gluten-free diet for at least 3 weeks first to see if it works for you.
+- Cooking is in an honest profession where you cannot hide and let others do the work for you. You have to show up, work hard and prove you can do it faster and better. And find a mentor who will recognize your talent and push you in the right direction.
+- As people of color, it took a whole generation in many ways to get us out of the kitchen, and it's gonna take us the same whole generation to get us back into the kitchen and have ownership of restaurants, hotels and stuff like that.
+- I can take a lot of pride that I can launch cookbooks and there's an audience out there that supports that.
+- I'm a firm believer that people find their own passions.
+- It's fascinating when you're from another place, but you don't speak the language.
+- The reasons for food insecurity are many and varied. But part of the problem is the global farming systems.
+- In America, we are engaged in constant battle with food.
+- While I hold my own political views, it's important not to get too wrapped up in individual candidates and personalities, but instead to focus on the real issues.
+- When I get the chance to make my favorite breakfast on the weekend, I often choose to make pancakes.
+- While keeping active is a major aspect of staying fit, what you use for fuel definitely factors in.
+- I had great schooling, and my parents were always in front of me, or next to me, or behind me, making sure I had whatever I needed.
+- My father was a big influence - it was very important to him that we traveled, and he gave me my strong work ethic.
+- I cannot stress a greater importance than to teach the young generation about the risks of unhealthy eating. A great way to pique their interest in nutrition is to involve them more in the cooking process. They not only will learn to cook for themselves, but also develop a lifetime of healthy habits.
+- I learned from my grandmother, who grew up in devastating war times, how important it is to keep with tradition and celebrate the holidays during tough times.
+- I'm engaged in food on so many levels, and I love that. So my work, my craft, is around food, and writing is one aspect of it; communicating a narrative, cooking online is one aspect of it; solving the food chasm that we have in Harlem and finding a farmers market is another one, and all of them are equally exciting for me.
+- Healthy can be the new good. Eating delicious should not be sacrificed because it's healthy.
+- When I'm in need of a quick meal or party dish, a burger is hands-down my go-to pick! Burgers are easy, fast, and don't even require utensils to eat, making them the perfect get-together main course, tailgating essential, and simple dinner recipe to whip up any night of the week.
+- Each city should have its own type of restaurant.
+- There shouldn't be an announcement that divides our food between what tastes good and what is good for us.
+- Getting to a place of comfort can be uncomfortable.
+- While some people may think being a chef only entails making enticing dishes and pushing the culinary boundaries, being a part of the food industry involves much more.
+- Criticism is part of the creative man's journey, and I appreciate it.
+- It's key to know which essential foods will keep you going and help your body recover after hard work.
+- Between the ages of six and nine, my palette was taking shape as well as my identity as a chef. It was then that I learned the difference between salty, sweet, sour and even spicy.
+- I had seen the photographs of Harlem in its glory days, stylish men in bespoke suits, women so well dressed that they'd put the models in 'Vogue' to shame. I knew that Harlemites loved to dance, to pray, and to eat.
+- I started cooking for the love of cooking, and I am going to keep cooking whether there's a celebrity aspect to it or not.
+- My father loved to take us on historical vacations, and you should have seen the stares we received in East Berlin.
+- Many people are turned off at eating vegetarian because of the misconception that all dishes are just an arrangement of bland vegetables.
+- I don't have memories of Ethiopia as a child. I didn't learn about Ethiopian culture until after I moved to New York and started meeting people from the Ethiopian community.
+- I credit my grandmother for teaching me to love and respect food. She taught me how to waste nothing, to make sure I used every bit of the chicken and boil the bones till no flavor could be extracted from them.
+- I love chicken. But, like a lot of chefs and cooks, I get tired of preparing it the same way.
+- Sweden was once a very homogenous society, but no more. For decades, people have been coming into Sweden from all over the world, and that's changed the way we cook.
+- Even just a few spices or ethnic condiments that you can keep in your pantry can turn your mundane dishes into a culinary masterpiece.
+- I feel fortunate to be part of the cooking community. We learn from each other.
+- Chocolate is one of the world's most beloved discoveries, and when we need a quick boost of energy and endorphins, chocolate is the go-to treat.
+- The same ten dollars you spend on lunch is all it costs for City Harvest to feed 37 kids who are hungry. That's pretty astounding.
+- Pasta isn't just for Italian food anymore. Now there are tasty pasta recipes found in Asian cuisine, and it's emerging as a newfound love for vegans.
+- Chefs don't eat at normal hours, so the only time you feel like you really need a meal is after service, when you're exhausted and just crave something to help you wind down.
+- As a chef, I could not wash my hands - nor clean pots, pans, utensils, meats or produce, nor make soups and sauces - if I did not have clean water. Were this to happen, of course, these would be the least of my concerns. Because water is the linchpin of survival: without it, not much else matters.
+- People might not protest for overtly political or social causes, but when they can't feed themselves and their family, they will take to the streets.
+- Going meatless reduces our carbon footprint and helps us lead the way towards climate change.
+- As an adopted person, once you find out about that 'other' side of yourself, it's almost like you find out who you really are.
+- Let the fresh fruits and vegetables be your guide, and make something that will keep for the whole week.
+- The dialogue and conversation about food is everywhere - television, chat rooms, social media outlets and among everyday conversations.
+- Although I may not know a lot about football, I do know a lot about food! As a result, not many people ask me to join their fantasy leagues, but they will come to me for suggestions on what to serve for guests for a weekly Sunday get-together.
+- When you are already eating as cheaply and meagerly as possible, any raise in cost can quickly plunge you and your family into hunger.
+- For many sports fans, the onset of fall only means one thing: It's football season!
+- Harlem is not a playground for rich bankers and consultants. It's got students of all colors. It's got old people who keep history and tell tall tales.
+- What I love about the term 'salad' is that it can appear in so many different forms and says a lot about the cook. It could be a simple as fresh green lettuces tossed with a basic vinaigrette, or it could be as hearty as a couscous salad with grilled shrimp.
+- For centuries, soup kitchens have been a way for local communities to offer a way of support, both nutritional and emotional to their less lucky neighbors.
+- I want people to understand my journey and to be inspired by that. You can be an immigrant, and if you work really hard, you can have your own restaurant.
+- Food has always been in my life. Being born in Ethiopia, where there was a lack of food, and then really cooking with my grandmother Helga in Sweden. And my grandmother Helga was a cook's cook.
+- We know so much about the European food story, and we're getting to know about the American food story; but we know so little about the African food story.
+- I would love to take a cooking class from Gandhi. Maybe I could teach him how to cook, and he could teach me his message. I wouldn't mind learning how to make couscous from scratch from a North African woman, either.
+- When you're in Portuguese-African Brazil, or Lisbon, or Mozambique, sometimes piri piri is used as a condiment. Sometimes piri piri is just spices from a jar, and sometimes it's made with garlic, olive oil, cilantro, parsley, and some light chilies.
+- The journey into adoption started for my parents, as it does with so many families: my mother and father desperately wanted to have kids, but they couldn't.
+- Casseroles don't have to be about canned ingredients and vegetables you normally wouldn't even think of eating alone, much less stuck in between layers of sauce and breadcrumbs. They can vary from everyone's favorite all-time casserole, macaroni and cheese, to the ultimate English casserole, Shepherd's Pie.
+- If you get hungry mid-day, a banana is the best snack at your desk, after a workout, or in between classes. Fruit is a very good snack in general.
+- Not only does the summer bring warm weather and tons of summer activities, but it also yields a fresh crop of increasingly useful avocados!
+- I want to make sure the cooking industry becomes more and more diverse.
+- Although I believe affection and romance should be shown all year around, it's always smart to have a good plan up your sleeve for Valentine's Day.
+- There are so many times there could have been a left turn instead of a right turn in all people's lives. I think mine are pretty crystal clear, because of being adopted, being born in Ethiopia, being adopted to Sweden.
+- I am many different things, and that is why I am so proud to be American.
+- It wasn't until I came to New York and started to see the African American community, but also the Ethiopian community here, and started to eat the food, started to understand the music. I said, you know, I got to go and understand the culture. So me and my sister went.
+- Finding creative and effective ways to simultaneously give back and economically empower people is something that is increasingly important. Not everyone can open a business and directly create jobs in the way that we have at Red Rooster Harlem.
+- They say never trust a skinny chef, but the fact is, to stay healthy when you're a chef means you have to work twice as hard.
+- Like all food, whether you're talking about Persian food, or Chinese food, or Swedish food, it's always a reflection of wars, trading, a bunch of good and a bunch of bad. But what's left is always the food story.
+- Cooking turkey every year doesn't have to be monotonous - I want people to always mix it up using different spices and preparations.
+- Being an Ethiopian-born, Swedish-raised chef, there's nothing traditional about my Thanksgiving spread.
+- I happen to love coconut, particularly for that sweet and crunchy texture it adds to any dish.
+- If it's done really well, you don't want big portions because you think, 'That was so fulfilling. I'm not stuffed. I feel great.'
+- I am a chef through and through. Everything I do - whether it is cooking for kids in Harlem or cooking in a fine dining establishment - all my days are consumed by food.
+- I've lived all over the world, but Harlem is very special to me, and when I decided to open a restaurant near my home, I didn't want it to be business as usual.
+- I think the kitchen is the new garage. And I think for a guy that wants to go out and be an evolved person, he should know about his local favorite restaurant. He should know how to cook something.
+- I'm an avid runner and play soccer every weekend, but I also have to constantly watch what I eat, and I'm always thinking about how to balance my meals.
+- Most people cringe at the thought of a casserole.
+- I always suggest something fast and simple so you have more time to share with friends; and when we think of the ultimate food to serve for a football game, only one thing comes to mind - wings!
+- For me, brunch is such a versatile meal since you can play on both the sweet and savory in your dishes.
+- While eating gluten-free may help you lose weight initially because it eliminates baked goods, one has to be smart when choosing replacement options because the gluten-free versions often have the same number of calories.
+- Coconut oil is one of the most beneficial sources of fat. It is comprised of medium-chain fatty acids or MCFAs, which are easier to break down and metabolize into energy than large-chain fatty acids, which are often stored in the body as fat for later use.
+- Aside from the obvious chocolate cookies and ice cream, chocolate can be used in a variety of ways for desserts.
+- Cooking with your kids and engaging them in hands-on activities are two ways to begin to educate children about the healthy eating, and kick start the important task to help change how the younger generation looks at food and nutrition.
+- Many popsicles you'll find in a supermarket have a lot of unwanted sugar or preservatives, but with a few ingredients you can make healthier popsicles with any flavor you can imagine.
+- A juicy chicken breast can be the perfect accompaniment to a classic Caesar salad or a club sandwich. It's also easy to cook, and can be as simple as dressing it with a few spices and popping in the oven.
+- Packing lunches and going over menus is a great way to make small changes in the way your kids eat.
+- Pot lucks are fun, especially when you encourage your guests to bring dishes that represent their families or cultures.
+- Clean water and access to food are some of the simplest things that we can take for granted each and every day. In places like Africa, these can be some of the hardest resources to attain if you live in a rural area.
+- I love cookbooks for completely different reasons. I love 'The Harry's Bar Cookbook' and Marco-Pierre White's 'White Heat' for their feel. For pure learning, Gray Kunz wrote a great cookbook, 'The Elements of Taste', published in 2001. The first time I read Charlie Trotter's, the Chicago chef's first cookbook, I was blown away.
+- Oatmeal is a cheap and healthy breakfast.
+- I love Thanksgiving because it's a holiday that is centered around food and family, two things that are of utmost importance to me.
+- Whether you're on a diet, or you're looking for a go-to one bowl dinner recipe, salads should be thought of as crowd-pleasers, not a dreaded component of a meal.
+- Spices, of course, are essential.
+- While I'm more of a soccer and tennis fan myself, I still enjoying catching some football games when I get the chance.
+- Most of my education has been around food.
+- Not only are pasta dishes delicious, but they are also great, easy options for a quick dinner during a busy weekday.
+- I'm lucky to live in New York, a city that offers so many options for lunch. I can pick up dumplings from a Midtown food truck, grab empanadas by the dozen in Spanish Harlem or get a fantastic bowl of ramen in the East Village.
+- Childhood nutrition and healthy eating is a cause that is extremely close to my heart.
+- While you can find zucchini in markets in most places year-round, allowing you to make everything from breakfast dishes like zucchini and onion frittatas to snacks like zucchini-stuffed crab cakes, the onset of fall marks the beginning of hard squash season.
+- Certain foods are good for preparing your body for an intense workout and giving you the energy you need to endure it. Others are great for after exercising to help you maintain calorie burning, build muscle, and prevent cramping.
+- I love having a croissant and a great cup of coffee. Just one cup.
+- Since truffle oil and caviar aren't always in the budget, learning to tweak and enhance just a few ingredients and flavor combinations can help you transform those ordinary ingredients into the extraordinary!
+- The darker the chocolate is, the more antioxidants it contains. So when eaten in moderation - just a few bites from a well-made dark chocolate bar, for instance - there's no need to feel bad about indulging once in a while.
+- I'm an American chef. I'm American. I live here. I love being here. But, of course, it is different. A black man's journey is different.
+- We can all agree that government can't solve the obesity crisis alone. It's an ongoing issue that will require a collaborative effort across private and public sectors if we want to see some long-term success.
+- Every day, whether I am teaching or entertaining - I absolutely love bringing different people and cultures together.
+- My family's journey is something I am very proud of - in front of me, behind me and every part.
+- I think that if you grind your spices and keep them in small batches, you can use them in endless ways. The key thing is to have a spice mill or a coffee grinder, and to keep your spices cold and in tightly lidded boxes.
+- I don't distinguish the music I listen to from great music - it's just music. There shouldn't be an announcement that divides our food between what tastes good and what is good for us.
+- Thanksgiving is one of my favorite American traditions. I quickly picked it up when I moved to the U.S. from Sweden.
+- Taking dishes straight off the restaurant's menu and putting them into a cookbook doesn't work, because as a chef you have your own vision of what your food is, but you can't always explain it. Or you can't pick recipes that best illustrate who and where you are and what you're doing. And if the recipes don't work, you don't have a book.
+- With all the endless varieties and toppings you can add to burgers, there's no need to keep munching on the boring burgers and ketchup found at all the tailgating events and BBQs.
+- Everyone's favorite breakfast dish can be prepared in a moment's time with just a few ingredients and minimum effort.
+- The avocado is native to the Mexican state of Puebla, which helps explain why it's so popular in Mexican cooking.
+- Just like keeping a healthy diet is important to maintaining a healthy lifestyle, eating the right foods is just as important for getting the most out of your workout.
+- Weekends are sacred for me. They're the perfect time to relax and spend time with family and friends.
+- I have never seen a picture of my mother. My mother's family never owned a photograph of her, which tells you everything you need to know about where I'm from and what the world was like for the people who gave me life.
+- My parents were there: in front of me, behind me, in the middle of my life at all times: reprimanding me, giving me confidence, teaching me valuable lessons, to help make me the man I am today.
+- Egypt is the largest wheat importer in the world. In some part, this is due to irrigation issues and inhospitable climes. Egypt's dependence on wheat is also partially because for decades it has been cheaper to import wheat, corn, soy and barley from the U.S. than to grow it locally.
+- I had a long-lasting love affair with the flavors from Japan and the hustling New York street vendors. And, of course, a life-changing return to Ethiopia has made huge impacts on my life in food.
+- Most cultures traditionally link food and spirituality directly with periodic restrictions and celebrations punctuating the year. Abstinence from particular foods or full-on fasting is part of many religious traditions and holidays.
+- Even before the earthquake in Haiti, only half the country's population had a source of safe drinking water.
+- Simple ingredients can be used to make elegant dishes with just a little extra attention to detail.
+- We struggle with eating healthily, obesity, and access to good nutrition for everyone. But we have a great opportunity to get on the right side of this battle by beginning to think differently about the way that we eat and the way that we approach food.
+- Eating vegetarian doesn't mean you have to eat boring, humdrum dishes.
+- The Swedish Christmas is definitely unique, even throughout Scandinavia. Like Christmas everywhere, it's a very family-centered holiday.
+- Salad can get a bad rap. People think of bland and watery iceberg lettuce, but in fact, salads are an art form, from the simplest rendition to a colorful kitchen-sink approach.
+- For many of us, clean water is so plentiful and readily available that we rarely, if ever, pause to consider what life would be like without it.
+- The opportunity here in the U.S. is so unique because we are so diverse, with so many different cultures living together. Christians, Jews, Hindus, Muslims and Buddhists, all with their own connections to the spiritual aspects of food and with lessons that we can learn from each other.
+- Every time you use the word 'healthy,' you lose. The key is to make yummy, delicious food that happens to be healthy.

@@ -1,0 +1,14 @@
++++
+author = "Jennifer Johnston"
+title = "Jennifer Johnston Quotes"
+quotes_len = "8"
+description = "the best 8 Jennifer Johnston Quotes"
++++
+- I have got pictures all around the rooms I sit in. I have got a very mad picture of a dog standing on a black thing on a piece of rope. It was drawn and painted by a Romanian poet who was under house arrest, and it is terrific.
+- My father was a little frightening - a huge man, six foot four - and he looked like God. He was always a visitor, as far as I was concerned, because my parents separated when I was nine. We only became friends when he was old and began to shrink. During the war, he was a BBC war correspondent and did some extraordinary broadcasts.
+- I don't want the sort of funeral that everybody else has, but there is one hymn, a good Protestant hymn, and it is sung at all Protestant funerals, and I think I should have it sung at mine. It is called 'The Day Thou Gave Us Lord is Ended'.
+- I had an emerald ring that my mother gave me four or five years before she died. She wore it always, I wore it always, and I have given it to my daughter, and she wears it always. This ring belonged originally to my great, great grandfather. It's well over 150 years old.
+- Writing about carrying the past on your back is a manifestation of my Irishness, because we go on and on and will for another two or three generations.
+- I didn't believe in a guardian angel when I was young. I was brought up in the Protestant faith, and the one thing you had over your Catholic friends was that you didn't have those awful saints chivvying you around.
+- I think I have got a very good sense of humour; other people don't, but I do. I also laugh at my own jokes.
+- Look around at the countries of Europe, and you'll find that practically all of them have pasts that are just as tragic as Ireland's, yet the people seem able to find some creative way at moving into the future.

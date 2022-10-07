@@ -1,0 +1,20 @@
++++
+author = "Mindy Mccready"
+title = "Mindy Mccready Quotes"
+quotes_len = "14"
+description = "the best 14 Mindy Mccready Quotes"
++++
+- I think my life did go the way it was supposed to go for me.
+- I never wanted to marry Roger Clemens. I wanted him to do right by his family.
+- My mom and I have always had issues.
+- My dad is a good dad.
+- My public persona is badly warped and bears little resemblance to the person those closest to me know.
+- Yes, I have known Roger Clemens for a long time.
+- My fame came from my success as a country music singer.
+- I'm not blaming my mom for my life because I am responsible for me, and nobody can change me or ruin me easier than I can.
+- No matter what happens, I'm going to protect my kid.
+- Roger Clemens is one of the most wonderful men I've ever known. I loved him very much... still love him to this day. He treated me like a princess.
+- I'm a mom first.
+- I love my mother. I do love her.
+- I call my life a beautiful mess and organised chaos. It's just always been like that. My entire life things have been attracted to me and vice versa that turn into chaotic nightmares or I create the chaos myself.
+- I've spent my fortune, tarnished my public view and made myself the brunt of punch line after punch line.

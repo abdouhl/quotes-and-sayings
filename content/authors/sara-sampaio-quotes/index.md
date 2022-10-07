@@ -1,0 +1,81 @@
++++
+author = "Sara Sampaio"
+title = "Sara Sampaio Quotes"
+quotes_len = "75"
+description = "the best 75 Sara Sampaio Quotes"
++++
+- My favorite nights out are the most random ones - when they start at a bowling alley and end up someplace you don't even know where. Those are my favorite - the most random ones that you don't plan, when you meet up with friends, and you're supposed to do something and end up doing something else.
+- For me, a snack is supposed to be unhealthy! I like having chips or popcorn when I'm on set.
+- There is makeup, there is hair, and there is the perfect light. There is a whole team that gets you to get that perfect picture. It's a fantasy.
+- Wheat makes my stomach very bloated. Sugar is horrible for my skin, but I love it.
+- At the end of the day, we came into the world naked, and that's the way we're going to go.
+- I find most of the things I've done through the Internet. I'm like, 'Oh, that's how that turned out! I look good!'
+- I tan very easily. I always wear SPF50+ sun cream; however, I still go very dark brown.
+- Lisbon is incredibly beautiful.
+- I love all the teenager stuff like 'Glee,' '90210,' 'Vampire Diaries,' 'Gossip Girl.'
+- I tend to curve my back or pop my hip on the side. I always like to turn a little bit profile, and if you put one of your knees in, it also gives the illusion of more curves. There are a lot of tricks - you learn on the job sometimes.
+- I can never finish a burger, and even if it's just a millimetre, I'll leave it. I don't know why I can't finish it. I don't know if it is physiological, but I just feel like I'm full halfway through it.
+- I would say I'm blessed genetically, but I also don't restrict myself from any types of food.
+- I have no dating life.
+- When posing in lingerie, I suck everything in and pop my hip out a little bit. If you lie on your side and draw one knee in a bit, it makes you look more curvalicious.
+- When we go somewhere, my dad will start shouting my name very loudly. He'll yell, 'Oh, my God, it's Sara Sampaio!' My brother does the same.
+- I'm going to be a very bad Portuguese right now - I'm actually not a fan of pastel de natas. I'm just not a fan of cream.
+- I used to not have any confidence when it came to my body - I developed very late in terms of being a girl!
+- I lived in Paris for about nine months. It was an experience.
+- My guilty pleasure is definitely candy! Skittles are my favourite.
+- I can speak English, Portuguese, and a bit of Spanish, or Sportugal. It's a mix of Portuguese and Spanish. I understand French and Italian, but I can't speak them.
+- In Porto, you have to eat francesinha. Translated, it means 'little French girl.' It's this sandwich of bread, ham, and a lot of beef sausage or other meats. Then you put melted cheese on the top. The special thing about it is the sauce. Each house makes a special secret sauce, and it's usually a bit spicy.
+- New York cold gets into your bones, and you can't move.
+- Everybody's skin is different, so you need to find products that work for your skin type. I use a lot of facial oils, as mine can get very dry.
+- I love Paris, but it's not a city I would like to live in. It's one of my favorite cities but just in small doses.
+- I am not really into paintings, to be honest, but for me, the art I love is when I see singers putting their heart into their song, actors giving the performance of their lives, and books and movies that make me feel something I never thought I could; there's art in everything as long as it's made with soul.
+- I've always loved English and loved English music and TV shows.
+- I'm obsessed with great white sharks. And I want to dive into the coral of the Great Barrier Reef.
+- I have a dog. He cuddles with me all night, so I don't really need a boyfriend.
+- When I eat out, I tend to go for the things I like instead of the things I need.
+- It's very important to feel good, but I know it's hard sometimes to look in the mirror.
+- I like to start my day after noon. I'm not a morning person at all!
+- I try to work out twice a week. I don't restrict myself from any food in my diet; I think it's all about balance. I'm also very lucky with my genetics and metabolism.
+- Most of the time, I do my own hair. I have good hair, so I don't need much. I don't need a hairdresser to come unless I want something very specific.
+- I hate having my feet touching stuff. And I've been finding people that have the same thing. It's not a phobia; it just gives me goose bumps.
+- I just try to love my body, to embrace who I am and really be the best version of myself. You have to know how much you're worth.
+- Models are people. A lot of people like to make us some species that are not human; we are normal people.
+- As women, we need to stand together. We are judged and objectified often enough by men.
+- The worst is when you read things on the Internet blogs, because people don't hold back. Sometimes you read wonderful things, but sometimes it's really awful stuff. Like on the Fashion Spot, for example, people always comment on you. They forget that we might read that stuff.
+- I moisturise a lot. I use Victoria Secret's hydrating body lotion.
+- I'm like every other girl; there are things I wish I could change about my body, but I try not to think about them too much.
+- I really don't think we should label models as 'plus' or 'runway.'
+- My body doesn't have a lot of curves; I have small breasts, I don't have hips - so I'm not going to try to make myself something that I'm not. I'm just going to try to be the best version of myself.
+- I hate being barefoot.
+- If I do something, I want to be the best. And one of the best things you can be is a Victoria's Secret Angel; for me, that's always been a goal.
+- Australia's a place I've always wanted to visit because of the beautiful beaches. I am surprised by how cosmopolitan the cities are; it wasn't what I expected.
+- When I started modeling, I didn't know anything about fashion, but I'd watched the Victoria's Secret show.
+- I think it's important to try to find the positives. Then, look at the things that you don't like and see if you can change them or not.
+- When it comes to beauty, I feel that hanging with people you love, laughing, and doing silly things gets your spirits up. We are always prettier when we are happier.
+- I grew up with a Mediterranean diet, so I like clean, simple food. But if there's pizza on a menu, I always end up ordering it. I can't resist it.
+- I think my first album was a gift for my birthday and a Faith Hill album; I loved her.
+- Dealing with negative comments is part of this job, and I've had to develop a thick skin, though some days it's easier than others.
+- I try and avoid cardio because it makes me lose a lot of weight. Instead, I do resistance training, model fit workouts, and ballet.
+- I love simple, elegant clothing with a hint of sexy, and that, for me, is so hard to find. I usually always end up finding Australian brands, and Kookai is an example of that.
+- I shoot swimsuits and lingerie all the time, so I want to make sure I'm in the best shape. It makes me want to work out harder than usual.
+- I'd definitely love to be a spokesperson for a major beauty brand.
+- Everything I do lands in the newspapers.
+- I grew up in Portugal, and people there party 'til 7 or 8 in the morning there.
+- I don't have any rules about what to wear when I go out. I go through phases. Sometimes I'll go out in jeans and a top and not even wear heels. Sometimes I want to be more sexy, in a dress and heels.
+- I'm pretty comfortable stripping down to my underwear, as long as there's respect around me.
+- I must have, like, four different types of lip moisturizer in my bag!
+- You can achieve anything you put your mind and hard work to.
+- I'm not the healthiest eater; I'll admit that. I love junk food.
+- It comes down to balance when consuming food - I'll eat burgers, pizza, candy, and then I'll balance it out with fruit, salad, fish... and of course I work out.
+- Being in shape is part of my job, so I try to work out twice a week.
+- I've been very obsessed with 'The Royals.' It's not going to win any Oscars or Golden Globes or whatever, but I really, really enjoy it.
+- I try to cook more now so I can control my diet and what I ingest.
+- I'm very lazy when it comes to taking care of my underwear. I should hand wash it all, but I can't be bothered. So instead, I keep ruining stuff by putting it in the washing machine.
+- There aren't a lot of Portuguese models, so everyone always expects me to be Brazilian because of my features, sometimes even American, as I have a slight American accent when I speak English.
+- You can't spend three hours at a gym and then go eat everything.
+- I've always had very high aims for my life and for my career, for anything that I do.
+- I think it's very important that girls see themselves as a brand - they have to go after what they want and be ready to work very hard.
+- I don't have a lot of curves, and I'm very skinny, so I always feel like I have to fake my curves a little bit.
+- Try to be the best version of yourself.
+- I just think no one should try to make their body something that it's not.
+- In New York, I am barely recognised, or people don't really care. When I go to Portugal, I go outside to a public place and am recognised constantly.

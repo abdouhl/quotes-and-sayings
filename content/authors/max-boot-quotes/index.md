@@ -1,0 +1,106 @@
++++
+author = "Max Boot"
+title = "Max Boot Quotes"
+quotes_len = "100"
+description = "the best 100 Max Boot Quotes"
++++
+- My allegiance to the GOP was cemented during the 1980s, when I was in high school and college and Ronald Reagan was in the White House. For me, Reagan was what John F. Kennedy had been to an earlier generation: an inspirational figure who shaped my worldview.
+- Air superiority, which the United States has taken for granted since World War II, is no longer assured. And, without control of the skies, U.S. ships and soldiers would be vulnerable in ways that are difficult to imagine.
+- The United States has been locked in an escalating confrontation with Iran ever since President Trump decided to pull out of the nuclear deal in 2018 and to impose unilateral sanctions in 2019.
+- As a Jewish refugee from the Soviet Union, I felt it was ridiculous to expect me to atone for the sins of slavery and segregation, to say nothing of the household drudgery and workplace discrimination suffered by women.
+- There is little doubt that our society is changing rapidly, but one thing will never change as long as we remain a democracy: the need for voters to know the essentials of our history and government.
+- The scandal isn't that refugees want to come to the United States. It's that Trump is abusing these aspiring Americans and closing our doors to them.
+- We have a long, ugly history of white supremacy in this country, ranging from Jim Crow laws to keep African Americans down to the 1924 Immigration Act to keep non-Europeans out.
+- There is a small group of 'Never Trump' conservatives. But it is a small group, and I've actually been surprised that there are not more of us. There's enough of us for a dinner party, not a political party. I wish there were more.
+- Stupidity is not an accusation that could be hurled against such prominent early Republicans as Abraham Lincoln, Theodore Roosevelt, Elihu Root and Charles Evans Hughes.
+- The history of the modern Republican Party is the story of moderates being driven out and conservatives taking over - and then of those conservatives in turn being ousted by those even further to the right.
+- History has been my primary intellectual passion ever since, as a boy in Southern California, I began reading books on World War II and the life of Winston Churchill.
+- There has been an unspoken assumption among establishment Republicans that all they have to do is wait out Hurricane Trump and then return to 'normal' conservatism.
+- Upon closer examination, it's obvious that the history of modern conservative is permeated with racism, extremism, conspiracy-mongering, isolationism and know-nothingism.
+- I have not given up my faith in democracy - it remains the worst form of government except for all the others - but I have given up my youthful expectation that it would inevitably triumph.
+- Soliciting anything of value from a foreign national to help a U.S. campaign is not just illegal; it is the Founding Fathers' nightmare.
+- Mom developed an interest in 'heritage-language education after noticing an increasing number of students in her UCLA classes whose parents were Russian.
+- Before Donald Trump, the Republican Party was a majority conservative party with a white nationalist fringe. Now it's a white nationalist party with a conservative fringe.
+- There is no evidence that Republican leaders have been demonstrably dumber than their Democratic counterparts.
+- The crisis of the old order in Europe produced nearly 80 years of often bloody conflict between democracy and its foes from 1914 to 1991.
+- Mexico attacked United States troops in 1846 because they had moved into disputed border territory; President James Polk used this as a convenient casus belli, but he was preparing a war message for Congress even before the attack.
+- Thirty years on, I am no longer as certain about anything as I was at age 20. I now regret my support for the war in Iraq and kick myself for the naive expectation that freedom was destined to prevail.
+- Protests, such as those in favor of labor rights, women's suffrage, civil rights and gay rights, helped to make America as great as it is.
+- In the 16th and 17th centuries, as many as 60,000 people were executed in Europe as suspected witches. But it would be nice to think that centuries of advances in science and education have made people less prey to phantasms and falsehoods.
+- People who sit for hours in a beach chair or an airplane seat without any reading material simply baffle me: What is going on between their ears, I wonder?
+- Increasingly I feel like a Jew, an immigrant, a Russian - anything but a normal, mainstream American.
+- Neoconservatism' once had a real meaning - back in the 1970s. But the label has now become meaningless. With many of those who are described as neocons, including me, fleeing the Trumpified right, the term's sell-by date has passed.
+- Freedom will not prevail because of historical forces; it will only win, if it does, because of historical actors. In other words, us. Those like me who came of age around 1989 used to take democracy for granted.
+- Once upon a time - in the days of Margaret Thatcher and John Major - I would have rejoiced in a Conservative Party landslide in Britain. But now, Prime Minister Boris Johnson's victory fills me with fear and foreboding.
+- Anyone anywhere - as long as you live in a country that does not censor the Internet - can now read this newspaper. But like diners passing up a healthy salad for an artery-clogging cheeseburger, many information consumers are instead digesting junk news.
+- No President can achieve everything or please everyone.
+- Republicans used to bash President Barack Obama for alienating American allies, but Trump is turning off our partners like no one ever has.
+- I love what I do and realize I am supremely lucky to be able to make my living by writing and speaking about the news of the day.
+- To win in 2020, a Democratic nominee will need to win back voters in key Midwestern states who supported Trump in 2016.
+- Hillary Clinton is a centrist Democrat who is more hawkish than President Obama and far more principled and knowledgeable about foreign affairs than Trump, who is too unstable and erratic to be entrusted with the nuclear triad he has never heard of.
+- You can debate when the conservative movement became a racket - I nominate 1996, the year Rupert Murdoch and Roger Ailes created Fox News Channel to monetize right-wing outrage - but there is no doubt it has long since passed that point.
+- As someone who has spent much of my life identifying as a conservative, I can't stand what American conservatism has become.
+- I remain troubled by the deliberate killing of civilians, whether by the United States or by its enemies.
+- Joining the Grand Old Party seemed like a natural choice for someone like me who fled the Soviet Union as a boy and came to Los Angeles with his mother and grandmother in 1976.
+- History suggests that economic upheavals such as the Industrial and Information Revolutions eventually play themselves out and leave the entire world better off.
+- Logic, fact, morality, legality, ideology: All of it is irrelevant in understanding the Party of Trump. Republicans have made crystal clear that nothing matters to them other than partisanship.
+- At the University of California at Berkeley, my interests broadened from military history to diplomatic history and other disciplines.
+- I find myself increasingly forced to think of my ethnic identity instead of the national identity I adopted as a boy in 1976. That is discomfiting for me, and a tragedy for America.
+- Americans are in vital need of the instruction that historians can provide.
+- Unfortunately, history suggests that dictatorial regimes can withstand years, even decades, of economic sanctions.
+- Only 36 percent of Americans could pass a multiple-choice civics test of the kind that is administered to immigrants seeking to become citizens.
+- And I think the only way you're going to improve US foreign policy and set a sound course for the future is if you're willing to look back at what went wrong before.
+- I yearn for intellectual sustenance on vacation but want, of course, to avoid tedium or boredom. I want to read something that will entertain me but also help me appreciate what I am seeing.
+- For years, as a seller of real estate and star of reality TV, Donald Trump made a living wooing customers and viewers. His selling skills were good enough that he even convinced voters to elect him as president in spite of his near-total lack of qualifications.
+- Trump doesn't need his own agenda if he can terrify independent voters in swing states about what would happen if the Democratic agenda is implemented.
+- I have been a Republican as long as I can remember.
+- Political paralysis and partisanship are sabotaging American power.
+- Silence is complicity. All Republicans who stand mute in the face of Trump's latest racism are telling you who they really are.
+- Everyone from Silesians to Sicilians to Scots seems to want autonomy or independence. The British voted to leave the European Union, and hostility to the superstate is rising across the continent.
+- You simply can't understand the present if you don't understand the past. There is no more alarming case study of the consequences of historical ignorance than President Trump.
+- In 1964, the GOP ceased to be the party of Lincoln and became the party of Southern whites.
+- France has had socialist presidents on and off since the 1920s, and it remains a free country. Socialists have ruled in many South American countries without ushering in disaster.
+- I used to be one of those people who read thrillers on vacation, but for some reason most thrillers no longer thrill me. Maybe because these days reality is far more unbelievable than any fiction?
+- Even being too good at teaching is risky at research universities; the joke is that a 'teacher of the year' award is the kiss of death for non-tenured professors.
+- The genteel conservatism of 'Downton Abbey' is not a rigid, extremist ideology whose adherents are bent on power at all costs.
+- Growing up in the 1980s, I remember when the GOP was the party of ideas. Now it's brain dead.
+- Joe Biden stands out from other Democratic candidates not just by taking on President Trump directly but also by seeking to separate Trump from the rest of the Republican Party.
+- At Mom's funeral, mourner after mourner spoke about what a wonderful teacher she was. She was certainly devoted to her students.
+- I am white. I am Jewish. I am an immigrant. I am a Russian American. But until recently I haven't focused so much on those parts of my identity. I've always thought of myself simply as a normal, unhyphenated American.
+- I still have admiration for the vast majority of police officers, but there is no denying that some are guilty of mistreating the people they are supposed to serve.
+- Whether I realize it or not, I have benefitted from my skin color and my gender - and those of a different gender or sexuality or skin color have suffered because of it.
+- I am by no means suggesting that everyone who uses the neocon label is doing so as an anti-Semitic smear, but the word has been used often enough in that ugly context that it should make any person of goodwill think twice before employing it.
+- Democrats deserve credit for engaging with big issues such as climate change and income inequality and coming up with bold, imaginative solutions.
+- The spread of communications technologies - social media, TV news channels - aggravates societal divisions and discord. All that online snarling is making us jittery.
+- The Immigration Act of 1924 closed our doors to virtually all non-European immigrants - a great wrong that was not rectified for decades.
+- Protests are the very essence of America! It is a country founded in protest.
+- What would I do now, at age 48, if I were deported to a country that I have not seen in more than 40 years and whose language I no longer speak? How would I work? How would I survive?
+- Yet another reason to be angry at President Trump: He is forcing me - and every other American who is not a racist - to defend the most left-wing members of Congress.
+- There are two kinds of people: Those who like active vacations and those who like sedentary vacations. I'm one of the weird hybrids who likes both. That makes me, I suppose, the Jekyll and Hyde of holidayers.
+- Every four years since 1988, I have voted for the Republican presidential candidate.
+- It is, in fact, precisely to defend the right to free speech that countless patriots have given the last full measure of devotion.
+- My mother and I were alike in one crucial respect: We may have been Russian by birth, but we were English in spirit. She was intensely reserved and private, and seldom showed what she was feeling.
+- All acts of terrorism - all killings of the innocent - are an abomination, and one that is made all the worse when the victims are chosen for their skin color, ethnicity, sexuality or religious beliefs.
+- Some people, such as the unemployed coal miners and steelworkers of the Rust Belt, have been left behind by growing prosperity.
+- Irrationality may be more prevalent in the party of climate denial, but it isn't limited to Republicans.
+- Often the process of writing can feel like spitting into the ocean.
+- I saw America as a land of opportunity, not a bastion of racism or sexism.
+- I am certain that my family - my grandmother, mother and myself - had a credit score of zero when we arrived in 1976. There were no credit cards in the Soviet Union, and we didn't have any money.
+- Diplomatic eminences often natter on about preventive action, making the obvious point that it's better to cure festering ills before they metastasize into something much worse.
+- On both sides of the Atlantic, politics has come to be dominated by vitriolic name-calling and pervasive dishonesty.
+- Analogies, in particular, can illuminate, but they can also obscure and confuse. They need to be handled carefully, like rhetorical high explosives.
+- The John F. Kennedy presidency, with its glittering court of Camelot, cemented the impression that it was the Democrats who represented the thinking men and women of America.
+- Having emigrated to the United States as a small boy from the Soviet Union, I am instinctively suspicious of socialism and inveterately opposed to communism.
+- What's true for New York is true for most of the country: We are a long way removed from the double-digit interest rates and unemployment rates, and the soaring crime rates, of the early 1980s.
+- I find contentment in the craft of writing and fulfillment in self-expression.
+- Even getting a college degree does not guarantee a minimal knowledge of U.S. history.
+- Well, a general danger of punditry is that there's very little incentive to change your position or admit error. If you reverse your position, the people who backed you before will be unhappy, but a lot of the people who now agree with you will still pillory you.
+- When Democrats aren't being fiscally reckless, they are economically irresponsible. Democrats bemoan corporate greed and have not a positive word to say about the entrepreneurs that have made our economy the envy of the world.
+- Olga E. Kagan was the strongest woman I knew - and probably the reason I've spent my life with other strong women.
+- The ur-conservatives of the 1950s - William F. Buckley Jr., Barry Goldwater, Ronald Reagan and all the rest - were revolting not against a liberal administration but against the moderate conservatism of Dwight D. Eisenhower.
+- The 60th anniversary of the atomic bombing of Hiroshima on Aug. 6, 1945, has not so far provoked the kind of anguished debate that accompanied the 50th anniversary. The lack of controversy is fitting because there wasn't much soul-searching at the time.
+- But while I am proud to be an American, I am ashamed of what the Trump administration is doing in our name. It is literally rewriting the meaning of America.
+- History education in schools is so poor that students often enter college ignorant of the past - and leave just as unenlightened.
+- The case for democracy is that voters in the aggregate will make better decisions than a lone monarch or dictator would.
+- I don't know if I can ever change the world, but at least I can change the oil in my car.
+- Catering to populist anger with extremist proposals that are certain to fail is not a viable strategy for political success.

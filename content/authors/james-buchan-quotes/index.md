@@ -1,0 +1,74 @@
++++
+author = "James Buchan"
+title = "James Buchan Quotes"
+quotes_len = "68"
+description = "the best 68 James Buchan Quotes"
++++
+- The west has a great deal to answer for in the Middle East, from Britain's belated empire-building after the First World War to the US and British policy that condemns modern Iraq to the material and social squalor of a half-century ago.
+- By pouring money and goods into devastated regions, foreign aid workers sometimes compound the disruption and debauch the survivors.
+- Viewed from a distance, or through the eye of the All-Knowing CEO of the Universe, the crash of 2008 followed the usual pattern. A long-lived boom driven by cheap credit, going back as far as 1982 (though subject to interruptions in the mid-1980s and 1990s, and in 2001), came to grief because of a rise in the cost of borrowing money.
+- An atheist is a man who has no invisible means of support.
+- The use of refined petroleum as fuel, which began in the 1850s, freed hundreds of millions of people from the toil of centuries, gave hundreds of millions more a life of ease and plenty, and, by allowing great cities to feed themselves from every corner of the world, multiplied the population of the earth fivefold.
+- The world survived the fall of the Roman empire and will no doubt outlast our own so much more splendid civilisation.
+- The year 2008 was a reminder to those who had forgotten that there is such a thing as history and that the cycle of famine and feast in commerce, first identified in antiquity and well understood in the Middle Ages, was not suddenly abolished in modern times.
+- My belief, for what it is worth, is that city dwellers cannot understand the world. Insulated from reality by complex and expert systems of provision and police, baffled by fashion and spectacle, city dwellers can distinguish neither the sources of their existence nor the consequences.
+- In falling markets, there is nothing that has not happened before. The bear or pessimist sees only the past, which imprisons the wretched financial soul in eternal circles of boom and bust and boom again.
+- Is there any purpose to translating poetry? A poem does not contain information of importance, like a signpost or a warning notice.
+- It is time to end the western policy of malign neglect. It is in the interest of the whole world to help tackle the actual grievances in Palestine, Kashmir, and in central and southern Iraq, and to help the region out of its economic backwardness.
+- Ever since the destruction of Baghdad by the Mongols in 1258, the Muslim world has been in slow decline relative to the west. With Napoleon's invasion of Egypt and the creeping British annexation of Muslim India, that decline took on a malign aspect.
+- Up until the Depression, recession had a moral character: it was supposed to purge the body economic of the greed and excess that attends a business expansion.
+- In modern society, where most people live in cities, and where both needs and wishes are absolved through the same remote agency - money - the distinction between wishes and needs has altogether vanished.
+- What holds an Arab leader in power is a mixture of violence and prestige. Both President Assad and King Hussein were felt to have defended Arab interests against the world. That, in the end, is more important than what they wear on their head.
+- Saudi Arabia is a puritanical state that claims a monopoly of wisdom and virtue.
+- Where consumption is both conspicuous and competitive, humanity will never run out of new wishes. All the while, industry creates new desires that are marketed, in the great fashion paradox, as both novelty and need.
+- At the heart of banking is a suicidal strategy. Banks take money from the public or each other on call, skim it for their own reward and then lock the rest up in volatile, insecure and illiquid loans that at times they cannot redeem without public aid.
+- Almost all novels are improved by cutting from the top. On their first pages, authors parade those favourite effects which disgust the impartial reader.
+- If good history is dispassionate history, it must naturally wait until the passions of the period subside.
+- For all their current prestige, Osama bin Laden and the suicide bombers are still regarded in all but the most desperate districts of Gaza or Peshawar as romantics with little chance of more than symbolic victories, however bloody and brutal. That gives both the Middle East and the West a small and distant hope of security.
+- Bulls don't read. Bears read financial history. As markets fall to bits, the bears dust off the Dutch tulip mania of 1637, the Banque Royale of 1719-20, the railway speculation of the 1840s, the great crash of 1929.
+- In rising financial markets, the world is forever new. The bull or optimist has no eyes for past or present, but only for the future, where streams of revenue play in his imagination.
+- Even before he came to power in 1997, Gordon Brown promised to change the accounts to parliament from simple litanies of cash in and cash out, to a more commercial system that took notice of the public property the departments were using. This system is known as resource accounting.
+- Any new financial order for the world must tackle the three chief challenges of our age.
+- We read too much Shakespeare at school, and view our parliamentary politics as dynastic drama, in which an impatient crown prince frets at his long subordination and begins to scheme for the throne he knows he merits, was promised and has earned.
+- Profits in business always depend on the rate of interest: the higher the interest, the higher the rate of profit required.
+- The world dominion of western thought, forms of organisation, technology and military force is not God-given, nor eternal, nor greatly appreciated by the rest of the world.
+- A century ago, petroleum - what we call oil - was just an obscure commodity; today it is almost as vital to human existence as water.
+- Last chances in the Middle East have been two a dirham since the 1950s. Each year the enmities are more profound, the despots more bloodthirsty and clownish, the violence more extreme, and the conditions of ordinary existence more ghastly.
+- Were there peace and justice in the Middle East, the Arabs would no more need their tinhorn dictators than they would their corpulent princes.
+- The dividing line between wish and need was never clear.
+- Saudi Arabia operates according to the belief that God made young men and women so utterly and completely without self-control that they must be physically segregated every moment of the day and night.
+- Losing your capital is like losing your trousers. It is a real humiliation, and one not to be soon repeated.
+- Osama bin Laden, the Saudi-born revolutionary who is believed by most Arab and Iranian observers to be the inspiration of the attacks in New York and Washington, is the best known of the Islamic militants to have emerged in the past 20 years and the least difficult to fathom.
+- To make a love story, you need a couple of young people, but to reflect on the nature of love, you're better off with old ones. That is a fact of life and literature - and of the novel ever since it fell in love with love in the 18th century.
+- Of all the failed technologies that litter the onward march of science - steam carriages, zeppelins, armoured trains - none has been so catastrophic to prosperity as the last century's attempt to generate electricity from nuclear fission.
+- All UK nuclear power stations should be shut down without delay.
+- We generally write best of what we ourselves have seen.
+- For 50 years, nuclear power stations have produced three products which only a lunatic could want: bomb-explosive plutonium, lethal radioactive waste and electricity so dear it has to be heavily subsidised. They leave to future generations the task, and most of the cost, of making safe sites that have been polluted half-way to eternity.
+- Economists, like royal children, are not punished for their errors.
+- The aircraft that blew up the World Trade Center in New York and the Pentagon in Washington conveyed several messages to the world, of which one of the least remarked is this: the Muslims of the world are suffering.
+- One of the admirable features of British novelists is that they have no scruple about setting their stories in foreign settings with wholly foreign personnel.
+- One of the consequences of the Iranian revolution has been an explosion of history. A country once known only from British consular reports and intrepid travelogues is now awash with historical documents, letters, diaries, grainy video, weblogs and secret police files of questionable authenticity.
+- Unlike despotisms, modern democracies are not supposed promiscuously to accumulate property and then charge their taxpayers to maintain it. But that is what they do. Governments are always trying to extend their responsibilities and their estates, and it is very hard for parliaments to reign them in.
+- To give money to a woman - and here I must speak as a man - is to deny her special quality, her irreplaceability, and reduce her unique amiability to a commodity. Money takes away her name, while transforming her lover into a nameless customer of a market of appetites.
+- Life without oil, in fact, would be so different that it is frightening to contemplate. We are addicted, and it is no comfortable addiction.
+- The great disadvantage of getting older is to be obliged to relive the salient economic events of one's youth, with nothing learned and nothing forgotten.
+- Suicidal violence is not the exclusive property of the Muslim world. Suicide bombings were a tactic of nationalist struggles in 19th-century Europe and Russia, the far east during the second world war and the Vietnam war, and in modern Sri Lanka.
+- Europe and North America, we are told, are less dependent on energy-intensive heavy industry than in the 1960s and 1970s. It seems we squeeze more GDP out of a barrel of oil than in those benighted days.
+- Nature is not simply a technical or economical resource, and human beings are not mere numbers. To suggest that one can somehow align all the squabbling institutions of science, environmental management, government and diplomacy in an alliance of convenience to regulate the global climate seems to me optimistic.
+- Liberty in Islam is the liberty to be a Muslim, democracy likewise, individualism likewise.
+- The theory of permanent Muslim-Christian enmity, though it flourishes in the caves of Tora Bora and parts of the American academy, was long ago exploded by the historians.
+- Because bankers measure their self-worth in money, and pay themselves a lot of it, they think they're fine fellows and don't need to explain themselves.
+- The rise to prominence of the Saudi novel in Arabic is the great man-bites-dog of recent world literature. Saudi Arabia is a country without a free press, where European styles and forms are distrusted and where the female half of the population became literate only in this generation.
+- Rarely in modern times has there been such a revolution in commercial sentiment as occurred in 2008, or such a display in government and business of panic and helplessness.
+- Since the attack on the United States on September 11 2001, and the US retaliation in Afghanistan and Iraq, there must be few people who have not felt a twinge of nostalgia for the cold war.
+- There are about 15 million Muslims in the EU. They face ignorance, insult and even persecution. They cannot be wished away. To impose Enlightenment freedoms is self-defeating. Anyway, the Muslims have their own enlightenment.
+- The truth is, of course, that history is not completed in modern commerce any more than philosophy is perfected in political economy. In other words, there is nothing timeless or God-given about filling stations and penicillin and plastic bags.
+- The prevailing ideology of the modern west - which is political economy - is in the doghouse. Having failed to notice atmospheric pollution, the economists then frightened themselves with the sort of financial crisis they said they had abolished.
+- Cause and effect, the riddle of all history, is a particular devil in financial history; and never more so than today, where entire classes of security are collapsing not on public exchanges and stock-tickers but because there are no markets to establish prices this side of nothing.
+- Whatever else it was, Adolf Hitler's short-lived regime was also a colossal industrial process by which the wealth and productive power of much of Europe was wrenched from its normal purposes and converted into a machine for killing.
+- When William the Conqueror commissioned a great survey of his English realm at Gloucester in 1085, the result was a work so thorough, fair, dispassionate, and wide-ranging that it seemed to the succeeding generations to have come from another world.
+- There are signs that the age of petroleum has passed its zenith. Adjusted for inflation, a barrel of crude oil now sells for three times its long-run average. The large western oil companies, which cartellised the industry for much of the 20th century, are now selling more oil than they find, and are thus in the throes of liquidation.
+- Governments of rich countries spend some $6bn of tax money a year on disaster relief and development aid overseas, while each new earthquake, famine or tidal wave can attract 1,000 aid organisations, from the United Nations Children's Fund and Oxfam to the 'Jesus Brigades' of the American south and other charitable adventurers.
+- Financial crises are like fireworks: they illuminate the sky even as they go pop.
+- Soaring prices for crude oil, falling production surpluses, wild speculation in commodities, a rush into the precious metals, turmoil in the Middle East, assertive oil producers: it is 1973-74 all over again, and at dictation speed.
+- When Gordon the Brown, in London in 1997, commissioned a great inquisition or survey of his new realm, the result was the so-called national asset register, which was immediately dubbed by the boomers of the UK Treasury 'the modern Domesday Book.'

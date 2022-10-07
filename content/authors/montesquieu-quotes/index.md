@@ -1,0 +1,86 @@
++++
+author = "Montesquieu"
+title = "Montesquieu Quotes"
+quotes_len = "80"
+description = "the best 80 Montesquieu Quotes"
++++
+- Author: A fool who, not content with having bored those who have lived with him, insists on tormenting generations to come.
+- Happy the people whose annals are tiresome.
+- Friendship is an arrangement by which we undertake to exchange small favors for big ones.
+- Each particular society begins to feel its strength, whence arises a state of war between different nations.
+- As soon as man enters into a state of society he loses the sense of his weakness; equality ceases, and then commences the state of war.
+- It is always the adventurers who do great things, not the sovereigns of great empires.
+- The spirit of moderation should also be the spirit of the lawgiver.
+- We must have constantly present in our minds the difference between independence and liberty. Liberty is a right of doing whatever the laws permit, and if a citizen could do what they forbid he would no longer be possessed of liberty.
+- Laws undertake to punish only overt acts.
+- Law in general is human reason, inasmuch as it governs all the inhabitants of the earth: the political and civil laws of each nation ought to be only the particular cases in which human reason is applied.
+- The less men think, the more they talk.
+- When the legislative and executive powers are united in the same person, or in the same body of magistrates, there can be no liberty; because apprehensions may arise, lest the same monarch or senate should enact tyrannical laws, to execute them in a tyrannical manner.
+- There are three species of government: republican, monarchical, and despotic.
+- False happiness renders men stern and proud, and that happiness is never communicated. True happiness renders them kind and sensible, and that happiness is always shared.
+- What orators lack in depth they make up for in length.
+- In the infancy of societies, the chiefs of state shape its institutions; later the institutions shape the chiefs of state.
+- The sublimity of administration consists in knowing the proper degree of power that should be exerted on different occasions.
+- Men should be bewailed at their birth, and not at their death.
+- Success in the majority of circumstances depends on knowing how long it takes to succeed.
+- An empire founded by war has to maintain itself by war.
+- Society is the union of men and not the men themselves.
+- Useless laws weaken the necessary laws.
+- To become truly great, one has to stand with people, not above them.
+- Although born in a prosperous realm, we did not believe that its boundaries should limit our knowledge, and that the lore of the East should alone enlighten us.
+- In most things success depends on knowing how long it takes to succeed.
+- Power ought to serve as a check to power.
+- In bodies moved, the motion is received, increased, diminished, or lost, according to the relations of the quantity of matter and velocity; each diversity is uniformity, each change is constancy.
+- There is no one, says another, whom fortune does not visit once in his life; but when she does not find him ready to receive her, she walks in at the door, and flies out at the window.
+- I have always observed that to succeed in the world one should seem a fool, but be wise.
+- Raillery is a mode of speaking in favor of one's wit at the expense of one's better nature.
+- Not to be loved is a misfortune, but it is an insult to be loved no longer.
+- Republics end through luxury; monarchies through poverty.
+- It is not the young people that degenerate; they are not spoiled till those of mature age are already sunk into corruption.
+- Do you think that God will punish them for not practicing a religion which he did not reveal to them?
+- Liberty is the right to do what the law permits.
+- The tyranny of a prince in an oligarchy is not so dangerous to the public welfare as the apathy of a citizen in a democracy.
+- The object of war is victory; that of victory is conquest; and that of conquest preservation.
+- Thus the creation, which seems an arbitrary act, supposes laws as invariable as those of the fatality of the Atheists. It would be absurd to say that the Creator might govern the world without those rules, since without them it could not subsist.
+- Weak minds exaggerate too much the wrong done to the Africans.
+- To love to read is to exchange hours of ennui for hours of delight.
+- The success of most things depends upon knowing how long it will take to succeed.
+- Men, who are rogues individually, are in the mass very honorable people.
+- Peace is a natural effect of trade.
+- The reason the Romans built their great paved highways was because they had such inconvenient footwear.
+- There are only two cases in which war is just: first, in order to resist the aggression of an enemy, and second, in order to help an ally who has been attacked.
+- Life was given to me as a favor, so I may abandon it when it is one no longer.
+- Religious wars are not caused by the fact that there is more than one religion, but by the spirit of intolerance... the spread of which can only be regarded as the total eclipse of human reason.
+- If the triangles made a god, they would give him three sides.
+- Liberty is the right of doing whatever the laws permit.
+- People here argue about religion interminably, but it appears that they are competing at the same time to see who can be the least devout.
+- Talent is a gift which God has given us secretly, and which we reveal without perceiving it.
+- The deterioration of a government begins almost always by the decay of its principles.
+- There is only one thing that can form a bond between men, and that is gratitude... we cannot give someone else greater power over us than we have ourselves.
+- There is no greater tyranny than that which is perpetrated under the shield of the law and in the name of justice.
+- The law of nations is naturally founded on this principle, that different nations ought in time of peace to do one another all the good they can, and in time of war as little injury as possible, without prejudicing their real interests.
+- I have always observed that to succeed in the world one should appear like a fool but be wise.
+- Slavery, properly so called, is the establishment of a right which gives to one man such a power over another as renders him absolute master of his life and fortune.
+- A nation may lose its liberties in a day and not miss them in a century.
+- Countries are well cultivated, not as they are fertile, but as they are free.
+- The severity of the laws prevents their execution.
+- If we only wanted to be happy, it would be easy; but we want to be happier than other people, and that is almost always difficult, since we think them happier than they are.
+- I have never known any distress that an hour's reading did not relieve.
+- Lunch kills half of Paris, supper the other half.
+- There should be weeping at a man's birth, not at his death.
+- When the body of the people is possessed of the supreme power, it is called a democracy.
+- There is no crueler tyranny than that which is perpetuated under the shield of law and in the name of justice.
+- We should weep for men at their birth, not at their death.
+- I have read descriptions of Paradise that would make any sensible person stop wanting to go there.
+- The state of slavery is in its own nature bad.
+- An author is a fool who, not content with boring those he lives with, insists on boring future generations.
+- If triangles had a god, they would give him three sides.
+- Man, as a physical being, is like other bodies governed by invariable laws.
+- But constant experience shows us that every man invested with power is apt to abuse it, and to carry his authority as far as it will go.
+- A man should be mourned at his birth, not at his death.
+- You have to study a great deal to know a little.
+- There is no nation so powerful, as the one that obeys its laws not from principals of fear or reason, but from passion.
+- No kingdom has shed more blood than the kingdom of Christ.
+- Luxury ruins republics; poverty, monarchies.
+- They who assert that a blind fatality produced the various effects we behold in this world talk very absurdly; for can anything be more unreasonable than to pretend that a blind fatality could be productive of intelligent beings?
+- If I knew of something that could serve my nation but would ruin another, I would not propose it to my prince, for I am first a man and only then a Frenchman... because I am necessarily a man, and only accidentally am I French.

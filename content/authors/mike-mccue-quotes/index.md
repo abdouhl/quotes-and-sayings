@@ -1,0 +1,36 @@
++++
+author = "Mike Mccue"
+title = "Mike Mccue Quotes"
+quotes_len = "30"
+description = "the best 30 Mike Mccue Quotes"
++++
+- Twitter can be incredibly valuable as an open communications mechanism, but if you close too many things down too quickly, if you think about it too short-sightedly, you could easily do a lot of damage to that ecosystem.
+- Twitter was created as an open platform, an open communications ecosystem, and I hope it can stay that way. You have to be really careful not to let money get in the way of that.
+- One of the things that Flipboard is great at is certainly looking at the news in a realtime format, which a lot of the personal news aggregators don't really focus on, so you can see things right up to the minute.
+- That's why we created Flipboard as a social magazine meant for an iPad, meant for a large touch-screen device. That idea of content presented beautifully, oriented around communities and special topics of interest, is really powerful.
+- Having run Tellme before, one of the things I learned about running a big network is it's one thing to have some people not be able to get on the way they want to get on, but as long as people who are on the network are having a good experience, you're totally cool.
+- Kind of like Google crawls the Web, we crawl the social networks. Where Google analyzes links and Web pages, we look at the same thing with people. So we can tell, for example, who you interact with more frequently. Or if it's not frequency, maybe it's consistency.
+- I.B.M. was my college education, effectively. They were very good at teaching you management.
+- Journalism is being pushed into a space where I don't think it should ever go, where it's trying to support the monetization model of the Web by driving page views. So what you have is a drop-off of long-form journalism, because long-form pieces are harder to monetize.
+- Articles themselves are condensed to narrow columns of text across 5, 6, 7 pages, and ads that are really distracting for the reader, so it's not a pleasant experience to 'curl up' with a good website.
+- The iPad is a superior consumption device for material on the Web.
+- Let's leverage the power of the Web - don't get rid of it, but make the Web beautiful again. We need to give the content room to breathe and give magazine-style advertisements the opportunity to flourish.
+- As an entrepreneur, in many ways it's like looking into the crystal ball for what my company will hopefully go through as it starts to think about bigger challenges - scaling internationally, getting ready to go public, and all those different things.
+- I had been reading magazines a lot, and I love magazines, and so I was always asking myself why is it that these gorgeous articles just don't translate well to the web? Presentation was one aspect of it.
+- You don't feel like you have to interact with a whole bunch of people when you get on Flipboard. It's not a source of social anxiety.
+- The iPad is creating a new format for reading content. One of the things that's happening as a result is the world of personalized news aggregators, which is a category that's been around for quite some time, is getting new life.
+- I was really excited by the idea that people were sharing information now and discovering information in a totally new way on the Internet via Twitter and Facebook, yet that experience was pretty clunk and just lots of bit.ly links.
+- The Web as we've known it for a long time has been pages linking and pointing to other pages.
+- If you're Burberry or Gucci, you're not going to run a banner ad. To get brand ad dollars to move to digital, you need to create a beautiful experience.
+- TechCrunch evolved on the Web as a new way of presenting the news on the Web.
+- My dad died from cancer when I was 18, and my mom was in a really tough spot. So I wanted to try to help at home. I had started doing some technology consulting.
+- Personalized news aggregators are geared around connecting you to news sources; we're about connecting you to your friends. To people you're inspired by. To people that you're following on Facebook and Twitter.
+- I think the screen size chosen for the iPad is perfect for publishers to render content beautifully, for games to be played.
+- What the iPad does is it opens people's minds to a new way of doing things. They're actually thirsting for it.
+- Facebook is about seeing what your friend is doing. Twitter, you follow different people. Flipboard is about passions and interests and topics, and so it's the same social web that all of these products are letting you look at, but Flipboard is coming at it from a more topical point of view.
+- As a publisher, you should decide what content is free and what you'd pay for. You have to get the packaging right, but people will pay for content.
+- Let's say you go to a friend's wedding, or Thanksgiving, or Halloween. It'd be great the next day to see what went on with your friends' Thanksgiving weekend, or all the costumes they wore on Halloween, and be able to look back and see what they wore the year before, and the year before that.
+- My parents were entrepreneurs. They ran a small ad agency in upstate New York.
+- Our whole goal is to basically feature publishers' content and get people to click over to that content on the website.
+- There are a lot of problems with the Web, but there are a lot of great things about it, too.
+- In high school, I started my first company, called M Cubed Software. We named it that because it was me and two other guys named Mike.

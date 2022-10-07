@@ -1,0 +1,19 @@
++++
+author = "Mark Steyn"
+title = "Mark Steyn Quotes"
+quotes_len = "13"
+description = "the best 13 Mark Steyn Quotes"
++++
+- The essence of a government health care system - for people who have never lived under it and don't know - is waiting, waiting, waiting. You wait for everything. You wait for years for operations that are routine in America.
+- I like Mitch Daniels on the fiscal conservative issues. You disagree with him on this idea that social issues, you takeoff the table. I do that for two reasons. I think the fiscal issues in a sense are a symptom of a lot of the deeper cultural issues in America. I don't think they are as disconnected as he thinks.
+- We immigrants can sometimes sound a little hysterical about this because we come from places that have tried this and we know where it leads. Anybody who's lived in countries with socialized health care knows that it becomes the dominant political issue.
+- I think at a certain level compared - as was pointed out earlier, compared to what is happening in Europe, the United States still gets the safe-haven money. But underlying that, the United States is not the safe haven but perhaps the most dangerous place of all.
+- The minute health care becomes a huge, unwieldy, expensive government bureaucracy it's a permanent feature of life and there's nothing anyone can do about it.
+- The Romney candidacy is better than it was four years ago, but it's not clear that it's good. Mitt needs to get good real fast: A real speech, real plan, real responses, and real fire in the belly.
+- Mitt has a ton of consultants, and not one of them thought he needed a credible answer on Bain or taxes?
+- Ron Paul's crazy talk about the Federal Reserve makes more sense these days. Right now, every - all this debt issued by the United States people assume the Chinese are buying, no they don't want any more American debt. Ron Paul has a point there.
+- I mean, Iceland is Iceland. It can't do damage to anybody unless you're Icelandic. But the United States can drag down the entire western economy. And I think what we are seeing is simply a reflection of reality. This is not, I'm sorry, but this is not a AAA nation.
+- I don't think Donald Trump is a conservative. I think his line on China for example, that he's going to talk tough to China. China didn't create Social Security, Medicare. China isn't spending a fifth of a billion dollars every hour that it doesn't have.
+- Government health care changes the relationship between the citizen and the state, and, in fact, I think it's an assault on citizenship.
+- Even if you don't mind Romneycare, or the abortion flip-flop, or any of the rest, there's a more basic problem: He's not a natural campaigner, and on the stump he instinctively recoils from any personal connection with the voters.
+- We are the source of our problems not mysterious sinister foreigners overseas.

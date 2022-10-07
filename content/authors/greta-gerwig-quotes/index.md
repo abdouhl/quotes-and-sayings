@@ -1,0 +1,118 @@
++++
+author = "Greta Gerwig"
+title = "Greta Gerwig Quotes"
+quotes_len = "112"
+description = "the best 112 Greta Gerwig Quotes"
++++
+- Sacramento is where I grew up, so I felt like it had not been given its proper due in cinema.
+- Having health insurance made me feel like a real person. Up until then, it felt like I was getting away with something, and if three things went wrong, it would all fall apart.
+- When I read 'Greenberg,' I had a really strong sense if I could be any kind of writer I wanted to be, I'd be this kind of writer. And I felt like, even in my experiences, what writing I had done, even on a small scale, when it was good, it shared some quality with it.
+- From Rebecca Miller, I took the idea that the director needs to arrive every day an hour ahead of everyone else and walk through the entire day.
+- As a writer, I think I'm mainly interested in contemporary themes, so when I create my own stuff, it's inherently that. But as an actor, I would like to do lots of different things. I would love to play someone completely different from myself in a costume drama.
+- I always have a soft spot in my heart for New York designers and independent designers, people who are doing the fashion equivalent of what I'm trying to do in film.
+- I've never worked on anything that I haven't in some way enjoyed.
+- I just don't feel like I've seen very many movies about 17-year-old girls where the question is not, 'Will she find the right guy' or 'Will he find her?' The question should be, 'Is she going to occupy her personhood?' Because I think we're very unused to seeing female characters, particularly young female characters, as people.
+- I've made so many films in New York. There was an assumption I think a lot of people had that I am a New Yorker, that I am from New York, and I always felt like nothing could be further from the truth.
+- You only get one life, so you might as well feel all the feelings.
+- I was serious about ballet for a long time, but my mom got me into tap and jazz and modern and hip-hop, and I was one of those over-lessoned children.
+- There's something that happens around 27 and 28, when people start coupling off more aggressively or changing their lives according to what their economic prospects are, and not keeping themselves on par with the group - you realise suddenly that they're not your family. And I think that's very painful.
+- There's nothing more thrilling than watching great actors say things that you wrote and bring them to life.
+- I thought Mia Hansen-Love was a true auteur, and I always wanted to work with her. Mia's empathy for her characters and her ability to use the language of cinema to communicate real human depth is extraordinary. She's a humanist.
+- I was very serious about ballet until the age of 12, at which point my body changed, and it wasn't quite right.
+- Making movies is a hard thing, and it's slow. So you can glorify the product, but the process is difficult no matter who you are.
+- The economy is rough. I think that affects everyone from big filmmakers to tiny filmmakers.
+- I knew I wanted to be involved with theater or film in any way I could, either as a writer or director or actress.
+- When I was a kid, I used to do my homework in the living room, where there was a picture window. I was hoping that someone would walk by and see me looking very studious in my living room.
+- I feel like I'm an actor that likes to have lots of points of connection.
+- I thought movies were handed down by God. I knew that theater was made by people because I saw the people in front of me, but movies seemed like they were delivered, wholly made, from Zeus's head or something.
+- I think I've always wanted to direct, but I didn't go to film school. I was lucky enough to work in movies, and I think those became my film school in terms of acting and watching directors work and also writing and co-writing and producing.
+- I'm far too middle-class to morally object to a paying job.
+- I think that people in their 20s actually aren't given enough credit for their ambition.
+- Specifically with directors I'd worked with, and even some that I haven't, they were all incredibly generous with me, having really long conversations about what they felt was useful as tips.
+- I'm always interested in how people use language to not say what they mean.
+- When I did plays in high school and college, I never remember memorizing my lines, but once I had blocking, I had all my lines memorized. Once I had movement associated with words, it was fine. Before I had blocking, it was just text on a page. Once it became embodied, it was much easier.
+- Mike Leigh is my all-time favourite writer/director/creator.
+- I was part of a hip-hop group called Fly Style. I was one of two white girls, and I was part of the younger company, which was called Touch of Style. And it was amazing. It gave me a different perception of dance and beauty because the other girls were mostly African-American and Latina.
+- Young Harrison Ford, what a dreamboat.
+- I think it's a great tragedy of childhood that you only really appreciate it once it's done: it's very hard to feel appreciative of the gifts you have until you're gone.
+- I love movies, but sometimes I think it's better for actresses not to be total cinephiles. You have to be able to do the work at some point; you can't be totally starstruck. 'I can't believe it's Woody Allen!' You have to get past that.
+- I have a fundamentally hopeful view about people, and that might merely be a reflection of the fact that I've lived an incredibly privileged life in a very wealthy nation without a lot of the struggles that most of the world has to face.
+- Nobody knows what you have in you until you've done it, so I just keep pushing those boundaries, and I figure it will all come out in the wash.
+- I'm not goal-oriented so much as I'm constantly aware of what I'm passionate about, and I'm constantly updating the list. I envision many possible futures for myself where I could be happy, so I just try to keep my passions alive.
+- When you're on set, and that clock is going, every second you spend doing something is a second you spend not doing something else. That's true of all of life, but it's very vivid on a film set because you're always managing that.
+- I feel like every year there's a thing about 'not enough roles for ladies!' and, then, also an article, like 'The Year of The Woman.' I think that we all just know in our hearts they're underrepresented. But that doesn't mean that there aren't amazing moments.
+- I was a massive Whit Stillman fan. Groupie. I would have done anything for him.
+- I wouldn't call myself 'into the DJ scene.' I have friends who are DJs, like James Murphy. I was really into the DJ scene at his wedding. But generally, I'm not at the clubs. I've never been to a rave.
+- Greta Gerwig always seemed like a name that was mine. My mother did a good job.
+- I think something about high school students being snobby about how much they have or don't have is particularly absurd because it's not theirs. It's their parents'. So to feel quite good about yourself because you've got the fancy house and car doesn't make any sense - you didn't earn any of that.
+- I live in New York, and I love New York as well, but I think Los Angeles is a place where if you have the right person with you, there are all these little worlds that you would never guess by just looking at the exterior of what the city is.
+- I feel so part of the filmmaking community. It's amazing how much people support each other.
+- I had dreams, but I didn't have the sense that they would necessarily work out. They seemed very far-fetched.
+- I always feel like a vague failure in L.A. - it always makes me feel like I should somehow be different than I am. And I don't know why.
+- As an actor, I just go off the director. I never ask how big the part is. I don't look at it from the perspective of, 'Is this going to be good for my career?' I just look for directors, and I think part of that is I knew I always wanted to be a director.
+- I loved the idea of dramatic art of storytelling as a way to make sense of things. It's really what I love and what I care about.
+- Courage doesn't grow overnight. It can be a long process.
+- I don't really decide what the core of the story is before I write. I write to figure out what the story is. And I think the characters end up talking to you and telling you what they want to be doing and what is important to them. So in some ways, your job is to listen as much as it is to write.
+- I'm so interested in taking tropes from other movies and putting them on something where it doesn't belong.
+- When you're writing a screenplay, it's like you're dreaming the film for yourself again and again and again until it becomes almost like a memory before you make it.
+- Books and theater were the way I understood the world and also the way I organized my sense of morality, of how to live a good life.
+- I lived for two years with six girls in an apartment that was built for three people, and it had no heat. We would sleep in our coats and in sleeping bags. And it was great.
+- I don't know any woman who has a simple relationship with their mother or with their daughter.
+- I'd applied to graduate school for playwriting, and I got rejected by every school. I felt that theatre was closed but that, when it came to film, the door was very slightly ajar. If I have any virtues, it's that I'm good at walking through doors that are slightly ajar.
+- The transition from tiny movies to less tiny movies to really big movies has been actually quite seamless in a lot of ways as far as my experience of acting in them.
+- Getting bad reviews or doing something that's not great is also really good for you as an actor. It also makes me feel as an actor that I've earned my stripes a bit.
+- I've never had a plan, I've always done things from instinct.
+- I feel like movies are presents, and credits and fonts are bows and wrapping paper. I like everything to feel like it was given a lot of time. I hate it when I watch movies, and it seems like they just went and picked a font and, like, called it a day.
+- I sound like an old man when I talk about the Internet, but I am actually worried about what it's doing to our brains and our sense of connection.
+- Woody Allen was the reason I wanted to move to New York City and one of the reasons I wanted to make films. I felt that I understood his films, and I love them so much. When you're starting out, certainly, you have this sense of wanting to talk back to people who have influenced you, and I always wanted to talk back to Woody Allen.
+- Working is not instantly rewarding. It's a long process, and it's much easier to just feed whatever dopamine cycles exist in your brain in instant gratification ways. I get it; I do it.
+- For Mike Mills, I learned that having dance parties and crying with your cast does not make you a weak director, it makes you a strong director.
+- There's a style in modern dance right now called Release Technique. It's based on a feeling of falling and catching yourself, and I thought it was such a good metaphor for the way life feels.
+- Something people say about acting is that acting is listening. But I think that writing is listening, too. That you really have to listen to what are they saying and what they're communicating to you. And so, a lot of it is just getting stuff down.
+- I loved dance.
+- I have very strong feelings about dance and how it's shot.
+- I think it's true of a lot of teenagers that you're convinced that life is happening somewhere else.
+- Whenever you work with someone who you idolize, you realize... he's just a person trying to make a movie as best he knows how. And that doesn't look so different from other people trying to do the same thing.
+- I didn't know the city at all, but I was so happy to be in New York I cried. I was so excited.
+- When you write something you know, you're making a story that will work, whether or not there's bits taken. It's always funny to me when people say, 'Well, it's clearly autobiographical,' and I say, 'Well, how do you know my autobiography?' Certainly, there are things that are connected, but I just think it's a very interesting assumption.
+- One of my favorite things about Telluride is because it's so small, the directors are really there for each other. You look at another director, and they feel the same thing you feel.
+- I'm not really capable of memorizing stuff without moving around, that's how I do it.
+- We would go down to Riverside, California, which is very poor now, but that's where my grandfather grew up. He grew up during the Depression in Riverside.
+- I think structure is so deep in us. We put it in stories we tell our friends or in emails we write. We want it. It's how we create meaning.
+- I'm interested in characters that have just a touch of madness.
+- The more particular you make something, the more universal it becomes.
+- I think as an actress, I prefer having a character on the page. It allows you to be more invested in actually creating a whole person. It's easier when you're not trying to come up with your next line on the spot.
+- In terms of sheer pleasure, Tom Stoppard was very big for me because he is so funny and so smart, and it felt delicious reading him.
+- I love movies, so getting to be in the conversation and meet some of my heroes has been so fun. It's just the most fun thing ever.
+- I feel like, when I play characters, I create a space in myself that feels like the character and that doesn't go away. Somehow, you carry that with you. You let it go, but a little piece of it remains.
+- I think being attracted to mistakes is one of the things that film can capture in a way that theater can't. Film can capture a moment of spontaneous life that will never be captured again.
+- Writing on my own versus co-writing kind of is the exact same thing because we don't sit in the same room when we write. We're always writing alone anyway.
+- 'A People's History of the United States' was actually a very big book for me. I read it in high school, and I felt like my mind was really blown by it. I think the truth is I read it because it's referenced in 'Good Will Hunting.'
+- The Catholic theatrics are pretty high quality, but the Protestants have better hymns.
+- I love musicals. I grew up on musicals.
+- I'm all for the banalities of life and humiliation and everyday tragedies, but I also think people have big moments, and they have bigness in them.
+- I'm, like, the only actor in New York who's never, ever been on any 'Law & Order.' And I've auditioned for so many. The sad thing is I love 'Law & Order.' I'm really obsessed with it. And they always said to me, 'You seem like you're making fun of the material.'
+- I have very intense feelings of joy or sadness. I used to not like that so much because I was worried it was girly, and I wanted to be more stoic. I think this happens a lot. When you're 16, there are qualities you wish you didn't have, and then when you're 30, you're like, 'Thank God I have that; otherwise, I'd be living less vividly.'
+- I wrote the script to 'Lady Bird,' and it really came out of a desire to make a project about home - like, what the meaning of home is, and place. I knew Sacramento very well, obviously, growing up there, and I felt like the right way to tell a story of a place was through a person who's about to leave it.
+- I love writing, and I think I'm kind of a workaholic. I'm happiest when I'm working.
+- There are a lot of love stories in 'Maggie's Plan,' but the deepest, truly romantic one is between Maggie and her daughter.
+- I feel like a good pair of diamond studs goes a long way. They make everything look dressy, and you just seem more put together.
+- I'm scared of the Internet. That's not real, but it is. I'm worried about what it's doing to us.
+- When I graduated from college, I thought that I would probably never be an actor because it seemed like everyone was big by the time they were 20 or not at all.
+- It's really hard for me to be around people I admire.
+- Acting was always the first love, but a lot of people want to be actors, and my goal was, 'Come hell or high water, I will be a part of this world, however I can.' So that just led me to throwing myself into every aspect of narrative storytelling I could.
+- There's something very satisfying about old cameras because they're ingenious. I mean when you take them apart and actually see, 'Oh, this is how we make photographs,' it's an ingenious thing, but it feels like it's in a way a layman can appreciate, whereas a digital camera, I don't even begin to know what goes into making a digital camera.
+- I stopped being interested in improvisation, and I continue to not be that interested in it. Comedians can do it on a different level because they have a goal, but if you're improvising something that's dramatic, there's not that much to be good at.
+- I'm always interested in relationships between women. I'm always interested in how women relate to each other, whether it's a family relationship or it's a friend relationship. That's such uncharted territory in cinema.
+- From Noah Baumbach, I learned to have a strict no cell phone policy on set. There is nothing that bums you out more than looking over and seeing somebody on their smartphone, and that goes for actors and everyone else.
+- I'm really interested in trying to tell stories about women that don't involve romantic components. That's so much a part of the way we feel about female characters and their needs that it feels like it's built in - but I'd like to find a way that it's not. There are so many more stories than that.
+- I'm interested in long careers where you take detours.
+- I love big, sprawling movies where there are too many characters, and people get introduced halfway through, and you're like, 'Wait, who are these people?'
+- Everybody is always in the middle of their own opera.
+- I loved 'Moonlight.' I thought it was really beautiful. Really great.
+- For me, the French new wave is Truffaut and Rohmer. Godard I sometimes have trouble with because he's very much of a director's director. I feel Truffaut is such a humanist, and I always go in that direction.
+- I get nerdy and nervous around not only great actors, but great directors and DPs I love.
+- One of the great advantages of my time spent in movies and in basically every role possible, both in front of the camera and behind the camera, that I've gotten to see all these different ways that people work and the way movies are constructed from the inside out, from beginning to end.
+- One of the things that happens when you write characters - and maybe this is my own sentimentality - is that I always find I have an instinct to protect them.
+- There's a grace period where being a mess is charming and interesting, and then I think when you hit around 27, it stops being charming and interesting, and it starts being kind of pathological, and you have to find a new way of life. Otherwise, you're going to be in a place where the rest of your peers have been moving on, and you're stuck.
+- I sometimes have to turn off the fan part of my brain when I'm acting; otherwise, it would be terrible.

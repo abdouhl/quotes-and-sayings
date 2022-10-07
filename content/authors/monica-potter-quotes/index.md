@@ -1,0 +1,24 @@
++++
+author = "Monica Potter"
+title = "Monica Potter Quotes"
+quotes_len = "18"
+description = "the best 18 Monica Potter Quotes"
++++
+- There's reality shows and things like that and I think 'Parenthood's kind of a throwback to what we used to have back in the '70s, '80s and '90s. People want to see this again, and I feel like it's just a solid, good show.
+- Most women do not realize that heart disease is the #1 killer of American women.
+- I love to clean. I love to cook.
+- I am so not technically proficient at all.
+- You can't force your child to go to bed. Well, you can, but it doesn't work.
+- I had to go for a mammogram - my first mammogram ever - and It was really scary and I didn't know what to expect.
+- I shop at thrift stores a lot. I have a lot of silver pitchers and I put my flowers in those. I collect antiques, so there are a lot of old rocking chairs... My friends call my home the vortex because nobody wants to leave.
+- I'm taking better care of myself by eating healthy, exercising and doing my best to keep my stress level down as well as role modeling good habits for my kids.
+- The importance of heart health became very real for me when my father died of heart disease seven years ago. Having experienced the loss first hand, I am inspired to do everything I can to break the cycle and prevent families from losing loved ones to this preventable disease.
+- People figure because I'm blonde and was a model, I just waltzed into Los Angeles and got major roles in major films.
+- Well, I don't like yoga. I've got a thousand things to do.
+- During the week it isn't always easy to sit down together and I am usually in a rush to get everyone off to school. A bowl of cereal and milk with fruit is perfect because it's quick and easy. I like to mix it up on the weekends when we can all relax in our pajamas.
+- Size 8 is great! That is my new motto. I was a 14 and 6 and 12. I think it's healthy. I like to eat, drink and be merry!
+- Well, I am not really a conventional mom at all. Like, I had my kids really young. I had Danny when I was 18 or 19 and then Liam when I was 23 and Molly, I had when I was a little older.
+- Every one and every single time is different, and I didn't have C-sections, which I don't know if that's lucky or unlucky, but I was able to feel every contraction. You forget what it feels like. God's got a great way of making women forget what it's like because we would never go through it again.
+- I left L.A. and moved to Cleveland for four years in the early 2000s or whatever. I came back and thought that everything had changed. I was like, 'Oh my God, I don't think I ever fit in here. And wait, who are all of these celebrities that are not actors? Where did all of the actors go?'
+- Yeah, I think there are a lot of things about Cleveland that I miss. Los Angeles is a funny place to live.
+- As a mom, I understand how important it is to ensure kids start their day right and always make sure my kids have a nutritious breakfast. One in five U.S. children live in homes where food is not always available, which is why I partnered with Kellogg's on their 'Share Your Breakfast' campaign, which provide breakfasts to kids in need.

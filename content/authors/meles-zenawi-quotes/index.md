@@ -1,0 +1,35 @@
++++
+author = "Meles Zenawi"
+title = "Meles Zenawi Quotes"
+quotes_len = "29"
+description = "the best 29 Meles Zenawi Quotes"
++++
+- Our position is that we can sit down and talk to try to solve our problems through dialogue.
+- Some people think African states cannot be trusted with the cookie jar. But there are absolutely good NGOs who have this feeling of human solidarity and who also recognize that their work can only be supplementary to the government.
+- In the urban areas, we have focused on infrastructure roads, telecommunications, power.
+- When push comes to shove, people vote alone.
+- We believe democracy cannot be imposed from outside in any society. Democracy is the expression of a sovereign people.
+- Over the years, I've come to recognize that democratization in Ethiopia is not just a matter of choice. It's a matter of national survival. I am deeply convinced that we either democratize and have a good chance of surviving, or if we fail to do so, we disintegrate.
+- Famine has wreaked havoc in Ethiopia for so long , it would be stupid not to be sensitive to the risk of such things occurring. But there has not been a famine on our watch - emergencies, but no famines.
+- The most stupid mistake a counter-insurgency operation can make is alienating the population. If you alienate the population, you're finished.
+- An oversupply of national sentiment is not the problem in Somalia. The problem is a lack of it. The problem is an oversupply of sub-sub-clannish attitude.
+- Eritrea is hellbent on destabilising Ethiopia. It does not care who it sleeps with.
+- As a person, I have never been discourteous or nasty to anybody. I may have stood my ground a bit too directly, a bit too firmly, and I believe I have, over a number of years, learned to be a little less direct.
+- I would love to be the African leader that steps down, that overthrows this idea of a Big Man ruler. I don't want to stay in office forever.
+- I know more now than I did in the past about the process of democratization. I know more about the pitfalls.
+- When you have an emergency, there is the urge to do whatever it takes to see people get assistance.
+- Of course everybody's thinking evolves over time.
+- I cannot separate my achievements from what can be considered as the achievements of the ruling party.
+- I think the Eritrean government is aware that any full-scale invasion of Ethiopia along the lines of 1998 could turn out to be suicidal... And we will not respond to any provocation short of all-out invasion. We are already engaged in a much more fruitful war - against poverty.
+- The... provisional government unwaveringly believes that it can solve all the present problems together with the broad masses of Ethiopia. However, we can do this only if all the people come out in unison to implement our planned undertakings.
+- We have built tens of thousands of schools, clinics and rural roads.
+- I am not worried that the Egyptians will suddenly invade Ethiopia. Nobody who has tried that has lived to tell the story.
+- It does surprise me that intelligent people in the 21st century could claim that if you respond to the terrorists with force, you spawn terrorism, but if you appease them, you somehow tame them. This argument, as I said, is very interesting, and very surprising.
+- Of course everybody's thinking evolves over time. Only dead people cease learning, and I am not certified dead yet. So I am still learning.
+- While all democratic systems are works in progress, ours started rather late and therefore has a longer distance to cover. But democratic transformation for us is not mimicking some facets of Western governance. The focus has been on building institutions of democratic governance.
+- Imagine a government which has delivered double-digit growth rates for over seven years losing an election anywhere on earth. It is unheard of for such a phenomenon to happen.
+- The rule of law is the basis for any democracy. And without the rule of law in democracy, you have chaos.
+- Democracy cannot be a plaything for the capital cities. It has to infiltrate every nook and cranny in the country, including the village.
+- After Nigeria, we are the second biggest black African nation. We are the headquarters of the African Union. We are the only African country that has never been colonized. This is perhaps the last surviving African civilization.
+- We have our own script. We have our own calendar. We represent the greatness of Africa's past. We also represent the worst of Africa's present, in terms of poverty. It is the best and the worst of African reality.
+- It is illegal to be a member of an organization that is challenging the constitution by armed force.

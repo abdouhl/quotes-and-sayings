@@ -1,0 +1,34 @@
++++
+author = "Nina Bawden"
+title = "Nina Bawden Quotes"
+quotes_len = "28"
+description = "the best 28 Nina Bawden Quotes"
++++
+- I would hate to live in the country, unless I was living on a farm.
+- I wanted to be a war reporter - scrabbling around, exposing things. I didn't want to go to university, I wanted to get a job, but Auntie Beryl said I should go to Oxford.
+- People's lives are in the care of the railways when they get on a train. The railways should remember that.
+- If you are going to make companies, corporations, actually responsible for the safety of other people's lives, then if they fail in their duty, the only thing to prevent them failing in their duty is the fear that they would be put behind bars.
+- I was born in a small suburb of Ilford in a rather nasty housing estate that my mother despised. She had grown up in the country, so when the war came and I was evacuated to Wales she thought I was much better off there.
+- One good reason for writing novels based on your life is that you have something to read in old age when you've forgotten what happened.
+- The train we had so confidently boarded had been speeding at almost 100 miles an hour and it had derailed. Someone, I can't remember who, showed me a newspaper photograph of the carriage we had been sitting in tilted on its side on a station platform next to a large notice that said Welcome to Potters Bar.
+- I am not a victim. I am an angry survivor.
+- I like stirring the pot - I think it's part of my duty, to shake people up a bit - make them look at things in a different way.
+- People who don't read seem to me mysterious. I don't know how they think or learn about other people. Novels are a very important part of our education.
+- I like writing for children. It seems to me that most people underestimate their understanding and the strength of their feelings and in my books for them I try to put this right.
+- I was cleaning out the pigsty at a farm in Wales, where my mother had rented a room, when the results of my final school exam were handed to me by the postman, along with the news that I had a state scholarship to Oxford. I had waited for this letter for so many weeks that I had abandoned hope, deciding that I had failed ignominiously.
+- There are many times when I think I would have rather died with my husband. It would have been pleasanter, simpler. But it would have been worse for the children and the family in general.
+- I hope in my books I help children to see their strengths, and show them I have some idea of what they may occasionally be going through. Especially at tricky moments when it is easier to go back and evade things rather than go forwards and confront them.
+- At 11, I passed the scholarship - only just; I wasn't very good at maths - to Ilford County High for Girls. When the Second World War started we were evacuated, first of all to Ipswich, and then to Aberdare, Queen of the Valleys, in south Wales.
+- But I don't write about sex for today's teenagers. Or Doc Martens boots either. I'm more interested in exploring how exactly the world is run, which doesn't really change that much from one generation to another.
+- I've never found it made the slightest difference being a woman - though there is a sort of feeling that as you get older you're not so interesting.
+- Margaret Thatcher was in my year, and our first-year college photograph shows us standing side by side in the back row. We were both grammar school girls on state scholarships.
+- I met my second husband on a bus. We looked at each other and that was it. We were both married to other people at the time and behaved badly, but we didn't seem to have any choice. We were very happy for nearly 50 years and would still be together if it wasn't for the bloody railways.
+- I grew up on a suburban street with lace curtains and dull neighbours, so I made up stories to tell my friend, in which they became serial killers and burglars. She told her mother, who then told mine.
+- Life isn't so complicated for children. They have more time to think about the really important things. That's why I occasionally moralise in my children's books in a way I wouldn't dare when writing for adults.
+- Adults get more confused by social worker jargon. Unlike children, they are also less likely to see two sides of an argument, and they no longer think they can make the world a better place. That can make them rather boring, I suppose.
+- I met Richard Burton, an RAF cadet on a two-term course. I would have flirted more enthusiastically if it had not been for the horrid boils on the back of his neck.
+- Ten thousand pounds is the legal value of a negligently taken life, of a child or a parent. A cold and somewhat mean-spirited calculation: you would do better if you slipped on a paving-stone and broke a front tooth.
+- I dislike the word 'victim.' I dislike being told that I 'lost' my husband - as if I had idly abandoned you by the side of the railway track like an unwanted pair of old shoes.
+- Children often have a much stronger concept of morality than adults.
+- All writers are liars. They twist events to suit themselves. They make use of their own tragedies to make a better story... They are terrible people.
+- The murder of my husband by the railways has altered the way I think about everything. I had always thought that the majority of people were decent and honourable. In the wake of the crash, what made me angry more than anything else was the realisation that this was not true. I still find it very hard to come to terms with.

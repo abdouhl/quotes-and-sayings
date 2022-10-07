@@ -1,0 +1,106 @@
++++
+author = "Jordan Clarkson"
+title = "Jordan Clarkson Quotes"
+quotes_len = "100"
+description = "the best 100 Jordan Clarkson Quotes"
++++
+- I mean I always wanted to get tattoos, that's why I got them kind of fast. Because I already knew what I wanted and kind of where I wanted to put everything at, just had to wait for the right time.
+- That's the first thing that came easy in basketball, beating people down the court, getting into people. Using God's gifts.
+- Wherever I am I want to be productive.
+- It's tough being able to shift your mind during the years and change roles.
+- I feel like you can burn yourself out. I'm not trying to do that.
+- Track is something you do by yourself.
+- I try to not put two bad games together.
+- I feel like I need to get stronger for both: offensively and defensively.
+- If I'm going to be a sixth man, I'm going to go for Sixth Man of the Year. If I'm a starter, I'm definitely trying to be a great player either way.
+- If I were to be traded, I just have to be ready to play.
+- For the majority of my rookie year, I had to lug around a fake baby doll in a pink stroller whenever I was entering and leaving Staples Center.
+- I got a chip on my shoulder from the Draft.
+- It's good to know you have a pass-first point guard who will make the right plays.
+- I've been thrown into different roles each and every year.
+- I can score in bunches, but it's about being able to make my teammates better and have the defense worry about something else other than me going out there aggressive and forcing it sometimes.
+- I'm just trying to help any in any opportunity I get. If that's scoring the ball, defensively, rebounding.
+- The one or two I'm comfortable playing. They might even play me at the five sometimes.
+- Y'all know how we have dogs and stuff right? So I think it was bigger people in the world before us, and the dinosaurs was they pets.
+- I try to keep my nose down and keep grinding. I keep working and having fun.
+- I can be a better defender. It's one of those things where I like to always find something wrong so I can get better.
+- I want to be somewhere that I can call home and leave a legacy.
+- I'm focused on always working on my game.
+- When I have a bad game, I watch the film and just kind of remember everything.
+- If I'm playing good off the bench, it's going to help us win games.
+- To win, you have to have great players around you.
+- We have to figure out how to do that, in terms of playing with that mindset of just not caring. Playing free in a structured manner.
+- I love women.
+- See, the big thing about that is, if we ain't winning, I ain't gonna be no Sixth Man of the Year.
+- We want to be in the Finals and hold that trophy up.
+- Even in the states I get love from a lot of Filipinos.
+- We're trying to play big time in the playoffs and do something special.
+- I watch a lot of myself, just to critique myself.
+- I want to be one of those guys that is not bouncing around from team to team.
+- Not many people make it out of San Antonio. I can't even count on my hand how many NBA players are from San Antonio.
+- I'm a second-round pick - 46th pick. It's always gonna be on my mind.
+- If the Sixth Man of the Year award comes and I don't get it, I don't need the validation because my teammates, coaching staff and a lot of my peers gave me that. They're telling me, 'I respect what you do' and all of that. So, I know that goes a long way as well. But it's definitely something I want to get accomplished one of these years.
+- I hate watches because of the concept of time.
+- I know I'm a playmaker.
+- Nothing is given to us.
+- My shot consistency is an area I can improve and continuing to work on my ballhandling.
+- I mean my pops, my family, that's always No. 1. But second probably the girls and stuff. Females.
+- For me, whenever I get on the floor, I'm gonna try to impact the game and just do what I do.
+- Growing up, a lot of people wore baggy stuff. I went in the opposite direction. Just trying to be different.
+- From day one in summer league, I had a chip on my shoulder.
+- My main goal is trying to win games and a championship.
+- I gotta go out there and perform every night for my team to win.
+- Coach Snyder puts guys in a lot of good positions. A lot of screen-and-rolls.
+- I'm just trying to get used to playing everywhere on the floor.
+- I think I'm my hardest critic. Sometimes it's kind of bad because I'm so hard on myself and sometimes I get down.
+- I just control what I can control - go out there and try to be the best I can be in the minutes I get, with the plays that are called for me.
+- I love to hoop and you can never get better just by sitting on the bench.
+- I want to be here in L.A. - a place where I can call home - and leave a legacy.
+- A big thing for me is trying to work on slowing down and not rushing plays, so I can be able to make plays for my teammates.
+- We ain't got no room for the hate no more. That's got to go out of the window real quick.
+- I'm always going to be aggressive on both ends of the floor. That's where I'm going to make my mark.
+- I know sometimes the shots look a little crazy when I'm taking them early in the shot clock and stuff like that.
+- I want to play the right way.
+- Basketball is not only played physically with skills and stuff.
+- When the Lakers sent me down to the D-League, I didn't view it as a demotion. I accepted it as a challenge. Plus, it meant playing more minutes, which meant growth.
+- I feel like I'm one of those guys that can impact the game in any way.
+- I have to stay confident.
+- Probably the biggest thing I can do is try to help us get wins.
+- Somebody got a tattoo of me. Kind of threw me off a little bit, but the work was amazing... It's definitely good to feel that love and support.
+- Not all rookie lessons are learned on the hardwood. There are factors like rookie duties and building team camaraderie.
+- You can't win by yourself.
+- I just grind.
+- There's so much stuff in the sea that we ain't never seen before.
+- It took a lot of work to go from the 'Not Top 10' to being selected for the NBA All-Rookie First Team.
+- Two different styles of leadership. LeBron, very encouraging, bringing everybody along, and Kobe, he's testing you, seeing what you gonna give him. If he gonna get at you, he gonna scream at you, he gonna cuss, he gonna do whatever it is. He had his own way of leading guys as well. It's two different sides. I'm just blessed to see both of them.
+- When I'm on the court I'm just trying to impact the game.
+- You can do whatever you want. If you want to be a singer, author, book writer, basketball player, you just have to put the time in.
+- If I'm comfortable in how I look and feel, I'll feel real good and confident.
+- This is a five-man sport.
+- During my rookie year, Kobe was always on me. Get in the gym early with him, getting shots and stuff like that.
+- I felt like I was a first-round pick.
+- We always laughing and joking, playing around, but, you know, when it's time to go to work, we go to work.
+- I remember I met Mark Jackson - and even now he still remembers me from middle school.
+- In college we could take tough shots and your field goal percentage would go down.
+- I'm just trying to be aggressive and make plays, but you watch film and you see that you can get off the ball get it to somebody else and let them make a play for you.
+- Hopefully I do win Sixth Man of the Year.
+- I definitely want to stay in L.A. but kind of have an open mind.
+- Once you're a Laker, all eyes truly are on you.
+- I'm never going to forget draft day.
+- As long as I'm on the court, playing minutes, I'm going to impact the game someway - if that's defensively or offensively.
+- I'm going to put the time in. I'm going to continue to try to get better.
+- That's what I'm really working on: trying to communicate with guys.
+- Coming into a winning situation kind of brings the best out of everybody and pulls people together.
+- We had to make our own way. Nothing was ever given to us.
+- I felt like I was one of the better point guards in the draft, maybe the best. But falling out of the first round and being selected in the second round, the number really doesn't matter where you get drafted - it's about the fit.
+- Laker Nation is different from any other fanbase.
+- I've just been trying to focus on the basketball and not the business of the game.
+- Everything happens for a reason.
+- I will do anything a team asks me to do. If it's to come off the bench, I would impact the game by coming off the bench. If I were to start, I would impact the game as a starter. I would impact the game either way.
+- I can fit into a lot of clothes. A lot of them fit my body.
+- I just want to be good. I just want to be great one day.
+- I've just always felt that I've been slept on, so I'm just trying to wake people up.
+- It's been good being able to go back to the Philippines, practice with the national team, do workouts and things.
+- In the playoffs, it changes a little bit with defenses tightening up and every little thing is put under the microscope.
+- Adding muscle and strength will be a big help to me.
+- During the season, I'm not really on too many other things - I'm just focused on basketball. But I'm a big lover of music and I watch a lot of movies.

@@ -1,0 +1,30 @@
++++
+author = "Jim Costa"
+title = "Jim Costa Quotes"
+quotes_len = "24"
+description = "the best 24 Jim Costa Quotes"
++++
+- Additionally, Smart Irrigation Month serves to recognize advances in irrigation technology and practices that produce not only more but also higher quality plants with less water.
+- Water is a finite resource that is essential in the advancement of agriculture, and is vital to human life.
+- In addition, to punishing sexual offenders and protecting our children, we must also provide services, resources and counseling to the people who are victims of these horrible crimes.
+- I fully appreciate the fact that George W. Bush won 49% of my district.
+- I fully support global commerce.
+- In view of China's growing military strength and intentions, the best way to safeguard Asia's permanent peace and prosperity is to have all Asian countries join forces with other democratic countries in the world to form a global community of democracies.
+- We have for too long put vast oil and natural gas reserves off limits to exploration and production, as The Washington Post editorial stated this week.
+- In coming to the Congress as a new Member and becoming a fellow Blue Dog, we have had an opportunity to share and really spend a great deal of time in examining the challenges that our Nation finds itself in in getting its fiscal house in order.
+- It does not matter what party you are a member of in this great Nation of ours. Accountability and competence are characteristics that Americans value throughout our great land.
+- The civil rights movement would experience many important victories, but Rosa Parks will always be remembered as its catalyst.
+- Rosa Parks will be remembered for her lasting contributions to society. Her legacy lives on in the continued struggle for civil rights around the world. She will be missed.
+- This Department of Treasury, run by this administration, using the same tried and true accounting methods that every business in America uses, cast new light on the fiscal severity that our Nation is facing, what some would call a mess.
+- Too often, Indian tribes are at the mercy of the shifting political winds of State government.
+- For decades, Japan has been a friend and reliable trading partner with the United States, and I anticipate that relationship will prosper.
+- Despite the previous efforts of Congresses, our addiction to foreign oil, as the President stated, is greater today than ever before. That dependency is a threat to our national security, and we must address that threat.
+- As a matter of fact, if you do not take into account, as Congressman Ross just stated, the Social Security surplus, our fiscal deficit, ladies and gentlemen, is over $700 billion today.
+- The financial report makes it very clear that if we got into honest budgeting today, that in fact we would find ourselves with a much larger deficit than we have today.
+- As Taiwan's friend and ally, I believe it is important for the United States to monitor the situation in the Taiwan Strait very carefully to help ensure Taiwan is not forced into a position which would endanger its freedom or its democracy.
+- The Crime Victims Fund is distributed to service providers who assist millions of crime victims annually throughout our communities in a host of ways. It is paid for by fines levied on criminals, not taxpayers.
+- Our current energy policy is bankrupt.
+- Mrs. Parks was a shy, soft spoken woman who was uncomfortable being revered as a symbol of the civil rights movement. She only hoped to inspire young people to achieve great things.
+- Should we attempt border security first, which I believe we should, we still need to face the fact that comprehensive reform is necessary. This must include a guest worker program and dealing with the 11 million people who are here today that are contributing to our economy.
+- Conservation is an American value, and it is lacking from this bill.
+- But we must take other steps, such as increasing conservation, developing an ethanol industry, and increasing CAFE standards if we are to make our country safer by cutting our reliance on foreign oil.

@@ -1,0 +1,85 @@
++++
+author = "Nicole Byer"
+title = "Nicole Byer Quotes"
+quotes_len = "79"
+description = "the best 79 Nicole Byer Quotes"
++++
+- L.A. may be easy for the beautiful because it's the land of the beautiful.
+- I don't know if there is too much bacon! I used to have bacon parties. That's how much I love bacon.
+- I'm generally a positive person.
+- Typecasting is a thing, but when it involves race, it narrows the roles available to an almost comically small amount.
+- I'm very silly.
+- Feeling supported when you are doing comedy is the best way to make comedy - at least, that's how I think.
+- I really like Beyonce. She's a perfectionist who works really hard on each and every performance.
+- No, I was not into cake fails before hosting 'Nailed It.'
+- I don't have any plans to ever diet again, but exercising does help with life. Endorphins are real, and it's annoying because I don't like to exercise. I hate running, but I started weightlifting, like, 150 pounds, and it's fun, and it makes me feel accomplished.
+- Commercial auditions can be pretty humiliating.
+- I don't preach body positivity - I'm just okay with the body I'm in and say, 'I love me, so you should love you.'
+- I think I saw 'Ghost' at, like, 6 or 7 - like, a little too early to see 'Ghost' - but I would watch Whoopi over any kids' thing. Everything she did was so funny, and all of her scenes are almost like sketches.
+- I'm not mean. I can't do a roast.
+- I love pigs. I think they're very cute. I really want a pet pig, but those micro pigs, they don't stay micro.
+- Putting a wig on and a costume and doing a wacky character is always fun.
+- You don't need someone to complete you.
+- I'm not conventionally beautiful, but what is beauty? Beauty is whatever you want it to be.
+- I've said it before, but I'll say it again because you can't say it enough: Your skin is beautiful - dark, light, in the middle, whatever. Brown is beautiful. Your hair is beautiful. If you wear a weave, it's beautiful. If you choose to be natural, that's beautiful. Also, you are enough.
+- I've always been a mediocre student, so I never won an award in school. I'm not very athletic, so I've never won a sports award. So, I'm a mediocre person.
+- If someone is going to say something nasty to me about my body, that means my body is powerful. If you really stopped your day because you needed to say something to me, that's power.
+- I'm very, very comfortable with who I am.
+- I love UCB Chelsea. There is, to me, no stage like it.
+- Comedy is subjective, so if you don't like it, that's fine.
+- I had a casting director tell me to be blacker.
+- My mom was a really positive, jovial person, so I try to keep it upbeat like that.
+- I was in a Rite Aid... and fell into a Christmas tree display. None other than Shia LaBeouf helped me out of it.
+- I search my name on Twitter because I don't want to miss the compliments, and I favorite the nice things people say about me so they know I saw it. People are more positive than they are negative, and I try not to harp on the negative.
+- In school, no one teaches you to look for things that are right for you.
+- Dogs are very strange, but they're wonderful and they love to cuddle, and their breath is so stinky!
+- People like me as a host.
+- I think we go through the world feeling alone and singular, and you forget that your one story is probably the same as millions of people's stories. Maybe with different specifics. But a lot of people experience the same things.
+- I don't get dressed for other people. I get dressed for what I see in the mirror. My body isn't for other people's consumption. If I smile when I look in the mirror, then great. Let's start the day.
+- To see another fat girl on television, I think, is really powerful. I'm happy to open the doors for a younger generation of fat, black women to be visible, to be seen, to be heard.
+- It's not a weakness to admit that you're wrong.
+- I moved to New York and went to a performing arts college, but it wasn't until UCB that I started performing on the regular, figuring out how I'm funny, why I'm funny, and how to play with an audience.
+- Let's just let funny people be funny.
+- If someone goes, 'Can you be sassier?' I go, 'I can be my kind of sassier. I'm not gonna put a voice on. The voice I have is my voice.'
+- Be comfortable in your skin.
+- On '90 Day Bae,' Marcy Jarreau and I recap '90 Day Fiancee' because it's just the most insane, funniest show on television.
+- My style is like, if I were to time travel to the '80s or '90s, I would fit in, but they would be like, 'Something's off about her.'
+- I hate that there's such an emphasis on women in comedy. Are women OK? Are they just as funny as men? Yes!
+- I would say I have more in common with drag queens than I do with most people.
+- What can cake teach you about life? That practice makes perfect, and if you try something once, it probably won't be perfect, and you have to keep working on it if you want to be good at it.
+- I wear a lot of vintage, thrifted stuff.
+- It's easier to cast yourself in something you've written because you know your voice.
+- I've lived an interesting life.
+- I'm not heavily into baking.
+- Improv is so freeing because there are no bounds; there's no safety net. You just say something and get an instant response.
+- When I was little, I used to love eating peanut butter sandwiches with tomatoes, and they would have to be on potato bread. I loved them. It's so weird, and I can't imagine eating it now, but I used to love eating them. It's a lot of flavors.
+- I don't think anyone gets into comedy to host a baking show.
+- I'm not sassy all day every day. I have levels and feelings.
+- I get it - there are very few black female actresses who have been given chances.
+- I'm not a baker, and I don't know anything about baking, and I don't claim to.
+- Comedy can do so much more than make you laugh.
+- People don't listen to each other anymore, and I think that's why people get offended or their feelings get hurt: because you're not actually listening to the person that's giving you signals they're upset.
+- Never in my wildest dreams did I think I would look people in the face and be like, 'Your snake cake's not good.'
+- The way I toe the line with comedy is I run jokes past people.
+- In my comedy, I'm not always trying to say something, but when I'm playing a creepy dude, you're laughing because you know that creepy dude. You've heard that dude say something awful, and I'm just putting a little creative spin on it.
+- I just woke up one day was like, 'People know you're fat whether you have a cardigan on or your arms are out, so why not just let your arms be out because you're hot.'
+- I am an archetype. There's the fat, sassy, black friend, you know? That's an archetype that exists, but that's not truly me.
+- My favorite thing from Dairy Queen is a Peanut Buster Parfait, which is: fudge at the bottom, vanilla ice cream, some peanuts, fudge, peanuts, ice cream, fudge, and it's layered. But I also really like peanut butter cups, so I'll put peanut butter cups in there.
+- I am surprisingly very sensitive.
+- Talking-head shows are just a camera, a sound guy, and then a PA writing down what you say and a producer asking you questions. And you're just supposed to rephrase the question and add a joke to it. Figuring out how to do that was super hard.
+- Making food is a labor of love - it's a nice thing to do for your loved ones to show you care about them, that you took the time to make them something. But for me, I don't cook. I would much rather hop in my car and go to a restaurant.
+- I want to bring my color and background to the table because it makes life - and entertainment - more interesting.
+- It's so hard for me to insult people.
+- I perform at the Upright Citizens Brigade Theatre, where my race and gender are rarely pointed out.
+- What I needed to do was carve out parts for me, roles for me that weren't just the sidekick, where I got to be the lead, because that's breaking through.
+- I was a server for a while, and I was a very bad one. So when people tipped me well, I felt like it was like, 'Let's get her out of here so she can get a new job.'
+- Red Lobster reminds me of my dad because he would always get coupons and be like, 'We're going to treat ourselves.'
+- During my 20s, I truly said 'yes' to everything, whether it was a good idea or not.
+- I know Jonathan Van Ness from comedy, and he's got this wonderful show on Funny or Die called 'Gay of Thrones.'
+- If you want to change your body, that's well within your means to do that, but if you don't want to change your body, you need to accept it and embrace it.
+- I'm just - I'm a child.
+- I like sweet-and-salty things.
+- I love potato bread. It's so good.
+- I've done a handful of voiceover and on-camera jobs where I've been asked to 'be blacker.' That's code for sassier, more ghetto, more neck rolls and snaps.
+- My mom was like, 'You talk so much. You have too much energy. Why don't you just join the play or something?' It was a comedy, and I got laughs in rehearsal, but onstage, in front of a whole audience, I got a lot of laughs.
+- I love therapy. I talk about it a lot because I feel like, especially among black people, it's stigmatized.

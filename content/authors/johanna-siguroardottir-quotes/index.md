@@ -1,0 +1,14 @@
++++
+author = "Johanna Siguroardottir"
+title = "Johanna Siguroardottir Quotes"
+quotes_len = "8"
+description = "the best 8 Johanna Siguroardottir Quotes"
++++
+- I have always worked hard, and seeing so many Icelanders make tremendous efforts to cope with difficult tasks and decisions inspires me.
+- Egalitarian policies are the best way to unite and empower people, and are also a necessary counterweight to the sometimes detrimental influence of market forces.
+- A society that does not use the intellectual power of its female population fully is not a wise society. Most women are not as tainted by mistakes in the conduct of the economy as the male population, and now they deserve an opportunity.
+- The Nordic countries are leading the way on women's equality, recognizing women as equal citizens rather than commodities for sale.
+- There is a time for everything, also for my time in politics which has been long and eventful. Now I believe it is time for others to take the baton that was passed to me following the crash. I have therefore decided to leave political life at the end of this term.
+- I would like to remember all and be able to forgive everything - in due course!
+- The Icesave matter is complex and it is understandable that the issue has been oversimplified by many. Unfortunately some of the basic facts of the matter have been unilaterally interpreted, and sometimes distorted, giving rise to unjustified criticism of the conduct of the Icelandic authorities.
+- Greed can't again lead the way. We've taken that route before with terrible consequences for this nation and its people.

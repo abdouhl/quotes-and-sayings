@@ -1,0 +1,106 @@
++++
+author = "Jo Swinson"
+title = "Jo Swinson Quotes"
+quotes_len = "100"
+description = "the best 100 Jo Swinson Quotes"
++++
+- I rage when Boris Johnson is more interested in sucking up to Donald Trump than standing up for British values of decency, equality and respect.
+- A girl born in Drumchapel in Glasgow has just as much right to good health and the opportunities provided by a good education as a Surrey stockbroker's son.
+- So much of what young people perceive about their body image is taken from watching their parents... I think we need to look at ways we can help parents pass on more positive messages to their children, and perhaps some of that can be done through health visitors, for example.
+- My experience in government is there is a whole host of unintended consequences you have to think through. I can't un-know that, I find it harder now to offer simple solutions.
+- My mum used to send me cuttings from the local paper about people who'd got married as a kind of 'hint hint'. But then there was one cutting about my home seat's boundary changes, and how it might be good for the Liberal Democrats, and I knew this was an opportunity.
+- Those fundamentally liberal values - openness, inclusion, internationalism - are what truly represent the best of Britain, and it's those values that I'm determined to fight for as leader of the Liberal Democrats.
+- There is no form of Brexit that will be good for our country but a no-deal Brexit will be the most catastrophic of them all.
+- There is this big yawning gap in the middle of British politics, the Conservative and Labour parties have gone to the edges. In this divided, polarised world, the pragmatic centre ground is a bit unloved.
+- I still have a good girl deep inside, but also recognise that it's worth saying things people will disagree with or get annoyed.
+- I'm a massive feminist, but I think it's a little unfair on the other sex saying they're not in it to change the world.
+- I'm perhaps not the most tribal of politicians. Working in a mature and adult way where you recognise what your shared goal is and you manage to work towards that... that is not something which I think would be particularly more difficult with Labour than it is with the Conservatives.
+- I knock on lots of doors, but you don't reach everyone that way - Twitter is just one of many ways of keeping in touch.
+- London is a liberal city, in all senses of the word. It is a city built on the idea that the multitude of cultures that inhabit it are a benefit, not a curse, where communities from all over the globe live and work side by side, enriching each other's experiences.
+- Every January we see these fad diets promoted. These aren't promoting healthiness, these aren't promoting a way of embracing exercise and eating fruit and veg and doing things which will actually help people.
+- Shared parental leave is good for dads. Looking after their newborn on their own is a unique learning experience.
+- I loved reading. I was one of those kids who was supposed to go to bed but had a torch under the duvet. That love of reading stayed with me.
+- My five years' experience working in small businesses and a multi-national company have helped me as an MP to understand the challenges that businesses face, however the bottom line is that it's up to constituents to judge whether you are good enough to do the job.
+- I was elected to Westminster when I was 25; I was Britain's youngest MP.
+- I know as an aunt, you fall into the trap of turning to your niece and saying, 'you look beautiful' - because of course all children do look beautiful - but if the message they get is that is what's important and that is what gets praise, then that's not necessarily the most positive message you want them to hear.
+- Since signing up to Think Act Report, the majority of members are taking more action and publishing more information on gender equality.
+- But I don't feel that as a politician I'm hugely different. Obviously I have a different set of experiences that chime with experiences that many of my constituents have. I think I essentially still have the same set of values and the issues that are important to me don't seem to have changed hugely.
+- When I was pregnant during my time in Parliament, I was frequently asked by the media how I would manage being an MP and a mum, as if the two are somehow mutually exclusive.
+- Two weeks into looking after a newborn, you don't necessarily feel as if you've got it all under control. It's just turned your life absolutely upside down, and I think there are a lot of parents who would feel that having the opportunity for both parents to be around in those early weeks would be something that would be really, really valuable.
+- I love Harriet Harman, she is a supporter of women of all parties, a kind word, a friendly voice, and this country is lucky to have her.
+- One of the things I love most about Lib Dem members is that for all our policy disagreements, we agree on why we're Lib Dems in the first place.
+- Being an MP is quite a strange job, because you do it in two different places. Half the time I'm in Westminster and the other half I'm in my constituency and the job is different in both of them.
+- Men want to play a bigger and equal role in raising their children, but as a society we don't support them in that.
+- As Minister for Women and Equalities, I introduced shared parental leave, extended flexible working rights and won government support to bring in gender pay gap reporting. I'm not going to lie: it was a constant battle.
+- I think it's been lovely the way people have been really supportive in parliament of my pregnancy.
+- We will never achieve equality in the workplace until we have more equality in the home. Our plans for an extra four weeks of parental leave specifically for fathers will help tackle the assumption that parenting is one of the 'girl jobs'.
+- We have a massive shortage of engineers and one of the big glaring holes is that we have so few women doing engineering - it's less than 10 per cent of the workforce.
+- Having studied politics doesn't necessarily give you political nous.
+- I respect everyone's right to their own religious beliefs, but for me, this cannot extend to our education system treating some people's lives and identities as if they are somehow less worthy of respect or love.
+- A book I often refer to by Naomi Klein is called 'No Is Not Enough'. It's not enough to be against something. You have to actually be for something. A better alternative. For me, that's about transformation.
+- The UK's most forward-thinking employers already know they need to attract, retain and promote the best talent - both male and female.
+- One of the initiatives I have pursued in Parliament has been to make it easier for the public to see what their MPs do in the House of Commons by removing the ban on Parliamentary filming appearing on YouTube or similar web sites.
+- With parenting, like any other skill in life, practice makes perfect.
+- So I hope women will consider a life in politics. We need women, you see. We need them.
+- If there was a Liberal Democrat government, there clearly would be women in the Liberal Democrat Cabinet.
+- I want to stay in the European Union which is the best trade deal we could possibly have, but we need to call out racism.
+- I want to lead the Liberal Democrats so that we can build a liberal movement to stand up to those nationalist forces and stop Brexit, then transform our broken economy so that it is focused on the long-term and works for both people and our planet, tackling poverty and averting climate crisis.
+- We need more men to talk about their experiences of being a dad with colleagues, friends and family. It shouldn't be surprising to hear about men being good fathers and it's one of the most powerful ways we can counter the harmful 'hapless dad' stereotype.
+- Since 2016 we've been campaigning to improve the rights of renters, especially those on low incomes who are being ripped off by stratospheric admin fees, which puts them at risk of homelessness.
+- Being transparent about parental leave and pay policies will help build a workplace culture where men also feel supported in taking on their fair share of caring responsibilities.
+- Politics now is fractured. The rising tide of nationalism and populism threatens to consume our politics. Whether it is Trump or Putin abroad, or Boris Johnson and Nigel Farage at home, our political order is increasingly dominated by forces that seek to divide us.
+- Whether it is throwing people under the bus or writing a lie on the side of one: Britain deserves better than Boris Johnson.
+- By stopping Brexit, investing in skills and providing tailored support to key industries, we can get the UK economy back on track and help the communities that have been hit hardest by the threat of Brexit.
+- There is nothing that compares to the bonding between parent and child in that first year of life. Study after study shows how both parents being involved in the early weeks and months of a child's life is good for the child's development.
+- If you're going for an interview, you will dress smartly and look the part, that is absolutely fine, but it's just the level to which this becomes the ultimate focus of everything, where you have people who won't go to school unless they've put their make-up on, or won't leave the house unless they've spent two hours getting ready.
+- I think it's important that we challenge the idea that women who have babies are not fit for work and don't have value. There is massive pregnancy discrimination, in parliament and right across society.
+- I think our stance on Brexit has perhaps been one of the most powerful things in helping people to recognise the values of the Liberal Democrats.
+- There is, I think, far too much guilt generally in society around parenthood, about whether or not you breastfeed or whether or not you bottle feed. We know the evidence is very strong in favour of breastfeeding and the benefits of that, but it shouldn't mean we make people feel bad if they can't do that for some reason.
+- I would encourage anyone who shares our liberal values in or outside parliament to join our party and join our liberal movement. Our door is absolutely open.
+- Boris Johnson has only ever cared about Boris Johnson.
+- When I was a little girl, about eight, I remember going into the Body Shop - that was my first introduction to campaigning. There would always be a petition at the till about fair-trade or stop testing on animals, and the message was: get involved and make change.
+- Our country deserves a party that isn't afraid to say immigration is a good thing, or to say that Donald Trump is racist, or to admit that we have an economic system that is fundamentally broken for too many people and is breaking our planet too.
+- My childhood was a mix of ballet classes and debating society. I liked arguing. As a teenager, I wanted to be an author. Later on, inspired by Young Enterprise and the Body Shop founder Anita Roddick, I decided I wanted to go into business.
+- No-deal Brexit can and must be stopped. To do that, MPs across Parliament who oppose it need to stand up and be counted. The options available are limited, and we must come together around a workable plan.
+- Far from the quick and easy exit that Leave campaigners once promised, Brexit has become mired in its own internal contradictions.
+- So when your sister or your friend is standing there and moaning about whether she looks really fat, and actually she looks gorgeous, tell her so and support each other.
+- I have no limits to my ambition for the Liberal Democrats.
+- Having a child is difficult enough already, bringing with it a whole range of wonderful challenges, and we shouldn't be trying to guilt parents into 'there is just one way to do it'.
+- Equalities issues are a key part of the Liberal Democrats and under my leadership we would push for them at every opportunity - whether in government or not.
+- People in Scotland want to have Scotland in the UK and the UK in the EU, and that's what the Liberal Democrats are arguing for.
+- Much of the responsibility to get more women elected is down to political parties. I am proud that a third of Lib Dem MPs are women, and I know we must work harder still to spot and nurture talented women at all levels in our party.
+- We need to achieve a change in the media and in the way women are pressured to conform to a narrow image of beauty - it's a lofty ambition but it's important to make a start.
+- In the cut-throat political system we have in the UK, you have to be prepared to put your head above the parapet and be confident in your ability to get the job done.
+- A researcher has to be able to identify key points and suggest intelligent questions.
+- Across society, the lion's share of caring responsibility - whether for children or elderly relatives - still falls on women.
+- It's very hard for politicians to ignore even just a handful of letters about the same issue.
+- Much of political decision-making concentrates power in the hands of those already inside the circle, who tend to be men. Excluding women may not be the intention, but when they are not invited into the room where decisions are made, you can see how it happens.
+- If you look at the role models that are out there, the women that tend to be photographed tend to be actresses and models, whereas the men are often in the media because of what they do in terms of business and sport.
+- While the problems facing the country are huge, it is in times of great disruption that we can make the most important changes to our society and help to rebuild our fractured, broken politics.
+- In Westminster, I make sure I maximise my ability to represent my constituents. I can do that in a variety of ways: by asking written questions or questions in the House of Commons, through the scrutiny of bills and by sitting on the environmental audit select committee every week, as well as other committees.
+- I joined the Lib Dem party at the Freshers' Fair at the London School of Economics.
+- We need to transform the economy so it works for people and the planet.
+- In some ways the fact that you are sometimes confronted with people who have such an opposite view to you on certain issues in many ways reinforces that identity that you have.
+- As minister for business and minister for women and equalities, it is clear to me that promoting equality of opportunity simply makes good business sense.
+- Every day we let this Brexit mess go on means less money being invested in the UK, fewer jobs being created and less tax revenue to pay for our public services.
+- I believe there are millions of people across the country who are crying out for someone to stand up for liberal values.
+- The rise of populism has steadily coalesced movements of millions of people around its divisive us-against-them rhetoric, motivating so many more people to become active political campaigners and party members to champion the case for liberal democracy.
+- To take on the forces of nationalism and populism, we need to rally a liberal movement that offers a positive, alternative vision for the kind of country we want to be.
+- Education is there to help our children negotiate the world and understand the communities they're a part of. We owe it to them to provide them with the best information we can to live their lives happily, safely, and without discrimination.
+- The piece of legislation that I'm so excited and delighted to be doing is shared parental leave.
+- Research shows that when children have no body confidence at school they're less likely to put their hand up in class and ask a question.
+- Do I want more women elected to Parliament? Absolutely. I devote significant amounts of time to getting more women in that situation.
+- We champion freedom - but Brexit will mean the next generation is less free to live, work and love across Europe.
+- I am so glad that as a party the Liberal Democrats are united in our resolve to fight for staying in the EU - it means we don't need to waste time on internal infighting.
+- I have ruled out Coalitions with Brexiteers because it's so fundamentally opposed to our values.
+- I want the UK to be a global leader in developing and deploying technology, but I also want us to ensure that the benefits are fairly shared across society.
+- If we want a Parliament that understands people's lives when it takes decisions, it needs to be representative of society, which includes having MPs who are parents of small children - both mums and dads.
+- For so many in the UK, the social contract is broken - the idea that if you work hard and play by the rules, you'll reap the rewards. Advances in robotics, artificial intelligence and other technologies are just as capable of fixing the social contract as they are to weaken it further.
+- I'm the leader that can be the rallying point for the liberal movement that we need to create to take on the forces of nationalism and populism, the likes of Nigel Farage and Boris Johnson.
+- Over the course of history, the answer to nationalism has been liberalism, and I believe it can be the answer again.
+- You look at the sports pages and you'd often be forgiven for thinking women didn't do sport.
+- Politicians should be judged on their actions, rather than necessarily their views on scripture.
+- There are five main barriers to women entering politics - I like to think of them as the five Cs: cash, caring, culture, confidence, and the closed club.
+- Publishing parental pay benefits will let employers show that they're family-friendly and enable them to better attract talent, potentially spurring on some very healthy competition.
+- If your aim is to give practical, sensible advice about losing weight - and not how to drop a stone in five days - you should encourage reasonable expectations, instead of dangerous ones, along with exercise and healthy eating.
+- I'm not supporting Jeremy Corbyn. If we are to have an election I would fight as Lib Dem leader as the party of remain that hasn't equivocated on this like Jeremy Corbyn.

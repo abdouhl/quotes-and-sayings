@@ -1,0 +1,25 @@
++++
+author = "James D'Arcy"
+title = "James D'Arcy Quotes"
+quotes_len = "19"
+description = "the best 19 James D'Arcy Quotes"
++++
+- The reason I wanted to be an actor is that I don't want to play me for the rest of my life and make money out of that.
+- I'm attracted to seeing how different I can be, pushing the boat out.
+- It's difficult to gauge that. With a bad guy you just know you're bad. To play a nice guy is harder - unless you are a very nice person like me of course.
+- The good guy only gets the girl in a soppy way.
+- I find it incredibly romantic that people should fight for a cause they believe in and be prepared to die for it.
+- Although this is a fictitious story the history is real. You don't want to re-write history but you certainly want to portray events and characters as realistically as you can.
+- Now here I am playing a passionate young Irishman who would die for what he believes in.
+- I don't have any expectations as an actor, and being rich and famous is not my driving force.
+- I'm not really very ambitious.
+- I'm not really very ambitious. I'm more interested in enjoying my life and looking after my family than being hugely successful.
+- It was only when I finished the course and left my graduation diploma on the bus that I realised I'd become an actor.
+- Baddies always do get the best lines, that's the honest truth.
+- There are lots of people I admire and respect, but I don't necessarily want to be like them. I'm too happy being myself.
+- I talked to everyone about the project: actors and extras, members of the crew and passers by.
+- There is an odd sense of responsibility attached to appearing in a drama about a real piece of history. A work of fiction is fun.
+- When I left school I went to Australia for a year and worked in the drama department of a school in Perth.
+- It felt good doing a physical job, and going home each evening feeling like I had really done a day's work.
+- I went further and further back through the centuries to get a sense of perspective but now at least I understand why Irish history evokes such strong passions and emotions.
+- I'm more interested in enjoying my life and looking after my family than being hugely successful.

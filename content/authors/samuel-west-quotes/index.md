@@ -1,0 +1,29 @@
++++
+author = "Samuel West"
+title = "Samuel West Quotes"
+quotes_len = "23"
+description = "the best 23 Samuel West Quotes"
++++
+- I'm not very good at relaxing. Reading's the main thing. On the bus, on the tube, on the loo. Literally all the time. I mean, I don't think there's a moment of the day when I wouldn't be if I was left alone.
+- When you are in a bad production there are two things you can do. You can do your best or you can leave. I chose to do the third thing which was sulk.
+- Of course 'Hamlet' is a debate about the nature and morality of revenge and whether it is right to do something to assuage your angry feelings.
+- I'm lucky enough to work with, I think, the greatest writer there's ever been, Shakespeare. Whose collected works would always be under my pillow if I was only ever allowed one book to keep, and who never bores me.
+- Books don't exist unless you read them. And it's a two way process - you write the book as you read it and you fill in the gaps. You discover it and you put the marks together and without you doing it they're just marks.
+- If you play a part that's been done before, on stage for instance, you feel like you're carrying a torch and staggering under the weight of it for a bit and then passing it on to somebody else.
+- It would've been hard to do something else, to as it were, run away from the circus and become an accountant.
+- I usually play toffs and soldiers, with a sideline in mass murderers.
+- I did start reading quite young but I was always read to by my parents, who are both actors. Bedtime stories from when I was about two/three to when I was about 15. In fact they didn't stop until I eventually kind of kicked them out of my bedroom.
+- I'm rather proud of having been a trainspotter.
+- I mean I think children love the idea that there are different viewpoints and different words for things and different worlds. And the more that they pretend to be other people, the harder it is for them to hate them and misunderstand them when they grow up.
+- Most good art is left wing. It's a moot point whether there is any good right-wing art.
+- Most actors are socialists, aren't they?
+- We'll be back. I promise you that.
+- I absolutely love working with my dad because there is such an ease about it, and I also love his company.
+- Stamps from Afghanistan are hilarious. You can tell when the revolutions are because suddenly they stop having pictures of the mullahs and the independence monument and they start having fish on them.
+- What I do believe is theatre is a medium with a peculiar ability to air vital issues.
+- At heart, this job is about continuing to make great theatre for the people of Sheffield - a city I've known and loved since childhood.
+- My one remaining professional ambition is to read the shipping forecast. I live in hope.
+- The idea that if you are very clever you shouldn't be an actor would be laughable in Russia.
+- When people say, 'If I had my life over again I wouldn't do anything different,' well, I'd do everything differently just for the variety.
+- I am a coward, basically, but one of the things about acting is that you are always putting yourself through yet another test.
+- I really do think the things that make our society what it is are under threat. It should be about everyone having the potential to be what they're going to be.

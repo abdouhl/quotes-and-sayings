@@ -1,0 +1,75 @@
++++
+author = "Miranda Kerr"
+title = "Miranda Kerr Quotes"
+quotes_len = "69"
+description = "the best 69 Miranda Kerr Quotes"
++++
+- I live by the philosophy that beauty starts from within, and I make a conscious effort to fill my body with nutrients through the food I eat.
+- I celebrated my 18th birthday in Japan, which was quite memorable; I was quite fascinated by the different traditions and the culture; it was so completely different to Australian culture.
+- My ambition comes from my passion: finding what I love and then expanding on that.
+- We all say things sometimes to hurt people, so it's important to forgive and have peace with others and forgive and be at peace with yourself.
+- I want to be a good role model for girls and show them they can do whatever they feel passionate about and still live a healthy life.
+- I want to encourage women to embrace their own uniqueness. Because just like a rose is beautiful, so is a sunflower, so is a peony. I mean, all flowers are beautiful in their own way, and that's like women too.
+- I try my best to eat healthy the majority of the time so that I feel good and have more energy. I am so passionate about eating healthily, I am actually certified in nutrition. I try my best to eat organic whenever possible, but it's important not to be too strict about it. Just do the best you can.
+- If I was as relaxed as what I perceived myself to be, I would not be able to multi-task the way I multi-task.
+- If you want to relax, watch the clouds pass by if you're laying on the grass, or sit in front of the creek; just doing nothing and having those still moments is what really rejuvenates the body.
+- Maybe I am too traditional, but men feel important when you ask for their help instead of thinking you can do it all on your own.
+- It doesn't matter who you are: being human is being human. Everyone has days that are challenging.
+- I'm a pretty driven person, and I've accepted that about myself. For a long time, I was like, 'I'm a very laid-back person, I grew up in the country,' but I'm also very driven, otherwise I wouldn't be where I am right now.
+- I love to sing, and I've recorded a few covers and originals with friends, but I haven't written any songs.
+- To wake up to the sound of my son saying 'Mama, mama!' It's the best sound ever.
+- When I get home, I'm not the boss like I am at work - I slip into a more feminine role. I take everything off and put on my Stella McCartney silk robe. I'll put on a red lip or red nails, and it lifts my mood. Sexy underwear also gives you a spark.
+- I guess I'm just an open-hearted, fair, good person. I try to encourage people to be their best and look inside themselves and find out what they are passionate about and expand on that and enjoy life.
+- Everyone has things that they don't love about themselves but I think that as a woman its much healthier and more positive to focus on your good parts and the things you like about yourself, not pick yourself apart.
+- I find the practice of yoga very spiritual and taking the time to just be and to reflect through meditation and chanting helps me to connect to a higher energy.
+- I spent my childhood outdoors on my grandparents' farm. I learned to ride a motorbike when I was about six, a little PeeWee 50. I'd climb trees - there was a big weeping willow.
+- I love singing just for my own benefit.
+- Some sunshine is good for the soul, but I always make sure I wear a big hat.
+- A celebrity life can be very fast-paced, and it can be hard to find meaning in it. I believe that everyone is looking for the answers, but the answers are within ourselves.
+- While it's nice to appreciate the fashion world... what makes you happy are real relationships and the moments you share with loved ones.
+- People don't even realize the power the mind has over the body in the way you perceive things. Change your thoughts, change your reality. Words are powerful - every thought and every word we think has an effect on the body.
+- I live by the 80/20 rule: I'm 80 percent healthy, and then 20 percent indulgent.
+- Yoga is at the core of my health and wellness routine; even if it's only for 10 to 15 minutes I find it helps me to re-center and to focus as well as improve my overall core strength.
+- I'm quite tactile, so I like fabrics that feel good. I try to avoid fabrics that crease - especially with my son. When you have a child, that's important. A great pair of a jeans, a t-shirt and some loafers, that's what I always wear.
+- When you can, it's good to make healthy choices. But, I also believe in balance. It's not about being 100 percent this way or that way. It's about making healthy choices when you can.
+- I'm very direct. It's part of my personality. I've actually grown into that.
+- My mistake in my relationships has been to feel that I can do it all on my own: 'I don't need a man.' That is definitely a mistake. Women generally want to feel loved and appreciated. It's something that I am working on every day, trust me! It's a challenge for me to do that.
+- I work really, really hard and it's challenging going through all of those time zones and having to be awake when you're supposed to be asleep. I literally fly more than a pilot.
+- I always see myself as, like, equal to everyone.
+- I'm that person who says, 'No matter what the problem is, there's a solution.' That's the way my brain is wired. If someone says to me, 'Well, that's not possible. It can't happen,' I say, 'Yes it is. I'm going to sit here and show you that it can.'
+- As a child, I was very active. I was a gymnast, I played touch football, netball and basketball. When I was 16 years old, I started yoga. I started working out at an early age.
+- When I pray, I always thank Mother Nature for all the beauty in the world. It's about having an attitude of gratitude.
+- Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.
+- I really feel that my body craves to be in the mountains or by the ocean or in the countryside.
+- Women, I think we can feel like we need to do it all and be it all. What's important is that we do the best we can, and just make time for yourself because when you do make time for yourself, you give back more as a mother; you give back more to your work.
+- I love taking pictures of food.
+- For me it's all about keeping things simple and feeling comfortable in what I am wearing. I prefer investing in classic well-tailored pieces.
+- I really love over-the-knee boots. I think they're super sexy and they're fun. And they're also very strong and empowering.
+- A nice person is a 'yes' person, whereas a good person is a person who accepts their responsibility in things and moves forward and tries to constantly evolve and isn't afraid to say no or challenge someone or be honest or truthful.
+- Of course I'm going to be labeled as a sex symbol. I made my bed, and I'm sleeping in it.
+- What I like about modelling is that it has given me that opportunity to travel and experience different cultures, work with creative people, and now it's given me a voice, and with that voice hopefully I can do good things with it.
+- I feel like life is really short, and it's important to enjoy yourself and embrace whatever comes your way, whether it's a challenging day or a great day, just welcome it with open arms. No matter who you are, you can't escape challenges; they are part of life.
+- Models are some of the most insecure people I've ever met. They're constantly being told they're not good enough. You've really got to practice loving yourself.
+- I can't feel bad about being who I am, just like the girl next to me can't feel bad about being who she is. Because a rose can never be a sunflower, and a sunflower can never be a rose.
+- I really love a red lip, especially when I am feeling tired, as it brightens my whole face.
+- I really appreciate the fact that with my job I can encourage people, especially young women, and if I find something that's helpful, I like to share that knowledge.
+- My goal involves a hammock, a vegetable patch, and a solar-powered house. And I hope to eventually get there.
+- Every day, I like to wake up and remind myself to be grateful of the simple things.
+- I'm doing my best to raise my son and give him a nurturing, loving, and caring environment so he can grow up and be the best version of himself.
+- I think the perception of me can be, you know, confused. But that's only because people only see that side of me when I'm at work, in front of the camera. So they don't see Miranda at home; they don't see behind the scenes. They see the glamour of it all but they don't see Miranda standing barefoot in a dirty old house.
+- I've always been very comfortable wearing not much, in my swimwear or my underwear, or running around naked. I've always been very free like that. I don't really know why, exactly, but I just have been. Not really too shy about that.
+- When I was young I wanted to be a gymnast. I used to compete at it, but then I grew too tall.
+- I love being outdoors and try to work out outside when I can. I spent most of my childhood outdoors.
+- I grew up sitting beside my grandmother playing the piano and singing.
+- I consider myself a good person. And I think people perceive me to be, 'Oh, she's nice,' but being a good person, knowing your strengths and working towards those strengths, and encouraging those around you to do the same, that's a good person.
+- I love going for walks and like to do fun active things outdoors.
+- I love being outdoors. I love listening to the crickets. I want to embrace nature.
+- I think for any relationship to be successful, there needs to be loving communication, appreciation, and understanding.
+- I believe in celebrating the female figure and embracing what we've been given, not hiding that.
+- I do enjoy wearing a little heel when I'm at work, but when I'm running around with my son, it's a different story!
+- For me, family is life. The decision to start one wasn't complex at all. My career has been wonderful, but it's not my life. I don't feel pressure to get back to work.
+- I feel like knowledge is power: If you know how to take care of yourself, you can be a better version of yourself.
+- I have a weird sense of humour. My dad's the same. We love watching 'Monty Python' together.
+- I got stuck up a tree when I was about seven, and my dad had to come and get the ladder to get me down. I loved to climb all the way up to the top. I must have been a koala in my past life.
+- I collect underwear from my travels. Lace, lingerie, bodysuits... they're like souvenirs.
+- I've always had a burning desire to help people and make a difference in the world. I didn't know how I could do that in modelling when it can be such a fake world. But my dad told me I could make a difference by being true to myself and teaching people what I've learnt about spirituality, health and nutrition.

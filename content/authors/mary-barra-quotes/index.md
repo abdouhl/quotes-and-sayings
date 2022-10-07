@@ -1,0 +1,34 @@
++++
+author = "Mary Barra"
+title = "Mary Barra Quotes"
+quotes_len = "28"
+description = "the best 28 Mary Barra Quotes"
++++
+- My senior leadership team is half people who have been at GM for a long period of time like me, and others who have joined the company within the last five years from different industries, experiences, and countries. You have a better picture of the world. The diversity of thought is where you can make better business decisions.
+- What I always say is, 'Do every job you're in like you're going to do it for the rest of your life, and demonstrate that ownership of it.'
+- If you do every job like you're going to do it for the rest of your life, that's when you get noticed.
+- Connectivity offers a great opportunity for General Motors. When you look at the investment we have made in OnStar and putting 4GLT in and the access you have to not only put data in, and we haven't really tapped into the data you can use from the vehicle.
+- My definition of 'innovative' is providing value to the customer.
+- When I am there at our global product development centers, I am meeting with the design team and reviewing design work being done there and meeting with engineers responsible for work being done specific to that region, meeting with purchasing team.
+- We have vehicles like the Opal Atom that we offer in Europe that offer consumers a huge ability to customize, from the color to the accessories. I'd say it's our vehicle that's the most customizable to give it quite a different look and feel.
+- I started at General Motors at 18 years old as a co-op student at the General Motors Institute, which is now Kettering.
+- When you look at the truck market in North America, you have to understand the customer, and that's one of the things I think General Motors does really well. There's a big population that buys our trucks. It's their life - or it's their livelihood. Not their lifestyle, their livelihood. It's a work truck.
+- My goal is for General Motors to lead in safe autonomous driving.
+- It was great to go to Stanford. Until that point, I'd spent my whole life in southeast Michigan, working for General Motors. I was in a different part of the country. People didn't know what General Motors was, didn't care, or if they did, they might not have had a favorable impression. I saw people driving nondomestic vehicles.
+- Lyft is focused on the customer - the driver - as GM is. I've talked many times about our goal being, 'How we can put the customer at the center of what we do so we earn customers for life?' It's a very common goal of putting the customer first.
+- I never want to get a job because I'm female. I want to get it because I earned it and I deserve it... Whether my hair is going to be blue or purple, people should be judged on how well they do the job and deliver results and whether they do it the right way. That's how I like to be judged; most people are like that.
+- The key with autonomous is the whole ecosystem. One of the keys to having truly fully autonomous is vehicles talking to each other.
+- I know we're all addicted to our smartphones, and I'll say, if I forget my smartphone, I go home and get it. And so understanding how to integrate that technology into the driving experience, both the front seat and the passenger seat and the back seat, I think is very important.
+- My parents were both born and raised in the Depression. They instilled great values about integrity and the importance of hard work, and I've taken that with me to every job.
+- I'm a big believer of work/life balance. You need a little down time to recharge to make sure that when you're here, you're really all here. I still have a child in high school, so I go to her sporting events, even if it means leaving work and working again when I get home. I probably should work out a little more than I do.
+- Our goal is to make General Motors the most valuable automotive company. Clearly, that is having sustainable profitability and driving great returns for our shareholders.
+- It's a marathon, not a sprint. I actually feel like I come to work stronger when I've had a little time on the weekend to step away from it and enjoy my family and other things. I come back energized. If people think they're going to work 24/7, week in and week out, they're not bringing their full strength to the table.
+- The biggest message I have for young women is, Don't start cutting off branches of your career tree unnecessarily early. Sometimes women say, I know I want to have a family or play in the local symphony, and they start pulling themselves out of their career path. You don't have to take yourself out of the running before you even start.
+- My father was a die maker for 39 years, so I had a basic understanding of the automobile industry and what the manufacturing world was like, just from the opportunity to spend time with him - just talking, because he was a car buff.
+- Super Cruise will follow the lanes of the road, follow the speed you set, and you can be hands-off driving on an expressway.
+- One of our most promising technologies is Super Cruise, which is the working name for an innovative system coming to Cadillac in the 2016 time frame. It will allow you to drive on the highway without touching the wheel or pedals, both at speed and in stop-and-go driving.
+- My advice on firing is simple: Treat that person the same way you'd want to be treated if you were in that situation. They're still a good person, just not the right fit. So how do you help them move on in a productive way that allows them to maintain their dignity?
+- My first job at General Motors was as a quality inspector on the assembly line. I was checking fits between hoods and fenders. I had a little scale and clipboard. At one point, I was probably examining 60 jobs an hour during an eight-hour shift. A job like that teaches you to value all the people who do a job like that.
+- I have worked for a lot of really great leaders and mentors that I felt provided me, along with many of my peers - many of them women - opportunities.
+- When you look at the Chevrolet Volt, those customers are some of the most satisfied across the industry.
+- A car is thirty thousand parts you're putting together.

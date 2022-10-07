@@ -1,0 +1,62 @@
++++
+author = "Sara Davies"
+title = "Sara Davies Quotes"
+quotes_len = "56"
+description = "the best 56 Sara Davies Quotes"
++++
+- I came up with the Enveloper when I was 20 and it took my dad and me several months to develop the initial concept into a working model.
+- I know exactly what it feels like to be an entrepreneur with everything riding on a sale.
+- I always wanted to be the best at what I did; I wanted that at university, I wanted the first-class honour and to be the best in class.
+- When we opened our office in Santa Ana, California, in 2016, I could not have envisioned this level of growth, although I always knew our products would be well received by customers in North America.
+- It's a myth that you need thousands of pounds to start a business.
+- For all it is a smaller country in terms of geography, Holland is the most closely aligned market to the U.K. in terms of trend. It is a big nation of card-makers and paper crafters, and Germany's market is at least five times larger than over here.
+- The biggest challenge being an entrepreneur is knowing what you are good at and what you need to build on.
+- I'm proud to say all our products are made in the U.K.
+- By becoming an MBE, I hope it helps raise the profile of our sector and what a thriving industry it is. I also hope it inspires others entrepreneurs in craft to believe, innovate and put our industry firmly on the map.
+- I was the kid at school who wore clothes from charity shops.
+- I worked in my parents' decorating store from six. My mum would get me in every Saturday polishing the paint and straightening the wallpaper for 50p.
+- Sewing is getting more mainstream, helped by the BBC show, 'The Great British Sewing Bee,' and we have to look at those types of things to see how we can use it as an opportunity.
+- All the other students were going to flash firms in London, but I'm a real homebody and was determined to stay in the North-East.
+- Michaels is probably the most respected craft retailer on the planet so to be working with them is a fantastic honour, and it will go a long way in helping us boost U.S. sales.
+- That's what us northern people do don't we? Don't mince our words, just say it how it is.
+- I've been under-estimated myself quite often, and in some ways I quite enjoy it.
+- I have learnt this over time, that Peter Jones, you've gotta watch him.
+- I knew that when I grew up, I wanted to have a business.
+- I was surprised to hear that I would receive an MBE and have no idea where the nomination originated but I'm incredibly grateful.
+- Of course, juggling a career and a baby is tough but, as it's my business, I pick and choose.
+- Just because I'm a lot wealthier now doesn't mean I want my kids to grow up differently to how I did.
+- I get people coming up to me and telling me that they are proud of me for what I've achieved. That is lovely.
+- I knew, back when I was starting up, that if I had something that could be developed for the mass market, I could really take it forward.
+- There's all these stores all over the country and a lot of them are small but they're like little Aladdin's caves full of exciting nooks and crannies filled to the brim with products. Then you've got Hobbycraft, which is like a supermarket for crafts. What we want to be is a hybrid between the two.
+- I understand the highs and lows of building a global business from the ground and taking that initial product idea all the way to the market.
+- It's always good when you prove people wrong.
+- The TV work is so dynamic. You are in front of the cameras, but you are also educating people and genuinely really excited about showing off your products.
+- When I was younger, I used to power dress - I'd wear black and grey and suits all the time, to make it feel like I belonged.
+- I am incredibly passionate about craft but am just as passionate about supporting local craft companies.
+- We work very closely with HSN's buying team, to ensure that our products and demonstrations are as exciting, educational and as inspirational as possible.
+- I grew up in a little pit village on the outskirts of Durham.
+- Someone suggested elocution lessons but there is no way I am changing my accent, I'm proud of my roots.
+- Although I was not a crafter before starting the business, I find it relaxing.
+- Crafter's Companion started life as a big dream in my little university bedroom.
+- A good 60 per cent of my time I spend travelling, mostly to the U.S., Canada and Germany.
+- Both my parents ran small businesses and it undoubtedly made me the person I am today because I've only ever known them work incredibly hard.
+- I just want the business to continue to grow and for our brand to become one of the most respected household names in craft, both in the U.K. and around the world.
+- People forget we've got awesome entrepreneurs all over the country, especially in the North East.
+- In the U.K., we have a lot of independent traders, as well as the Hobbycraft chain, but the U.S. has four of five big chains, which makes crafting very accessible for people and makes it a totally different proposition.
+- There was no way I was going to have a baby and hand him over to a nanny.
+- I'm not a celebrity, but when I walk into Hobbycraft and someone comes up to me to tell me how great one of our products is, it's a bit of a surreal experience.
+- I'm just like the girl next door.
+- I'm an absolute sucker for a bargain. If I go into a shop and there's a sale on, I always head for the discounted stock.
+- When I go to the U.S., the flights are long, and they do affect the body clock, but they are worth it.
+- I've always been very passionate about investing time in and sharing my expertise with other entrepreneurs.
+- The major gripe I heard was from people who made beautiful cards but couldn't find envelopes to fit them. I realised that if I could provide a product that would make envelopes in any size and out of any paper, I could hit the jackpot.
+- Crafting covers so many areas and over the last few years, we have seen a real boom in the U.K. in terms of people adopting craft as a hobby.
+- It's an amazing achievement to win a National Business Award and it recognises all of the hard work and determination of the team of people that have made Crafter's Companion the success that it is today.
+- While we might now have expanded into the U.S.A. with our California office, I'm a Coundon girl born and bred and proud that Crafter's Companion is based in the North East of England.
+- For all we are a manufacturer, we've always had a lot of communication with the consumer.
+- Right from growing up I always wanted to be a teacher, but my dad discouraged me.
+- I want to inspire and educate people and just be an Aladdin's cave for the magpie crafters that are already out there.
+- Having been a fan of 'Dragons' Den' since it first aired in 2005 I was absolutely delighted and proud to have the opportunity of becoming a Dragon myself.
+- There are lots of people at our company who dedicate their time and effort to make sure that the journey from product design to hitting the screen is as seamless as possible.
+- I've always been creative - I baked, knitted and crocheted with my mum and grandma.
+- We've had to be innovative, in terms of reaching the customer, and that's all been about making it an experiential shopping environment.

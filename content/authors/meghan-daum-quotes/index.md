@@ -1,0 +1,106 @@
++++
+author = "Meghan Daum"
+title = "Meghan Daum Quotes"
+quotes_len = "100"
+description = "the best 100 Meghan Daum Quotes"
++++
+- We're not handed situations based on our established likes and dislikes; we get what's available.
+- I think people seem to want to read pieces that are shorter but not as short as the pieces they can read in small bites on the Internet. It may be that the sort of long essays are hitting a sweet spot between the tiny morsels online and the full-length book.
+- If you do the things you enjoy and are good at, I really have a feeling that that will lead to having a fulfilling life, and people with fulfilling lives are able to be 'good people.'
+- Obviously, nobody chooses not to have kids because they'd rather sleep in late. It's a very visceral decision, and it's a complicated decision.
+- I've always been interested in this notion of what is authentic and how we define that and why our culture imposes certain emotions and emotional constraints onto experiences.
+- Air travelers, of course, are famous for their hubris. They carry on too many bags and use the restroom when the seat-belt sign is on.
+- Becoming a parent is always going to be a default setting. I truly believe there will always be more people who want to have children than who don't.
+- I loved 'About Schmidt'. I like Alexander Payne's work a lot.
+- I don't keep a diary or a journal. Sometimes I'll send emails to friends, and that's a way of recording what I was thinking at any given time. But I've never been a journal keeper.
+- Not everyone in Santa Monica is a well-heeled, juice-cleansing, Prius-driving yogini, but for better or worse, that is the city's dominant chord.
+- People have always taken photos of themselves, either with camera timers or by handing their Nikons over to strangers in foreign countries and then paying large sums to get them back.
+- In my own writing, I tend to be very honest, and my goal is to identify something people think but are afraid to say. That's not the general cultural expectation of women.
+- As a mentor and an advocate, I've seen no end to the ways that childless people can contribute to the lives and well-being of kids - and adults, for that matter.
+- I don't think anyone's ever accused me of too much self-love.
+- I think whatever generation you're in has a nostalgia for the generations past and the generations you weren't in.
+- Non-fiction about personal subjects is going to attract more user comments than a foreign correspondent writing from Syria - unfortunately.
+- What I want is to have people's notion of adulthood no longer be so defined by being a parent. There is some kind of conventional wisdom that you're not really a mature person until you become a parent.
+- The reason it was so bruising when someone said I was from a rich family is that, like many of us, I'm deeply invested - probably overly so - in the myth of my own self-creation. I like to believe that I got where I am, such as it is, by working hard and charting my own course.
+- There's a particular kind of single woman whose relationship with her dog has a level of intensity and affection that may be both the cause and the result of her singleness. For a long time, I was that woman.
+- I have bougainvillea and a magnolia tree outside my window. Not that anything will ever beat the view I had from my desk window in my little farmhouse in Nebraska. Just a dirt road stretching out as far as you could see, with prairie grass on either side.
+- If something good happens to you, and no one knows it, did it really happen? Moreover, if you don't publicize your accomplishments and good fortune, are you essentially saying you don't care about them?
+- I never sit down to write anything personal unless I know the subject is going to go beyond my own experience and address something larger and more universal.
+- If you must know, my parents came from pretty hardscrabble backgrounds in the southern Midwest. I certainly didn't grow up poor, but I did spend my 20s and early 30s juggling temp jobs and choking on massive student-loan debt.
+- It may take a village to raise a child, but not every villager needs to be a mom or dad. Some of us just need to be who we are.
+- We use our gadgets for distraction and entertainment. We use them to avoid work while giving the impression that we're actually working hard.
+- The truth is that most of your Facebook friends are too busy counting their own 'likes' to pay attention to you for more than a few seconds anyway. Unless you happen to be a kitten who's in love with a baby goat, in which case you should hire a publicist immediately.
+- Few targets of ridicule are as easy to hit as owners and handlers of competitive show dogs.
+- Self-righteousness, when you think about it, is a contra-indicator of self-esteem. It's what sets in when genuine righteousness eludes us.
+- We don't want privacy so much as privacy settings.
+- The search for happiness has long been a dominant feature of American life. It's a byproduct of prosperity, not to mention the most famous line in the Declaration of Independence.
+- I am weary of happiness, both as a word and as a concept.
+- Checking email every 45 seconds is not only compulsive, it's presumptuous. It suggests a belief that anyone who sends us a message needs us to read it immediately, even if the message is from SkyMall telling us our Bigfoot Garden Yeti statue has shipped.
+- I've been a freelancer my entire career, and, at any given time, I have several deadlines for all sorts of things, whether it's some magazine piece or ad copywriting or anything.
+- To me, having 'material' for an essay means not only having something to write about but also having something interesting and original to say about whatever that might be.
+- A young female essayist saying they're influenced by Joan Didion is like a young female singer-songwriter saying they're influenced by Joni Mitchell.
+- I love writing essays and articles, so it's hard for me to resist taking assignments that inevitably pull me away from larger projects.
+- Being taken down a few pegs is humbling. Knowing that life is not easy or fair is humbling. Receiving a great honor - well, that would be called an honor.
+- Choose what you actually want to do rather than what you think will impress people on Facebook. Ironically, when you do this, something amazing happens; what you produce stands a better chance of getting recognition. Not just on Facebook, but in the real world.
+- In about an 18-month period, my mother got sick and died, and then I had a freak illness less than a year later and almost died myself. And I found in both of those situations that there was this expectation to have a kind of transformative experience.
+- My goal is to invite readers to think along with me and draw their own conclusions.
+- I loved Woody Allen's short pieces. I was equally influenced by Woody Allen and Norman Mailer. I was very into this idea of being high-low, of being serious and intellectual but also making really broad jokes.
+- Social media, despite its reputation as the ultimate agent of self-promotion, actually feeds on self-loathing.
+- I love the essay. It's my favorite genre to work in.
+- Quitting Facebook would be like partially erasing myself. Quitting Twitter would constitute further erasure. Pretty soon, I'd be invisible. I was never on Instagram or Tumblr, which I guess means I never completely existed in the first place.
+- Of the countless ways to feel old in your 40s, perhaps none is quite as perplexing as seeing a young person trendily decked out in 1980s-style garb and saying to yourself, 'I can't believe that look is back in style. It was bad enough the first time around!'
+- I respond to about a quarter of comments. It's a good barometer of my mental health - when I'm healthy and busy, I don't read them.
+- I don't confess in my work because to me, that implies that you're dumping all your guilt and sins on the page and asking the reader to forgive you.
+- When there's so much choice, it can get overwhelming and it's hard to make a choice.
+- Mother's Day, like motherhood itself, is fraught with peril. There are so many ways to get it wrong, so many opportunities to disappoint and be disappointed.
+- I have a distinct memory, dating back to 1989 or so, of sitting around with my college dorm mates talking about a new term that was popping up everywhere: 'political correctness.'
+- Writers are the ones who figure out how to put their observations into words.
+- I was enamored of New York City intellectual life and was really into Philip Roth because I was raised by self-loathing Midwesterners who were from southern Illinois, who felt like fish out of water when they came to the East Coast when I was a kid.
+- It was a challenge for me to do a plot because I'd been an essayist and a journalist. I had to be vigilant about moving things along and being entertaining.
+- As humans with egos and feelings, none of us wants to be pilloried. But as thinkers and writers, it's our job to express opinions forthrightly and without qualifying them out of existence.
+- Posting a brag, humble or otherwise, and then waiting for people to respond is the equivalent of having a conversation in which all you do is wait for your turn to speak.
+- The right way to win is to recognize that winning isn't the end game, but rather the beginning of new opportunities - maybe even opportunities to help other people win.
+- In a world of oversharing, we don't want to be unknown or unseen. We don't want to be left out.
+- There's this tradition of women's magazines - which have been my bread and butter as a freelancer - where the paradigm is that the writing is about relationships, body image, lessons, and it's always redemptive.
+- It's great that Time is moving in the direction of validating those who, by choice or circumstance, will never be parents. But the point is not simply that society should stop judging those of us who don't have children. It's that society actually needs us. Children need us.
+- Confessions are not processed or analysed; they're told in a moment of desperation to a priest or to somebody interrogating you about a crime.
+- Before digital and mobile communications effectively tethered us to an invisible, infinite 'wire,' even those with the most hectic schedules were usually willing to answer the phone if they happened to be home when it rang.
+- Old-fashioned girl that I am, I still have a landline, though it rarely rings - and when it does, especially without warning, there's rarely anything good on the other end.
+- This whole notion that it's somehow easy and simpler to live in the country is such a fallacy.
+- I always tell writers that it's good to have an area of expertise. It's a really practical answer, I know, but know about science or about sports or about medicine, so you can work as a science writer or a sports writer. Don't just know about yourself.
+- Opinion is dominating, which is absolutely ridiculous - there wouldn't be anything for people to have opinions about if there weren't people out there gathering facts on the ground.
+- To be honored by success is to take your life seriously. To humble-talk about it is to take yourself seriously.
+- The first person is a tradition I relate to and that I use; historically, it's been the voice I work in. But the hair on the back of my neck stands up when I'm referred to as a 'confessional' writer.
+- People who choose not to have kids do so because they respect the job of parenting so much that they know not to take it on if they know it's not something that they're up for, and I don't know what to be a bigger tribute to parenting than that.
+- Though I probably shouldn't admit this, the activities and pursuits in which I've achieved any measure of success are, without exception, activities and pursuits that came easily to me from the beginning.
+- When I made my final reckoning with the decision not to have kids, I also decided that I would use at least some of my extra time to better the lives of kids who are already here.
+- For me, writing essays is very much about processing ideas and offering them up to the reader so that they are fully cooked.
+- A typical day in my writing life starts with looking at pictures of real estate online for at least 20 minutes. If I happen to be actually in the market for a house, I do this for 40 minutes. Then I walk my dog, come back home, and tell myself I can look at real estate for another five minutes.
+- Much of the magic of language, of course, lies in its fluidity.
+- Handwriting challenges aside, I love paper cards. I love the endless stewing involved in picking them out at the store. I love buying holiday stamps at the post office, and I love that 'whoosh' sound the cards make when I drop them into the mail slot.
+- If anything, 'Fifty Shades of Grey' is a generic romance cynically engineered to appeal to the lowest common denominator of female fantasy.
+- Almost nothing is more tedious than complaining about the weather.
+- When I talk to students or young writers about the importance of being unafraid to take controversial positions, I'm struck by the degree to which they can't entertain a thought, much less commit one to paper, without imagining the cacophony of snark they'll get in response.
+- As with 'feminism,' not to mention 'liberalism' and 'conservatism,' 'political correctness' tends to mean what you want it to mean, which also pretty much amounts to utter meaninglessness.
+- The irony of the media and people in big cities is that they're charged with defining the entire culture, when in reality they don't even live in that culture. They live in such a rarified, tiny world.
+- I always lamented that I wasn't a writer during the late '60s and the early '70s, with the New Journalism and Tom Wolfe and Hunter Thompson and all those people.
+- What I think is important about essayists - about the essay, as opposed to a lot of personal writing that kind of finds its way into public view - is that the material really has to be presented in a processed way.
+- I started off doing fiction in 1993. It didn't occur to me to do nonfiction because it wasn't a thing yet. So I was bumbling around, writing short stories, and then I took a nonfiction workshop, and I realized that this was what I was supposed to do.
+- The point of essays is the point of writing anything. It's not to tell people what they already think or to give them more of what they already believe; it's to challenge people, and it's to suggest alternate ways of thinking about things.
+- Each year, in my quaint efforts to send out paper holiday cards with personal messages, I probably discard one for every three I actually manage to put in the mail. The reason is that my handwriting is now less legible than it was when I was in the second grade.
+- Self-esteem, the kind that comes from finding the sweet spot between a healthy fondness for yourself and healthy self-skepticism, tends to get harder to come by the older we get.
+- Like a physically beautiful but otherwise rather dull person who trades on his or her looks, Southern California swings perpetually between a profound inferiority complex and an equally profound sense of entitlement.
+- For a kid, self-esteem can be as close at hand as a sports victory or a sense of belonging in a peer group. It's a much more complicated and elusive proposition for adults, subject to the responsibilities and vicissitudes of grown-up life.
+- Our culture is so obsessed with the idea that you're going to go through a crisis or some difficult event and come out the other side a changed or improved person, and I just think that if you're honest, that often does not happen, and in fact, it shouldn't happen.
+- For my part, if I'm working while flying, I'm often a bit relieved to be forced to shut down the computer on final descent. But I guess I'm a slacker.
+- You don't realize how much a dog's presence defines the contours of your home until, in its absence, the walls seem to relocate themselves.
+- In the world of opinion writing, there's something called the 'to be sure' paragraph. A sort of rhetorical antibiotic, it seeks to defend against critics by injecting a tiny bit of counter-argument before moving on with the main point.
+- I was just 13 when 'The Big Chill' was released in late September 1983, so I didn't catch all of its nuances when I sneaked into the theater to see it. But I could tell one thing for sure: These people were grown-ups.
+- Let's face it: every campus has its share of students who can't quite comprehend that extreme political correctness is often born of the same intolerance and anti-intellectualism as standard-issue bigotry.
+- I work really hard not to have a kitsch tone to any of my work, particularly radio stuff, which sometimes goes in that direction on certain programs.
+- Other dogs may do their jobs in their own unique and perfectly wonderful ways, but there will always be that dog that no dog will replace, the dog that will make you cry even when it's been gone for more years than it could ever have lived.
+- It's not that I don't get on bandwagons; I just climb aboard only after most of the band has packed up and left for the next gig.
+- Just as I never liked bumper stickers - even though I do brake for animals, and if I had a kid, she would definitely be an honor student - I don't like the idea of expressing my views through social-media-controlled rainbow-or-anything-else-ification.
+- L.A. is a constellation of microclimates and microcosms, a library with dozens of special collections. A 20-minute drive can bring a temperature change of 15 degrees. Crossing an intersection can feel like crossing a national border.
+- It is important for children to grow up in a world where there are all kinds of adults and role models around them, for them to know it's not just parents and people who are parents that care about them, but that there are people who are living other kinds of lives.
+- Because of social media, we have a lot of personal essays floating around; you see them on Facebook: everyone's either reading them or writing them. Some of them are great; some of them are diary entries put forth as essays.

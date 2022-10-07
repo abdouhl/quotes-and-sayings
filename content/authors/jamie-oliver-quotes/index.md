@@ -1,0 +1,44 @@
++++
+author = "Jamie Oliver"
+title = "Jamie Oliver Quotes"
+quotes_len = "38"
+description = "the best 38 Jamie Oliver Quotes"
++++
+- We're in a situation now where weight and extreme weight and heart disease is the biggest killer in this country today.
+- I hate making TV documentaries.
+- What I've enjoyed most, though, is meeting people who have a real interest in food and sharing ideas with them. Good food is a global thing and I find that there is always something new and amazing to learn - I love it!
+- In England, you're allowed to have an opinion - as long as it comes out of your mouth.
+- I want Americans to enjoy food. I want them to celebrate food. I want them to, on occasions, to have big cakes and great things. And I want them to indulge.
+- It's not the extremes and the treats that are the problem. It's the everyday.
+- Many kids can tell you about drugs but do not know what celery or courgettes taste like.
+- I left school with basically nothing, I was a special needs kid. I did feel as though my school had let me down.
+- My first outdoor cooking memories are full of erratic British summers, Dad swearing at a barbecue that he couldn't put together, and eventually eating charred sausages, feeling brilliant.
+- I challenge you, to go to any school and open 50 lunchboxes, and I guarantee you there will be one or two cans of Red Bull, there'll be cold McDonald's and jam sandwiches with several cakes.
+- Heads know that failing to invest in good, nutritious food is a false economy and parents won't tolerate reconstituted turkey being put back on the menu.
+- I love roasting because you can give it love, get it in the oven and go and play with the kids or whatever you've got to do, and then hours later you've got a lovely dinner.
+- It's just us trying to start a movement where everybody passes on a bit of cooking knowledge. We estimate that one person can potentially affect 180 others very quickly so we're just trying to spread the word.
+- It's very clear that there's a lot of double standards going on. Should there be a 30mph speed limit? Of course there bloody should. And certainly with kids and school food, kids need to be nannied for sure. So give them a bloody good meal at school.
+- I'm better with my hands, and I always loved the slightly romantic idea of starting with bits of wood and being able to create something to sit on, to eat from, to store your clothes in.
+- I'm probably a bit romantic about it, but I think we humans miss having contact with fire. We need it.
+- As usual, my timing is bizarrely good.
+- Give your kids a bloody knife and fork and let me put some fresh food in front of them they can eat.
+- Young people can be disruptive and screw up classes. But even if they are being a pain in the arse it's a cry for help - they don't feel like they are being listened to.
+- The kitchen oven is reliable, but it's made us lazy.
+- If Obama wanted to make radical changes to America's health long-term, all he has to do is treble the price of sugar and salt.
+- I've cooked just about everything really.
+- My life is really so much based in England.
+- Stop being a vegan and start enjoying what you eat.
+- The public health of five million children should not be left to luck or chance.
+- God, why do I give interviews to 'the Guardian'? They always try to dissect you, and I don't really think about stuff in the way that you're asking me these questions.
+- Just because the Americans are so good at rattling out accessible and cheap junk food, nobody looks twice when it comes to their food. But there are golden nuggets everywhere.
+- I like ties but I prefer not to wear one when I'm nervous.
+- If you only design menus that are essentially junk or fast food, the whole infrastructure supports junk.
+- What we call barbecuing in this country is actually direct grilling. In many countries, it also means cooking in an enclosed box with a heat source, ideally wood, all year round.
+- My general rule is that if everyone knew how to cook fresh produce from their local area, and Monday to Thursday within 20 minutes, you know, there's millions of recipes out there to be had.
+- I could cook from quite an early age - purely because I liked it.
+- I think there are definitely two types of student: the academic kids and the 50% who fail. It's very clear to see - it's fact. We're not doing enough for those who fail; they need a more physical, tactile approach, involving people skills, team-building, problem-solving, building things.
+- All I ever wanted to do was to make food accessible to everyone; to show that you can make mistakes - I do all the time - but it doesn't matter.
+- When I was a schoolkid, I went to Castleton quite a few times. We'd be there studying rocks, going down these big hills. It was a great place!
+- I wouldn't say that processed food, ready meals and even takeaways aren't relevant to modern life, it's just that over the past 40 years there are three generations of people who have come out of school and gone through their home life without ever being shown how to cook properly.
+- Like most of the other teachers, I'd done a bit of teaching and we all think we're great at what we do, but you realize that normally you have an audience who are all onside, who all want to listen.
+- We opened a shop in Rotherham which does free demonstrations every day, six days a week and it's been very popular.

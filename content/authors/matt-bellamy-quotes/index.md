@@ -1,0 +1,51 @@
++++
+author = "Matt Bellamy"
+title = "Matt Bellamy Quotes"
+quotes_len = "45"
+description = "the best 45 Matt Bellamy Quotes"
++++
+- A guitar being played by an actual person is never going to be as precise and perfect as a programmed synthesizer. But we maintain there is value in the potential for human error.
+- 'Uprising' was requested by so many politicians in America for use in their rallies, and we turned them down on a regular basis.
+- You have to evolve. Stagnation breeds boredom.
+- There's always been a slight twinge of some classical elements in our music.
+- I have recurring nightmares about being in a Nazi concentration camp with all my family and constantly being sent to solitary confinement.
+- The universe, in a big bang mode, is still expanding, which means it's cooling down, and evolution seems to be going against this; we're almost battling it. That led me on to a more creative, philosophical way of thinking, which is what led into influencing some of the songs, which is, maybe this is what our struggle is.
+- Introverts probably have a higher degree of sensitivity to outside stimulus and tend to back off. In your quiet shyness as a child, you end up with an accumulation of thoughts and ideas, building up big, imaginative worlds. You have to get it all out somehow, so it goes into your work.
+- People like Nick Cave - that ridiculous, over-the-top doom, taking it to extremes - I find it uplifting because it's like someone else is feeling what you're feeling and putting it into their music. Someone expressing extreme joy is just as valuable; it's just the fact that they're expressing their soul through music.
+- I love Tom Waits because he's an artist who makes me not afraid to get old, and that's rare. I think it's a rare kind of thing to have that level of wisdom. And his lyrics are just astounding; everything in life is inside his lyrics.
+- I'm a songwriter; it's in my nature to express things openly.
+- I can understand why people are bad.
+- Two hundred years ago, industrialisation ruined the labour force. In the modern age, especially in the West or America, people who are 'efficient,' who can bracket their emotions off, tend to win. But at what cost to the rest of us?
+- In the U.S., the conspiracy theory subculture has been hijacked by the Right to try to take down people like Obama and put forward rightwing libertarianism.
+- In the long term, artificial intelligence and automation are going to be taking over so much of what gives humans a feeling of purpose.
+- When I dabble in watching the news and reading about current events, I tend to get a future negative view, and that's something I've dealt with through music. It's quite possible I'm slightly paranoid. But I'd say making music is an expression of feelings of helplessness and lack of control that I think a lot of people can relate to.
+- I've spent important times of my life in Spain and Greece, and various deep things happened there - falling in love, stuff like that.
+- Being an atheist means you have to realise that when you die, that really is it. You've got to make the most of what you've got here and spread as much influence as you can. I believe that you only live through the influence that you spread, whether that means having a kid or making music.
+- Playing to a stadium is not for everyone because you are essentially gambling, big-time. You have to go all in on production. You can't hold back.
+- Money and success haven't really changed my beliefs or opinions over the years. When I was growing up, my mum and dad split when I was 13 or 14, during the early-Nineties recession. At that time, my dad went bankrupt, and it played a huge part in it all at home.
+- When I think about my teenage years, when my parents broke up, and feeling alone and being out of control and having to survive... And then other times when you've had to find your own way... that's always been a dominant theme in what I've done.
+- I experienced the sharp end of a tough time, living with a single parent, my mum, and she was really struggling to get a job. These are the things that form your views in life. They are established when you are growing up and being raised. That stuff doesn't really go away; that stays with you.
+- Rachmaninov has some kind of weird dark edge to his music which I don't think I've heard with any other kind of music before.
+- I always go for walks in the countryside.
+- As soon as you pick up a guitar, you're up against the legends of rock. The same goes with stadium drum kits and electric bass. Essentially, you're already in a soundscape that's very familiar and has a lot of established legendary material recorded using those instruments.
+- I don't totally buy or believe the paradigm that's constantly presented to us and the financial news is obsessed with, which is growth. There seems to be this paradigm which is: There has to be growth. I'm watching it and thinking, am I the only one who recognises this is a small planet isolated in a gigantic universe? Where are we growing to?
+- I think we have a lot in common with classical composers of the 19th century, although I'm not claiming to have their intelligence. They wanted to create a musical explosion, to blow the crowd away.
+- I used to go and see bands like the Orb and Orbital every time they came down, and I've seen Aphex Twin a couple of times. I was really into all that stuff, but it didn't speak to me.
+- I was going out dancing in clubs around New York, and that helped create 'Supermassive Black Hole.' Franz Ferdinand would have done it very well with that dance-type beat going on mixed with alternative guitar, and I've always wanted to find that.
+- As a rock band, you're slightly one foot in the past, playing instruments like guitar, bass and drums.
+- This inner strength we have, this desire to evolve and expand and explore, I do love that about humanity. At the same time, it's scary what it does on a global scale. I'm very much caught between the two.
+- I do think if all politicians were women, the world would be a better place.
+- I think that's what a lot of writers do, create a totally fantastical scenario that is a reflection of something else going on in their life.
+- I used to do a lot of ouija boards, and I asked if there was life after death. Some spirit replied, 'He who seeketh knowledge seeketh sorrow!'
+- Being from a small town, no one else was going to breathe life into my ideas other than me, so I had to go out there and do it.
+- Opera can be exceptionally moving but can also be pompous.
+- For the first time in evolution as a species, we're hitting an energy ceiling.
+- I've got my interests and my life experiences as I'm putting lyrics together. And if you start looking at patterns, you start thinking, 'Well, what am I really singing about here?' A lot of it seems to be a battle for some freedom against oppressive forces. That seems to be a theme in a lot of the albums I've done.
+- I don't think our records contain obvious humour. We're not cracking gags.
+- I never understood bands who were only influenced by a narrow era of, say, five years of music.
+- Bands in the Nineties seem to forget the entertainment aspect of rock music.
+- I have been lucky to experience a lot of the spoils that can happen in a rock band. But being with the three guys in this band from such a young age, we aren't going to let any of the spoils change us.
+- The best band in the world is Queen, definitely.
+- Empathy seems to be seen as a weakness. We condition people to withdraw it to succeed. But really, it needs to be re-seen as a strength again if there is to be any kind of hope in the world.
+- The guitar has become a textural instrument rather than a lead instrument. And I think that's probably a good thing.
+- Apple, iTunes, and streaming services have made the single a more easy thing to access. What that's done has made the album as a collection of songs almost meaningless. But an album that has a concept or story or reason to be an album, if anything, has more meaning now than it ever has.

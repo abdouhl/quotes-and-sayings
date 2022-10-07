@@ -1,0 +1,15 @@
++++
+author = "Morris Dees"
+title = "Morris Dees Quotes"
+quotes_len = "9"
+description = "the best 9 Morris Dees Quotes"
++++
+- The focus of tolerance education is to deal with the concept of equality and fairness. We need to establish confidence with children that there is more goodness than horror in this world.
+- What a privilege to be here on the planet to contribute your unique donation to humankind. Each face in the rainbow of colors that populate our world is precious and special.
+- Without public pressure from caring people, our lawsuits will not be enough to stop this widespread abuse.
+- You do stand alone sometimes. But my mother stood by me through all this.
+- Our supporters can send the message that it's wrong for politically connected corporations to make millions while people doing an honest day's work are being cheated out of an honest day's pay.
+- Rarely in my 45 years as a civil rights lawyer have I been so angry about an injustice as I am about what happened to Billy Ray Johnson.
+- A lot has happened since Dr. King left us. He probably wouldn't recognize the landscape if he saw it, but I still believe he would still have the same spiritual faith and also faith in us as people - not only people in our nation, but people in the world.
+- She was in a difficult position being the widow of a great American hero, a role that carried high expectations but she did a credible job of continuing Dr King's dream especially in the face of a changing and often hostile American public.
+- It's hard to think what should make your blood boil more - what happened to Billy Ray or what didn't happen to those who abused him. It's something we can't ignore.

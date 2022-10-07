@@ -1,0 +1,33 @@
++++
+author = "Mark Batterson"
+title = "Mark Batterson Quotes"
+quotes_len = "27"
+description = "the best 27 Mark Batterson Quotes"
++++
+- If Jesus were living in our culture, he would probably hang out in coffeehouses.
+- I think faith is the small mustard seed of opportunities every day. For example, 'Am I going to love this person? Am I going to share my faith with this person? Am I going to pray that little prayer?' It really is a daily thing where you seize those little mustard seed opportunities and then see what God does.
+- In my experience, take the Holy Spirit out of the equation of your life and it spells boring. Add it into the equation of your life and you never know where you are going to go, what you are going to do, or who you are going to meet.
+- Email helps me keep in touch with my family. I wouldn't know what my extended family was doing every day if we weren't emailing each other.
+- Over the years I've grown more comfortable with making people uncomfortable because that is when growth can happen. You need a little conflict. You need a little tension. And that is part of my calling. A little tough love goes a long way!
+- I think a pastor used to be viewed as the one-stop ministry shop. The pastor served on every committee, volunteered at every event, and made all the hospital visits. I think that is changing and I think that is healthy. Both for the pastor and the congregation.
+- If you really believe in the message you're preaching, you want as many people as possible to listen.
+- Part of my driving desire as a pastor is to remove every obstacle except the cross that would keep people from coming to faith in Christ.
+- Jesus on Twitter would have been a pretty amazing thing.
+- I think you often say more by saying less. And interestingly enough, I mean, Jesus really set the standard. I mean, he could say more with fewer words than anybody. Most of the parables were less than 250 words. And, boy, did he have some one-liners just packed with truth.
+- I'm a lifelong Vikings and Packers fan because I lived in both Minnesota and Wisconsin as a kid.
+- The greatest tragedy in life is that some prayers go unanswered as they go unasked.
+- In an urban environment, a church building is a thing of the past.
+- Don't seek opportunity. Seek God and opportunity will seek you.
+- Too often the word 'prayer' induces guilt because we don't do enough of it. After all, I've never met anyone who said they pray too much! All of us fall short. And we often feel like our prayers fall flat.
+- Prayer is not about letting God know your will; it's about completely submitting to him. You die to yourself.
+- I think twenty-somethings are very cause-oriented.
+- I've always believed in the power of prayer. One prayer can accomplish more than a thousand plans. That isn't a magic formula, but it's an idea that if you pray, keep praying and then praying some more.
+- Routines are normal, natural, healthy things. Most of us take a shower and brush our teeth every day. That is a good routine. Spiritual disciplines are routines. That is a good thing. But once routines become routine you need to change your routine.
+- It's hard for me to imagine why a church that has younger members wouldn't have a blog component.
+- I am a pastor so I eat and breathe the Church.
+- I'd rather be biblically correct than politically correct.
+- New media is like a megaphone. It amplifies your ability to reach more people.
+- What's unique about Washington is that no one's from here. Almost everybody came here to change the world, to make a difference.
+- To me, growing into spiritual maturity is becoming less self-conscious and more God-conscious.
+- I'm pretty intentional about being highly invested in my kids' lives.
+- When we change the way that we pray, everything changes.

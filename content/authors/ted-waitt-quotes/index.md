@@ -1,0 +1,78 @@
++++
+author = "Ted Waitt"
+title = "Ted Waitt Quotes"
+quotes_len = "72"
+description = "the best 72 Ted Waitt Quotes"
++++
+- Let's face it, politics in this country is coin-operated. Does that really equate to a real democracy? It's very difficult to say.
+- Anything that helps consumers get more for their money is fine by us.
+- PCs will go the cell-phone subsidy route.
+- We like being an independent company. We do not need to merge or do anything different.
+- The PC business is not about price, it's about value, or what you can give the customer for his or her money.
+- People are looking for more than a faster and faster PC. It has to do what they want. Will it fill some void, add some value, deliver something that they can't do previously at a price that people are willing to pay for?
+- We've got tremendous equity in cow spots and in the name Gateway, so this isn't anything radical, but you'll see us getting more sophisticated in our marketing efforts.
+- We want a Gateway to be the last computer our clients will ever buy.
+- Intel's a great company, and Microsoft is a great company. Everybody seems to do a lot better when there is competition.
+- The first thing I got was a jet. And it's the last thing I'd get rid of if I go bankrupt.
+- I didn't have the patience to wait to take a degree before starting work, because I wanted to run my own business.
+- If you buy a CD and want to put your favorite songs on one CD, you should be able to do that.
+- The PC is an important part of our business and will continue to be for a long, long time.
+- To me, the consumer-electronics business feels a lot like the PC business in the late 1980s. It's an inefficient market.
+- Both Gateway and I are products of Sioux City.
+- So many people got caught up in the excitement and the promise of the Internet that they kind of lost sight of their senses.
+- Being a smaller, nimbler company is better for our customers, employees and shareholders.
+- Sometimes people have a hard time believing that a company is intentionally trying to make itself smaller.
+- We spend as much time looking at companies that are smaller than we are as we do at those that are bigger.
+- Customers don't care about rivalries between corporations, they care about getting the best value for their money.
+- I've used soap dishes as ashtrays in the best hotels in the world.
+- We compete with Dell and HP. Now, we are going to compete with Sony and Best Buy. Are we going to be like Best Buy? No. Are we going to be a small Dell? No. We are going to be uniquely Gateway.
+- You can get business with price, but you have to have service to keep it.
+- We have to have a successful box business if we are going to go beyond the box.
+- I came from an entrepreneurial family. My father and five generations of people in my family do not make good employees.
+- From our perspective, there's been a price war in the PC industry since we opened for business in 1985.
+- There's a large risk to our society if a group of people doesn't have access to technology or even the desire to get on the Net and see what opportunities are out there. Technology can be a great equalizer.
+- I'd be lying to you if I said I had not done some soul searching.
+- People confuse me with Gateway.
+- Who is my biggest competitor? AOL, Microsoft, and AT&TAtHome.
+- Our biggest risk is ourselves.
+- If Dell's going to be a fast follower, then we'll continue to innovate.
+- I don't subscribe to the idea that everything moves to the network. Theoretically it's possible that everybody will use little hand-held devices to access the Internet, but I expect more of a hybrid environment.
+- For any business that has an indirect model to move into the direct business is very difficult and very challenging.
+- I don't see anybody pointing to desktop PCs as being a hot Christmas item.
+- We started putting '2000' at the end of our name. That was in 1985, and 2000 seemed very futuristic.
+- The PC is going to become one key product in an ever-expanding array of products.
+- Don't get me wrong; we have a great relationship with Intel going back over many, many years. But we're not a wholly-owned subsidiary. We can do our own thing.
+- We never put any limitations on what Gateway could be. We had big dreams, big goals.
+- Corporations want stable, reliable, and easy-to-maintain systems.
+- I kind of became apolitical.
+- If any PC manufacturer has made money selling PCs retail in the last 10 years, I'd like to know who they are.
+- Technology for technology's sake is not innovation. What we in the industry have to be concerned about is what products do, as opposed to what the processing power is.
+- We think the right categorization for digital devices is something you hold in your hand, a mobile-type product, and something you sit two feet away from.
+- I'll end up living where I feel is the best place to raise my kids.
+- I'm not in favor of stealing music.
+- There are hundreds of competitors in the direct marketing of computers. We have been very successful because of quality, price, service and the way we treat the customer.
+- Companies that are closest to the customers are the ones who are going to lead the industry.
+- We don't consider ourselves a PC company.
+- We were unknown before, and that was an advantage. Nobody knew who we were, so we snuck up on the competition.
+- When you fall short of your internal forecast, two things happen: Costs go up as a percentage of sales, and margins go down.
+- The complexity increases exponentially when you try and combine two companies that both need to be restructured in their own right.
+- In 1992, we did $1.1 billion in revenues. In the first nine months of 1993, we did just under $1.2 billion.
+- I love Gateway, and I'm going to do everything in my power to make sure the company can grow and prosper in this challenging environment.
+- You don't know the impact of Windows XP. You don't know what the economic impact is going to be.
+- I mean, you don't get a chance to buy a company like Gateway, you know, at or near book value very often.
+- I was fascinated to see that if you knew what you were doing, you could sell a $3,000 computer system over the phone.
+- The biggest challenge is adding the bureaucracy it takes to run the company without becoming fat, lazy, inflexible - bureaucratic.
+- When I look back through the 1980s and 1990s, those were some of the funniest experiences I had and, sometimes, some of the most difficult.
+- You have to have great products out at the right time. It's difficult to go with one foot on the gas and the other a little bit on the brake.
+- The entertainment industry always chooses to fight things out through the courts and legislation. Technology people always think there's a business solution.
+- For a while there, companies were pushing technology on people and people were buying it. Now the consumer is really in the driver's seat. Now it's more of an overall solution: How can technology make your life better? How can it save you time?
+- The Internet is the number one reason people buy PCs, and the number one use of PCs is on the Internet from our customer base.
+- When Mike Hammond and I started Gateway 12 years ago on my father's cattle farm, we knew it could be big. We talked big. But there's no way we could have been prepared to go from less than $300 million in revenues to $5 billion in six years. You can't so much prepare for that kind of growth as sort of ride it and try to manage it.
+- I don't want a mercenary management team.
+- You know, growing up in the cattle business, I know a lot about cattle.
+- Technology people have as much interest in protecting patents as the entertainment industry.
+- I definitely don't welcome takeover interests.
+- It's not a matter of being first, it's being there at the right time, being first in volume to market, and knowing what trends to stay away from.
+- But - there's no point in aiming to be Number Two. You've got to have a plan-to-win attitude.
+- If all we wanted to do was to make money on PC hardware, that wouldn't be a good business model.
+- We hope to be a leader in the convergence of consumer electronics and communications.

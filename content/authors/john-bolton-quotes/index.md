@@ -1,0 +1,65 @@
++++
+author = "John Bolton"
+title = "John Bolton Quotes"
+quotes_len = "59"
+description = "the best 59 John Bolton Quotes"
++++
+- North Korea is going to get away with keeping its nuclear weapons.
+- There is no patriotic obligation to help advance the career of a politician who is otherwise pursuing interests that are fundamentally antithetical to your values. That's not the call of patriotism.
+- People don't like to talk about victory and defeat anymore.
+- In the United States, there is a broadly shared view that the U.N. is one of many potential instruments to advance U.S. issues, and we have to decide whether a particular issue is best done through the U.N. or best done through some other mechanism.
+- Negotiation is not a policy. It's a technique. It's something you use when it's to your advantage, and something that you don't use when it's not to your advantage.
+- It's not natural disasters that are to blame for the deprivation of the North Korean people, but the failed policies of Kim Jong Il.
+- There's no doubt that Iran funds and supplies Hamas with weapons.
+- I've been surrounded by some of the best economic minds in the country, and hopefully I've absorbed some of that.
+- I'm a conservative Republican. I have been since I was 15 years old and participated in the 'Goldwater for President' campaign in 1964.
+- Don't get me wrong: I would love to be president.
+- The Nobel Peace Prize has become hopelessly politicized. I think it cheapens the prize itself.
+- It's very personal in its politics, very bitter and very negative.
+- There's no such thing as the United Nations. If the U.N. secretary building in New York lost 10 stories, it wouldn't make a bit of difference.
+- I don't think there is any good answer to the question why shouldn't gays and lesbians who want to serve their country be allowed to do it.
+- When you have a regime that would be happier in the afterlife than in this life, this is not a regime that is subject to classic theories of deterrence.
+- I don't think I would have to run a campaign that's financed like General Motors.
+- I think the International Criminal Court could be a threat to American security interests, because the prosecutor of the court has enormous discretion in going after war crimes. And the way the Statute of Rome is written, responsibility for war crimes can be taken all the way up the chain of command.
+- Maybe it's my libertarian philosophy: but being in government is hard.
+- Reform is not a one-night stand.
+- Just as the Security Council was largely irrelevant to the great struggle of the last half of the twentieth century - freedom against Communism - so too it is largely on the sidelines in our contemporary struggles against international terrorism and the proliferation of weapons of mass destruction.
+- I am all in favour of democracy in Iraq.
+- There's no religious test under the constitution. That's what it says. Period.
+- Well, I'm a libertarian conservative, so I believe in limited government/maximum individual freedom.
+- There is no such thing as the United Nations.
+- Obviously, you make preparations before you engage in any meeting.
+- I am pro-American.
+- Every country has an aspect to it that rubs up people the wrong way.
+- Politicians, like generals, have a tendency to fight the last war.
+- I'm not sure history has ended.
+- Diplomacy is not an end in itself if it does not advance U.S. interests.
+- I want to make sure that, not only in the Republican Party but in the body politic as a whole, people are aware of threats that remain to the United States.
+- A lot of people have said to me, 'That's a great idea, running for president. You'll get booked for more speeches. You can write a book.'
+- I'm not running around the world looking for ways to create hostilities.
+- I've been in the government bureaucracy, I've practiced law, I've done a lot of different things.
+- Well, you could take several stories off the buildings of most U.S. government agencies and we'd all probably be better for it too.
+- People say you favor assassination, what do you think war is? Except that it's assassination on a much larger scale, a much more horrific scale.
+- My priority is to give the United States the kind of influence it should have.
+- I don't much believe in bumper sticker characterizations of foreign policy.
+- I am not a professional politician.
+- I would not run as a one-issue candidate. Anybody who does that is declaring himself to be marginal.
+- The U.N. is one of many competitors in a marketplace of global problem solving.
+- I think that Ronald Reagan had it right, being against abortion except in certain limited, defined circumstances.
+- I have decided not to run for president.
+- You don't need to spend tens of millions of dollars on political consultants to tell you what you think when you already know what you think.
+- There is no excuse for waste, fraud, and abuse in the Defense Department budget.
+- Everybody pursues their national interests. The only one who gets blamed for it is the United States.
+- I haven't given up on the possibility that sweet reason will prevail.
+- I think that, especially among conservatives, there's a clear understanding that there are three legs to the conservative stool. There are the free-market economics conservatives, the social conservatives, and the national-security conservatives.
+- I don't think Hamas will be satisfied simply ruling the Gaza Strip.
+- I'm obviously aware that people are quite focused on the economy rather than foreign policy issues, but that is something that should and can be altered as people see the nature of the threats around the world that we face.
+- You know, as somebody who writes op-eds and appears on the television, I appreciate as well as anybody that... there is a limit to what that accomplishes.
+- I've been subject to how many security clearance procedures and I must say as irritating as some people may find them I think they are absolutely essential to making sure that people who work in sensitive positions in the national security field in our government are entirely loyal to the United States.
+- We estimate that once Iraq acquires fissile material - whether from a foreign source or by securing the materials to build an indigenous fissile material capability - it could fabricate a nuclear weapon within one year.
+- I think some of this fascination with the 'Arab Spring' is just a grand experiment with Israel's survival.
+- I don't do carrots.
+- I've never attended any Tea Party functions.
+- I am not a neoconservative.
+- My philosophy is not a bean-counting, accounting 'look at this.' It is a philosophy that smaller government is better government, and government that is closer to the people is best of all.
+- If Iran obtains nuclear weapons, then almost certainly Saudi Arabia will do the same, as will Egypt, Turkey and perhaps others in the region.

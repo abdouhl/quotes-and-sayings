@@ -1,0 +1,26 @@
++++
+author = "Steven Yeun"
+title = "Steven Yeun Quotes"
+quotes_len = "20"
+description = "the best 20 Steven Yeun Quotes"
++++
+- Maybe it's a cultural thing, being Korean, but my first reflex has always been to exude humility - but it doesn't help you in acting. For acting, humility isn't the best thing. It'll weaken your work.
+- I am a huge Pistons fan. Those were some of my best times in college, watching the Detroit Pistons.
+- I'm not much of a horror fan. When it comes to ghost stuff and demon stuff, I can't watch that.
+- Many people, not just Asians, are more concerned with hustling and getting to meetings with contacts to gain success.
+- I'm Korean-American. Not Colombian. My parents are first-generation, and I'm like... in-between, because I moved over here when I was four or five.
+- I felt like I've needed to ask my parents up until about four years ago about everything. They have helped me tremendously, I came out of college with no debt. Everything they made, they just poured into my education.
+- If you work in Chicago in the improv scene, anyone is happy for you if you get a job.
+- I'm good at keeping secrets, but if it's not something super serious I usually tell people not to tell me because I'll tell someone else.
+- I like documentaries because there's nothing to nitpick or criticize about scenes if they aren't just right. It's about honesty and real-life circumstances coming out. Granted it can be swayed by how people tell that story, but overall, I like it because it is true.
+- I was raised in a Christian household and heard a lot of praise music, so that's what helps me get to an emotional place.
+- What brought me to L.A. was work! I moved to Chicago after college - I went to Kalamazoo - did my nerd thing, graduated, and moved to Chicago to pursue improv.
+- I'm stupidly curious. I will go and touch anything until I find out that it's very harmful.
+- I was a psych major in college and I actually owned two white lab rats. I had to train them and I took them home so that's just kind of missing for me.
+- I grew up in Michigan, so I played hockey, football and basketball. I played a little bit of lacrosse, too. My brother played more lacrosse and ran track.
+- At the end of the day, if you can't say a line right, it does not matter who your contacts are.
+- I believe that we are still hovering around the realm of Asians playing all types of Asians. I do not see that changing any time soon just because there is a limited pool of Asian actors.
+- I took up boxing to get in shape for filming because it's grueling - all the running, the heat, the yelling, the crying that we do.
+- People think that Detroit is this barren wasteland. While there are parts that are not as nice as others, the misconception is not true. It is definitely not a thriving community in Detroit, but it is getting there. There is a lot of heart and love in this city.
+- Well, my parents originally wanted me to become a doctor - that's why I was in school; I was pre-med, and I graduated with a degree in psychology and a concentration in neuroscience. Really, the plan was for me to go to med school.
+- Whatever I lack in size and strength and speed, I kind of make up for in being grittier. When it comes to something like basketball I'm definitely not the best guy on the court, but I love elbowing and pushing people out or boxing them out.

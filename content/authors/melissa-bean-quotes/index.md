@@ -1,0 +1,36 @@
++++
+author = "Melissa Bean"
+title = "Melissa Bean Quotes"
+quotes_len = "30"
+description = "the best 30 Melissa Bean Quotes"
++++
+- Social security, bank account, and credit card numbers aren't just data. In the wrong hands they can wipe out someone's life savings, wreck their credit and cause financial ruin.
+- As a member of the House Committee on Small Business and because of my own experience as a small business owner, I am appreciative of the impact these small businesses have on our local economies.
+- Small businesses are the economic drivers of our country, providing the stimulus our communities need.
+- And yet, if we don't, first and foremost, act responsibly with the national tax dollars that we have, we can't properly address those regional priorities that we would like to.
+- The budget enforcement rules of the 1990s were an important part of getting the budget back into balance. It was done on a bipartisan basis. Those pay-as-you-go rules were tested and they worked. We are now in a one-party system, and we have thrown them out.
+- If we want to truly regain the public's trust, we can provide greater accountability and transparency with a simple step. Let's start by communicating to our constituents about the votes we take.
+- Under the Environmental Protection Agency's Energy Star Program, homes are independently verified to be measurably more energy efficient than average houses.
+- Many of our constituents have one option for cable TV and one price. Our constituents desire choice.
+- Mr. Speaker, democracy works best when the American electorate is engaged and informed.
+- And I also serve on a caucus that addresses financial literacy for young people in this country. And it is so hypocritical that we want to talk to these kids about how to better manage their money when we are not doing a good job with our Nation's resources.
+- For the last 4 years, our Federal Government has produced the four biggest deficits in history, and the estimated 2006 deficit of $423 billion is projected to be the largest of all.
+- Taxpayers should not be coerced into giving up their privacy rights just to file their taxes.
+- When I came to Congress, I came to bring what I thought was a real-world business perspective to government because, in the business world, I spent over 20 years in the high-tech industry, but it certainly was not unique.
+- During a trip to Iraq last fall, I visited our theater hospital at Balad Air Force Base and witnessed these skilled medical professionals in action and met the brave soldiers whose lives they saved.
+- By overhauling current rules and speeding the entry of competitors in the market, we encourage competition and provide our constituents with new choices and cheaper bills.
+- The American people expect more from Congress. They expect fiscal responsibility and common sense. They expect us to return to the pay-as-you-go budget rules that we had enacted in the past that helped us establish a surplus, however briefly.
+- Reports also suggest that Ernst and Young and other large tax preparation firms are sending tax returns overseas for processing. But the IRS has no control over tax information once it's been sent to India or another country.
+- Even the best data security systems can't protect private taxpayer information from entrepreneurial foreign businesses than can make huge profits selling U.S. taxpayer information.
+- Many seventh graders I know in Illinois, as well as around the Nation, are studying the Constitution. I was pretty impressed with the quality of education our children are receiving because they had not expected me to ask them about it.
+- We're all proud of the communities that we've built and are a part of, but we shouldn't accept lost time and unnecessary stress when traveling in them.
+- My Eighth District, like others, counts on these family businesses and their teams working hard to support their families and aid their communities. As retailers, these teams often bring different or unique products to the marketplace.
+- In fact, 80 percent of our domestic job growth comes from the small- and medium-sized business community.
+- Identity theft is one of the fastest-growing crimes in the nation - especially in the suburbs.
+- Oftentimes, small business owners are unable to obtain reasonably priced financing and instead turn to higher priced forms of capital, such as credit cards.
+- As part of my efforts to fight identity theft, I worked with my colleagues on the Financial Services Committee to strengthen consumer protection with a reasonable notification requirement.
+- Married couples who work together to build and maintain a business assume broad responsibilities. Not only is their work important to our local and national economies, but their success is central to the well-being of their families.
+- I am the parent of teenagers, my daughters are 13 and 15, so the issue of Internet safety has been an important issue. I have been visiting middle schools to talk about some of the challenges that they face.
+- But in this Congress, accountability is just a catch phrase, usually directed elsewhere. Demands to personal responsibility or corporate accountability abound, but rarely congressional accountability or fiscal responsibility.
+- I am excited to rise today to support National Mom and Pop Business Owners Day. This celebration honors the husband and wife business owner teams whose work helps drive the economy and fuel job growth.
+- The IRS is currently considering a rule that would make it easier for tax preparers to disclose the private information contained in tax returns - including name, address, Social Security number, employer, income, and charitable donations.

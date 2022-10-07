@@ -1,0 +1,68 @@
++++
+author = "Mel Gibson"
+title = "Mel Gibson Quotes"
+quotes_len = "62"
+description = "the best 62 Mel Gibson Quotes"
++++
+- We're all dying. We're all in the process of oxidizing. Everyone of us is in the process of oxidizing, so to sort of interrupt one aspect of that while everything else goes on, it's a freak show.
+- Feminists don't like me, and I don't like them.
+- Theatrical is fantastic. I don't think anything will ever replace the big dark room, the screen and the popcorn. You can kind of do it in your home if you have a nice screen, but it's not the same thing.
+- Religion and politics hit nerves. There's a lot of anger about a lot of things. It's not easily resolved. I guess that's what wars are about. Wars are about prejudice and fear. Hit first before you get hit. Believe me, I know.
+- People like scary stories. There's a fascination with fear themes, and we want to face those things in a weird, subconscious way.
+- I don't care if I don't act anymore.
+- Every time you go out there to do something, you wonder if you can do it. There's no assured success. There's no secret recipe for success. Every time you go out there, you go out there with the possibility of great failure.
+- I have learned that a bitter experience can make you stronger. I now boastfully say that I have a hide like a rhinoceros... and I'm smiling. It's an interesting thing.
+- Acting is like lying. The art of lying well. I'm paid to tell elaborate lies.
+- Well, I think any time you delve into this sort of religion, politics, as you well know, you're going to, you know, touch a few nerves. I wasn't - now - and this is the honest truth.
+- And, hey, I'm not under the illusion that everything's just going to be hunky-dory work wise forever. I've never been under that illusion. Things could go away tomorrow.
+- I think any kind of hiatus one takes in an artistic journey is going to make a huge difference. The pause will inform the choices that you make.
+- I do moderate exercise, and I try to eat pretty well, and I think it has an effect on me.
+- I don't have to be working every moment. Why turn something good into a hard job? It's more special when it's not a daily occurrence. It doesn't cheapen it so much.
+- Change is always preceded by a little pain. Some people can change and they don't have to go through so many painful things. But I think that I'm of a personality that I'm a little stubborn, so it's tough for me.
+- But although Australia was also involved in the Vietnam conflict, I can remember my dad telling us that if we were in Australia, we wouldn't be drafted until we were 20.
+- I got the acting bug back because I felt like all of a sudden maybe after all these years, maybe I might have something to offer again. I walked away from it after 'Signs' because I just felt I was a bit stale and it wasn't ringing my bells, so I focused on directing, writing and producing.
+- It's all happening too fast. I've got to put the brakes on or I'll smack into something.
+- Life's experiences, whether they be pleasant or unpleasant, torturous or excruciatingly wonderful and blissful, you know, season you somehow and you learn from them.
+- I like going in to different styles of acting and exploring stuff I haven't done before.
+- My whole approach to wardrobe is, throw it in a suitcase and make sure they don't press it, for Pete's sake, so I can try to display some rumpled charm. Actually, I'm just a pig. I've got coffee stains on my pants. I think they're coffee stains, anyway.
+- I think digital will displace film, yes. We're talking about digital as a thing of the future, but I'm afraid that it's here.
+- Boot Camp was great and very interesting. You got to use live rounds of ammunition and got to do a lot of crawling around with live rounds flying around you, so you really had to learn to keep your ass down - everything down for that matter.
+- When you get to that point where you don't want to live, and you don't want to die, it's a desperate, horrible place to be. And I just hit my knees. And I had to use 'The Passion of the Christ' to heal my wounds.
+- You ask anybody what their number one fear is, and it's public humiliation. Multiply that on a global scale, and that's what I've been through.
+- Life is life, and one has experiences that are painful and some that are very pleasant, and one has reward and sacrifice and more reward and disappointment and joy and happiness, and it's always going to be the same.
+- I'll tell you what I did need to learn was tolerance, and I think I've been actually given a daily opportunity to practice that, and it's - it's - and I know that that sounds almost like a backhanded slap, and it is in a way because I haven't been successful at it every day.
+- I think everything is pretty well preordained - even your mistakes.
+- I'll always continue to work. I've never much depended on anyone but myself, as far as that goes.
+- Film is built for kinetic movement and crash and burn. It's a great tool for spectacles. But if it's not rooted to something a little higher, you're just kicking your butt around the corner. You can only take so much of that. You have to have some sort of foundation to explode from.
+- Well, if you look at the whole story, I mean there's only Jews and Romans in the story. I mean I just wanted to flesh that character out and make that a drama about the people around Christ when he was going through this passion.
+- I've never treated anyone badly or in a discriminatory way based on their gender, race, religion or sexuality - period.
+- The thing we're all looking for is happiness, and if we achieve just a modicum of that or even a little piece of serenity even for five minutes a day, we're very lucky.
+- Acting feels different. I'm not sure exactly what that is, but it used to mean a lot more. Maybe that sounds like I'm throwing it away and I'm not, I'll still do the best damn job I can, but it doesn't mean the same thing. I'm going to get the answer for myself one of these days. It's the male menopause, that's what it is.
+- I don't think the audience always listens to the critics. That's been proven time and time again.
+- There has to be some kind of order and some moral code. I don't know how people can function without a belief in a deity.
+- I was spiritually bankrupt, and when that happens, it's like a spiritual cancer afflicts you.
+- Above all, film is a business... Independence is a really cool thing as you can be a bit more bold, and take a few more chances with what you do.
+- Hollywood is a factory. You have to realize that you are working in a factory and you're part of the mechanism. If you break down, you'll be replaced.
+- I could easily not act again. It's not a problem.
+- If I've still got my pants on in the second scene, I think they've sent me the wrong script.
+- I'm always writing. There is always a story brewing in my head.
+- A woman should be home with the children, building that home and making sure there's a secure family atmosphere.
+- What I need to do to heal myself and to be assuring and allay the fears of others and to heal them if they had any heart wounds from something I may have said.
+- Boy, there's nothing more thrilling than a chase. I'd often thought, over the years, that someone should do a whole film where it's nothing but a chase.
+- I just don't do anything fun anymore. But, that's dying, isn't it? I mean, you die in stages, right? You let things go in pieces.
+- I don't think we're crumbling as a civilization, but this is not our finest hour, and it's good to be mindful that we're all susceptible to fall and to look at what are the earmarks of a civilization on the wane. What are they - destruction of the environment? Conspicuous consumption? Heard of those?
+- It's a wise man who understands that every day is a new beginning, because boy, how many mistakes do you make in a day? I don't know about you, but I make plenty. You can't turn the clock back, so you have to look ahead.
+- I'm pretty fit, naturally. I do moderate exercise, and I try to eat pretty well and I think it has an effect on me. But hey, I'm putting on the insulin tire like everybody else, but that's just a function of getting older.
+- It's amazing how powerful a piece of work can be and how it can influence people and change. It's pretty interesting.
+- I don't think of myself as either American or Australian really, I'm a true hybrid. It's a good thing for me because both of them are really good countries.
+- After about 20 years of marriage, I'm finally starting to scratch the surface of what women want. And I think the answer lies somewhere between conversation and chocolate.
+- I am politically incorrect, that's true. Political correctness to me is just intellectual terrorism. I find that really scary, and I won't be intimidated into changing my mind. Everyone isn't going to love you all the time.
+- I have learned that a bitter experience can make you stronger.
+- I think the 'Lethal Weapon' movies contain my favorite performances. It sounds really crummy, I know, but although the work doesn't look hard, it's difficult to create 'effortless' on screen.
+- Marriage is marriage. Everybody has problems.
+- The very first idea I ever had about making a film... my first thought about ever being a filmmaker was when I was sixteen years old and I wanted to make a Viking movie. And I wanted to make it in old Norse, which I was studying at the time. It's odd because at that age that's a stupidly ridiculous idea 'cause how will I ever be a filmmaker.
+- I'm as vain as the next guy. I have a facade on right now. But you can't see it, because it's reality-based.
+- The Holy Ghost was working through me on this film, and I was just direction traffic.
+- My biggest weakness is that I'm excessive. Fortunately for everyone concerned, I'm not as excessive as I used to be.
+- I'm not under the illusion that everything's just going to be hunky-dory work wise forever. I've never been under that illusion. Things could go away tomorrow.
+- Writing is a hard gig, and it's hard to convey a lot. That's why scripts tend to be a little bit overwritten.

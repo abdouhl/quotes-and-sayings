@@ -1,0 +1,82 @@
++++
+author = "Malcolm Jenkins"
+title = "Malcolm Jenkins Quotes"
+quotes_len = "76"
+description = "the best 76 Malcolm Jenkins Quotes"
++++
+- We've been doing work outside of the anthem since the beginning. Before the anthem even started, players were involved in these types of social justice issues. The anthem protests or demonstrations just brought eyes and attention to it.
+- I will shop at Asos or Urban Outfitters. Urban Outfitters is probably where I buy most of my stuff from. I mix and match from different places.
+- We have that responsibility to look out for those who haven't had the road and the success that we have.
+- I can create as many programs and mentorships and scholarships as I want, but it doesn't change the environment in which our youth are growing up in.
+- Donald Trump is a divisive name in a locker room.
+- To be in a situation where you have another year on your deal and the team still wants to extend that - they see your value, they want you in the building, and they want to build around you - that speaks volumes. That's very, very important to a player like me.
+- I'm learning the process of changing things. I'm not really sure where this is going to take me. But I know what I want before my career is over: I want people to remember me as someone other than a guy who just tackled people.
+- Government and companies working together to support parents, teachers, and mentors within the community can give kids a strong background in financial literacy.
+- For me, I'm a bit of a control freak.
+- The crime bill basically incentivized the prison system. There were quotas, mandatory minimums. You have to serve 85 percent of your time, so it is guaranteeing that bodies will always be locked up. And that went mostly towards minority communities and poor communities, where crime is more rampant.
+- Once you look up, and it's Week 14 or 15, and it's crunch time, you can't all of a sudden turn on a switch and say, 'Hey guys, we have to step up and be brothers, be family.' That's stuff that is developed in the offseason, training camp, or throughout the season.
+- I actually enjoy talking about some things other than football.
+- I'd already been doing work in the community... But when it comes to how to actually amplify your voice, when I saw what Colin Kaepernick did and the amount of coverage and conversation around it, that's when I truly realized how much influence we have as athletes.
+- I don't claim to be a fashionista.
+- I've never been incarcerated; I don't deal with these things on a day-to-day basis in my own personal life, but I have family members that do. I have friends that do. I have people in the city that I live in, Philadelphia, that are dealing with this on a daily basis.
+- You can't expect to go about change - especially change of this nature, when you talk about racial equality and justice - you can't expect to go about or engage in that without resistance, and so you're going to have some people who aren't on board.
+- The problem with hashtags is if someone starts a new hashtag, people move on.
+- I've seen signs of life with regards to bipartisan support for criminal justice reform, but the support does not reflect the necessary urgency for real reform. This must be made a priority.
+- I have a huge passion for giving back.
+- For Obama, there was just a lot of enthusiasm in the minority communities to get out and vote. Everybody felt like their vote mattered.
+- We are demanding police transparency and accountability so we can build trust and work together to make our communities safer.
+- Changing communities and changing our country is going to last a lot longer than how many footballs you catch or how many touchdowns you make.
+- Everybody I interacted with in my life, directly or indirectly, has placed a fingerprint upon my life. That combination has made me who I am.
+- Sports is something that transcends generations, transcends backgrounds, cultures, races. And so the power of sports is real.
+- I don't want to do things to do things. I want them all to make sense to me.
+- Everyone loses when voices get stifled.
+- I get hate mail. I get bad mail. People say they will boycott you or the team.
+- I didn't realize that the platform could be this big until Colin Kaepernick first took a knee. When he did that, that was kind of an 'aha' moment for me.
+- We're kind of coached to stay away from touchy subjects just because of the arena that we're in.
+- A lot of guys try to stay out of the political limelight because you have things like endorsements; you have fans and all these other things that you represent.
+- I want to thank the fans across the country who have supported me in this effort to fight for equality and justice. I want to thank those that have dedicated their lives to this fight, as I know that it is not easy. And I want to challenge those who stay silent to be courageous and use your platforms to become part of the solution. God Bless.
+- It's important for students to learn to make smart money management decisions before heading off to college or the entering the workforce.
+- My wife has an all-natural skin and hair product company. I use all of her products for my beard. She has a beard oil and a beard wash. So that is what I use.
+- Fashion, to me, is trends - it's what other people are wearing; it's what's hot this season. I'm not as interested in that. Style, to me, is personal. Style is what each individual has.
+- I'm about creating positive change in the communities that I come from.
+- I am not really that big into fashion, where I am looking at trends or what everyone else is doing.
+- Playing the nickel is something I'm very, very comfortable doing and I enjoy doing, but also, I know what me playing the safety position means to the entire defense.
+- Guys move around in free agency.
+- I could easily vote for things that benefit me taxwise, but the rest of my family is not in this tax bracket. So when I vote, I try to keep in mind my family and my community and what I think is best for the nation as a whole.
+- The more that I learn about what's going on, it's really hard to ignore the oppression that people are actually going through.
+- I've always been a little 'preppy street.' That's how I would describe it. I'm not all the way into street wear, but I am not all the way into a suit and tie either, so I try to combine that look.
+- I'm not a labels type of guy, so every time my coach tries to call me a safety, I correct him and tell him I'm a hybrid.
+- There is nothing that says you can't be active and love your community and fight for your community and still do your job.
+- You've got a bunch of kids out here that might not want to be athletes, but they want to learn how to make a difference in their community, and I'm trying to as best I can show an example of that.
+- If you want change, and you want things to get better across the country, there's different ways to go about it.
+- When you have your star players that decide to use their platform, one, their platforms are bigger than everyone else's, and two, they're a force to be reckoned with because teams don't want to lose that talent. They're a force to be heard.
+- It's actually been pretty liberating for me to fully get behind a cause that I feel is worthy and to stand on it and to follow where my heart takes me.
+- On or off the field, practice and teamwork are the key to success.
+- Our biggest thing is, any player who's protesting will tell you that the only reason we use the anthem is because it's a platform like no other. We use it to draw attention to other issues. We've heard from many people, 'Use a different venue. Use a different platform.' Quite frankly, this is the most effective one.
+- My goal is to use football as a platform to speak out on things that need addressing.
+- I want to see changes in our criminal justice system.
+- When someone finds their own personal style and they own it, they look good in it, no matter what it is.
+- You're starting to see more and more athletes recognizing their reach and how much leverage and power that they have in their celebrity and in their platform. And more and more guys are trying to use that leverage to better their communities, to better this country and are speaking out on injustice.
+- True patriotism is loving your country and countrymen enough to want to make it better.
+- Trump started talking about bringing back stop-and-frisk, which was ruled unconstitutional. And as a black man, that was the last thing I wanted to hear. That you will basically pass laws to say that I can be profiled, and it is legal.
+- I remember my dad always complaining about getting pulled over. I remember the differences in school systems. I remember seeing police officers, not knowing their names, and knowing that they were there not to protect us, not to serve us, but to watch us.
+- I think when you have a group of guys that care about the community, the city, care about each other, it just makes for a unique locker room.
+- A lot of guys will talk politics, but usually not about Trump. Those might get a little heated depending on who you're talking to.
+- If you know anything about the issues in our country, you know we have a lot of deep-rooted anger and anxieties that spark a lot of passion. When you talk about our national anthem or the flag or race relations or the criminal justice system, it brings up a lot of those fears and insecurities.
+- Communities of color have also had to watch video after video of unarmed black men and women being handled without regard for their lives or well-being. As a black man, I see these images, and I see myself; I wonder whether this will happen to me or one of my loved ones.
+- The biggest things I have are the platform that I have and influence.
+- Sometimes, we get numb to the fact that people get sent away. We don't see where they are; we say they are 'doing time,' and you really don't know what that is.
+- Bow tie wearers are like a cult.
+- The people who have been unjustly disenfranchised by our criminal justice system and the people who daily fight for them always have, and always will be, the inspiration and focus of my efforts.
+- We've got to understand what wins and what loses for us. What's our formula? For us, it might not be flashy. It might be boring football, but it works for us.
+- I pop in highlight films from high school once in a while because those days were special.
+- I want to see us push for economical and educational advancement in communities of color and low-income communities, and I want to see our relationships between our communities and our law enforcement be advanced.
+- As the blowback against those who stand up for what is right thickens, I feel it is necessary to push forward with a relentless determination.
+- For myself and the Players Coalition, it was never about the money or having our voices bought. To hear people call me or anyone else a sell-out is insulting. It has always been, and will always be, about lifting the voices of the people and the work of those that fight for them.
+- I like living in the city. I really don't like the suburbs.
+- When I look at our communities, our country, our justice system, those are things I want to change and I'm committed to changing, and that's going to take sacrifice. Laying the foundation is the hardest part and requires a lot of sacrifice and time.
+- I grew up playing in the streets. We played two-hand touch from street pole to street pole. That's how I learned the game.
+- After spending time with police officers on ride-alongs, meeting with politicians on the state and federal level and grass roots organizations fighting for human rights, it's clear that our criminal justice system is still crippling communities of color through mass incarceration.
+- I want to be remembered as someone that used football to raise awareness.
+- We are fighting to pass clean-slate legislation in Pennsylvania to seal nonviolent misdemeanor records automatically after 10 years. We must provide opportunities for employment, housing, education, loans, and voting. We should not disenfranchise a third of the population.
+- Oftentimes, even myself as I've come through my entire career from high school all the way up here, everything has been football, football, football. And then you realize that life is much bigger than this game, especially when you start thinking about life after football and what you want to leave behind.

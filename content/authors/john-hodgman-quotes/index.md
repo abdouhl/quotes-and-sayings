@@ -1,0 +1,60 @@
++++
+author = "John Hodgman"
+title = "John Hodgman Quotes"
+quotes_len = "54"
+description = "the best 54 John Hodgman Quotes"
++++
+- When you think about it, the end of the world is a little bit like death: We all know it's going to come eventually, and as we get older, we feel we see the signs more and more distinctly.
+- People forget how outcast 'They Might Be Giants' can be. They have a reputation for writing really deft, funny, clever melodies, and they also make a lot of music for kids, which is terrific, but when you see them in concert, they can rock the house.
+- I know nothing about letting go.
+- All I can ask from society is that it please stop telling me why I should like sports.
+- The villain of any story is often the most compelling character.
+- The few people who ask to have their photographs with me, I almost always say yes, except for a few circumstances, like when my family is around.
+- People who run for president seriously and people who become president enter a bizarre secret society in which they have had an experience that none of us will ever have.
+- What would I put in a museum? Probably a museum! That's an amusing relic of our past.
+- My fame is due to broadcast television.
+- My type of humor is me not caring whether people know what I'm talking about or not.
+- As you know, the thing that I know the least about is the topic of sports.
+- More people have more access to more readers for less money than ever before in history. It means a lot of dross; but it means a lot of very talented people can find and nurture a readership in ways that were not possible twenty years ago. From a creative perspective, that is all that writing is about.
+- Not as many people watch 'Doctor Who' as watch the Super Bowl, obviously, but the tropes that attract nerds are no longer a secret cult. It's a much larger culture, in the specific sense.
+- Hosting a TV show is a full-time job in which success is defined by it never ending.
+- A lot of my time is spent reading antique or out-of-print books of reference.
+- Publishers, editors, agents all have one thing in common, aside from their love of cocktail parties. It's an incredible taste and an ability to find and nurture authors.
+- I think that obviously, there is a perverse attraction to a fundamentally changed world or the end of the world. There is a death wish, a perverse death wish. Not just for ourselves, not just for the movie 'Death Wish,' but for the end of all human life.
+- I am someone who values truth - actual truth as opposed to 'truthiness.'
+- If you look in the dictionary under 'perfectionist,' you see Henry Selick correcting the definition of perfectionist in the dictionary. I mean, he is so meticulous.
+- I am amused by cricket because it seems to take longer than baseball and I like that. It seems like a sport I could have made up it - it takes several days to play and everyone wears sweaters. I can't confess to knowing what's going on at all.
+- Any time you try to create an Internet meme, automatic fail. That's like the worst thing you can do.
+- It seems that every generation needs its public, tweedy, literary personality to sell its consumer electronics. To whatever degree I can live up to the Plimptonian legacy, I am humble and proud.
+- All books should be trilogies; I mean I think we all agree on that.
+- I know electric knives are excellent for carving turkeys that have had their bones removed and been forced into a mold to shape them. Please note that those turkeys are called hams.
+- I have a lot of cultural references that have amassed in my brain like shrapnel over the years that are meaningful to me.
+- I feel that there is a decision people make to either engage in a legitimately ridiculous process to get your kid into school, or choose not to engage in that so much, and end up finding a nice local school that fits.
+- My biggest superhero of writing is Jorge Luis Borges, the Argentine fabulist. He's an amazingly perceptive writer, but also willing to make a joke.
+- While I understand that all things must come to an end, whether it's a television advertisement or one's life or the world itself, it doesn't make it any easier to deal with.
+- Most people presume my mustache is not real because it's much darker than my regular hair.
+- I am not an Internet superstar.
+- One can always come up with funny lists and jokes. You know what? I take it back. Not everyone can always come up with funny lists and some jokes. I'm very lucky to have a gift where I can do that pretty ably.
+- My career as a magazine writer was largely prefaced on the idea of curiosity, to go on adventures and weasel my way into the lives of people that I admire.
+- Well, I always had this desire to celebrate and somehow be a part of things that I thought were really great.
+- I would be good for maybe not the center square but an upper square on 'Hollywood Squares.'
+- Generally speaking, I, like anyone else who does anything publicly, like it when people like what I do, and would like to hear as much.
+- In the '80s and '90s, I was really interested in, moved by, exhilarated by, and troubled by rap in all the ways a white person from Brookline, Massachusetts should be. That was music that was making trouble, and it was interesting and provocative trouble.
+- Comics have a problem, and that is continuity - the obsession with placing the characters in an existing world, where every event is marked in canon. You're supposed to believe that these weepy star boys of now are the same gung-ho super teens fighting space monsters in the '60s, and they've only aged perhaps five years.
+- For a long time, I would write without music, because I thought it was distracting until I appreciated that it actually unlocks a certain unconscious productivity vault in my mind.
+- Everyone wants to write a book. Very few people are able to do it.
+- It would be rather naive to imagine that Oprah doesn't have an Earth Evacuation Plan. You know Richard Branson does - his is in plain sight.
+- The most important book on the Internet is, essentially, the Internet.
+- First of all, I wish I could grow a beard.
+- A lot of media that that I want to consume, I don't want to have to own forever and ever. It's not like real estate.
+- Here's the thing: I am not only a creature of civilization, I'm an asthmatic person. I will only live so long as I have stockpiled the proper inhalers. I'm effectively a cyborg. You know how in Jurassic Park, they bred those dinosaurs with the lysine deficiencies, so if they ever got off the island, they'd die? That's me.
+- I actually own a copy of my own book; that's how dedicated I am as an author.
+- Part of the transaction between writer and reader is the pleasure of building a community and encouraging people to play along.
+- Many people, many girls have tried to teach me the rules to football. And you would think that it would get in my head that way, but I just don't understand it.
+- I'm a personality - like a George Plimpton who effectively plays himself in a bunch of different roles, or a Paul Lynde-type character.
+- I do not think that a museum needs to engage with pop culture in order to make itself interesting to museumgoers. Museums are already interesting and engaging with pop culture for its own sake is just a quick way to seem and become dated.
+- There's a tradition in American fiction that is deadly serious and earnest - like the Steinbeckian social novel.
+- As a freelance writer, I'd be asked to become an expert for various magazines on any subject, whether food or wine or history or the life span of veterinarians. I was completely unschooled in any of these things.
+- When I listen to music - I don't particularly do it for fun all that much. It's not a big part of my life, and I'm not really on top of what's happening in the world of music in the way I was when I was a teenager.
+- Comedy does offer an avenue to television and film careers for untelegenic people that great drama does not.
+- Creating fake facts does require a measure of haphazard research, insofar as they need to not just be possible, but also interesting.

@@ -1,0 +1,67 @@
++++
+author = "Sean Combs"
+title = "Sean Combs Quotes"
+quotes_len = "61"
+description = "the best 61 Sean Combs Quotes"
++++
+- One of my weaknesses is that I actually have a conscience.
+- Everyone has challenges and lessons to learn - we wouldn't be who we are without them.
+- It just gets draining on a person being in the papers every day. So I was like, I'm gonna come back here. I want to talk to all the people, the fans. I want to let them know how much I appreciate all their support.
+- I don't believe in fear - I live my life without regrets.
+- It feels like I could go outside with a bikini thong on right now.
+- You can't start changing things in your past. Everyone has challenges and lessons to learn - we wouldn't be who we are without them. I certainly wouldn't be who I am.
+- There's a huge AIDS epidemic in Africa, and one of Bad Boy's plans this year is to give more awareness to that. We're gonna be doing a big charity concert helping to save some of the brothers and sisters in Africa.
+- I take pride in being one of the most successful producers in hip-hop history, having the most successful record in hip-hop history, I have the most number ones.
+- I was proud of working 18 hours a day and sleeping three hours a night. It's something now that has turned into a problem for me: not being able to sleep... having insomnia.
+- It's okay to be crazy, but don't be insane.
+- When I decided I wanted to be an actor, I said I wanted to work with quality actors and directors.
+- I'm in the studio 24 hours a day. It's true that once you get a certain level of success, you become a target. Talk magazine should be ashamed of themselves.
+- I miss my kids sometimes and that can get me down when I've been away working, but then I wake up and recognize how incredibly lucky I am. Spending time being down is less time out there achieving and enjoying.
+- Bad Boy Entertainment did not shoot anybody. I didn't shoot anybody.
+- If I change my name again y'all can have me certified as crazy. Alright?
+- I've never really taken more than four days off, so it was a lot for me to go away for three-and-a-half months. I went all over Europe. I walked on a whole bunch of beaches and I did a lot of thinking.
+- I wouldn't abandon nobody. I would be lying if I said I was just talking to everybody.
+- I want to have a cultural impact. I want to be an inspiration, to show people what can be done.
+- My message is all about peace.
+- I love New York, it's always been my home. It has everything - music, fashion, entertainment, impressive buildings, huge parks, street cafes. And it's very international, with people from all over the world.
+- I have had fans make me the big picture collages of the photo books; I have had fans send me birthday cakes... sing to me on my voicemail. I have had fans flash me. I have had older fans give me their bras and underwear onstage.
+- If you dream and you believe, you can do it.
+- Revolt is designed to be a home for the next generation of musical artists, and we are investing in the artists and fans of the future. Revolt is for artists, by artists. This won't just be the P. Diddy network.
+- I'm glad the truth is out. I'm glad everyone knows I'm innocent, not guilty.
+- My style is to service my community through entertainment and products.
+- I've got to take a break, to be honest. I'm not even going to lie.
+- I'm against all war.
+- My mother's no dummy. She taught the lesson about sacrificing for your kids, but also that if your kids hit it big, they better make it up to you for those years. She's gotten her sacrifices back with interest.
+- I come from a world of hip-hop, but I love all types of music, and that's what Revolt will reflect. It will be home to electronic dance music, pop, hip-hop.
+- I have so much respect for people in the theater. You can't do 10 or 15 takes. It's all live. It's like life in motion.
+- My talent is definitely a gift. I don't understand where it comes from. I don't play an instrument, and I never went to school for music production, but I know exactly how a song should sound and how to give an artist direction.
+- Fans made me. The fans gave me a chance, and they made me. Beyond that, my career has been trials and tribulations and ups and downs, so I have to have true fans riding with me.
+- All I've been trying to do all my life is to make great music.
+- I don't say it in a cocky way, but I take pride in being one of the best at doing what I do.
+- Everybody's just been spilling their guts all over records and talking about how hard it is to be an entertainer and how much we get hated on and what we have to go through. But I ain't really got it that bad. I'm just happy to be here.
+- I'm hyperactive, and I went in the studio and I would just start making records, for no reason.
+- We used to talk about wanting to get some money, but that's when hip-hop was based on your dreams and your fantasy. The whole thing now is the dreams and fantasies were achieved, and you don't want to make it the focal point. You can't keep beating that dead horse.
+- I think that's good that I have to watch how I act and what I say. I think that's a part of growing up.
+- Being from New York, there's three things you know about Hollywood. You know about the Hollywood sign, Sunset Strip and Hollywood Boulevard with the stars.
+- I've always been a daydreamer. When the other kids were playing, I was listening to the roar at Yankee Stadium - I was always attracted to the roar of the crowd.
+- It is going to be changed to straight P. Diddy. You could call me P. or Diddy, or P. Diddy. I just want something fresh, man.
+- I just want to be happy. You know what I'm saying? I just want to be happy, and I want to be able to make somebody else happy.
+- If you're looking for a deep album or you're looking for me to talk about past situations, it's not even about that. It's just 14 hot records that are gonna make you dance.
+- Smell is incredibly important and sensual; it communicates who you are.
+- I would never withhold information about the murder of my man Biggie, or anybody else. It's just silly and ridiculous. The accusations are just flying out. All I've been trying to do all my life is to make great music.
+- Don't get yourself in certain circumstances or instances, because it's not a good feeling to be sitting in that chair where you've got 12 people that are in control of your life. You have an opportunity to be in control of your life for yourself by the decisions that you make.
+- I am a marathon runner. I ran the New York City marathon and almost died. I tried to run, like, a two-minute mile early on in the race. I was crazy enough to think I could win. After seven miles I thought I would die, but I slowed down my pace and kept going.
+- I can't say that I've fully achieved my dream yet. I'm just starting to evolve.
+- At an early age, I started my own paper route. Once I saw how you could service people and do a good job and get paid for it, I just wanted to be the best I could be in whatever I did.
+- I was like a wonder kid at Uptown. The first record I produced sold two million copies - and I'd only produced it because the producer didn't show up.
+- Music is the most powerful form of communication in the world. It brings us all together. Even religion separates us, but a hit record unites us across religious beliefs, race, politics.
+- My mother was always working for a job, so I guess I was always trained that I should have multiple jobs, multiple aspirations. And I remember she had multiple aspirations, always hearing about her dreams and things she did in the past and things she wanted to do.
+- This whole Puff Daddy thing has taken a toll on me.
+- I just feel if you are an artist, you always have something to prove, if you are in music or in films, you have to prove that you can still do your best.
+- Man, I just feel blessed... I was in a situation where the only way I could come out of it was by putting my faith in God. No matter how good my lawyers were, no matter how much celebrity I had, everything was just stacked up against me.
+- Revolt is my new - cable music network. It's distributed through Time Warner and Comcast. And to put it simply, it is the ESPN of music.
+- I feel safe in white because deep down inside, I'm an angel.
+- My mind is always racing, and always going and always working, and it's a gift and a curse.
+- I got a chance to have my dream come true, and I wanted to make sure I made the decision as to when I dropped my last album. If I don't feel like this album is an incredible piece of work, then I'm cool with the albums I've done. I don't have to put out another album.
+- People from all walks of life and all over the world look at me and know my humble beginnings and know that everything I've done has been through hard work. People respect me as a marketer and brand builder.
+- I'm like a child inside and I really get excited, so sometimes when I'm trying to go to bed, I'm so excited about the next day that I can't go to sleep.

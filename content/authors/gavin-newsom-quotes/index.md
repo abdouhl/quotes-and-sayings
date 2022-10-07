@@ -1,0 +1,120 @@
++++
+author = "Gavin Newsom"
+title = "Gavin Newsom Quotes"
+quotes_len = "114"
+description = "the best 114 Gavin Newsom Quotes"
++++
+- As Mayor, I will fully support my Arts Commission and its professional selection committees so that they can commission a full range of public art that is daring and, when appropriate, daringly traditional.
+- You can love me or hate me and disagree with me, but you sure as hell know where I stand.
+- I'm not a pundit. I don't want to be a pundit.
+- The arts can play a vital role in revitalizing neighborhoods, using and improving vacant space, bringing new jobs and new sense of opportunity, and improving public safety by generating more foot traffic and more eyes on the street.
+- Livable neighborhoods with a vibrant street life will stimulate our economic life as well.
+- Separate is not equal. Civil unions are civil unions. Marriage is marriage. They're different institutions.
+- The economy is not immutable; it's not about natural laws. It's about rules, and we make the rules.
+- As goes California, so goes the rest of the nation.
+- My daughter's met Hillary Clinton, so she's got a strong bias. But she, of course, parrots me and goes, 'Oh, Donald Trump, I don't like him!' I'm like, 'That's good!'
+- When Californians see something we truly believe in, we say so and act accordingly - without evasiveness or equivocation.
+- I don't want to let the rest of this country drift into the abyss. I want to fight for it.
+- Accessing capital to start a business can be a daunting process, especially for entrepreneurs who start out with a great idea, but have no real familiarity with the business world.
+- Prop 8 did something that no other state in the history of this country has done. It took away the rights of people that already were legally affirmed. Imagine someone putting something on the ballot saying your wedding, your marriage is no longer valid.
+- I just butcher a book. Everything I underline I assume is important to me.
+- There's something called CEQA in California - NEPA at the federal level. There's indigenous lands and autonomies relating to governance on those lands. There are all kinds of obstructions as it relates to just getting zoning approval and getting building permits.
+- You've got to change incentives for good behavior as opposed to just disincentivizing bad behavior.
+- At the end of the day, there's not a day that goes by without a mass shooting.
+- I don't know many better training grounds than being mayor of San Francisco - those were pretty intense years in terms of reporting and scrutiny.
+- Government doesn't have to come up with new killer features on its own. It has to step aside and let others come up with them.
+- I'm much more optimistic about this next generation because this is the first global generation.
+- The value of an arts education is widely accepted, especially in California.
+- Good people can disagree.
+- We can build new housing while preserving the quality and character of adjacent residential districts and ensuring infill development strengthens the surrounding neighborhood.
+- The kind of cynical politics of divide and conquer, that's shameful stuff, and I don't know - people live their life like that, but I don't know how they look back and feel good about themselves.
+- I will negotiate with my worst enemy.
+- As mayor of San Francisco, I will provide the vision and work hard to make San Francisco a beautiful, well-planned city with excellent housing and transportation options.
+- Separate inherently is not equal. There's a reason why $45 million was spent against marriage equality. It's because people understand the word does have meaning. And equality comes when we accept the same notions and the same institutions for everyone, regardless of race and gender and regardless of sex orientation.
+- I have differences of opinion within my own family, an Irish Catholic family. So, I do respect those that disagree.
+- California is infamous for passing things and then waking up and saying, 'What the hell did we just pass?'
+- An arts education helps build academic skills and increase academic performance, while also providing alternative opportunities to reward the skills of children who learn differently.
+- There was a lot of hype about social media in President Obama's first campaign. It was important, but it wasn't as important as I think people let on.
+- While it was refreshing to finally see an openly gay man speak at a Republican convention, it doesn't remove the stain of selecting Mike Pence, America's most anti-LGBT governor.
+- Street and park trees provide tremendous benefits to cities.
+- Cultural tourism surveys consistently rate San Francisco's art industry as a core reason for visiting.
+- I made bad decisions. That being said - the question is, does the public care about that?
+- I'm really more of an executive.
+- California is a bellwether state. California was the first state in the United States to overturn the laws against interracial marriage. It took 19 years for the rest of the country to come around to that point of view.
+- My mother - it's not one of those waxing-poetic kind of things - she literally worked two or three jobs most of her life. So I personally experienced that, even though I had these great friends and associations who had unlimited amounts of money. That juxtaposition was an interesting one.
+- Just because you have a learning difficulty or difference doesn't mean you aren't smart.
+- People don't have to agree with me. They can say, 'My gosh, I can't believe I'm listening to this guy. I can't disagree with him more.' But at least they know that I'm going to fight for things that I believe in. And I don't need to be in formal office to do that.
+- Even if Donald Trump's successful, it's the beginning of the end if this rhetoric persists in the Republican Party.
+- Government is the ultimate monopoly. And monopolies, as any economist will tell you, often breed complacency and a lack of innovation.
+- I've never been a fan of pretense or procrastination. After all, our state is defined by its independent, outspoken spirit.
+- We do not have the right to discriminate against people.
+- No-Drama Obama? Yeah, that's not me.
+- You don't have to be something to do something.
+- I'm not courting labor. I come from a labor background. To me, it's just intuitive.
+- San Francisco can no longer afford to be a city divided between downtown and neighborhoods, with a downtown that becomes a ghost town when workers go home for the evening.
+- We must continue to step in and stand up to resist reckless rhetoric and actions in a peaceful and forceful manner.
+- As Mayor of San Francisco, I will work hard to ensure that, in the event of natural or man-made disasters, San Franciscans are prepared and our City is protected.
+- City government can and must help San Franciscans prepare for emergencies in order to avoid tragedy where possible and minimize loss of life and property when emergencies occur.
+- You only get one chance in this thing called life. I know that is a bit maudlin and obscure, but it's a fact, and you can make a profound difference in people's lives without having a title in front of your name.
+- I'll be kicked out before I rust out.
+- Historically, San Franciscans have not valued street trees as much as other communities have.
+- Do what you think is right, because one damn thing is an absolute, certainly: We come and go. Politicians are a dime a dozen.
+- Are we going to solve the issue of poverty? Absolutely not. Are we going to have an impact? I'm committed to it, and if we don't, I'll have no regrets because we're going to try everything we can.
+- San Francisco lags behind other communities in providing a vital, vibrant and ecologically sustainable urban canopy, as well as open space in the city.
+- Since Sandy Hook, I have sat back as a father and been mesmerized by the inability of the federal government to do anything substantively on gun safety.
+- San Francisco has long been a leader in the arts, nurturing generations of painters, sculptors, poets, novelists, playwrights, film-makers, and performing artists and innovators of every kind.
+- I did not love reading, spelling, math and science. I struggled. I was a terrible speller.
+- There's a secret sauce in California, and I hope people pay attention to it.
+- These Millennials are volunteering more; they're smarter than ever.
+- It's nature-nurture, right? I've been nurtured by Californians.
+- If, in this country, a simple majority of people can start stripping away the rights of a protected class in the minority, that's a pretty alarming thing.
+- People don't care anymore because they don't believe in us; they don't trust us. And that's why we should change politics, not just accept the cynical frame that, 'Well, that's just politics.'
+- One of the defining dynamics of 2008 has been the emerging wave of new, young voters getting involved and storming the gates of the traditional political establishment.
+- The tech genie is out of the bottle; you can't put it back in.
+- People always thought I'd never get elected outside San Francisco; I was always more worried that I'd never get elected again inside San Francisco.
+- There is nothing worse than a politician that gets defensive and starts attacking the media - and it always looks bad for the politician, because you sign up for this. You live by the sword, you die by the sword.
+- The 21st Century has begun as an era of uncertainty, with a heightened focus on security and public safety.
+- We need to allow people to bypass government... to look to themselves for solving problems rather than asking the government to do things for them.
+- During the 1990s, San Francisco lived through one of the most intense economic booms of its history.
+- Like any small business owner, I experienced the pressures of building a company from the ground up - developing a business plan, balancing the books, meeting payroll and building a customer base.
+- There's been a gap between perception and reality, the perception being that California is on the cutting edge of gun safety legislation when, in fact, there are a number of areas where we have fallen behind.
+- I act on my principles, whether they're popular or not.
+- Involvement in the arts engages kids in their community, improves self-esteem, reclaims at-risk youth, and builds the creative skills that are required of a 21st century workforce.
+- Californians are blessed with the remarkable leadership of Gov. Jerry Brown, who... has led our state to firm fiscal footing and brought us to the enviable position of dreaming - and achieving - big dreams again.
+- We are not going to turn our backs on people who have been persecuted, turn our backs on people who have been threatened by terror.
+- Even though he's a third-generation San Franciscan, my father's very European in some ways, and he loves wine.
+- The Republican Party - that was the end of the Republican Party. What Pete Wilson did with the xenophobia and the negative attitude, all this sort of anti-crime backlash.
+- If you're not open, you're not transparent, you're still holding on to vaults of information, you're not going to build that trust.
+- When you have a good idea, the money flows.
+- You need to let go of your fear and anxiety of being judged by others.
+- Society becomes how we behave.
+- As Mayor, I will lead city government, businesses, and community groups to support innovative projects that will make San Francisco streets and public places vibrant and healthy.
+- Government can do best by simply getting out of the way.
+- The people that are serving you gas, the people that are in your restaurants serving you, the firefighters, and police officers are members of the gay and lesbian community. They're members of our broader community.
+- The whole idea that the Constitution of the United States would be used to advance a political agenda is absurd.
+- If you're trying to understand why it is that certain things happen in Sacramento and certain things don't, at the end of the day, it comes down to the issue of incentives: We do what we're incentivized to do.
+- I think Thanksgiving is the perfect occasion to break open a buttery, oaky Chardonnay from California.
+- San Francisco businesses face many challenges, including high rents, regulatory burdens, and the rising cost of workers compensation insurance and employee health plans.
+- A mistake that a lot of us have made, related to those who advocate for gun safety legislation, is that we try to process it through our legislative bodies, and that's where the NRA's strength lies.
+- If high-wage, high-cost nations like Germany and Japan can compete on exports, California can.
+- As Mayor, I will use my experience to make San Francisco a place where small businesses can thrive.
+- Take responsibility. Step up and step in. Because at the end of the day, folks, we are our behaviors.
+- We recognize that the arts are an essential part of San Francisco's cultural vitality.
+- I don't learn in a certain way, but I have other skills.
+- If Wikileaks didn't resolve that question for folks - at the end of the day, there are no secrets. We're living in a glass neighborhood, in a fishbowl, and technology, white hat hackers, the folks that are doing the right thing with hacking.
+- I'm sick and tired of politics and politicians as usual.
+- You'd be hard pressed to find a bigger champion of high-speed rail than me when the bond went to voters. I believed in it.
+- But living in uncertain times does not mean San Franciscans must live in fear.
+- Founders Den provides the kind of collaborative and creative atmosphere to foster new ideas not only for emerging new businesses, but government as well.
+- We have rules that no longer are relevant to the world we're living in. Our regulatory system can't keep up.
+- I really feel it's time to dissolve the current relationship of governor and lieutenant governor by running as a ticket.
+- If you distill the essence of everything, what life is about, every single one of us is given a short moment in time on this planet, and we all have one universal need and desire, and that is to be loved and to love. And to deny that for your own political expediency, I don't want to live in that column. It ain't worth it.
+- Guys like me don't necessarily progress very far, which is fine.
+- San Franciscans know we live in the most beautiful city in the world, a jewel on the edge of the Golden Gate.
+- The question for politicians here is fundamental: You can read the polls, or you can change the polls. Stand up on the things you believe in.
+- Do I support a driver's license for everybody? The answer is yes.
+- It was difficult to realize, 'I'm lieutenant governor.' And Brown appropriately reminded me of that.
+- Make no mistake: conversion therapy is not about 'praying away the gay.' It's an emotional torture against our most innocent citizens: our children.
+- Sometimes I will make CliffsNotes of my CliffsNotes.
+- I have a very successful father-in-law and family with very different political views.
+- If we continue to fight the National Rifle Association on their home court, which is the legislative front, I think we'll continue to be frustrated. But when you have an ability to go directly to the public, that's a completely different field of engagement, and I think the NRA is not adept at that kind of engagement.

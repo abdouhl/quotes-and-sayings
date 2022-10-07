@@ -1,0 +1,66 @@
++++
+author = "Mary Quant"
+title = "Mary Quant Quotes"
+quotes_len = "60"
+description = "the best 60 Mary Quant Quotes"
++++
+- Fashion is a tool... to compete in life outside the home. People like you better, without knowing why, because people always react well to a person they like the looks of.
+- As a child, I used to spend nearly all my summer holidays with my aunt in Wales, and we used to catch mackerel in a boat and then cook them on board.
+- I saw no reason why childhood shouldn't last forever. So I created clothes that worked and moved and allowed people to run, to jump, to leap, to retain their precious freedom.
+- Eating outdoors is a particular passion - that is, eating trestle-table a la nicoise.
+- When I opened my first shop, city gents were still carrying tightly furled umbrellas and wearing bowler hats. It was into this world that I launched my new ideas about fashion.
+- I think to myself, 'You lucky woman - how did you have all this fun?'
+- I always designed clothes from a very young age because I didn't like the way they were. They were paralyzing; they were stilted.
+- The fashionable woman is sexy, witty, and dry-cleaned.
+- I love restaurants, and I love cooking.
+- Many of my friends are chefs, and I learnt to cook watching them.
+- Vidal Sassoon changed hair forever.
+- I designed the miniskirt that caused so much havoc in the Sixties - the miniskirt that was such fun but has travelled well to today.
+- Fashion is not frivolous. It is a part of being alive today.
+- I have an awful lot of energy.
+- I used to start re-arranging my school uniform, hitching up my skirt to be more exciting-looking.
+- I absolutely adore cows. They're the most fascinating, gentle and beautiful animals. Their eyes are so amazing. I have ten that live on the land around my house. I love to talk to them. There are few things better than falling asleep in a field and being woken up by an inquisitive cow.
+- A woman is as young as her knees.
+- In the first half of the 20th century, fashion was simply not a very English thing to do.
+- Risk it; go for it. Life always gives you another chance, another go at it. It's very important to take enormous risks.
+- Jean Shrimpton was the most beautiful of all the models I have known. To walk down the King's Road, Chelsea, with Shrimpton was like walking through the rye. Strong men just keeled over right and left as she strode up the street.
+- For one thing, I am still working as an adviser on fashion, design and colour and stuff.
+- Coco Chanel hated me. I can understand why.
+- People only see permissiveness in the sense of having more.
+- Fashion is a very ongoing, renewing thing, about change and reaching for the next thing. You are permanently dissatisfied, and it's always got to get better.
+- Of course, I remember when everybody was thin. It wasn't until I went to America in the Sixties that I saw anyone who wasn't skinny thin.
+- I didn't get fat even when I was pregnant. You have to work very hard at staying slim, and it's a bore. But it's worth it.
+- I divide my time between all the mud and open space in Surrey and the social life and work in London, particularly Chelsea, which still has the same village feel that it had in the swinging Sixties.
+- As the daughter of two teachers with first-class degrees, I'd always seen myself as a duffer by comparison.
+- I liked my skirts short because I wanted to run and catch the bus to get to work.
+- I remember one day, when things were going frightfully well, I went to buy myself a really smashing car. I asked them to show me a Porsche with an automatic gearbox, and the salesman called over all the other salesmen, and they stood around absolutely roaring with laughter.
+- I've always loved painting and drawing. I wish I'd developed it more and exhibited.
+- One thing I longed to do was to design a complete look, from head to toe, so I started a make-up line in 1966.
+- Of course I remember everything I've ever worn.
+- Britain has always had more art schools per capita than any other country.
+- Most of my memories of the Sixties are ones of optimism, high spirits and confidence.
+- The fashionable woman wears clothes. The clothes don't wear her.
+- My garden in England is full of eating-out places, for heat waves, warm September evenings, or lunch on a frosty Christmas morning.
+- People call things 'vulgar' when they are new to them. When they have become old, they become 'good taste.'
+- My favourite Nice restaurant is in the market. It's open mainly for the market people, and shuts in August.
+- Good taste is death; vulgarity is life.
+- I dressed like Leslie Caron as a teenager: soft school pleats, Peter Pan collars.
+- The miniskirt caused an extraordinarily powerful reaction. There were the people who hated it.
+- Having money is rather like being a blond. It is more fun but not vital.
+- I have been on a diet since 1962.
+- The real creators of miniskirt are the girls, the same that you seen in the streets.
+- London style is individual.
+- I liked masculine fabrics: Prince of Wales checks, city pinstripes, and flannels - worn with black tights, flattish shoes.
+- One day, a new fabric appeared on the scene. PVC was shiny, waterproof, and unlike anything I'd ever seen before.
+- In America, they never make anything without first having a market survey to ask the public what they want. People only ask for things they already know about, so you don't get anything new that way. That's why American fashion is stuck.
+- As well as being a creative genius, Vidal Sassoon was a formative figure of the Sixties. Along with the Pill and the mini-skirt, his influence was truly liberating.
+- The Lord's Prayer is the most perfect piece of poetry. I always feel at peace and moved when I recite it.
+- I long for my garden to be complete. Working in it is one of my joys, but it will never be finished because it's forever changing with the seasons.
+- In the old parts of Nice, the family tables are out in the cobbled streets so that you can't drive past. They insist you join them at midnight on a hot July evening. So that's just what you do, abandoning the car.
+- The whole 1960s thing was a ten-year running party, which was lovely. It started at the end of the 1950s and sort of faded a bit when it became muddled with flower power. It was marvelous.
+- I don't have birthdays.
+- I still like the King's Road. It is very alive; it is a hustle of things from different countries and so on. It is lovely.
+- I can't imagine not working, really. I just think work's more fun than fun.
+- Only ugliness is obscene.
+- Let me give you an idea of Fifties Britain. The war had ended ten years before, and most people had returned to their gardens and allotments hoping life would revert to how it was before the hostilities.
+- I'm greedy, but I've always watched what I eat because I want to look good. I gave up butter, cream and sugar years ago.

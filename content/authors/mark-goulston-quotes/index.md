@@ -1,0 +1,106 @@
++++
+author = "Mark Goulston"
+title = "Mark Goulston Quotes"
+quotes_len = "100"
+description = "the best 100 Mark Goulston Quotes"
++++
+- As a general rule, when your child, or anyone in the work force, doesn't know what he/she wants to do, they should instead always be developing skills and competencies that will qualify them for the jobs that companies are most looking to fill and increase their hireability.
+- Self-esteem is crucial to how much or how little contentment you feel at the end of your life.
+- One word that seems to connect both leaders and employees is: 'outcomes.' Built into that word is the implicit and explicit understanding and agreement that effective actions lead to good outcomes; ineffective actions lead to poor outcomes.
+- Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.
+- When you listen with memory, you have an old agenda, and when you listen with desire, you have a new one. You can't listen to the other person if your agenda is overtaking you.
+- Every business needs to get out of their own mindset and into the aspirational mindsets of their customers and clients and create services and products that are beyond their customers' imagination but will be what they 'gotta have' in the future.
+- If and when they have a disagreement or argument, and if they can't resolve it, happy couples default to trusting and forgiving rather than distrusting and begrudging.
+- When you're actually talking over someone, it's as if you're just pontificating and they're not even there. And their body language - they're trying to get away from you. And if you're pontificating at an audience, and there's a break, the non-martyrs in the audience are not going to come back. I mean, they just want to get away from you.
+- Lousy, ineffective actions lead to lousy outcomes. Terrific, effective actions lead to terrific outcomes.
+- Salespeople are in the decision business. Their livelihood depends on the decisions of others.
+- Terrorism thrives when the gap between the 'haves' and 'have nots' becomes so wide and when the 'have nots' reach the point of such desperation, pain, and agony that they have nothing to lose.
+- Self-esteem should not be confused with self-confidence. Self-confidence is believing in your competence and your ability to do something, whereas self-esteem is believing in your goodness.
+- Have you ever heard someone tell a story but felt they are just mouthing the words without being emotionally connected? When you do this, you often create a more negative reaction than if you hadn't told a story at all. That's because others can see that you're just going through the motions.
+- If you look for things your partner does wrong, you can always find something. If you look for what he or she does right, you can always find something, too. It all depends on what you want to look for. Happy couples accentuate the positive.
+- If, during childhood, you were fortunate to have a parent who drilled into you, 'You can be anything you want to be if you try hard enough at it,' and then supported you in actions, that is something you take with you all your life.
+- The most influential people strive for genuine buy-in and commitment - they don't rely on compliance techniques that only secure short-term persuasion.
+- Connecting is always better than disconnecting.
+- The best way to learn to be present and develop presence is to have the experience of someone you respect and admire being present with and for you.
+- It's no fun being a salesperson when it feels like you're talking to a wall. That's what it feels like when you haven't learned your customer's points of interest.
+- In my executive advising role, my persona, which seems to work very well with both women and men, is being 'the big brother you always wanted.' I am fortunate to have two such big brothers, so this isn't just a theoretical construct.
+- Gen X entrepreneurs are frequently smart, tough, tenacious, and self-made. That said, to succeed in their companies, they often have sacrificed being emotionally involved in their marriages and with their children.
+- In my life, I think I have had more than two hundred significant breakthroughs that exponentially accelerated my life forward. However, each and every one of them was preceded by a breakdown that was not pretty, was often scary, and often felt like something I would not get past.
+- Technology loves and thrives and makes gobs of money on conspicuous consumption.
+- Why do people who consider themselves good communicators often fail to actually hear each other? Often it's due to a mismatch of styles: To someone who prefers to vent, someone who prefers to explain seems patronizing; explainers experience venters as volatile.
+- If you're fortunate, you'll meet people over the course of your career who exceed your expectations in every way. When you work or spend time with them, you find yourself wanting to be a better person.
+- Do something to help your community or people around you. That will help you feel more worthwhile and less alone.
+- More often than not, CEOs are conflict-avoidant because their role is to define vision and strategy than it is to get into confrontations with negative and toxic people which they can't stand.
+- Despair - or as I like to call it, des-pair - means feeling unpaired in a world in which it feels like everyone else is paired with a good job, a happy marriage, loving family, caring, and hope - and you're not.
+- People who can't take advantage of opportunity take advantage of people.
+- One of the most important aspects of an athlete's financial life is that he needs to be personally responsible for his own finances.
+- One reason some people are long-winded is because they're trying to impress their conversational counterpart with how smart they are, often because they don't actually feel that way underneath. If this is the case for you, realize that continuing to talk will only cause the other person to be less impressed.
+- Women have always run the world; maybe it's time to give them a chance at ruling it.
+- Happy couples resist the temptation to go to bed at different times. They go to bed at the same time, even if one partner wakes up later to do things while their partner sleeps.
+- If instead of completely focusing on what you are doing, you are racing ahead to something shinier or to the next best thing, you will not develop excellence.
+- If there was one key to happiness in love and life and possibly even success, it would be to go into each conversation you have with this commandment to yourself front and foremost in your mind, 'Just Listen' and be more interested than interesting, more fascinated than fascinating, and more adoring than adorable.
+- PTSD occurs following a trauma that was so awful that in retrospect you don't understand how you survived. What that causes is an extreme feeling of vulnerability that you get past but that doesn't go away.
+- Yes, CEOs are under pressure from all sides, and executives have all sorts of people pushing and pulling at them. But too often, they begin to view and treat their teams, and especially their assistants, as appliances. And a good assistant knows that the last thing their boss wants to hear from them is a personal complaint about anything.
+- If fun puts a smile on your face, beauty and elegance put a smile in your heart and take your breath away. It's longer-lasting and more satisfying than fun.
+- Too often, founders make decisions before determining whether they are the right thing to do. These decisions often create chaos in their companies where people are having to jump from the last 'great idea' to yet another unproven-and-about-to-be-poorly-executed one.
+- Denial is not always a bad thing. Without it, you couldn't function. For instance, if you were hyperaware and hypervigilant regarding all the dangers in the world - from driving your car to crossing the street to eating food that might have contaminants in it to taking medications that have many side effects, etc. - you would become frozen.
+- When winning is everything and everyone does whatever they need to win and to not lose, including lying, you have a world in which 'basic trust' is lost.
+- To many in the global community, American business - especially our financial institutions - are seen as a bunch of thieves, and as the saying goes, 'There's no honor among thieves.'
+- I think people don't want to be persuaded. And people don't even like to do the persuading.
+- Feeling alone makes negative feelings worse. When you feel alone, frustration quickly can become anger, fear quickly can become panic.
+- When as smart as you think you are is as wrong as you turn out to be, your life can fall out from under you.
+- Over time, many CEOs realize that being able to quickly and effectively confront conflict in their company is a leadership opportunity because people's respect often rises and falls on whether their leader deals with conflict head on or avoids dealing with it.
+- You can't create more jobs for an economy where the vast majority of people are hesitant and even afraid to spend and buy.
+- Sadly, most labor attorneys will advise you not to say you're wrong to anyone, because that might lead them to have something they can use to sue you.
+- Without the ambition to raise oneself to life's challenges, growth and innovation would never happen.
+- There will always be people who think that money and benefits and even just having a job should be thanks enough. There are also those that think they do a great job without anyone having to thank them. But study after study has shown that no one is immune from the motivating effects of acknowledgement and thanks.
+- Speak the truth. People will forgive an honest mistake; they won't forgive you if you lie.
+- The crux is this: you can't be sincerely empathic towards and angry at someone at the same moment. In other words, you can't walk in someone else's shoes and step on their toes at the same time.
+- Do what you say you're going to do. Follow through means never having to say you're sorry.
+- People act on what they want more often than what they need.
+- Given the choice between instant gratification and the lasting satisfaction of earning the esteem of someone you respect and admire, all but the most small-minded would choose the latter.
+- Leadership is more about clarity than it is about control.
+- A leader who is confused or confusing causes too much anxiety, and a leader who is too controlling is revealing more insecurity and a lack of leadership.
+- Presence is in the eye and ear and gut of the beholder. When you are totally present in a conversation or in a meeting, others around you perceive you as totally focused on the matter at hand and on being of value to them.
+- Being alone with fear can rapidly turn into panic. Being alone with frustration can rapidly turn into anger. Being alone with disappointment can rapid turn into discouragement and, even worse, despair.
+- Is it possible that the collective global psyche of the world is like an overloaded modem and can no longer meaningfully communicate, comprehend, or listen to anything or anyone else?
+- One of the reasons it is so difficult to break a connection to something or someone you have imprinted on is that after you imprint, it seeds into your mind and goes from working memory to stored, hard-wired memory from which it is much more difficult to sever that attachment.
+- People really don't like to be inconvenienced. If you don't agree with that, ask yourself how you like it when it happens to you.
+- It really takes something for someone to get up the nerve to share the impact you have had on them, and to them, giving you that recognition is liking giving a gift.
+- When you ask someone a question, you trigger an unconscious flashback of their having been put on the spot earlier in life by a teacher, parent, or coach, and you create a syntactical 'you versus me' disconnect.
+- One of the best ways to see how critical being present is to effective leadership is to notice what being absent, distracted, hiding something, and/or agenda-driven does to people's ability to trust, respect, and have confidence in you.
+- Something I had learned from 30 years as a psychotherapist turned Fortune 500 executive coach when helping people to calm down is that it is much less important what you tell others than what you enable them to tell you and, in the process, tell themselves that results in them calming themselves down.
+- In the first 20 seconds of talking, your light is green: your listener is liking you as long as your statement is relevant to the conversation and, hopefully, in service of the other person. But unless you are an extremely gifted raconteur, people who talk for more than roughly half a minute at a time are boring and often perceived as too chatty.
+- I know CEOs, and they get sick when they have to lay people off, especially around Christmas.
+- The amygdala is like a point guard in the emotional part of your middle brain. When it is overwhelmed, it hijacks you away from being able to access your upper rational brain and think and assess what to do. It essentially disables your ability to think.
+- Women work and feel like they have to take care of so many details. Sometimes they don't get much help from their husbands.
+- Few things detract more from your credibility and the respect of your colleagues and peers than being called on the carpet to deflect accusations and defend an untruth.
+- God only knows we need a great role model as a leader who is more leader than they are male or female, who is more about their mission that serves everyone than about ego and personal ambition that only serves them.
+- When you are continuing to be in debt or are going deeper into it, every time a creditor calls, it rubs your face not only in how vulnerable you are, but that people are out to get something from you that you don't have to give.
+- Just like the athlete who has mapped out a plan to become one of the best athletes in the world by putting together a training program and executing it, he too should map out a financial plan from the beginning of his athletic career throughout every stage of his career.
+- President Reagan preached 'trickle down economics' but naively did not reckon on the fact that the wealthy would only care about getting more for themselves instead of caring about helping those with less.
+- I can still remember my first experience of standing at the edge of the Grand Canyon and looking into it. It was so awesome, it took a fair amount of restraint to prevent me from jumping into it, because I was certain I could fly.
+- When you know you haven't been connecting with, persuading, or getting through to someone, consciously pause before meeting them and say to yourself, 'During this conversation, I am committing to being present and to connecting.'
+- Show people a positive path that enables them to make progress on their own terms. Give them options and alternatives that empower them.
+- People often say, 'I don't need recognition,' and the truth is they are right. We don't need it. But like healthy food and exercise, life is a whole lot better with it.
+- The more comfortable you become at accepting recognition, the more comfortable you will be with giving it.
+- Forget the empty platitudes; your star employee is not a 'godsend.' They are a person deserving of your not infrequent acknowledgment and worthy of appreciation and respect.
+- Be it terrorists or 'blinded by greed' capitalists or 'deaf and dumb and siloed' officials, special interests will always tyrannize the common good.
+- Buying involves decision-making. It's a performance activity, like sports or acting.
+- When men act up by being degrading, dismissive, condescending, shut off, or sullen, that can often dumbfound you as a woman and get you off balance. At that point, you can feel and look like a deer in the headlights, which makes you even more vulnerable to such a man's next volley of vitriol.
+- Men such as President Bill Clinton don't have trouble showing a warmth which works for him, but women in power seem hesitant to use their feminine charm in a man's world out of concern for appearing lightweight, manipulative, or needing to use it to make up for something that is lacking.
+- You may have heard the saying, 'When you're in love, smoke gets in your eyes.' Well when you're talking, smoke gets in your eyes and ears. Once you're on a roll, it's very easy to not notice that you've worn out your welcome.
+- MIA stands for 'missing in action,' which is the way others can experience you when you're too busy multi-tasking, being pulled at by the world and by everything that's going on in your head, and, essentially, when you're too busy being busy.
+- Do not go out first thing after signing a contract and buy assets that are huge compared to the contract signed. Just because you have money for the first time doesn't mean you have to spend it before you know all the ramifications of buying the assets.
+- Very often, when you get into a conversation that's more of a debate, you'll pick up that the other person is venting at you. And when someone vents at you, it triggers a reaction. You get defensive and vent back.
+- When you're trying to persuade people, more often than not, they feel you're being pushy. When you focus on influencing them, they're much less defensive and open to hearing what you have to say.
+- Braggarts are insecure and need attention, and bragging often has the opposite effect on most people when you're trying to gain their respect and increase your influence.
+- Customers are your best teachers. Learning about your customer's beliefs, values, and priorities teaches you which selling points you should emphasize.
+- When someone is complimenting you, they are sharing how your actions or behaviors impacted them. They are not asking if you agree.
+- Be comfortable in your own skin. Comfort and discomfort are contagious.
+- As safe and secure as you believe you are is as vulnerable as you can turn out to be.
+- In my line of work, I frequently communicate with CEOs and their executive assistants, and nowhere is the need for gratitude more clear.
+- I have heard it said that the measure of a civilization is how it treats those who have hurt it. I think a further measure is how it treats those who deeply disappoint it.
+- There is something calming and emotionally restoring when you focus on gratitude for a known deed that helped you, instead of fear of the unknown.
+- One of the most important keys to getting through to anyone and then influencing them is to realize that inside everyone's mind, they listen to someone or something.
+- I am blessed to count among my friends and colleagues people who are very thoughtful and who deeply care about our country.

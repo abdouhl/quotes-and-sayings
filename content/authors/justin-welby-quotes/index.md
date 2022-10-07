@@ -1,0 +1,24 @@
++++
+author = "Justin Welby"
+title = "Justin Welby Quotes"
+quotes_len = "18"
+description = "the best 18 Justin Welby Quotes"
++++
+- The longer I go on, the more I am aware of the power of finance.
+- Markets don't allow you to hang about.
+- A lot of people reject the idea of God as Father if they've had a competitive relationship with their own father.
+- I have never had demands on me as acute as when I was a parish priest.
+- The Church of England holds very firmly, and continues to hold to the view, that marriage is a lifelong union of one man to one woman. At the same time, at the heart of our understanding of what it is to be human is the essential dignity of the human being.
+- I happen to know a bit about banking.
+- Put not your trust in new leaders, better systems, new organisations or regulatory reorganisation. They may well be good and necessary, but will to some degree fail.
+- As a civilised society, we have a duty to support those among us who are vulnerable and in need. When times are hard, that duty should be felt more than ever, not disappear or diminish.
+- It is absolutely right for the state to define the rights and status of people cohabiting in different forms of relationships, including civil partnerships.
+- Banks need to think through their ethics very carefully, and many have done so. I don't know any bank that dismisses the concept of ethical banking.
+- You see gay relationships that are just stunning in the quality of the relationship.
+- Turning God into some kind of celestial insurance policy is just mental.
+- There's something different about looking someone in the eyes and doing something dishonest to doing it over the phone or screen.
+- The pay of many of our top executives in big hundred companies in the U.K. is outrageous and even obscene.
+- Human fallibility recognised, God's sovereignty trusted; these are also the only stable foundations for human beings in society.
+- I don't believe in good human beings, but I believe you can have structures that make it easier to make the right choice or the wrong choice.
+- I am not particularly well-behaved.
+- Let's be clear, I'm one of the thicker bishops in the Church of England.

@@ -1,0 +1,113 @@
++++
+author = "Michel De Montaigne"
+title = "Michel De Montaigne Quotes"
+quotes_len = "107"
+description = "the best 107 Michel De Montaigne Quotes"
++++
+- In true education, anything that comes to our hand is as good as a book: the prank of a page- boy, the blunder of a servant, a bit of table talk - they are all part of the curriculum.
+- Even from their infancy we frame them to the sports of love: their instruction, behavior, attire, grace, learning and all their words azimuth only at love, respects only affection. Their nurses and their keepers imprint no other thing in them.
+- Not being able to govern events, I govern myself.
+- Covetousness is both the beginning and the end of the devil's alphabet - the first vice in corrupt nature that moves, and the last which dies.
+- Every man bears the whole stamp of the human condition.
+- The beautiful souls are they that are universal, open, and ready for all things.
+- Unless a man feels he has a good enough memory, he should never venture to lie.
+- Confidence in the goodness of another is good proof of one's own goodness.
+- Let us not be ashamed to speak what we shame not to think.
+- The strangest, most generous, and proudest of all virtues is true courage.
+- There is no passion so contagious as that of fear.
+- Fame and tranquility can never be bedfellows.
+- When I play with my cat, who knows whether she is not amusing herself with me more than I with her.
+- The world is all a carcass and vanity, The shadow of a shadow, a play And in one word, just nothing.
+- There are some defeats more triumphant than victories.
+- I speak the truth not so much as I would, but as much as I dare, and I dare a little more as I grow older.
+- There is no conversation more boring than the one where everybody agrees.
+- If there is such a thing as a good marriage, it is because it resembles friendship rather than love.
+- It is the mind that maketh good or ill, That maketh wretch or happy, rich or poor.
+- It is a monstrous thing that I will say, but I will say it all the same: I find in many things more restraint and order in my morals than in my opinions, and my lust less depraved than my reason.
+- I prefer the company of peasants because they have not been educated sufficiently to reason incorrectly.
+- I study myself more than any other subject. That is my metaphysics, that is my physics.
+- I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.
+- Every one rushes elsewhere and into the future, because no one wants to face one's own inner self.
+- For truly it is to be noted, that children's plays are not sports, and should be deemed as their most serious actions.
+- Fortune, seeing that she could not make fools wise, has made them lucky.
+- Let us permit nature to have her way. She understands her business better than we do.
+- I set forth a humble and inglorious life; that does not matter. You can tie up all moral philosophy with a common and private life just as well as with a life of richer stuff. Each man bears the entire form of man's estate.
+- I have never seen a greater monster or miracle in the world than myself.
+- I know well what I am fleeing from but not what I am in search of.
+- We can be knowledgable with other men's knowledge but we cannot be wise with other men's wisdom.
+- Poverty of goods is easily cured; poverty of soul, impossible.
+- Those who have compared our life to a dream were right... we were sleeping wake, and waking sleep.
+- If you press me to say why I loved him, I can say no more than because he was he, and I was I.
+- My trade and art is to live.
+- 'Tis the sharpness of our mind that gives the edge to our pains and pleasures.
+- It is an absolute and virtually divine perfection to know how to enjoy our being rightfully.
+- The finest souls are those that have the most variety and suppleness.
+- There is little less trouble in governing a private family than a whole kingdom.
+- The public weal requires that men should betray, and lie, and massacre.
+- Marriage, a market which has nothing free but the entrance.
+- Ambition is not a vice of little people.
+- If a man should importune me to give a reason why I loved him, I find it could no otherwise be expressed, than by making answer: because it was he, because it was I.
+- A man who fears suffering is already suffering from what he fears.
+- It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself; it is always aspiring and going beyond its strength.
+- The thing I fear most is fear.
+- An untempted woman cannot boast of her chastity.
+- Marriage is like a cage; one sees the birds outside desperate to get in, and those inside equally desperate to get out.
+- I put forward formless and unresolved notions, as do those who publish doubtful questions to debate in the schools, not to establish the truth but to seek it.
+- I write to keep from going mad from the contradictions I find among mankind - and to work some of those contradictions out for myself.
+- Any person of honor chooses rather to lose his honor than to lose his conscience.
+- We are Christians by the same title as we are natives of Perigord or Germany.
+- It is not death, it is dying that alarms me.
+- Stubborn and ardent clinging to one's opinion is the best proof of stupidity.
+- My life has been full of terrible misfortunes most of which never happened.
+- Nothing fixes a thing so intensely in the memory as the wish to forget it.
+- Few men have been admired of their familiars.
+- If you don't know how to die, don't worry; Nature will tell you what to do on the spot, fully and adequately. She will do this job perfectly for you; don't bother your head about it.
+- There is no desire more natural than the desire for knowledge.
+- The way of the world is to make laws, but follow custom.
+- The world is but a perpetual see-saw.
+- The ceaseless labour of your life is to build the house of death.
+- Once conform, once do what others do because they do it, and a kind of lethargy steals over all the finer senses of the soul.
+- How many condemnations I have witnessed more criminal than the crime!
+- How many things we held yesterday as articles of faith which today we tell as fables.
+- If a man urge me to tell wherefore I loved him, I feel it cannot be expressed but by answering: Because it was he, because it was myself.
+- Of all our infirmities, the most savage is to despise our being.
+- In nine lifetimes, you'll never know as much about your cat as your cat knows about you.
+- I do myself a greater injury in lying than I do him of whom I tell a lie.
+- A wise man sees as much as he ought, not as much as he can.
+- A straight oar looks bent in the water. What matters is not merely that we see things but how we see them.
+- Wit is a dangerous weapon, even to the possessor, if he knows not how to use it discreetly.
+- Rejoice in the things that are present; all else is beyond thee.
+- He who establishes his argument by noise and command shows that his reason is weak.
+- I have often seen people uncivil by too much civility, and tiresome in their courtesy.
+- The confidence in another man's virtue is no light evidence of a man's own, and God willingly favors such a confidence.
+- One may be humble out of pride.
+- The worst of my actions or conditions seem not so ugly unto me as I find it both ugly and base not to dare to avouch for them.
+- Love to his soul gave eyes; he knew things are not as they seem. The dream is his real life; the world around him is the dream.
+- Death, they say, acquits us of all obligations.
+- Nothing is so firmly believed as what we least know.
+- Age imprints more wrinkles in the mind than it does on the face.
+- Virtue rejects facility to be her companion. She requires a craggy, rough and thorny way.
+- I do not speak the minds of others except to speak my own mind better.
+- Lend yourself to others, but give yourself to yourself.
+- The most certain sign of wisdom is cheerfulness.
+- It is good to rub and polish our brain against that of others.
+- The entire lower world was created in the likeness of the higher world. All that exists in the higher world appears like an image in this lower world; yet all this is but One.
+- Make your educational laws strict and your criminal ones can be gentle; but if you leave youth its liberty you will have to dig dungeons for ages.
+- We only labor to stuff the memory, and leave the conscience and the understanding unfurnished and void.
+- If ordinary people complain that I speak too much of myself, I complain that they do not even think of themselves.
+- No pleasure has any savor for me without communication.
+- I quote others only in order the better to express myself.
+- Valor is stability, not of legs and arms, but of courage and the soul.
+- Confidence in others' honesty is no light testimony of one's own integrity.
+- No wind serves him who addresses his voyage to no certain port.
+- There is a sort of gratification in doing good which makes us rejoice in ourselves.
+- There is perhaps no more obvious vanity than to write of it so vainly.
+- The soul which has no fixed purpose in life is lost; to be everywhere, is to be nowhere.
+- The value of life lies not in the length of days, but in the use we make of them... Whether you find satisfaction in life depends not on your tale of years, but on your will.
+- Ignorance is the softest pillow on which a man can rest his head.
+- There is not much less vexation in the government of a private family than in the managing of an entire state.
+- A good marriage would be between a blind wife and a deaf husband.
+- There is no pleasure to me without communication: there is not so much as a sprightly thought comes into my mind that it does not grieve me to have produced alone, and that I have no one to tell it to.
+- It should be noted that children at play are not playing about; their games should be seen as their most serious-minded activity.
+- A wise man never loses anything, if he has himself.
+- He who fears he shall suffer, already suffers what he fears.

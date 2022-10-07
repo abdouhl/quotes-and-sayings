@@ -1,0 +1,31 @@
++++
+author = "Mike Mccarthy"
+title = "Mike Mccarthy Quotes"
+quotes_len = "25"
+description = "the best 25 Mike Mccarthy Quotes"
++++
+- I went away to college, and when I came back and was coaching at Pitt, if they would've offered me a 25-year contract to be the assistant coach, I would've taken it so fast. It was ideal. I was coaching one neighborhood over from where I grew up.
+- Every week, there's a different twist and turn you're not going to see coming, and how you handle that is important.
+- I'm a big believer in regularity. My father taught me that. Get up early, get your work done, and that's, what, your highest level of energy before lunch.
+- Really, I learned a long time ago that in the National Football League, paper doesn't mean anything. Football teams are created on the football field.
+- The team that gets to play to their plan is usually the team that has the most success.
+- When you're losing, there's that survival instinct. But when you're handling success, people think it's easier, and they think losing's harder. But handling success, to me, always creates more issues. Are you in touch with reality? With perception?
+- It goes back to my childhood. I never expected not to win. It's about winning. Winning's fun.
+- At least from my position, I worry about it more when we're rolling because people get comfortable.
+- Preseason football is hard to evaluate. It's never going to be clean for the quarterbacks. You have to overcome the ugly plays and be productive. It's a component of leadership that is necessary. The guys that make it in the league survive that.
+- The reality is, if you're going to have a defeat on the road, Week 1 is probably the best time to have it.
+- I'm so blessed, and Jessica just does such an incredible job of making everything work, because this is such a selfish profession with the time commitment.
+- I worked at a place that followed a system where the quarterback was taught to take the sack rather than force the throw. That's kind of an old-school theory, but it has existed in this game.
+- I understand how success is judged and calculated in the coaching profession. That's really all I care about. You go about this business a certain way. Everybody has a certain style and opportunities that are presented to them during your career. When it's over, I'll be judged by that. I care more about the people I work with.
+- You play a team for the second time, you definitely have some familiarity. I think it's beneficial for your players that they have some tape to look at of the opponent and can focus on the individual matchups that they have some current history to draw from.
+- I hate that 'I got it' stuff. That drives me nuts. It's that natural instinct that everything's OK because you're winning.
+- Every team has a play style, in my opinion. The video speaks for itself; that's what we always pay attention to.
+- I got three years invested in Brett Hundley, two years invested in Joe Callahan. The quarterback room is exactly where it needs to be.
+- You build a program; culture is what makes it go. You have to invest in that culture every single day, and that's my big-picture focus.
+- It has to be a partnership. I go back to Ted Thompson's opening press conference, and he talked about partnership. We had a hell of a partnership for 12 years.
+- The performance of your position coaches is obviously more than just the actual statistics of how their players perform. There's insight from relationships you have around the league throughout all the different interactions that you have.
+- To me, it's always bumpy, and to me, that's the joy of it. That's this game. That's how hard it is in the NFL. Really, what you did last year or 2010, as we know, doesn't factor.
+- The domestic violence policy has been given to our players. My personal view is there's no place in our society for it. I think, especially with the emphasis and education that's out there now, let's hope better light will be shined on this area.
+- Throwaways are OK. When a quarterback throws the ball away in our system, that's a plus. That's a plus decision. That's the way I've always graded it.
+- I think success is the biggest challenge you have to handle in the National Football League; that's something we talk about a lot.
+- Big plays are such a huge factor in the outcome of games. It is so difficult to go the distance on a defense.

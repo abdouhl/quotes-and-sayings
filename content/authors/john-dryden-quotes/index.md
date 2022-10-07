@@ -1,0 +1,68 @@
++++
+author = "John Dryden"
+title = "John Dryden Quotes"
+quotes_len = "62"
+description = "the best 62 John Dryden Quotes"
++++
+- Dancing is the poetry of the foot.
+- Never was patriot yet, but was a fool.
+- Beware the fury of a patient man.
+- But far more numerous was the herd of such, Who think too little, and who talk too much.
+- Jealousy is the jaundice of the soul.
+- Love is not in our choice but in our fate.
+- But love's a malady without a cure.
+- Repentance is but want of power to sin.
+- Words are but pictures of our thoughts.
+- Death in itself is nothing; but we fear to be we know not what, we know not where.
+- Happy the man, and happy he alone, he who can call today his own; he who, secure within, can say, tomorrow do thy worst, for I have lived today.
+- Shame on the body for breaking down while the spirit perseveres.
+- If you be pungent, be brief; for it is with words as with sunbeams - the more they are condensed the deeper they burn.
+- Genius must be born, and never can be taught.
+- Either be wholly slaves or wholly free.
+- Let grace and goodness be the principal loadstone of thy affections. For love which hath ends, will have an end; whereas that which is founded on true virtue, will always continue.
+- Go miser go, for money sell your soul. Trade wares for wares and trudge from pole to pole, So others may say when you are dead and gone. See what a vast estate he left his son.
+- You see through love, and that deludes your sight, As what is straight seems crooked through the water.
+- The first is the law, the last prerogative.
+- All heiresses are beautiful.
+- And plenty makes us poor.
+- Ill habits gather unseen degrees, as brooks make rivers, rivers run to seas.
+- For they conquer who believe they can.
+- Tomorrow do thy worst, I have lived today.
+- Even victors are by victories undone.
+- Look around the inhabited world; how few know their own good, or knowing it, pursue.
+- God never made His work for man to mend.
+- Anger will never disappear so long as thoughts of resentment are cherished in the mind. Anger will disappear just as soon as thoughts of resentment are forgotten.
+- Seek not to know what must not be reveal, for joy only flows where fate is most concealed. A busy person would find their sorrows much more; if future fortunes were known before!
+- Love is love's reward.
+- For truth has such a face and such a mien, as to be loved needs only to be seen.
+- Pains of love be sweeter far than all other pleasures are.
+- And love's the noblest frailty of the mind.
+- It is madness to make fortune the mistress of events, because by herself she is nothing and is ruled by prudence.
+- Self-defence is Nature's eldest law.
+- Great wits are sure to madness near allied, and thin partitions do their bounds divide.
+- Boldness is a mask for fear, however great.
+- By education most have been misled; So they believe, because they were bred. The priest continues where the nurse began, And thus the child imposes on the man.
+- Fool that I was, upon my eagle's wings I bore this wren, till I was tired with soaring, and now he mounts above me.
+- Time, place, and action may with pains be wrought, but genius must be born; and never can be taught.
+- He has not learned the first lesson of life who does not every day surmount a fear.
+- Successful crimes alone are justified.
+- The sooner you treat your son as a man, the sooner he will be one.
+- He who would search for pearls must dive below.
+- What passions cannot music raise or quell?
+- Honor is but an empty bubble.
+- When I consider life, it is all a cheat. Yet fooled with hope, people favor this deceit.
+- Beauty, like ice, our footing does betray; Who can tread sure on the smooth, slippery way: Pleased with the surface, we glide swiftly on, And see the dangers that we cannot shun.
+- All objects lose by too familiar a view.
+- War is the trade of Kings.
+- Reason is a crutch for age, but youth is strong enough to walk alone.
+- We first make our habits, and then our habits make us.
+- Forgiveness to the injured does belong; but they ne'er pardon who have done wrong.
+- All things are subject to decay and when fate summons, monarchs must obey.
+- There is a pleasure in being mad which none but madmen know.
+- They that possess the prince possess the laws.
+- The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.
+- A knock-down argument; 'tis but a word and a blow.
+- Love works a different way in different minds, the fool it enlightens and the wise it blinds.
+- Only man clogs his happiness with care, destroying what is with thoughts of what may be.
+- To die is landing on some distant shore.
+- Roused by the lash of his own stubborn tail our lion now will foreign foes assail.

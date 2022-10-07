@@ -1,0 +1,27 @@
++++
+author = "Max Frisch"
+title = "Max Frisch Quotes"
+quotes_len = "21"
+description = "the best 21 Max Frisch Quotes"
++++
+- Technology... the knack of so arranging the world that we don't have to experience it.
+- You can put anything into words, except your own life.
+- My greatest fear: repetition.
+- If anyone has a conscience it's generally a guilty one.
+- There is no art without Eros.
+- Dignity: the doomed man's final refuge.
+- Jealousy is the fear of comparison.
+- Nothing is harder than to accept oneself.
+- Strictly speaking, every citizen above a certain level of income is guilty of some offense.
+- The difference between an author and a horse is that the horse doesn't understand the horse dealer's language.
+- I have no words for my reality.
+- Technology is the knack of so arranging the world that we don't have to experience it.
+- I don't believe in providence and fate, as a technologist I am used to reckoning with the formulae of probability.
+- Time does not change us. It just unfolds us.
+- A man with convictions finds an answer for everything. Convictions are the best form of protection against the living truth.
+- When you say a friend has a sense of humor do you mean that he makes you laugh, or that he can make you laugh?
+- It's precisely the disappointing stories, which have no proper ending and therefore no proper meaning, that sound true to life.
+- It is only the consciousness of a nonexistence which allows us to realize for moments that we are living.
+- There are all sorts of ways of murdering a person or at least his soul, and that's something no police in the world can spot.
+- I live, like every real man, in my work.
+- Either marriage is a destiny, I believe, or there is no sense in it at all, it's a piece of humbug.

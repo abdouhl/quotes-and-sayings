@@ -1,0 +1,21 @@
++++
+author = "Sean Maher"
+title = "Sean Maher Quotes"
+quotes_len = "15"
+description = "the best 15 Sean Maher Quotes"
++++
+- But when I do get recognized, I get recognized usually for 'Firefly.'
+- I don't think I have regrets.
+- I didn't know of any homophile movements pre-Stonewall.
+- Starting a new job is always scary, or at least for me it's always scary. It's like the first day of school.
+- I love 'Richard III,' but in terms of a general play, 'A Midsummer Night's Dream' has always been a big one for me. It's just so sexy.
+- Stunts I love.
+- I love kids.
+- From what I've understood, it's an entirely different world, and it's a tough world to get your foot in the door, but I've always wanted to be a voice of a Disney character.
+- My life is now an open book.
+- It's a terrible way to live, to be closeted, to always be worried about being found out. To live this double life is really trying.
+- I have these beautiful children and this extraordinary family, and to think in any way shape or form that that's wrong or that there's shame in that or that there's something to hide actually turns my stomach.
+- You audition, and then you go and do what's called a test, your network test. So you have to go in front of the network and do it, and the network has to sign off on you.
+- I was told that if I wanted to be a leading man in Hollywood, I couldn't possibly be thought of as gay.
+- When my daughter was born, I was a stay-at-home dad for the first two years.
+- Right before I left New York, I had my manager tell me, 'You need to get a girl on your arm, or people will start talking.'

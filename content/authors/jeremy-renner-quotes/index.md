@@ -1,0 +1,63 @@
++++
+author = "Jeremy Renner"
+title = "Jeremy Renner Quotes"
+quotes_len = "57"
+description = "the best 57 Jeremy Renner Quotes"
++++
+- Other people can think ahead all they want. I just focus on the task at hand and try to move on.
+- I like repressed characters. That gives me a lot of freedom to make a lot of different choices through subtleties.
+- I was always a singer. But I was always focused on being an actor as my trade. Music I do just for me. The movie business is very difficult but the music business is just impossible.
+- I want my personal life to be personal.
+- People find themselves in ruts all the time. You're in a complacent lifestyle where you work 9 to 5 and then you add a mortgage and kids. You feel trapped, but guess what, brother? You constructed that life. If you're OK with it, there's nothing wrong with that. But if you've got unease, then you've got to make a change.
+- I'm consciously aware, specifically with the comic book world, where there's a built-in fanbase. But, there's a little bit of leniency because there are a couple different universes.
+- I know it's a cliche but I never wanted to be famous. I don't believe anybody wants to be famous.
+- I lived by the candlelight for two years because I couldn't afford power. It was nice and romantic at the time, but if you can't afford power you're pretty broke. You endure it.
+- I think cinema should provoke thoughts, sure, but using it as I soapbox I think is the wrong place. I never want to be part of something like that, where there's an agenda there that's not about telling a story, where its someone getting on a soapbox and preaching their own beliefs onto somebody.
+- Building a house is like producing a movie. There's no right way to do it but a lot of wrong ways. You have to be flexible and creative. You have to move fast, be prepared - or it quickly becomes costly.
+- I'll always build houses.
+- I don't really think there's much difference between a character actor and a leading man besides aesthetics.
+- I need to react to a script, to feel strongly about it in some way. And I need it to be a complex character for sure. And also, I think a lot about what kind of audience there is for the film, what they're looking for and ways to connect with them in the playing of a character.
+- I'm blessed to have cool roles in these big movies.
+- I'm very lucky.
+- I live my life through fear. If I'm afraid of it I'll do it just so I'm not afraid of it anymore.
+- The most experience I had in the criminology field is playing a thug as an actor. That was my first paid job. The police academy at the college was paying people to reenact the calls that potential cops would get. So I got to play thugs and people who were unruly.
+- When I was growing up, I wasn't taught how to feel or communicate feelings.
+- Fear is just not a part of my life - so much so that if it's involved in somebody else's life and they're close to me, I won't be around them.
+- I love my small town, and I love going back there and supporting the community. But I could not have stayed there. No way.
+- I like to stay busy, I like to stay focused, and I like to stay creative. Without being creative I'd be dead.
+- What matters to me is learning and growing, and getting to do what I love to do. As long as I can do that, I'm happy.
+- Architecture and building is about how you get around the obstacles that are presented to you. That sometimes determines how successful you'll be: How good are you at going around obstacles?
+- I've got to be active in life, and it's the same when I'm doing stunts in a movie: I'll do anything.
+- I'm not violent.
+- I don't watch TV.
+- I think it's great to be a part of a franchise that is successful. Any franchise is successful because it's a continuation and people have seen it.
+- I know what I like and what I want, and I can sit and enjoy every 10 minutes that go by. And truly enjoy it.
+- The star thing, the celebrity thing, is new to me.
+- I want to be a good human being.
+- I don't want to play a bad guy who doesn't have a bit of good in him.
+- I want to not do anything I've done before. That can come in any form.
+- I used to hang out at karaoke bars all the time. It was the most fun you could have when you had no money.
+- I don't change. The things around me change.
+- I do music because I can just pick up my guitar and sing, and completely satisfy, instant gratification. I don't need a script, I don't people, I don't need anything, cameras, I just have myself and my guitar, or keyboard.
+- I'm just happy to be working.
+- Not every actor gives their life to do this job. Some just do it as a job. Well, it's my life.
+- I love the idea of going to work and having to fight and learn a new skill set, whether it's muay Thai or Kali or Filipino stick fighting. To me, it's like college for life.
+- I was an athlete when I was growing up.
+- There's too much down time making movies. That leads to boredom. And that leads to trouble.
+- Accents can be a great tool to tell a story - but if you do it wrong, it pulls you right out of the movie.
+- I'm attracted to those kinds of roles that could be good or could be bad, and you just don't know.
+- You have to wait for a big star to come in and generate interest on a project, and now that has become me, which is an amazing blessing.
+- Music I do just for me.
+- There is nothing new, from Greek mythology to Shakespeare to every romcom ever made, we're just reimagining the same 12 story plots over and over again - so what makes people keep watching and listening? It's all about the character.
+- I guess I just have one of those resting faces that makes me look like I want to beat you up.
+- I will never be in the stock market. It's just gambling. I'm a gambler, but I'll gamble on the practicality of things.
+- I only scream and scratch when something's only 'really good' or 'good', I want to be great, or let's go home.
+- In the 'Hurt Locker' there's a lot of me in there, a sense of humor, a man of few words and a lot of action.
+- I'm a simple, simple man.
+- I'll take any risk there is.
+- I like to play unpredictable characters, and I like to be unpredictable in what movie I'll do.
+- The movie business is very difficult but the music business is just impossible. So I'll play in bands and record and play songs with other people, but for me it's a form of expression that all I need is me. I don't need cameras or agents, I can just have a piano and sing and feel totally verified.
+- I was very shy when I was younger. But I did have a terrible temperament. I would get angry very quickly, but the rest of the time I was this big goofball, playing the drums in a band and making out with girls.
+- People love to yammer on about things that aren't real.
+- I feel connected to that idea of wanting to belong to something, to have a sense of purpose as a man on the planet.
+- I have a bad sweet tooth. I'm pretty good when I have to eat well for work, but otherwise, I could eat a whole roll of raw cookie dough.

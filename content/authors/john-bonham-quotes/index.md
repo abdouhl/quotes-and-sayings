@@ -1,0 +1,20 @@
++++
+author = "John Bonham"
+title = "John Bonham Quotes"
+quotes_len = "14"
+description = "the best 14 John Bonham Quotes"
++++
+- With Zeppelin, I tried to play something different every night in my solos. I'd play for 20 minutes but the longest ever was 30 minutes. It's a long time, but whenI was playing it seemed to fly by.
+- I remember in the early days when we played six nights a week for a month and I was doing my long drum solo every night. My hands were covered in blisters.
+- There was absolutely no intention of splitting up. We had so many great ideas to use on the new album. John Paul Jones was incredible, coming to the studio each day with new instruments to play.
+- If we'd have said we were not upset, they would have thought we were so rich it meant nothing to us, and if we say we're upset about it, they'll say money is all we care about.
+- There were times when I blundered and got the dreaded look from the lads. But that was a good sign. It showed I'd attempted something I'd not tried before.
+- People who don't take care of their drums really annoy me.
+- We once did six tours of America in 15 months.
+- My nerves before a gig got worse; I had terrible bad nerves all the time. Once we started... I was fine.
+- Not everybody likes or understands a drum solo, so I like to bring in effects and sounds to keep their interest.
+- We had offers to go everywhere and we could have done them. But what would have been the point? We were tired. We had worked hard and needed a break before we got stale. We spent six months at home and writing songs.
+- I dare not drink before a gig because I'll get tired and blow it. So I have to sit drinking tea in a caravan.
+- Sometimes you'd come up against a brick wall... or sometimes you go into a fill and you'd know halfway through it was going to be disastrous.
+- Drumming was the only thing I was ever good at.
+- I hate it when people slag us off. We had done three tours during 1970 and we finished off feeling we had just about had enough. We had done so much in that short space of time, we were drained.

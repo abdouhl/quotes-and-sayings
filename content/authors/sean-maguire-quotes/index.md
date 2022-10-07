@@ -1,0 +1,19 @@
++++
+author = "Sean Maguire"
+title = "Sean Maguire Quotes"
+quotes_len = "13"
+description = "the best 13 Sean Maguire Quotes"
++++
+- My friends hated going out with me because people think they can grab you and talk to you how they want. At the end of the day, you're still a human being, and I don't like being treated that way - I prefer to live a quiet life.
+- I'm wildly unskilled at what I do. Part of me thinks: 'Why do I think I can pull this off?' but the part of me that has to pay the mortgage thinks: 'Just get on with it!' I'll just keep going until someone discovers I'm no good.
+- As a young actor, it's important to see how the greatest in the industry work... diva behavior is never it.
+- I'm very lucky with the people that recognise me - it's at a very tolerable level. I don't think I could handle the level of recognition which David Beckham has.
+- A lot of people celebrate their past, but I don't look at it all. I don't Google myself; I focus on the future. This is a volatile profession, and the moment you start thinking you've got something, that's when the floor beneath you falls through, so I hope to make more movies and TV shows.
+- I'm not particularly good at 'celebrity'; I don't think it was something I was born to do. I think I can get by as an actor, but I've never been one for the red carpet and don't put a lot of stock in celebrities that are famous for being famous.
+- I've had every kind of humiliation, from playing in Gala Bingo halls to doing a PA in a Glaswegian nightclub and having cans of lager thrown at me.
+- One of my earliest memories is my father telling me to behave because I'm about to meet and work with the greatest actor of all time. Then this old guy comes out and I was like, 'Pfff, he doesn't look anything like Luke Skywalker, I don't know what my dad is trying to tell me here.'
+- We all have our ambassador that we send forward into the world. We all have people we are varying degrees of real with. There's a public face we all wear. As I get older and more comfortable in my skin, I am trying to combine the two so the real me is there all the time.
+- I don't want to get pretentious, but there's an art to doing sitcoms; you have to make it work in that format.
+- For me, personally, I grew up watching American heroes and American movies and TV.
+- My mum and dad teach, and all my brothers and sisters have been in 'Riverdance' and so forth. So I was forced to become a dancer; it's part of my family history.
+- There was a movie called 'Hawk the Slayer' when I was a kid. I think only three people saw it, but me and my brother saw it. I remember when I was a kid thinking that's kind of cool. It was just this sort of action adventure-y sort of thing.

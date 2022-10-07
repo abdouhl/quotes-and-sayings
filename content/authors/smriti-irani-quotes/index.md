@@ -1,0 +1,105 @@
++++
+author = "Smriti Irani"
+title = "Smriti Irani Quotes"
+quotes_len = "99"
+description = "the best 99 Smriti Irani Quotes"
++++
+- I am a living example of Modi's capacity to recognise talent and to reason.
+- I have no qualms about very emphatically declaring that I love my country. There is nothing regressive about it. There is nothing saffron about it.
+- I think when anyone struggles, they think they are being short changed.
+- Why categorise crime as a gender issue? Why should a man or woman be more inclined to believe in certain basic values?
+- I do not want any policy to be formulated that impedes the spread of education in any fashion.
+- With ability to produce a diverse range of products, India has the potential to become the one-stop sourcing destination for brands and retailers of ASEAN nations.
+- As I heard out people who had done others wrong, I'd often wonder how a human allows his or her better judgement to override their conscience. When I share these feelings with my friends, they say, 'Everyone isn't like you.' But I think it's easy to assert your better feelings and not allow the darker side to dominate your personality.
+- I was born in a free country, which seeked to encourage freedom and justice for all. I want to be a part of that process, just like any other Indian.
+- I have a legacy which I carry from my media career. That is why you will find that everybody will have an opinion about me.
+- Unlike the Congress, our party believes in democracy and takes a collective decision.
+- Everyone should work within the ambit of law.
+- I think governance is about giving people an opportunity to engage with you on subjects that you are responsible for, believing in people's capacity to deliver, and allowing them that platform plus project their work.
+- I have an ideological umbilical cord with the BJP... we are three-generation party supporters... my grandfather was a swayamsevak, my mother, a BJP booth activist.
+- I am a living example of PM Modi's tolerance... he forgave me though I publicly attacked him.
+- Citizens know the legacy of misrule of the Congress - an economy in doldrums and an administration full of leakages.
+- Benefits of demonetisation need to percolate down to entrepreneurs and their enterprises, many of which are outside the ambit of formal economy.
+- I want to categorically say that whatever I am, I have made a space for myself in Indian politics and media out of my own perseverance and hard work.
+- I think processes should not differ just because you are a minister. This is a job - a responsibility - not a right to override the processes that every citizen goes through.
+- The country's future is what you will make it. Make your local representatives in parliament and assembly more answerable. Ask for more transparency in use of public funds.
+- If you teach a girl, you are not just imparting education to a woman but to a family that will later help in nation building.
+- Industry people do know when a PR movement plays out. The issue is that it is an insult to our intelligence when those who are doing the PR thing presume that we are not wiser.
+- I am lucky to be part of a 'Kyunki.' Not every actor gets a chance to be part of a successful television show.
+- Our country has a capacity to cater to huge demands, both domestic and overseas.
+- Change can't be a compulsion. It has to happen organically.
+- I think too many obituaries have been written about me.
+- I am so busy with my family and my serials I don't get time to watch other serials.
+- For me, I have never walked a path that has been carefully crafted or charted. I have gone into territory unknown on many an occasion.
+- One should not encourage division on the basis of religion, region, caste, or creed if one wants India to truly rise as one of the greatest nations of the world.
+- I've done shows like 'Kuchh Dil Se,' which was a talk show on socio-political economic issues. So I do do a variety of stuff, but I think 'Kyunki' gets the most limelight.
+- Let me very proudly say that as a television actor, I never, ever saw any gender bias.
+- I have attained a fair degree of success. I don't have any regrets.
+- In a democratic country like India, eulogising Rahul Gandhi with the title of Yuvraj is an insult to democracy.
+- Visva-Bharati has a glorious legacy.
+- I don't come from a unit family; I come from a Sang Parivar, Swayam Sevak family.
+- I don't know if many people know that one of the first jobs that I wanted and I lined up for was cabin crew at Jet. I was rejected because I was told I don't have a good personality. Thank God for your rejection. After that, I got a job at McDonald's, and the rest is history.
+- No character in a soap is indispensable.
+- I was the sports captain in school. I've done everything - from javelin to discus to basketball to judo.
+- In India, I don't think any woman here is dictated what to wear, how to wear, whom to meet, when to meet... I am of the opinion, I don't think anybody is dictated here; you are not told.
+- I feel travelling by road helps me connect with more people and understand their problems.
+- I have never lived off my family name.
+- I was going through a very bad phase when 'Kyunki... Saas Bhi Kabhi Bahu Thi... ' happened. I was just not getting any work.
+- The country needs fiscal discipline to build a strong economy and for social justice.
+- Infrastructure development is a huge challenge for the people of Amethi.
+- My belief is that policy cannot be piecemeal.
+- Fiscal prudence is very important.
+- I can't speak for the rest, but I think the little India all of us carry in our hearts should be good enough for us individually to take a step to help ensure that same freedom and justice that our constitution guarantees is given to all.
+- I was born in New Delhi in 1976.
+- Karan Thapar is aggression personified.
+- I meet party workers. This is a must because it helps me understand the problems and issues of voters at the district level.
+- As long as Reality TV doesn't get boring, it's good.
+- There is always some criticism. Tell me one thing that Narendra Modi does and you don't criticise. If he gives a chance to newcomers, you say he forgot the old guard; if he gives a chance to an incumbent, you say Modi doesn't give a chance to young leaders.
+- I've been in various roles in TV - writer, producer, associate director.
+- I have lived life enough to know that I define myself.
+- As a politician, I engage with all kinds of opinions irrespective of whether they are in the media or not.
+- Every Indian has a right to take part in politics. Why not me?
+- I have seen rural life and met all kinds of people.
+- I know the pros and cons of being absolutely blunt.
+- I think I am a living example of Modi's capacity to forgive.
+- I have my idea of India... don't demean it.
+- I know the pros and cons of not being diplomatic.
+- One has to inculcate a feeling that if I build a road, then a Hindu or a Muslim or a Parsi or a Christian can walk on that road. We all have equal right to share water, electricity, or road.
+- In politics, during my organisational roles, I have never seen gender bias within my organisation.
+- What type of politics is the Congress practising, wherein its leaders commit the sin of looting money meant for the welfare of pregnant women and poor children?
+- Even if Narendra Modi sneezes, people will find a reason to criticise him for that.
+- I think that Congress and its affiliates and journalists who support them have made trolling quite a sophisticated measure of intervention.
+- I think when somebody wants to work diligently, when somebody wants to take away the cobwebs and see where attention is needed, to fix things, there is obviously going to be a backlash from those who have, for years, gained from status quo.
+- I cannot have any apprehensions during elections.
+- To an actor, what is most satisfying is that you perform your role as naturally and that people enjoy it, and more importantly, you enjoy it.
+- I like 'The Apprentice.' I think it's a cool show to watch.
+- If you can't take the heat, don't be on that street... I get abused every day, and I don't cry on anybody's shoulder. I don't play the victim card. I get abused, threatened - not only on Twitter but off it, also.
+- If somebody flouts laws unconstitutionally, they will not get support from the BJP.
+- A degree which is just the paper and does not have the sanctity of law is not the one you want the students chasing for four years.
+- Handloom is a legacy, a craft which involves close to four million weavers in the country. They have to decide how they would like to position their wares in the domestic and global markets. We in the government will support their vision to the best of our abilities.
+- At home, my children make sure that I fall in line and march to their tune.
+- Nobody asks a working man who looks after his children; it's always the woman who is asked.
+- I feel very strongly about my country and stronger still about people who abuse my country.
+- To say a democracy prospers only if one set of voices is heard would be untrue.
+- Legislation has a certain jurisdiction. It can't change mindsets and hearts.
+- Help me build the nation, not destroy it from within.
+- No one but people like me can understand the importance of education.
+- No one can stop me from living my life the way I want to.
+- There are more than thousand mother tongues spoken in our country. This is not just a number but a reason to be proud of.
+- Life, especially life on soaps, sometimes needs a reality check.
+- I take my work one day at a time.
+- Enhancing fabric production will also lead to strengthening the power loom sector.
+- People understand when you talk to them person to person, at an equal level. I tell them what I can do and what I cannot, and they tell me, 'Didi, we know you don't lie.'
+- It is a tragedy when you pay to make a public broadcaster survive.
+- I am not defined by somebody's comments or an article or somebody's angst about me or their anxiety about me or what is being said about me on social media.
+- I do see the ministry of Human Resources Development through the prism of gender. I see it through the prism of capabilities.
+- I think, as a working mother, what is more challenging for me is that I get to balance both work and home and prioritise my kid's life.
+- You can't stop trusting people just because of a few people.
+- The unfortunate part of being an actor-politician is that people feel an actor will not take her political commitments seriously.
+- I never used gender as my crutch. Many women don't use gender as a crutch.
+- Life is so unpredictable.
+- The platform of 'Kyunki' is irreplaceable in my life. This is where I began my journey as an actor.
+- I think one of the biggest myths is that education cannot flourish with regulation. Another myth is that wherever the state sponsors education, it doesn't flourish.
+- Multilingualism in our nation extends back to several millennia. This multilingualism is an asset, a heritage we have inherited, and is, in fact, a resource we deeply cherish.
+- If anything, 'Kyunki Saas' is impossible without Ekta Kapoor.
+- I love books.

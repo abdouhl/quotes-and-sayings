@@ -1,0 +1,28 @@
++++
+author = "Neville Marriner"
+title = "Neville Marriner Quotes"
+quotes_len = "22"
+description = "the best 22 Neville Marriner Quotes"
++++
+- So in one leap we had gone from being a friendly society to something almost professional.
+- I think we were all frustrated with our daily routine.
+- I would like new people with new ideas to come into it and change it.
+- One thing we were looking for from the start was players who really fit together, who sounded in tune.
+- Initially we performed in halls with capacities of 1,000.
+- So I've never found there was any particular separation between the two cultures at all, musically speaking.
+- One of the great virtues, apart from the pleasure of performing these works, is that it's opened up an entirely new, expansive repertoire of American Jewish music.
+- So I think we got together as the Academy to give ourselves that sort of responsibility and to play well.
+- Taste is changing, style is changing, and players' abilities are changing.
+- If we perform the romantic repertoire we need more musicians.
+- If the (British) Arts Council give you money, they also tell you how to spend it.
+- This American Jewish music is a new experience for us at least consciously.
+- I think the quality of something like the Beveridge, for instance, will have a life of its own.
+- We don't want other people poking into our artistic pie.
+- Mozart has written opera, symphony, sacred and chamber music - not to mention his piano and violin concerti.
+- The awful thing about a conductor becoming geriatric is that you seem to become more desirable, not less.
+- Before, we may have taken part in it without even thinking it was American Jewish, but in this case, I think, you have now perhaps pointed us in a direction of a new interest in this repertoire.
+- There are some sounds that English singers find quite difficult to manipulate.
+- As you know, there are certain languages that lend themselves very easily to vocal use.
+- Most Beethoven symphonies require 80 or more instruments, and the late romantics even more.
+- Music is a continuum and the modern and avant-garde composers of today will be part of the standard repertoire 30 years from now.
+- But the most important test is to take them on tour and see if you can bear to spend time with them.

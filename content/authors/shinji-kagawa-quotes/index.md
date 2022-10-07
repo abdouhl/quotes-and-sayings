@@ -1,0 +1,91 @@
++++
+author = "Shinji Kagawa"
+title = "Shinji Kagawa Quotes"
+quotes_len = "85"
+description = "the best 85 Shinji Kagawa Quotes"
++++
+- My value can only go higher if I can perform well in the Champions League.
+- Dortmund is like family to me, and I'm proud that they had not forgotten about me and welcomed me back.
+- When playing for Japan, it means that I carry my country on my shoulders and I feel a different kind of pressure as I am expected to do more when playing for Japan.
+- Robin Van Persie is a sensational striker and one of the best in Europe.
+- I realise the Premier League is a very tough league and I know I have to be stronger.
+- If you don't concentrate during a national team match you can just as easily get injured, so I want to make sure I can focus.
+- You have to believe in yourself. If you don't, things can go wrong both on and off the pitch.
+- I definitely feel the attention of the media globally now I am a member of a great squad like Manchester United. Everything here at the club shows me I have come somewhere really big. But I think I can take the pressure.
+- In the Champions League you need a certain level of perseverance, strength, dedication to scoring over 90 minutes.
+- There was a lot of passion with Klopp, I felt that most in the dressing room before games. He always had a big smile. He hugged every player. I loved his attitude - he was never nervous. He gave us confidence.
+- If I'm chosen for the Asian Cup, then I must help the team win. That's the bottom line.
+- I always think how I should play to make the most out of my teammates' abilities and their established styles.
+- I can only say that I've found a wonderful spot at Borussia Dortmund, where I can play football. I feel comfortable here.
+- When I left the club, I said in an interview that my chapter with Borussia Dortmund was not over. I just wanted to realize my dream of playing in the Premier League.
+- Personally, scoring goals creates confidence and I gain the mental stability and get poised from it.
+- It's easy to play with joy when everything is going well.
+- Football inspires and excites people like nothing else on the planet, and what I love about Common Goal is that it channels this passion in a way that makes a real difference to disadvantaged communities around the world.
+- There were a lot of things that you cannot experience in other places. I felt that Manchester United are a big club with fans and attention all over the world.
+- You either lose your way or you break through the hardships and play well. There is a massive difference.
+- In every match, my only aim will be to win.
+- I respect Manchester United, but I have respect to Dortmund as well.
+- I like to create openings.
+- I know and I am very proud that in my home country Japan and all over Asia millions of people are interested in BVB and follow us on a daily basis.
+- When I watch the Champions League, we see great clubs.
+- Nothing changes if we spend all our time worrying about the teams above us, so all we can do is win our next match.
+- I feel like I'd be able to gain so much by playing big games on a regular basis, including the Champions League.
+- I think I can handle the pressure and am pretty confident I can adapt to the style of the Premier League.
+- I'd like not only to test myself against Barcelona, but top teams from the other leagues.
+- Klopp never wanted us to get carried away. He never wanted us to think of ourselves as champions, even though we were top of the league. He wanted us to focus on ourselves, not to listen to what people were saying about us. It was all about the next game and only the next game.
+- The Asian Cup is an important tournament.
+- If you play well in the Champions League you get your name out there.
+- I can't worry about external factors, I have to focus on myself.
+- It was great to win the title with United.
+- I am pretty confident I can adapt to the style of the Premier League.
+- I should be flexible enough to play in a number of roles, so I am a more attractive player to the team and can contribute even more.
+- Cerezo often have a bad season after a good one.
+- After moving to the Premier League, I've realised that I need to limber up and strengthen my body trunk.
+- There have been times when I thought my spirit would break and I just thought I have to believe in myself.
+- I never lost a game against Bayern Munich until Pep Guardiola arrived. He made them better.
+- Since Japan is little known in football in the world, we want to play good football and make a huge impact so that we can make the world realise the presence of the Japan football team.
+- I can't retire without going to Spain.
+- It is hard to win in Asia.
+- Football is what I do best.
+- It would be good to play in the Premier League.
+- I used to play for Dortmund, I have friends there and the fans know me so I want to experience that dread of going to that stadium as the away team and I'd like to see how Dortmund would react.
+- I am always willing to score.
+- I've been fortunate enough to have football lead me all over the world... If there's one constant I've witnessed throughout the journey, it has to be passion.
+- I've repeatedly emphasized how comfortable I feel in Dortmund.
+- In Japan, we worry too much about what the other thinks.
+- I have gained good experience but at the same time had hard times as well.
+- I'd like to play against Messi and Iniesta.
+- The Spanish league is my favourite. The attacking mentality suits my style.
+- Language is very important to me.
+- I don't feel like I have anything to prove to the fans in England - but I know that in England they did not see the best of me.
+- At Manchester, and at Dortmund before that, I'm surrounded by great players who make it easy for me to play.
+- If you play well and consistently, it opens up a lot of opportunities.
+- I just have to keep working hard and keep pushing for my chance.
+- I want to go a team where it'll be challenging for me.
+- From my own personal experience, I can tell you that things I achieved in the J2 league meant a lot to me.
+- I pressure myself to score in every game but some days it feels like I just can't win. I know I have to overcome that.
+- I have played in Dortmund and Manchester United, no matter what country I go to, I will not be afraid.
+- Common Goal is quickly growing around the world and I'm proud to help lead the movement forward in Japan.
+- I have to stay positive and play hard.
+- I'll work hard to achieve goals and results.
+- Smaller players in the Premier League are very good at using their bodies and that's what I will continue to do.
+- Sendai is the place that helped me build my basement.
+- I want to get more confident with each game.
+- I played behind the main striker at Dortmund, but I usually play on the left with Japan.
+- Those who can keep achieving results are the big players at the big clubs. If you cannot get the results, you just can't play and move away.
+- I'm not the tallest or biggest player, so I have to move my body more.
+- My aim is to deliver results.
+- BVB with its incredible fans has grown in my heart.
+- Jurgen Klopp will change Liverpool. He is a great coach and in the end his results will prove it. Every moment I had with him is a good memory. He treated me so well, taught so much, even though I was from Japan and not at all famous.
+- Iniesta is my ideal player. I've watched him throughout my career and hoped to be like him. It's fun to watch him play and that's the kind of football I'd like to play.
+- Being positive and believing in yourself is important, not only in football but also in improving as a person.
+- In my time here, I've seen that Borussia Dortmund has developed steadily. We have become German champions and played in the Champions League.
+- Football has given me so many opportunities in life and now I want to play my role in supporting others through the game.
+- You gain trust when you deliver results.
+- Every day I am learning how to trouble my opponents on the left, how best to cause them problems with my movement. But I would still like to be capable of taking up more positions.
+- Dortmund's style of football really suits me.
+- I will aim to become a No. 10 who can score goals. Just like Lionel Messi does for Barcelona.
+- The really crucial thing here at BVB is that everyone works together so hard as a team. I'm a part of that, and I'm delighted I've been able to contribute to our good results.
+- I am interested in how much and how quickly Klopp, the manager that I know, can change the team at Liverpool.
+- At Manchester, everyone plays for himself and does what he wants but it works out in the end.
+- I know that not everything is easy.

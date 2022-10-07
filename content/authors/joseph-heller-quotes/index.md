@@ -1,0 +1,35 @@
++++
+author = "Joseph Heller"
+title = "Joseph Heller Quotes"
+quotes_len = "29"
+description = "the best 29 Joseph Heller Quotes"
++++
+- I think Haig will be foolish, but perhaps not quite as foolish as Kissinger was, because Haig doesn't have the education Kissinger had. Haig is a little more dangerous because, I fear, he believes what he says, whereas I never got that impression from Kissinger.
+- I think in every country that there is at least one executive who is scared of going crazy.
+- Never quit a job as a matter of principle. You'll always regret it.
+- Destiny is a good thing to accept when it's going your way. When it isn't, don't call it destiny; call it injustice, treachery, or simple bad luck.
+- Peace on earth would mean the end of civilization as we know it.
+- We do have a zeal for laughter in most situations, give or take a dentist.
+- All of my books deal in a very rough, rude fashion with subjects about which there are great conflicts of opinion.
+- I want to keep my dreams, even bad ones, because without them, I might have nothing all night long.
+- I've adjusted to this, that my books are not going to get unanimously good reviews.
+- Every writer I know has trouble writing.
+- I'd like to see the government get out of war altogether and leave the whole field to private individuals.
+- I don't believe in miracles because it's been a long time since we've had any.
+- I had examined myself pretty thoroughly and discovered that I was unfit for military service.
+- Frankly, I'd like to see the government get out of war altogether and leave the whole field to private industry.
+- He was a self-made man who owed his lack of success to nobody.
+- But that was war. Just about all he could find in its favor was that it paid well and liberated children from the pernicious influence of their parents.
+- He had decided to live forever or die in the attempt.
+- The idea of using actual clippings came about as a way of characterizing Gold. Gold uses clippings because he hates doing research and is not even really interested in the books and articles he writes.
+- The enemy is anybody who's going to get you killed, no matter which side he's on.
+- I've only had four ideas for a novel in my life, and I've written all of them.
+- Rise above principle and do what's right.
+- When I grow up I want to be a little boy.
+- When I read something saying I've not done anything as good as 'Catch-22' I'm tempted to reply, 'Who has?'
+- He knew everything about literature except how to enjoy it.
+- I do not have, and never had, any interest in either the Bible or religion.
+- Hungry Joe collected lists of fatal diseases and arranged them in alphabetical order so that he could put his finger without delay on any one he wanted to worry about.
+- There was only one catch and that was Catch-22. Orr would be crazy to fly more missions and sane if he didn't, but if he was sane he had to fly them. If he flew them he was crazy and didn't have to; but if he didn't want to he was sane and had to.
+- Some people are born mediocre, some people achieve mediocrity, and some people have mediocrity thrust upon them.
+- The villains will come along. There were plenty in the Carter administration, and there will be plenty with Reagan.

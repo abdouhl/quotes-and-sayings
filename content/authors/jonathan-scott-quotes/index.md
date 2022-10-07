@@ -1,0 +1,106 @@
++++
+author = "Jonathan Scott"
+title = "Jonathan Scott Quotes"
+quotes_len = "100"
+description = "the best 100 Jonathan Scott Quotes"
++++
+- At the end of the day, coming home to that one person that you know has your back, there's no better feeling.
+- Sometimes life takes you on unexpected paths, and those paths aren't always in the same direction.
+- We do believe that your home can make your life easier, but there needs to be something that wells you up inside - whether it's that you can see your family growing and expanding, and it has the perfect nursery, or maybe that you want to be that neighborhood hub where all the kids in the community come over, and they can play.
+- I love classic Christmas. I love just warmth and a little bit of glam. You gotta have the silvers and the golds and what not, but I go a little overboard.
+- You don't need a great green thumb in order to make something look nice. A lot of times, it's just about cleaning up the weeds and trimming back the shrubs.
+- I'm usually able to reuse at least 50 percent of the clients' furniture. Most times, I'll just clean it up, make it look like new, and that's the best way to save money.
+- Because I live and breathe design every day, sometimes I will come across an idea that is something I want to try. It often comes from an old hotel or an old restaurant, and I will adapt it to be residential.
+- We love meeting fans face to face.
+- I think when you are young and you don't really know what you want in life, you can commit to something and think at the time it is right.
+- Nothing will make a place feel unlike home like chaos.
+- I'll admit that I enjoyed my 20s more than my teens, my 30s more than my 20s.
+- When people suggest we like to 'dream big'... they're absolutely right.
+- I am a Christmas nerd. Christmas is my favorite holiday.
+- It's okay to learn from your mistakes, and it's okay to be human.
+- I'm a magician. A lot of people don't know that I've won awards. I used to do big stage shows.
+- We became amazed with Property Brothers at how many kids watch and love the show. We'll even have 4- and 5-year-olds walk up on the street and say, 'Mom and Dad, look: it's the Property Brothers.'
+- Drew pretty much eats all gluten free. I go for flavor over cardboard.
+- What we've found is that there's a real gap between what people see and love for their home and actually pulling the trigger and making it happen. One of the biggest problems is people are afraid to make the wrong purchase.
+- We were always thinking big, dreaming big - no project was too big for us to tackle, and that comes from how we were raised. Our parents actually said to us, 'If somebody says you can't do something, find five ways to do it.'
+- Open-faced, traditional, wood-burning fireplaces are very inefficient.
+- I don't really watch TV. I don't have time.
+- If you want to have a good sleep, you have to have a good mattress.
+- Some people, you can see that they're in a house just because it functions OK for them. It checks the boxes for certain things that they need, but you can tell that they're not emotionally connected to the house.
+- We started out as actors. When we were coming out of high school, we didn't want to be struggling actors, and - I remember the conversation - we were like, 'Let's invest in real estate!'
+- Your home should make your life easier.
+- Hiking, scuba diving - I just love getting out and doing things.
+- We really find that most houses we look at - that are really rough around the edges - most of those are actually diamonds in the rough. They could be beautiful, and it just takes a little creativity and having the right people on board.
+- Slow and steady is the way we built our brand, and I think that's why it's one of the leading home space brands.
+- Of all the success and everything we've achieved, I think I'll be a great dad.
+- There are probably less than 100 actors who make more than we do across our empire.
+- I'm very good at relaxing.
+- I think that's one of the biggest things people don't understand: a clean house will sell faster.
+- Drew was a director, and I'm a magician.
+- I've been asked twice to go on 'The Bachelor' - and once in Canada as well -and I was like, 'It would literally be my nightmare to be put on display and dated out.' It's the opposite of anything I have ever wanted.
+- I would say, at least once a week, I get approached by a pro athlete or a celebrity or someone who wants some work done.
+- Drew never argues with me because I carry very heavy power tools all the time.
+- We have incredibly talented fans. Anytime we receive fan art or especially if they post it online and tag us, we usually share that with everybody else.
+- Drew's a total wimp.
+- Drew is the most competitive man on the planet. It doesn't matter if we're running to the car: he has to get there first.
+- I'm not an extremely social person in general because I don't love crowds, but I'm an engaging person, and I love good conversation.
+- I'm not big on chemicals, and I like to try to do things as natural as possible.
+- When the economy collapsed, our construction company was in Calgary, but the U.S. was further along in the recession, so I made the move down to Vegas.
+- The big message I give to all of our clients, and anyone we lecture to, is you have to be smart with your money.
+- There have been some clients who have said, 'In order to compete, I'm going to put a pool in and then sell the house.' That's a terrible idea.
+- When you have a quality mattress, great sheets, and a good duvet with the perfect fill, it all works together to give you the perfect sleep.
+- I want to ride a unicorn.
+- I just felt like women love musicians, so I thought that we should become musicians. It'll help my dating life.
+- I literally learned everything I could try to do to get a date, and it did not work when I was younger. I heard people love musicians, so I took up the bagpipes.
+- Paint and new flooring are simple refreshers. But it's not worth it to update all the kitchen cabinets if it's still the same bad layout.
+- Open concept bathrooms are not the greatest.
+- People think because you're a celebrity, because you're on TV, because you're 'People Magazine''s Sexiest Men Alive, things like that, that we're bathing in champagne and taking limos door to door. But we're literally the same guys, just with much busier schedules.
+- I don't make my bed. At the end of a day of going to construction sites, the last thing I want to do is move 10 pillows off the bed.
+- We're not pretending to be somebody else. We're being ourselves; we're doing what we do, and people have trust that they put in that, that we won't compromise on our ideals. And it really paid off.
+- There's always people trying to do something to make a quick buck. But, if you plan on the long game, you can essentially guarantee success if you're willing to put in the work and if you surround yourself with the right team.
+- I went back to college for construction and design.
+- I think that's why we do well with 'Property Brothers.' It's our charisma with each other and with the audience. We've always been great storytellers.
+- Anyone who has been through failed relationships - even people in successful relationships - understand that you gain perspective about what is important to you.
+- I remember, this one time, one of my best friends was living with us for a little while, this place we were renovating. We got back, we'd been cleared out. The place had been robbed. They must have backed up trucks to get the appliances. And our buddy was still sleeping.
+- We were pretty fortunate that we lived in a very supportive household, so our mom and dad, they didn't care what we did. They just wanted us to do something. Whatever we're passionate about, they would support us.
+- I just want to be around people who bring energy, and when you walk away, you feel good about yourself and good about them.
+- A good laundry room with storage can make life easier.
+- I want to be a dad, so it's important for me to have a partner who would play a key role in that.
+- The main thing for me is that anything I design, I try to design it with just a little bit of pizzazz, something that's going to allow the family to stay home and enjoy the space as opposed to necessarily having to always go to a park or something.
+- Sometimes you're running toward your target so hard that you don't stop to reassess.
+- Ever since I was a kid and watched magicians on stage, like David Copperfield or Siegfried and Roy, I instantly knew how they did everything. In my head, it just all worked.
+- Drew and I have always been very analytical at looking at the business opportunities. We're entrepreneurs through and through.
+- I'm four minutes older. Of all the competitions in our life, I won the first one. Though Drew is a quarter inch taller.
+- We have always been dreamers, and we are admittedly overachievers, and coming out of high school, we didn't want to be struggling artists.
+- We're the house that's playing Christmas music by November 1.
+- I have said to myself that if I don't find the right person, I think I would probably adopt on my own, because I think I would be a great dad.
+- There's no reason your outdoor furniture should look like cheap plastic that will blow over or break in two seconds.
+- The first time I had my dreams crushed was when I was scammed, and somebody stole all of my magic props. I was a teenager, and I had put all my money into that. I had literally wanted to be the next David Copperfield. And that was all taken away.
+- I was born, and the doctor left. And then the nurse is like, 'Doctor, I think there's another one.'
+- I love kids, and I get along great with kids.
+- Drew is a shopaholic. He must have 400 suits and 180 pairs of shoes. I have three pairs of jeans, and that's it. I shop in his closet and take anything I want.
+- Two fundamental rules in the bedroom: one is you do not work in the bedroom. You should not have a workstation, laptop, or business papers around, because as soon as you look at that, you're stressed. I love having a sitting area where you can read a book, but that's it. The other is no clutter.
+- The worst is, a friend will invite me over, and she'll say, 'Hey, you've been working so hard. I'll make you dinner. It'll be great.' I'm like, 'That's so sweet! Thank you!' And I'll come over, and she's got hardwood samples laid out! She's using me!
+- Drew definitely has great design taste. He knows what looks good in a space, and he knows how to put together a design.
+- I feel like there's an opportunity for a show called 'Property Brother.' No, I think our brand is definitely stronger together. When he sits on your head in the womb for 9 months, you're connected.
+- I've dated a lot in my life, and I've dated every kind of person you can imagine.
+- I love to laugh. A sense of humor is really important.
+- Honestly, I stay in a lot of hotels, and it makes me miss my bed.
+- Buyers look at everything. They open every drawer. They open every cabinet door. So make sure your underwear is folded nicely.
+- Being married was a huge part of my life. I spent six and a half years with someone, and it didn't work. Anyone in a long-term relationship knows how hard that is.
+- I'm not a gambler or a nightclub guy.
+- If I go to Lowe's, people will follow me up and down the aisle with kitchen plans and samples.
+- When buyers see the pride of ownership - when they come in, and they're impressed by how clean the place is - they can picture their kids playing on the floor. They can picture the family sitting around the table. When they can picture their own family in that space, instantly you grab them, and they'll pay more money, too.
+- I'm very blessed in a lot of ways. I can buy what I want, and I can go anywhere in the world.
+- The sole purpose of the bedroom is to melt away any stressors.
+- I was actually asked to do the Christmas design for the White House. I thought it would be interesting, given that it has such a rich history, to decorate around some real beautiful oversized images of the history of the White House and the history of the country.
+- One of the biggest mistakes I see in the bedroom is that they plan to be doing things other than sleeping in the bedroom. They will have a desk in there for working, or they'll have a big shelf in there for storing things. It should be all about relaxing.
+- Justin Timberlake is one of our style icons - he does both formal and casual perfectly.
+- It's very strange to wake up in my own bed, as weird as that sounds, because I'm always on the road.
+- We stay on top of design styles and aren't afraid to take on new challenges.
+- With my own home, I feel like I'm the mechanic who drives a crappy car. I never have time to work on my own home.
+- As comfortable as I am being single, nothing beats sharing your happiness with someone you love.
+- Failure is part of success, and nobody should ever view failure as a bad thing as long as you learn from it.
+- I've only ever seen a couple tiny home spaces that are actually a clever use of space.
+- Growing up, we were in a strict household, so we weren't allowed to have posters of our crushes and stuff on the wall - mine was Cristina Applegate.
+- I don't trust people who don't like dogs.

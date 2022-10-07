@@ -1,0 +1,19 @@
++++
+author = "Miguel Zenon"
+title = "Miguel Zenon Quotes"
+quotes_len = "13"
+description = "the best 13 Miguel Zenon Quotes"
++++
+- The way I like to think about it is, even though I started music early - I started in classical music - it wasn't until I discovered jazz that I really fell in love with music and realized this was what I wanted to do for a living.
+- I've always thought that jazz needs to be heard by a wider audience in Puerto Rico. I want to put together a series of free concerts in the small towns - one with Miles Davis music, another with bebop, maybe Duke Ellington. I want younger people to see what is possible.
+- When I started music, I started out in Puerto Rico with classical music. But what really made me want to be a musician was jazz, and because I didn't grow up with jazz, I had to learn it from a very basic level. I had to go into the history and learn everything about the development of the music, all the players and all that stuff.
+- In Puerto Rico, I played in all kinds of bands that played salsa and merengue. That's how I saved the money to come to the U.S. We used to play El Gran Combo tunes. Half the band was my friends - we were around 15 - and the other half was my friend's father and his friends from the hospital where he worked. They were all, like, 50.
+- Even though the music I make gathers influences from all over the place, I feel that the core of what I do comes from the jazz tradition. In terms of improvisation, interaction, feel and overall concept, Jazz is my main source of information and inspiration.
+- I feel that, as a Puerto Rican and Latin American musician, a lot of the stuff that I write, even if I mean it or not, is gonna have some elements of that.
+- National identity is something that's directly connected to our personal experiences and the decisions we make, the roads we decide to take at certain points in our life.
+- I was actually born and raised in Puerto Rico. I moved to the States when I was 19. I was very impressed early on by being around people who spoke my language and ate the same food and listened to the same music, dressed the same. But then you look around and, you know, you're not in Puerto Rico.
+- I grew up listening to Puerto Rican music like everybody else. But when I listened to Charlie Parker for the first time, I said, 'How does this guy play so fast?'
+- Charlie Parker is my greatest inspiration as a saxophone player - anything that involves him entails a large amount of respect.
+- Even though there is randomness and improvisation in my music, I want to have some concrete idea that I can hold onto.
+- Once I tried to find myself as a musician and a composer, I went back and saw that there was something special about Puerto Rican music. I knew that before, but had never sat down and thought about it. The more I learned about it, the more it found its way into the music I was writing.
+- As a composer, I'm basically trying to represent myself through my music in an honest way.

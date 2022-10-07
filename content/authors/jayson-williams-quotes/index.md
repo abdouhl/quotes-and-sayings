@@ -1,0 +1,26 @@
++++
+author = "Jayson Williams"
+title = "Jayson Williams Quotes"
+quotes_len = "20"
+description = "the best 20 Jayson Williams Quotes"
++++
+- I lost my way for a long time.
+- I want to see the birth of my baby. Hopefully it's a boy. He can play for St. John's.
+- Every day people say you got to move on with your life. You have to move on. And you just can't.
+- I have a beautiful family. I want to be here, for my family.
+- Alcohol is the cause of all my problems.
+- That's what prison did for me, it isolated me, you know, it polished me up like a stone.
+- I will never be able to move on as much as people would like me to.
+- It's a sin to swear.
+- I'll say life is simpler.
+- If it wasn't for prison, I was in a bad way.
+- I went down and played with Magic Johnson at his all-star game in Atlanta. I remember Magic stopped the game and said, 'We need you here with us in L.A.'
+- I always relate respectfully with blue-collar people.
+- If I had to think of what I would do different in my whole career, it's that I never would have picked up a beer, bottle of vodka. That definitely changed my life. That is an Achilles' heel for me.
+- We're like Iraq. We're hiding missiles. We've got two missiles in reserve.
+- I want to be here, for my family. I want to be here for my baby. I want to see the birth of my baby.
+- I think no athlete wants to end his career on an injury.
+- I could have been better. That's my goal now, to be better.
+- People say, 'Jay, you're a great guy, you just had a couple of bad nights.' People that have themselves under control don't have a couple of bad nights like that. Plain and simple.
+- I give God all the glory. And try to move on. Come home and hug my wife and my children. And thank God for every day that I have with my family.
+- I don't think there is a person who loves the Nets as much as I do - from our fans, all the employees in the arenas, the front office personnel and the owners. I will always be loyal to our fans and the Nets.

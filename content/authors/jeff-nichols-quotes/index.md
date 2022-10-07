@@ -1,0 +1,104 @@
++++
+author = "Jeff Nichols"
+title = "Jeff Nichols Quotes"
+quotes_len = "98"
+description = "the best 98 Jeff Nichols Quotes"
++++
+- Write dialogue that supports the situation and the characters, as you find them.
+- Actors are real. It's a real skill, and it exists, and talent really exists.
+- The more we try to control our kids and create who they are and where they're going, the more that will fall apart. That's a dangerous thing. So you need to actually manage the fear and figure out who your kids are. Who do they want to be and how can you help shape that, but not control it.
+- I never wanted to make movies just for me. I want to make movies that people watch.
+- My characters aren't chess pieces. I don't move them around some big board. I actually care about these fictitious people.
+- Marriage isn't about a collection of scenes over ten years of two people telling each other that they love each other. It's about commitment.
+- I've only seen one snake out in the wilderness, not behind glass, and I froze. I literally couldn't move. So to say I have a fear of snakes would be true.
+- My characters are not thinking about the act breaks. They're thinking about what they need to do to move forward. As long as I focus on that, the story starts to progress. As soon as I think, 'We're 20 pages in, something better blow up,' we're in trouble.
+- 'Mud' was a depository for a little more nostalgia and just a different kind of feeling, a different kind of mood. Something that's not so dark. Something that does actually have a happy ending and is a little more hopeful.
+- Sometimes as writers, we try and put narrative development above character development. We try to move our characters around like chess pieces that do our bidding. The problem with that is sometimes the characters do things they shouldn't do. Things that are inorganic.
+- I haven't seen 'Room' yet. People tell me 'Room' is such an amazing film, but ever since I had a kid, I just can't. I can't do it. It's not fun. It's not a place I want to be.
+- There's one right place to put the camera. I'm a big believer in that. You'd think you could put it anywhere. Nope.
+- I think when you're talking about marriage equality and race, people very quickly start to get into their political corners: their ideology comes to the forefront, and they get into this platform argument that they're used to making, which really doesn't have anything to do with the day-to-day basics of what is being talked about.
+- It's amazing how far you can get into a plot before you figure out what you're doing.
+- I wrote 'Mud' for Matthew McConaughey and had never met him.
+- Financing for 'Shotgun Stories' was initiated with money from close friends and family. This is where the money to go into production came from. After production, a company called 'Upload Films' came on board and provided post-production funds and services. In both instances, people were taking a gamble on us.
+- My stated goal as a filmmaker is to feel something. Is to have a palpable emotion in my life, carry it through the gauntlet of the filmmaking process and try and have it land for an audience at some point during the viewing experience. That to me is successful filmmaking.
+- I think it's important to say typing in the computer is like the last, last phase of my writing process. That's kind of the fun part. Well, it's all somewhat fun, I suppose. But usually what happens is I think about a movie for at least a year - maybe a couple more - and I don't put anything down.
+- I thought 'Mud' would be such an easy film for people to understand.
+- I've been just unsuccessful enough not to have been given a big opportunity too soon.
+- It takes people being alone in front of the computer at three in the morning to write opinions about movies, apparently.
+- You can watch any Hitchcock film and be blown away.
+- If you want someone to show up and execute your script for you, seriously, there are a lot of great people out there. Don't call me.
+- I'm not as worried about the process of writing, simply because I think I've got that one down, you know? I think I know what brings specificity to these ideas, what brings specificity to the genre elements, or anything else, and it's personal emotions.
+- I was always interested in creative writing growing up. From junior high on, I was writing short stories. I also grew up watching movies. My father would take me to everything. Most weeks, I could open the paper having seen every movie listed.
+- I think we're so advanced when it comes to watching narrative material. I mean, it's all we do is consume content all day long. So when a character walks onscreen, you immediately start making connections for that character: Is that a good guy? Is that a bad guy?
+- I'd love to just continue making original films from scratch, but it doesn't mean I won't try my hand at something else in the meantime.
+- If I can drive down the road in my car and listen to XM satellite, and when a song gets beamed into my car, it can tell me who wrote the song and what the damn lyrics are, why, when you broadcast a digital signal of a film, can't it speak to your television to set up a list of settings to show the film in the way that it was meant to be shown?
+- 'Take Shelter' is a tough movie because there's no humor in it, so there's really no way to judge how you're doing - whether people are still with you or not.
+- We've gotten to a point where it costs so much money to make a movie that directors and filmmakers feel they have to make sure that everybody gets it. And that's an unfortunate development, I think, in a lot of narratives floating around in the film industry.
+- In terms of my personal spirituality and everything else, it's ever-evolving. I have a desire to want more out of the universe. But the older I get, the further I get from any specifics about that.
+- We have so many films that we can fit into the slate a year, and we spend $100 million on those films in order to make $400 million dollars. We don't spend $20 million in hopes of eking out $40 million.
+- I really don't know how to tell you what it feels like to be a parent.
+- I first read 'Tom Sawyer' when I was in 8th grade, 13 years old. I realised since that Mark Twain just bottled what it felt like to be a child.
+- Endings don't have anything to do with what your movie is about. Now, there is an emotional climax, there's an emotional resolution that is 100 percent important. If I get that wrong, get your money back.
+- I'm a director because I directed a movie. And if I have any advice for people, it's, 'Go write something; go direct it. If that's what you have a desire to do, go do it. If the movie stinks, just put it on the shelf and try to do it again.'
+- Steven Spielberg had a tremendous influence on me through his early stuff. 'E.T.', 'Close Encounters of the Third Kind' - 'Jaws,' I think, is one of the most beautifully directed films ever.
+- The funny thing about 'Take Shelter' is that a lot of people talk about how it was allegory for the economy and things that were to happen. And that was so on the nose in the movie for me. I was like, 'That's obvious.' It's the other stuff about marriage and commitment and those other things that I spent the most time thinking about.
+- I outline and outline and outline, and then I'm very specific about the stuff I write. That's my process.
+- I'll be honest: 'Badlands' changed my life: it really did rewire my brain as to how film can operate.
+- As a director, you see something in someone; you know it's there, you just got to go get it. You do that with any actor. That's your job.
+- There are great advantages of making things on the independent market. There's freedom and control there, and kind of a cleanness to the process that I like.
+- 'Shotgun Stories' and 'Take Shelter'... I was willing to make those with no money and no time. With 'Mud,' I just wanted to protect it until I could have the resources. It's a real tricky movie.
+- 'Indiana Jones' was me growing up. I could quote lines from 'Tango and Cash' as much as I could quote lines from 'The Searchers'.
+- I loved, in 'Starman', the use of anamorphic lenses, the creation of blue light, and Carpenter's use of the widescreen format.
+- I don't think 'Shotgon Stories' or 'Take Shelter' have hopeless endings. I think there's hope in both those films, no matter how hard you have to search for it. It's there.
+- I grew up in Arkansas, and I went to Little Rock Central High, which was the site of a desegregation crisis in '57. I graduated in '97.
+- We have a problem with dealing with race in our country. We have a problem with dealing with marriage equality and equality in general. These are complex, divisive issues in our society, and I think that the only way we further this conversation is to take them down to a very human scale.
+- There's always somebody you can call and go have lunch with and just talk out an idea. And it's great, because I need that. It's part of my writing process, to early on sit people down and say, 'Alright, this film I'm working on...' and I tell them everything I have.
+- As a storyteller, you have to have something to say. You have to look at the world, think about it in relationship to yourself, and say, 'I think this is a pattern,' or 'I think this is the way fatherhood works,' or 'I think this is the way first love feels.' The danger in that is, that's when you open yourself up to real critique.
+- I know how to write a movie. I know how to direct a movie.
+- With 'Midnight Special,' the sound was used as a narrative construct. The audience is looking in one direction when a sound suddenly erupts from the other direction.
+- Definitely when you give a script to an actor, it's like dropping a capsule in water and the fizzing starts. That's when the thing starts to live and breathe.
+- Most film productions, when they're based at a place, they get, like, a 30-mile radius or a 30-minute radius to get out of the town. And once you go past that, your day starts to become shorter, and you have to start paying your drivers more, and everybody just gets paid more, and you have less time to shoot, and everything costs more.
+- One of my favorite directors is Clint Eastwood, and I hear about the way he works, and I think I'm of a similar style. Very few takes - you get what you take, and you move on. It's very much a job and work.
+- I've been really lucky when it comes to casting kids, and I don't particularly like child actors. Too often, they just show up, and they've had whatever real innocence that's in a child just beaten out of them. They start to perform for you, and you can just see it coming. It's no good.
+- Your reaction when you lose control in a situation is to try and hang on tighter.
+- A lot of independent filmmakers are really catty.
+- 'Midnight Special' is, like 'Starman', a government chase film - in the government chase film genre - about a boy who has special powers and the government agents' quest to find him.
+- When my son was 8 months old, he had a febrile seizure. You know, if you're in the first year - my wife and I refer to it as the 'darkness.' You're just underwater.
+- I'm really calculating when it comes to these scripts - I'm really calculated about character behavior and dialogue.
+- I've kind of always had this balance between genre and personal dramas. It almost feels like the two help each other. If I was just to make a genre film, maybe it would be hollow and soulless. If I was just to make a personal drama, maybe it would be melodramatic and nobody would ever go see it.
+- I think Warner Bros. are probably some of the best people in marketing films in the world.
+- I think the way you make a movie dictates the movie that you make.
+- You have actors you've worked with previously, and you have actors you haven't worked with that you've seen in things where you know they can work in these parts. And then there are actors who blow you away, who surprise you.
+- I think only the movies you do remember are the films you had an emotional connection to.
+- There's a reason why I use film. It's because it's the best representation of how our eyes work. I really believe that. I think it's better than digital.
+- I had two DVDs my junior year. One was 'Fletch' and one was 'Goodfellas,' and I watched those movies so much. I just remember eating Ramen noodles and watching 'Goodfellas.'
+- I think plot is very overrated. Plot is obviously necessary, but what I really care about is emotionally affecting the audience. Having a thought myself and then an emotional experience myself, somehow transferring that to the audience.
+- I found filmmaking to be a very practical art form. It's about figuring out how to create within the very practical limitations/constraints of time, money, and large groups of collaborators.
+- I love 'Lawrence of Arabia,' big sweeping films. I want my films to feel that way, to be on a big canvas.
+- Sometimes you'll write while listening to a piece of music and think it's great, but then you'll go back and read it without the music and go, 'This sucks.'
+- Whenever I write, I try and approach my stories from some kind of universal theme or idea or emotion.
+- I'll say this: I think from a directing standpoint, 'Loving' is my most accomplished film. Strictly from a technical, directing point of view.
+- There's a rhythm and a cadence in a scene, and when an actor understands without any real direction from you, then that's a very valuable gift. And some people get it, and some people don't.
+- Your whole life is changed with that first child. Your social behaviors are all turned upside down, you're sleep deprived, but eight months in, my son had this seizure, and it just woke me up to the idea that, oh, no, this can end. And it can end in a way that will destroy you forever.
+- My first job in the film business was working as a production assistant, and then a production manager on a documentary about Townes Van Zandt.
+- My connection to 'Aquaman' came out through the Sony hack. It had no relationship to reality. I was not on that film. I was not hired to work on that film. I had been talking to Warner Bros. about it.
+- The real cost is always more than just the money you shell out.
+- I think I could probably make $5 to $10m movies for a very long time and live a perfectly good life doing it. I'd probably get paid as well as a surgeon, which is pretty damn remarkable for a guy who went to film school.
+- I can talk to execs very clearly, very plainly. I don't get nervous in front of them anymore.
+- I think too often in films, people think endings are a summation of plot, and I don't like that. Because once you know where you're going as an audience member, then it's like a video game. You're just waiting for them to get through the levels and beat the bad guy. And I just think that's boring.
+- Marriage is tough. I can tell my wife all day long that I love her, but it doesn't mean anything if you don't show that.
+- What Richard and Mildred Loving did was, by their nature, not by any calculus, they separated themselves from the political conversation. They did not have an agenda. They did not want to be martyrs. They did not want to be symbols of a movement.
+- I am not going to approve the home-screening format for my film just carte blanche in lieu of a theatrical screening when I cannot trust that it will ever be seen in the format that it's intended to be.
+- I have gained a lot of confidence in my process of making films. It does't mean I'll make a successful film or even a good film, but I know how to make my film.
+- I have a very linear mind.
+- A lot of people have a belief system that is strictly based on religious dogma.
+- Making movies is really hard. It's a very complex process, with many, many variables.
+- It took me a year just to edit 'Shotgun Stories.' Actually, it took me two years to edit 'Shotgun Stories.'
+- The films that have influenced me most are: 'The Hustler', 'Badlands', 'Hud', 'Tender Mercies', 'Cool Hand Luke', 'A Perfect World', and 'Laurence of Arabia'. I also really like 'Fletch'. I feel like all of these films reached an honest place in regard to the human condition while also stringing together really entertaining stories.
+- I want all of my films to be grounded in reality, and I think 'Midnight Special' is the most grounded film I've ever made, in spite of its genre.
+- I care about narrative structure; I care about how stories unfold.
+- I really don't care about plot. I really, really don't.
+- Nature is the purest thing we can touch and observe. It can be the most beautiful and also the most devastating.
+- When I saw the scene in 'Close Encounters,' and Richard Dreyfuss's son is screaming at him - that's a heartbreaking scene. And I remember being devastated by 'E.T.' Or when E.T. started to get sick. That broke me up a little bit.
+- People ask me about past projects I've worked on, and other things; I'm just really bad at lying. I have a bad poker face, so I just try to tell people how I'm feeling in the moment and really what I was trying to do.
+- I like scripts. I spend a lot of time writing them.

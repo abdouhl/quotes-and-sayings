@@ -1,0 +1,58 @@
++++
+author = "Gwendoline Christie"
+title = "Gwendoline Christie Quotes"
+quotes_len = "52"
+description = "the best 52 Gwendoline Christie Quotes"
++++
+- 'Game of Thrones' is a fantasy show not dedicated to any specific time, but it seems to exist in sort of a 1400s medieval fantasy world, and in that setting, I wouldn't have had a six-pack.
+- As someone who has always felt at times pretty genderless because of my size, it interests me to challenge ideas of prejudice and femininity, and what it is to be a woman.
+- I describe my personal style as 'mythic space horse with chocolate box tendencies.'
+- If I were amazing with a sword, I wouldn't care about the tender things in life.
+- Bart The Bear was fantastic to work with. Absolutely brilliant and so, so good. The things that that bear could do to order! He was one of the best actors I've ever worked with.
+- The fantasy genre has so far rather embraced me, and I'm incredibly grateful for that.
+- The characters that I want to play are interesting women. I don't care if they're good women or bad women or vulnerable women or women with a lot of faults or women that we dislike intensely who are malicious.
+- Vita Sackville-West is one of my favorite female icons. She was a writer and a prolific gardener, but she also had a relationship with Virginia Woolf, and she was married to Sir Harold Nicolson. She was a woman who lived outside of norms.
+- I quite like looking mucky; it's quite nice not having to care about how you look.
+- I would chance saying globally there is a feeling that female empowerment has, at last, become a topic that is fashionable, and more power to that.
+- What I've always loved about gymnastics and one of the many reasons I love watching it now is the combination of skill and freedom it has - the discipline and expression - letting you dance.
+- I used to do karaoke with Patrick Woolf in a karaoke box, and he would ring me up and say, 'Come down and do karaoke with me here,' and then we'd sing Kate Bush songs and get really, really emotional and theatrical in the booth.
+- The whole format of 'Game of Thrones' is that you just don't know what to expect.
+- Going to the gym is something I haven't done regularly since I was a child.
+- I love a challenge. And I love defying limitation, gender stereotypes, and people's expectations of me as an actress.
+- I love the character of Jaime Lannister. He's just so complex - a character that we love to hate - but it's a lot more complex than hatred. It starts off, and he seems so arrogant and so smug.
+- My father always said, 'You can do anything a man can do.'
+- I trained in combat, sword fighting, horse riding... It's empowering knowing that I can a break man's nose with my elbow.
+- I'm certainly really rather tall at 6 foot 3, and I've been this way since I was 14, but for years, women who are even 5 foot 10 have come up to me in the street and said, 'Oh, it's so nice to see a woman who is taller than me. I've always felt like a giant.'
+- I'd love to work with Lena Headey, Alfie Allen, Charles Dance. I'd love to work with Peter Dinklage.
+- My pseudonym is 'George R. R. Martin.' That guy's just an actor.
+- I absolutely love to relax and have fun. I like socializing; I like chatting. I like dancing, mixing with friends.
+- I train three, four, five times a week, protein six times a day, resistance training for at least 45 minutes... it's so very boring. It's really painful. It's laborious.
+- There's so many parts of my life that I've struggled with - that so many millions of others struggled with - about being an outsider, about feeling ugly, about having to overcome looking different to other people.
+- It's very hard as a tall woman to remove your deliberately pronounced feminine aspects and look more masculine.
+- I've always been able to look very different very easily.
+- I don't know, so much of women's femininity is tied up with their hair.
+- I am still a person with a sense of superficiality that I'm trying to challenge.
+- I loved working with Michelle Fairley.
+- I like to explore characters who are very different to me, or varied parts are very similar to me.
+- I love being tall. as you literally look at life from a different perspective: it's easier to breeze through life's turmoils; there's more room to breathe.
+- Occasionally I get messages from women saying that I've brought them some joy, and that's unbelievably thrilling.
+- Part of the reason why I love acting is that you do hope that somehow your work will connect to people and somehow expand their consciousness somewhat, and being able to challenge notions of prejudice through work - through my work - is really thrilling.
+- I think everybody has the capacity for change.
+- I was a semi-professional gymnast as a child. I did rhythmic gymnastics, but I sustained an injury and strained all the muscles in my spine.
+- Terry Gilliam is someone I'd always deeply admired. I saw his films when I was a child.
+- I don't really have any interest in playing the same part again and again. Let's just keep everything crossed that doesn't happen.
+- The countryside in Belfast is beautiful. No technical wizardry is needed to show quite how glorious it is in its natural state.
+- I do all my own stunts and come away with bruises and scratches.
+- I absolutely love Oprah Winfrey. What a great woman and a great businesswoman. She seems to really campaign for an expansion of global consciousness. I think she's phenomenal.
+- I think everyone loves a slash of red lipstick.
+- As a woman, we all want to feel attractive. We all want to feel that we're making the very best of ourselves so we can accept ourselves.
+- I like to be comfortable. And I don't like to have to worry about having to adjust things if things are too short; I don't want to feel self conscious, so I like to wear things that make me feel empowered.
+- I only ever wanted to be a model. This acting thing - three years of drama school - is an accident!
+- People come up to me and say, 'You look so much better in real life.'
+- My parents treated my height as a wonderful thing to be celebrated, but also normal.
+- I enjoy knocking around with the boys.
+- Genuine and true love is so rare that when you encounter it in any form, it's a wonderful thing, to be utterly cherished in whatever form it takes.
+- Everyone has something that defines them, whether they're wildly intelligent or whether they have really big feet.
+- Rory McCann is an amazing actor and a very strong man.
+- The beauty of existence is that we get past the superficialities and material world and hopefully move into - lord - hopefully a bit of depth.
+- I've always liked fairy tale and spectacle. I wouldn't say I was a fantasy fan, but anything beyond reality I've always found exciting - the work of David Lynch, the work of Tim Burton. But for me, I also love those things that are absolutely about human relationships.

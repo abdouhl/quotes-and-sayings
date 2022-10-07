@@ -1,0 +1,106 @@
++++
+author = "Steve Hilton"
+title = "Steve Hilton Quotes"
+quotes_len = "100"
+description = "the best 100 Steve Hilton Quotes"
++++
+- I think that Corbyn's success, just as the success of Bernie Sanders and Donald Trump, is a reflection of this frustration that people have that whatever they do, in terms of voting for different parties, nothing much seems to change.
+- Brexit was, at its heart, about democracy and sovereignty.
+- In the E.U., the initiation of policy comes from the European Commission - not the European parliament, the European Commission, an appointed body; a committee of 27 countries where everything is haggled away.
+- Most countries in the world are not in the E.U. I think Britain, the world's fifth largest economy, can cope with life outside.
+- Any reasonable person looking at the policy results... the substance... the facts would agree that the Trump presidency is one of the most successful in American history.
+- There are a number of people who are not in the workforce who have given up looking for jobs, and that's the real economic crisis in America.
+- Kamala Harris is a serious person who as California attorney general tried to tackle tough social problems in a way that most conservatives would support.
+- The idea that Donald Trump committed an abuse of power by bringing politics into a foreign relationship is a joke. They all do it. Trump is just more open about it.
+- With President Trump, we've seen the lowest ever African-American and Hispanic unemployment.
+- In the spring of 2012, I moved to the San Francisco bay area with my wife and two young sons.
+- Mayors are accountable in the way a council is not. Who can name their local councillor?
+- My parents are Hungarian.
+- People are really looking for greater sense of control of what happens in their lives, about the issues they really care about, and they feel that the political system doesn't necessarily deliver.
+- I listen to NPR a lot. And I can tell you that Mary Louise Kelly is one of the very few hosts on there who actually seems fair and is not totally biased against President Trump.
+- I do not own a cellphone; I do not use a cellphone. I do not have a phone. No. Phone. Not even an old-fashioned dumb one. Nothing.
+- The best thing America can do to put the Middle East on a path that leads to more democracy, less terrorism, human rights and economic growth is to get the hell out of there while showing an absolute crystal clear determination to defend American interests with force whenever they are threatened.
+- The Democrats are up to their necks in foreign meddling. Nancy Pelosi took money from Ukraine lobbyists. Chuck Schumer took money from Saudi Arabia and Mexico.
+- China never had good intentions. Since the late 1980s, its stated aim has been world domination, technologically and militarily.
+- You see it with Brexit, you see it in Donald Trump's election, you see it with the fact that neither of the main parties ended up in the final round of the French presidential election, you see it with the Italian referendum being defeated, you see it in a lot of ways - the political revolution.
+- Forget about war or disease or poverty. The apocalypse is when America's elected president is no longer supervised by the unelected ruling establishment.
+- We must not let the panicky Wall Street wheeler-dealers and the Trump-hating establishment state media talk us into a recession. We must keep the focus on the real economy, not the fake economy.
+- Elizabeth Warren never stops raising the alarm about climate change and raging about the billionaires.
+- Our democracies are increasingly captured by a ruling class that seeks to perpetuate its privileges.
+- There's an ideological belief on the left that you should not use nonpartisan tools.
+- People have described my proposal to ban smartphones for kids as mad, but why would we want children to have unsupervised access to the Internet? I predict most of my 'far-out' ideas will be the norm before long.
+- I don't have a smart phone. I didn't have one when I arrived in the U.S., and somehow life has continued. I teach at Stanford University, I launched a tech company - miraculously, it all seems to work without a phone!
+- What's interesting is that you've got a lot of overlap between supporters of different parties and different candidates who feel regardless of who's been in power, the rich have got richer and half the country's got poorer.
+- When Corbyn was elected, I found there was a lot to welcome there.
+- Obama never listened to anyone, always thought he was smarter than every expert in the room, and treated every meeting as an opportunity to lecture everyone else. This led to real-world disasters, like Syria and the rise of Isis.
+- I think the only way to actually move China in a positive direction is to disengage from China, to decouple our economy, our cultural ties, our sporting ties so that you put pressure on their regime.
+- Most parents don't want their kids to have smartphones in the first place. But parents worry about the social stigma of their child being the only one without a phone.
+- The entire debate around a 'No Deal' Brexit assigns a vastly overstated importance to the role of government in daily life.
+- As I have consistently argued, leaving the E.U. needs to be accompanied by a strong set of pro-enterprise policies to counteract any disruption: cut corporate taxes to make the U.K. an attractive destination for business and investment.
+- After Trump, it will be a different Republican party... and for American workers, families, and communities, that is fantastic news.
+- What typically happens in government is the exact opposite of how things should work.
+- I am the host of 'The Next Revolution' on Fox News.
+- I'm in favour of entrepreneurial, risk-taking businesses that create great products and services.
+- President Trump is the first western leader in 50 years to stand up to China.
+- The biggest threat to our economy comes from the loony left economic policies of the Democrats, which would scare off investment and bring back stagnation.
+- These Wall Street types, they're not exactly the kind of people you want your children turning into. They're really not very smart. They're certainly not thoughtful or kind. They're often poorly-educated, mostly ignorant and always self-interested and greedy.
+- Winston Churchill famously said that meeting jaw-to-jaw is better than war. With Trump, the strategy seems to be jobs jobs jobs - at home and abroad.
+- In America, economic, cultural and political power is dispersed. In the U.K., centralisation is a gift to the vested interests.
+- President Trump is trying to avoid war through economic pressure. Our so-called allies are undermining that pressure and in the process making war more likely.
+- For decades, without so much as a peep from the Trump-hating establishment, China manipulated its currency and stole American technology.
+- Establishment idiots say the Trump tax cuts only helped the rich. Don't they understand anything about economics?
+- A lot of people are driven by an interest by one particular issue or a small number of specific issues rather than a candidate or a party or something broader.
+- I'd love to have Bernie Sanders and Donald Trump together. How amazing would that be?
+- The most important thing about a candidate is not their promises - those hardly ever get delivered anyway. It's about how they would respond to unpredictable future events. And that's about their character.
+- What's going on for half the country? Who's lost out? The victims of elitist agenda; standing up for them, being a voice for them. That's the idea behind positive populism, that's what drives the content.
+- What I love about California is this attitude of being supportive and positive about things. When you tell someone your idea, the answer is: 'Great, how can I help?' not 'Well that's not going to work.'
+- In any discussion of technology, you hear the same argument: You can't turn the clock back and you can't put the genie back in the bottle. Maybe not. But there are steps we can take to limit the social harm caused by this industry, just like we do with others.
+- I think what people are really crying out for is simple information they can trust when they're bombarded by attack ads, fundraising pitchers and all sort of comment and opinion all over the place increasingly.
+- Thinking back to my time in the U.K., before the election and then working in the British government, the thing that has really driven me is this idea of giving power to people and taking power out of the hands of those who try and grab it all for themselves.
+- Rudy Giuliani was a great mayor and a great leader, but he has turned into an unmitigated - and now, it seems, unethical - disaster.
+- Factories are often at the heart of a community.
+- The Trump economy is fundamentally strong and delivering good jobs and higher earnings for the working Americans who suffered in the years of stagnation.
+- It's a human thing to want to spend time with people you know well.
+- A lot of the foundational philosophical approaches of tech leaders are actually all about decentralization of power.
+- Surely everyone can agree that immigration should be controlled.
+- Trump makes really, really powerful arguments, for example in relation to healthcare. He talks about the cartels and the concentration of power and the health insurance companies effectively having monopolies and ripping people off.
+- Leaving the E.U. enables the U.K. to be more engaged with the global economy, not just the European economy.
+- The left has become increasingly dogmatic on immigration. Any position short of supporting open borders is described as racist. That's nonsensical.
+- On Russia, President Trump reverses the weakness of Obama, who turned a blind eye as Putin marched into Crimea and Ukraine by hitting Putin where it hurts - on energy.
+- Straight out of college, I worked at the Conservative Party but that was just a couple of years.
+- In business, there's a saying: 'Disagree and commit.' It means that everyone should speak up before a decision is made. But once the boss has decided, you all get behind it to make it happen.
+- I never understood how, when if so many businesses can make a profit delivering services and products to state education, you could not take it further and allow for-profit operators to run some schools. Most people care about good outcomes, not whether something is for-profit or not.
+- I'm an unelected adviser. I can't insist on my way.
+- Most of the time, I get around perfectly well on my bike and public transportation, even in spite of the Bay Area's almost comically shambolic system.
+- My old boss, former British prime minister David Cameron, thought Obama was one of the most narcissistic, self-absorbed people he'd ever dealt with.
+- For the next generation, focused on the future, the E.U. is as weird and old-fashioned as having a landline.
+- Just as we ban smoking and drinking for under 16, because we want to shield young people from their harmful effects, we should do the same for smartphones.
+- Crowdpac is what I'm passionate about. I want to see it develop and grow, and I'm not really thinking anything except a long-term future for this business - but more importantly, for what this business can do for the long-term future of America.
+- You know, putting power in people's hands was the central idea of the conservative platform. And so, to me, the E.U. was the direct opposite of that, and totally inconsistent.
+- I was on my bike, cycling to Stanford, and it struck me that a week had gone by without my having a phone. And everything was just fine. Better than fine, actually. I felt more relaxed, carefree, happier.
+- You can do business with America or the authoritarian dictators of Beijing, who oppress their own people, put millions of Muslims in concentration camps, and are rolling out a new and insidious colonialism around the world with their rapacious belt and road infrastructure program. Which side are you on, Britain? Canada? The EU? You choose.
+- The West's involvement in the Middle East has been a disaster from the start... and finally, with President Trump, America is in a position to bring it to an end.
+- Membership of the E.U. makes Britain literally ungovernable, in the sense that no administration elected by the people can govern the country.
+- Joe Biden is compromised by China. He has taken billions of dollars from the Chinese government in the form of payments to his son's businesses.
+- Bernie Sanders is a serious person with a lifetime of consistent campaigning on principle.
+- What's not OK is using government policy and taxpayer dollars to push for an investigation if the motivation is purely political.
+- I think much of the media is decadent in the sense that the people who are producing the coverage, they themselves live very comfortable lives.
+- Look, I'm not expecting the establishment to suddenly open their arms to Donald Trump. But considering their own role in creating the long-term challenges that this president is now addressing, could they just show a little humility before embarking on their next Trump-hating rant?
+- Whatever else people knew about Donald Trump going into 2016, it was obvious he was strong. He said what he thought, no matter who it offended.
+- As far as I'm concerned, when the Queen, who we all love very much, is finished with her reign then Britain should go and stop being a banana republic as it is when we have the royal family and become a real republic.
+- The people who typically tell the story of what's going on in America are from the booming parts of America. The presentation of issues is colored by that.
+- It's the smartphone that has turned adults and children alike into tech-addicted zombies, dumbly swiping and jabbing at their screens, oblivious to the world around them.
+- The Democrats' obsession with scandal is out of touch and decadent. People want substance, not scandal.
+- This is the Trump revolution. Pragmatic. Non-ideological. He approaches issues as a businessman. It's a revolution in ideas and it goes way beyond foreign policy.
+- For years we've had leaders who promised to end America's costly wars, only to cave in to the establishment view.
+- With President Trump, we see income growth in states like Iowa, Ohio, Pennsylvania, Wisconsin, Nevada, Florida - wing states that went to Trump in 2016 because he promised not to forget about them, like the establishment had done for decades. And their trust in President Trump quite literally paid off as they saw their incomes rise.
+- There has been this slightly naive and perhaps arrogant view that technology can completely reinvent the political system and the way that government and politics works, which is ridiculous.
+- The Committee to Save America. Have you ever heard anything more smug, more pompous but - most importantly - more anti-democratic? Because it turns out that the Committee to Save America was really the Committee to Save the American Establishment.
+- One of the central planks of China's stated plan for world domination is their Belt and Road Initiative, which makes countries around the world dependent on China for vital infrastructure.
+- It's hard to pin me down because I'm a bit of Bernie Sanders, a bit of Rand Paul, bit of John Kasich.
+- I don't think for one second anyone believes the 'Washington Post' and 'New York Times' are anything but aggressively against Trump.
+- We didn't move here so I could save American democracy. But I've embraced it with the zeal of a convert.
+- On issue after issue, yes, Trump is barging in. Yes, he is throwing out the old playbook. It's called change, and unlike Obama, who talked endlessly about change, President Trump is actually delivering it.
+- I don't really care much about what the top one per cent earn. The gap we ought to care about in wealth is between the middle and the bottom.
+- Even when they are trying to deceive the voters, the Democrats are incompetent.
+- Abolish the monarchy. That is my populist take.

@@ -1,0 +1,62 @@
++++
+author = "Shemar Moore"
+title = "Shemar Moore Quotes"
+quotes_len = "56"
+description = "the best 56 Shemar Moore Quotes"
++++
+- I don't want to be an old dad.
+- But I got drafted out of high school, and my mother wasn't having it. She was like, you're not about to think that you can just play ball, because if you get hurt, you're going to be out of luck.
+- Baseball player. Yeah, that was my dream before acting, or alongside acting.
+- I'm a drama guy.
+- I say I'm not shy, but... Acting is a very vulnerable experience, and you've got to be really confident to put yourself out there to be judged.
+- It's no accident that I'm not married and don't have kids yet.
+- I still have shy qualities but nobody would believe that, just because we're in the forefront and I can talk a lot of mess and I can run my mouth.
+- I do like working out. I feel my best when I work out, but you know, I'm human. I like to ride my bicycle and lift weights and hike. When I am diligently working out, ideally, I like to work out four days a week. If I can do that, I feel good about myself.
+- I don't see myself as a 'black actor,' I'm just Shemar Moore the actor. I'm very proud to be black, but I'm just as much black as I am white.
+- And a lesson in this movie is dig beneath the surface. And so with my words, with my character, I purposely created a character that was away from how you've known me thus far in my career.
+- But there are still good shows like 24, Boomtown and the Wire, the Shield.
+- What I love about 'Criminal Minds' is that Morgan is an ex-marine, ex-SWAT. To do those things you have to be a pretty badass dude. It's a great incentive to stay in shape.
+- I'm raised by a single mom and didn't have pops around for the most part of my life. And she, by any means necessary, gave me the best opportunities that she knew how to give me.
+- I loved running. I can catch everything in the outfield. I could throw people out from the fence.
+- Acting is therapeutic.
+- I hosted Soul train but I listen to everything.
+- Acting is therapeutic. I say I'm not shy, but... Acting is a very vulnerable experience, and you've got to be really confident to put yourself out there to be judged.
+- There are days when I feel confident, and I feel like, 'OK, this outfit looks nice, I look good, I'm in shape.' But I'm never going to walk out the house trying to be sexy, because that to me is cheesy and not attractive.
+- After eight years on 'Young and the Restless' and eight years on 'Criminal Minds,' I'm ready for that next phase of my career.
+- When I do tie the knot, it will be one time, for good.
+- I wanna chase down Denzel Washington, Jamie Foxx, Will Smith. I would love to start my film career.
+- Kim Kardashian is a major player coming off of a reality show, and nobody can turn a blind eye to what she's accomplished, no matter how you see her.
+- Because I could throw so hard when I got to college, they made me a pitcher. If I had to it all over again, I would have stuck to playing in the outfield. I loved running. I can catch everything in the outfield. I could throw people out from the fence.
+- Although I have a lot of close female friends in my life, my number one is still my mom. Without her, I wouldn't have the values that I have and see the world the way that I do today. She taught me how to appreciate and respect women. She taught me chivalry and how to love a woman and respect their feelings and emotions.
+- I know that on my own sites, a picture of me with my mom or me with my dog does well, but when I put up a picture of myself shirtless, it does get a little crazy.
+- That's because I didn't have to work with Madea. I only had to work with Madea once, and that was at the barbecue and I didn't have to get close to her.
+- Let a woman have her place, because as you provide foundation for her, she provides a foundation for you. And through that vulnerability comes strength.
+- I got country music in me.
+- I don't see myself as a 'black actor,' I'm just Shemar Moore the actor.
+- Hopefully when you see the movie, Maybe you don't have the Orlando in your life, but you know that guy. He goes to church. He's down the street. He's one of the boys at the schoolyard. They exist.
+- I could run, but I was throwing 93 mph coming out of high school.
+- I always speak so highly of my mom because she's my partner in crime, and none of this would be possible without her love and support. Always have to make time for Mom.
+- Denzel has been that leading man, but it took him a while to get to Training Day and Hurricane Carter.
+- I'm not saying that I am all of my characters, but for me to bring a character to life, you've got to be able to find your own truth.
+- Television is in a different time because of reality television, so it's not as exciting.
+- You know, I don't play the race card a lot. I'm half-black, half-white, and I'm proud of - my skin is brown. The world sees me as a black man, but my mother didn't raise me as a black man. She didn't raise me as a white guy.
+- I'm very proud to be black, but I'm just as much black as I am white. But I want tell stories that everybody can relate to, so I don't care who's opposite me.
+- But because I could throw so hard when I got to college they made me a pitcher.
+- Celebrities have more influence to be able to reach out to people, but people are becoming famous on Facebook and social media every day.
+- It was truly a lesson in don't take something at face value. You know, so many of us do in life. Whether it's because of how somebody looks or because of what they're wearing or what have you, you kind of assess a person in the first five minutes before they even speak.
+- I could describe my career in two words: who knew. I was on the path to becoming a professional baseball player, but I got injured in college. When I decided to move out to L.A. to try acting, nobody was betting on me, not even my family. But it's always been that way for me; nothing has come easy.
+- I admire Brad Pitt, honestly, just because of how he started and the obstacles he had to overcome to have the career that he's had.
+- I could describe my career in two words: who knew. I was on the path to becoming a professional baseball player, but I got injured in college. When I decided to move out to L.A. to try acting, nobody was betting on me, not even my family.
+- Whether it's because of how somebody looks or because of what they're wearing, you kind of assess a person in the first five minutes before they even speak.
+- We never get enough of falling in love and believing in love.
+- It's no accident that I'm not married and don't have kids yet. Because, despite what I've achieved in my career, I'm always wondering when somebody's gonna tap me on the shoulder and say, 'OK, the gig is up.'
+- I think because people are passing - people that we are aware of are passing at - I don't say a great pace, but it seems like people are dropping, and I think it's just making - there's a consciousness and there's sensitivity to it.
+- I'm not a machine. I get really motivated, then I fall off the wagon and want to eat Chinese food and sit on my couch and gain five or 10 pounds!
+- Each morning needs to start with a good sweat. I'm either working out at home or on set, depending on my call time.
+- I got rock in me.
+- I want a partner in crime and a Bonnie to my Clyde. I've just been so focused on my career. Women don't like being number two, so I've been glad to keep my distance so I could focus on me, get my life together and take care of my mom without disappointing the woman I love.
+- Well, you can't compete with a six foot five man in a wig.
+- Orlando's a part of me. The next guy's a part of me. And the next guy's a part of me. That's all I'm trying to do, is tell cool stories that people can relate to.
+- No week is ever the same in my world! An average week in my life changes based on my shooting schedule, if I'm promoting a project, or anything else I have going on.
+- Now that I've established myself in a drama, I'm plugging away, trying to get the attention of people who do the independent movies and the features.
+- I like to make money; I like to have nice things. But I love to act; I love to tell stories.

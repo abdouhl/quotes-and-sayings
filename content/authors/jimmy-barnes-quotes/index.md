@@ -1,0 +1,106 @@
++++
+author = "Jimmy Barnes"
+title = "Jimmy Barnes Quotes"
+quotes_len = "100"
+description = "the best 100 Jimmy Barnes Quotes"
++++
+- Everything that happened to me as a child was the perfect breeding ground for a rock n' roll singer. It toughened me up. I was on edge; I was needy. I needed people to like me 'cause it made me feel safe... and that gave me confidence.
+- I'm not running out of inspiration.
+- One of my major regrets was that period in my life where I wasn't present in my kids' life. I was in another world.
+- You see politicians talking about negative gearing or tax on your second home - most people I knew growing up couldn't afford the rent, let alone buying a house, or a second house.
+- I love my mum and dad, but they were shocking providers and carers.
+- Most people I know think that I'm crazy - but anybody who actually knew Billy Thorpe didn't think that. When I was a young kid growing up in Adelaide, he was a big pop star - a well-dressed, nice young guy seen on television every week. Mums liked him.
+- I think I got stamina from my dad, although he didn't have a lot of drive.
+- Partners fall in and out of love, but they still need each other.
+- There's something about the energy and the expectations that an audience projects at you. I get up on stage and work and work, and there's chaos all around me, then I'll shut my eyes, and boom! I slot into the zone. It's like the eye of the hurricane. Everything is easy, and I'm capable of doing things I didn't know I was.
+- I like people of faith, and I believe the more people who have spirituality, the better the world will be. It's about peace and tolerance.
+- All the religions are basically good, but there's something about organised religion that leads to corruptness and poison.
+- I find that cooking is relaxing and makes me feel at home.
+- I never take for granted how great Australia is and how well I have been treated here, so thank you for this chance at making a good life.
+- I wanted my children to never feel like they were unsafe. I wanted them to have everything they needed.
+- I learned that the public and the press don't need to know everything about you, or they might turn on you.
+- For a long time, it was all about chart position. 'If my record doesn't come in at No. 1, I'm a failure.' I cared too much about what people thought of me, and that was symptomatic of the trauma from my childhood.
+- I've been writing books because it's been my way of dealing with the demons. The act of sitting down and writing the books down has started healing process that's been long overdue.
+- I love playing live.
+- If there was one thing I tried to instil in my children as they were growing up, it was that you get nothing for nothing. You have to work hard to get any rewards. That applies in music or whatever you choose to do. The same goes in relationships; you will only get back what you put in.
+- I was lucky I was blessed with the constitution of a horse.
+- Jane and I - somehow we fell into each other's arms, and I adored her! I loved her from the minute I saw her. I don't think I knew what love was.
+- In the 1970s, we got a Labor government that put more emphasis on trade with Asia; the Vietnam war ended, and refugees were coming in. We were more part of Asia than America and the rest of the world. There was the proximity, for a start - all these countries and cultures just north of us. It just made sense that that's what we were part of.
+- I'm really happy with the way I am, and I've got a fantastic family and a great life, and I don't need anything else.
+- I'm happy to be recording and singing live. I have a great family, and a great bunch of people always come and see me sing. What more does a man need?
+- I was probably born an alcoholic.
+- No matter what day we celebrate Australia Day, let's celebrate it together and give thanks to the original inhabitants of this vast country. We are lucky to be sharing it with them.
+- I used to think I was tough, but there's a difference between bravado and courage, and I only started to show courage when I began to get help. So now I make a point of telling people, 'Hey, it's a good thing to ask for help, not a bad thing.'
+- I came from a tough childhood. There was a lot of stuff that I'd actually forgotten or that I'd blocked or hidden away until I started addressing it.
+- I think tax is tough in this country. Every time I sign a cheque to pay tax, it drives me crazy. But at the same time, I'm happy to live here. I want to have a good medical system, good education, good roads, so it's a Catch 22. I hate it, but it's a necessary evil.
+- We're a whole country full of migrants - we need each other, and we should help each other.
+- Jim Swan was my father, but Reg Barnes was my dad.
+- I'm an immigrant.
+- My dad was a womaniser, a gambler. He was violent. They thought if they left Scotland, they would leave the problems behind.
+- I sat in on some songwriting classes, and it was really bloody hard, a lot of music theory. I'd be sitting there, and they'd be talking all this music theory, and the teacher would say, 'Let's ask our guest Jimmy what he thinks,' and I'd be sitting there thinking, 'Please don't ask me, please don't ask me.'
+- I'm one of those people who can't sit still. I like to be doing something. I cook; I've been painting.
+- I grew up in poverty. I was ashamed of the fact, when we were kids, we'd be at school hungry, our stomachs rumbling so we couldn't concentrate.
+- Everything affects you, and it doesn't measure how tough you are by being a rock and sitting by yourself. People need to talk. It's not a sign of weakness.
+- 'Working Class Man' is my second memoir and is a continuation of my story from where 'Working Class Boy' left off. The book is really an attempt at explaining the impact of my childhood on myself and the ones I loved as an adult.
+- Kids grow up, and they still need you.
+- I was actually wilder before I joined Cold Chisel. I was really wild.
+- I keep my Scottish connection. I know where I was born, and that's an important part of my history, and I think all immigrants are the same. But if I could live anywhere in the world, it would be Australia.
+- I always wanted to be in a rock band, but I wanted to sing like a soul singer.
+- There are new children arriving and trying to reach our lucky country every day, and I hope that we can all work together to help them find their dream, too.
+- No matter how much poverty you grow up with, you shouldn't be subjected to violence and abuse.
+- When I hear a singer, I want them to be passionate and intense, and soul singers like Otis Redding and Wilson Pickett always seemed to do exactly that.
+- The Internet has been a godsend and a nightmare for the music industry.
+- The best thing about this country is the difference in all of us. We all come from different backgrounds. It's a really beautiful thing.
+- Where I lived in Glasgow looked like Dresden after the war. It was a bomb site. I don't think I'd ever played football on grass until I moved to Australia.
+- People change naturally when they have children.
+- When I first started, all the reviews of Cold Chisel would say, 'This singer won't have a voice in six months.'
+- I think it's criminal the way poverty is allowed to flourish.
+- If anything, I label myself as sort of Buddhist. My wife Jane is Buddhist.
+- Life is good.
+- Don't take your friends for granted or that everyone is going to be OK.
+- We all do the best with what we have.
+- We still had all our problems growing up as a struggling immigrant family, but Australia was like a breath of fresh air, literally. Playing on grass, having good schools - trees. I didn't even know trees where I'd come from. So from the day I got here, I've loved Australia.
+- In 1972, I climbed out of my bedroom window and ran away from home with my older sister and her friends to go to the infamous Sunbury rock festival.
+- I was not an ideal parent, and there were things that I did right and things I did wrong.
+- I used to think anyone with abandonment issues was a waste of space. But you do need to get help. Blokes don't talk about those things. It's a taboo in the bloke world.
+- When I was 18 in Cold Chisel, I didn't want to make it to 21. Who wants to be that old?
+- Songs are like sign posts in my life.
+- Thais are one of the nicest people I've ever met. It's not called the land of smiles for nothing.
+- I can't stand a house to be dirty or even messy, even. I am a bit OCD. Wash the dishes when you finish eating.
+- I got to 25, and I thought, 'I'm never going to make 30.' But now I look at it like... if you can remain true to what you do, I don't see why you can't keep doing it.
+- It's one of the beautiful things about Australia that people do get to share this life here, away from trouble.
+- My childhood in Adelaide was filled with sport. I played soccer from morning until night.
+- Success isn't about reaching your goals; it's about striving for things, like the joy of trying to raise a family, trying to be a successful singer, trying to write good songs, trying to be a better person. It's that old thing about life being about the journey, not the destination.
+- For me, 'Soul Deep' wasn't an easy thing to do.
+- My dad was a quiet assassin. He was really charming and smiley and softly spoken, but he could knock you out in a second.
+- The best times in Cold Chisel were when we were all in the back of the car together, us against the world.
+- I hate fear politics.
+- Kids are the best thing ever.
+- Politicians have been spreading fear, saying if we're letting in refugees, we're letting in terrorists. It's not the truth. We've got to recognise the difference between terrorism and people who are refugees; people who are struggling.
+- I used to think that if someone asked for help, they were weak. But the toughest thing I ever did was reach out and ask for help. And that was when I started to heal.
+- I'm hyperactive.
+- I have always loved soul singers.
+- It's a real bloke thing, not talking to people because it's not manly to get help.
+- My family were very poor. We never owned a house, in fact, we were lucky if we could afford the rent. So when I bought my first home, it was a very emotional time for me.
+- My dad was a prize fighter in his youth. My boxing skills are very limited. I did train for most of my youth but couldn't really see the point of getting punched in the head. I'm a lover, not a fighter, but I do enjoy the sport in its purest form. As a child, my heroes were my dad and Muhammad Ali.
+- I've had a lot of ups and a lot of downs, but I don't look back on anything with regret.
+- I love spending money. I always have.
+- I have done a lot of great things. I have a beautiful family and wonderful friends. But there were many times, dark times, that I almost let it all slip through my fingers.
+- I wouldn't give Peter Dutton any of my time. It's a waste of time speaking to someone like him because they just spread lies and propaganda. He doesn't represent me, he doesn't care about people, and I wouldn't give him the time of day, to tell you the truth.
+- I always thought I could be brave and charge at things and smash 'em and walk away, but it takes courage to sit and look at things and say, 'This is what I am. How do I fix it? How do I live with it?'
+- I know I've made a lot of mistakes, but I've done some good things along the way.
+- Around 2001, I went to rehab in Arizona, and I started to see what was going on and how the past affected me. I started to get a grip on it. But over the next decade, I reverted to the behaviour I used to protect myself when I was young - being mindless, being defeatist and full of bravado.
+- I know that life is full of lessons to be learned, and my children will have to learn their own, but I hope I have broken the cycle of shame and fear that plagued my childhood.
+- My mum and dad came from lower-working-class Glasgow, which was tough. Literally, if you see a cat there with a tail, it's a tourist.
+- Cold Chisel had their moments, but basically, they were all decent, quiet chaps. I was just a lunatic. Those guys didn't know what had hit them when I joined the band.
+- Iggy Pop is legendary - he is awesome - and I am a massive Bruce Springsteen fan. His song 'Cautious Man' is my favourite song. It's really poignant, dark, and moody, like myself.
+- I come from a multicultural family. My wife's Thai. My children are half-Asian, half-Scottish; we're all immigrants.
+- I have very strong memories of my early years. In fact, I remember the house I was born in, and we moved from that house when I was less than ten months old. I have drawn pictures of it and shown my mother, and she was shocked because we have no photos of the place, and I was very accurate.
+- I'm good at maintaining a face. If you've got that bravado, and people expect anything from you, then you'll get away with anything.
+- The music industry is quite brutal and quite harsh and can be spirit shattering, but it's an honour to be a musician because your job is to make sure people enjoy themselves; to make people forget about their troubles.
+- You should fight for every breath you have.
+- Where I grew up, there were times when we didn't have anything to eat.
+- As a teenager, I didn't really think about anything. I was just stumbling around trying to find something.
+- I don't want to become a laid-back artist by any stretch of the imagination.
+- When I came to Australia, it was like heaven.
+- When you get behind with the tax department, it's very difficult to catch up.

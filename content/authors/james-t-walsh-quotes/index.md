@@ -1,0 +1,24 @@
++++
+author = "James T. Walsh"
+title = "James T. Walsh Quotes"
+quotes_len = "18"
+description = "the best 18 James T. Walsh Quotes"
++++
+- Medicaid is a vital safety net for New York's poor and vulnerable, young and old alike.
+- Everyone agrees that our ultimate goal is to establish a free, open and democratic Iraqi government and bring our men and women in uniform home as soon as possible.
+- The Children's Safety Act will help protect children from the perpetrators of these vile crimes by strengthening notification requirements for sex offenders and increasing criminal penalties.
+- For far too long, the people of Northern Ireland have been denied an equal voice and equal representation in government. It is time for the Assembly and Executive to be up and running and the people's business to be addressed.
+- And yet 50 percent of the kids who start high school in the United States today do not finish high school.
+- As a civil rights leader, Mrs. King's vision of racial peace and nonviolent social change was a fortifying staple in advancing the civil rights movement.
+- The sexual abuse and exploitation of children is one of the most vicious crimes conceivable, a violation of mankind's most basic duty to protect the innocent.
+- How we continue to fund Medicare and Medicaid into the future is a pressing issue of national concern.
+- We have a responsibility to make sure that the limited resources we have are spent efficiently and effectively and that programs achieve their mission.
+- Any Congressional agreement of an arbitrary time table to bring our troops home before we have accomplished our mission is unacceptable and could potentially increase the risk to our soldiers.
+- Our soldiers have done a valiant effort in fighting terrorism and bringing a semblance of law and order to the chaos in the region and it would be shortsighted to lay out a specific timetable to bring U.S. troops home prematurely before their mission is accomplished.
+- Rest assured that my support for any eventual reform package will be based firmly upon what is in the best interests of the people of Upstate New York, not any party or president.
+- Looking long term, a stronger, wealthier, and more stable Central America next door benefits the United States' own safety, security, and economy.
+- For as long as this nation has known war, we have embraced the heroes it has produced. Americans have rightfully noted the honor and nobility of courage under hostile fire and thanked those who perished in their defense.
+- The IRA has abandoned its armed struggle in pursuit of its goals by political means. This must be fully acknowledged. Continued challenge does nothing but obstruct and inhibit the peace process.
+- And because of these programs like Medicare, Medicare prescription drugs, Social Security, we now have the healthiest and wealthiest group of senior citizens that the world has ever seen. This is a continuing commitment to that.
+- What they will try to do is get symbolic victories. Symbolism is important to them. They have little else. But they will strike, I believe, at centers of media, of financial, of American power, of American culture; and that is where we should place our bet.
+- I do not believe that the Social Security system is in crisis. The Social Security Administration itself recently reported that the system is able to pay full benefits as they are defined today until at least 2042.

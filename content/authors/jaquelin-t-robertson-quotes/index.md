@@ -1,0 +1,15 @@
++++
+author = "Jaquelin T. Robertson"
+title = "Jaquelin T. Robertson Quotes"
+quotes_len = "9"
+description = "the best 9 Jaquelin T. Robertson Quotes"
++++
+- A house isn't really understandable until it settles into the site: until it's built, furnished and lived in for four or five years. The reality is not on paper but in how a building sits on the land - how it relates to trees, to slopes, to water, to gardens.
+- I always say, 'What if you had to sell the house tomorrow?' And if it's too idiosyncratic, someone won't buy it and then it's a bad house.
+- I'm not interested in placing my signature on a house but would rather it be a signature of the place it's located.
+- Light is what gives joy to buildings.
+- How do you walk from one place to another? What makes you want to walk someplace? Any place that you want to get out of your car and walk is a good place by definition.
+- I'm interested in the gene bank of how Americans have built in different regions in different times.
+- I spent a lot of time on farms when I was growing up, and I've been obsessed with the practical logic of farmyards - the turning radius of tractors, where the chickens and ducks might go. It's not a place where stand-alone aesthetic decisions make a lot of sense.
+- Good buildings make and are made by their settings, and they are appropriately different in different locations. Climate, culture, topography and materials have helped create regional architectural languages that seem curiously right for their locations and for all times.
+- I continue to be interested in new things that seem old and old things that seem new.

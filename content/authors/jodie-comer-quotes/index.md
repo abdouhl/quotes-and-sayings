@@ -1,0 +1,50 @@
++++
+author = "Jodie Comer"
+title = "Jodie Comer Quotes"
+quotes_len = "44"
+description = "the best 44 Jodie Comer Quotes"
++++
+- I grew up watching Keira Knightley films nonstop, and I always admired period dramas and just everything that goes into it.
+- I'm constantly learning with each new job, especially about people, which is important for playing characters.
+- Yoga really destresses me.
+- A movie that makes me cry every time is 'Billy Elliot.' That scene where he's dancing in the hall, and his dad walks in. And the first time his dad can see how amazing he is dancing, but he's so conflicted with kind of his own feelings towards it. Oh, it's so emotional.
+- It's going to be very, very different from 'The White Queen.' Rather than it being a follow-up, I think 'The White Princess' is definitely a standalone show.
+- When you wear the costumes in a period drama, you already feel like a different person - the clothes make you stand differently, change your posture, the way you walk. You really have to have stamina - you have two hours in hair and makeup, and then another hour to remove all that.
+- My mum used to always say to me, 'What's meant for you won't pass you by,' and it's true. If I didn't get something, it wasn't meant for me.
+- You have to be confident enough to pick yourself up and go to 30 meetings and be told no every time and not take that to heart.
+- As an actor, you have to find reasons why your character made her decisions, and you have to empathise with her.
+- I'd love to do something where I have to completely transform. Or something that is very physical and would test me with discipline in that way. Something that I'd maybe have to train for.
+- I was a natural drama queen when I was younger. I was always doing impersonations and showing off.
+- I don't speak any other languages, which I'm kind of ashamed about, actually.
+- I'm quite a happy person.
+- I always find with dramas that the more that's left to the imagination of the audience, the better.
+- I used to sing when I was into local theatre but gave it up to concentrate on dance.
+- I feel like when you perform in a period drama, it's so easy to transform yourself into someone else because the costumes are so different.
+- I'm a big believer in fate, and it's working out well so far.
+- I think, in history, we often see a false representation of women. The men are always the successors and, supposedly, of their own merit, which I don't believe to be to true.
+- My first professional audition was for a radio play in Manchester. That was the first audition that I got. It was my first paid job, which I think was, like, £150, and I thought it was megabucks.
+- I love characters who can rile an audience so much - it means you've done your job well.
+- 'The White Princess' follows Princess Lizzie, who was forced into marriage with Henry Tudor. It's kind of about how their marriage united the Yorks and the Tudors - the two families do rival but have to unite.
+- I find if my character is more glamorous, I become more conscious of what I look like.
+- Emotions fascinate me, just being able to express myself through acting. I love that. And I think, in everyday life, you're always trying to repress your emotions. Like if you're sad, you don't want to show it to someone else.
+- When you get scripts and you really enjoy reading them, you know it's a good project.
+- To read a piece of material from a period drama told from the woman's perspective is just so unique.
+- I just love making people laugh.
+- I'm really into boots.
+- You do have to challenge yourself. I think scared is a good thing.
+- I came off Snapchat. I was done with it... I think I spent too much time on it.
+- A lot of things in my career have happened by chance.
+- There's something refreshing about going into filming and not brushing your hair, letting your toenails chip, drawing darker circles under your eyes.
+- In 'The White Princess,' the women are leading the story, and they're holding everything together. It's definitely a world of women's empowerment.
+- Liverpudlians have an amazing sense of humour, and they're very loyal and warm. All my family and friends are there, so when I'm not filming, I like to go back and catch up with everyone. We're a very close family.
+- I don't know if it's the way I've been brought up or if it's because I spend so much time away that I appreciate being at home so much.
+- I feel particularly passionate about being a part of 'Rillington Place' because I've never had a job where I've felt so much responsibility and I've had to handle something with so much delicacy, because this story and these people were real.
+- I am beyond excited to be working with the BBC as part of the cast of 'Thirteen.'
+- With acting, you have to just tell the truth in each moment.
+- I don't think talent or an instinct for acting is something you can teach.
+- I think everything happens for a reason.
+- Watching 'Morvern Callar' was a game changer for me.
+- I'd done acting at a local drama school on Saturdays. I just enjoyed it. It never entered my mind I could possibly do it for a career.
+- I'd always wanted to do costume drama, but period dramas often become very wooden. Just because they're born in the 1400s, all of a sudden people start losing their sense of humour or their personalities.
+- I feel, in drama, you don't need to be fed everything. Even though sometimes when you watch, you want to know what happened and you want to see it, I feel like sometimes it's so much stronger to see the effects that those actions have had.
+- It's so nice when you go on to a job and you've worked with someone before.

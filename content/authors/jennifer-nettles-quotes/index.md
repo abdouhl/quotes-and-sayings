@@ -1,0 +1,50 @@
++++
+author = "Jennifer Nettles"
+title = "Jennifer Nettles Quotes"
+quotes_len = "44"
+description = "the best 44 Jennifer Nettles Quotes"
++++
+- As far as actresses go, I love Meryl Streep.
+- If someone is genuine, compassionate and kind, that is a turn-on. A sense of humor is a huge turn on, and that goes hand in hand with intelligence.
+- The Grammy is the highest honor in music that we can receive, outside of having fans come and watch you every night and clap.
+- Theater is definitely something that, through the course of my childhood and even in college, I enjoyed participating in. I would love to do theater, or as far as movies or television goes, if the right thing came along I would definitely entertain it.
+- 'Wicked' has such a wild fan base - like, a voracious fan base.
+- Perfectionism is really a challenge for me, and it causes me to be super-critical of myself in so many ways: about body image constantly; about parenting; about being a mother.
+- I think you have to go and fill your cup and do so diversely; otherwise, then you burn out.
+- It's important to have an examined life - but it's a fine line between having an examined life and being hypercritical of oneself. There has to be balance in there somewhere.
+- I feel simultaneously completely vulnerable and made wholly brave by becoming a parent. It has changed the way that I live my life. Because I want to be an example for my son.
+- The fun thing about 'Chicago' is that there's so much dance and, very specifically, Roxie. So you might see a little bit of Roxie on the Sugarland stage. Who knows.
+- I definitely think that, for a woman, the biggest turn-on is the mind. Otherwise, obviously you want someone who keeps up with himself and has self-respect and self-confidence.
+- I have a sweet tooth the size of Connecticut. It's a problem.
+- I really enjoy just hanging out at my house since I never get to be there.
+- I think art, more than anything else, helps humans to synthesize emotion and to synthesize parts of ourselves, so therefore, as an artist, I feel a responsibility to try and facilitate that synthesis.
+- I feel fiery in my life. I feel fiery in my art.
+- I've learned how my own perfectionism can cripple me.
+- Putting myself out there knowing I can be criticized - it's ironic, but to me, that's the most empowering thing.
+- When we were at the CMT Awards this year, Robert Plant was there. What an icon, I love him... But I can't go up and speak to him, because I don't want to seem like a goob.
+- I applaud women, and I did my best and took my time after having a kid - in a healthy way, get back to a place where I felt good in my body.
+- Music is so much more than what you wear and your hair.
+- I would love to be on 'Glee,' thus furthering the myth that I'm a gay man.
+- I remember thinking, 'Downward dog' is so not a resting pose!' Now it actually can be.
+- I love to sing 'Stay' every night... because people sing along. And they do sing along - loudly!
+- If I go way back to Loretta Lynn, I always cite her as being able to capture what I think is every woman's story... she very openly used her art as an expression of what she was going through in her life. So that authenticity is something I admire.
+- If you don't like me, don't turn your television on at the holidays, because you won't be able to escape.
+- People tattoo for different reasons. I use a tattoo as a marker of time, to be reminded of a time in my life. It is something special and personal.
+- I have this thing for British women. I love Judi Dench. I love Helen Mirren. I love these women, and I definitely do have big girl crushes on them.
+- Fans talk to me about how 'Country Christmas' has become a holiday tradition for them and that they all watch to start their holiday season. To be a part of people's holiday traditions is a real joy.
+- Having spent time on the Broadway stage definitely helps one's confidence in terms of feeling just validated in that world. Most people only know my voice as a country artist.
+- I've actually performed at Gay Pride in Atlanta three times in my career. I've always had a large gay following, particularly in the lesbian community. I am grateful for that. To me, it means my music transcends categories. It also means that I'm a cute girl singing a rock song in an alto voice!
+- You can't un-have an experience. You can deny the experience; you can process it and try to get through it, but you can't change the fact that it happened to you.
+- My outfits also need to be low-key. I'm a huge fan of boots, sandals, jeans and tank tops! Anything I can move in easily.
+- Less is more! I don't wear makeup if I don't have to.
+- I feel very grateful that I have never had to be or ever chosen to be or accidentally found myself to be in the space of the other woman.
+- We many times sell ourselves short, not only in relationships but throughout our own lives. Hopefully, we come around at some point and realize our own value.
+- One thing I know for sure - this motherhood thing is not for sissies.
+- As with most physical activity, yoga helps boost your immune system. However, it also stretches and strengthens your body simultaneously, while also balancing your mind and spirit. It benefits the whole human.
+- I think that we are so challenged as women to be everything and do everything and make it look easy.
+- I have musical ADD or something, and I get bored doing the same thing over and over. I love different sounds, different influences.
+- I had a friend write me that our music was being played at Gay Pride in New York, which is a big compliment. In the biggest city in the country with the most culture and the most grit - I love it.
+- I have always loved and continued to love Johnny Depp. Period. End of story.
+- The two questions I always ask myself are 'What if' and 'Why not?
+- The whole impetus behind going solo was an artistic inspiration in the sense that, obviously, success is fantastic. But as one becomes successful and gets branded with a certain sound, if the brand starts to become more of the focus than the evolution of the art, then that's putting the cart before the horse.
+- For my whole career, I've been a singer-slash-songwriter, even though I'm very thankfully known for my voice. Songwriting has always been a joy in my life, and to be recognized for it is extremely validating.

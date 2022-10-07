@@ -1,0 +1,67 @@
++++
+author = "Simon Schama"
+title = "Simon Schama Quotes"
+quotes_len = "61"
+description = "the best 61 Simon Schama Quotes"
++++
+- In the Einstein way, I can't believe in a universe that doesn't have some sort of prime mover, identical with all of created nature. I have a whole lot of a harder time with supposing the fine print of the Torah was a direct revelation.
+- Jewish comedy doesn't come out of nothing. Jewish music doesn't come out of nothing... I don't want to be part of a story where Jews are just victims or bullies - and I'm not saying that's what the Israelis are.
+- History is admirably dangerous. It is not the soft option. Teachers need to be grown up and brave. Sensitivity is fine, but it stops at the door of honest narrative.
+- I felt New York was a big, more stylish, more metropolitan Golders Green. I was thrilled.
+- Growing up in Britain as a rather loose Jew, the two things that didn't belong together were freedom and religious intensity. In America, they do. The Founding Fathers made a bet that if you didn't force everyone to profess religion in their own particular way, you could protect intellectual freedom, and religion would flourish.
+- I am passionately invested in the survival of Israel and everything Israel represents. But I am extremely critical of much of its policy. I believe that the occupation must end. And if it doesn't, it will end Israel. I'm not in favor of settlements.
+- I was conscious of being wordy as a child. I was a terrible talker. I memorised the Latin names of flowers at five; I was shown off as a freak. My father encouraged me to be wordier than I was: he'd been a street orator at the time of Mosley, and his ideal primary concert speech was Henry V's speech before Harfleur.
+- The Jews invented a portable religion in the shape of the Bible, the Torah, and eventually the Talmud, and with other portable forms of writing. So it's now possible to carry the religion, that is embedded in that writing, away from the ruins of political and military power.
+- Sculptures created from found materials like ice and thorns, driftwood, and even bleached kangaroo bones all presuppose that artistic design will yield to the cycles of time and climate, whether over an hour or a decade.
+- Jews can live their own life as Jews and yet be part of a different country.
+- The challenge for a nonfiction writer is to achieve a poetic precision using the documents of truth but somehow to make people and places spring to life as if the reader was in their presence.
+- St. Paul was making it impossible to be Jewish and Christian at the same time. What is very striking about those early churches and communities is that you could be both. Under Paul, though, you absolutely couldn't.
+- I understood when I was quite small that there were two special things about the Jews. That we'd endured for over 3,000 years despite everything that had been thrown at us, and that we had an extraordinarily dramatic story to tell.
+- The synagogues of late antiquity and the early medieval period were built around imagery: imagery of remembering the Temple, but also of the celestial zodiac, too.
+- America is truly special because it's founded on an idea. It's the ideological and philosophical equivalent of a formless God, in other words, you know? It's, again, the only great country in the world that it is formed out of words.
+- Jewish history turns out not to be an either/or story - as in, either pure Judaism detached from its surroundings or else assimilation - but rather, for the vast majority, the adventure of living in between.
+- I have this magpie instinct for the next glittering object. There are one or two things I know I can't write about, though: DIY, cricket, automobile repair. I could study it for a lifetime and not produce a word on the carburettor.
+- In Mesopotamia or Egypt, for example, the monarch had a god-like religious status. But this is not the case in Judaism. So that notion that religion can go on, when all the markers of power and trappings of monarchy disappear, ultimately serves the endurance of Judaism very well.
+- It's not right to think about all of Jewish-German history as shrouded by the smoke of the crematorium.
+- The Jewish story is the story of wandering. It is the story of extraordinary heterogeneous complication.
+- I am strongly of the opinion that chronology is very important. The great arc of time is what children are wired for.
+- I used to have a monthly cookery column, and am a big cook, so that whole sense of connecting what one does with food to one's cultural identity has always been fascinating to me.
+- I wrote a staggeringly bad poem when I was 19 after a girlfriend dumped me. I seem to remember comparing her to a tarantula. It was all very E. J. Thribb of me.
+- My mother was an awful cook, an exceptionally awful kosher cook, but I stayed kosher until I got to college, even though I'd long stopped believing in God.
+- It takes a perverse determination to drain that instinctive curiosity away and make history seem just remote, dead and disconnected from our contemporary reality. Conversely, it just takes skilful storytelling to recharge that connection to make the past come alive in our present.
+- The default mode of modern writing about art is to despise any notion of singularity as so much overheated genius-fetishism.
+- Silence, this will surprise you not, isn't really a Jewish concept.
+- At 11, 12, I thought I was clumsy, ugly, a mess, an unappealing person, but I did have the gift of the gab. I had the school record at Haberdashers for consecutive detentions for simply speaking out of turn.
+- I did an audiobook for 'Rough Crossings,' which I thought was one of the best books I had published. But it was an absolute embarrassment to read it. All these horrible mucked-up bits of syntax, over-the-top adjectives. I found myself editing it while reading. Alert listeners will notice the difference.
+- Jews have never, ever, ever wished to be separate, unless they were forced to be.
+- Jewish history has been in my cultural DNA since I was a child growing up in post-war London. In the midst of that dark, gray, lamenting monochromatic world of the '50s, I had a sense that both Jewish and English history were full of color and light and animation.
+- It was the Sephardi Jews who brought fish and chips to Britain, actually, believe it or not, from the Mediterranean world. Apart from actually eating and selling fish and chips, they were kind of debt enforcers.
+- I do not want to be misunderstood that you need a dose of persecution in order, really, to have a sense of your identity. Otherwise, you know, there would be no American Jews. Even if you're not strictly, fiercely Orthodox, you commit yourselves to a community of memory.
+- History gives you insight of the same quality of truth as poetry or philosophy or a novel.
+- The older I get, the more I want to do. It beats death, decay or golf in unfortunate trousers. Peace and quiet depress me.
+- From the very beginning, history wasn't content simply to be nostalgic fairytales; it wanted to make you think.
+- I would want the British reader to feel that religion in America isn't an absurd thing - a sign of a pin head athwart a gigantic body.
+- You are not thinking hard enough if you are sleeping well. And you would have to be unhinged to take on a subject like the French Revolution, or Rembrandt, and not feel some trepidation. There is always the possibility that you will crash and burn, and the whole thing will be a horrible, vulgar, self-indulgent mess.
+- As a schoolboy, poetry seemed defined by preciousness. It was all very rarefied.
+- By the end of the nineteenth century, the stereotype of the ugly American - voracious, preachy, mercenary, and bombastically chauvinist - was firmly in place in Europe.
+- If someone asks me to go to speak at, say, Princeton, I might or might not go. But if someone asks me from Norman, Oklahoma, I certainly will go.
+- The notion that religion can actually be something... attached to progressivism seems so bizarre. But all you have to say is that Abolition wouldn't have happened without it. The way in which African Americans managed to achieve a degree of self-determination was through the church.
+- We seem wired to grieve with greenery. Allowing the dead to dissolve into the earth, to become part of the cycle of the seasons, has, for millennia, held the promise of cheating mortality.
+- The history of the Jews has been written overwhelmingly by scholars of texts - understandably given the formative nature of the Bible and the Talmud. Seeing Jewish history through artifacts, architecture and images is still a young but spectacularly flourishing discipline that's changing the whole story.
+- I am somebody who has never been able to give up '60s habits. I am the inevitable old codger on the dance floor.
+- Anyone can write an academic piece directed at other academics. To write something that delivers an argument and a gripping storyline to someone's granny or eight-year-old takes the highest quality of your powers.
+- A generation without history is a generation that not only loses a nation's memory but loses a sense of what it's like to be inside a human skin.
+- The British who arrived in the United States in the eighteen-thirties and forties had imagined the young republic as a wide-eyed adolescent, socially ungainly and politically gauche, but with some hint of promise.
+- Passover takes place in the home rather than the synagogue and centers around an epic meal - the seder - so you remember Passover as storytelling, you remember it in food, and you remember it in the family.
+- In the early nineteenth century, with Enlightenment optimism soured by years of war and revolution, critics were skeptical of America's naive faith that it had reinvented politics.
+- The difficulty with poetry is that it doesn't have the life that Shakespeare or Jane Austen have beyond the page. You can't make a costume drama out of it. There's no place for it to go except trapped inside its little book.
+- The Bible, for all its riches, is not a document of social history.
+- The Elephantine papyri - written as some of the books of the Bible are being written - is true social and legal documentation, and to historians overwhelmingly powerful and moving, even when ostensibly about trivial things.
+- The novelist's obligation to remake the sensuous texture of a vanished world is also the historian's. The strongest fiction writers often do deep research to make the thought and utterances of lost time credible.
+- I would passionately make the case that the harder the times, the more we need things that aren't just about keeping our job and making a buck - important though those things are. Arts programming isn't some sort of add-on or ornamental luxury.
+- I actually think that history has fed off the restlessness of cyber space, of kind of the frantic, segmented nature of the way we lead our lives. People want to be connected.
+- Never crowd a pan with too many mushrooms. They give off an enormous amount of moisture. And there's nothing worse than a braised mushroom, other than a lot of braised mushrooms.
+- I find it very hard to write about Jewish history.
+- Somehow, the words don't have any vitality, any life to them, unless I can feel it marking on a paper. That's how I start. Once I'm off, then I switch to the laptop. I think it would all just be prose if it started on a laptop - not that what I do is poetry.
+- I am not very relaxed about bad reviews. But I am resilient. I grieve, curse and swear, put on loud music, and get on with the next job.
+- The most gloomy prognosis about Jewish life is that it will disappear between the two extremes of ultra-Orthodoxy on the one hand and total assimilation on the other. But those are very exaggerated scenarios.

@@ -1,0 +1,96 @@
++++
+author = "Sharmila Tagore"
+title = "Sharmila Tagore Quotes"
+quotes_len = "90"
+description = "the best 90 Sharmila Tagore Quotes"
++++
+- There is a mindset that has to be changed - the sense of entitlement of the man. That happens when you are bringing up someone. If you are going to differentiate between a boy and a girl from age zero, then he is bound to grow up with the sense of entitlement.
+- I don't have any problem in working.
+- Bengal's indigenous art and craft is widely popular throughout the world.
+- I wanted to change my image. That's why I did 'Aradhana.'
+- I studied music at Dakhhini.
+- I would have loved to do a film like 'Piku' or 'Neerja.' But I never got a role where a woman played an authoritative role. In my time, the hero and the villain were both men. The heroine was only the victim.
+- It's really rewarding working with young people.
+- The only time I used to regret being a woman was when I had to use the toilets on sets when I would be shooting.
+- I don't think that cinema is bigger than family as an institution.
+- When you come to the set, and are aware of the limitations of the script or the director, don't expect the pigs to fly.
+- People judge us looking from the outside. They don't really know what is going on in my life. There are hundreds of perspectives out there. I cannot live up to all the expectations.
+- Even in real life, at least I have that very strong sense of timing to do things when they are meant to be done. Like when to stop colouring your hair, when to do whatever, and to live by it too.
+- I dropped out of college before graduation. I opted to begin work as an actress.
+- I am a Bengali, I like my rice.
+- I like to contribute as much as possible to some of the NGOs that I know and in the areas that I like to contribute to. These include primary health, primary education, children's issues and AIDS.
+- If films could run because of performances, everybody's films would do well. It is the director who makes the film.
+- There should be no hindrance to what we want to do, what we want to wear, what we think and how we want to travel. Do what you want to do as long as you are not breaking any law.
+- There's a cultural difference between India and the rest of the world.
+- I was very close to Mani Rabadi. She not only designed my clothes in some of my films, she was also a personal friend and guide when I was new to Mumbai.
+- To be a real man, I think you have to be supportive of each other and to be a real woman you have to be supportive of your man, and the man has to do the same thing, only then he would be a real man.
+- Except for the pollution, I love everything about Delhi.
+- Society is patriarchal, so film industry by definition is certainly patriarchal. The male gaze dominated.
+- One has to do everything at the right time. That includes motherhood.
+- Obviously you do not want to upstage. Some people work like that. But I have never been that upstaging kind. I wouldn't want to upset anyone.
+- On the sets, I am just an actress, and I am okay with whoever I am working with.
+- When a film is released, anywhere in the country, exactly in the same place people laugh, cry, get bored, what is that, but commonality.
+- I felt so much closer to my mother after I had babies. It bonds a mother and daughter more.
+- I know that we have to get in there and do something if we want to change the system and get a better government. But the whole task is very daunting. If I join either the Congress or the BJP, I will be forced to follow their systems and then I may not be able to do anything significant to change things.
+- Satyajit Ray has played a very major part in my career. He was the one who gave me the launch platform when he selected me for his 'Apur Sansar.'
+- The best encouragement is when your films run and people who watch it say 'Well done.'
+- You are who you are, why should you deny your past?
+- There's nothing like young children's energy... They are always curious, and enthusiastic about many different things.
+- Sometimes I do everything and then there are times when I don't want to do anything at all.Most importantly , I don't do anything that I don't want to do.
+- In my time, Mother's Day wasn't celebrated the way it is now. In fact, there used to be no Mother's Day for a long time.
+- The fact that I am getting a doctorate in spite of being a college drop-out proves that the world can be your university.
+- I was brought up in a Bengali family. We were three girls and never made to feel any lesser than men.
+- Being a Bengali, I have kept in touch with the cinema of my mother tongue.
+- To be awarded with an honour of the stature of a Padma Bhushan, which is deemed as one of the three highest civilian awards in our country, is just gratifying.
+- A Tagore surname signifies an association with aesthetics and all the best things of life. It's enriching both personally and professionally.
+- You cannot force anybody to honour somebody. You can only ask.
+- I wanted to be a painter.
+- Earlier Bollywood was a fly-by kind of business which few wished to be involved in. Now Bollywood is good business and everybody wants to be associated with films. This is definitely a very significant change that I have seen in Bollywood.
+- I don't enjoy going to a very big wedding or a party or a huge gathering where there are lots of people. I enjoy small groups.
+- I worked with three designers in my heydays - Bhanu Aathiya, Shalini Shah and Mani Rabadi. Out of these, Mani was the least assertive and aggressive. I remember Bhanu used to be quite insistent and particular about her fees etc whereas Mani was too soft-spoken.
+- Some may want to be a homemaker and some want to follow other careers and they should be allowed. If we want to be different we should be different and we should be allowed to be different.
+- What is my truth can not be your truth.
+- I had loved Tiger for 47 years, was married to him for almost 43. We didn't make it to 50. But it was a memorable partnership; certainly, an enriching one for me.
+- One cannot afford to be nostalgic about the past and cling onto it.
+- I believe in an artiste's life, there are two kinds of awards - first is the appreciation and good wishes he or she gets for his work from the audience and secondly, the recognition in the form of awards.
+- Change is the only constant in this unsteady world.
+- I think it's quite a big decision for women to have children. In our time, I don't think we thought so much about it. We just went and had them and of course, life is not fun-filled and not complete if you don't have them. It's a wonderful thing when you think about it.
+- My life changed when I was introduced to Satyajit Ray. It was acting for me thereafter.
+- There was a time in my life when I used the word 'crap' regularly and unthinkingly.
+- I travel quite a bit.
+- When you are doing a film for money or to help a friend out, be clear about the motives and then finish what needs to be done.
+- Besides having lived and worked in Maharashtra for several years, working in a Marathi film was quite a challenge.
+- In 1963, when I joined Hindi film industry it raised many eyebrows.
+- It's been a great advantage and a privilege to have the Tagore surname. Wherever you go, you are recognised.
+- I'm an actor by choice and I love facing the camera. There's a little bit of exhibitionism in all of us. We like the limelight.
+- My son Saif is an avid reader. He points me to books worth reading. I also must do the Indian Express crossword every morning, which is not too difficult and yet not too easy either.
+- We used to do four or five films at a time and were not able to experiment with too many things. But, the heart was in the right place and everybody worked passionately. We had wonderful directors like Bimal Roy, Hrishikesh Mukherjee, Raj Kapoor.
+- I don't think I was pregnant during 'Aradhana.' But yes, during 'Safar' and 'Choti Bahu' I was pregnant and quite unwell in the last phase of my pregnancy. Then during 'Besharam' I was pregnant with Sabaa.
+- If you seek learning, it meets you somewhere down the road.
+- Human relationships can get awfully demanding and unpredictable. One day you feel one way, the next day you feel something else. That affects relationships. It's better to spend time with yourself doing the things that you enjoy.
+- I find I am growing fonder of gardening, listening to music and reading.
+- Aradhana' was a very big hit while 'Avishkaar' is a cult film.
+- I get attracted to projects because of the script or the idea and the basic character.
+- I live by my own values and if I'm appreciated for the qualities I value, that is enough for me.
+- The craze for the 'taant er sari,' terracotta pottery or Bengal jewellery will never wane because Bengal portrays unparalleled diversity.
+- I want to highlight this, that to make meaningful cinema, we really need an enabling environment and freedom to express.
+- I do practice active gratitude. In my thoughts, actions words I am deeply grateful for what life has given me.
+- Parents should be told that if they invest in the education and upbringing of a girl child, she will also make contributions for the family and society.
+- We are a layered society, so what may be taken easily by an urban audience may not go down well with those watching the same film in suburban areas.
+- We've always had very strong women in my family.
+- Being here and receiving appreciation from the people here in Nantes has a special appeal. But I do believe I have worked hard for it. Very hard.
+- I still remember the day I had met Bijoya Boudi during the making of 'Apur Sansar.' The earliest memories I have of her are she doing up my hair and helping me to tie the sari. There are so many days when she would dress me up for the shoot.
+- To me, Satyajit Ray is just Manik da. Our relationship dates back to 1958, when he introduced me to the silver screen. I was just 13.
+- Thanks to multiplexes there are lots of experiments going on and we have some great directors like Sujoy, Shoojit, Dibakar.
+- Every age bracket has to be respected and it should be embraced naturally.
+- I follow my heart and I do what I want to.
+- My first mother's role was in 'Aradhana.' But after that in mid to late 1980s, I was being offered more roles of mothers.
+- There are more and more adult subjects with explicit language or explicit scenes... Yes, I feel there should be a category for such films so that instead of cutting it, censoring it or deleting a few scenes we can show it in its entirety.
+- Film Club is a necessity in any big university, as it provides a platform and a forum where you can exchange ideas, critique and appreciate historical, classics and contemporary films.
+- You can't be a passive recipient of images, you have to engage with images and read their subtexts. These are critical things that will be taught to the students by a film club.
+- I remember when Saif was a baby, the pediatrician had recommended that we give him orange juice to drink, but my mother said he was too small to be able to digest it and that I should dilute it with some water. I didn't listen and Saif had a tummy-ache. I guess mothers do sometimes know best and it's also the experience that counts.
+- If I played a vamp I would be rejected by the audience outright.
+- Well, a daughter is someone you've grown up with, right? So you know her temperament, you know what makes her angry and how to deal with that person. You're meeting your daughter-in-law when she is an adult already and you don't quite know what her temperament is like, so it takes time to gel.
+- You should lead your own life, do what you have to. If people recognize you, it gives you support. If they don't, how does it matter?
+- I still vividly remember when I was working in 'Kashmir Ki Kali,' I had no idea about lip-syncing the song 'Diwana Hua Badal' sung by Asha Bhosle and the scene was to be shot in the Dal Lake in Kashmir.
+- When I came to Bombay, as it was called in my time, it was filled with people from everywhere, Kashmir to Kerala.

@@ -1,0 +1,87 @@
++++
+author = "Jamie Dimon"
+title = "Jamie Dimon Quotes"
+quotes_len = "81"
+description = "the best 81 Jamie Dimon Quotes"
++++
+- America has the best hand ever dealt to any country on this planet, ever. Yes, we have problems, but you travel around the world, you'll see we have it all.
+- The government has the right to change laws and rules and regulations.
+- When the government gets involved in pricing, I don't think it's the right way to look at a business.
+- I would love to be the president of United States, and I think I would be good at it, but it's too late, and it is too hard.
+- I am not responsible for the financial crisis, I hate to tell you.
+- Companies that grow for the sake of growth or that expand into areas outside their core business strategy often stumble. On the other hand, companies that build scale for the benefit of their customers and shareholders more often succeed over time.
+- If the economy grows, housing gets better, quicker.
+- Walk into a Chase branch and we can give you so much quicker, better and faster. Like Wal-Mart.
+- Remember that banks aren't markets. The market is amoral. The market doesn't care who you are. You're a trade to the market. The market will sell you if they think you're riskier.
+- I have gotten disturbed at... some of the Democrats' anti-business behavior, the sentiment, the attacks on work ethic and successful people. I think it's very counter-productive.
+- It is vital for officials and regulators to have input from people within our businesses who understand the intricacies of how financial markets operate and the consequences of certain policy decisions.
+- I am not interested when people refer to a quarter or this year because the way I look at a country is what are its prospects over the next 20-30 years, and India's are good.
+- I get to deal with presidents and prime ministers and - and employees from tellers on up. And I love it.
+- You read constantly that banks are lobbying regulators and elected officials as if this is inappropriate. We don't look at it that way.
+- I'm very close to thinking the United States shouldn't be in Basel any more. I would not have agreed to rules that are blatantly anti-American. Our regulators should go there and say, 'If it's not in the interests of the United States, we're not doing it.'
+- We don't have a divine right to success. So I agree with a lot of politicians out there when they say, 'We've got serious issues.' We do: immigration, infrastructure. I think income inequality's one of them.
+- If you're making all your money simply betting on interest rates, that's not a business. Flow is a business. On the outside, they look the same for a while. But when you dig into them, no, they weren't exactly the same.
+- Unraveling the euro is a terrible thing. This is a 50-year endeavor to get this continent together and that's a wonderful endeavor.
+- You wonder, 'How could it possibly be me?' Well, of course it could happen to you. You have it. Then, of course, you wake up every morning, and you hope it's a bad dream. Then you wake up. I have cancer.
+- Abraham Lincoln never denigrated, never scapegoated, never finger-pointed. And he had reason to.
+- It's really important that policy be properly designed. It's not enough just to.. .get angry over a subject.
+- Some things never change - there will be another crisis, and its impact will be felt by the financial markets.
+- Among those people not graduating, there might be a Steve Jobs or Barack Obama. We'll never know.
+- The United States has the best, deepest, widest, and most transparent capital markets in the world which give you, the investor, the ability to buy and sell large amounts at very cheap prices. That is a good thing.
+- You know, the benefit in life is to say, 'Maybe you made a mistake, let's dig deep.'
+- Scale can create value for shareholders; for consumers, who are beneficiaries of better products, delivered more quickly and at less cost; for the businesses that are our customers; and for the economy as a whole.
+- Virtual currency, where it's called a bitcoin vs. a U.S. dollar, that's going to be stopped. No government will ever support a virtual currency that goes around borders and doesn't have the same controls. It's not going to happen.
+- You can compromise without violating your principles, but it is nearly impossible to compromise when you turn principles into ideology.
+- Until Donald Trump got to where he was, they said you'll never see a rich businessman who's never been in politics be president. I clearly was wrong about that.
+- The real story in housing will be a recovery in the economy that will drive a recovery in housing, When people are working, when there are more jobs, more households forming and people go back to buying cars, they're going to want their apartments and homes. And that's when you'll start to see a recovery in home prices.
+- There are legitimate concerns long term, in my view, about nuclear war and policy and stuff like that. But the world has become a better place every 20 years for the last 2,000 years.
+- I hope the story of 2011 is that America gets its mojo back. You've got to remember that America has the best universities; it's got some of the best businesses. It's got an unbelievable work ethic, rule of law. The story of 2011 will be America blossoming again.
+- If you're blindly loyal to me, then you're just acting like a crony of mine. If you say you admire me because of the principles for which I stand, I understand that, but then you also have the right to call me to the carpet when you think I'm falling short.
+- America is best when we come together with clear leadership, expertise, and the political will to take on difficult challenges and get things done. No one should ever doubt the strength and resilience of our country and our democracy.
+- I've seen people, when they get into these bigger and bigger jobs, it goes to their heads. I've seen it. Some people in life change who they are, and some don't. I'm basically the same guy I've always been.
+- It's good for America when the rest of the world grows, because you can sell more to the rest of the world.
+- The best way to look at any business is from the standpoint of the clients.
+- In America, you keep on hearing productivity is low; secular stagnation, it's a new normal. It's just not true: We've had multiple wars; we're not educating our kids. We had government shut downs, badly-spent money, failures in the health system, failures and an extreme amount of regulation - that's why we're going slow.
+- Most decisions are not binary, and there are usually better answers waiting to be found if you do the analysis and involve the right people.
+- When my grandfather was born, there was no healthcare. There were no airplanes. There were no boats. There were no trains. There were no communications. No Internet. No widespread knowledge. It will be a completely different world but a much better place in a hundred years.
+- Trade is very good for the country. It's very good for the GDP. It's good for wages, but it doesn't mean it's always good for every business. So we should have trade assistance, which is about relocation, re-education, and training.
+- In America, we have a two-party system, and the American Constitution is a piece of brilliance, but they did not know when they set it up we would just have a two-party system. It just so happens that our electorate pushed towards the two-party system because it's a very good way to govern.
+- I think that technology is the best thing that ever happened to mankind. It's an absurd notion that somehow, 'My God, what are we going to do when driverless cars come along?' It's going to save lives on the road. And maybe, one day, we'll all be working four days a week and not five or six days a week.
+- I think it's a mistake for the American public to constantly be told that if you work for an oil company or you work for a bank, that automatically makes you bad. I think a lot of these people are very qualified people who are patriots. They're going to want to help the country.
+- That's my contribution - running a sound, healthy company that serves millions of customers well and employs hundreds of thousands of people. What else am I going to do? I'm not an artist. I'm not a writer. I'm not a musician. I'd love to be a tennis player or musician. I'm not.
+- Everything needs to work at the same time. But what keeps society vibrant permanently is jobs, industry, business, and stuff like that. It pays for everything else. If you just build affordable housing, and those people don't have jobs, it'll no longer be affordable soon. So you really have to build around the business community.
+- I am not embarrassed to be a banker. I am not embarrassed to be in business.
+- We are totally open kimono with regulators.
+- We are going through a period of profound political and economic change around the world, and American citizens showed that deep desire for change in voting to elect Donald Trump as the 45th President of the United States.
+- First of all, I yell very little, just so you know. Maybe years ago I did more, but I yell very little.
+- As American citizens, if you believe all banks were bailed out, you would hate banks. I would, too.
+- When people blanket a whole class of people with statements, I just think that is unfair to everybody. I could do the same thing about media. I can do the same thing about politicians or lawyers, and they're just never accurate.
+- I love my children. I spend a lot of time with them.
+- The term 'too big to fail' must be excised from our vocabulary.
+- You can design a mortgage system that is different without a Fannie and Freddie, but there are principles you have to have, to have a good system.
+- While legislation obviously is political, we now have allowed regulation to become politicized, which we believe will likely lead to some bad outcomes.
+- The denigration of business hurts America, because the secret sauce for our economy is confidence. I don't want to hear that nonsense that all business is bad.
+- My retirement date, every time you ask me that, I'm going to say five years. I don't want to retire.
+- The problem is not that the U.S. economy won't be able to take care of its citizens - it is that taking away benefits, creating intergenerational warfare, and scapegoating will make for very difficult and bad politics. This is a tragedy that we can see coming. Early action would be relatively painless.
+- People and companies make mistakes. I guarantee we'll make a mistake next quarter. So what? Businesses make mistakes. Hopefully smaller, and fewer.
+- Americans should understand that 50%, or something like, of the kids in inner-city schools, often poor and often minority, don't graduate. And the ones that do don't necessarily have the skills to get a job. That is the biggest disgrace in this country.
+- There are downsides to a lot of things. There are downsides to flying - people die every now and then. Do you want to stop all air flights? There are downsides to pharma; sometimes they're misused. Do you want to stop using pills?
+- It's great that people get together and collaborate, talk about the facts and the analysis, all in the interest of having a great financial system.
+- All businesses tend to pass costs onto customers.
+- If the government wants to do social policy, it should not be done in a quasi-public company. If you have a mortgage guarantee company which is done by the U.S. government, it should be guaranteed by the originators, i.e., the shareholder.
+- I am struck that so many of our leaders in the U.S. forget how strong our country can be.
+- I'm a little bit of an eternal optimist. People always say to me, 'If you go do this and it fails, what are you going to do?' I don't care. I'm going to give it my best shot. That's what I'm going to do. If it doesn't work, it doesn't work. And I'll try again.
+- In the old days, you dealt with one regulator. Now it's five or six. You all should ask the question how American that is.
+- People need to understand: Businesses are going to make mistakes. They shouldn't be shot and hung every time.
+- I don't buy this thing that our industry is responsible for all the ills of the world. We have great people at JPMorgan Chase. We operate with a lot of rigor. Our clients are happy with us.
+- You cannot prove this in real time, but when economists 20 years from now write a book on the recovery, it may well be entitled, 'It could have been much better.'
+- We support too big to fail. We want the government to be able to take down a big bank like JP Morgan and it could be done. We think Dodd-Frank, which we supported parts of, gave the FDIC the authority to take down a big bank.
+- Capping the size of American banks won't eliminate the needs of big businesses; it will force them to turn to foreign banks that won't face the same restrictions.
+- Business has to have a seat at the table. Infrastructure isn't going to be built properly if business doesn't have a seat at the table. A school is not going to happen if businesses don't work with schools about what kind of jobs they really need.
+- JP Morgan always has higher capital liquidity, that is partially to make up for mistakes and problems and obviously it's a tough economy. We support an oversight committee, we supported some of the compensation, new compensation rules, though we already follow most of them. We support a lot of it.
+- No one can forecast the economy with certainty.
+- I am a patriot: I want to help my country and help it grow.
+- It is true that too many people are not getting a fair opportunity to get ahead. We must find ways to help them move up the economic ladder, and everyone - business, government, and nonprofits - needs to play a role.
+- If business doesn't thrive, it hurts America. We need improved relations, more collaboration, more thought and more consistency as we go about trying to make sure we have the best country in the world. Not scapegoating and finger-pointing.
+- Donald Trump has put some professional people around himself. Experienced. Successful. I know a lot of people seem to think that success and experience are reasons you shouldn't serve in public office. But they are knowledgeable and smart, and they've been around the world.
+- Economies of scale are a good thing. If we didn't have them, we'd still be living in tents and eating buffalo.

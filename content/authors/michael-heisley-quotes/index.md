@@ -1,0 +1,21 @@
++++
+author = "Michael Heisley"
+title = "Michael Heisley Quotes"
+quotes_len = "15"
+description = "the best 15 Michael Heisley Quotes"
++++
+- I have spent my career making a difference with underperforming assets.
+- How much you accumulate is a byproduct of what you enjoy doing in life. And I enjoy buying companies.
+- I come from the operations side of the business, and I buy companies to operate them, not to flip them.
+- If you look at my business record, I basically love to do turn-arounds. That's where I made all of my money.
+- Pau Gasol is extremely popular in Spain. I don't know how much he sells, but I get nothing in Spain. The money goes to the league, and they use it for whatever they choose to use it for to run the league.
+- I've never seen the Collective Bargaining Agreement.
+- I made my money turning around distressed or bankrupt companies. I did 50-some of them in my career... I started on a shoestring and eventually built up quite a fortune.
+- The handwriting is on the wall: if you want to have your franchises viable, then you can't have a situation where New York and Chicago and Los Angeles are doing very, very well, and some other teams are, but, I would say, a significant percentage of the teams in our league are struggling financially.
+- I hope to continue acquiring companies, not so much for the accumulation of wealth but because it's what I do well, and you always like to do what you do well.
+- I was considered one of RCA's brightest young people. Then one day, I found out we'd been sold. They didn't even consult me.
+- There's very little substitute in the business world for making money.
+- I love Memphis. They've been good to me, the town and everything else. And quite frankly, I love the NBA and love being involved in it.
+- I've made it clear for some time if somebody came up with the right offer, I'd consider selling the team. It wasn't a secret in Memphis or, really, around the country.
+- I tremendously enjoy getting involved in a troubled situation and straightening it out... My interest would be if there was a situation that came up, and I thought I could do something with and the price was right, I would be interested.
+- I love doing deals and operating companies.

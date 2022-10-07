@@ -1,0 +1,88 @@
++++
+author = "Jon Lovett"
+title = "Jon Lovett Quotes"
+quotes_len = "82"
+description = "the best 82 Jon Lovett Quotes"
++++
+- As a rule, I think people in L.A. are interested in any writer who brings a different skill set and experiences. There's an attraction to novelty and to anyone whose writing isn't based in screenwriting. I had that novelty.
+- The one thing I didn't want to do was a show about the White House. I was too close to it.
+- You look at what animates Democratic voters; you look at what animates Democratic politicians: it's health care. It's increasingly climate. It is wages and economic issues. It's issues around reproductive freedom and criminal justice reform and inequality.
+- When in doubt, mock the powerful, not the powerless.
+- '1600 Penn' was a hit. It's 2018. Anything you want can be true.
+- More and more people support equality for their gay friends and neighbors, and that is not because the 'Duck Dynasty' guy almost lost his show.
+- If there is one way that I would sum up what the 2016 election was on cable news, it was world-class journalists interviewing morons.
+- We need to stop telling each other to shut up. We need to get comfortable with the reality that no one is going to shut up.
+- Making '1600 Penn' was really fun, and I learned a lot.
+- Kellyanne Conway is one of the most dishonest humans ever to grace the office she holds.
+- It's always been a dream of mine to write comedy and be creative.
+- The First Amendment's protections have always put a great deal of responsibility in our hands: not only to respect the power of our own speech, but also to respect that same power in the hands of people we despise.
+- There is an incredible appetite out there for in-depth, high-level conversations about what's going on.
+- Trump is a raptor testing the fences, and he found weaknesses to escape and try things that would work, every single day.
+- It doesn't matter what the early votes look like. It doesn't matter what the polls look like. We can lose everything.
+- I worked on one speech about the financial system that caused the Dow to drop, like, 200 points.
+- We need people to point out groupthink - We need people to point out stale, old, dumb thinking - and we sometimes need to do that when it's considered dangerous, strange, or, by some, offensive. And we should be, all of us, trying to protect that. It's really important.
+- I personally believe that Donald Trump being elected president is a national emergency and a crisis that stems from a great cascade of failures.
+- Whenever you're talking about using humor in politics or in a policy speech or in a serious moment, you're talking about using it as a tool to engage people. That's why putting a joke in a political speech is a luxury, and it is always a risk.
+- I'm not insulting Trump supporters; I'm calling the people that CNN puts on television terrible representatives of the views of conservatives.
+- I'll always cringe remembering those little embarrassing moments when I said something dumb on a conference call, when my inexperience poked through, when I should have been more solicitous of the judgment of those around me. They're a reminder that it's not mutually exclusive to be confident and humble, to be skeptical and eager to learn.
+- I could have continued being a speechwriter for as long as I wanted.
+- It's so unfair that Barack Obama, this cool, charming guy, also has good comedic timing.
+- We don't want people to be afraid of saying something interesting on the off chance it's taken the wrong way.
+- Washington is filled with people making other people's arguments for money.
+- It's certainly true that presidents have confidantes who rise above what you would call just staff.
+- They're the last human beings susceptible to human shame. Politicians are the only people left for whom, occasionally, shame hurts them. Everyone else, we've sort of done away with it as a concept, and we're hurtling through space like animals, basically.
+- I spent three years working at the White House and wanted to do something that wasn't about passing bills and resolutions.
+- People say that making money in the content-media game is hard, and that is just, like, not my experience. It's super-confusing, 'cause everyone's like, 'Oh, how are you going to monetize?' It's easy: just start talking, and then money rolls in.
+- I'm motivated by a bottomless well of anger. It's a joke, but I don't think I don't mean it.
+- Little things had to go wrong for Donald Trump to become president: Comey, emails, all that stuff. Big things did make Trump possible. Big, cultural, political, economic forces opened the door to someone like Trump.
+- We've been dealing with censorship around multimedia, about multinational companies and the content they create, for a very long time.
+- I don't know the venture fund terms. I don't know what a seed round is. I want nothing to do with it.
+- We are drowning in partisan rhetoric that is just true enough not to be a lie; in industry-sponsored research; in social media's imitation of human connection; in legalese and corporate double-speak.
+- A great speech can make you remember something about what you believe, about who you are, about who you want to be. It's rare when that kind of thing happens. But it is important, and it is real.
+- Humor connects us, especially in politics. It's a way of surprising one another with shared context and experience.
+- I will never apologize for selective editing to make myself look better.
+- I don't live in the city of L.A. I live in West Hollywood.
+- Sometimes you're going to be inexperienced, naive, untested, and totally right. And then, in those moments, you have to make a choice: is this a time to speak up, or hang back?
+- Because the speech is an argument, and a great speech makes an argument well, the act of making that argument is a really important part of how the policy process coalesces and solidifies both for the candidate and also the people serving that candidate.
+- America needs a strong, rational, positive, practical conservative movement. It needs that bulwark against liberal delusion and hubris. It needs a voice that says we are imperfect, that life is complex, that government can create need even as it meets need, that you can't fix everything, and freedom is worth some danger and sorrow.
+- The test of a first-rate intelligence is the ability to hold two opposed ideas in the mind at the same time and still retain the ability to function. That's what you have to do: you have to be confident in your potential and aware of your inexperience.
+- Barack Obama took office in the middle of a massive financial crisis. He was handed a bunch of messes all around the world and at home.
+- Part of my job as a presidential speechwriter (along with great writers like Jon Favreau and David Axelrod) was finding that sliver where 'presidential' and 'actually funny' overlap.
+- There's only so much mistrust we can take before things get much worse.
+- We try to talk when the microphones are on the same way we would when the microphones are off.
+- 'Pod Save America' will be a kingmaker.
+- I am very glad that Paul Ryan left the government as a capitulating supplicant to Donald Trump while the government was shut down, while the debt hit record levels, right? Every single thing Paul Ryan claimed to care about.
+- The Internet didn't cause Donald Trump, and it certainly can't solve Donald Trump.
+- I'm famously humble.
+- Humor is a way of saying we're all seeing the same ridiculous, absurd, infuriating things together.
+- Everybody hates Congress; even Congress hates Congress.
+- Nationalism is not that hard. It's not that hard to incite people against another, and it's also - and this is the harder thing: Democrats have, and the challenge we have all the time, is we believe in governing and governance and trying to find middle ground.
+- It's a reasonable thing to tell somebody, 'I've watched 70 hours of 'Game of Thrones.'' That's a totally normal, boring thing to say about yourself. But if you were like, 'I just spent 100 hours playing 'Skyrim,'' people think you're a weirdo.
+- One of the hardest lessons of childhood is reckoning with the instability of the world.
+- If you can make someone laugh about something that your opponent or your opposition thinks, that means you've done a really good job of highlighting what's wrong with their argument or their position.
+- 'Veep' is a great satire of democracy.
+- I went into politics for the reasons most people do: ambition, self-righteousness, and a desire to help others.
+- Republicans paint everything that Democrats have been for as socialism, too far to the left, as extreme, and it didn't matter how moderated it was; it didn't matter that Obamacare started out as a compromise. You might as well say what you're actually for and show what you really are.
+- One of the lessons of 2016 is to spend less time worrying about what will happen and more time worrying about what we want to happen.
+- I would like to be able to write in my own voice.
+- There are a lot of heartbroken, anxious people that thought better of their country. We're heartbroken by how far Trump has gotten to the most powerful position in the world.
+- One thing that is for certain is that there are tens of millions of people who are deeply unsatisfied with the way they get their political news.
+- There is that definition of leadership that says, 'Leadership is convincing people to do things that they otherwise wouldn't have done because you've made them believe it's the right thing to do.' And a great speech can do that.
+- Most of my time at the White House, I wrote very unfunny speeches, but every year, I would work on the correspondents' dinner, which was a reminder of this other kind of writing that I loved to do.
+- Every technology company should have a red button somewhere in the headquarters where, if they realize they've caused more societal harm than they expected and done more harm than good, they press the button, and the company dissolves instantly.
+- A boring speech can be just a boring speech. But a speech with a joke that falls flat is awful. I hate it. That's why I think it's easier to hate a comedy. If a drama doesn't land, it's boring; if a joke doesn't land - you hate that.
+- 'The West Wing' was an incredible, inspiring show - and one of the reasons I wanted to be a speechwriter.
+- When I was a kid, all I knew about Michael Jackson was that he was crazy. He had a monkey named Bubbles and some kind of oxygen chamber, and he used to be black, but he made himself white, and he was nuts. That was Michael Jackson in full. Wacko Jacko.
+- Regardless of how lyrical or rhetorically gifted they are in conveying big ideas, any candidate can do a good job of giving a speech if the goal of a speech is more than just delivering it well but achieving some end, whether it's convincing people of some issue or persuading them about you as a person.
+- I had a really fun career in TV right after I left politics.
+- I am a deeply awkward person; I am not cool.
+- So often on CNN, there's a world-class journalist interviewing campaign rejects and ideologues and silly, craven people who do not care about informing people, that aren't there to help people understand what's going on in the news.
+- It is extremely chilling that Donald Trump views the spectacle of choosing cabinet appointments in a way that is similar to deciding whether or not to fire Lil Jon or Joan Rivers.
+- The great thing about writing jokes for President Obama is that he is not afraid to tell jokes that are actually funny - and not just funny for a politician.
+- The conversation on Twitter and the way people are in the world are very different.
+- Life tests our willingness, in ways large and small, to tell the truth.
+- We have a lot of really boring, silly, stupid politics. We need people to point that out.
+- It was awesome how supportive the White House was. It meant a lot to me that when I left, the people that I worked with - Jon Favreau and David Axelrod and others - really understood that this was something that I felt I held had to do.
+- When a joke works, it works. It can make a point in a really simple way; it can be a great little sound bite to put on television or share on social media. Humor has this incredible power in how we communicate about politics now, in part because there's something natural in the way it's communicated.
+- I had never really planned on being a speechwriter.
+- We are drowning in information.

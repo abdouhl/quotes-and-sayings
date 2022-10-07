@@ -1,0 +1,25 @@
++++
+author = "Gaston Bachelard"
+title = "Gaston Bachelard Quotes"
+quotes_len = "19"
+description = "the best 19 Gaston Bachelard Quotes"
++++
+- There is no original truth, only original error.
+- Reverie is not a mind vacuum. It is rather the gift of an hour which knows the plenitude of the soul.
+- Man is a creation of desire, not a creation of need.
+- The great function of poetry is to give back to us the situations of our dreams.
+- Ideas are refined and multiplied in the commerce of minds. In their splendor, images effect a very simple communion of souls.
+- One must always maintain one's connection to the past and yet ceaselessly pull away from it.
+- Poetry is one of the destinies of speech... One would say that the poetic image, in its newness, opens a future to language.
+- To live life well is to express life poorly; if one expresses life too well, one is living it no longer.
+- If I were asked to name the chief benefit of the house, I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.
+- Man is an imagining being.
+- So, like a forgotten fire, a childhood can always flare up again within us.
+- Literary imagination is an aesthetic object offered by a writer to a lover of books.
+- A special kind of beauty exists which is born in language, of language, and for language.
+- The characteristic of scientific progress is our knowing that we did not know.
+- The words of the world want to make sentences.
+- The repose of sleep refreshes only the body. It rarely sets the soul at rest. The repose of the night does not belong to us. It is not the possession of our being. Sleep opens within us an inn for phantoms. In the morning we must sweep out the shadows.
+- Even a minor event in the life of a child is an event of that child's world and thus a world event.
+- Two half philosophers will probably never a whole metaphysician make.
+- The subconscious is ceaselessly murmuring, and it is by listening to these murmurs that one hears the truth.

@@ -1,0 +1,77 @@
++++
+author = "Steve Backshall"
+title = "Steve Backshall Quotes"
+quotes_len = "71"
+description = "the best 71 Steve Backshall Quotes"
++++
+- All my books draw heavily on my own experiences, and these are not just places I have gone to on holiday, they're locations I know them intimately from lengthy expeditions, most of which have been spent on the hunt for wildlife.
+- Fences split up the territory that a hedgehog has to forage in so having a little hole in your fence could well enable it to move in and out of your garden.
+- I come from an area of southern England that is utterly homogenous. All the history near me is about royalty and fealty, things which leave me cold. I lack roots, and have great warmth for places that have them.
+- I grew up on a small holding, it was a great way to grow up and incredibly idyllic. We had a donkey and Barney the guard dog, geese, a duckling that followed my mum around and used to sit in the washing up bowl.
+- Fiction was a massive, massive part of my formative years, far more so than television ever was, and I always hoped that my future would lie with writing.
+- I was a big reader when I was a kid.
+- I was always really into the facts and figures and the statistics about nature and I always loved learning about it and having a new fact on hand. For me it was non-stop dirt, climbing trees and catching lizards and beetles. That was my thing as soon as I could crawl.
+- My wife Helen is Cornish and both sides of her family are Cornish going back at least a dozen generations. And I envy that and desperately want it for my children.
+- Even my fiction novels are all about outdoor adventure, and have plenty of information to encourage the reader to get interested in adventure and conservation.
+- The night sky, seen from a deserted foothold where no man-made light shines, is more spectacular than any giant cinema screen could ever display.
+- The older I've got, the more I've yearned for heritage, for a sense of belonging and coming from somewhere.
+- Lose the sharks, the mighty, mysterious lords of the deep, and our planet's oceans would be infinitely poorer places.
+- Most of my job is out in the wild, miles away from the public and it's nice to see people and hear what they like and don't like about the shows. It's really helpful.
+- People do get hurt by jellyfish, as they do by sharks and spiders, and I have great sympathy for the anguish and pain these effects may cause, but if you pay any attention to the statistics it is clear that nature is not out to get us.
+- Several of my books are 'How to' guides, specifically about getting outdoors, giving kids and parents ideas for what to do in the wild world, so they can take them along!
+- Certainly jellyfish are seasonal, and owing to a complex range of environmental features there are years when they will appear in far greater numbers.
+- More than anything there is the sense of scale: you can fly for hours and hours of Alaska and you look down and all you'll see is forests, lakes and snow-capped mountains, with no sign whatsoever of human beings.
+- I am very driven by things that scare and frighten me, and things that might be tough for me.
+- I think most schoolboys are most excited by scorpions, spiders and snakes, and I never really grew up. I've always had the same fascinations. I think that we as human beings are the most fascinated by those creatures that we consider dangerous.
+- I had a good deal of power work - lots of plyometrics, callisthenics, tossing big tyres. It's all geared towards having that explosiveness available when you need it.
+- I love what I do for a living and even if I wasn't getting paid for it I would still pursue an active, outdoors lifestyle, researching animals and looking after them.
+- My favourite climb is St Kilda, west of Benbecula in Scotland's Outer Hebrides. It's incredibly remote, with the highest sea cliffs in Britain.
+- And I'm completely into the idea of being a dad. If the opportunity arises for us to switch roles and let Helen get back into competition, then yes I'd take on the role of a stay-at-home dad. I'd be all over it.
+- I'm driven by the sense that there are still parts of the planet that no one knows anything about.
+- If I could be any animal I'd probably be a wandering albatross, the bird with the largest wing span. Being able to cover huge distances of sea every single day would be wonderful!
+- I was lucky enough to be surrounded by all sorts of animals from a very young age. My sister Jo was much more into the domestic animals - horses and things. I was absolutely fixated on the blackbirds, and the grass snakes in the manure heap and everything that surrounded us.
+- I'm not a great technical climber, but over the years it has given me the opportunity to see wonderful corners of Britain that I wouldn't have been able to experience any other way.
+- Living my life in conservation, I see far greater tragedies and crimes against wildlife than the loss of a few thousand badgers. The real reason so many people are so unsettled by the cull is its sinister reflection on the democratic process, on our government's attitude to conservation and to science.
+- If the world's oceans have had nearly half a billion years with sharks as the apex predators, then the delicate balance of its food webs must rely on their presence in complex ways we cannot possibly predict.
+- We have a fantastic array of birds of prey here in the U.K.
+- The scariest animal is without doubt human beings. We are the only species that decimates the very environment that we require to live.
+- The number one piece of advice that you would ever get with working with any large predator is don't run. If you stand confident up in its face it'll probably just wander away, but if you turn and run it triggers what's known as the predatory impulse.
+- I read most often when I am on the road, travelling on my journeys. In cars, on planes, trains... I'm very lucky that I don't get car sick when I am reading and I can spend really long journeys immersed in a book!
+- My job has changed so much over recent years because of social media. You can now watch a programme and see how the audience respond to certain moments and it was overwhelming to see how people responded to 'Big Blue Live'.
+- I have deliberately stung myself with a small section of box jelly tentacle, and it felt like being burned by a steam iron. Larger stings can lead to cardiac arrest, and mind-blowing pain.
+- In the Himalayas, I spent some of the most exhilarating moments of my life, shooting white water rapids in a kayak.
+- If you ask most wildlife film-makers or biologists what the greatest wildlife spectacle on Earth is, they'll say wildebeest migration or the Great Barrier Reef - but to me it's in Alaska is the summer.
+- And there are very few wild animals that can't run down a human being; the big predators would run down Usain Bolt without even thinking about it. So your only chance is to stand your ground!
+- I want to share my passion for the world's beauty and give others new reasons to care.
+- It's going to sound terribly glib and cliched but the more I learn about animals, the more convinced I am that almost all the fears we have about them are unfounded.
+- Baffin Island was extraordinary; one of the most terrifying things I've done.
+- Britain has some of the finest climbing on the planet, with a sense of wilderness that rivals anywhere else on earth. You can be on a rock face watching crashing waves and feeling a million miles away but because we're a small isle, you're never really that remote; there's always a village nearby.
+- People are used to seeing natural history programmes that have been filmed over many years which are concentrated, focused visions of natural history.
+- People that love dogs have an emotional connection with them and I just think they are the most loving and fun pets you can have.
+- A lot of people think it's insane to swim out in blue water with a great white shark, but my experience tells me I can do it safely. Other people might consider it mad, granted, but then I might think what they do is mad.
+- I appreciate that I'm in the privileged situation of getting to spend my entire life outdoors with wildlife, and I know first hand how good it makes you feel, and it's a message that I have to try to get across to kids because as an adult, I can see the dangers that normal modern life exacts upon children.
+- When kids ask questions there is a painful honesty at times and they will ask things that throw me.
+- I'm actually getting to the stage where places I travelled to for the first time in the early 1990s are now unrecognisable. I go to coral reefs that I went to ten years ago when they were swarming with fish and sharks, and now they are barren deserts.
+- The flesh-eating cockroaches and venomous centipedes in the Gomantong cave in Borneo were pretty unsavoury. They turn the floor of the cave, which is itself the world's largest pile of bird and bat poo, into a seething mass of invertebrate horror!
+- Being charged by a furious matriarch elephant certainly had hearts in mouths, as did the snarling spitting Bengal tiger that gave us a fright in India.
+- After more than 40 years of living in the British countryside, any day I see a badger is precious. I knew the location of every sett in the woods around my childhood home, but rarely saw them with my own eyes.
+- Climbing is never going to be 100% safe, but the climbing I do with work is done under much stricter guidelines than the climbing I do in my spare time.
+- If there remain places on the planet that are un-known, unspoilt corners, a laboratory for evolution still exists - a snapshot of what the rainforests, polar deserts and high mountains were once like, before man.
+- Well, there are without doubt species of jellyfish around the world that are potentially lethal to human beings, some of which shut beaches for entire seasons. The box jellyfish of Australasia is officially the world's most venomous creature, and has killed swimmers in the past.
+- I honestly expected me learning Welsh to be met with a certain amount of cynicism, even outright hostility from some. But that hasn't happened.
+- Hedgehogs need somewhere to hibernate through the winter, but also a place that they can lie out at during the day. So have a few places around your garden that are a bit wild, maybe a log pile, potentially even a hedgehog home, all of which are going to be prime real estate for one of these little guys.
+- I surround myself with books, kind of hoping the vast knowledge will just seep into my mind through osmosis.
+- I think if you go out with too hard a conservation message, then you convince people that it's all doom and gloom and nothing can be done.
+- My dad will sit out in the last tiny corner of the garden that has sunshine until the millisecond the final vestige has gone! As kids we were encouraged to head out of the front door at daybreak, and not come back till we were tired and hungry.
+- My best generic tip, would be to be always thinking of an escape strategy. Always look around you and think 'what if'? That and making sure you are correctly trained and experienced.
+- I started climbing in my late teens, but I wasn't passionate about it back then. My first experience was being dragged up peaks by my parents; freezing cold with nothing to see.
+- I take my laptop everywhere with me, and I will write on long journeys. I will write sitting in my hammock in the middle of the rainforest. When everybody else is chilling out after filming, I am usually writing!
+- I guess I'm a dog person, so the canids have a special power for me. And yet wolves are everything our own pet pooches are not; untameable, primal, doing all they can to avoid people and wandering the wildest corners of our globe.
+- Dehydration is a serious problem, particularly for young hedgehogs in the summer, so having some water out that they can drink is important.
+- A crocodile just swung around and hit me with its teeth. It took a big chunk off my leg.
+- Many of the animals that are traditionally seen as vermin are my life's fascination.
+- I made my first conservation series for National Geographic in 2000. Ever since I've been finding ways of making my own life as sustainable as it possibly can be.
+- There's nothing more paralysing or more likely to make people fall into a malaise of believing they are powerless than just hearing that everything's negative and everything's shot to bits. It's really important that we know we can change this planet for the better and that every single one of us, no matter how small we may feel, has that power.
+- I've been doing expeditions for a living for more than 20 years and know all about what you have to go through psychologically to separate yourself from the modern world.
+- I don't think your life can be complete without a dog.
+- I know plenty of people who live in the country who have never seen a badger. They are definitely there, but these nocturnal delights remain elusive, and thus are still a thrill.

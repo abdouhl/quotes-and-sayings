@@ -1,0 +1,156 @@
++++
+author = "Michael Leunig"
+title = "Michael Leunig Quotes"
+quotes_len = "150"
+description = "the best 150 Michael Leunig Quotes"
++++
+- I increasingly wonder whether most humans are in a constant state of unconsciously fearing each other. Perhaps they fear how intimately different other people might be to them, and the problem is that there is no real way of finding out just how huge that difference might be.
+- A dear friend of my early childhood has worked as an anthropologist in Papua New Guinea for much of her life, and from the tiny island where her main work has been focused, she has brought me many funny and beautiful stories over the years.
+- It is difficult to imagine any time in history when so many people claiming to be so free have lived in so much fear of being unattractive.
+- The world is philosophically booby-trapped; touch an interesting subject, and it just might blow up in your face. Some say it's better not to touch.
+- Life itself is offensive and certainly does not apologize - in fact, it hurts considerably and, as we all know, is often very rude and troublesome, just as nature or art can be.
+- In my adolescence, I think I felt very outcast; I felt lonely. I felt great loneliness, and sometimes I wouldn't partake in Christmas, and I would go off and wander in the streets of Melbourne.
+- I never really understood who the Magi were as a child. What is a Magi? Not a word I would use, but a magpie I could understand.
+- Meat workers may have been looked down upon socially, but at least they were well-paid and were a fit and lively bunch as a result of hard, honest physical work.
+- Fogs are like dreams that feed the soul, and without their mysterious embrace, childhood, courtship, poetry and the composition of music become all the more difficult.
+- You wouldn't wish hardship on anyone, but when it comes, you would be crazy not to see the huge growth that will come from it.
+- A beautiful wake-up is one of life's most perfectly happy times.
+- The disasters of war can be infinitely eerie and poignant.
+- If the nose has become a deeply disillusioned and grief-stricken organ in the modern world, then what of the ear? The poor little ear - such an innocent, intelligent and sensitive creature; in these times of such flagrant sonic brutality, the sense within the ear has much to contend with.
+- When I was a boy, my own dad told me in a smiling and wistful way that it's a wise man that knows his own father.
+- I became a cartoonist because I'd sort of failed at everything else, really. I mean, it was by default.
+- Two's company and three's a crowd, but seven can be an uprising. And the seven can become 70 or 700 or 7000 very quickly if the sense of being wronged is felt broadly and truly enough.
+- Sometimes a witticism has no truth behind it.
+- The hypocrisy of some is that we like to think of ourselves as sophisticated and evolved, but we're still also driven by primal urges like greed and power.
+- If you know anything about ducks, you know a baby duck will imprint itself on you. It misses its mother.
+- Where do I get my information from? Well, I get it from the radio, and I get it from the newspaper, and then I get it from my conversations, and I get it from the paddocks around the bush. I get it; it turns up. You'd be most surprised how it turns up.
+- An education system suits some more than others. It can lead you out into life or lead you on a wild goose chase. It can help to make you miserable, or dull and nasty and insipid, or profoundly stupid in the special way that 'brainy' people can be.
+- Pre-Christmas is very important, and it is stressful, and, you know, even in the biblical story... travelling on the donkey in a stressful environment.
+- As we grow, we lift our gaze higher and higher, and then sometimes we are brought to our knees, but all is not lost; what we find on the ground can be very valuable and precisely what we need.
+- Apparently, the pathfinder duck is a psychological archetype in certain cultures.
+- In the modern world, it may be that a living father can only be half a father to a boy - the dead father is the other vital half: the half that grows the boy up once and for all.
+- Art is about the messy and marvelous business of coming to your senses - and also, to the senses of the world.
+- When all is said and done, it looks like the Palestinians have been massively robbed and abused, and are engaged in a desperate struggle for survival and liberation. Israel, on the other hand, would appear to be conducting an imperialistic campaign of oppression supported and substantially armed by the most powerful nation on earth.
+- For 13 years, I struggled with education and have only just realised that I was actually struggling to protect myself from it. I was trying to protect my soul.
+- I had many good teachers, but only three of them were school teachers.
+- Many people first encounter Jesus during childhood when they are suddenly confronted by a horrifying statue of a man nailed to a cross, and this is often a most unfortunate and repulsive beginning.
+- If you're becoming weary and disillusioned with Australian values, Judeo-Christian values or Western civilisation, I recommend strangers - they're such a glorious, redeeming wilderness to wander into.
+- How many times have I heard people say, 'I became very ill a couple of years ago; it got very serious, and I look back and give thanks for how it changed me and the truth I found.'
+- I had a few ducks as a kid.
+- The insatiable need for heartless power and ruthless control is the telltale sign of an uninitiated man - the most irresponsible, incompetent and destructive force on earth.
+- I just happen to believe that what's at stake in the early child's development is so vital and so important, and I think it is founded in the main, in the broad cultural sense, on the relationship between the mother and child.
+- A lot of mothers want to be with their children. They can't afford it for this reason or that reason.
+- I am probably not alone in sensing above me the huge corporations and monstrous banks, science, politics and technologies, spy satellites and stock markets, military systems and massive wealth - forces and dynamics I don't understand or can hardly imagine.
+- There are times when the art world seems like a religious empire. There are great cathedral galleries and pilgrimage sites where treasured art pieces are displayed like holy relics, and this can certainly be a great pleasure on a rainy Sunday afternoon.
+- Humanity hungers for the uncommon.
+- My father was a meat worker. He was a union organizer in the meat workers union.
+- I must warn you right here and now that I am a 'wet leftie,' a 'leftist' and also a member of the 'bleeding heart liberal left.' I had no say in it whatsoever. I woke up one morning, and these things were tattooed across my forehead.
+- Happiness, it's a small thing - just a very little thing.
+- On Anzac Day, coffee and jokes with a Turk might be the most meaningful and fair dinkum dawn service you could possibly have.
+- Anzac Day, it seems, must now be done with bluster, hoopla and media hypnotism.
+- There can be many reasons to travel, but wandering into the world for no particular reason is a sublime madness, which in all its whimsy and pointlessness may depict the story of life - and indeed could be a useful model to keep in mind, seeing as so much of life's ambition comes unstuck or leads to nothing much at all.
+- Wars don't happen on battlefields; they go on happening in people's hearts for generations and generations, and the ecological damage is unfathomably complex and dire.
+- Citizens, regardless of their political inclinations, carry a devout sense of their shared culture and its temperament - and, having contributed to it all their lives, hold decent and reasonable hopes for its continued integrity.
+- The expressive body is not literal; it's very primal, and that's what I feel when I make the best of my work. It's coming from a primal place rather than an intellectual place.
+- Practically every technology that is ever invented is touted as being the new savior, the thing that will bring peace and goodwill to the earth, but immediately it falls into other hands who see it as the opportunity to promote the very opposite.
+- Making jokes is about the most wrong and stupid thing a bemused, middle-aged, white heterosexual Anglo Saxon sort of Celt Australian male can do these days.
+- Modern man is probably a more humiliated and depressed creature than he dares to know.
+- We might imagine that Jesus had many human faults. He failed most humanly, in my reckoning, when he killed the fig tree just because it didn't bear any figs for his breakfast; that was a disgraceful, bad-tempered thing to do, and to try and make a virtue of it by saying it was a demonstration of faith only made things worse.
+- I've learned to respect the whimsical.
+- Sanity is surely not about normality in the statistical sense: it is about an eternal and natural idea of the healthy personality - which indeed may be a rare achievement.
+- A society that's provided for by television is a society that says it doesn't need too many parks or natural situations for children to play in because television will look after them.
+- Existential philosophy, poetry and art - just like sadness - were all unavoidable to a tender young man in the meat works.
+- As a cartoonist, I am not interested in defending the dominant, the powerful, the well-resourced and the well-armed because such groups are usually not in need of advocacy, moral support or sympathetic understanding; they have already organised sufficient publicity for themselves and prosecute their points of view with great efficiency.
+- To be a pleasant person, you would at least need to see the point of being a pleasant person, or have it explained to you at some sort of 'finishing school' where you could actually learn the laws of propriety and the skills of appearing well-adapted, easygoing and attractively trouble free. But where do you learn these things? I don't know.
+- We may lose our memory as we get older, but this might not be such a bad thing - who wants to drag a mental junkyard around at a time of life when you're starting to grow interesting little wings?
+- I think we live in delusional times, whether it's with a great ability to totally distract ourselves with technology, or with speed and the velocity of life.
+- To live in the midst of suffering, which we do, we do, amid distress, and to keep some equilibrium in the midst of that - that would be happiness enough.
+- Avoiding maturity is, for many men, not just a cute hobby, but a life's work - often handsomely rewarded in the infantile popular culture of the West.
+- Humans are nervous, touchy creatures and can be easily offended. Many are deeply insecure. They become focused and energized by taking offence; it makes them feel meaningful and alive.
+- There's a particular sensitivity required to be an artist, and a certain vulnerability, perhaps, and also, somewhere between, you're in your body a lot, too. It's much more physical than one would imagine because I think it's the body where the imagination lives somehow. I do feel the imagination isn't just in the brain up there.
+- Einstein was a great advocate of the notion that good ideas look absurd at the beginning. Camus expressed a similar view.
+- The relentless invisible storm of radio signals and electronic particles, the hustle and bustle, and the billions of petrol explosions in the engine blocks of trucks and cars seem to churn up the molecules of life and heaven so violently that the beautiful fogs are unable to hold together like they once did.
+- Try as I do to comprehend the human project and my part in it, I am further than ever from understanding the monstrous everyday things that seem like self-evident truths and existential necessities to so many.
+- I was a reflective child.
+- All good art is seditious, but the people in authority can never recognise it. I think when you mention sedition, artists are the ones whose eyes light up thinking, 'Oh, yes, I want some of that!'
+- Perhaps life is actually more confusing and unknowable to an adult than a child, but grown-ups have learned to deceive themselves and act as if they understand what's going on; and some are elected to high office on the basis of their ability to create this impression.
+- It's a consoling notion that death is a very tiny hole, and you need to make yourself very small to get through it. One obviously needs to lighten off, and a rucksack full of bricks or a mantelpiece full of trophies will certainly have to be abandoned - the sooner the better, I say.
+- Easter is reflecting upon suffering for one thing, but it also reflects upon Jesus and his non compliance in the face of great authority where he holds to his truth - so there's two stories there.
+- Easter is not limited to the passion and death of Christ; it also includes the dismal tragedy of life unlived by the many, and all the loss of passion and truth that goes with it.
+- It's terrible the way words get attached to you like barnacles.
+- I don't like to brag, but I must tell you that I am regarded in some circles as being in the upper echelons of the elite loony left.
+- At my advanced age, I know I am not an anti-Semite, not even vaguely or remotely, but others would seem to know better, as false accusers always do.
+- At the age of nine, I simultaneously fell in love with two Dutch sisters because they seemed so beautifully strange, and their clothes were mysterious and alluring - added to which, they could not speak a word of English. More than anything, I wanted to connect with them and embark on a vast journey of exploration.
+- Muftis and bishops should be like ripe camembert cheeses - a bit on the nose and not for the faint-hearted, but memorable!
+- Art, like religion, arises from the spirit, but alas, the formalizing of spiritual life all too often ends in hypocrisy.
+- Darkness is full of possibility.
+- As a child, I dreamed that my bed could fly and glide and swoop and hover high over the countryside near my home while, snug and secure, I looked down in wonder at the great carpet of life that seemed so perfect beneath me.
+- I think melancholy is part of the natural condition, you know. Anyway, I think it's the artist's function to have their melancholy and not hide it, you see.
+- In my journey as a cartoonist, I seem to have accidentally stumbled into all sorts of traps, damnations and blacklists.
+- Who can protest alone? Who dares rise up? It is not easy. One is all alone, and evermore shall be so.
+- In nicey-nicey land, you must be happy-clappy and positive all the time - bad news is taboo.
+- In contemporary art culture, where good looks and clever strategic planning of art careers have become a feature, professional practice may be taught in art schools like a branch of public relations or political science.
+- I'm totally deaf in my right ear, yeah.
+- What modern humans need help with is escaping from the despair of politics, commerce and media, escaping from the drabness and oppressiveness of worldly values and seeing through suburban mentality and normal community standards so that they can find some much-needed relief for their wilting souls.
+- The scariness of manhood to males may be symbolically seen in the many stories of indigenous Australian boys who ran away and hid in the bush as the time of initiation approached.
+- Stay away from excellence at all costs; it stinks.
+- What a magical thing is the bed, and what a vulnerable, innocent creature is the sleeping human - the human who never looks more truthful or pitiful or benign; the curled-up, childlike dreaming soul who has for a few hours become an angel adrift.
+- I don't think I have spiritual beliefs in the structured sense - but I believe in the absolute necessity of spirit and a healthy spiritual life. It grew inside me by itself, which is surely the very nature of spirit, and instinctively I protected and nourished it. I also absorbed spirituality by osmosis.
+- While the world may feel entitled and have the power to pronounce an individual crazy, are there times when the innocent genius, the insightful individual or just the old grandmother may reasonably declare the world to be mad? Probably, but what hope or happiness would such an individual have?
+- Murk can be described as an enfeebled fog with a personality disorder; it is more troubled than ethereal, sulking moodily over our lives at the end of the day.
+- As a child, I heard many warnings from teachers about the perils of talking with strangers. Yet now, fairly late in my life, I can think of not many things better than to talk with strangers. The idea of being a stranger is also very appealing.
+- At last, after completing year 12, I failed the great final examination, repeated the following year and failed again even more dismally than before. This was not an easy thing to do. My mates did the simple thing in the first place and mainly passed with honours and went on to have remarkably successful lives.
+- The creative act is also in a small way a suffering act - we start out with our ego, this hope of making this thing whatever it be, but so often it eludes us and it collapses and we kind of regress into this mental suffering, we can't find what we're looking for.
+- Life seems sadly mishandled by humans, as if it's all too much for them - they spend so much time and energy hurting each other, making things worse, and fouling their own nest, all because they imagine things aren't good enough and should be made much better.
+- What really irks me is the snide victimizing suggestion from some that I have tried to be lighthearted and funny... Oh my God - this is so offensive.
+- It is home schooling that is rejecting a narrowness. It is not a radical value system; it's actually quite conservative.
+- Integrity is an ecosystem.
+- It is known that wildfires behave unpredictably - this is fundamental - but it is my experience that humans in the presence of wildfire are also likely to behave in aberrant and unpredictable ways.
+- Democracy just isn't working any more; without sanity at its heart, it is becoming a most unique and fiendish tyranny.
+- I have not much love for the bright lights - unless it's the sun creeping up over the horizon.
+- I give thanks for the fact that I can get this stick with a bit of steel nib on the end, dip it in some black carbon stuff, and draw on paper. Now, people did it the same way 2,000 years ago. And there's something lovely about that play, and making mud pies and a mess. That's a lovely privilege.
+- I have sometimes done cartoons that are hurtful to people - immature, spiteful stuff. Some are so self-indulgent, and some have just failed. I look back and sometimes cringe. But one regret as I get older is that I haven't been radical and wild enough.
+- Sadly, semi-consciousness, along with daydreaming, is a capacity that is actively discouraged among children in schools, and our society is much poorer and harsher as a consequence. The value of liminal space and transitional imagination remain personally and culturally undeveloped.
+- In some ways, calm bodily protest has a nakedness to it that may be deeply embarrassing for observers; an act not unlike the bare-faced Oliver Twist effrontery that stands vulnerably before authority, asking for more or better.
+- Today, people call each other 'guys' - this derives from Guy Fawkes, the bomb-making terrorist. No greater tribute has ever been paid to anyone in the history of politics.
+- I never had a spirit-breaking, soul-destroying religion drummed into me.
+- Any cartoon that can be liked by a committee is really not worth drawing; in fact, must not be drawn at all! Better to become a stockbroker.
+- There is a central flaw in contemporary culture and a corresponding and related inability to address it. Society seems somehow unable to adequately help or protect itself. Normal citizens feel powerless, isolated and disturbed.
+- Art, it seems to me, doesn't need freedom so much as it needs courage and love - some would call it 'soul' or 'Eros.'
+- Over the years, my marks on paper have landed me in all sorts of courts and controversies - I have been comprehensively labelled; anti-this and anti-that, anti-social, anti-football, anti-woman, anti-gay, anti-Semitic, anti-science, anti-republican, anti-American, anti-Australian - to recall just an armful of the antis.
+- There are moments when great music can be the greatest service and charity.
+- In later life, we don't easily talk of fears, but instead we discuss our 'concerns.' Fear seems too primal and hysterical, but concern is polite and intellectual and nicely under control.
+- Clever modern man is so witless that he thinks moral silence and empty conscience are an advantage.
+- The work of the artist is to express what is repressed or even to speak the unspoken grief of society.
+- All nations that throw their military weight around, occupying neighboring lands and treating the residents with callous and humiliating disregard, are already sliding towards the dark possibilities in human nature.
+- There is some suffering that awaits us all.
+- Perhaps the more benign and poetic sense of God is established when we are babies in the moments of primal joy we might call 'the epiphanies of infancy' - the sensation of being blissfully held and feeling complete and at one with everything - yet having no words or no need to say it but instead to just assimilate the feeling.
+- So few humans seem to fully exist themselves that I wonder if all this endless speculation and haggling about God is really an exploration of a more interesting and embarrassing question about ourselves.
+- Falling down is a very big subject, and so is the concept of downfall. None of us escapes, and I have had my share of both.
+- Like normal people, leftists now have to get up in the morning and earn a living, seeing as the fascists have come down so hard on social welfare fraud, and this is the cruel reality. The good old days are gone, and increasingly, leftists are to be found working in ordinary, proper jobs.
+- Have I got the right to experiment with my child's life?
+- Wisdom may best arise from a humbling reality.
+- Pursuit is a rather desperate act in itself. There's something kind of frantic about the notion of pursuit.
+- The human relationship to combustion is as mysterious as it is fraught with madness. From the candle flame to the nuclear blast, it has lit up the human imagination with fear and fascination.
+- Out of economic hardship can come change - we are suddenly cast onto our wits and our talents and our resources and our strengths, as we lose all the choices we once had.
+- The child who has no need to feign empirical knowledge about life can wonder and fantasise with great ease. The world is his oyster, or any other thing he wants it to be.
+- A good memory is surely a compost heap that converts experience to wisdom, creativity, or dottiness; not that these things are of much earthly value, but at least they may keep you amused when the world is keeping you locked away or shutting you out.
+- The 'economy' became a god such as never before, and a happy, successful society was one that could please this god - sometimes by sacrificing beautiful things - to keep the deity from getting angry and harming the people by withdrawing favours.
+- I sense that the road to Heaven is paved with dashed hopes.
+- A street full of electric light is a sign of civic failure and is an insulting injury to the soul. Shutting out the night is as disastrous as shutting out the light.
+- Of all the seasons, winter is the most conducive to the great art of dormancy. This art requires an appreciation of semi-consciousness: the beautiful and necessary prelude to sleep - a special pleasure in itself that is all too often neglected, under-valued or looked down upon.
+- I see a lot of my children. They're around the house all the time on the farm, you know.
+- The repression of virtuous instinct in the modern world is an incremental tragedy. Repress one instinct, and you repress many; other parts of consciousness go down, also.
+- People seem to take as much offence as they possibly can these days - it's almost a new type of greed, a new kind of road rage.
+- When people talk about their God, it is difficult to know what they actually mean, and when people talk about their atheism, it is usually incomprehensible also.
+- Sweetheart,' 'darling,' 'luv.' I like these words; they fit me like a comfortable old pullover. I remember them from childhood; that's what innocent little boys were called by cheerful aunties back then, to make them feel welcome and secure in the world.
+- Love one another and you will be happy. It's as simple and as difficult as that.
+- A world view is probably an expression of self.
+- Every child is a greedy child, I think. I mean, it's healthy to be a greedy child.
+- It is at Easter that Jesus is most human, and like all humans, he fails and is failed. His is not an all-powerful God, it is an all-vulnerable God.
+- All the world loves a young emerging artist, and sometimes it seems that all the world wants to be one - on a bad, gloomy planet, to be colourful and creative seems so promising.
+- Emotional stability has not been America's gift to the world.
+- I have always loved contemporary dance, but it has always been a bit of a mystery to me. But choreography is very much like what I do when you are putting characters in frame on the page. It's so impressive what they do with their bodies. It's like painting: an abstraction.
+- Socialised humanity represses nature and degrades human nature; it takes life and waters it down - probably to control it - diluting existence with water that is lukewarm, sweet and murky.
+- Stay out of the loop, the club, the inner circle.
+- My children just want to get at the world; it is so pleasantly surprising to witness that.

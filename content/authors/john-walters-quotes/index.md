@@ -1,0 +1,31 @@
++++
+author = "John Walters"
+title = "John Walters Quotes"
+quotes_len = "25"
+description = "the best 25 John Walters Quotes"
++++
+- We all have an interest in making sure teens grow up healthy and drug-free.
+- There are now more teens going into treatment for marijuana dependency than for all other drugs combined.
+- Too many people just eat to consume calories. Try dining for a change.
+- It has become much more difficult to smuggle dangerous substances across our borders over the past three years, and this is creating real problems for drug traffickers.
+- Research shows that parents are the single biggest influence on children - if you are worried about your teen and drugs, talk to them.
+- Get to know the Chef and you will start to enjoy dining out even more.
+- All too many young people are receiving mixed messages and inaccurate information about drugs.
+- Teen drug use went up dramatically in the 1990s.
+- Parents should monitor their behavior, know who their friends are, and keep track of what they do.
+- In recent years, we have been sending a clear, consistent signal about the harms of drugs, particularly marijuana, which for most young people is the first illegal drug that they are exposed to.
+- Life is short, so enjoy it to the fullest.
+- You don't want to give kids an idea that they might not have thought of.
+- It is very rewarding to serve the country by helping President Bush work to reduce the drug problem.
+- Educating young people about the harms of drugs is essential.
+- Today's marijuana is also twice as strong as it was in the mid 80's.
+- Make your having dinner out become The Event of the Night, instead of just the beginning.
+- Some of these pro-drug messages come from popular culture.
+- Marijuana is a much bigger part of the American addiction problem than most people - teens or adults - realize.
+- The only think I like better than talking about Food is eating.
+- We need to educate Americans about the real harms of marijuana if we want to sustain the gains we've made over the past three years.
+- To work to make the lives or others better is the most rewarding work of all.
+- All school districts receive funds from the federal government, through the Department of Education, to support anti-drug education efforts.
+- The purpose of random testing is not to catch, punish, or expose students who use drugs, but to save their lives and discover abuse problems early so that students can grow up and learn in a drug-free environment.
+- This was a result of a number of factors, but we do know that the messages kids get about the harms of drugs has a significant impact on their decision on whether or not to use.
+- We know that if we can prevent kids from trying drugs in their teenage years, we dramatically reduce the likelihood that they will go on to have problems later in life.

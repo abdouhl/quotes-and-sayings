@@ -1,0 +1,79 @@
++++
+author = "Ma Yansong"
+title = "Ma Yansong Quotes"
+quotes_len = "73"
+description = "the best 73 Ma Yansong Quotes"
++++
+- People think that buildings are permanent, but in China, this isn't true; we can always demolish and remake it better.
+- In the past, young, talented architects worked together to form a strong social agenda and communicate with a larger audience. That's what today's architecture community should be.
+- A pool at the edge of the ocean is the simplest geometry, yet you feel connected to the sea. In a forest with the mountains in the background, you also feel the connection to nature, yet it's a very complex geometry. I think architecture is about controlling these feelings.
+- I grew up in the old neighborhood of Beijing where you had a courtyard and trees. Actually, the whole of Beijing was a garden - the Forbidden City - and the lakes and gardens in the city center were all artificial.
+- A door handle is very symbolic to me. It is the first object that one will interact with before entering a new space.
+- People can live in nature, and they won't necessarily destroy it.
+- A lot of ancient poetry sees in nature a reflection of human emotions, and in a post-industrialized era, once people have become more aware of the necessity of a more harmonious relation between man and nature, we need to build cities which can connect with human spiritual needs instead of being merely functional.
+- When I was young and used to look at Chinese architecture, there was no clear definition between what was landscaping and what was architecture.
+- Architecture is a special kind of career that showcases the accumulations of culture, time, and history.
+- Although we're architects, we believe we do culture; architecture is culture, and the topics we tackle will always arise a broader debate.
+- There must be a way to combine the high rise and high-density environment with nature. Maybe we can have our gardens in the sky.
+- I'm trying to create architecture as landscape. But I'm not copying nature.
+- Architects like to work in a problematic environment.
+- I treat my projects as art.
+- Sometimes I sketch and then scan my sketch directly to make the curves more freehand. I don't want to make perfect industrial curves.
+- I don't use tools to create things, but I use them to realize things.
+- The way a human can coexist with nature has to be at the spiritual level.
+- I'm trying to express nature in big cities.
+- Traditionally, in the Eastern World, man and nature are close: men find happiness and prosperity in the beauty of nature, even if the nature is actually built to match this very need.
+- If you look at ancient Chinese paintings, you see mountains, but they are not real mountains; it is something the artists imagined.
+- We need architects to be visionaries.
+- My first impression of Beverly Hills was that it had a landscape of small houses built by famous architects, so I didn't want to make a big block or sculpture here; I wanted to make a community rooted to the place.
+- Architects think that beauty is a crime.
+- I have never been to Mars. What will we discover when we get there? A red landscape, quiet horizon, frozen glaciers? Probably all is as beautiful, in its own way, as the Earth was thousands of years ago.
+- We proposed Tiananmen Square - this very empty political square in the city centre - should turn green. Maybe in the future, this space could become a very human and open urban space. And if that happens, I think that all the cities around China will follow to change.
+- The way we do our architecture is to show that we can come up with our own solutions. We don't just take orders.
+- I think, in our modern cities, there are a lot of boxes; there are a lot of straight lines. They often deal with efficiency, the function, the structure.
+- We try to turn buildings into landscapes - defying the idea of modernism which sees nature and buildings as two distinct elements.
+- People love to go closer to nature and other people, so we need to create environments that let people have these emotional connections.
+- When we talk about a city, we need to talk about what the future is. Whats the ideal scenario in the future?
+- The beauty of architecture is it involves work that stretches over a very long time but often starts in one instant, with just one emotion, a kind of instinctual response.
+- Oscar Niemeyer really inspired me. He's from South America, where nature has meaning. And his architecture was not expensive or high tech but artistic and spiritual. I like that.
+- Architecture is about experience: not only visual but also what you can touch, what you can feel.
+- We need to enter a new era to make nature and humans more emotionally connected in modern cities.
+- To allow millions of people to live together on limited land, we have to go to the sky; we have to build a high rise. But we can still build nature and social space into the towers. Each family can have their own courtyard in the sky.
+- I don't like to talk about sustainability, because sometimes I see green buildings that don't appear any different from those in the past.
+- Since the Beijing Olympics in 2008, our office has been discussing how we can make architecture more human and at one with nature. We need to ask ourselves, what legacy do we want to leave behind on humankind's urban culture?
+- Historically, sci-fi movies have played an important role in inspiring young people.
+- The city of the future development will be shifted from the pursuit of material civilisation to the pursuit of nature. This is what happens after human beings experience industrial civilisation at the expense of the natural environment.
+- Chaoyang Park Plaza is about how to carry the traditional culture into a new format in modern architecture. Instead of building a boundary between the city and the park, I tried to design this building to emerge from the natural landscape.
+- It's very strange: if you're a philosopher or musician or an artist, people automatically believe you can see the future. Even if they don't like you, they accept your vision as an individual.
+- Modern buildings have become memorials to power and capital. More and more, they're isolated from people.
+- I actually feel like a very traditional architect.
+- I would say that many architects are very logical. They start their process from analysis and from rational processes to try and find the 'right' answer, like solving a mathematic equation.
+- Tiananmen Square is a sensitive topic because many things happened there. The idea of turning the plaza into a forest makes many people feel uncomfortable.
+- Since the Industrial Revolution, we tend to use technology to show our power: you know, we build high-rises, towers, big buildings that become symbols of power and capitalism. We don't talk about how emotions and nature can be connected.
+- I think where traditional values are concerned, Chinese people see nature as very symbolic. It's a form of culture.
+- I think architecture should be a stage, not something too material - more of an environment, not a product.
+- A shan-shui city is a modern city, a high-density urban situation, but we pay more attention to the environment. We bring waterfalls; we bring in a lot of trees and gardens. We treat architecture as a landscape.
+- Instead of making grand structures and beautiful buildings, we should focus on the environment and the urban space and how you encourage people to live.
+- When you look at classical structures, they're often linked to literature, music, or a poem. They were constructed by master builders, which means it's not something standard that you can copy.
+- The difficulty with big cities does not lie in skyscrapers or high-rises per se; rather, it is the values concealed within those buildings which lead to the loss of our humanity and our sense of spiritual emptiness.
+- If we're talking about the urban landscape as an advanced, forward-thinking art form, there must be some intellectual thinking involved.
+- China has some cities, traditional cities, with a long history. They are so beautiful, and they were planned so smartly. I call them gardens on the city scale. For example, Beijing has mountains, waters, lakes, bridges, towers. It was a very poetic city.
+- In traditional cities like Beijing, Nanjing, and Hangzhou, nature was a very important part of urban planning - not only as a landscape but a part of daily life.
+- What if we treat the high-rise like a mountain, or we have gardens in the sky, or waterfalls? I think that's the most challenging thing I want to try in my architecture.
+- I think architects have a major role in being responsible for illustrating what the future could be. Because of the very strong political and commercial climate, many architects are trying very hard to solve everyday issues, to respond to the authorities.
+- When I graduated from high school, I thought I wanted to make science fiction movies, so I applied to film school, but I couldn't get in. A professor told me I should try architecture instead.
+- Chinese people need to be aware of their present and ask, 'What's our culture? What can we bring to the world?' I don't think there's anything wrong with that.
+- Early in my career, I tried to bring an artistic feeling to architecture. That's really the intent and impression of what I think about: context, space, shapes, and landscape.
+- In China, we had some buildings that looked like the White House or wine bottles. All they seemed to represent was bad taste.
+- 'Shan shui' you can literally translate as 'mountain and water.' In traditional Chinese culture, there are a lot of paintings about shan shui, but now we're talking about a shan-shui city.
+- The shan-shui city idea is trying to bring traditional values and ways of living to modern high-rise architecture.
+- In China, it's very easy to make architecture special because anything you design will look different, as most parts of the city are very similar. They make so many massive residential buildings.
+- I grew up in Beijing, and there weren't many modern buildings during my childhood. I was influenced by traditional culture - the courtyards, the hutongs, the old city, and all the art forms - so, very naturally, I brought this to my practice.
+- We need to be brave and tell the politicians what a better future could be.
+- The architecture scene in China is the most open and free climate compared to many other places. You can find many opportunities.
+- When I started university, I didn't know much about architecture, so I flipped through a lot of magazines, looking at different and exciting images from all over the world. I thought that architecture could be interesting.
+- In our traditional culture, people have a very different view towards nature than in Western culture. We consider humans as part of nature. But in the West, they talk about protecting nature. That's a joke because nature doesn't care; it's humans who need to protect themselves.
+- Ultimately, the artistic part of architecture has always interested me.
+- In a traditional Japanese or Chinese garden, it's not only about the building or temple but about the whole setup - the structure, the landscape, the light, the plants, the water. The whole experience that makes your life there so beautiful.
+- China is a place where you can experience two very contrasting things coexisting. First, the rich, cultural history of the country - and, second, rapid urbanization.
+- The world itself is already a great textbook.

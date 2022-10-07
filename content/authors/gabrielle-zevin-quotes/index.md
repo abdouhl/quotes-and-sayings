@@ -1,0 +1,27 @@
++++
+author = "Gabrielle Zevin"
+title = "Gabrielle Zevin Quotes"
+quotes_len = "21"
+description = "the best 21 Gabrielle Zevin Quotes"
++++
+- I think you can do a lot, like describing people with their physical characteristics, things like that, but to me, I've always found it to be a much more informative question to ask somebody what they read.
+- Writing blurbs for books means you have to read the book, and it cuts into the business of bookselling. So every time I get a blurb from a bookseller, I try to write a thank you note.
+- I'm like a unicorn; I'm a midlist writer who hasn't done anything else but write. But because I wasn't amazingly famous, I didn't become Stephanie Meyer, or even a huge literary name like a Jonathan Franzen or a Joshua Ferris.
+- I'm in the middle of a 25-city book tour, and I like watching what people buy in bookstores. I see people buy books that I strongly suspect they will never read, and as an author, I must tell you, I don't mind this one bit. We buy books aspirationally.
+- I hadn't ever felt any particular calling to be a novelist, and I clearly remember telling a friend of mine about six months before I started work on 'Elsewhere' that I would never write a novel.
+- Sometimes, readers, when they're young, are given, say, a book like 'Moby Dick' to read. And it is an interesting, complicated book, but it's not something that somebody who has never read a book before should be given as an example of why you'll really love to read, necessarily.
+- I remember visiting my grandmother Adele in Ponce Inlet, Florida, when I was three years old, and she had an IBM electric typewriter. I thought that this electric typewriter was about the most fascinating toy in the world - I liked the little bell and the sounds and the feel of the keys and especially the erase key.
+- Before I liked to write, I liked to type. I remember visiting my grandmother Adele in Ponce Inlet, Florida, when I was three years old, and she had an IBM electric typewriter.
+- My grandparents used to bring me books every time they saw me.
+- For the record, I have long suspected that my favorite book is actually 'Charlotte's Web.'
+- On some level, I think we want our reading self to represent our best self.
+- I myself am mixed race - my mother is Korean, and my father is an American Jew - so I've always felt other.
+- I like to believe, as a writer, that anybody who isn't a reader yet has just not found the right book.
+- In a way, publishing in 2005 was similar to publishing in 1950. Nobody kept blogs; that was still optional. I didn't even have a website then.
+- People choose to read, and it takes effort. It's not one of those hobbies that asks nothing of the person who is doing it. It's more than a hobby.
+- I wish that the adults who are 'in power' cared more about what their children read. Books are incredibly powerful when we are young - the books I read as a child have stayed with me my entire life - and yet, the people who write about books, for the most part, completely ignore children's literature.
+- I knew I wanted to do something creative, and you don't necessarily go to Harvard to do that. It's not the best choice for creative writing.
+- I don't believe in writer's block.
+- When I was around eight, I learned how to touch-type at school, and I received a computer as a present. I started writing plays, and for many years I thought I would be a playwright.
+- I'm very privy to the way bookstores work, and I think a lot about the ecosystem that my books have been published in. I think it's great to be aware of how publishing works.
+- When I first started writing, I used to listen to music all the time because it would make time pass more quickly. And then I started to wonder if the music wasn't affecting my writing in ways that I didn't necessarily intend.

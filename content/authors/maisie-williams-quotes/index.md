@@ -1,0 +1,116 @@
++++
+author = "Maisie Williams"
+title = "Maisie Williams Quotes"
+quotes_len = "110"
+description = "the best 110 Maisie Williams Quotes"
++++
+- I watch vlogs on YouTube. I watch Jenna Marbles a lot - I think she's really funny - and a lady called Daily Grace.
+- Sleep is my best friend when we're shooting 'Game of Thrones' because there are very long days and intense scenes.
+- It's not like I've ever been the popular pretty girl at school or anything. I was always such a weirdo.
+- I like shocking people just because, like, I can wear a dress, too. Not even for people to go, 'Oh she's grown up,' but to show people that I'm actually a girl.
+- I talk to myself quite a lot, and when things get stressful, I just tell myself to breathe.
+- Not a lot of people have jobs that they're really comfortable with, but I'm one of those people.
+- I like 'Glee' a lot. It's kind of like my guilty pleasure.
+- No one teaches you how to be a famous person; no one teaches you how to be a role model. It's something you have to do on your own.
+- I'm never really going to be the normal teenager.
+- If you're having a down time at school and people are bullying you, they don't know you. They don't have the right to have an opinion on you.
+- Someone once told me that if you respect a person, listen to their opinion. And if you do not respect someone, then do not listen to their opinion. And that works both ways.
+- Sometimes people think they know you and they go, 'Hey!' and then they realize that they've just seen you on the television. That's kind of funny sometimes.
+- I am someone who isn't always perfect.
+- No one is born evil; it's just the choices that they make.
+- Going out is the typical thing when you turn 18, but it's not really much fun when you have a recognisable face.
+- This whole segregation between famous people and other people is complete rubbish.
+- If I started being braggy, my family would be like, 'Shut up, Maisie! Who cares? Get off the sofa.'
+- People throw insults at you, and sometimes they hit a nerve - and it's about not showing that, because they will pick on that. Don't feed the trolls!
+- On my actual 16th birthday, on the actual day, I went home and I had chicken korma and Peshwari naan bread and pilau rice, and that was fantastic.
+- Most commonly, I've been recognized from people who aren't actually from England.
+- You know sometimes when you're in a really bad mood and you're not sure why? That's how I get sometimes.
+- I'm a Taylor Swift fan, definitely.
+- I draft tweets, like, 20 times.
+- I think people think I'm a lot younger than I am because of how I look on screen.
+- I have a Facebook page for me and my friends and a Twitter page.
+- You hear horror stories about scary mothers who just want their kids to be famous. I could be waitressing in a restaurant, and my mum would be happy as long as I was happy.
+- People are like, 'What's Game of Thrones about?' I'm like, 'It's in the title.' For real, this is a game for the Iron Throne. No matter what character you are, you're sucked into that at some point.
+- I'm a little bit awkward on Twitter; like, I'm never really sure what to say.
+- I'm used to being a small part of a massive production.
+- I don't think Twitter is a platform to build your confidence on at all. Not at all.
+- 'Game of Thrones' focuses on what's real.
+- I do watch a lot of YouTube.
+- Turning 18 is a big deal.
+- People ask me, 'Isn't it scary living on your own?' but in this industry, being at events, doing interviews, and doing promotion and constantly chatting about yourself, sometimes it's really nice to just sit in silence or take a day where you can sleep in until 3 P.M. and then stay up as late as you like.
+- I'd much rather be liked because people realize that I'm standing up for myself.
+- Boys can just wear a suit on the red carpet and that's fine, but for girls it's all about the way you look, and there are constant comparisons.
+- I'm so excited to be working on 'Doctor Who,' as it's such a big and important part of British culture.
+- When I come home, I'm just Maisie, and everywhere I go, I'm just Maisie!
+- I like the fact that when you're put into a really extreme situation, you put everything else aside. You put your ego aside and get on with it, and I quite like that.
+- I still study dance, and it's definitely something I want to incorporate in the future. It's always been my first love.
+- I haven't done Vine in a long time, and when I first started, I just did stuff that I thought was funny.
+- People don't always do what they say they're going to do.
+- There is no easy way to get around horrible people on the Internet, and it's either just leave it or don't and get sucked into the whirlwind of it all.
+- I don't have anyone's number; I just Facebook them.
+- People go down bad paths and they make bad decisions, but it's always justified in their head.
+- I guess I'm a bit of a tomboy and can be quite resourceful.
+- A lot of actors and actresses pull from past experiences.
+- When I'm dancing, I don't know where the confidence comes from, but I just pretend I'm someone else, I think, and then I go out and dance.
+- People say, 'Do you ever miss being a normal teenager?'
+- 17 is the weirdest age, because you can't figure out if you want to grow up or be a child.
+- I'll never do a film because it's a massive budget and I'm gonna get lots of publicity for it and it will bring something else.
+- It's huge in the U.K., if someone's doing well, to put them down. That's what we do all the time. It's kind of like a cultural thing.
+- I feel people care so much about their appearance - which is important, and I do still care about my appearance, but not that much. There's far more to life than that.
+- When you're filming, it's very different from what you see on screen.
+- I think a lot of people on Twitter say, 'Oh you're really cute. I want to adopt you,' and things like that, yeah.
+- I feel like a lot of people would quite easily stab you in the back once they get what they want. And you see that in people.
+- The power of Twitter still never ceases to amaze me.
+- For every three scripts that you get through, one will be made, and that doesn't even necessarily mean that they're going to cast you in it.
+- On 'Game of Thrones', the people that I've met, of the people behind the scenes, was not even a scratch of the vast crew that actually does work on that show.
+- Dialogue is something I don't get a lot of on 'Game of Thrones.'
+- If you've got cool nails, you wake up and you're like, 'Oh, I'm happy now.'
+- When I was in primary school, my best friend was a boy and we always goofed around, climbed trees, got holes in my trousers and muddied all my tops and things like that; a complete nightmare for the washing, but great fun.
+- People actually really want to see what I'm up to, and that's crazy.
+- Being in South Africa, that messed up my body a little bit. I broke out in spots, and I got really dehydrated, and the water was really different. It was really strange, because you're on the other side of the planet, and you think, 'Oh, water is the same everywhere,' and it is, but it still felt strange.
+- In my opinion, nothing changes after you get married. If ain't broke, don't fix it.
+- I hope there are going to be plenty of more roles to come.
+- It's very different when you're reading a script to when you're watching a movie for the first time.
+- I've had a fast track to who I want to be. I know all of my friends are struggling to what to pick in college, and I've been given a fast pass to kick start my future.
+- I didn't want to escape my life and become a big actress and live my dreams. That was never the way it was; it was just these amazing opportunities that happened.
+- I've done 20 takes of a Vine before it goes out.
+- When I first watched 'Coraline,' I thought, 'If that ever got adapted...' If it was done by real actors, I think that would be a really fun thing to do, just because it's a kind of whole new universe.
+- I don't have to be making a lot of money or living in a fancy house.
+- Sometimes I wish I was more comfortable just saying what I thought and getting my point across.
+- My family are the epicenter of all my decisions.
+- In the U.K., we're surrounded by American accents. Anything we watch in television. We have 'How I Met Your Mother' and all these other shows here, so it's not something that's really alien to us.
+- Basically, me and Ed Sheeran are kind of Twitter friends - well, I say that. He probably just thinks I'm weird.
+- Whether I like it or not, I've become influential to people.
+- When you cross over on fandoms, people don't know what to do with themselves.
+- I don't wanna be liked just because I'm pretty.
+- It's never black and white on 'Game of Thrones.' If you think it's black and white, you're watching it wrong.
+- I stress out so much about the red carpet and interviews and pictures, and, you know, not getting my skirt tucked in my knickers.
+- People just get kicks out of making other people sad.
+- I do ballet and pointe work. I also do tap, commercial jazz and technical jazz, freestyle street dancing.
+- I'm used to being part of 'Game of Thrones' and going into something where you're a small part of something else. You don't want to hold anything up because they've got such a well-oiled machine going.
+- 'Cake Boss' does massive, massive things, which are great.
+- I get a lot of fan mail and stuff, and usually it's for me to sign stuff.
+- Nobody wants to see a half-finished Vine.
+- I can't ever see myself playing the romantic lead because that's not me; I'm not that girl.
+- I'm never going to do something that I don't want to do, because I've been given the opportunity to not have to do that.
+- Oh, the cat I worked with on 'Game of Thrones' was so badly behaved! It would never do anything it was supposed to do. I was like, 'Get your game together, cat. You're so bad.'
+- I struggle to come up to people and say what I think.
+- I know things aren't perfect for women in the U.K. and in America, but there are women in the rest of the world who have it far worse.
+- I follow Elle Fanning's career. I really like to follow actors who are a similar age to me. Just to see what they're up to.
+- I look at other people my age in this industry, other famous people my age, and they've just got famous friends. Which is cool, but I love being normal and just chilling at mine.
+- As an actor, you're constantly looking to be pushed.
+- There's some people that obviously abuse social networking or whatever, but I think it's a fantastic idea. I've never had any bad encounters with any of it.
+- I've never really done acting before, 'cause dancing was my first love. And then, I sort of fell into it from a talent competition and never really looked back.
+- I believe that breakfast is the most important meal of the day, if you don't have a good breakfast, then what are you going to do with the rest of your day. I get scared when I don't have a good breakfast!
+- Don't say anything online that you wouldn't want your mother to read.
+- I'm sorry; I ruin people's interviews because I just talk about rubbish.
+- I seem to be landing a lot of roles with animal interactions, which is amazing.
+- I have this really bad habit of doing things on the Internet and forgetting that the whole world is going to see it.
+- I once had someone say to me in an interview, 'You are more ugly on the screen than in real life.'
+- As soon as someone finds out something you're insecure about or that bothers you, they will use that against you, which is awful.
+- I'd never want to be trapped. I never like to stay in one place too long. I always flit around, I never settle anywhere. So being married would be being trapped.
+- Doing the sword fighting is like picking up a dance routine... I think dancing really helps with the picking up of it.
+- Before I was born, my mom and my dad, they used to rescue dogs, so at one point, they had 13 dogs. And they were all from different litters. It wasn't like they were bred. They were all from different people. And they were all different ages. When I grew up at my dad's house, I think we had seven at one point.
+- I just think something about being in front of a live audience when you've finished a big dance that you've been working on for so long - I don't think anything can really beat that.
+- It's helpful to have a handbag that's a bit crazy, or shoes that have kiwis on them or something, because it distracts.
+- If you put music into your Vine, and it's really jumpy, just do it over again.

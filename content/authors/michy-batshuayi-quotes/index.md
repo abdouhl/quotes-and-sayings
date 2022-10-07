@@ -1,0 +1,34 @@
++++
+author = "Michy Batshuayi"
+title = "Michy Batshuayi Quotes"
+quotes_len = "28"
+description = "the best 28 Michy Batshuayi Quotes"
++++
+- For me, it's important to perform well for Borussia Dortmund in every match.
+- I love black and yellow. Black and yellow is Batman; black and yellow is Spongebob!
+- I've so much respect for Chelsea, and I love them.
+- I need to be professional, rest, look after myself, and sleep a lot.
+- Chelsea feels like a big family.
+- It sounds strange to say, but someone's bad luck is sometimes the happiness of the other.
+- Sitting on the bench, scoring a goal, and then being back on the bench is quite difficult to deal with for an attacker.
+- In the teams I've been at, I've been really well received.
+- If I'm called on, I want to be ready and efficient.
+- I've been in big clubs, but I want to achieve titles with Valencia.
+- Certainly when you're surrounded by top-class players, like Cesc Fabregas, Eden Hazard, all of them, you only can make progress in a situation like that.
+- Everybody likes the Premier League. It has a lot of spectacle, a lot of goals, and many good players. It is natural that every good player is attracted by that league.
+- I've made a lot of progress. As a man, mentally, but also physically. And tactically, too. That's a given with a manager like Antonio Conte. He likes you to work, work, work. Every day.
+- I'm a versatile player, I'm a technical player, and I play with my head, but I can progress further.
+- I am rarely injured.
+- 'SpongeBob' is a cartoon I love. Especially when I'm in bed by myself at home and I have trouble sleeping, my reflex is to put cartoons on.
+- I took to 'SpongeBob' and started watching it frequently. Even when I'm older, I think I'll still watch the show.
+- Every player dreams of a big league.
+- I was very well received by Dortmund, by the whole club. I felt a lot of love; a footballer is stronger when he has confidence.
+- As a young player, you need a lot of playing time to evolve.
+- If you ask my favourite team, I'll say Arsenal. It is a club with a good philosophy, where youngsters get their chance.
+- Everyone knows there's real emphasis on technique in La Liga, and I'm a technical player; in that sense, it's a good fit. But all leagues are a good fit for me - I can play anywhere.
+- Conte is a manager who works very hard and likes people to work hard for him as well.
+- I hope I can help Chelsea win many trophies during my time at Stamford Bridge.
+- I'm an efficient striker, but I'm not a joker.
+- I'm going to continue to work, to continue to play to the best of my ability, whether I'm on the pitch for one, two, or five minutes, I'm going to give it my all, my maximum, to contribute significantly.
+- I have lived difficult moments, but it's in times like those that you learn the most.
+- I've been an Arsenal fan since I was a kid.

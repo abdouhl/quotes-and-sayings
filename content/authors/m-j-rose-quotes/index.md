@@ -1,0 +1,99 @@
++++
+author = "M. J. Rose"
+title = "M. J. Rose Quotes"
+quotes_len = "93"
+description = "the best 93 M. J. Rose Quotes"
++++
+- I might have created the phrase 'memory tools', but people have always found talismans to help them meditate into a state of hypnosis where they can access their past lives.
+- Sometimes what you mustn't do is just as just as important as what you must do.
+- I've always been fascinated by the concept of reincarnation. I learned that many brilliant people were interested in reincarnation, including Carl Jung. I'm a big Jungian. So I began writing novels involving theories integrating past and present, even if the past element in the novel took place 500 or 1,000 years ago.
+- From 1999 on - until 2003 - I covered publishing in a weekly column for Wired.com and wrote for several other publications - altogether writing over 150 articles.
+- When writers stop to sharpen pencils or get up and make coffee to procrastinate, they still stay in their heads with their characters. But when you zip over to read email or check your Facebook page, you get zapped out of the fictive dream. It's brutal on my writing.
+- A comprehensive marketing plan involves both online and offline efforts to use and broaden your existing platform to promote your book.
+- Thriller novelists get asked - berated, sometimes - about whether their work glorifies bad behavior, even, exploits human tragedy for entertainment.
+- Buy other authors' books when you go to their events. Even if you aren't going to read it. Even if you are going to give it away. Even if you aren't interested. Not just for the author but for the bookstore. It's karma and just plain good manners.
+- It's easy to fall into the trap of thinking our careers will come to a standstill, or worse, crash and burn if we aren't social media butterflies.
+- Don't use your advance to buy an antique sports car, diamonds by the yard, or a bottle of wine from Thomas Jefferson's cellar instead of investing in your book.
+- In 1998, I self-published online in order to get a traditional deal.
+- I have favorite authors from a lifetime of reading, so there are some I'll automatically read every time they have a new novel. Included in them: Robert Goddard, Jeffery Deaver, Sophie Kinsella, Katherine Neville, Greg Isle, Laurie King, Lee Child, Lisa Tucker, Susan Howatch, Paul Auster. Barry Eisler, David Hewson, Tracy Chevalier.
+- Don't hire anyone - no matter what they offer - who promises you they'll sell 'X' copies of your book. Every book is different. The best any marketing company or PR firm can do for your book is make potential readers aware of it.
+- There is no debate that social media is a great tool for networking with others in our industry. It can lead to friendships, support, and serendipitous connections with reviewers, agents, reporters, or editors.
+- We need to write books that publicists and marketers and booksellers and book club leaders and librarians and readers can get excited about. That have something about them that makes them stand out. That makes them shine.
+- MWA and The Author's Guild refused to accept me as a member.
+- Ask your editor or ask your agent to find out what the house's goals are for your book before it comes out. Get some sense of expectations so you are prepared.
+- Don't add people to your subscriber list just because they once wrote you a note. Or once answered a note you wrote to them. Don't put your address book into your newsletter database. Let your readers sign up.
+- When I was in advertising, I did a great deal of work on television commercials. A co-worker and I wrote a screenplay, which led to a few more screenplays, and some were optioned by production companies. I was advised to move to California but didn't want to make the move. I decided to use another form of storytelling, so I wrote a novel.
+- All the marketing and advertising sells the book as what it is and hopes that the book will be displayed so that your readers can find it.
+- It's so easy to look foolish online.
+- The most satisfying thrillers send ordinary people into battle against the forces of evil - otherwise known as greed, ego, rage, fear and laziness - and bring them out bloodied but whole.
+- The biggest mistake is to assume that another writer's successful strategy will work for you, too. Publishers' marketers - and even freelance publicists who cost mega bucks - tend to do the same basic things for all books.
+- An author's ability to bring a marketing synopsis to the table - along with a great manuscript - makes a difference in what books get picked up. This is true for both fiction and nonfiction titles. You need to show your publisher what you've got in your marketing arsenal.
+- Don't send out a newsletter just to send out a newsletter. One newsletter a year that is really interesting is more beneficial than 12 that are boring. If you write two or three boring newsletters in a row, your readers will start to think you write boring books.
+- It's been more than a decade since I put that self-published novel, 'Lip Service', up on a website. Since then, many hundreds of authors have gone from self-published to traditionally published.
+- Jacqueline Rose was so wonderful in so many ways, and I was really blessed to be her daughter. Of all the things I am because of her - there's no question: I am a writer because of her love of books.
+- Your agent should be invested in the success of your book past the contract stage. After all, if it sells well, she's going to be getting 15 percent of every dime you make. She can be your best advocate in fighting for your book - not just with editing and the cover, but with marketing and sales as well.
+- I think that we need to live our lives for the present... as if it is our one and only wild and wonderful life.
+- One Tweet can be heard 'round the world if the right people retweet it and the right people notice it on their feeds.
+- I grew up in New York and have lived here all my life. I think it's the best city in the world and can write about it with gusto and fervor and passion.
+- Back in 1999 and 2000, a few of us... a very few of us... Douglas Clegg, Seth Godin and I... offered free electronic copies of our books in an effort to reach an audience we otherwise wouldn't have reached and to test out a new marketing concept for books. Despite the industry screaming we were crazy, it worked.
+- In 'Power Play', Finder uses the thriller structure to make pointed observations about gender in the workplace, the corporate caste system, and the true nature of risk in the global business environment.
+- The one thing I am now sure of is that if there is such a thing as destiny, it is a result of our passion, be that for money, power, or love. Passion, for better or worse.
+- There was an ingredient used in perfumes and remedies in the Middle Ages called 'momie' that is certainly one of the most fascinating I've come across.
+- Don't spend more than 10% of your marketing/PR budget on a trailer. Trailers have to be marketed, too. So, far too many authors wind up marketing their trailers instead of their books.
+- If no one knows your book is out there, no one will think about buying it. It's as simple as that.
+- A mystery is a whodunit. You know what happened, but not how or who's behind it. A thriller, or a suspense, is a howdunit. You know what happened, and you usually know who did it, but you keep reading because you want to know how they pulled it off.
+- There are many traditionally published authors who have hated the cover their publisher's decided on. Or the title or the marketing or the advertising. But there was nothing they could do about it.
+- Find out if your radio interviewer has read your book, or you are going to have to do that part of the job on air. It's okay if they haven't, but it's always better to be prepared for what's coming.
+- There's almost no author alive who isn't weathering the tumultuous changes in the publishing industry.
+- I've always been fascinated by how the past impacts the present. For the first half of my career as a novelist, I wrote psychological suspense mysteries. I wanted to be a therapist but was told that while I was a fine diagnostician, I would be a terrible therapist because I wanted to solve everyone's problems.
+- One of the biggest differences between you and a traditionally published author is that a self-pubbed author is responsible for everything. Not just writing the book - but cover design, editing, producing, distribution, and publicity as well.
+- Smart authors, faced with storms, chose to create umbrellas. That's why a diverse group of authors banded together to create The Fiction Writer's Co-op, which will work to find innovative ways to promote each other's work and cheer each other on in a very competitive field.
+- When I do a workshop, there is always at least one author who comes up afterward and asks if I'll take a look at his or her book and consider blurbing it. For some reason, I can turn someone down in e-mail, but when he or she is looking me in the eye, I cave.
+- A curious mind is the most important attribute any man or woman can possess.
+- I've always felt writing is an art. Publishing is a business. I felt strongly if I was going to write, I would write what I wanted to, and if the 'market' didn't respond, there was nothing I could really do about it.
+- With so many millions of titles available, the books that will get talked about are the books that make readers talk about them.
+- Do send out a newsletter when you have a new book out or are going on tour. Also list relevant event dates and notifications of contests you are running.
+- Sales don't always have anything to do with good or brilliant or original. Sales are about appeal.
+- I grew up in New York, and for the first ten years of my life, we lived across from the Metropolitan Museum. When I was an adult, I moved back to that neighborhood and lived there again.
+- I was an avid reader, but never thought seriously about writing a novel until I was in my thirties. I took no formal fiction-writing courses and never thought about these categories when I wrote my first novel.
+- Twitter is worth it if you like tweeting. Same is true of Facebook. Or Pinterest. Nothing wrong with having a social presence.
+- I work on one book at a time. And yes, I am immersed. Six days a week for four to six hours a day. In between books, I stop writing for as much as two to three months, but during that time, I do research and think, plot and plan the book.
+- I think the most important thing we as writers can do is figure out how we define what success will mean to us and focus on that.
+- When I sit down to write, I know everything I need to know... I start writing, and within 30 seconds or 60 seconds, I'm watching a movie. I'm not making this stuff up; the characters are acting it out,and I'm just writing it down.
+- Here's an idea: Spend two or three hours a day at least five days a week in front of a bookstore wearing a sandwich board with your bookcover on it while you chase and chat with anyone you can corral and who is willing to talk to you.
+- As a general rule, when you comment on a blog, make it knowledgeable or witty and, most of all, relevant to that post - then, simply sign it with your name and your book title. Resist the urge to brag or sell your book.
+- Vera Caspary wrote thrillers - but not like any other author of her time, male or female. Her specialty was a specific type that she pioneered - the psycho thriller.
+- I'm realistic about my career as a novelist. I'm certainly not a superstar and far, far from a household name, but I feel successful.
+- I know one writer who has been subscribing authors without their permission and sending out what she thinks are helpful advice sheets, but they come off as if she's a know-it-all. She thinks she's marketing herself and her work. All she's really doing is turning readers off.
+- The marketability, the success of a book, ultimately rests with whether or not people will find the concept/characters/title/cover appealing.
+- They say every writer really just writes about one thing over and over. I guess my one thing is how the past impacts the present.
+- I placed my new novel, 'The Book of Lost Fragrances', in Paris, knowing it would be a challenge. But the book belonged in the city that is one of the greatest perfume capitals of the world and has been since for more than three centuries.
+- Nora Roberts, Stephen King, Lee Child and George R. R. Martin write wildly different books. Their writing, plotting and styles have little or nothing in common. But they all write books and characters that readers find appealing.
+- I just want to sit in my room and write books.
+- You shouldn't talk about yourself all the time - most of us aren't for sale. Our books are. Talk about them. It's not a question of whether or not you're fascinating on a personal level - it's that your trivia and trials might not have any connection to the tone, tenor and sense of your books.
+- I thought if I put my book up on the Internet as a file that you could download, and I told people about it, maybe some people would download it and read it, and maybe I could get some response.
+- In my novels, there are twelve ancient 'memory tools,' all now lost. Each of the 'Reincarnationist' books revolves around a different tool.
+- Social media buzz can lead to huge successes when people spread the word about something they love and want to share. But authors creating their own buzz? Making their own noise? It's hard to make a lot of noise on our own about our own work. Except, sadly, negative noise.
+- I've had a dozen novels published and have made far more than a dozen mistakes. Which is why Randy Susan Meyers and I wrote a guidebook to help authors avoid making our mistakes.
+- 'Power Play' is a morality tale for our post-Enron world and - not incidentally - wildly entertaining. Nothing wrong with that.
+- As consumers, we are faced with hundreds of choices - and when it comes to books, thousands of choices.
+- If I present a boring personal life to my readers, it's going to be harder for them to think of my novels as thrilling.
+- Estimates are that in 2012, more than 32 million books were available - the explosion, thanks to the ease of self-publishing; 2013 could see even more titles grace our virtual bookstores! That means we are going to be awash in covers and titles, plot descriptions and characters.
+- I think Paris smells not just sweet but melancholy and curious, sometimes sad but always enticing and seductive. She's a city for the all senses, for artists and writers and musicians and dreamers, for fantasies, for long walks and wine and lovers and, yes, for mysteries.
+- As a self-published author, you have the choice. Embrace the power to create a book that is truly yours. Don't be a whiner or a copycat.
+- Recognize that the great majority of us aren't trained actors and entertainers. Usually, it's not our faces, our bodies, our personas or our stage presence that sells our books. It's our stories, our visions and our voices.
+- From the very beginning, I envisioned success as selling enough books so I could keep getting published and continue to write what I wanted to without compromising.
+- I was taught to think outside the box. Before my grandfather was one of the original Mad Men, he and a group of other Air Force Intelligence officers formalized brainstorming as a problem solving technique. He taught the concept that creativity can be taught at Buffalo University. My dad invented toys. My mom was a photographer.
+- You can write the best book you can, and that might still not be enough. Appeal isn't something that most writers can't strive for or identify. It's something even the best agents and editors can't always identify.
+- Save yourself some grief. Check with the publicist you hire to see what other books he/she has coming out at the same time as yours.
+- Books on their own aren't insanely expensive compared to other things; three large cappuccinos cost more than a paperback, and two and a half gallons of gas cost more than a paperback.
+- I'm not a good writer. It takes me a long time to get there. I write and then rewrite and revise and do it over and over until I'm satisfied.
+- PR and marketing doesn't sell books. It gets attention for them. It sends readers to bookstores and websites to read a few pages.
+- The Fiction Writer's Co-op has 51 members, from celebrated NYT bestsellers to promising newcomers, and a waiting list.
+- I always miss my mom. Mother's Day would be just one more day I'd feel her absence but for the relentless commercialization. Thanks to that, this day is even harder to deal with.
+- If your mom is still around, you're so lucky.
+- I began tailoring my books to cater to one or another universe of readers. I found it incredibly boring; and frankly, it felt stultifying. I'd previously been in advertising. I felt if I was going to create something to fit a specific market, I might as well have stayed with advertising.
+- I know some authors who have gotten $25,000 advances and put it all into marketing, others who allocate $5,000 or $1,000.
+- When I was a kid, I read many of my mom's books. Sometimes, there were mysteries, but there were no delineations, and my mother never talked about book genres. Nor did we differentiate genres in school.
+- Paris is an unsolved puzzle. She inspires me in a way that other places don't. And she demands more of me. Just try to write about her without bumping into cliche after cliche.
+- Ask your agent to set up a meeting with either your editor or the marketing department of the house or both so you can find out what they're doing, what they aren't, and what you can do to help.

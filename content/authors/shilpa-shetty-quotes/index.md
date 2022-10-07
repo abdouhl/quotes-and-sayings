@@ -1,0 +1,54 @@
++++
+author = "Shilpa Shetty"
+title = "Shilpa Shetty Quotes"
+quotes_len = "48"
+description = "the best 48 Shilpa Shetty Quotes"
++++
+- I don't want to do anything and everything. I want to be a brand that, every time I leverage my name, I want people to feel sure that it's going to be something good - so whether it be my movies, my perfume, my restaurant, my musical, it'll be good work, good food and good everything.
+- I've never believed in dieting, but there are people out there who have problems. My advice would be don't ever stop yourself to a point where you start craving something, because you end up bingeing. I think the key word is moderation.
+- If you keep a clean heart with your money, you will have a clean karmic cycle, but the day you do something negative to another person, that karmic circle will start to bring you down.
+- Chocolate is maybe my only vice. In particular, Godiva's champagne truffles. Or Dean & Deluca vanilla cupcakes. Just thinking about them - oh my gosh!
+- If a guy wants to take me out, he must seek my dad's permission first. That's just the way it works.
+- I believe I am blessed with the ability to fall asleep just about anytime, anywhere. I can sleep on a flight, on a couch, and even on a bus.
+- Not coming from a film background, be it a teeny-weeny role or a big role, I have done it with a lot of dignity and fought my way through. But the only thing that kept me going is that I am the sort of person who doesn't take no for an answer. If someone rejects me, I will be out to prove that person wrong in my own way.
+- I am obsessed with cricket. But to be honest, I prefer the IPL format to test matches.
+- I find cooking very therapeutic. As a creative person, I relish cooking because it's such a creative process. You can cook anything out of anything.
+- I believe we move in soul groups; we meet the same people over different lifetimes; we have to finish the unfinished business with those people. And when we do, they walk away from our lives.
+- The grass is always greener on the other side. We are busy applying fairness creams while people in the West go bare-bodied on the beach to get a tan. Indian girls have ruled the roost when it comes to beauty pageants. I flaunt my complexion, and I am proud to be noticed as an Indian wherever I go.
+- I'd love to direct a film, but I don't think I have the temperament for it. I'm very hyper, and I want things to be done ASAP. If I turn director, I might end up killing my actors.
+- I can't be worrying about what other people think of me. I am my own person, and I have made it this far on my own. This is me - take me or leave me. I don't owe explanations to the rest of the world, only to my family.
+- I don't know why there is a discrimination between women and men entrepreneurs. Those who are doing their job should just be seen as professionals and not women or men.
+- In focusing towards the outer world, we celebs forget to focus on our inner well-being. We don't lead perfect lives, and only when we learn to have peace with our family members can we have peace in life.
+- Yes, many people in rural parts of India are very orthodox and have arranged marriages. But I won't - I want to fall madly in love with someone and be whisked off my feet.
+- First of all, from a spiritual perspective, I don't think anyone needs to be apologetic about being successful or having money. The more successful you are, the more job opportunities you create for other people.
+- My goal is that after I am dead and gone, I want people to remember me for the person I am.
+- I have actually been sporty right from my childhood. I was quite chubby in the first eight years of my life. But then I began playing volleyball in school. That did it. I lost all my baby fat and became slim.
+- If you saw me without concealer, you would see that I have raccoon eyes. And I think my forehead is too small. I am not quintessentially beautiful. I am photogenic, but that's only because I have learned how to make the best of what I've got from the make-up artists I have worked with.
+- I'm a believer of destiny, and I believe I'm destiny's child. I've seen the highs, and I've seen the lows, and I believe things happen for a reason and always for the best.
+- New mothers should enjoy every phase of motherhood without caring about the world. Weight can be checked and controlled. Don't lose your head and mind over it.
+- I'm a green tea addict, though the occasional glass of red wine is nice, too.
+- I try to be a good daughter, as I believe in karma and feel that how you are with your parents is directly proportionate to what you receive in your life. I am a big oneness follower, and our gurus have told us that if you want to achieve external happiness, you need to be happy internally. And your inner circle is your family.
+- I'm a bit of a shopaholic. I've been working in the Bollywood film industry since I was 17, and I have always been financially independent, but I think I would be useless looking after my own money.
+- I want a happy marriage and whatever it takes to achieve that. But I think the main prerequisite would have to be respect. He would have to respect me and vice-versa. And, that would be more important than being in love. I think respect really goes a long way. And he would have to keep me happy. And he'd have to be very, very, secure.
+- I believe in binging once a week. This takes care of my cravings. I don't eat huge quantities when I binge, but I eat different varieties of food.
+- I've been through my fair share of highs and lows. Yes, I've been written off, and it amazes me, and it amuses me, also, when I'm written off by the press cause then I tell them that's just the lull before the storm. And every time I've been down, I've been down, never out. So it just makes me work a lot harder.
+- I love Chinese food, like steamed dim sum, and I can have noodles morning, noon and night, hot or cold. I like food that's very simple on the digestive system - I tend to keep it light. I love Japanese food too - sushi, sashimi and miso soup.
+- Christian Louboutin - his shoes are classic and can be worn for any occasion. I love the feel of Prada shoes and the comfort of Fendi. I like Miu Miu and Nicholas Kirkwood. A shoe can decide how stylish you are.
+- OK, I'm not what you'd call 'wild.' But I'm no prude, either - I love to party, and I play a mean game of pool.
+- I don't want to go into a marriage just because of my age - too many people make that mistake. But of course I'd like to be married one day - I dream of having children because I adore kids so, so much.
+- When people spot me, they are really warm. They acknowledge me with smiles and come up, even now, to tell me that I showed a lot of dignity in 'Big Brother.' Or they say, 'I voted for you to win!' which is really sweet.
+- I'm not an early bird at all. Ideally, on Saturday morning I'd allow myself a lovely lie-in. 10:45 would be just right.
+- If your insides are not well looked-after, then your outsides are going to suffer. It's like a glass that's not cleaned from the inside. Whatever you do to polish it from the outside, it's still going to look dirty. So that's the analogy.
+- I would love to do a cookery show and cookery books. I'm not a professional cook, but I can definitely cook. I know the difference between good and bad cooking. I mean, when I was in 'Big Brother' I was the glorified cook of the house, so if I got offered my own show - then why not?
+- I adore gardening and plan to take it up properly when I have a bit more time on my hands. Until then, I love pottering in garden centres. I'm totally low maintenance. I don't ask for fancy plants, just basic, long-lasting shrubs that look nice. But I am particular about flowers.
+- Yoga did not just help me with my body, I became fitter from within. It helped me to focus better. In the movies, we may look very glamourous and fit, but believe me, not many of us are actually fit from within. Yoga has helped me achieve that.
+- I need someone to woo me. Magazines are always saying I am beautiful and millions of men want to woo me, but none has come forward because they are all so scared.
+- I'm destiny's child. I wasn't meant to be born: my mother bled for four months when she was pregnant, and then she fell down the stairs in her eighth month of pregnancy. She nearly died; I believe I came into this world for a reason.
+- I like being innocent, but know now when I am being taken for a ride.
+- I'm eulogised by a lot of men, but they wouldn't take me home to meet their mothers.
+- I was always spiritual, even as a child. I was taught to pray, show gratitude. We had an attitude of gratitude. Even if life was ugly, bad or sad - we prayed.
+- I visualise what I want through meditation. The process of meditating is a great way of making sure I have my priorities sorted. It's not about money - I focus on my career and the kind of film projects I want to do. Film-making is a passion for me, and my mantra is that you should do what you love, and the money will follow.
+- The best way to survive life is - never fret over what you don't get. There's a bigger plan for you.
+- I honestly have no interest in politics; I don't think I could ever get into politics.
+- Whether it is an ad or a business, it must be something I believe in. I cannot do something simply for the money. It must connect with me because I want to be a catalyst to make people's lives happier.
+- I have huge respect for women who go out of their homes and have the courage to make their own destiny. And let me tell you, Indian women are doing a great job. There are those who work because they have no option but to earn, and then there are those who do it because they have the right talent. I respect both.

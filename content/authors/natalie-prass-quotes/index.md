@@ -1,0 +1,67 @@
++++
+author = "Natalie Prass"
+title = "Natalie Prass Quotes"
+quotes_len = "61"
+description = "the best 61 Natalie Prass Quotes"
++++
+- I had to do so much self-searching and self-work and learning how to navigate in a world that seemed very mean.
+- I'm a real musician's musician: I get really geeky on chords and arrangements.
+- Like Lenny Kravitz, I wanna make the world a better place; I wanna unify people.
+- I'm really into the 'classic' thing - the craft of writing something that will last, that won't die by next year.
+- Music, for me, has always been a community thing. It's always how I make friends and hang out with people, because I didn't know how to do that. This is what makes me special.
+- Stevie Wonder is obviously the master at political music that's for everybody, that's still joyful.
+- I try as hard as I can to write from a personal place and be genuine.
+- I got offered publishing deals to write country music, but it was not what I wanted to do.
+- I love how controversial pink is. Men still feel uncomfortable wearing pink. It's ridiculous.
+- Who doesn't love a Disney princess, and who wouldn't want to be one? Belle is my favorite. She's the smart, awkward, and adventurous. She doesn't have too many friends - goes off and hangs out with talking silverware. I think it's great.
+- I do what I want to do instead of what other people think I should do, and I'm kind of stubborn that way.
+- There are a lot more variables with festivals than just playing in a venue.
+- I'm pretty picky about what I do and who I work with, for better or for worse.
+- I come from the most normal family. I've always been the oddball.
+- I do always write from a personal place.
+- I wasn't taken seriously being the only girl playing in band growing up.
+- I've always been very shy. Now I don't care anymore.
+- Music is what makes you feel joyful and makes me feel like I'm not alone. It's everything.
+- I had a fairy shrine in my room, and I went to fairy LARPing camp, and I played Dungeons and Dragons in the woods.
+- I get kind of nervous in crowds, so a musical festival would never be something I would go to, unless I was playing.
+- My dad gave me the 'Introducing Dionne Warwick' album when I was, like, 14. It was the first time I'd heard Burt Bacharach's songwriting and her voice, and it rocked my world. She's such a great singer and communicator. It really helped me shape my own style.
+- I think it's just my personality, or maybe just because I've been playing music for so long and working so hard at it, that I don't expect anything from it anymore. I just do my work and then hope that it works out.
+- Nashville has pushed me to improve constantly as few other places could, and I'm grateful for that.
+- Break-up albums are the best kind.
+- I've always been very driven and am also very stubborn.
+- After graduating college in 2010, I got to work - writing and co-writing all the time, playing and touring in bands, playing for other people's bands, working in coffee shops all over town.
+- I've struggled with self-esteem and depression, like most singer-songwriters. I listen to my EPs on Bandcamp, and I can just hear the pain and the self-esteem struggle in my voice.
+- That's what's so wonderful about collaborating: your idea can explode and become something else.
+- We still have so far to go as a country. People don't like to listen to women or take orders from them. I feel that a lot as a woman playing music.
+- I'm one of those people who don't want to share anything 'til it's a done deal.
+- If you want to make something of yourself, you have to just do it relentlessly.
+- I was poor. I struggled big time, living hand to mouth so I could be the kind of artist I want to be.
+- Gospel talks about life's struggles, but you always feel like it recognizes these struggles and that you can overcome them.
+- My dad had his own business and was extremely busy, but on a very rare occasion, he would play guitar and sing a bit. I was always fascinated by it. I wrote my first song in first grade because my dad was making songs up during those special moments, and it seemed like a fun thing to try myself.
+- I'm a very loyal and compassionate person.
+- Growing up, I had a natural love for women like Diana Ross, Mary Wells, Ella Fitzgerald. Then I got into Dionne Warwick, Nina Simone, and Patsy Cline.
+- I blindly loved music and never once questioned if I was weird or not. I didn't care. Still don't!
+- You go through so many changes, especially in your twenties.
+- I used to come home and play piano all day by ear and make songs up or figure out my favourite Elvis songs. I'd make up games by blindfolding myself and singing the harmony to whatever notes I'd play.
+- I'm such an emotional person that when it comes to songwriting, I can click into whatever zone I need.
+- Women are against women, and men are against women. Like, women have to rise above so much to get ahead. I feel guilty that sometimes I hate being a woman. I hate it because there's so much weight on your shoulders at all times. Maybe I'm just really sensitive.
+- I'm the kind of writer that, once I get into writing mode in my brain, I'm non-stop.
+- When I was growing up, my dad would always be playing Motown around the house. He loved Stevie Wonder and the Supremes and got me into Dionne Warwick. It was the best music I'd ever heard. It was just that extremely deep, human, thought-out stream of ideas. You can always hear something new when you listen to that music.
+- There came a point when I was thinking, 'I'm now 26, 27, working on music every day, but I'm not making, like, a lot of money. What's happening? I guess I'll just start making dog clothes.'
+- I want to talk about things that are actually important.
+- When I made dog sweaters, as goofy as that was, I made this product, and people could buy it, and I got money immediately. Music was just this ethereal land of maybe, a lot of waiting and waiting. You live your life around hoping you get a five-thousand-dollar royalty check that usually doesn't come.
+- I'm definitely someone who's really picky about who I work with and how I want things to go, because I have a high standard of integrity for my music. I want it to be genuine.
+- I've always been in this weird indie world, and for a long time, I felt that it was not okay to be girly in that world.
+- It is like an addiction: I get addicted to performing and touring. I get itchy and think, 'I've got to do this.'
+- My path has been a little weird. I hope that it can inspire people.
+- Music is all I've ever done.
+- When you're that age - that middle-school age, early high school - you're changing. You're going crazy. So I put all of my energy into pretending I was someone else, battling and screaming and all that stuff - casting spells and getting into a whole fantasy world. It was really healthy for me.
+- If you want to be a songwriter, you've got to obsess over it.
+- I've always liked playing with somebody else and collaborating, just to get out of my own head all the time. Everybody does, but artists especially, we torture ourselves. So it's good for me to immerse myself in somebody else's work.
+- My kind of retro-sounding songs, or whatever you want to call them, aren't for everybody.
+- It's an artist's choice to speak up about social issues, but I think it's really important, and my favorite artists have spoken out.
+- I love wearing dresses, but more simplistic, classic-looking dresses.
+- Audrey Hepburn is a huge influence on my style. She's classy, confident, and simplistic. She's a tomboy and also super feminine.
+- I've never wanted to be like anybody else. I'm me.
+- I'm not really a trend person.
+- I don't think I'm the most talented musician or the best singer, but I work really, really hard.

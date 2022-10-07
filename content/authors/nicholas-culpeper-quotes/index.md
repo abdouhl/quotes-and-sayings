@@ -1,0 +1,16 @@
++++
+author = "Nicholas Culpeper"
+title = "Nicholas Culpeper Quotes"
+quotes_len = "10"
+description = "the best 10 Nicholas Culpeper Quotes"
++++
+- For God's sake build not your faith upon Tradition, 'tis as rotten as a rotten Post.
+- Let your Medicine be something of the Nature of the Sign ascending.
+- Waters are distilled out of Herbs, Flowers, Fruits, and Roots.
+- Such Roots as are soft, your best way is to dry in the Sun, or else hang them up in the Chimney corner upon a string; as for such as are hard you may dry them any where.
+- The Barks of Trees are best gathered in the Spring, if it be of great Trees, as Oaks or the like, because then they come easiest off, and so you may dry them if you please, but indeed your best way is to gather all Barks only for present use.
+- The Herbs ought to be distilled when they are in their greatest vigor, and so ought the Flowers also.
+- All Juleps are made for present use, and therefore it is in vain to speak of their duration.
+- In all Diseases strengthen the part of the Body afflicted.
+- Gather all Leaves in the hour of that Planet that governs them.
+- Thus have you the way of making Conserves, the way of keeping of them is in Earthen pots.

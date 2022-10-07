@@ -1,0 +1,35 @@
++++
+author = "Joy Harjo"
+title = "Joy Harjo Quotes"
+quotes_len = "29"
+description = "the best 29 Joy Harjo Quotes"
++++
+- You just go where poetry is, whether it's in your heart or your mind or in books or in places where there's live poetry or recordings.
+- You can't look for love, or it will run away from you. But, you know, don't look for it. Don't look for it. Just go where it is and appreciate it, and, you know, it will find you.
+- When explorers first encountered my people, they called us heathens, sun worshippers. They didn't understand that the sun is a relative and illuminates our path on this earth.
+- It took me 14 years to write 'Crazy Brave' because I kept changing the form and I also kept running away from the story. I said I don't really want to write about myself. But it's about writing about memory.
+- I don't see the desert as barren at all; I see it as full and ripe. It doesn't need to be flattered with rain. It certainly needs rain, but it does with what it has, and creates amazing beauty.
+- I love the sound of the saxophone. It became my singing voice, and it sounds so human. The saxophone could carry the words past the border of words. It can carry it a little bit farther.
+- I never fit in. Everyone knew my dad was Indian. I was half-Indian.
+- I am a member of the Muskogee people. I'm a poet, a musician, a dreamer of sorts, a questioner. Like everyone else, I'm looking for answers of some sort or the other.
+- I don't like this romanticization of Indian people in which Indian people are looked at as spiritual saviors, as people who have always taken care of the land. We're human beings. But I think different cultures have developed different aspects of humanness.
+- Bottom line, I have to follow what my soul says, or my spirit. And my spirit said that poetry and the arts should be without borders, should be without political borders.
+- Humans are vulnerable and rely on the kindnesses of the earth and the sun; we exist together in a sacred field of meaning.
+- My ancestors include Monahwee, who was one of the leaders in the Red Stick War, which was the largest Indian uprising in history, and Osceola, who refused to sign a treaty with the United States.
+- The homeland affects you directly: it affects your body; it affects the collective mind and the collective heart and the collective spirit.
+- When you play a sax, that saxophone is irreverent. It's noisy; it's a trickster... you cannot hide the saxophone in your hands, so it's a good teacher.
+- Sometimes, I think, in order to get to something that we really want or we really love or something that needs to be realized, that we're tested.
+- I've been present at birth, and death is just as present and in equal balance. And I've been present at death, and birth is just as present, again in equal balance.
+- We're all given something to do. And when we don't follow what we're supposed to do, we always know when we're off track.
+- The creative act amazes me. Whether it's poetry, whether it's music, it's an amazing process, and it has something to do with bringing forth the old out into the world to create and to bring forth that which will rejuvenate.
+- I believe in the sun. In the tangle of human failures of fear, greed and forgetfulness, the sun gives me clarity.
+- I started writing to save my life.
+- I chose poetry. Actually, poetry chose me.
+- Someone accompanies every soul from the other side when it enters this place. Usually it is an ancestor with whom that child shares traits and gifts.
+- I come from a long line of revolutionaries.
+- The radio is playing jazz, and I listen to the sound of the trumpet playing a solo until I become that sound.
+- Most people don't know that Congo Square was originally a Muscogee ceremonial ground... in New Orleans, the birthplace of jazz.
+- When I began to listen to poetry, it's when I began to listen to the stones, and I began to listen to what the clouds had to say, and I began to listen to others. And I think, most importantly for all of us, then you begin to learn to listen to the soul, the soul of yourself in here, which is also the soul of everyone else.
+- My mother wrote lyrics and sang but was overtaken by life with four children and worked.
+- I've always loved the desert. I've spent most of my life in the Southwest. It's certainly influenced my work. I used to dream about it when I was young.
+- I hear from my Inuit and Yupik relatives up north that everything has changed. It's so hot; there is not enough winter. Animals are confused. Ice is melting.

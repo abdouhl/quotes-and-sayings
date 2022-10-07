@@ -1,0 +1,106 @@
++++
+author = "Juan Mata"
+title = "Juan Mata Quotes"
+quotes_len = "100"
+description = "the best 100 Juan Mata Quotes"
++++
+- Football generates a lot of money, but there has to be a social responsibility that goes with that. It can positively affect people's lives.
+- A win doesn't last too long, and it happens the same way with a defeat. You have the chance to make it up soon afterwards.
+- Obviously, when you've made a great assist... is a great feeling, but obviously, the best feeling is to score yourself.
+- I had the luck of being in Madrid. They sign some of the best players in the world, and that really leaves fewer opportunities for young players.
+- Obviously, when I play well and win a trophy, I feel happy about myself.
+- There's always pressure. People's happiness depends on you; they suffer with you. You get used to it, but you have to know how to handle it.
+- It's amazing knowing that a club like Manchester United is interested in you. It's a good feeling.
+- Obviously, Spain is my home, and I have everything here - family, friends - but I'm very happy in England, with the way of life we have and with English football.
+- It would be great to play until I'm 40 like Ryan Giggs.
+- There are some examples in my career when my family was more concerned than me. So every time I win or I score, I always think about them.
+- Real Madrid wanted me to join their academy. It was a big decision to move when I was 15. It's a key age for a youngster, and you're close to your friends and family. But I moved to Madrid, and my family stayed at home. It made me mature earlier than normal. That was a very big decision, and it changed me in a positive way.
+- I would like to win the Premier League.
+- I have always been a very positive person and tried to bring the positives from the hardest moments.
+- I think every footballer, after 20 years playing football, the first thing that comes to your mind is to relax.
+- I just want to be playing! I love to play. But I think I can play in the three positions behind the striker.
+- I'm the way my father taught me to be.
+- I've tried to improve - defending, attacking, pressing, trying to think before a game, to be more clever, do something before the defender can think of it, to become a better player. That makes me feel good, that hunger to improve in every way.
+- Maybe the yoga I do helps me to play as much as I do. It certainly gets you in the right frame of mind, stretches and relaxes you.
+- Everything I do is about improvement.
+- I'm a person who doesn't think bad about other people or feel happy when other people don't get results.
+- You can stick with one manager and have no wins, no trophies, or you can have so many different managers and win a lot. It comes down to the players, to the desire, and the way the club likes to behave.
+- Van Gaal is how you see him in the press conferences; he's like that with us, too. He's honest and straightforward. He believes in his style of training and way of preparing for games.
+- When I signed for Valencia, it wasn't the best moment of my football career because in the beginning, I was not playing a lot. But I remained calm, and I knew that if I trained well and played as I know, I'm sure I can get a place in the first XI.
+- I'm trying to know every part of London, to improve my English and enjoy the football. On my days off, I go to different parts of the city.
+- Obviously, replacing Sir Alex Ferguson was never going to be easy - not for him or for anyone. Although I was with him for only a few months, I'll always be grateful, as he played a key role in my move to United. He was the one who called me, who welcomed me, and the one who gave me the confidence to come here.
+- I train a lot. After training sessions, I like to stay with some balls and some goalkeepers - they help me a lot, too.
+- I don't like to think about others losing or not performing well. No, no - I'm not that kind of person.
+- I never lose faith. I believe in myself. I know what I can do.
+- The most important and the better feeling in football, for me, is scoring a goal.
+- As I always say, one of the best things of football is that the game is testing you all the time.
+- The business side of football makes it seem as though the owners are now more important than the fans.
+- I cannot control what people think. But I can control myself and my aim, and my head is focused on trying to win trophies.
+- Football is not about money but emotions.
+- I admire Arsenal and the philosophy that the young players have. Liverpool, with their Spanish players, they also have an incredible squad. And Manchester United and Chelsea are teams that are very big, like Real Madrid and Barcelona, with money and incredible players.
+- I can tell you as a Manchester United player how big this club is and how you feel the repercussions of everything you do. It happens to everyone. It happened to me when I came.
+- Sometimes you look at footballers and think they're selfish or they don't bring a good image to society. But sometimes people underestimate footballers and their capacity to have a strong opinion and sympathy for others.
+- Everything depends on the club more than the player: the quantities, the paperwork.
+- My duty, what I have to do, is try my best in every training session, leave everything of me on the pitch. That's how I can go to bed at the end of the day and be happy with myself.
+- A coach depends on whether I take a corner well or finish a chance in front of goal, and really, what influence does he have over this when it happens?
+- Wherever I go, I see kids playing football. Even if there is no grass and it's just sweaters for goals, you see how people love football.
+- It will be nice to play against Australia. It's a great country, and football is getting bigger and bigger.
+- I like the Common Goal initiative, the vision of football as a tool for social change and the power football has to improve the world.
+- I've been lucky to be born in Spain to a good family. But some team-mates reached the same position from a tough background. Football is equal, and it doesn't matter where you come from.
+- My adaptation on the pitch has gone in parallel with my adaptation to London.
+- You have to feel free enough to do what your body is telling you to do. Sometimes, though, the pressure of winning and the fear of defeat limit your performance.
+- There are so many clubs with great squads, good managers, good financial situations that allows them to sign good players.
+- For me, football is what I love to do most. It is also the thing I'm better doing than anything else.
+- Like any footballer, I love to play. I love to feel important. I love to enjoy the game.
+- Chelsea is a top club, and I have many friends there, but you cannot turn down the chance to join Manchester United.
+- Every player thinks he's Maradona when he joins a big club. That happens to all of us, but then you start to notice it in the younger players. You see kids who think they're rock stars, wearing extravagant clothes and driving fancy cars... and sometimes you have to take them aside and have a word.
+- If you want to be anonymous, you can go to Soho or Camden, and it's not a problem. There are a lot of Spanish people. If you go to Piccadilly or Oxford Circus, you hear lots of Spanish voices, but I'm not recognised much.
+- One of the best things if you are a football player is to see the faces of the kids, when they see you and are dreaming of being like you one day. That's a big responsibility, to be a good image for those kids. A football player is more than just a football player.
+- For me, good football is not about how many skills you show or how many players you beat. It's about making the right decision every time you have the ball.
+- We have professional football, but we also have a beautiful game which, wherever you go, can be used as a social tool for change. Football has an unmatchable power.
+- I've been in England for a while, but it's true that at times you miss home, your family, your friends.
+- If a luxury player is a player who scores and assists and has good stats, then I'm happy to be a luxury player.
+- You never know what can happen in football and in life.
+- I like to be in contact with the ball, have possession, to play.
+- In Spain, they show many Premier League games on TV, and it is an inspirational league. Maybe I would like to play in the Premier League.
+- One of the first lessons I learned in football is that it takes a team to win a game.
+- I live in a bubble. Real life is the one my friends live. They've had to look for work, sign on to the dole, and emigrate. That's normal life now. My life as a footballer is not normal.
+- I will always be grateful to Chelsea, to the players, the directors, the owner, the fans.
+- For a kid that just played for Oviedo, to then going to play for a team like Real Madrid, it felt fantastic. But being taken out of my family home and moving away alone, into the residence Madrid have for young players, it was a bit difficult. But as time passed, I got used to it.
+- Football sometimes has a bad reputation. Some of that is deserved... and some of it isn't.
+- I like creative players and players who do different things.
+- Confidence comes from results. If you are winning, you have that confidence; if you are losing, you don't have it.
+- I've scored as many goals for Manchester United in the Premier League as for Chelsea, but in something like 30 games less.
+- Winning the World Cup is something that will always be inside your mind and inside your body.
+- I am not so old, but when I started out, we had none of this. We did not have the need to show the things we do and the good life we lead. That is dangerous. Social networks can be very positive because it's a great vehicle to communicate, but perhaps things need to be done in a different way.
+- Luck - it's key for every footballer's career. I have been incredibly lucky during my career and in my life.
+- If I was 19, 20, 18, and I had the chance to play with first-team players of Manchester United, I will definitely try to take my chance.
+- English football is changing: the champions don't play a 'typical' English style, for example. But in general, it's quicker than in Spain: more counter-attacks, more open, more direct.
+- I don't dab, bro.
+- Through Common Goal, we're creating a collaborative way for football to give back to society.
+- As a child, we would all go to a tiny village near Burgos, and we'd have typical Spanish parties in the summer. There would be a band and grandparents dancing all night dressed up as American Indians and things like that.
+- The only thing I think about is helping the team, respecting all my team-mates, not being selfish.
+- It is true that footballers are mistrustful.
+- But I just try to do my best. I don't know if my game can influence the game of the team and how we play, but I just try to help with my football, for my team-mates and the club.
+- The managers I've known all had their own specific way of working.
+- Football is losing its essence: people talk about celebrations instead of goals.
+- Who is shorter, me or David Silva? I don't know. Probably him.
+- I think that being confident gives you more freedom. It liberates you, helps you have the courage to do things on the football pitch.
+- I'm at the fantastic club that is Manchester United, one of the biggest in the world.
+- I feel privileged to play for Manchester United. It is something, when I'm old, I will always be proud of.
+- When you are in a club like Manchester United, you have a lot of pressure around you.
+- For me, it would be the perfect summer to play in the Euros and then the Olympics. My desire is to play in both.
+- If you want to give 100 per cent, you have to feel that you are important for the manager.
+- I always said I was very grateful for Chelsea. I spent an amazing time of my career there, we won a lot of trophies, and I think I became a better player. I have great friends in the club, and I always wish the best for them.
+- I am thrilled to be joining United. I have enjoyed some very happy years at Chelsea, but the time has come for a new challenge.
+- I'm a professional. I have to do my best.
+- When I heard of United's interest, I thought, 'Wow.' This is a team that has won a lot of leagues in the history of the Premier League and English league.
+- I consider myself as this kind of attacking midfielder, trying to find the gaps between the opposition midfielders and defenders and produce what the team needs between the lines.
+- I'll always be proud to say I played at Chelsea, at Valencia, in the youth system at Real Madrid, in the youth system at Real Oviedo, and for United.
+- I see children now, and many things surprise me: they ask me about my boots and why I don't dye my hair. I wonder, 'Why don't you talk to me about how to cross the ball, control it, the position of the body when I strike the ball?'
+- London is a very big city, Manchester is calmer. I live near the training ground, so I do things around there in the countryside, but I really like Manchester's Northern Quarter, where they have nice coffee shops and live music places.
+- If you face the goalkeeper, you have to wait for him to go and then put the ball in the other side. It's easy to say it but not so easy to do it when you are in the 88th minute of a game. So you must practise.
+- Football's incomparable to anything else - perhaps only music has that same power to transform society.
+- With respect to the world of football, I earn a normal wage. But compared to 99.9% of Spain and the rest of the world, I earn an obscene amount.
+- To be honest, I was never expecting to be in a World Cup final, a Euro final, a Champions League final, a Europa League final. I've done much more than I dreamt, and that's incredible.
+- That's what I work for every day: training and playing to the maximum, trying to do the best I can.

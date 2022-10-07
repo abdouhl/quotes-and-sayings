@@ -1,0 +1,106 @@
++++
+author = "Gianluca Vialli"
+title = "Gianluca Vialli Quotes"
+quotes_len = "100"
+description = "the best 100 Gianluca Vialli Quotes"
++++
+- The three European finals I won, I remember very well.
+- If I'm thinking about work, it's easier to block the irrational thoughts out of my mind.
+- In Italy, you lose a game, you can't walk out of the stadium without having a police escort. You lose a game in England and you get out and, as long as you've done your best, you are asked to sign autographs and you see the kids and you see everybody and nothing happens.
+- A sore ankle, a swollen knee or a bruise makes you feel alive.
+- I wasn't particularly good at showing my emotions and I kept things inside. It's not good. Now I realize that whenever I want to cry, I cry.
+- If I was a wealthy foreigner I wouldn't want to invest in Italy because there are so many uncertainties, all the scandals related to corruption and match-fixing.
+- We Italians need to feel like we're under pressure, we need to see an enemy.
+- As a manager, you have to sow a seed of imagination in your players.
+- If other teams want to score they must know they have to get past all 11 players. It's a simple philosophy.
+- To wear the Juventus shirt is an honor, but it's also very heavy.
+- Clubs have sponsors. They are just there for commercial reasons but the club calls them partners. Then you have the fans. The fans are emotionally involved, they are loyal, and the clubs call them customers. I think fans owning a share of the club would mean the owners know what 'customers' really think and feel.
+- Finishing second and getting in the Champions' League quarter-finals or semi-finals is fine, but at the end of the day you need to take some silverware.
+- Italian players go to bed and they think about the training session of that day and the one the day after.
+- In England you probably have too many cups with the Champions League as it is now. You have the FA Cup and another cup; what's the point in that? Probably one cup should be more than enough.
+- I don't want robots. I want players who are spontaneous.
+- Celebrations have now become too selfish and I don't like it. When I used to score I was happy to celebrate with my team-mates. Now when players score it is all about them.
+- I love players but I'm afraid it has become a selfish culture.
+- I am not a warrior.
+- I really enjoyed coaching Chelsea. It was a different atmosphere with less money and a more familiar environment.
+- You need to be unbelievably fit for Gaelic football.
+- I hope that my story can help inspire others who are at a decisive crossroads in their lives.
+- I think England are a very exciting side because they have got so many young, talented, creative players, playing up front.
+- It's because of football that I bought my first car, I bought my first house and I probably had sex for the first time... actually, that was definitely because of football.
+- They say the Premier League is best league in the world. Or Roy Keane says we are brainwashed into believing it. He might be right. But I can definitely say it's the most entertaining league.
+- I am glad to see there are some football clubs that are trying to change the trend and move it towards a British way of running clubs, obviously with a very strong Italian identity.
+- Football is something great, but it is like making love: if you do it every minute you get bored, so you have to take your time and do it now and again.
+- I never thought that being a footballer I was invincible, I knew I was human.
+- It's difficult to be both a good player and a good manager.
+- One of the important things, which I wrote on yellow post-it notes and stuck on the wall during therapy, was that we are the product of our own thoughts.
+- I am absolutely satisfied with my experience in English football because despite the two dismissals it allowed me to win more than one trophy and to live in a different environment from Italy, where I feel very happy.
+- You need to be humble, play with pride but also aggression.
+- You realize just by writing down everything you own that it's just materialistic stuff. We are much more than that.
+- Having someone breathing on your neck can be good for you.
+- Italian football is a laughing stock.
+- I have been thinking quite a lot about retiring... it is getting very difficult to be both a player and a manager.
+- Something I think that I'm good at is that I don't complain.
+- I always felt I didn't want to fight cancer, because it would be too big and powerful an enemy.
+- I am happy working for Sky Italia, they pay me to go to watch football matches which is great by me.
+- Pressure is a combination of expectations, scrutiny and consequences. If the consequences are grave, then you feel more pressure and if you feel more pressure you learn how to cope with that.
+- Sometimes when Premiership referees drop down a division they think they can have an easy ride.
+- I'm mentally drained even when I'm just sitting on the bench and not playing.
+- When the opposition has the ball you don't want to chase. You want to stay fresh for when the opportunity comes to score.
+- Italian football lost credibility because of the match-fixing scandals - the best footballers didn't want to come.
+- If you want to sell a service, you have to be the first to believe that the service has value.
+- I don't think Italian football is a particularly appealing product for anyone that wants to invest unless they are Italians that understand exactly what goes on in our country and the way things are done.
+- The only way you can play with three strikers - which we did at Juventus - is if the three work really hard, and become the first defenders.
+- For me to live in England and be part of English football is the maximum of this life.
+- I am a man who is on a journey and cancer has joined me on that journey... my goal is to keep walking, keep moving until he's had enough and leaves me alone.
+- It's inevitable that you find out about your true self. There was so much I realized I had to work on, to try to improve.
+- I've always been perceived as a tough guy.
+- Conte can't wait to leave Chelsea. He can't stand that they sell or buy players without consulting him.
+- I'm lucky because my life has been very exciting.
+- It's not simply a case of managing players as they used to be any more, because players now are like small companies. You have to deal with their agents and it's become extremely tough being a manager these days.
+- Success comes from the culture you create in your organization.
+- I never meditated before. I wish I'd started when I was a footballer or more importantly when I was a manager. It might have saved me from insanity.
+- In Italy managers are judged simply by results.
+- I knew that was going to be the last chance to play in the Champions League final - I was desperate to win, I put a lot of pressure on myself. Finally I got hold of that cup - it was the defining moment of my career. I got really emotional and nearly fainted on the pitch.
+- My pleasure comes from doing my job in the best possible way. Whether it is at Chelsea or Juventus or Watford, it does not really matter.
+- As a player I had the opportunity twice a week to play football in front of thousands of people and I could make them happy by just scoring a goal.
+- I never want to make the people dearest to me suffer: my parents, my brothers and my sister, my wife Cathryn, our children Olivia and Sofia.
+- Cancer is an unwanted travel companion, but I can't help it.
+- Chelsea are like a beautiful wife who married a richer man after leaving me.
+- It's very important for me to play in London. It's a wonderful city.
+- I'm looking forward to staying on the bench as a manager. I'm not going to push myself into the team or play for the sake of it.
+- In the Premier League you get the feeling they give you a bit longer to sort out problems. They are more understanding and, most importantly, owners of football clubs don't think they know more than managers.
+- When you wake up in the morning and you see the same beautiful face next to you, your wife, you don't get bored do you?
+- Italy should learn from the English system regarding security and civility.
+- You need pressure... I think in England players are not trained to deal with pressure.
+- Italian managers don't enjoy themselves at all.
+- The Italian players, they eat pressure for breakfast, so they grow up with a lot of pressure and they know how to handle it.
+- I gave up at the right time, scoring a goal against Derby. I didn't hear anybody shouting, 'Please stop, you are getting too old.' That's a success. And I don't want to come back for the sake of it.
+- Obviously, I love playing football and I have kept fit.
+- It's the inability to handle the pressure that makes a big difference between the Italian players and the England players when it comes to the World Cup stage.
+- You know, it's vital for me, when I take a job, to work with people I can enjoy working with.
+- Lifting the Champions League trophy would be something Juventus deserve.
+- As a player I thought all managers were doing something wrong.
+- I played for four clubs during my career and for me it was like having four wives.
+- I try not to cry in front of people that might get very emotional. I try to cry by myself. When I'm in a comfortable place, I don't hold anything inside. I just let it out, and I feel better afterwards.
+- The defenders can be clever and use everything within the laws of the game to stop the strikers scoring goals and, while some pulling is allowed, you need to be clever.
+- I think I've got my muscles back. I've been working out every other day with my wife.
+- When you meet people you don't want them to look at you and say 'poor you.' I just wanted to be treated like a normal person.
+- At Chelsea, even though I achieved a lot, they did not have great confidence in me.
+- Italian football has a lot of appeal, even though it must improve.
+- The truth is, Chelsea would like a manager who is more of a club man.
+- It is only when you are afraid that you can be courageous. So if you don't overcome any fear, how can you find out who you really are?
+- The important thing is not winning, but that we think in a winning way.
+- We were all in love with the club. We went to bed with Sampdoria pajamas on, while going to the Bogliasco training ground in the morning was always a joy: the blue of the sea on one side, the green of the hills on the other. Wonderful.
+- It's an indescribable moment when you lift the cup and you scream with your supporters.
+- I don't like thinking 'Why me, why me, why me?' when I was diagnosed with cancer because that would be hypocritical. I didn't say 'Why me?' when I was one in a thousand who made it as a professional footballer.
+- I'm here with all my faults and my many fears, but also with the desire to do something important.
+- I tried to start looking at things differently; I tried to surround myself with positive energy. Meditation helped, exercising, writing, reading and learning new things.
+- I'm not 25 anymore. It takes much longer to recover now from a game than before.
+- In Italy, managers don't know how long they're going to be in charge for and there's always rumors about someone taking over.
+- I was in love with Cruyff growing up.
+- I still get upset if the pasta is not cooked how I like it, but I've learned to put things into context.
+- I have my family. I've got the love of my wife, my daughters and friends, people who like me, think about me and send me prayers and positive energy.
+- The Champions League is worth more and allows you to write a page in football's history.
+- Management is about improving your relationship with the players and the journalists, about learning to read a game better so that you can make changes.
+- I've tried to keep myself fit, but to be successful you need to think and train as a player.
+- If I played again it would be like Maradona or Platini playing again!

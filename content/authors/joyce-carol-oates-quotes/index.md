@@ -1,0 +1,142 @@
++++
+author = "Joyce Carol Oates"
+title = "Joyce Carol Oates Quotes"
+quotes_len = "136"
+description = "the best 136 Joyce Carol Oates Quotes"
++++
+- There should really not be anything gratuitous in a work of art. Sometimes what seems as if it's gratuitous may be a passage in which a character is being characterized so that the reader comes to know him or her better.
+- Productivity is a relative matter. And it's really insignificant: What is ultimately important is a writer's strongest books.
+- We are linked by blood, and blood is memory without language.
+- I haven't any formal schedule, but I love to write in the morning, before breakfast. Sometimes the writing goes so smoothly that I don't take a break for many hours - and consequently have breakfast at two or three in the afternoon on good days.
+- One writes to memorialize, and to bring to life again that which has been lost.
+- I think all art comes out of conflict. When I write I am always looking for the dramatic kernel of an event, the junctures of people's lives when they go in one direction, not another.
+- To write a novel is to embark on a quest that is very romantic. People have visions, and the next step is to execute them. That's a very romantic project. Like Edvard Munch's strange dreamlike canvases where people are stylized, like 'The Scream.' Munch must have had that vision in a dream, he never saw it.
+- Boxing is a celebration of the lost religion of masculinity all the more trenchant for its being lost.
+- I am what would be called a 'mainstream feminist,' not a radical feminist.
+- Any kind of creative activity is likely to be stressful. The more anxiety, the more you feel that you are headed in the right direction. Easiness, relaxation, comfort - these are not conditions that usually accompany serious work.
+- Most people who are writers go through periods when they can't write.
+- The worst cynicism: a belief in luck.
+- The most common misperception about me is that I write fast. I just write often. Every hour that I can.
+- I probably spend 90% of my time revising what I've written.
+- I think whenever we think of our hometowns, we tend to think of very specific people: with whom you rode on the school bus, who was your next door neighbor you were playing with, who your girlfriend was. It's always something very specific.
+- It's not hard to write poorly. But to write something good, it has to be revised.
+- Most people think that a widow is inhabiting some elegiac world of - it's like Mozart's 'Requiem Mass.' You know, it's very beautiful and elevated thoughts and some measure of dignity. I didn't have that experience at all. I had one pratfall after another.
+- For some reason, voters can be brainwashed, and they vote sometimes against their own best interests, let alone voting against the interests of people who need them, like people who are disenfranchised and people who are poor and so forth.
+- Yes, I've listened to just a few audiobooks - but hope to listen to more. I've wanted to investigate how my own books sound in this format and find the experience of listening, and not reading, quite fascinating.
+- I've always been interested in writing about people, including young children who are not able to speak for themselves. As in my novel 'Black Water,' I provide a voice for someone who has died and can't speak for herself.
+- If a book I've committed myself to review turns out to be 'disappointing' I make an effort to present it objectively to the reader, including a good number of excerpts from the text, so that the reader might form his or her own opinion independent of my own.
+- Detroit, my 'great' subject, made me the person I am, consequently the writer I am - for better or worse.
+- In 'We Were the Mulvaneys,' animals are almost as important as people. I wanted to show the tenderness in our relationships with cats, dogs, and horses. Especially cats.
+- We are all regionalists in our origins, however 'universal' our themes and characters, and without our cherished hometowns and childhood landscapes to nourish us, we would be like plants set in shallow soil. Our souls must take root - almost literally.
+- The - the sort of thing that I want to do is to strike a resonant chord of universality in other people, which is best done by fiction.
+- Writers and artists never pay attention to advice given by their elders, quite rightly. The only worthwhile advice is the most general: 'Keep trying, don't give up, don't be discouraged, don't pay attention to detractors.' Everyone knows this.
+- When people say there is too much violence in my books, what they are saying is there is too much reality in life.
+- Sometimes I read reviews, and without exception I will read critical essays that are sent to me. The critical essays are interesting on their own terms.
+- After my parents passed away - in 2000 and 2003 - I felt I could take the time to think about the past and imagine what it would have been like to be my grandmother.
+- Novels usually evolve out of 'character.' Characters generate stories, and the shape of a novel is entirely imagined but should have an aesthetic coherence.
+- Before you can write a novel you have to have a number of ideas that come together. One idea is not enough.
+- Night comes to the desert all at once, as if someone turned off the light.
+- I am not conscious of working especially hard, or of 'working' at all. Writing and teaching have always been, for me, so richly rewarding that I don't think of them as work in the usual sense of the word.
+- A writer can't subtract or excise any of his/her past because doing so would erase the work produced during that time.
+- Among many of my friends and acquaintances, I seem to be one of the very few individuals who felt or feels no ambivalence about my mother. All my feelings for my mother were positive, very strong and abiding.
+- I compose most of my tweets with care, as if they were aphorisms - they are not usually dashed-off. Sometimes I'm surprised by the high, poetic quality of Twitter - it lends itself to a surreal sort of self-expression.
+- I don't read for amusement, I read for enlightenment. I do a lot of reviewing, so I have a steady assignment of reading. I'm also a judge for the Anisfield-Wolf Book Awards, which gives awards to literature and nonfiction.
+- Mark Twain was very unhappy with himself for various reasons. He was very unhappy with America of this time. He thought it was terrible we had no anti-lynching laws, and he was also a feminist, and he was also very concerned with anti-Semitism. He was a good man, but he was hard on himself.
+- If my favorite, most comfortable place is by our fireplace in cold weather, expedient places are on an airplane, in a waiting room or even waiting in line; frequently these days, while on the phone having been 'put on hold.'
+- Our enemy is by tradition our savior, in preventing us from superficiality.
+- I could never take the idea of religion very seriously.
+- When you are writing literary writing, you are communicating something subtextual with emotions and poetry. The prose has to have a voice; it's not just typing. It takes a while to get that voice.
+- Even as a young child, I was a lover of books and of the spaces in which, as indeed in a sacred temple, books might safely reside.
+- I don't teach literature from my perspective as 'Joyce Carol Oates.' I try to teach fiction from the perspective of each writer. If I'm teaching a story by Hemingway, my endeavor is to present the story that Hemingway wrote in its fullest realization.
+- The historical Woodrow Wilson suffered from numerous complaints which we might today label as psychosomatic. Yet, Wilson did have a stroke as a relatively young man of 39 and seemed always to be ill. He was 'high-strung' - intensely neurotic - yet a charismatic personality nonetheless.
+- Life and people are complex. A writer as an artist doesn't have the personality of a politician. We don't see the world that simply.
+- When my brother called to inform me, on the morning of May 22, 2003, that our mother Caroline Oates had died suddenly of a stroke, it was a shock from which, in a way, I have yet to recover.
+- To be Jewish is to be specifically identified with a history. And if you're not aware of that when you're a child, the whole tradition is lost.
+- People have libraries at home, they have bookshelves, they have CDs. And they sort of try, people try to bring great artists into their lives, into their physical houses and sort of live with portions of them. But they're not really deeply engaging with them.
+- I always rewrite the very beginning of a novel. I rewrite the beginning as I write the ending, so I may spend part of morning writing the ending, the last 100 pages approximately, and then part of the morning revising the beginning. So the style of the novel has a consistency.
+- Often in gothic novels there's a large house, an estate, and it's symbolic of that culture. Usually it's sort of moldering or rotted or something, and sometimes it's a whole community.
+- 'We Were the Mulvaneys' is perhaps the novel closest to my heart. I think of it as a valentine to a passing way of American life, and to my own particular child - and girlhood in upstate New York. Everyone in the novel is enormously close to me, including Marianne's cat, Muffin, who was in fact my own cat.
+- Love commingled with hate is more powerful than love. Or hate.
+- I don't know what marriages are like in general, but there are many things which I don't talk about with my husband. We discuss practical problems, but I wouldn't sit down with him and talk about the distant past. It's somewhat in contrast to other Americans, who feel that they have to confess things, but I'm really not like that.
+- I consider tragedy the highest form of art.
+- You need so much energy and encouragement to write that if someone says something negative, some of that energy goes.
+- I would suggest the widow do things the husband used to do, so he seems to be there with you. You will feel like just going to bed. It's so wonderful, going to bed.
+- The domestic lives we live - which may be accidental, or not entirely of our making - help to make possible our writing lives; our imaginations are freed, or stimulated, by the very prospect of companionship, quiet, a predictable and consoling routine.
+- Henry James's later works would have been better had he resisted that curious sort of self-indulgence, dictating to a secretary. The roaming garrulousness of ordinary speech is usually corrected when it's transcribed into written prose.
+- I wrote a novel called 'Blonde,' which is about Norma Jean Baker, who becomes Marilyn Monroe, which I called a fictitious biography. That uses the material as if it were myth - that Marilyn Monroe is like this mythical figure in our culture.
+- Except that awards are competitive, which is a negative thing, they are wonderful for singling out deserving individuals and bringing their work to the attention of many potential readers who might otherwise have been totally unaware of them.
+- I remember once asking Grandma about a book she was reading, a biography of Abraham Lincoln, and how she answered me: this was the first conversation of my life that concerned a book, and 'the life of the mind' - and now, such subjects have become my life.
+- A good, sympathetic review is always a wonderful surprise.
+- No, the thing is, we all love storytelling, and as a writer you get to tell stories all the time.
+- As a farm girl, even when I was quite young, I had my 'farm chores' - but I had time also to be alone, to explore the fields, woods and creek side. And to read.
+- My writing is often a way of 'bearing witness' for others who lack the education and the opportunity to tell their own stories, so I hope that my writing won't be affected too much by my personal life.
+- As a teacher at Princeton, I'm surrounded by people who work hard so I just make good use of my time. And I don't really think of it as work - writing a novel, in one sense, is a problem-solving exercise.
+- I really love to set things in places that are real to me.
+- Primarily, 'Black Girl/White Girl' is the story of two very different, yet somehow 'fated' girls; for Genna, her 'friendship' with Minette is the most haunting of her life, though it is one-sided and ends in tragedy.
+- The third man in the ring makes boxing possible.
+- Homo sapiens is the species that invents symbols in which to invest passion and authority, then forgets that symbols are inventions.
+- Princeton is quite integrated. Women are professors at Princeton. Women are students at Princeton. That began in the 1970s.
+- I should say, one of the things about being a widow or a widower, you really, really need a sense of humor, because everything's going to fall apart.
+- The great menace to the life of an industry is industrial self-complacency.
+- 'A Fair Maiden' existed in notes and sketches for perhaps a year. When I traveled, I would take along with me my folder of notes - 'ideas for stories.' Eventually, I began to write it and wrote it fairly swiftly - in perhaps two months of fairly intense writing and rewriting. Most of my time writing is really re-writing.
+- When I wrote 'We Were The Mulvaneys,' I was just old enough to look back upon my own family life and the lies of certain individuals close to me, with the detachment of time. I wanted to tell the truth about secrets: How much pain they give, yet how much relief, even happiness we may feel when at last the motive for secrecy has passed.
+- Writers are notoriously unable to know about themselves. Faulkner thought 'The Fable' was his best novel. F. Scott Fitzgerald liked 'Tender Is the Night,' an experimental novel.
+- Our house is made of glass... and our lives are made of glass; and there is nothing we can do to protect ourselves.
+- If food is poetry, is not poetry also food?
+- If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.
+- Honorary degrees and lifetime achievement awards are very encouraging. I know that it might sound strange that a writer who has published many books still needs encouragement, but this is true.
+- After my husband died, I could not write much - I could not concentrate. I was too exhausted most of the time even to contemplate writing. But I did take notes - not for fiction, but for a journal, or diary, of this terrible time. I did not think that I would ever survive this interlude.
+- The cleaning is something I use as a reward if I get some work done. I go into a very happy state of mind when I'm vacuuming.
+- My reputation for writing quickly and effortlessly notwithstanding, I am strongly in favor of intelligent, even fastidious revision, which is, or certainly should be, an art in itself.
+- I'm drawn to failure. I feel like I'm contending with it constantly in my own life.
+- 'The Accursed' is very much a novel about social injustice as the consequence of the terrible, tragic division of classes - the exploitation not only of poor and immigrant workers but of their young children in factories and mills - and as the consequence of race hatred in the aftermath of the Civil War and the freeing of the slaves.
+- Productivity is a relative matter. And it's really insignificant: What is ultimately important is a writer's strongest books. It may be the case that we all must write many books in order to achieve a few lasting ones - just as a young writer or poet might have to write hundreds of poems before writing his first significant one.
+- All that matters in life is forging deep ties of love and family and friends. Writing and reading come later.
+- My parents were very proud of me. After they passed, my career doesn't mean as much to me.
+- I was brought up to be sympathetic toward others.
+- To be knocked out doesn't mean what it seems. A boxer does not have to get up.
+- My own way of writing is very meditated and, despite my reputation, rather slow-moving. So I do spend a good deal of time contemplating endings. The final ending is usually arrived at simply by intuition.
+- I can't say I was a very successful sorority girl.
+- I haven't the faintest idea what my royalties are. I haven't the faintest idea how many copies of books sold, or how many books that I've written. I could look these things up; I have no interest in them. I don't know how much money I have. There are a lot of things I just don't care about.
+- Nothing is accidental in the universe - this is one of my Laws of Physics - except the entire universe itself, which is Pure Accident, pure divinity.
+- Love is an indescribable sensation - perhaps a conviction, a sense of certitude.
+- My theory is that literature is essential to society in the way that dreams are essential to our lives. We can't live without dreaming - as we can't live without sleep. We are 'conscious' beings for only a limited period of time, then we sink back into sleep - the 'unconscious.' It is nourishing, in ways we can't fully understand.
+- I have so many favorite writers, it's very hard to select a few... of classic writers, I have always admired Emily Dickinson and Henry David Thoreau.
+- Anyone who teaches knows that you don't really experience a text until you've taught it, in loving detail, with an intelligent and responsive class.
+- I have read on a Kindle. But the Kindle we had only worked for about eight months then it stopped working. You don't have to get books repaired.
+- If I'm writing, I'll say something metaphorical or approximate, whereas scientists are very precise.
+- It seems disingenuous to ask a writer why she, or he, is writing about a violent subject when the world and history are filled with violence.
+- It is not her body that he wants but it is only through her body that he can take possession of another human being, so he must labor upon her body, he must enter her body, to make his claim.
+- Obviously the imagination is fueled by emotions beyond the control of the conscious mind.
+- Yes, 'Black Girl/White Girl' might be described as a 'coming-of-age' novel, at least for the survivor Genna. It is also intended as a comment on race relations in America more generally: we are 'roommates' with one another, but how well do we know one another?
+- My grandmother could never have written a memoir, so 'The Gravedigger's Daughter' is a homage to her life, and to the lives of other young women of her generation, which are so rarely articulated.
+- Probably nothing serious or worthwhile can be accomplished without one's willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.
+- When I was very little, four or five, I did comic strip drawings, so my first novel had no words. I couldn't write and thought adult handwriting was a mysterious scribble. When I was 14, my grandmother gave me a typewriter and I started writing in a different way.
+- Boxing has become America's tragic theater.
+- I never really knew I wanted to 'be' a writer, but I was always writing from a very young age. It became more conscious as an ideal when I was in my twenties.
+- We are stimulated to emotional response, not by works that confirm our sense of the world, but by works that challenge it.
+- I am concerned with only one thing, the moral and social conditions of my generation.
+- I don't think I'm morbid by nature. Serious writers have always written about serious subjects. Lighthearted material doesn't appeal to me, and I don't read it. I think I'm a realist, with a realistic sensibility of history and the tragedy of history.
+- The relationship between parents and children, but especially between mothers and daughters, is tremendously powerful, scarcely to be comprehended in any rational way.
+- My students often say, 'My roommate read this story and really liked it,' and it's hard to convince them that there are things wrong with it. I say, 'Well, people who love you want you to be happy. But I'm your professor and I'm supposed to be teaching you something.'
+- People might be surprised to know how much I throw away. For every page I publish, I throw 10 pages away.
+- I was writing novels in high school and apprenticed myself in a way both to Faulkner and to Hemingway.
+- Criticism is, for me, like essay writing, a wonderful way of relaxation; it doesn't require a heightened and mediated voice, like prose fiction, but rather a calm, rational, even conversational voice.
+- I don't feel I write fast. I write in longhand and do so much revision. On the page, it's so old-fashioned. I could write a whole novel on scrap paper, scribbles and things. I keep looking at it and something develops. For me, using a word processor would mean staring at a screen for too many hours.
+- As a child. I grew up on a small farm, so I did a lot of drawings of animals, chickens and people. At the bottom of every page, I'd put a strange scribble. I was emulating adult handwriting, though I didn't actually know how to write.
+- I think it's very important for writers and artists generally to be witnesses to the world, and to be transparent. To let other people speak... to travel... to experience the world. And memorialize it.
+- Where we come from in America no longer signifies. It's where we go, and what we do when we get there, that tells us who we are.
+- In love there are two things - bodies and words.
+- The books I read I do enjoy, very much; otherwise I wouldn't read them. Most of them are for review, for the New York Review of Books, and substantial.
+- Boxing is about being hit rather more than it is about hitting, just as it is about feeling pain, if not devastating psychological paralysis, more than it is about winning.
+- I write in longhand and assemble lots of notes, and then I try to collate them into a coherent chronology. It's like groping along in the dark. I like writing and find it challenging, but I don't find it easy.
+- A lot of widows feel that they have betrayed their spouse by continuing to live. It's deranged thinking. I know that, but that doesn't stop you feeling it.
+- My role models were childless: Virginia Woolf, Jane Austen, George Eliot, the Brontes.
+- Dust jackets are always something of an enigma to me.
+- When I complete a novel I set it aside, and begin work on short stories, and eventually another long work. When I complete that novel I return to the earlier novel and rewrite much of it. In the meantime the second novel lies in a desk drawer.
+- Like most people, I can be very easily hurt.
+- A typical biography relying upon individuals' notorious memories and the anecdotes they've invented contains a high degree of fiction, yet is considered 'nonfiction.'
+- As soon as I moved to Princeton in 1978, I became fascinated by local history, much of it Revolutionary War-era; and I became fascinated by the presidency of Woodrow Wilson at Princeton University.
+- If you're living with a scientist, you see the world differently than you do with a humanist. It's in some ways very subtle, the differences in perceiving reality.
+- People who are disenfranchised politically and people who are poor often don't vote. They often don't elect politicians, so the politicians who are supporting them are really being very charitable, because they're not going to give them billions of dollars in campaign funds.
+- To be true to life, a novel must have an ending that is inevitable given the specific personalities of the characters involved. The novelist must not impose an ending upon them.

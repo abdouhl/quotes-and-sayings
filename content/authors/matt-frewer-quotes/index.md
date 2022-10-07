@@ -1,0 +1,12 @@
++++
+author = "Matt Frewer"
+title = "Matt Frewer Quotes"
+quotes_len = "6"
+description = "the best 6 Matt Frewer Quotes"
++++
+- I never wanted to be an actor as a kid. I wanted to play hockey, like every other kid in Canada. I had a pretty good shot at it until I was 15 and badly injured myself.
+- I think the idea is when you're on your death bed to say you did a lot of different, interesting things, not just that you have a more expensive lining in your coffin.
+- I'd always enjoyed acting at high school, and I was all lined up to do an honours degree course in biology at a Canadian university, and at the eleventh hour the drama teacher I had said, 'You know, you'll get a lot more girls if you go into acting,' and that kinda sold it.
+- I was lined up to do this honors degree course in biology, of all things, for no better reason than I got high marks in it. I decided I didn't want to be removing worms' hearts for the rest of my life in Northern Ontario. I thought I would try acting. So, I went to England to study drama. I got Shakespeared out.
+- I've always been slightly embittered about computers because it was the only subject I failed at school.
+- Ever since I was a kid, I've always been fascinated by the Arthurian Legend, and, you know, the notion of nobility in battle and the - the notion of chivalry.

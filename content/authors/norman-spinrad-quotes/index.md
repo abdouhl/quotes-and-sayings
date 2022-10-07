@@ -1,0 +1,27 @@
++++
+author = "Norman Spinrad"
+title = "Norman Spinrad Quotes"
+quotes_len = "21"
+description = "the best 21 Norman Spinrad Quotes"
++++
+- English is taking over the world. I just wrote a piece about it. And it's not by design. The United States dominates because it's the biggest market.
+- You can really do more than you think you can do.
+- Is anything accidental?
+- I've always been interested in the relationship between total external surround, culture, the political matrix, technology, etc., and the internal human consciousness.
+- I get work because I'm primarily a novelist but I've become script doctor. I can work back and forth between French and English.
+- The world has become more complex as technology and easy travel mixes cultures without homogenizing them.
+- I'm not gifted, but I'm not hopeless.
+- If I had parallel lives to pursue, I would also want one as a painter.
+- I never learned to read music.
+- I was a precocious reader.
+- Mexico was conquered more by manipulation of myth and archetype.
+- I write in American slang.
+- I must admit to being greatly influenced by Joseph Campbell's The Hero With a Thousand Faces.
+- When you're in the States and you're a writer and you've got money and you walk into a bank, you're a bum with money.
+- As a child, I read science fiction, but from the very beginnings of my reading for pleasure, I read a lot of non-fictional history, particularly historical biography.
+- In America, if you don't do a 100 million dollars, you've done nothing.
+- There are certain things that ordinary people have that celebrities don't have.
+- It's trite to say that the world has gotten smaller in the age of globalization, but my travels have told me that it's wrong to think this means there is some kind of uniform world culture.
+- I believe that interest in heroes is universal and eternal.
+- If it's not American, the French won't go see it.
+- The thematic, psychological, and cultural concerns of a writer are more relevant than whatever literary mode he or she chooses to deal with in any given novel.

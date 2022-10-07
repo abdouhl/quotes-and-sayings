@@ -1,0 +1,52 @@
++++
+author = "Sean Mcdermott"
+title = "Sean Mcdermott Quotes"
+quotes_len = "46"
+description = "the best 46 Sean Mcdermott Quotes"
++++
+- It feels good to win a game, because it's tough to win in this league, and then when you talk about the playoffs and being in it for two of three years, what a blessing.
+- The Buffalo Bills will never stop fighting.
+- The only way you can get a hit is if you take a swing.
+- You're doing yourself a disservice if you're not building your roster and your team to give yourself a legitimate chance to score 21 points.
+- It's always hard going against friends.
+- I used to go with my dad to wash windows at a grocery store on Sunday nights when it was closed because they didn't want anyone to be washing the windows when it was open.
+- The team comes first. Not one person is more important than the other.
+- I've got nothing but very fond memories of my time in Carolina, both at the Panthers and in the community with the friends we made, our experiences and vacations we took.
+- Each team is different but you give yourself a better chance if you keep the team intact.
+- I don't believe that playing video games in the locker room is part of earning the right to win.
+- In order to build chemistry you've got to really know one another.
+- I was a tough player, but I wasn't the most talented player.
+- Really what we've done is establish a tradition in Carolina of playing defense.
+- We're not in the business of making doorknobs. We're in the business of people. There are things you have to do these days as a coach and as a teacher to deal with the modern athlete.
+- I'm into hiring smart guys; I'm into hiring guys who can think at a higher level, that can offer ideas.
+- I know my background was defense, but I'm not a defensive coach who wants to win 9-7 every week.
+- My dad emphasized athletics. My mom did as well, but my mom was really hard on the academic end of things and always stressed, 'Hey, you've got to have the grades, you've got to be prepared for life outside of sports.'
+- Super Bowl parties are not my thing.
+- I've always had coaching in my blood. My dad was a college coach at West Chester and Ursinus so I had a feeling all along that I would coach.
+- I obtained my first job with the Eagles through a series of internships that began during my junior year of college. From there, after obtaining the job, it was a combination of hard work and perseverance and showing them the type of person that I was that helped me climb the coaching ladder.
+- I knew I wanted to coach at an early age.
+- There are no moral victories.
+- For me coaching is about seeing a vision and trying to sell that vision to the players through a day to day teaching of the job.
+- Every vacation was taking my brother and I to camp, whether it was football camp, wrestling camp, or whatever it was.
+- There's a reason the Panthers have been successful over the years and Cam Newton's a big factor in that equation. He does a great job.
+- I think it's no accident that a number of coaches and personnel guys have come out of William and Mary. To me, it's a credit to the type of program Coach Laycock runs. There are set rules, there is clarity when it comes to expectations. You're expected to go to class and be a student-athlete. There are no cutting corners.
+- You've got to win close games in the NFL.
+- What I look for are guys that work hard, have a great work ethic and embrace that underdog mentality a little bit. And certainly there is no substitute for toughness.
+- Regardless of what you do, or who you have, at the end of the day you have to be able to execute better than the defense does in order to score points.
+- It is unusual for a coach to call you, just from a fundamental standpoint and say 'hey we're watching what you do.'
+- This game in a lot of ways, isn't that complex. You bring energy to the table and you've got a chance. You bring fundamentals to the table and you've got a chance. It's not always about scheme and all that magic-behind-the-curtain stuff.
+- You've got to make tough decisions, sometimes unpopular decisions... Whatever it is, if it's the right move at the right time, you've got to be also willing to make mistakes.
+- Being around a couple good tight ends in my history, both in Philadelphia and Carolina, namely in Chad Lewis and then in Greg Olsen, you see how that helps a young quarterback whether he becomes a security blanket, he can turn a five-yard completion into a 15-yard gain.
+- Move the ball and score points. If we don't do that, I'm frustrated. Simply put.
+- Josh Allen has a strong arm, we all know that... I've been around the league to know it's one of the stronger arms, but there a lot of guys with strong arms.
+- Coming to Buffalo three years, two and a half years ago, whatever it's been a lot of people said, 'Why are you going there? You're not going to be able to get it turned around.' But we got it turned around, with a lot of work yet to do.
+- What happens in college is every year, or every two years, sometimes every three, you get a new flock of graduate assistants that come in even though the head coach remains the same.
+- I was the security guard that got stationed directly outside the Eagles locker room or on the field. I don't even know what I did. But there was Jon Gruden, Ray Rhodes, Emmitt Thomas, Danny Smith, all those guys that are legends of the game.
+- I think that most people who know me would say that I'm an intense individual and very driven to win and enjoy the competition aspect of the game.
+- I'm probably not one of the more vocal people around, but I do watch, I do listen and I try to learn from the people I watch.
+- It's a life lesson that translates beyond football. You can share these things with your kids: Work hard, do things the right way and you have a chance.
+- That's a sign of a good football team, where we can adjust and adapt to our surroundings.
+- There's a lot of 'who you know' in this business, and I don't think I skipped a step on the journey.
+- The greatest compliment a coach can get from another coach around the league is, 'Hey, your guys play hard. They're tough.'
+- Coach Wilks really embraces that growth mindset and trying to learn and grow every day so he's a good fundamental teacher. He understands the passing game which is important when you coach as a defensive coordinator and also as a secondary coach like he has, so he's one of the top-notch coaches in our business.
+- Life in the NFL is an adjustment.

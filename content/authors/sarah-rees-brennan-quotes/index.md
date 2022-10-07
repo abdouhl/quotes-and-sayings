@@ -1,0 +1,27 @@
++++
+author = "Sarah Rees Brennan"
+title = "Sarah Rees Brennan Quotes"
+quotes_len = "21"
+description = "the best 21 Sarah Rees Brennan Quotes"
++++
+- I love 'Gossip Girl'! I still miss 'Veronica Mars,' though.
+- Books written by boys are given very different treatment to those written by girls: they're even given very different covers. People also expect, in this YA-booming world, girls to be less experimental than boys: girls are achieving a lot of success, but they're confined.
+- I tend to get over-excited and very, very loud. I rein myself in when people flinch and dogs start howling.
+- We love a lot of vampire fiction - both fiction in which the vampires are enemies to be battled or stone cold foxes to be dated.
+- When my book was first sent out to publishers, my agent told me to buy a lot of ice-cream and wait. So I bought a gigantic amount of ice-cream, and huddled by the freezer eating it and shaking, hoping someone would like it.
+- Taking notes at a pub in Salisbury, I was mistaken for a health inspector!
+- I just have mysteries in all my books, I think, whether it's a boy investigating or a girl. I have an enduring fascination with mysteries of all kinds.
+- When people talk about being a writer, the first words that come to mind are glamour and artistic parties like Charles Dickens used to mix cocktails for.
+- Whether you're starving in a garret or living in a castle like J. K. Rowling, I had this image of the author as a flawless, composed individual, serene in the knowledge they were creating art.
+- I call people 'petal' all the time. My postman is very confused by this.
+- I love seeing my book on shelves and getting letters from people who liked the book. I love telling stories and having other people tell stories to me.
+- I can find the fun in most situations.
+- I have a confession to make - I truly love country music.
+- Like any other person who reads a ton of books, I hate many, many books. Oh, how I hate them. I have performed dramatic readings of the books I hate. I have little hate summaries. I have hate impressions. I can act out, scene by hateful scene, some of these books. I can perform silent hate charades.
+- I'm a girl, so I've experienced dismissal because I was a girl or because I write about girls: my book with a guy protagonist is treated as more literary and worthy than my other books with girl protagonists.
+- I think more people are going to continue reading YA as well as reading other books because they have learned that they can find books there which they will truly love: a teenage protagonist is close enough to adult so readers of whichever age can sympathise and empathise with them.
+- I really like vampire books. I might have a problem.
+- Books for teens are amazing and compelling, I think, because they're generally set in a time in people's lives when they are uncertain about who they are and who they love and what the right thing is to do.
+- I'm excited to see Cassie's fans and how they react to the ending of 'Clockwork Princess!' I love hanging out with readers and seeing the energy readers bring to a room: seeing so many people united in imagination is going to be wonderful.
+- Home in Ireland, I went to Collins Barracks and spent some time wandering around, making notes on the various guns, knives and swords.
+- I just think demons are terribly interesting! In Sumerian times, demons weren't seen as evil at all, just as incredibly powerful and very different from us: beings made of fire, when humans were made of earth.

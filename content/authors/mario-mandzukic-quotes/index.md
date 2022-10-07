@@ -1,0 +1,35 @@
++++
+author = "Mario Mandzukic"
+title = "Mario Mandzukic Quotes"
+quotes_len = "29"
+description = "the best 29 Mario Mandzukic Quotes"
++++
+- I'm a fighter like Ibrahimovic, my idol.
+- I could not have chosen a better path after leaving Bayern Munich.
+- I'm happy to be in a big club like Juventus.
+- Once a Dinamo Zagreb coach saw me while I was eating a pizza and severely scolded me, telling me that I would be fat, I had to think about my health. In response, I ordered 10 pizzas and managed to eat 5, so next time he will have a strong think before treating his players in a bad way.
+- The atmosphere at the Estadio Vicente Calderon is fantastic, and puts the players' motivation up into the clouds.
+- As a kid, I watched many of Gigi Buffon's games and dreamed of scoring against him one day.
+- Juventus have always had exceptional players. I've played against them and against Italy many times. They're a tough team with great quality.
+- It's so special to do something with the national team.
+- Pirlo and Tevez are extraordinary players and any squad would miss them.
+- If Diego Simeone is a gladiator, then Allegri is a man of character and his results speak for him.
+- Guardiola disappointed me - he did not treat me with respect. He did not let me become the top scorer in the Bundesliga. For me things were twice as good when Jupp Heynckes was in charge.
+- I realised that I had no future at Bayern, so I resigned myself to leaving the club and had to choose a new destination.
+- I understand Simeone as a coach. His style and his passion for success are clear, and that inspires me too.
+- I've always been against taxing diets.
+- Turin is a beautiful town, I like it and I like Juve.
+- Let's be honest, the style Guardiola wants at Bayern doesn't suit me.
+- At Bayern it was fantastic. It's a fantastic club.
+- My reason for joining Juve was simple: they're a great team and it was an easy decision to make.
+- I had proposals from England, but I believe they would have had to adapt to my style.
+- I'm ready to do everything necessary for my team-mates.
+- In my professional life I do not have to like everyone, but when I feel negative energy with someone I try and avoid that person.
+- It is every player's dream to play at a world tournament.
+- The media exaggerate little things.
+- Juve think always of the future. There are already new reinforcements.
+- It's always difficult to play against Juve. The games against have been the most difficult in my career.
+- I hope that my first appearance at a World Cup will be marked with a positive outcome.
+- Bayern and their fans will always be the most beautiful and most emotional story of my career.
+- I've never considered leaving Atletico because I'm happy here.
+- Guardiola took the decision to not play me in the DFB-Pokal final. He did not want me to win the trophy as top scorer, so he did not let me play during the end of the season. It was not really so important for me, but I felt it was a lack of respect towards me.

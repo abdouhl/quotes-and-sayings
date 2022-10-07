@@ -1,0 +1,30 @@
++++
+author = "Jack Lemmon"
+title = "Jack Lemmon Quotes"
+quotes_len = "24"
+description = "the best 24 Jack Lemmon Quotes"
++++
+- I won't quit until I get run over by a truck, a producer or a critic.
+- In very simple language, Morrie always seems to be able to explain something that other people would take a chapter for, you know.
+- I think it's great fun sometimes when I am playing golf, just to give it a little uch, is to bet the other guy five bucks a hole or something like that.
+- If you really do want to be an actor who can satisfy himself and his audience, you need to be vulnerable. You must reach the emotional and intellectual level of ability where you can go out stark naked, emotionally, in front of an audience.
+- Stay humble. Always answer your phone - no matter who else is in the car.
+- In general, I think comedy is more difficult to write, to direct, and to act successfully.
+- Failure seldom stops you. What stops you is the fear of failure.
+- If I'd been bright, I'd have realized that I was horribly uncomfortable, amazingly frustrated, and like any sensible person, I'd have quit. But it never occurred to me that I wouldn't be successful eventually.
+- Once I had started film, I suddenly said, 'Wow, I love it.' I moved there from New York. But I've always gone back to the theater, and it is more satisfying, really, because you get to give a continuous performance - no sequels.
+- When I'm reading material, if I'm a little bit afraid of a part and I'm willing to admit that to myself, then I'll do it, definitely. If I'm worried about being able to do it, to get it - I absolutely just love it.
+- I don't think Ed Horman could be dishonest if his life depended on it.
+- Nobody deserves this much money - certainly not an actor.
+- I have been fortunate to be able to have a career playing comedy and drama. And it's awfully hard - it's like apples and pears to compare the two.
+- I would rather play Hamlet with no rehearsal than TV golf.
+- If you think it's hard to meet new people, try picking up the wrong golf ball.
+- I remember trying to be funny, and both of my parents were terribly funny. My father was also very dignified, but my mother was an absolute ding-a-ling, a ripper.
+- I'll tell you God's truth: I think that this script that Neil has written - 'Odd Couple Two,' I think, is superior to the original one - to the first one.
+- I have lost someone I loved as a brother, as a closest friend, and a remarkable human being. We have also lost one of the best damn actors we'll ever see.
+- The trouble is that, while my parents were great when they were apart, they were terrible together.
+- My career has been full of remarkable coincidences that have nothing to do with me.
+- I'd rather make the cut in the Crosby than win another Oscar.
+- I had already played a lead on Broadway before I ever did a film. I had had three, four seasons of stock with good, fat parts, good supporting and leading parts. And I had done, oh, God, over 400 live TV shows.
+- I think luck is a great part of it because I think that the particular makeup of the person that you are attracted to, and that you fall in love with, is very important. Even down to that old bromide of a sense of humor and all of that.
+- It's hard enough to write a good drama, it's much harder to write a good comedy, and it's hardest of all to write a drama with comedy. Which is what life is.

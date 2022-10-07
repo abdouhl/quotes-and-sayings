@@ -1,0 +1,19 @@
++++
+author = "Gene Kelly"
+title = "Gene Kelly Quotes"
+quotes_len = "13"
+description = "the best 13 Gene Kelly Quotes"
++++
+- There is a strange sort of reasoning in Hollywood that musicals are less worthy of Academy consideration than dramas. It's a form of snobbism, the same sort that perpetuates the idea that drama is more deserving of Awards than comedy.
+- I didn't want to be a dancer. I just did it to work my way through college. But I was always an athlete and gymnast, so it came naturally.
+- I think dancing is a man's game and if he does it well he does it better than a woman.
+- I got started dancing because I knew it was one way to meet girls.
+- I arrived in Hollywood twenty pounds overweight and as strong as an ox.
+- I'll never starve.
+- At 14 I discovered girls. At that time dancing was the only way you could put your arm around the girl. Dancing was courtship.
+- My mother had gotten a job as a receptionist at a dancing school and had the idea that we should open our own dancing school; we did, and it prospered.
+- Things danced on the screen do not look the way they do on the stage. On the stage, dancing is three-dimensional, but a motion picture is two-dimensional.
+- I wanted to do new things with dance, adapt it to the motion picture medium.
+- I'd studied dance in Chicago every summer end taught it all winter, and I was well-rounded. I wasn't worried about getting a job on Broadway. In fact, I got one the first week.
+- When Ginger Rogers danced with Astaire, it was the only time in the movies when you looked at the man, not the woman.
+- I still find it almost impossible to relax for more than one day at a time.

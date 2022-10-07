@@ -1,0 +1,120 @@
++++
+author = "Morrissey"
+title = "Morrissey Quotes"
+quotes_len = "114"
+description = "the best 114 Morrissey Quotes"
++++
+- Age shouldn't affect you. It's just like the size of your shoes - they don't determine how you live your life! You're either marvellous or you're boring, regardless of your age.
+- You may not realize this, but people have the power to change the world.
+- I am unable to watch the Olympics due to the blustering jingoism that drenches the event. Has England ever been quite so foul with patriotism? The 'dazzling royals' have, quite naturally, hi-jacked the Olympics for their own empirical needs, and no oppositional voice is allowed in the free press.
+- Women don't go to war to kill other women. Wars and armies and nuclear weapons are essentially heterosexual hobbies.
+- Smiths songs certainly have an astonishing afterlife.
+- If you walk through Knightsbridge on any bland day of the week you won't hear an English accent. You'll hear every accent under the sun apart from the British accent.
+- I would find the idea of compiling a setlist that doesn't wildly excite me to be too restricting.
+- Life's full of tricky snakes and ladders.
+- I don't think I'm ever forgiven for anything, which is baffling because I'm not on TV that much.
+- Age gives you a great sense of proportion. You can be very hard on yourself when you're younger but now I just think 'well everybody's absolutely mad and I'm doing quite well'.
+- When I'm lying in my bed I think about life and I think about death and neither one particularly appeals to me.
+- People don't like me.
+- For me to think in terms of employing security seems ostentatious.
+- My talents do not lie in DIY.
+- The Smiths are never, ever, ever, ever, ever, ever, ever, ever going to reunite - ever.
+- That's why I do this music business thing, it's communication with people without having the extreme inconvenience of actually phoning anybody up.
+- I'm a traditionalist.
+- War, I thought, was the most negative aspect of male heterosexuality. If more men were homosexual, there would be no wars, because homosexual men would never kill other men, whereas heterosexual men love killing other men.
+- There has to reach a point where you've said enough.
+- Not everybody is absolutely stupid. Why on earth would I be racist, what would I be trying to achieve?
+- The fire in the belly is essential, otherwise you become Michael Buble - famous and meaningless.
+- I mean, death is a serious thing, certainly not to be sneezed at.
+- I think the pop chart today is entirely market-driven. And it has nothing to do with public taste. And it has nothing to do with moving music forward. It's simply a market chart.
+- I think I'd be a prime candidate for canonisation.
+- As a very small child I found recorded noise and the solitary singer beneath the spotlight so dramatic and so brave... walking the plank... willingly... It was sink or swim. The very notion of standing there, alone, I found beautiful.
+- I'm cursed with the gift of foresight.
+- Any criticism of Thatcher throws a dangerously absurd light on the entire machinery of British politics. Thatcher's name must be protected, not because of all the wrong that she had done, but because the people around her allowed her to do it.
+- Even though I've been reasonably well known for quite a long time, I still can't get a record on daytime radio or on MTV.
+- What's the first thing I do when I wake up in the morning? Wish I hadn't.
+- England is a memory now. The gates are flooded and anybody can have access to England and join in.
+- I have no love for myself as a human being, but I have immense pride in the music I make.
+- I know I will never have a hit single in America.
+- I don't iron anything. Never have and never will.
+- I didn't really see the British punk movement, if that's what it was, as wildly original, because I had been listening so intently to all the New York music since 1973, really.
+- The paradox is that I have no love for myself as a human being, but I have immense pride in the music I make, and I believe it has an important place. Others do, too, and the thousands of people with Morrissey tattoos certainly proves something.
+- I think there are unseen powers who don't want pop music to be anything other than glorified Madonnas.
+- It's so tedious that everyone must be defined.
+- Reggae is vile.
+- I began to go to concerts when I was 12 years old.
+- I don't want to get too involved in marketing budgets, online promotions and download set-ups because it would be a bit like Gertrude Stein mapping out a TV campaign. I want to sing. I want visibility. I am essentially Al Martino, not Seymour Stein.
+- I think we were all initially swept along with the Obama win, but he's proven to be simply a set of teeth, and useless in every other regard.
+- Well, I'm a Catholic by birth and you can never shed it.
+- Artists aren't really people. And I'm actually 40 per cent papier mache.
+- Lady Gaga said to me, 'You showed me how it's done.' I have no idea what she meant by 'it.'
+- I've never intended to be controversial, but it's very easy to be controversial in pop music because nobody ever is.
+- Let lying dogs sleep is something I always say in reference to the Smiths.
+- I know L.A. well, but it's a police state.
+- The Smiths was an incredibly personal thing to me. It was like launching your own diary to music.
+- I have found the best way to avoid ending your life as a bitter wreck is to start out as one.
+- Pop music has progressed.
+- I don't even know if I exist offstage.
+- My parents were worried about me, certainly when I became so deeply interested in music and people like the New York Dolls who, at the time, were very peculiar indeed.
+- Each year of life brings us nearer to our decline, but I will continue to seek a listener until I'm dead in a ditch.
+- Although I don't have anything against people from other countries, the higher the influx into England the more the British identity disappears.
+- Once somebody is known, it seems as though anybody anywhere can say anything about them. Whereas if I simply stopped someone in the street and criticised their clothes, their work, their parents, their inner being, I'd be sued and I'd be thrown in prison.
+- I feel undefinable actually.
+- Peru, Peru. My heart's lighthouse.
+- That was the problem with the 'celibate' word because they don't consider for a moment that you'd rather not be, but you just are. I was never a sexual person.
+- Artists aren't really people. I'm actually 40 per cent papier mache.
+- Whether it be Beyonce or Justin Bieber, we see singers who have absolutely nothing to offer anyone as they walk off stage clutching three Grammys in each hand.
+- Racism is beyond common sense and has no place in our society.
+- You are bound to pick up influences.
+- I don't want to go on much longer, really. I think that would suggest a lack of imagination. A certain lack of dignity also.
+- I'm capable of looking on the bright side. I just don't do it very often.
+- The word 'indie' is meaningless now. It's so over-used that people think it simply means green hair.
+- British politics, as the world knows, is a joke. Yet it's rarely funny.
+- I find that it isn't wise to attempt to judge people on their public persona, and even on the music they make. Because I've met so many people whose music I cannot stand, and they're very nice. At the same time, I've met people whose music I've loved, and they're not the person you've invested all this emotion in.
+- The rhino is now more or less extinct, and it's not because of global warming or shrinking habitats. It's because of Beyonce's handbags.
+- I don't know what I am.
+- The Queen is the ultimate dictator.
+- The monarchy is foremost a business, and it's important to them that the British public continue to finance the excessive luxurious lifestyles of the now quite enormous, wasteful and useless 'royal' family. I find it very sad.
+- I'm not an anarchist, but I believe that people don't want the royal family - the so-called royal family.
+- All of us, ultimately, we're not that interesting, when it comes down to it.
+- I do think it's possible to go through life and never fall in love, or find someone who loves you.
+- Killing a stag is like killing a child. What's the difference?
+- I've been pilloried so many times that I begin to expect it now.
+- I swim when I can but I don't work out.
+- No British politician has ever been more despised by the British people than Margaret Thatcher.
+- Long hair is an unpardonable offence which should be punishable by death.
+- My family, although they're very large on both my parents' sides, they don't know much about their family tree. Occasionally, they try to dig, but they can't get very far, and it's baffling. In Dublin, it seems that so many public records were wiped out; it's proven to be very difficult, so I know very little.
+- With the issue of immigration, it's very difficult because, although I don't have anything against people from other countries, the higher the influx into England, the more the British identity disappears.
+- I'm fascinated by people in their eighties and nineties. Especially those who are still creating and living in an interesting way. I am fascinated by them because they have so much to say now that they've lived for so long.
+- Often I feel I say too much.
+- Those Catholics, they really nab you when you're young.
+- I am slightly shocked to have gone as far as I have.
+- There's no such thing as good news in America.
+- The solo years have been more meaningful to the audiences than the Smiths years, but the press in England only write about me in relation to the Smiths era.
+- If anyone has seen the horrific and unwatchable footage of the Chinese cat and dog trade - animals skinned alive - then they could not possibly argue in favour of China as a caring nation. There are no animal protection laws in China and this results in the worst animal abuse and cruelty on the planet. It is indefensible.
+- I earn more than I thought I would when I became a poet.
+- I hated the royal wedding.
+- You have to, at least from a distance, look as if you know what you're doing, and I can manage that.
+- Everything about my life is private, really. I'm not so sure that any of it has ever been public.
+- As London is suddenly promoted as a super-wealth brand, the England outside London shivers beneath cutbacks, tight circumstances and economic disasters.
+- Killing a stag is like killing a child.
+- If you travel to Germany, it's still absolutely Germany. If you travel to Sweden, it still has a Swedish identity.
+- The most common phrase bandied about these days is 'Oh my God'. People say it automatically all the time - not realising that that's a form of prayer.
+- If you love animals, obviously it doesn't make sense to hurt them.
+- I never imagined I'd be a solo artist. And now I couldn't imagine being part of a group.
+- I still prefer horses to human beings.
+- Congratulations to Prince Charles for banning foie gras from all his functions.
+- I first bought a Buffy Sainte-Marie record when I was 12, and her music has always remained with me. In the 1960s, as a political activist, Buffy's lyrics were fearless, and I'm very grateful for all the risks that she took.
+- It could be construed that the reason I wouldn't wish to live in England is the immigration explosion. And that's not true at all.
+- I normally live in Los Angeles, if you can call it normally living.
+- I always seem to be singing against the grain.
+- We're all lonely, but I'd rather be lonely by myself than with a long list of duties and obligations. I think that's why people kill themselves, really.
+- It's always nice to receive a compliment.
+- Obviously Madonna reinforces everything absurd and offensive.
+- I don't necessarily think that the world should know everything, and even if you consider yourself to be extremely honest, that doesn't mean you have to blurt everything out all the time.
+- The body changes shape and there's nothing you can do about it.
+- I've only been to Ireland once, and I felt I would wake up with voices in my head, almost like music, and that if I were a songwriter, I would be very inspired.
+- You can't help but feel that the Chinese are a subspecies.
+- I do maintain that if your hair is wrong, your entire life is wrong.
+- The Royal family to me are not England, and they are not the flag.
+- When you're younger, you see the people who are in power and think they must have that position because of some degree of skill. And as you get older, you realize it's not true, that most people in those positions are absolutely inept. And this naturally makes you feel better about yourself.

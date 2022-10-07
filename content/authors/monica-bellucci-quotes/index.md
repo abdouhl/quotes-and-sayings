@@ -1,0 +1,113 @@
++++
+author = "Monica Bellucci"
+title = "Monica Bellucci Quotes"
+quotes_len = "107"
+description = "the best 107 Monica Bellucci Quotes"
++++
+- I wouldn't want to be 20 again for anything.
+- I'm a true woman, not a Bond girl. That's why I say all the time, 'James Bond lady,' 'James Bond woman.'
+- I love jewelry - gold and diamonds. I'm a woman.
+- What's natural is beautiful, and when you're not you anymore, you become a caricature.
+- We should not be worried about age when it comes to love and attraction.
+- I've had old people in my life that I really loved - especially women - so I'm not scared about getting old. It's what's inside that makes us beautiful on the outside.
+- Personally, I find it romantic not to be with someone all the time; you don't get used to someone or take them for granted.
+- The single woman is a free woman, and being single does not mean being alone - it means being free to have a relationship or not. This can be scary, but it's also very interesting.
+- When I'm relaxed, jeans and a shirt are my uniform.
+- I believe that time destroys everything. You can take one beautiful apple, red. After a while, it becomes shrivelled and full of worms, just like what happens to us.
+- In France, they call the beauty of youth 'the evil beauty.' You don't have it because of you but because you're born with it. The other kind of beauty is your own work, and it takes forever.
+- It's not the Jews that killed Christ. It was a political situation, and it was the Romans who killed Jesus. They put Jesus on the cross, not the Jews.
+- I don't stress myself about my looks. I love to laugh. I like being able to lead an interesting life.
+- When you're in front of the camera, for a small budget or a big budget movie, there's no difference.
+- I wanted to do 'Matrix' because when I saw the first one, I was in Paris, and I came out from the movie and said, 'Wow - I've never seen something like that; it's so incredible.'
+- I am an agnostic, even though I respect and am interested in all religions. If there's something I believe in, it's a mysterious energy; the one that fills the oceans during tides, the one that unites nature and beings.
+- I like a movie that brings out many discussions. From my experience, every time I have done movies, they create this kind of situation. Like 'Irreversible,' 'The Passion of the Christ,' 'Malena'; it's so interesting. I like to explore the dark side of humanity. That's why I'm an actor.
+- The most important thing with children is to give them your time. Actually, that's all that matters.
+- If you believe what you are on the red carpet, then you would have to go see a doctor, and there are so many actors like that. You have to know very well this is a moment of glamour, and when I go back home, I don't have the airbrush, and I have dark circles because I don't have the make-up on.
+- In the beginning, I didn't know if I was still a model, if I was an actress. I knew I wanted to be an actress, but it was so difficult to be believed.
+- When a relationship doesn't work anymore, it's terrible to stay with someone that you don't love.
+- Usually, I'm only sad when something sad happens. I am not a melancholic person. I like to live very much in the present. If I was an animal, I'd be a little cat. They like to live life.
+- Listen, I had two kids - one when I was 40, one when I was 45. I breastfed for one year, which means I was breastfeeding four years ago. I'm going to move from giving birth to menopause without really realising.
+- When someone is suffering, you have to see this in the body and the face. I say all the time that actors use their bodies like objects of war.
+- I like to do on screen what I'm not in life. In life, I'm much more weak and insecure, and so then you know I like to play characters that are stronger than me.
+- After a while in marriage, it doesn't work anymore. There is something missing, there is something wrong. There are few marriages that stay alive forever. We like something, and after a while, we hate what we used to love.
+- When I eat with my friends, it is a moment of real pleasure, when I really enjoy my life.
+- If I do a role where I have to lose weight, I can do that. I eat meat, fish, vegetables, and I lose it right away. But sometimes I do a role where I have to gain weight, and I can tell you I prefer that.
+- It doesn't surprise me that men in their twenties and thirties are often looking for a much older woman. What is the problem with a man of 30 being with a woman of 50? It is a matter of energy and the soul, not a matter of age of the body.
+- I think the person creates the artist. And I think when you get lost within your person, your artistry get lost, too. It's like in 'Birdman.' Because the artist inside you is attached to your soul. And when you're not attached to yourself anymore, the soul goes away. You can't let that happen.
+- To be a lawyer was too boring for me, for my personality.
+- Time destroys everything.
+- Envy is human nature.
+- British people don't express when they are in pain. They don't think it's elegant.
+- I grew up in Perugia, Umbria, in a world outside of fashion, so I didn't learn about it until I was older and moved away. In Milan, the women are really into fashion, and all the big fashion brands are based there, but I don't think they feel pressure to look good all the time.
+- I was very shy as a girl. Absurdly shy, even. Maybe because I was an only child. And I think that's why I'm so happy to have two kids now.
+- I always wear some make-up, even on quiet days when I am not doing so much with my time. I like to start using Dolce & Gabbana Perfect Finish Creamy Foundation as a base, as it's lighter than air and doesn't make me feel 'caked.'
+- I live in Paris but I feel I am a daughter of Europe.
+- Because I'm pretty, everybody thinks I'm stupid. But it is like a mask, and you have to break the mask to show that there is something else behind it. You have to show who you are to make the others come to discover you.
+- A woman has so many facets, and when you create an image, you have to play with all the different moments of your femininity, not just one thing, because everybody can get bored.
+- I'm Italian; I take my time. We're not really fast. We're very slow. I had my first child at 40, my second child at 45, James Bond at 50. I'm so curious as to what's next!
+- I've been working with good directors - the Wachowski brothers, Spike Lee, Terry Gilliam, Mel Gibson... I love American movies, but I love European movies, too, and I want to do both.
+- I went to a modeling agency and said I wanted to be a model. I worked, worked, worked so much while I was studying.
+- When I did 'The Passion,' nobody believed in the movie. Everybody was telling me, 'You shouldn't do this movie... But I wanted to play Mary Magdalene. I thought that I could do something strong and deep with this character.
+- Irreversible is not glamorous at all. I try to do different things because I want to grow as an actress and I like to take risks.
+- I feel fine and comfortable with myself, but not because I'm beautiful.
+- Truly, I am a woman of the last minute. When I was pregnant, I organised three different hospitals because I couldn't decide where I wanted to have my baby: London, Rome or Paris. In the end, I decided to go to Rome, arrived on the Monday and gave birth on the Saturday.
+- An actor works with their soul and their thought.
+- I have no idea how I'm perceived in America because I don't live the reality of America.
+- When you're in front of the camera, you have to try to create different emotions because even the person making pictures of you needs inspiration. To be 'you' means nothing - you can be so many yous.
+- I know many beautiful people and their lives are just so terrible. They feel so uncomfortable with themselves. Being comfortable is not about what you look like, but how you feel.
+- We all need illusions. That's why we love movies.
+- Sometimes I've done small parts, like with Spike Lee, but it doesn't matter because you want to work with the director.
+- I think the lawyers are such incredible actors. Can you imagine the performance they have to do every day?
+- When people divorce, it's always such a tragedy. At the same time, if people stay together it can be even worse.
+- I can't say I'm a Bond girl because I'm too mature to be a Bond girl. I say Bond lady; Bond woman. But I'm proud to be a Bond lady, because actually, Bond is the most amazing man.
+- I'm not someone that wants to control everything. I like to work with people that bring their talents to the project. So I like it when the makeup artist has a chance to do their work, when the dresser does their work, when the director does their work. They all come with stories and ideas to think about.
+- When I have to go to Cannes, that is boring to me.
+- I'm not a movie star. I'm just an actress.
+- It's complicated coming from a culture where to be a mother is more important than to have a career.
+- I'm a European, and I live there. I work in European films, and then once in a while, I make an American movie.
+- People assume I work hard on my body, but I honestly don't.
+- My body is an object of work. That's why I think to be an actor is one of the most violent jobs. If you're a pianist, you have your piano. If you're a guitarist, you have your guitar. But if you're a dancer, or you're an actor - your instrument is your body.
+- The first time I was in London, I went to an English greasy spoon to get some breakfast and realised that all the waiters were speaking Italian. That's when it hit me what an international city this is.
+- Sometimes it's more difficult to exist as a female lead, especially in action movies because all those men are around you. They take so much place.
+- Do you know who I would love to play? Morticia Addams - then I could use all that darkness to be funny.
+- I like comedies, I like thrillers, I like love stories. Everything is beautiful; it depends if the film is good, who cares? Everything is interesting.
+- In acting process, it's very difficult to explain. It's something very intimate, very private.
+- Lipstick is the most valuable weapon in a woman's make-up kit. It has the power to transform the appearance and mood of the person wearing it, and, at the same time, arouses the admiration of everybody else.
+- Everybody does what she needs. And if you want plastic surgery, and then you feel better, why not? There is no law. I've nothing against using something to help your beauty - but do it in a good way, with intelligence.
+- Mel is a great director because he's not just a director, he's an actor, so he knows how to direct actors. I loved working with him. He's great as a director. He's so intelligent. He's generous. I really loved him.
+- I come from a Catholic religion, but I'm not Catholic.
+- Just a touch of eyeliner and red lips is glamorous.
+- I'm not someone who wakes up at 6 A.M. to go to the gym.
+- We had a moment in the '40s and '50s, where female characters were very strong in film, where these incredible roles were written for women like Joan Crawford, like Bette Davis. But then there was a space of time where - I don't know why - it wasn't like that. It became difficult for women to find certain roles after a certain age.
+- If you have a script that's not great, if you have a great director, you can make a great movie, but if you have a great script with a director who's not good, never are you going to have a good movie.
+- I like when I have to act and direct; then, when you have to dub, you're by yourself in front of the wall, and I'm always scared that you're not good like when you are in real when you act.
+- Beauty is a gift, just like good health or intelligence. The only thing is not to be proud of being beautiful. Because you didn't do anything - it was given to you.
+- In so many places in the world, women have been prisoners for so long that they feel they have to scream about their rights. But when you scream, nobody listens to you. Real authority comes when you no longer need to scream - and that's something we women still need to learn.
+- I love fairy tales because I think that behind fairy tales, there is always a meaning.
+- I like to be in the spotlight once in a while, and then I like to be in the shadows. It's really regenerating.
+- Wherever I go, I am Italian. The way I talk, the way I eat, the way femininity is important to me. The way I love Italian food.
+- My body is so important to me... my face, my arms, my legs, my hands, my eyes, everything. I use everything I have.
+- I do acupuncture. Because it really helps. It is the opposite of Botox. Botox blocks, and acupuncture moves.
+- Being an actress is the sublimation of feminity.
+- If a man sees a woman with red lipstick, he admires her, but often he won't feel like kissing her.
+- For me, true beauty has nothing to do with wrinkles and everything to do with the fact that my maternal grandmother raised five children just after the war and remained a fighter throughout her life. True beauty is the slick of red lipstick my paternal grandmother would put on before going to church on Sunday.
+- I know very well the difference between my image and who I am.
+- Now, all the movies are for teenagers. It's very difficult for an actress to find really deep, beautiful characters to play.
+- I don't know Hollywood very well. I've never lived in Los Angeles or New York. But what I can see in Paris, where I live, is that actresses like Catherine Deneuve, Isabelle Huppert, Charlotte Rampling, still get the chance to play strong, sexy roles even though they're not 20.
+- There is this thing in America where actresses reach 40 and go mad. The film industry wants all these young people.
+- Sometimes when we think about femininity, we think also fragile. But I think you can be feminine and very strong. I think make-up goes with that femininity. I think it's a natural gesture for women and one they do more for themselves than for others.
+- I don't work all the time. That's why I waited to have children until I was ready for that. I try to organise my time according to them because they need me. I don't want to put my work first anymore because it's not as important as my children.
+- I think we can all be divas, but as an actress, you can't only be the diva; that would be boring. But sometimes, perhaps, it's fun.
+- Men have the power in everything: journalism, acting, direction; in banks, finances, schools. All the laws are made by men. Men think that women, when they're not able to procreate any more, become old. That is not true - they are still amazing!
+- I always wanted children late; I had my first daughter at 39 and the second at 45.
+- In a couple, sometimes, one or both people have to give up their personal life, dreams and ambitions for the good of the family.
+- I have always loved lipstick. For women, that love comes from our mother and grandmothers. It's so natural for a woman to open up her mirror and apply lipstick.
+- I'm a lucky person because I've been loved a lot. I have a great family.
+- When I make an American movie it's going to come out all over the world-it doesn't happen the same way for an Italian film or a French film.
+- When I first met Sam Mendes, I was a bit confused and said to him, 'I'm 50 years old. What am I going to do at 50 in a Bond film?'
+- I have a lot of adrenaline. I have a naturally fast system. But I love to eat, and I am not skinny.
+- I am certainly Italian in my love of food! I eat everything, but I love Italian food most of all. Even my daughter does. Her favourite food is pasta and parmigiana.
+- My body is very shaped, and I like to be simple. I don't like to use so many colors. My best colors are black, white and blue.
+- Directors don't call you for your beauty but for your talent.
+- When you see a silent movie, you understand everything that's going on from the images because the images are so strong.
+- I speak a little Portuguese, but my daughter speaks it better than me. I always feel that Italy is my home, but it is important for my husband that we also live in France. Sometimes we live as a family all together, but as we are two working actors, sometimes we have to be apart. Sometimes I'm shooting a movie; sometimes he is.

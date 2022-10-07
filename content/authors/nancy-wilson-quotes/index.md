@@ -1,0 +1,106 @@
++++
+author = "Nancy Wilson"
+title = "Nancy Wilson Quotes"
+quotes_len = "100"
+description = "the best 100 Nancy Wilson Quotes"
++++
+- One night, I remember being really sick in bed with chills and a fever when Ann came in all excited and said, 'I have these lyrics! Let me read them to you!' They were the lyrics to 'Crazy on You,' and in my fever haze I said, 'Yeah! Those are really good!'
+- I think what constitutes rock nowadays is people that actually play and sing. They can do the job live with no ProTools or embellishments or other recorded material.
+- We had the idea as women that we could walk into music and be good at it and be as good as any man and have a career in it without being taken advantage of. So basically, those things came true. The obstacle course was just more difficult than we ever anticipated. We were optimistic and very naive.
+- Heart is fun for the whole family!
+- I have endless admiration for people like Chrissie Hynde who've been out as the only girl in a band. I'm not sure that, even as a little Marine Corps brat, I would've been able to deal with that.
+- 'Heartless' is something Ann and I wrote together.
+- When we're home, we like to cook and be together and do mom things when we can.
+- If you're in a rock band, you're never too tame.
+- We've always been more... weird compared to most bands, girls or no.
+- In many ways, we might compare to The Pretenders more than others, but still, we created our own category.
+- We always had a lot of admiration for feminists who were out there trying to change things for the better for women, who were trying to find equality in the workplace and at home.
+- Generally, I think of myself as a guitar player, but when I do find the right song to sing lead on, I try to do my best.
+- We don't really intentionally try to sound like ourselves. I think that would be overthinking.
+- Being taken seriously was always the biggest challenge.
+- I'm a Katy Perry fan, and I took my kids to go see her, and it was a great show, and she really can sing, and she really can play.
+- I know, in so many cases, a lot of the women who came up through the singer-songwriter, Lilith Fair era, the earlier Lilith Fair era, did say that we were influences on them.
+- Being mothers, we try to stay home as much as possible and attend to the children.
+- We struck out on our own in suburbia with parents who actually helped us get where we needed to go.
+- A dream set would include songs by other artists like Paul Simon, Joni Mitchell, and other favorites. More obscure Heart songs like 'Wait For an Answer' and 'Nada One' would be fun, plus fan favorites like 'Love Mistake' and 'Language of Love.' Endless possibilities.
+- Grace Slick was a total trip to work with. Lots of jokes and opinions. A strident individual and super talented!
+- A lot of times, women are pigeonholed.
+- Most of our great influences were male rockers, like Led Zeppelin.
+- Ann and I were the main writers in Heart. We had the leadership role, and the guys in the band sometimes had a hard time with that.
+- We get notes sent to us backstage from college students that say, 'My parents used to play your albums all the time! I grew up with you, and I love the new stuff.'
+- As a songwriter, simplicity - what not to do, what not to play - can be the hardest thing to achieve.
+- With 'Brigade,' we sort of decided to kind of revamp ourselves and put on the military garb and become more of a fighting unit, you know, like the title of the album, and sort of fight for it.
+- We're notorious for living up to our namesake. We're all about love. That's how we roll, even when it's to a fault.
+- We didn't want to be the girlfriends of the Beatles. We wanted to be the Beatles.
+- I have a Gibson Thinline that I designed the body shape of, which I used a lot on the 'Fanatic' album that I'm going to shake out.
+- Ever since I could remember, women's issues have been pretty urgent.
+- I was always so jealous of a band like Fleetwood Mac, for instance, where Christine McVie would sing a whole bunch of songs even though Stevie was the obvious lead singer. It added variety to their shows.
+- Heart had originally relocated to Vancouver because Mike evaded the draft to protest the Vietnam war. We had to deal with a lot at that time - it was a tough period for the band.
+- I really love singing. I love singing harmony, mostly.
+- There was a lot of procrastination on Cameron's part because of the personal nature of 'Almost Famous.' There was a lot of deep, dark doubt about even doing it. I don't mind being a cheerleader, but I did reach my limit quite a few times. I do my own writing, so I understand, but I was pushed to the point of anger with the insecurity of it.
+- I have a favorite blue Telecaster. It's an old '60-something, which I play at every show. That's probably my favorite all-around stage guitar.
+- We've come through on a very strange path, and it's all somehow worked out.
+- I like playing. Guitar... on a loud rock stage... with colored lights. Everything sounds better with colored lights!
+- Prince, I think, trained amazing musicians to bring more to any musical table they come to.
+- 'Barracuda' is very fun to play because it's like a galloping steed of a rock song.
+- The electric guitar was a big step for me, but I didn't spend a lot of time trying to adjust. It wasn't like, 'Hey, little lady, come strap on this here big guitar.' We took it in steps as much as possible.
+- I don't think anyone does Rush songs except for Rush.
+- There are some beautiful things about people like Katy Perry, who are bold enough to go up on a pink cotton-candy cloud, with a guitar, in a tutu, and sing all by herself.
+- I think it's important to be kind of brutally honest without making anyone else feel bad in any way, if possible.
+- I saw Led Zeppelin live for the first time when I was thirteen.
+- What Jimmy Page did was pretty inspiring for guitar players. He married a lot of acoustic elements into hard rock. The kind of chords he used were very left of center, with a lot of dissonance - I absorbed that like a sponge. It's all over the music I write, always.
+- There have never been a lot of female guitarists out there, so most of my influences were male. Acoustically, I followed Joni Mitchell and Paul Simon. Also, John Lennon and Paul McCartney - both incredible acoustic guitar players.
+- Heart weren't part of a movement like grunge; we were our own kind of movement.
+- Music changes kids, and kids change the world.
+- I'll work my butt off to do something well.
+- It is nice to be an American and to be able to have an opinion.
+- As far as havin' someone to talk to on the road, for instance, who's not a guy - it's saved my life many times to have Ann in the same group.
+- It's the ultimate compliment to be imitated or at least be somebody's influence, for sure.
+- We really had boundless optimism about the place of music in the culture - and in the world.
+- One of the things I've heard musicians say that's true is, 'I would play for free. I would play music forever, but you have to pay me to travel.' I know we're always going to make music. The traveling part - that is the most wear and tear on any human.
+- I have done a few solo projects that I really enjoyed and would love to have time to do more. Key word here is time!
+- We were wild-eyed hippies from the late '60s. We still had the exuberance of the mind-expanding '60s - that Tolkienesque, Zeppelin, androgynous, wood nymph, forest fairy kind of innocence. It sounds stupid now, but we felt we were changing the world with music.
+- I've been through a lot of heartache in my day, and you turn to music to prop yourself up. It's a healing thing, and it's a powerful, powerful, beautiful thing.
+- There were not very many girls in rock n' roll together with men that had a heavy rock sound as well as a more acoustic sound like Heart.
+- We see what music can do for people. Hell, we see what music does for us! When you see thousands of people out in front of you, it's fixing their lives. It's helping. It's healing. It's bigger than the inconvenience of jealousy or emotional storm clouds.
+- One of the signature things about Heart was the acoustic guitar in a rock format, which you didn't hear that often.
+- Harmony singing is my favorite thing to do in music!
+- 'Say Hello' was inspired by optimism.
+- Our very first group was called The Prunes.' We did a lot of campgrounds, living rooms, and backyards.
+- When you're in your twenties, your brain hasn't even finished baking, and your hormones are giving you all kinds of direction of which ways to go.
+- People started to ask me, 'Do you really play guitar?' They thought it was a prop. It was just interesting, because of all the imaging stuff.
+- We always wanted to do a children's book of some form or another.
+- The Seattle explosion was what saved rock from becoming too pompous! A great moment in music!
+- I think there were a couple really good songs on 'Whirlygig.'
+- I've always been a little bit in the background as a singer and even as an acoustic-guitar player, although I crank it up and rock with my Marshall stacks, too.
+- I always have dogs with me, even on the road. We call them port-o-pups.
+- I think if there's a support system in place, and you're acting adult-to-adult with a sense of unconditional love and forgiveness, only good things will come from any relationship between men and women.
+- You need to know how to play live. The ones who can do that are the ones you'll see around for a long time.
+- My favorite acoustic is the Nancy Wilson Signature Martin.
+- I'm a chameleon when it comes to guitar playing and like to stretch out into different territories.
+- We've been around for awhile, had a lot of success. Got a chance to sit around and go, 'Oh, yeah, we're pretty good.'
+- Everyone makes mistakes.
+- The high road and positivity is never the easy way but always the best way.
+- They're hard to come by, good producers.
+- I feel like I've had a lot of painful situations that I intentionally delete from my memory.
+- I just think it's good to have a big, living, breathing piece of music that's not just songs.
+- The Lovemongers came together because we felt kind of overinflated by the end of the Eighties.
+- We've never been as active politically as we have been as artists. But politics always brush up against the arts, oh, about every four years in this country.
+- In our band, we had such an interesting democracy, and it worked really well.
+- Our mom was a super strident, capable, and strong individual. I think because she was a military wife in the Marine Corps, she had to push back the things that she believed, and she had to really scrape and fight to have her space.
+- We came from an era when women normally did not rock.
+- The '80s was an interesting, confining time for songwriters, so we were just sort of riffing in our own language, off to the side.
+- I really like the Budda head with a big Orange cabinet with Celestion 30 speakers and my '63 Fender Telecaster.
+- Unfortunately, the music programs are being stripped out of the schools these days. We have to change that.
+- I play a lot of classical music around the house.
+- We see people from 6 to 60 years old at the shows.
+- In the case of Roadcase Royale, everyone in the band has a lot to offer as a writer and producer.
+- Sleazy people are always in this business. They run the business, pretty much. There are a lot of barracudas.
+- I love singing, and whenever I can sing some more vocal leads, I always covet the chance.
+- When you're 12, you have no gauge for what's hip or not hip - or even who you are.
+- I tried to play 'Barracuda' on 'Guitar Hero,' and because you have to anticipate and push buttons, it's really counterintuitive.
+- My highest score karaoke song is 'Ben,' by Michael Jackson.
+- There's nothing quite as raw and honest as one person and one instrument.
+- There is a definite sound with all-girl bands, a good rudimentary sound, and that's what's cool and punk about all-girl bands that you still find, largely - it's really kind of primal.
+- We're trying to elevate humanity and not preach to humanity in the way we approach our art. We're always just trying to get a good party going.
+- We're not just 'ladies in rock.' We're weird people!

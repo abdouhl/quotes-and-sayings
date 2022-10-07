@@ -1,0 +1,22 @@
++++
+author = "Mickey Kaus"
+title = "Mickey Kaus Quotes"
+quotes_len = "16"
+description = "the best 16 Mickey Kaus Quotes"
++++
+- I know I have the mental capacity of a thousand bloggers, but because of that, my obligation to serve God is also that of a thousand bloggers.
+- One danger, when you're writing lots of quick, opinionated blog items about the latest developments, is that you never get around to stating fully, in one place, what you think about a particular topic.
+- People have to eat and it's good to have a last-resort dole they can turn to.
+- Do we really want a society in which the stigma of going on the dole has been erased?
+- I'm not anti-immigration.
+- I may have been the only candidate in America who failed to ride the wave of anti-establishment anger to victory.
+- An ignorant person with a bad character is like an unarmed robber, but a learned person with a blog is a robber fully armed.
+- If Americans are reluctant to go on the dole that's because they have a healthy work ethic.
+- I'm not a Wall Street expert, but I can read the papers.
+- I've often been accused of spending more time and energy criticizing my fellow Democrats than criticizing Republicans.
+- My father was not a political animal.
+- I don't have any particular beef with Barbara Boxer. My beef is with the official Democratic doctrine that anybody who reaches Boxer's position has to spout and has to endorse.
+- Ezra Klein gets under my skin. He seems to spout the party line.
+- I'm fortunate to make any money as a blogger.
+- My father was an immigrant from Austria and he became a lawyer and became a judge and I think he was a good judge.
+- Usually I write about what I care about, which is a weakness but I think also a strength.

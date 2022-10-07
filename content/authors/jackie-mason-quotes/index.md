@@ -1,0 +1,32 @@
++++
+author = "Jackie Mason"
+title = "Jackie Mason Quotes"
+quotes_len = "26"
+description = "the best 26 Jackie Mason Quotes"
++++
+- My material is as new as anything on the dinner table. What difference does it make if I'm 70 or if I'm 20? The audience knows they aren't getting any old stories from me.
+- I knew nothing about professional comedians when I became a comedian. I was a rabbi. So I had no professional comedians to learn from.
+- Every comedian feels out an audience. As you're telling jokes, if they're not laughing at this, you change the subject.
+- I can't predict the future and I don't have respect for people who try to.
+- I can't pretend that I'm a great student of the art of comedy because anybody that becomes philosophical about humour doesn't know what he's talking about.
+- Eighty percent of married men cheat in America. The rest cheat in Europe.
+- There is no way I would ever want to be president for a second. It's much easier to make fun of them on the stage and get paid for it. With all the years of me lampooning the presidents in my act, I know I could never ever want that job.
+- I have nothing but love in my heart and everything I say is just an instrument for laughs.
+- I don't believe that anybody has come to a conclusion on why something is funny. It's funny because it's ridiculous and it's ridiculous for different reasons at different times.
+- I used to hear on the radio people like Jack Benny or Bob Hope, but I never had any interest in their type of humor. I thought that I could do something more substantially meaningful with significant, thoughtful, analytical reflections on real life situations.
+- I am very proud of my career and that I've the health, thank God, to continue doing this for so long.
+- I didn't emphasize my Jewishness because I wanted to. I just happen to have been raised in a family where everybody happened to talk like this, so why would I talk like somebody else?
+- If I'm a busboy in Philadelphia, then I have to be careful about what I say. But if I'm a public tycoon like Jerry Seinfeld, and I got a billion dollars in my pocket, he's got to be nuts to wonder or worry about what people are going to think.
+- The truth is I'm not at all surprised of the longevity of my career. In fact, I would be surprised if the opposite were true and if my career did not have this longevity because I can't believe people would purposely deprive themselves of such hilarious, meaningful entertainment at these prices.
+- If you wanted to hear politics, you'd go to Henry Kissinger; you wouldn't go to hear Jackie Mason. The reason I speak about politics is because I know I can get a laugh out of it.
+- The Republican Party stinks because all of the Republicans have accomplished nothing, and they talk about all of these issues and do nothing about it for a whole lifetime.
+- It's no longer a question of staying healthy. It's a question of finding a sickness you like.
+- Did you ever hear of a kid playing accountant - even if they wanted to be one?
+- I have enough money to last me the rest of my life unless I buy something.
+- My comedy doesn't come from any calculations and studies.
+- I have always found myself trying to study and analyze the world around me - not just taking everything for granted and following whatever is popular.
+- If an Englishman gets run down by a truck he apologizes to the truck.
+- It is more profitable for your congressman to support the tobacco industry than your life.
+- Predictions are preposterous.
+- I have a great identification with Judaism as a religion and as a culture, and all the values that created such a great history, and the Jewish contribution to the betterment of all humanity.
+- I've been watching politics for 35 or 40 years and you just never know. You can have one person win the Iowa caucus and then the whole picture changes ten minutes later. The same thing can happen again after New Hampshire. I have no idea what's going to happen with our country in the future.

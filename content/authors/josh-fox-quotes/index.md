@@ -1,0 +1,51 @@
++++
+author = "Josh Fox"
+title = "Josh Fox Quotes"
+quotes_len = "45"
+description = "the best 45 Josh Fox Quotes"
++++
+- We all know that we have to get off of fossil fuels. And we know that the world is going in that direction. And we have to do it fast.
+- When you can light your water on fire due to methane contamination in your ground water, what else can you do but laugh?
+- With moviemaking, the audience always has to keep asking, 'What happens next?' If you have the wrong piece of music over a scene, people aren't going to get the scene. If you have the wrong camera angle, people aren't going to pay attention. That's as much a part of the process as getting people to talk to you.
+- We need policy change, and the most important thing people can do is to contribute and participate in the political process. We have to vote climate change deniers and people who will create subsidies for the fossil fuel industry out of office. We have to protest when bad decisions are being made about fracking or tar sands.
+- Water is a cure-all. Water is everything. You can't get better without drinking lots of water, and you can't drink water unless it's clean.
+- You know, there's a difference between politicians and leaders. Politicians read poll numbers and compromise. Leaders do what's morally right.
+- Culture is the air we breathe all around us.
+- Thousands upon thousands of people across America and many more across the globe are suffering at the hands of the oil and gas industry.
+- When you work with people for a long time, you start to sense what they are thinking without having to communicate explicitly.
+- Natural gas is a dirty fossil fuel like the rest of them.
+- I think the audience know which films are aimed at their pocket, and which films are aimed at their soul. There are a lot of films out there made by people who are genuinely trying to make a change.
+- I don't believe we're only motivated by our own self-interests. Often out of crisis comes this enormous wellspring of generosity and motivation.
+- I'm a theater guy and a filmmaker. So when my community was thrown up in the air by the gas industry, the way I could contribute was to do something in the film world. I never thought it would be a big deal at all.
+- First of all, the idea that natural gas is better than coal is a lie, especially when it comes to fracking for natural gas. It is a lie that was bought into by a lot of Democrats and a lot of environmentalists because I think they wanted to have a win against something; against coal.
+- I think what we all have to do is make this big leap towards renewables. And it has to be a solution where you're actually building the answer; and it has to be built faster than the natural gas industry can build their answer.
+- I have to have faith that we're going to succeed in transforming where we get our energy from. The big worry is whether or not we're going to do it before it's too late. And I think nobody knows the answer to that.
+- Watching a film should feel like you just tore a hole out of the air and the void caught fire.
+- Every single dollar spent lobbying a legislator on behalf of oil and gas is a toxic dollar that undermines public health and safety laws that protect Americans. That's contamination of the political system.
+- The history of fossil-fuel development has always been that certain people are expendable. What's changed is that new, larger populations are now considered expendable.
+- Journalism is irrepressible. It can't be taken away.
+- Independent documentary isn't beholden to some of the interests that the mainstream media are influenced by. It's a pathway to renegade, independent reporting in an in-depth, investigative fashion, and it can do so with a compassionate lens; it allows people to speak in a way that is more human than the mainstream media approach.
+- A lot of people are deeply dissatisfied by the diminishing control they have over their lives, because of the way our system of government is set up, to cater to the powerful, cater to the wealthy, cater to the corporations, and not to the individual American citizen.
+- 'Memorial Day' is about 'spring break' girls-gone-wild culture which is the seedy underbelly of our American Puritanism, the inverse side of the coin. It's also about how we forcefully exported that culture and then pretended to not know what we were doing.
+- We're not living in a society that science actually dominates the conversation. We're living in a situation where some science is allowed and a lot of it's about policy. And when your science runs into a policy roadblock, all of a sudden the science starts to disappear.
+- The problem is that everywhere the gas drilling industry goes, a trail of water contamination, air pollution, health concerns and betrayal of basic American civic and community values follows.
+- I've been arrested three times. I don't like getting arrested, but it's not so bad when it's an organized form of nonviolent disobedience. It's something appealing to a higher law.
+- I'm a night owl, and luckily my profession supports that. The best ideas come to me in the dead of night.
+- The BP spill was the greatest environmental catastrophe in U.S. history. Yet somehow, gas companies like BP and Halliburton ran interference on reporting that story.
+- The first line in the first 'Gasland' is: 'I'm not a pessimist. I've always had a great deal of faith in people that we won't succumb to frenzy or rage or greed. That we'll figure out a solution without destroying the things that we love.' I have not lost that sense.
+- History is often best told from the ground, out of a car window or in someone's kitchen, not through some huge production mechanism or grand framing device.
+- I love driving. I still drive a 1993 Toyota Camry. I do want to get an electric car, but it's less of a carbon footprint if you keep your old, fuel-efficient car on the road than if you say 'build me a whole new car.'
+- The Safe Drinking Water Act, the safety provisions of the Clean Water Acts, the Clean Air Act, the Superfund Law - the gas industry is exempt from all these basic environmental and worker protections. They don't have to disclose the chemicals they use. They don't have to play by the same rules as anybody else.
+- People treat citizens like they're some kind of unreliable source, but citizens are data. They are a data set.
+- As a journalist, you have to have multiple sources and verifiable science, and when you've done that and satisfied the most skeptical voice in your head, you have an obligation to ride through the streets - let people know what's going on.
+- What we've got is the wholesale embrace of fracking domestically, internationally and for export. And this couldn't be further from what we really need to do to address climate change.
+- In the U.S. you have a system of lobbying and influence on our policy and law makers which is incredibly pronounced. The gas industry spent $250 million getting an exemption from our Safe Water Act. Every one of those dollars is toxic; a contaminant in our political system. It disrupts the normal flow of justice, science, fact and reporting.
+- When you're cornered, there are two things you can do: move or fight.
+- I think we're in an era of unprecedented dominance by corporations. I think people understand that deeply; I don't think that's even questioned.
+- I think that the world is in the middle of a huge transition that we have to make to renewable energy. We have to transition away from fossil fuels very, very quickly.
+- I love documentary because it's alive.
+- I think 'Gasland' is the doorway for a lot of people to see something happening in their backyard and realize the national and global implications.
+- According to the oil and gas industry and their proponents, I am a communist, terrorist, Nazi, Russian-sympathizing, anti-American, arsonist, extremist.
+- I love cooking. My Italian mother is a genius cook, and I picked that up from her. I make my own sauce, which takes four hours, from a recipe that's been refined over many years. I won't tell anybody what it is.
+- We have to start processing what we're really made of in America. American character is not dead. American integrity and honesty are not dead. When we're backed up against the wall against the largest corporations in the history of corporations, it's there.
+- When you have corporate influence on our government outweighing the influence of citizens, that's terrifying. This is something we have to make a big, big noise about.

@@ -1,0 +1,79 @@
++++
+author = "Mike Colter"
+title = "Mike Colter Quotes"
+quotes_len = "73"
+description = "the best 73 Mike Colter Quotes"
++++
+- My family, they're not really that involved in what I do. Career-wise, they're very supportive. They're involved after the fact. I don't tell them anything, usually, until I'm finished filming it or mid-way through filming it. It's just a job, and I approach it that way.
+- I hate the gym, so I try to diversify my workouts with swimming and basketball. Indoors, it's less boring than running. I do find that diet is key. I eat lots of lean protein, no soda, no fast food or fried foods, and a lot of water. But I love food and often cook.
+- I'm a bit bored of going to the gym! I'm like, 'Someone put me out of my misery - I can't do this anymore!'
+- I've always wanted to be on a show that's well respected and had critical acclaim and that people like to watch, and at the same time find something that, for me, as an actor, is interesting and challenging.
+- Ridley Scott was part of the production team on 'The Good Wife.' I auditioned on my iPhone, and it moved very quickly after that, as they thought I was right for the role, and pretty soon I was filming in Iceland for two months.
+- We all act differently in certain places. We don't want to admit it, but we're different where we grew up than we are with our family and than we are with the guys that we went to college with or our fraternity brothers. People just exist differently. It's small, subtle things, but different colors come out. That's all there is to it.
+- Some people in America don't ever interact with black people outside of television, so we should give them real, believable characters.
+- When I was playing Bishop, I would always walk on set thinking, 'This is my show; this is a show all about me.'
+- Before I starred in 'Million Dollar Baby,' I wasn't really a boxer. I just worked hard to learn as much as I could before we were there on set.
+- Some people act like there is so much mystery in getting fit, but the only secret there is to making it happen is time.
+- Part of acting is always just being available emotionally and open to people.
+- I think, in a career, you have several breaks that lead to a big break. Small things here and there all add up to cracking away at the dam. Then the dam breaks.
+- The work is done; it is what it is. You do the work, and you hope people like it, and if they don't, don't read it. I don't read reviews. I don't have social media, so I'll stay away from that; it's easy.
+- I didn't sit around thinking, 'I'd love to play Luke Cage,' but when the character was presented, I did my research, and I was just like, 'This is a real gift. He's a great character, and I'm happy to have a chance to take a crack at him.'
+- I'm one of those people who is colour blind to a certain degree. And that doesn't mean I'm not acutely aware of race in our country and abroad and in the world. I know what's going on, and I'm very aware of it.
+- We are in a diversity age. I talk about the lack of diversity for black Americans, but what about the Asian Americans? You don't see them very often. They have a show called 'Fresh off the Boat.' No one is talking about that show. I saw it, and I found that show completely offensive, but I'm not Asian American.
+- Marvel does a fantastic job about bringing human stories - because you're telling big stories with a heart at the centre of it - and that's what connects all of the characters to our audience members.
+- As an actor, you just want to continue to work on things that you like. You can be in this business a long time and consistently working and just be totally artistically unfulfilled.
+- I'm embarrassed to say that I don't have a lot of hobbies. It's not because I don't have interests; it's just that I don't have the time.
+- I think sometimes we get wrapped up in awards... ultimately, it's just a moment in time, and it passes.
+- I always say if you put someone from a small town into a big city for ten years, then when they go back, they'll act differently. Are they the same person? Sure, but do they act different? Yeah.
+- I'm always very even-keeled, and I'm always waiting for the other shoe to drop.
+- Harlem for me is Atlanta, Las Vegas, and Washington, D.C., in one place. You have very significant churches that have had national ramifications. At the same time, you have politics. On top of all that, you have entertainment because you have 70 years of music that came out of here, and if you scratch that, gangsterism happens.
+- As for facial hair, I think I decided it was a good look after graduate school. I always shave it myself and trim my own beard. I change the look depending on the role. For 'Million Dollar Baby,' I had no facial hair. For 'Men in Black 3,' I had no facial hair but did wear a wig.
+- When you're a black man in a hoodie, all of a sudden you're a criminal. That's something we shouldn't have to deal with, but we do. It's a double standard. We can't cover our head when it's cold and raining because God forbid someone sees us and puts our life in danger.
+- I'm pretty relaxed on what people should be able to do as long as they're not hurting anybody else.
+- Cops and criminals aren't that different. They just play by different sets of rules. And the lines get blurred. There's no such thing as 'right' and 'wrong.' There's always a grey area. There are always hypocrisies.
+- As an actor, you're trying to capture the nuances of real life, but voice work is almost over-acting.
+- I think anyone in New York City could look at Luke Cage and say, 'Hey, this guy could help me out.' I don't want him to just seem like a relevant hero for only black people.
+- You can have all the intentions you want and try and guide the narrative, but the narrative is irrelevant because it's how the public digests it that will be indicative of what the series will ultimately be.
+- What makes Luke Cage unique isn't him being black. Yes, he is black, but he has other things.
+- When you're acting, it's all about you and the person in front of you, and I think in life we forget to apply the same technique, and we get caught up in the panic of what we're trying to do - how overwhelmingly daunting the task of trying to become an actor is.
+- I always make a joke: 'Don't look into the future; it's too bright.' That's as positive as I can be.
+- People forget, most of the times we audition with people who aren't necessarily actors. So it doesn't matter who or what's in front of you: you still have to have the same realism and invested emotions.
+- I respond to women who have their stuff together, who are in charge, who don't need men to do things for them. I want a woman to have her own thing, you know? My wife is very smart. She's got a doctorate degree; she's got her own career going. She doesn't need me to take care of her.
+- Sometimes you don't know the effect of words until you hear it used on you.
+- As artists, we are so not in control most of the time of the content or the narrative of our characters, and sometimes writing takes a turn and it's not something we necessarily have control over. It's just a lot of random dumb luck, so when things click, you've just got to enjoy it.
+- Sometimes we just sit around and sit on our hands and don't do anything because it's like, 'Hey, that's not my problem.' You can't do that when you're a superhero.
+- It serves anyone, when they're going into some project, to try to distance themselves from the material so you can really have an objective viewpoint.
+- I'm always game for creating a new character, and I liked the idea of putting something new into the 'Halo' universe.
+- The black community wants to buy things and want to see themselves portrayed in a certain way. And if they don't like what they see, then they won't spend their money. Everyone's not gonna always relate to Captain America; everyone is not going to always relate to Thor. A lot of characters just don't speak to them.
+- I am not walking around looking like Luke Cage does at all.
+- Acting, really, is a lot of mental fatigue, emotional fatigue, concentration... it's mentally draining.
+- If you're not enjoying your work, what's the point?
+- Comic book heroes are an important part of our culture, so I think we're actually utilizing comic book heroes in a much more in-depth way than before. They have such potential, and I think we're maximizing the potential.
+- My mother wanted to be an actress. She wanted to follow her dreams, and she never really got a chance to do that. I feel like I'm following her dream in a way.
+- Harlem is really a melting pot for a lot of different people. When you look at Harlem - and I lived there almost five years - most of the people who live in Harlem are transplants. They migrate to Harlem from another place.
+- Luke Cage isn't going to throw a pity party for himself. He literally says to himself, 'This is the world I'm in. These are the circumstances I have.' He's a self-made man. He's trying to continuously build, and that's what's interesting about him. He's a work in progress.
+- If you've ever been to Harlem, there's always something playing on the street, and there's this energy that feels different to anywhere else in New York.
+- I'm really starting to get bored with myself, doing the same workouts. 'Oh here we go again.' I need someone to crack the whip. I need someone to kick my butt because sometimes I can end up taking it pretty easy on myself.
+- Netflix shook it up, brought this whole new generation of people who said, 'I watch things when I want to watch, how I want to watch, where I want to watch, and that's something that no one's going to ever forget.' This has changed the game completely, and I think it's the tip of the iceberg.
+- It's always fun to play a character that bends the rules.
+- I got lucky. To be frank, I was surrounded by white teachers who never did the whole, 'You're never going to amount to nothing' thing you hear about in the South. Instead, they would say, 'You're really smart. You can do this.' If I hadn't gotten that, I don't know where I'd be.
+- There's no book to figure out how not to become a victim of police brutality.
+- As long as you can throw people a curveball, that's what you're looking for. Because the minute they can define you, the minute they think they know exactly who you are, is when it starts to wear thin.
+- I did want to play a superhero. I mean, who doesn't when you're a kid? I would have loved to be a superhero. But as I'd gotten older, I wasn't ready to jump into tights and put the cape on. I was hoping to play something a little more grounded and realistic.
+- I see fans all the time. They're always very complimentary, and they're always very eager to talk and to share their experiences or get a selfie. They're really, really loyal. And intense.
+- A lot of times in life, women want to talk, but men don't want to listen, and if they do want to listen, they turn it back to themselves.
+- The big budget films have money to do things that are not necessarily essential but sure are comforting. The catering is usually much better. And you have way more of anything you could possibly need. You definitely get a trailer. My shirt and suit for 'Million Dollar Baby' were tailor made.
+- What I like about my character: Luke Cage is a person first and foremost. We do have other black superheroes, but he's important because he's touchable. Luke has moments when he has to try to forget his pain, but then, unlike the rest of us, he's also able to channel that frustration into fighting bad guys. Real martyrs aren't trying to be martyrs.
+- Having worked on 'Halo: Nightfall' and gotten a taste for what 'Halo' has to offer, it definitely has me interested in picking up the games and getting familiarized more with the 'Halo' universe.
+- I pretty much spend most of my time in the gym bulking up and staying fit and putting muscle on so I can play the part of Luke Cage, but I've never been a gym rat.
+- It's nice to be recognized, but at the same time, there are always consequences. You may get fame, but you lose anonymity. You lose a certain sense of who you are.
+- No, no. I draw the line there. Anything that's going to show an outline of my manhood is not on.
+- Not being white has never prevented me from enjoying Luke Skywalker or Han Solo. These are heroes of mine.
+- New York City is a big city but a small city when it comes to theater.
+- When Barack Obama got elected, I remember being in Harlem specifically. I remember watching that whole part of town just swell. People walked the streets, but it wasn't a riot - it wasn't mayhem. It was a unified feeling of euphoria.
+- I don't think Luke Cage as a superhero is something that has changed dramatically from the '70s to now. He's a black man going through the same thing as other people of colour - it's just that he has superpowers.
+- Dialogue is not always the best way to show emotion, to show your thought process, or to reveal yourself, as a character.
+- I think all actors, when they're not working, say, 'If I can get to this point where I'm working on a consistent basis, I'll be happy.' Of course, then, if that happens for you, and you're lucky, you find some other reason to complain. There's a joke: 'If you want to hear an actor complain, give him a job.'
+- I like to take a break, but at the same time, I think most actors are not very good at sitting around doing nothing, because we like to work.
+- I have a wonderful wife I met at Rutgers while we were both there. She was in the Ph.D. program. She is not an actress. She definitely brings balance to my life. We actors can tend to bore anyone with shop talk.
+- It's a part of my DNA that I've never really taken time to revel in success.

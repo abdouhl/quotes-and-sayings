@@ -1,0 +1,21 @@
++++
+author = "Jefferson Mays"
+title = "Jefferson Mays Quotes"
+quotes_len = "15"
+description = "the best 15 Jefferson Mays Quotes"
++++
+- You can really get your chops in shape in the resident theatres, and I urge anyone to investigate them and to be willing to go anywhere to pursue the great roles.
+- I try to inhabit each of the characters as fully as I can, however short-lived they are. But most of my show happens offstage.
+- There was a lot of playing by myself, wearing last year's Halloween costume and wandering around the yard talking to myself - which may account for my fondness for doing different voices.
+- The beauty of performance for me is finding details with which to betray character.
+- My mother was a children's librarian, and I was raised on lots of English children's literature. It gave me this weird idea that I was English.
+- When I was younger - I don't do this too much now - but sometimes if I couldn't sleep, I would lie in bed and imagine all the characters I've played at a dinner table together.
+- I love hats. I've always loved hats.
+- A musical sweeps you along, like you're on a magic carpet ride of sorts. But you have to keep up.
+- I should be one of those actors who has a list. A lot of people do - 'I wanna do this and this and this' - but I don't. I enjoy being surprised - indeed, often ambushed - by a role.
+- I'm kind of a reluctant Anglophile. My mother's a children's librarian, and all of the children's literature I read was from her childhood - E. Nesbit and Dickens, which isn't children's literature at all, but I was sort of steeped in English literature. I thought I was of that world.
+- I was offered jobs impersonating everyone from Cher to Madonna.
+- Some actors start with the right shoes. I start with the right hats.
+- I always dress up for recordings.
+- I don't know what we did without Velcro in the American theater. It's a miracle substance! People had long intermissions, probably.
+- It's such a rare and rewarding thing to be in control of space and time for two hours a night, to go through a journey and take the audience along. There's nothing quite like it.

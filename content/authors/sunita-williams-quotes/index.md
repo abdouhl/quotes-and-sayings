@@ -1,0 +1,91 @@
++++
+author = "Sunita Williams"
+title = "Sunita Williams Quotes"
+quotes_len = "85"
+description = "the best 85 Sunita Williams Quotes"
++++
+- Gravity on Earth provides a force that keeps our bones and muscles working. In the microgravity of space, our bones and muscles are not taxed, so they begin to atrophy.
+- I think I am a smart aleck because I grew up close enough to Boston, and most people from Massachusetts talk fast, and I have a little bit of a wiseacre, and I think I'm a little bit like that.
+- Mission Control in Houston receives our e-mails through a satellite and then sends them out to our family and friends. Likewise, any e-mails written to us go through the Mission Control, and then they send them up to us via a satellite.
+- The space program is a peaceful project. The next door is opening. We have to go farther into space. But, before that, we need to develop far more improved nutrition and more advanced spacecraft.
+- There was nothing in my past that had lended itself to anything that had to do with space except for watching 'The Jetsons' and 'Star Trek' and stuff when I was little.
+- Funny how words in one language get used in another language. For example, 'scotch' in Russian is tape and 'pampers' means diapers.
+- Space felt like home.
+- Sweat doesn't fall off you. The water just accumulates until it gets too big and agitated and falls off like a sphere of water. It then floats around until it hits something. It takes a lot of water to fall off. Usually it just hangs on, so you get a quick build-up of sweat when working out.
+- There's one downside in comparison to both Soyuz and SpaceX, is that when you go to those places - when I went to Russia, or when I went to California - you're sort of focused on what you're doing. Your family's not there. Your lawn isn't needing to be cut. You're just focusing on what you need to do.
+- My personal opinion, Suni Williams - I think that when we really leave the planet - we all go as humans, not as people from one country or another. We are humans; we work together. This is our only planet as human beings that we know of. So we all should have an interest in preserving it.
+- It took a little while to get used to falling asleep without laying down on a bed or having a pillow.
+- I do hope there are other wonderful planets living and thriving out there, but ours is special because it is ours and ours to take care of. We really can't take that too lightly.
+- When you look at the darkest areas in space, you feel that there's something out there that we don't know about.
+- Once you get into the spacecraft, you're on your way, you've got a mission, you're focused, and it's really exciting.
+- My space expedition has changed my perspective towards people. Looking down at the Earth, we could not see borders or people with different nationalities. It was then that realisation dawned on us that all of us are a group of human beings and citizens of the universe.
+- During our journey, we did weight lifting, squats, and dead lifts to regenerate the bone density. Luckily, my muscle mass and bone density did not alter. Our workout was so rigorous.
+- When any part of the Station is moved from its designated location to do a repair, we really risk losing things.
+- You can hover in the air if you want, or you can push off of something and glide through the air - just like a fish. I also think it is like being a fish, since you can catch food in your mouth easily because it is suspended in the air - just like when you put fish food in a tank - the fish swim up to it, open their mouths, and eat the food.
+- In space, you need to stay as 'usual' as possible. On the space station, I would brush my hair every day.
+- I grew up as a swimmer, speaking of sports; I spent a lot of time before school and after school swimming.
+- I sometimes think this is just my life: I go to mow the lawn and sometimes go to space. But when other people say what you've done is really impactful, that's really humbling.
+- My siblings and I grew up on Indian food. My mother, though of Slovenian descent, learned to cook Indian delicacies for my father after their wedding.
+- Six months away from family and friends is a long time. Emotionally, you go through some ups and downs. Life changes on the ground, and you have to ready for that. Life changes for you up here as well.
+- As the spinal cord increases, it makes you taller. However, after landing on the Earth, you shrink a bit. What was worrisome was that some of the wrinkles, which had disappeared there, came back.
+- In space, if you push, you are usually going somewhere, so staying on the treadmill was a challenge at first, even with the harness.
+- The Space Station is primarily made of aluminum. The smell is really weird and sort of like burning metal. It is absolutely distinct and totally repeatable.
+- A bonus container is food, especially for each individual - supposed to be one every month, but in fine Pandya fashion, I have been 'saving' them. They are food that we requested or indicated that we particularly liked.
+- It's just this beautiful laboratory in space, and it's doing a lot of really cool things. So being up there and just being able to fly through that big station one more time and do some experiments while you're up there and get that view out of the cupola... priceless.
+- When you are thinking about going away for a long duration mission, it has to be part of your mindset that you're leaving your family, but it's for the right reasons, for good reasons, and hopefully helping humanity.
+- Planets look about the same here as they do to you on the Earth because we really aren't that much closer. Our home, the International Space Station, orbits around the Earth at about 200 miles.
+- It's only now that I see the bigger picture: Our ways to attain spirituality may be different - through diverse religious, customs and traditions - but they're modeled on similar principles and ideologies. That's what ties us all together.
+- My first mission was six and a half months. We weren't exactly sure how long it was going to be because I went up and back on the space shuttle, which was dependent on weather for launch and landing.
+- Ventilation is needed to ensure we get air disbursed throughout the Station. Air stagnates without flow, so it is essential to have good ventilation so one doesn't end up in a bubble of CO2 by accident and then not be able to breathe.
+- We try to keep it a normal day while we're up in space. You know, you don't want to change your time cycle too much, so we just keep it normal. And so, about 5 or 6 o'clock at night, after we finish working, we knock it off by having prerecorded shows that we watch sometimes through the computer while we're eating dinner.
+- In order to 'go out the door' safely, we go through a pretty thorough process called pre-breathe. This is the process of flushing all the nitrogen out of our systems by breathing higher concentrations of oxygen.
+- There is a distinct layer between the Earth and the universe, which is extremely black. Slowly, the entire universe starts to look 3D, like you can fly through it rather than this sphere of blackness overhead. And when you're above the atmosphere, there isn't water vapour in the air to make things foggy.
+- The main goal of the International Space Station is to work on peaceful projects. In space, we're all people from Earth.
+- NASA, like every government organization, has some bureaucracy, which can become slimmer.
+- When I go skiing in New England, I usually wake up early and drive up to Vermont, New Hampshire, or Maine to make it in time for chairlift opening. That means leaving early and getting breakfast at one of the little quaint diners up in the mountains.
+- When I was up on my first flight, we were really putting it together. So, I was essentially a construction worker.
+- There are millions of stars out there. It is difficult to think that life does not exist in any one of them.
+- I think windows are really important for the psychological health of crew members on long duration missions. It is nice to look outside, even if it is dark.
+- The food containers come in different varieties: for example, drinks, breakfast type food, meats, vegetables. There are about 5-10 days of that type of food in each container. We try not to open a new container until we finish the one we are on - even if that means going without coffee for a couple of days.
+- I think after orbiting for a while and looking at the surface, I think the natural tendency is to want to experience it, to go down there and touch it. I started thinking about the Apollo astronauts who orbited the moon and didn't land - that must have been agonizing!
+- I will say one of my favorite Russian side dishes is beet salad. It is dehydrated beets chopped very finely with nuts. It is a great side dish. I would like to try to make this when I get home. The nuts make it!
+- On the second flight, we were doing a lot of science experiments, and we've got a really cool window called the cupola. It's a big, circular window with six panes around, sort of at angles so you can see the Earth, you can see the edge of the Earth, you can go out - look out into the universe. It's pretty spectacular.
+- I love anything paneer! Our family favorite, however, is 'Dal Dhokli,' a quintessential Gujarati dish of bread dumplings and lentil soup. That's the big meal of the week typically prepared by my mother on Sundays.
+- I think every test pilot's dream is to be on the start of something that's brand new.
+- When I went to Test Pilot School, that's when we came to Johnson Space Center. And I ended up seeing John Young and listening to him talk and getting a positive influence from him.
+- We are lucky to live on such a planet, and we should not take it for granted. After my space experience, I am a lot more tolerant of people and opinions, of everything.
+- The feel of space... Some folks have asked what it is like to work out in space. Yes, you can work upside down, right side up, sideways - anyway you want to to make it convenient.
+- The International Space Station is a great place to live for a year.
+- I flew helicopters, which actually is the second best view of the earth. The first best view is, I think, a little bit higher.
+- There is nothing like home anywhere. There's no place like home, even in space.
+- You don't look at the big problem all together, because I think it's a little intimidating. So you just take it one day at a time, meet the people who are going to meet with you, for you, and who you're going to work for, and really try to do the best job that you can. That's all teamwork, and that's what space travel is about.
+- You have a lot of things to do when you're out on a space walk, and that sort of overwhelms your mind.
+- We take things to remind us of home. I think my favourite is a stuffed dog that was homemade from a picture of my little Jack Russell terrier.
+- We certainly would not be here, living and working on the International Space Station without the commitment and dedication of all the folks who worked the Mercury, Gemini, and Apollo Programs as well as the Russian Space Program.
+- We really have the most beautiful planet in our solar system. None other can sustain life like we know it. None other has blue water and white clouds covering colorful landmasses filled with thriving, beautiful, living things like human beings.
+- What is true and what most folks think is that there is no sound in space. From almost all recollections, I would agree.
+- The Progress is launched from Baikonur in Kazakhstan, just like the Soyuz. It almost looks the same as the Soyuz but unmanned, so, essentially filled up with supplies for us - anything from food, science experiments, repair parts, etc., can go in it.
+- Me personally - not something to do with NASA - I do think there is a God, and it's somebody looking out for us and trying to guide us to live a very happy, productive life. There is further meaning. That's just my thought.
+- When you're faced with something for the first time, and if you're scared to death of that, you might want to reconcile your life beforehand.
+- All of us who are flying on international space stations speak some Russian and speak some English. Both the languages are needed to fly in a Russian spacecraft and communicate with your colleagues.
+- Every month, we weigh ourselves to make sure we aren't losing weight. I really have been eating more than I do on Earth to make sure I don't lose too much weight.
+- The first 6 hours of being in orbit were a little difficult on my stomach. I think things just didn't know where to go!
+- You don't see any borders between countries from space. That's man-made, and one experiences it only when you return to Earth.
+- The space walks were amazing with the incredible views.
+- I personally look forward to building the Orion. I believe that our country needs to pursue that technology.
+- It's - I mean, the Olympics, what is it? It's an international competition to foster friendship and - and competition across - across the planet, and I think that's exactly what the International Space Station is.
+- There is still some gravity where we are and even as far out as our moon. That is why our moon stays in orbit around the Earth. We don't feel the gravity up here because it is so much smaller than the force we feel when we are on the Earth.
+- Becoming an astronaut was a little bit of happenstance for me.
+- I wanted to be a veterinarian and go to school in Boston. It didn't quite work out that way, and I ended up joining the Navy as a suggestion of my big brother. It was really awesome - and I didn't realize it at the time, -but provided a lot of leadership and followership teamwork opportunities.
+- It is a common fact that we see light flashes in a dark environment while living up here, and this experiment is essentially trying to detect how we humans detect these flashes - not sure if these are visual, if they are some type of radiation maybe sensed by some other part of the brain.
+- One thing to say about doing maintenance in space - it is difficult because the parts and pieces float away. You end up using a lot of tape and Velcro to make sure things stay put.
+- I am starting to think about those things that I miss from home. Ice cream is definitely one of those things we do not have up here. My favorite is pistachio. I love it with chocolate sauce.
+- In my space journey, I felt vulnerable because we did not have anyone with medical background. When we make that big trip to Mars, we would need a doctor on board.
+- I don't feel like a hero - just another person involved in the space business. I'm hoping to encourage young folks to become explorers.
+- I flew helicopters, and I loved flying helicopters on the East Coast when I did a couple of deployments out to the Mediterranean and the Persian Gulf.
+- Usually, if you stop for tea, someone will feel the desire to join you.
+- I will absolutely admit that the feel and smell of sea spray and wind on my face will be very welcome. I will be happy to come back to Earth, our beautiful planet, when it is time.
+- My father, who is deeply spiritual and religious, always stressed that my siblings and I remain true to our Indian roots.
+- There are areas of the Earth that I would absolutely think no one lived in based on daytime observations. But then at night, lights pop up in those areas.
+- When you're on a Soyuz flight, you know that when you go to Russia, you're going to do X, Y, and Z. You have that plan already laid out.
+- Space is absolutely a 3-D world in comparison to our 2-D world on Earth.

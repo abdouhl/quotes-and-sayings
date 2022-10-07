@@ -1,0 +1,17 @@
++++
+author = "Nick Love"
+title = "Nick Love Quotes"
+quotes_len = "11"
+description = "the best 11 Nick Love Quotes"
++++
+- I'm a good little middle-class boy. I live in Gloucestershire or Kensington. I don't exist in the war zone, but it's certainly not far away. I grew up in an area where it is a war zone - south London.
+- Two things revolutionised life: moving to the countryside and falling in love.
+- There is no hiding the fact I'm an avid Millwall fan.
+- In my real life I live in the countryside, I walk a lot, I shoot clay pigeons, I don't get involved in the film business or anything, and then in my cinematic life, I think I am drawn to the dark side.
+- I've got a reputation for doing a certain type of film: lads' movies that glamorise violence. The more my reputation as a bad boy grows, the more my life moves away from that.
+- My mum is incredibly leftwing, and my dad was quite rightwing - no surprise they didn't stay together - and so I had two very conflicting political opinions as a child, neither of which I was interested in taking any notice of, being a sort of little reprobate.
+- I don't want to die with regrets. I like living and experiencing and feeling the whole lot.
+- I do show violence as entertainment. Clearly, I'd be a liar if I said I didn't.
+- I'm not making films for critics, I'm making films for people to go out and enjoy.
+- I understand working-class culture, tribalism and the ethos of violence, so I make films about these things.
+- This sounds really hokey, but I think Buddhism is the only religion that is genuinely peaceful, so I'd try to promote it in a contemporary society.

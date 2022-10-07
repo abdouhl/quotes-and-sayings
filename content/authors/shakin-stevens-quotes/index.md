@@ -1,0 +1,77 @@
++++
+author = "Shakin' Stevens"
+title = "Shakin' Stevens Quotes"
+quotes_len = "71"
+description = "the best 71 Shakin' Stevens Quotes"
++++
+- In the Eighties, I was everywhere. It was hard, because you didn't see much of your children. I missed out on that. People make sacrifices - doctors, long-distance lorry drivers - and that was mine. I wasn't left money, I had to go out and earn it.
+- Someone can have a heart attack at any age. That person may only have so much time, so if there's a chance to help people in distress we should take it.
+- Brave people such as my Uncle Leonard were willing to put themselves at risk to preserve what they valued in life and young men and women today continue to make those sacrifices for our country.
+- As for Glastonbury, it's the biggest festival there is in Britain, and I'm very pleased to be asked to do it.
+- My fans go right across the board. They come to my concerts in family groups.
+- Mickey Gee will be remembered for his guitar playing by the public and true fellow musicians.
+- I don't wear white shoes any more.
+- I always thought it would be nice to have a Christmas number one. If nobody remembers you for the rest of the year, they'll remember you at Christmas.
+- I still love being on the road. I've been doing it since I left school. It's in my blood, it's in my bones.
+- We had a wind-up gramophone long before I came along, and it moved on to a Dansette record player. That's how I heard the records as I grew up.
+- I don't like to do interviews, to be honest. I hate interviews.
+- My health had always been pretty good.
+- Dad was in the First World War in the Royal Field Artillery from 1914 to 1918, as well as uncle Leonard.
+- When I was growing up, there were 13 children - it was different times then.
+- As you get older, you do try to be a bit wiser.
+- Life is never a bed of roses, but it's not all doom and gloom either.
+- I was a 17-year overnight success really. I think I earned it.
+- I don't think I look like him at all. There is only one Elvis and there Is only one Shakin' Stevens and I'm getting sick of people asking me that.
+- I have had some great interviews and some not.
+- The Salvation Army do a lot more than sit around the Christmas tree with a band.
+- To write a song is one thing, to get it to No.1 is another and to have a respected artist cover it is incredible. It's great to know my songs will be around for a long time.
+- In Australia and New Zealand I had big, big success.
+- I had success in Canada, all through Europe, Poland, Czechoslovakia.
+- Merry Christmas Everyone' went from 38 to 10, then 2, and then it hit the top spot, by which time the rereleased Band Aid single was at No 3.
+- Hot Dog' had been my first hit in the U.K., but it was 'Marie Marie' that really changed things.
+- Look at Kylie. She's changed and adapted but still kept her fans. That's what I want to do.
+- DJs used to mickey-take, have a real poke at Shakin' Stevens.
+- It's nice to be part of Christmas.
+- I mean, I didn't know that my dad was married before he met my mum. He was married for a year and he had a son. Even when I was grown up, that secret was still not let out.
+- I had a heart attack and it was touch and go. I was in intensive care, my body was frozen. I had an ice cap and had to get a pacemaker. I was in hospital for nearly two months.
+- You used to have those Saturday morning television shows. You had to do your bit. You had to go on and promote your new release. I quite enjoyed it, actually. You had the parents watching them, and they must have liked what they were seeing, so they'd encourage their kids. And then they'd end up bringing them to the shows.
+- Freedom is not a God-given right, we have to earn it.
+- People have got a preconceived idea of what I look like, what I perform and what my shows are all about. I can understand that, because all they can refer to is 'Top Of The Pops.' But those who come to my shows know better.
+- When I started we were travelling in vans, at that time we couldn't afford B&Bs, so after the gig the band would all climb in the back of the van with our fish and chips and then wake up in the morning - six sweaty musicians, all the gear around us, and you'd think 'oh god.'
+- War affects people in different ways.
+- My grandfather, born in 1865, was a copper miner from the age of 10. The air down the mines was poisoned with arsenic, and working conditions were horrific. They only had candles for light, so they worked in a pitch-black environment.
+- I'm so tired of all that teeny-bop stuff. It was years ago. So twee. I'm not into all that.
+- From country rock to Cajun, classic rock to Latin, and blues to Americana, I've had the pleasure of re-discovering the 'jewels' from my repertoire that are so well-liked.
+- To be honest I was never much of an Elvis fan myself.
+- I was a guy who was born in Cardiff and thought, there must be more to my history than that.
+- All families have lies and secrets, I don't mind sharing ours.
+- I did feel a bit of an outsider in the Eighties. But there was a market for me out there. New Romantics were totally different.
+- I came out of the punk era in the late Seventies. There were the Stray Cats, Matchbox and myself. I was able to hang on and it makes you think how I fitted in with your Spandau Ballets and Kraftwerk.
+- I was in several bands, and we just started off doing the clubs and dancehalls in the valleys - and eventually moved on to the colleges and universities.
+- Mum was absolutely tremendous, a wonderful woman, one in a million.
+- I feel like I'm a skittle. If I'm knocked down, I'll get up and try again.
+- I knew about my grandmother's husband who died in the Albion coal disaster. But I didn't know a brother died in the same disaster because of the health and safety, which was terrible.
+- I always used to sing in the house and I went to school at Hywel Dda Primary School in Ely. I think they had a puppet-type show there and word got around I could sing. I sang at that puppet performance and used to sing in school. From there, it was in my blood. I didn't want to do anything else but sing.
+- I'm not a spendthrift. It's hard enough to earn!
+- The early Shakin' Stevens and the Sunsets gigs were wild.
+- I've been asked that question lots of time before, why wasn't I on Live Aid? And quite frankly I don't know. I was riding high in the charts and the styles of music they had were quite varied from Adam Ant to Status Quo to Queen. I would have definitely fitted in.
+- My older brothers would scour the railway tracks for lumps of fallen coal to keep us warm and we'd sleep, top to tail, three to a bed. So we were seriously poor in every way except for one. We were rich in love.
+- I used to go to Caerphilly with my brother Les, two years older than me, with my mother to see her sister, Gladys. When they wanted to talk we'd have to leave the room. She'd say to her husband Stan 'take them in the front room and play the piano.'
+- I'm sure I'm not the only artist to flinch remembering some of the tacky merchandise sold at gigs - flags, pillowcases - which I'd only seen for the first time when they were already on sale in the foyer.
+- I love the Wilburys, but what made them special was the make-up of the band.
+- I couldn't go on an '80s package show or anything like that. I have a lot more to give. If you go down that road completely I think you'll stay with a certain type of audience. Again I'm not knocking it. People go for the fun of the hits, it's what they've grown up with.
+- I never dressed like a teddy boy, and I don't like shaving but you've got to do it.
+- I've jumped off pianos, I stopped climbing up curtains when the screws popped once and I fell to the floor like a Looney Tunes cartoon character, and ended up off for six months because of a broken ankle.
+- There's nothing wrong with being mad.
+- I've met an 18-month-old baby whose dad says the child likes banging his toy hammer on the furniture when my songs are playing and I've met grandmothers who've bought all my discs.
+- There's more to me than 'Green Door.'
+- I knew dad was born in Yorkshire and mum was from Mountain Ash.
+- I have done big festivals all over Europe with hip hops acts and everything else.
+- Artists have different stages in their career, from George Michael via Wham! to people like Kylie. A change of perception is what's needed.
+- We've had Salvationists in the family for more than 150 years.
+- I had a positive remark from Johnny Rotten, would you believe? He said I was a fantastic singer. Not a lot of people know stuff like that.
+- Call me Shaky, not Michael. I've been Shaky for so long it would be like calling Muddy Waters McKinley, wouldn't it?
+- I've been using slide guitar, banjo, stuff like that for yonks. But if people haven't seen me live on stage, they wouldn't have heard me with these instruments.
+- With the Echoes tour there was quite a lot of people who came to the shows that were attracted by the music and the sentiment on the album.
+- To this day, I don't know how our mum managed to put enough food on the table.
+- We had three small bedrooms. There were five boys in the back, top and tail, the girls in the front. Me and Leslie, the two youngest, were in with our parents. I was very happy but when they all got married and moved out Leslie and I thought we were kings.

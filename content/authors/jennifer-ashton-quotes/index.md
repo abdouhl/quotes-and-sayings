@@ -1,0 +1,25 @@
++++
+author = "Jennifer Ashton"
+title = "Jennifer Ashton Quotes"
+quotes_len = "19"
+description = "the best 19 Jennifer Ashton Quotes"
++++
+- As a physician, my core drive is to help alleviate suffering and if sharing my story could help others in some way, perhaps I could find the courage to expose my most vulnerable self.
+- As I tried to put the pieces of my life and that of my children back together, I returned to my very public job, but continued to suffer in private.
+- You can be experiencing the worst, most gut-wrenching grief and still laugh or feel something positive or even fall in love, and it doesn't diminish the depth and sincerity of your grief.
+- Even if the two parents have decided they can't stand the sight of each other anymore, they can still back each other up, cover for each other, and fill in the blanks for each other when it comes to their cocreated children, so that neither of them has to feel as if they're having to do it all.
+- It doesn't matter if I ever remarry again. Right now, I'm against remarriage. It doesn't matter though. I'm in an amazing relationship that I hope to be in for the rest of my life.
+- Let teens know that suicide is almost always the result of a complex mix of factors rather than a single event such as a breakup or bullying. It can be related to a sometimes undiagnosed mental disorder such as depression.
+- I know when I'm at full capacity, and two children is full capacity for me. If I had three or four, especially as a solo parent, it's a guarantee that I would inadvertently forget to sign at least one of them up for school, or send them off with no transcripts or emergency contacts.
+- But for me, a physician, chief medical correspondent for a major network, and women's health expert, the thought of exposing myself to millions of people as someone who'd been completely blindsided by the suicide of my children's father, and by the impact of that suicide on Alex and Chloe and me, was nothing short of terrifying.
+- I hope to transform the way people think about health and information. Radio is a terrific medium to learn facts and figures easily and absorb new information.
+- When I opened my solo practice, I made it a priority to put my patients' experience first and foremost. This involves making them feel comfortable, both literally and figuratively.
+- I was a solo parent. Not a single parent as far as I was concerned. Single parent implies that the other parent is around somewhere.
+- I'd never met Kate Spade, but I admired her as a designer and a businesswoman.
+- When suicide hit my family, we learned first-hand that no one is immune from what is now the 10th leading cause of death in the US.
+- The fact that data is always evolving is a good thing. It means that science is continuing, and we are always learning.
+- As a doctor, I was aware that when children go through severe trauma, they shouldn't see their parents completely disintegrate because subconsciously, that tells them they have no one to take care of them.
+- My media career came about by accident. In 2006 I was introduced to Roger Ailes, the President of Fox News Channel, by a friend of mine who was an executive producer. Ailes put me on the air one day, and one week later, I was offered a contract.
+- Kids don't want stand-ins on parents' weekend, no matter how much they might love those stand-ins. They don't want stand-ins to talk to about their teachers and their upcoming history final and the latest computer program idea they've come up with.
+- People who have gone through trauma need help with logistics in the short term.
+- Rationally, I knew these fears were ridiculous. There were no signs, unfortunately, and I would never blame anyone for another person's suicide. But if everyone felt that way, there wouldn't be this cruel stigma, would there?

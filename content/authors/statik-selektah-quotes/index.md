@@ -1,0 +1,32 @@
++++
+author = "Statik Selektah"
+title = "Statik Selektah Quotes"
+quotes_len = "26"
+description = "the best 26 Statik Selektah Quotes"
++++
+- I want to do more R&B, more reggae, everything.
+- I had completely changed from being a mixtape DJ to being a producer and working with Nas and stuff like that.
+- Some artists send their verses, and others record in my studio. Depends. I prefer them being there.
+- I definitely try to go above and beyond with live mixing and scratching.
+- I started radio, actually, when I was 13. I started DJing when I was 13, but later in that year, I started a high school station at Phillips Academy. I didn't actually go there, but it was in the town I went to high school in. So literally, within six months of DJing, they started mailing me records; it was crazy.
+- I grew up in a city - it's called Lawrence, Massachusetts. It's about half an hour north of Boston. When my parents got divorced, I moved to New Hampshire because my father worked up there.
+- Especially in hip-hop, no one takes responsibility for their actions.
+- My mother used to stop me from going to DJ battles. I'd, like, cry, get really upset.
+- Life imitates art and back around.
+- Sampling is very important for me. It's the backbone of hip-hop.
+- I kinda gave my childhood to hip-hop, literally. I didn't go to parties in high school. All I did - well, I was DJing parties in high school.
+- I learned so much from listening to Jay-Z, M.O.P. and Gang Starr.
+- I come from a traditional hip-hop background.
+- Brooklyn just got that energy to me that's so hip-hop and so New York City. You know, New York City is the grittiest city in the world.
+- Every person I meet is a rapper, DJ, or makes beats.
+- I grew up looking up to DJ Premier, who would have the illest hip-hop joint on everybody's album.
+- Gang Starr was like the blueprint of my career.
+- Every record I make, I want people to feel what I used to feel when I used to crack open a CD and press play.
+- When I made 'Detroit vs. Everybody,' I knew. I knew this for Eminem.
+- You can't just say jazz is dead.
+- When I went to AI New England in Boston, I used to do my mixtapes, and honestly, if you look back at any of my mixtapes, every single mixtape tells a story.
+- I've always been like the No. 1 Boston hip-hop fan.
+- With 'Ready to Die,' that was some of the most honest rhymes of all-time. There's some real dark material on there that Biggie was going through.
+- You got to have the right lawyer and good management. I went years and years without management and even a good lawyer; I used to handle contracts on my own, and it was definitely corners that they would cut. It wouldn't have happened if I had a good lawyer behind me.
+- I don't do albums for album sales. I just do it as a conversation piece and a business card.
+- I get mad if I'm not presented as an actual artist on tour. I don't want to be seen as just some DJ that plays between sets. I have a bigger brand than that.

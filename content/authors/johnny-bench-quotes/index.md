@@ -1,0 +1,28 @@
++++
+author = "Johnny Bench"
+title = "Johnny Bench Quotes"
+quotes_len = "22"
+description = "the best 22 Johnny Bench Quotes"
++++
+- They're like sleeping in a soft bed. Easy to get into and hard to get out of.
+- These guys were the best. They were the best at their positions and made playing the game easier. And at the same time it made it so much more enjoyable.
+- My biggest moment was winning the World Series because everyone in my town was able to feel he was a world champion.
+- I pulled cotton at 6 years old and worked on the peanut farm and paper route.
+- You have to be the one setting your own goals, trying to achieve those goals.
+- A catcher and his body are like the outlaw and his horse. He's got to ride that nag till it drops.
+- So, yeah, I can say I always set my expectations so high that I had a lot to live up to.
+- I spent every bit of my money to try and get a Mickey Mantle card, and I don't have one. Growing up in Oklahoma, Mickey Mantle was my idol. And here I am, and I'd go pick cotton to have enough money, and I'd buy all of these packs, and I'd chew all of the gum, and I'd never find a Mickey Mantle card.
+- I've seldom seen a horny player walk into a bar and not let out exactly what he did for a living.
+- I played American Legion ball starting when I was 14. But I didn't catch until I was 17. I was 75-3 as a high school pitcher, but it was like everybody knew that I was supposed to be a catcher. When the scouts would come around, and I was pitching, they'd make me take infield practice so the scouts could watch me throw.
+- There are three types of pitchers you have to deal with. Some, you just have to tell what town they're in, remind them where they are. Some, you remind them about mechanics, and some, you have to bust their tail. You have to make them your friend and have them trust you.
+- The catcher is in the middle of everything. He sees it best.
+- Well, you know, Pudge Rodriguez, obviously is as good as it gets.
+- Joe Morgan was the one guy that absolutely put our team really over the top. ... Then we had George Foster come in; Ken Griffey Sr. was as good a two-place hitter as there has ever been in the game, and Cesar Geronimo won four Gold Glove awards. I mean, how could you ask for a better team?
+- I can throw out any man alive.
+- You know, when you can play with the greatest players of that particular era, you look forward to going to the ballpark. I mean, you thought it was great to be there in the clubhouse. You thought it was great to be on the field.
+- Slumps are like a soft bed. They're easy to get into and hard to get out of.
+- That's the remarkable thing about baseball. The game has a way of having you scratch your head one minute and drive you crazy, and then the next, you're entertained beyond your wildest hopes. That's why it's the best game.
+- I don't think you can set up a computer to do a strike zone on a guy who's 6-foot-5 and then a guy who's 5-8. Where does it draw the line? One guy stands tall, and another squats down, and it changes the lines. Nah. I still love the umpires; they do a great job. I don't have a problem with any of that.
+- My dad owned a propane company in Oklahoma.
+- The most validating thing was when my picture was on my first bubble gum card. That was in '68 for me. I was finally on the Topps card.
+- It was not me failing that I was scared of. It was failing those people back home who believe in you. They only delivered the newspaper once a week where I lived in Oklahoma, and those people lived and died with the box score of my games.

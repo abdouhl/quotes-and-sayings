@@ -1,0 +1,81 @@
++++
+author = "Jonathan Miles"
+title = "Jonathan Miles Quotes"
+quotes_len = "75"
+description = "the best 75 Jonathan Miles Quotes"
++++
+- In the South, dove hunts do not draw quietly to a close. Sometimes, at the simplest end, a grill and cooler are hauled to the edge of the field, and the doves' breasts are grilled - usually swaddled in bacon, maybe with a jalapeno tucked inside - as the hunters tell and retell tales of the day's shooting.
+- Novelists lie for a living - what is a novel, after all, but an assembly of fibs paradoxically meant to illustrate something true? - but generally see a distinction between lying on the page and lying off it.
+- Grilling grapes may sound crazy, but the smoky, blistered char they get from a few minutes on the fire gives them a deep, winelike character.
+- Driving a race car isn't too far a cry from driving any other sports car, but driving one through Africa in the middle of the night offers a wide scree of new sensations.
+- After a solid day of fishing, I'm craving something hearty. That's where a jug of buttermilk comes in. Poaching fish in buttermilk yields the luscious texture and pure flavor, but with a more substantial richness and a poaching liquid you'll want to lap up with a spoon.
+- Poyha is a venison dish handed down from the Cherokee tribe. You can think of it as a meatloaf, which it is, or as a skillet of cornbread that some venison sneaked into, which it also is. Either way, it's a simple and satisfying meal.
+- For me, there's something likable but not quite lovable about poached fish: the ultraclean flavor, the melt-away texture, the no-fat virtuousness.
+- For whatever reason, I encounter Canadian whiskey at hunting camps way more often than I do in restaurants, bars, or homes. Could be the lower price. Could be the mellow character, which lends itself to long hours of fireside sipping. Or it could just be tradition.
+- Anyone who's ever read the lyrics of an already cherished song has most likely encountered that hollow sensation of something missing, the absence of certain emotional integers. It can be like viewing a loved one's X-rays.
+- For me, alcohol has this endless fascination that there's this substance that can enhance life so beautifully and destroy it so completely.
+- So much magazine writing is playing to an empty room. You work like a plow horse, your words get printed on a half-million or more copies, and then it often just disappears into this national vacuum.
+- A hot, deep bowl of venison chili is as close to manna from Heaven as you're likely to find in deer camp.
+- A combination of stir-fry and salad, Lok Lak is a popular staple in Cambodia. It's usually made with beef, but in olden times, in the country's mountainous areas, venison would've gone sizzling into the wok.
+- Vitello tonnato is a classic dish from Italy's Piedmont region that, frankly, sounds patently insane: veal slices dressed in a creamy sauce made from canned tuna and capers. The brain may say no, but the mouth disagrees.
+- David Benioff can hardly be classified as an underdog. The 2002 film adaptation of his first novel, 'The 25th Hour,' was directed by Spike Lee and starred Edward Norton.
+- Loading a hollowed-out loaf of bread with steak, mushrooms, shallots, and a fat dose of horseradish yields a kind of portable beef Wellington - the pinnacle of British cuisine reinvented as a trail snack.
+- A banal poem is never more than a banal poem. A banal or trite lyric, however, can be - with the right vocal cords - brilliantly and shatteringly conveyed.
+- More often than not, punches underwhelm - too fizzy, too fruity, too sherbet-y, and/or too baroque, the flavors all muddled into the boozy equivalent of the water left over from cleaning watercolor brushes.
+- The mint julep may be sacred in the South, but so is college football, and that doesn't stop us from enjoying it.
+- My childhood was basically divided between fishing and roaming the woods and hiding out in my bedroom. Maybe things would've turned out differently if I'd had a TV in there; who knows.
+- You pray for days when the crappie fishing is so relentlessly good that you're giggling like a kid and the only things you're lacking in life are another stringer and an extra hour on the water. But what do you do with that pile of freshly caught crappies spilling out of your cooler? Call your pals for a mega-fry.
+- If you're trout fishing in the lochs of Scotland, your catch may end up like this: batter-crusted with that ubiquitous Scottish staple, oats; and served beside a generous mound of stovies, Scottish slang for stove-roasted potatoes.
+- It drives me crazy to throw something out. I find planned obsolescence revolting.
+- Great sauces are like an insurance policy for venison roasts, which can easily overcook or dry out. Beyond their ability to rescue, however, is the power to elevate.
+- Think schnitzel, and you usually think veal or pork: pounded into tenderness, battered, and fried to a golden magnificence.
+- The perfect way for an angler who loves to cook to show off his fish is serving it whole, fresh off the grill, with crispy skin and moist flesh. Problem is, that's not usually how it happens.
+- I guess I'm old-fashioned.
+- A mourning dove's beauty is an understated one: the colors of its feathers ranging through various shades of gray and drab violet, often with a striking splash of turquoise around the eyes.
+- Young men feel they have much to prove; older men, as a very general rule, tend to feel more comfortable in their skins.
+- The booming popularity of alligator hunting, sparked by reality shows like the History Channel's 'Swamp People,' is easy to understand: It's an exotic blast of adrenaline. But there's a culinary upside as well, with gator boasting a delicate light-pink meat that, to me, falls somewhere between veal and wild turkey.
+- You can't rent a car in Bermuda; about twenty miles long and two miles wide at its fattest, it deems itself too small for surplus traffic.
+- The James Brown we saw tended to be the James Brown we chose to see: as the caped crusader of funk and soul, adored by millions, or as the face in a seemingly endless series of mug shots. The ways in which he appealed to and appalled different audiences made Brown a kind of national Rorschach test.
+- Not long ago, in an excruciatingly remote village in the Australian Outback, I was startled to see a bartender in a cowboy hat measuring out a classically proportioned French 75 - something he'd picked up on the Internet, he told me.
+- For centuries, pates have been one of the greatest vehicles for wild game. But making a pate, which is nothing more than a meatloaf, has tended to be a laborious task, with ingredient lists as long as a shotgun barrel.
+- Few things grace a plate as dramatically as a whole plucked upland bird, however it's cooked.
+- Anyone with a fondness for intricately flavored, carefully measured cocktails and entertaining at home knows how poorly the two mix.
+- Roasting fish that's encased inside a salt crust is a centuries-old method of ensuring moist, ultra-flavorful flesh.
+- The best largemouth bass fishing I've ever encountered was at Lake Huites, a vast impoundment on the outskirts of the Sierra Madre Occidentals in Sinaloa, Mexico.
+- Most of the time, comparing printed song lyrics with poems is like comparing recipes with food: that's to say, patently unfair.
+- A salmi is an oldfangled, richly flavored game stew - often served, like chipped beef, over toast - that was a delicacy popular in the 1890s.
+- Ask any deer camp old-timer for a foolproof recipe, and you're likely to encounter a lot of Campbell's Cream of Mushroom Soup. There is a reason for that: Mushrooms plus cream plus game meat adds up to a perfect trinity of flavors.
+- Trout plus bacon is one of civilization's greatest formulas; it always equals pleasure.
+- I first encountered fish jerky during a marlin tournament in Kona, Hawaii. It was steeped in the island flavors of ginger, soy, and pineapple.
+- Aside from the martini, the mint julep may be the most iconic cocktail in America.
+- Of course, there's nothing wrong with deer burgers and venison chili, but with a little gusto, those stalwarts can go from satisfying to sublime.
+- Without strenuous preplanning, road food is almost always bad food, sad food, chain food, clown food.
+- Except for a very few elite pro racers up front, the Dakar Rally is not, at heart, a contest among the competitors; the battle, instead, is between mankind - more precisely, Western mankind, with all its fire-breathing machinery and inexorable arrogance - and Africa, which has been proving itself untamable for centuries now.
+- With the notable exceptions of rum drinks, black beans, fat brown cigars, the smiles of pretty girls, hot yellow sunlight, and fat men with guitars and bongos playing mambos, rumbas, and boleros late into the night, nothing in Cuba comes easily.
+- Technically, fish can last up to half a year in a freezer, but their quality starts to slide after the first month.
+- It's often said that doves provide valuable practice for duck season, but this strikes me as upside down. With their tiny profiles, wicked speed, and fighter-plane acrobatics, doves are more difficult to take down.
+- Havana is one of the great cities of the world, sublimely tawdry yet stubbornly graceful, like tarnished chrome - a city, as a young Winston Churchill once wrote, where 'anything might happen.'
+- The South's cuisine is often likened to gumbo - a thick and bubbling melange, spiked with a little bit of this, a little bit of that - yet the metaphor, like the dish, comes from West Africa.
+- Though we tend to reach for the bacon or sausage, fish and eggs are a classic breakfast combination in many places around the world, and for good reason: They're great together.
+- The enemy of successful long-term freezing is air. When air meets food, dehydration occurs, leading to freezer burn. With delicate proteins like fish, freezer burn can be downright fatal, ruining both texture and flavor.
+- Paddleboarding is what happens when you want to kayak on a surfboard or surf a kayak: You stand atop a board paddling yourself around. It's a leisurely good time.
+- A Negroni demands your full, upright attention. It will not tolerate mindless swigging the way all those sweet summertime drinks do, which is just one reason no one has ever ordered one at a swim-up bar at a resort pool.
+- I find airports to be purgatorial in many ways. I mean, even from the basics of the design: you know, this sort of - this muted gray and the fluorescent lights.
+- Bermuda's beaches are justly famed for their pink sands, colored by the pulverized shells of single-celled organisms called foraminifera. When occupied by bikini-clad sunbathers, the beaches, with Victorian primness, appear to be blushing.
+- The spectacle of a good bar fight, properly executed and healthily ended, is not merely annoying boorishness. The best of them - an admittedly minor slice - are shaded with the elements of high art.
+- The angle we give the bathroom mirror is always meant to flatter.
+- I'm either proud or embarrassed to say that I never took a journalism class in my life.
+- An early remedy for malaria called for tossing the sufferer, Br'er Rabbit-style, into a prickly bush; in his hasty retreat, went the thinking, he might leave the fever behind. Orally-administered cobwebs were also deemed effective.
+- Bullies are bullies, and they're always uninteresting.
+- I once stumped Jimmy Buffett by calling him a saint.
+- For most of the competitors, winning the Dakar has little to do with the standings on the final day and everything to do with making it to the final day.
+- Dry rubs are as integral to downhome barbeque as smoke.
+- Poems, unlike songs, are written to be read and, thus, come equipped with their own rhythms and melodies; they're self-contained entities, the whole shebang.
+- There is a mammalian side to all of us; on occasion, it rears its head, snarls, makes a mess, acts the fool, howls at the moon, gives or gets a black eye.
+- Though little known in the U.S., the Dakar is a sports juggernaut in Europe, where France's state broadcasting company runs more than 25 hours of coverage, and the leading drivers and riders are accorded the same status we give to Super Bowl quarterbacks.
+- Most of us seem to be buried under our own possessions, and it seems to be getting worse.
+- Wild geese have so much less fat than their domestic brethren that, as far as the kitchen is concerned, the two birds should be considered different species altogether - so much so that they require opposite roasting methods.
+- If everything is disposable or recyclable, how does that make us feel about ourselves and each other?
+- The greatest meal of my life involved a Triscuit.
+- The rich flavors of duck meat have always attracted sweet, fruit-based sauces.
+- I was born in Cleveland, Ohio; raised primarily in Phoenix, Arizona; and, after running away from home in my teens to play music and bouncing around a bit, settled in Oxford, Mississippi, which I consider more my home than anywhere else in the world.

@@ -1,0 +1,24 @@
++++
+author = "Jim Mckelvey"
+title = "Jim Mckelvey Quotes"
+quotes_len = "18"
+description = "the best 18 Jim Mckelvey Quotes"
++++
+- If you can't be persuasive to get people to believe your crazy idea, you can just go ahead and build it.
+- In December 1989, my mother died very suddenly, and that sparked a re-evaluation of what I was doing, and I realized I was mediocre at everything. I was a mediocre IBM employee, I was a mediocre entrepreneur, I was a mediocre artist. I decided that, although my mom wouldn't be around to see it, I wanted to be great at something.
+- When I was 19 years old, I wrote my first book. I took a computer science class, and the book was garbage. I thought I could write a better one, so I did.
+- When my son was born, I decided I wasn't really into working 12 hours a day. That slowed me down a little bit.
+- Glass really rewards risk. A lot of times with glass, you're just waiting for the piece to cool down or for some temperature to adjust, and there's split seconds where you've got a fraction of a second where you get to make a move a particular way, and you don't get to repeat it if you do it wrong.
+- At Square, we got our tech up and running in three weeks, but it took us 18 months to get licenses, banking relationships and everything else we needed to be able to move money. We had to partner up with major companies to do it.
+- Personally, I don't want to do a lot of angel deals in a year. I get approached a lot. I'm becoming less and less polite, which doesn't seem to be helping. A lot of the things I get pitched on are from people who just want to make money.
+- It's obvious that St. Louis has certain advantages compared to other cities: namely, a concentration of financial services.
+- St. Louis is a customer- and partner-rich environment for any financial tech startup.
+- I don't run any of my companies. I always partner with somebody who wants to operate.
+- I've been totally replaced by people who are superior. I was doing, like, 15 different things. It's very gratifying to watch your job done better.
+- We tend to believe that things are impossible that are very possible.
+- It's hard to shape glass. It took me years of practice, and as a result, I've never gotten bored with it. It's difficult. Every time I come into the studio, I've got some sort of new challenge. And something that I would like to learn how to do better, and the material never disappoints me.
+- Art is what can't be proven mathematically, right, it's where science ends. It's the part that makes you feel good, but you don't know why.
+- I'm not particularly good at running things when once they get to a certain level. Once it gets routine, get me out of the way.
+- I am absolutely confident that St. Louis can attract major players in technology and make the companies that are here blossom.
+- This entrepreneurial energy that we have in the Midwest doesn't have to go out to the coasts to get fed and watered.
+- Everyone needs someone to tell them not to wear so much Prada.

@@ -1,0 +1,49 @@
++++
+author = "Samuel Smiles"
+title = "Samuel Smiles Quotes"
+quotes_len = "43"
+description = "the best 43 Samuel Smiles Quotes"
++++
+- We learn wisdom from failure much more than from success. We often discover what will do, by finding out what will not do; and probably he who never made a mistake never made a discovery.
+- Life will always be to a large extent what we ourselves make it.
+- The reason why so little is done, is generally because so little is attempted.
+- Simple honesty of purpose in a man goes a long way in life, if founded on a just estimate of himself and a steady obedience to the rule he knows and feels to be right.
+- The shortest way to do many things is to do only one thing at once.
+- Progress, of the best kind, is comparatively slow. Great results cannot be achieved at once; and we must be satisfied to advance in life as we walk, step by step.
+- Hope is like the sun, which, as we journey toward it, casts the shadow of our burden behind us.
+- Labor is still, and ever will be, the inevitable price set upon everything which is valuable.
+- A place for everything, and everything in its place.
+- Man cannot aspire if he looked down; if he rise, he must look up.
+- Character is property. It is the noblest of possessions.
+- It is a mistake to suppose that men succeed through success; they much oftener succeed through failures. Precept, study, advice, and example could never have taught them so well as failure has done.
+- Length of years is no proper test of length of life. A man's life is to be measured by what he does in it and what he feels in it.
+- Men must necessarily be the active agents of their own well-being and well-doing they themselves must in the very nature of things be their own best helpers.
+- The work of many of the greatest men, inspired by duty, has been done amidst suffering and trial and difficulty. They have struggled against the tide, and reached the shore exhausted.
+- Idleness of the mind is much worse than that of the body: wit, without employment, is a disease - the rust of the soul, a plague, a hell itself.
+- The wise man... if he would live at peace with others, he will bear and forbear.
+- Lost wealth may be replaced by industry, lost knowledge by study, lost health by temperance or medicine, but lost time is gone forever.
+- It is energy - the central element of which is will - that produces the miracle that is enthusiasm in all ages. Everywhere it is what is called force of character and the sustaining power of all great action.
+- The best-regulated home is always that in which the discipline is the most perfect, and yet where it is the least felt. Moral discipline acts with the force of a law of nature.
+- We often discover what will do, by finding out what will not do; and probably he who never made a mistake never made a discovery.
+- Work is one of the best educators of practical character.
+- Good actions give strength to ourselves and inspire good actions in others.
+- Progress however, of the best kind, is comparatively slow. Great results cannot be achieved at once; and we must be satisfied to advance in life as we walk, step by step.
+- The spirit of self-help is the root of all genuine growth in the individual.
+- An intense anticipation itself transforms possibility into reality; our desires being often but precursors of the things which we are capable of performing.
+- Enthusiasm... the sustaining power of all great action.
+- He who labours not, cannot enjoy the reward of labour.
+- Labour may be a burden and a chastisement, but it is also an honour and a glory. Without it, nothing can be accomplished.
+- Knowledge conquered by labor becomes a possession - a property entirely our own.
+- The battle of life is, in most cases, fought uphill; and to win it without a struggle were perhaps to win it without honor. If there were no difficulties there would be no success; if there were nothing to struggle for, there would be nothing to be achieved.
+- I'm as happy a man as any in the world, for the whole world seems to smile upon me!
+- Practical wisdom is only to be learned in the school of experience. Precepts and instruction are useful so far as they go, but, without the discipline of real life, they remain of the nature of theory only.
+- Wisdom and understanding can only become the possession of individual men by travelling the old road of observation, attention, perseverance, and industry.
+- Admiration of great men, living or dead, naturally evokes imitation of them in a greater or less degree.
+- The duty of helping one's self in the highest sense involves the helping of one's neighbors.
+- It is idleness that is the curse of man - not labour. Idleness eats the heart out of men as of nations, and consumes them as rust does iron.
+- Men who are resolved to find a way for themselves will always find opportunities enough; and if they do not find them, they will make them.
+- The very greatest things - great thoughts, discoveries, inventions - have usually been nurtured in hardship, often pondered over in sorrow, and at length established with difficulty.
+- He who never made a mistake, never made a discovery.
+- The apprenticeship of difficulty is one which the greatest of men have had to serve.
+- Hope... is the companion of power, and the mother of success; for who so hopes has within him the gift of miracles.
+- The experience gathered from books, though often valuable, is but the nature of learning; whereas the experience gained from actual life is one of the nature of wisdom.

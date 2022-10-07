@@ -1,0 +1,50 @@
++++
+author = "Sam Neill"
+title = "Sam Neill Quotes"
+quotes_len = "44"
+description = "the best 44 Sam Neill Quotes"
++++
+- I was - I was very - I wasn't outgoing at all as a child.
+- I feel very privileged working with other actors. Actors tend to be the best company I know.
+- If you're making films in New Zealand, you can't avoid the landscape. It's certainly more handsome than I am.
+- If you want to learn about America, watch 'The Wire.' It's a profound piece of entertainment.
+- When I left university I was working for a documentary film company for six or seven years to the great relief of my father whose greatest waking fear was that I would become an actor.
+- I don't think I ever felt an outsider when I had a stutter.
+- I'm serviceable. I'm durable. I get the job done.
+- I like Taika Waititi a lot. I thought 'Boy' was a really wonderful film, had great resonance. Very sad but also very funny. I thought 'What We Do in the Shadows,' the vampire film, was fantastic.
+- It makes the day considerably more enjoyable when you're working with people you think are good, and it makes your job easier, too.
+- It was just as well I found acting because I had no aptitude for anything else.
+- I certainly don't want to die playing a round of golf. And I don't want to die like Elvis. That's all they remember about him - the most beautiful man on the planet.
+- If it looks like fun, and it looks like quality, then I'll do it. I don't feel compelled to work - or not to work.
+- I'm not big on Champagne, but I'd take along a bottle of Cristal to pop for when the boat comes to the rescue.
+- People turn into fools when they see a movie star and do weird things.
+- I go by the role pretty much. And I think the only genre I haven't gotten to do but I'd love to is a western, but no one has ever asked me to do that. Unfortunately they are very few and far between these days, but that is one type of film I'd love to do.
+- I'm not sure it's affection for Australian or New Zealand films or not. I think it's just that there's something about 'Wilderpeople' that has really struck a chord.
+- I hate to say it, but there seems to have been some sort of dumbing down as far as movies go.
+- No intelligent man wears a moustache voluntarily - you can write that down.
+- I met the most extraordinary people all over the Pacific, but especially the people in Vanuatu who, in a material sense, are the poorest people I've ever come across. They own nothing, but in a well-being sense, they are easily the wealthiest people that I've come across.
+- I can tell you where I was when Kennedy was shot - which was in the common room at school. I heard about it on the old valve radio. At the time of Armstrong's landing, I was at university rehearsing a play.
+- 'Dexter' I'm very fond of. I got addicted to that.
+- Do you know, I'm not as much of a moviegoer as I should be, and I do end up - because I'm travelling so much - I end up seeing movies on aeroplanes, which is the worst possible way to see a movie!
+- I don't have a chateau in France. There's no private airplane or yacht.
+- We always have to remind ourselves of how fragile life on this planet is and what responsibilities we have.
+- I'm conscious that there's only a limited amount that I'll get done before I get shuffled into retirement, but I certainly have no desire to retire.
+- I think you need brains to do any Shakespeare with any authority. I could do Shakespeare, but not with any authority.
+- I understand acting and I understand actors. I don't really understand the world of celebrity. That's just bizarre. Those sorts of elements I'm at sea with.
+- I always want to be as good in the part as I possibly can. But I make no pretensions of being the greatest actor in the world.
+- It doesn't matter how popular an actor you are: nobody will remember you forever.
+- I think so much of your energy when you're growing up is about becoming independent of your parents. And the older you get, the more you realise you're actually so much part and parcel of the same kind of material.
+- I get very antsy and nervous if I don't know what the next job is.
+- I was christened 'Nigel.' It set me back for years.
+- I have taken a bit, when I find the time, to the odd television binge. Because television has improved so much, it's worth binging.
+- It took me 30 years, but I finally bought myself the Patek Philippe watch I'd always wanted. It's ridiculous how much I love it.
+- I can never really remember what I look like. I'm just sort of neutral. I don't think I'm sort of, you know, hideous.
+- Whilst filming 'Jurassic Park,' I watched a hurricane approaching the beach in Hawaii. My co-worker Laura Dern and I thought we might die, but we managed to laugh about it later.
+- I think I'm pretty benign, really, mostly.
+- I've worked all my life to shed myself of any character.
+- Try and fit in in a New Zealand playground with an Armagh accent - it doesn't work.
+- If you're making a horror film, it's very important that you have lots of quiet, suspensey, don't-know-what's-happening stuff before you get the big fright.
+- I enjoy some physical stuff. But if I had a choice between playing a scene where it's raining, it's terribly cold, I'm wet and I'm being drowned and playing a scene with dinosaur eggs in a laboratory, I'd probably take the latter. It's warmer and generally more comfortable!
+- When I started in films, it never really occurred to me that I could make a career out of acting.
+- Every actor wants more offers, but I get enough and I do like to be busy.
+- As much as possible, I try to encourage people to use stunt men because that is really their job.

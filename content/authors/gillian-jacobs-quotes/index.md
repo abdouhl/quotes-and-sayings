@@ -1,0 +1,142 @@
++++
+author = "Gillian Jacobs"
+title = "Gillian Jacobs Quotes"
+quotes_len = "136"
+description = "the best 136 Gillian Jacobs Quotes"
++++
+- I'm not really a rapper!
+- I think that there are a lot of really beautiful Christmas carols, and then sometimes there are horrible renditions of them that are played to death in malls that make me sad. I try to avoid stores where they're playing bad versions of Christmas songs on repeat.
+- I had my life Monday through Friday in school, and then I had my 'real life,' which was my acting class on Saturday.
+- As you can tell by my IMDB page, I like to work.
+- Inspiration strikes at very funny times.
+- Hey, I'm nothing but honest!
+- Things are never simple when it comes to the human heart.
+- I've always thought - and I don't even know if I'd be right for the part - that Jean Seberg would make a great biopic. She was in Jean-Luc Godard's 'Breathless,' she played Joan of Arc. She had this eventful and traumatic adulthood, she thought the FBI was after her, and she became a darling of the French New Wave.
+- I love discovering new young brands and watching these fashion lines take off, like Peter Pilotto, Christopher Kane, and Clover Canyon.
+- We're all alone in this world.
+- I think you just have to take everything that happens on a TV show with a grain of salt. You sign up for a show for six years having zero idea where they're going to go with the character, so you just have to get on the ride of the show and go with wherever they take you.
+- I would love it if 'Community' could have a trajectory like '30 Rock' and choose when to go out.
+- As opposed to trying to make a kiss look romantic or sweet or passionate, it's kind of fun to just have the freedom to make it look weird, goofy and awkward.
+- I say the word N-U-C-L-E-R the same way that George W. Bush says it.
+- Ken Jeong might be my biggest fan.
+- It's funny shooting movies because you get to see clubs during daylight hours, which no one should ever see - it's not pretty; there's a reason the lighting is dim in there.
+- There is a great degree of comfort with your family when you're on a TV show.
+- A lot of people watch 'Community,' but DVR viewings only count if you watch within a certain time.
+- I am short, so even if there are things that I like, or like on other people, I have to be aware that sometimes that won't work on me because I'm not 5'10. It has to have a shape for my body; otherwise, I look like I am two inches tall. I have to wear things that skim my body more closely than a runway model would.
+- Even something as stupid as Vine videos makes you feel like you're making things on your own.
+- I think if I was in over 250 films, the world would get pretty sick of me. I would probably never get put in anything ever again.
+- Thinking back about throwing myself at certain gentlemen that had no interest in me, that'll bring a blush to my face if I think about it too often.
+- NBC gives comedies a chance to find their legs.
+- Actors are all narcissists.
+- I don't think I've ever been mistaken for anyone.
+- You know it's a good show when you involve fire and dolls and unitards.
+- Dan Harmon has this idea that characters on TV are allowed to talk about their favorite movies and TV shows and songs.
+- My mom wouldn't let me buy clothes she didn't like, so I dressed like a middle-aged woman in high school.
+- When you're shooting at 9 A.M. at a club, you have to use all of your acting skills.
+- I'm really excited that 'The Other Woman' did so well at the box office, and I hope that will keep encouraging people to make movies about women, starring women, about female friendships. More. Please.
+- What I think is a really special movie is 'Black and White' with Kevin Costner and Octavia Spencer, which Mike Binder directed. I got to see a screening of it, and I think Kevin and Octavia and Anthony Mackie and Bill Burr all give such beautiful performances in that movie.
+- I have a hard time watching people getting punched on screen; I have to close my eyes a lot.
+- You're always looking to have a unique experience as an actor, and definitely, being punched by a puppet ranks as a singular experience in my career.
+- In sixth grade, we all had to write this opinion paper. Most wrote about things like why we should be able to chew gum in class - I wrote about why women should receive equal pay.
+- When I was younger, I was very vocal to the point of being strident in my views.
+- I haven't ever seen 'Lost'... I'm sorry.
+- No one in my school liked me.
+- Craig Robinson is basically the mayor of wherever he goes.
+- You have to have an awareness of where you're going, what the event is, what you're promoting, and who the audience is. That always informs the way you dress.
+- I never pursued anything but acting. But as a kid, I was really interested in the Supreme Court. I wanted to to be a Supreme Court justice, but didn't want to be a lawyer. I just wanted to go straight to being a justice.
+- I'm a pretty goofy person. I'm an awkward dancer, for instance, and a terrible singer.
+- I'm a Bravoholic, and I love 'RuPaul's Drag Race.'
+- I used to babysit. And the kids I babysat were huge Hilary Duff fans, and so we used to have dance parties every day to her music. So I am very familiar with the albums of Miss Hilary Duff.
+- I think I signed some contract, early on in my career, that I will only kiss Steve Carell when I do a movie.
+- When you can impress your mom by saying you've been to someone's concert, you know you're pretty lame.
+- I've had weird, weird acting jobs. Low-budget filmmaking where you find yourself in really bizarre places.
+- I haven't done improv since I was in middle school.
+- 'Fresh Air' I listen to, like, every day.
+- Nobody knows what the future is except for wizards.
+- I have a lot of good stories for talk shows about the conditions in which I worked.
+- 'The New Yorker's fiction podcast I like a lot, where they have authors pick short stories by other authors that appeared in 'The New Yorker.'
+- I had some years of definite frustration. Auditioning and not working as much as I would have liked to, or working and being paid a pittance, and sort of scrounging by in New York and sleeping on a chair that folded out into a bed.
+- I know other actors who are relieved when their shows get cancelled, and I've never felt that way about 'Community.'
+- In Los Angeles, sometimes it's hard to find a magazine stand, let alone one that has the magazine that you want. So I find that the longer I live in L.A., the more digitally I consume.
+- We're all slight hypocrites who fall short of our ideals.
+- I feel like the Internet has embraced the pizza dance. I feel appreciated for once in my life.
+- I used to live in New York, and I have friends that work in the fashion world, and I feel like I had an ear to the ground there.
+- I think when you have some success as a kid, your notion of being a good actor is pleasing the director, doing exactly what they tell you to do.
+- There were definitely bands and musicians I liked that drove my mother insane. I probably liked them all the more for it! Bjork drove my mom nuts. What I listened to was actually pretty mom-friendly for the most part. I wasn't very rebellious.
+- My mom wouldn't know Tom Cruise if he punched her in the face.
+- I really like the concept of, like, slowing down and savoring your food, enjoying it.
+- My poor, problematic feet don't let me wear anything much over a three- or four-inch heel.
+- I went to college and got my degree in acting, but because it was all theater, I really consider my first couple years on 'Mad Men' as amazing training for working in television and for acting on-camera.
+- I've definitely run from the cops in the New York City subways.
+- I'm a terrible cook.
+- I'm a very law-abiding citizen, and I've never consciously broken any law. I get nervous just jaywalking in Los Angeles!
+- I've gotten super into restaurants in L.A., so I try to go to different restaurants all the time... that's a good way to explore L.A.: you can drive to a restaurant and discover a new neighborhood.
+- I think there's a sort of satisfaction in defying people's expectations.
+- I'd say I've gone to grad school for comedy being on 'Community.'
+- 'Dancing on My Own' is actually a really sad song! It has totally made me cry.
+- They didn't really encourage my goofy, comedic side at Juilliard.
+- It's really nice when life comes full circle and you get to work with people four years down the line.
+- No actor wants to choose - they just want all of the options available to them all the time; we tend to be pretty greedy.
+- You've got to get as literal as you can get to convince people sometimes that you can do something.
+- I've always wanted to work with Elizabeth Banks. She's so talented and funny, and she's become this force of nature - directing, producing. Being around her is kind of inspiring.
+- I've been getting into drinking smoothies in the morning - I like those a lot.
+- I love Opening Ceremony, Kenzo - anything Humberto Leon and Carol Lim touch. I drool over Christopher Kane, Mary Katrantzou, Delpozo, and Wes Gordon.
+- Sometimes movies that I'm in that I have a leading role don't necessarily get the biggest release, so it's a difficult thing between balancing indies that have uncertain futures and maybe larger films that have guaranteed releases that you have a smaller part in.
+- I feel like I go through cycles as an actress.
+- I had kissed a girl in the second season of 'Community,' but that was my first time kissing a girl ever, and I was so nervous, I almost knocked Brit Marling's teeth out.
+- You can convey a lot of emotion with just some eyebrows and mouth movement.
+- I think, you know, when you're an actor who's had periods of unemployment, it makes you feel really good to have a job - to say that you're expected somewhere, do you know what I mean?
+- For me, I really love 'Tim and Eric' and 'Dr. Steve Brule' and a lot of the Adult Swim shows, so I like strange, weird, sometimes slightly upsetting humor.
+- In my sort of young, idealistic mind, I was just like, 'Well, it's either theater or film for me, and that will be that!'
+- I used to like to make myself sad, so I would listen to Bill Callahan as Smog.
+- A movie that I've seen probably the most is 'Fanny & Alexander,' the Ingmar Bergman movie. I even dragged my friends to the super long version that had an intermission. I don't know how much they liked me that day.
+- I am wrestling with the overalls trend. I wore so many pairs in junior high, and no one thought they were cute. Perhaps I'll try them cuffed with a tasteful crop top?
+- A friend of mine wrote a script, a feminist romantic comedy. She had a feminist scholar consult on it. My friend said, 'Oh, my friend Gillian read it and really loved it.' She goes, 'Gillian Jacobs, you mean: Britta Perry, feminist icon?'
+- I've thought a lot about how if something horrible happened, and if it were like 'The Road' situation, I've decided I don't want to survive past the death of society as we know it.
+- It really does mean so much when your cast mates, who you respect so much, tell you that you made them laugh.
+- The more attention you give to your negative feelings, the more they grow, so I think things just start to blow totally out of proportion.
+- Boy, you know, it's amazing how your brain can turn into a sieve, and you can literally forget episodes that you have shot.
+- I like the 'Moth' podcast a lot. I listen to that.
+- I'd never really done comedy before 'Community,' so getting to work day in and day out with all these great people, directors, writers, and actors, I feel like I've learned a lot.
+- I did live in New York. Yeah, I moved to L.A. for 'Community.' And I gave up my apartment in New York.
+- I think maybe my mom thought that Katharine Hepburn would be a good role model of, like, a strong, smart, independent woman. Maybe she steered me in that direction. You know, because she was really so ahead of her time.
+- There are these important things in some people's lives that can make you laugh even when you're going through a tough time or a stressful week.
+- I am trying to break free from my stripes addiction, but the pull is strong! I need help buying non-stripes.
+- I always want to do something I haven't done before and get to work with other actors, writers, or directors that I want to work with.
+- You can only do so many serious dramas in a row before you want to break. You want a change.
+- I very rarely listen to music in my car - a lot of people make fun of me for it. But sometimes I listen to music on YouTube. I'm like a teenager.
+- Like, I'm hyper-conscious about going to bed on time, and doing my seven-step skin care routine at night.
+- I keep reminding myself, through all the ups and downs of 'Community,' that I might never have another job that really means something to people the way 'Community' means something to people. That's more powerful than ratings.
+- I like passionate fandom.
+- I think 'Glee' was a freshman comedy, and I think whenever it's your debut season, you get compared a lot to the other shows, regardless if there's any sort of overlap in content or tone or anything, just because you came out in the same year.
+- As you become an adult and start to make your way in life, you realize how much your friends are your family - though you get to make fun of your friends, too.
+- I don't like yelling insults at someone who's never done anything to me.
+- My inners are not organs. They're actually mechanics, so I have a hole in my back, wind me up like the movie 'Hugo,' and then just say, 'Act,' you know?
+- I can't tell you the number of people that are like, 'Has anyone ever told you you look like a blonde Liv Tyler?' And at this point, I'm like, 'Yes... yes, I've been told that.' I mean, she's beautiful. It's not like I'm not totally flattered by it, but then again, I think I look like myself.
+- I wasn't necessarily looking to do comedy on TV, but I don't think it's an accident that I ended up on 'Community.'
+- I never thought I would be in a comedic role; my past is in drama.
+- My mom always said fighting with me as a kid was like going to court. I'm trying to realize that being right is not the most important thing.
+- 'The Comeback' is my favorite TV show of all-time because it's just brill. It's Lisa Kudrow's show about what it's like to be an actor on a TV show. She's so amazing on it.
+- I am not a big 'Hunger Games' fan.
+- On the set of 'Community,' we quote 'Community' to each other. We're a lost cause. We're like a bunch of little kids running around and yelling things.
+- I'm not conservative, but I am kind of clean living in my own life.
+- I want there to be tons and tons and tons and tons of movies starring women.
+- I troll Instagram, Style.com, Elle.com.
+- While I love film and want to continue to pursue it 100 percent, my home is TV.
+- I've had a very positive experience in L.A. in the comedy world and found everyone to be very nice and welcoming. It's been really fun.
+- A lot of my friends are guys, so I'm used to bro antics.
+- College is expensive; I always knew that, and I wanted to make money, partially to spend a little of it here and there, but primarily for a college savings fund.
+- We all wish there were more 'Bridesmaids' out there.
+- I feel like so often I'm just, like, running around and eating in the car, which is, like, not good, or eating as I'm walking down the street.
+- I'm spending way too much time test running my Vine videos. I'll go into a room and close the door and be in there for an hour workshopping a Vine video that I never even post. So that's probably a huge time suck.
+- I always had an easier time with adults. Somehow, I was always old! I still feel old.
+- Actors get bored.
+- My grandfather can barely even hear, and Chevy Chase makes a face, and he laughs.
+- A lot of people I went to college with felt like they wanted to pursue theater exclusively, so I don't think that I really was in competition with people that I went to school with.
+- Some girls say they don't feel comfortable in flats, they only feel comfortable in heels; I am not one of those girls.
+- Acting by yourself is pretty darn hard, especially having to do physical comedy.
+- I think we've probably all read a word that we've never heard pronounced out loud, and we try it out in a sentence and fall on our face.
+- Apparently, I have good feet for ballet.
+- I think when you're in a relationship, either you have something or your partner generally has something that you're having to deal with.
+- I am very up front about about my inability to pronounce things correctly.
+- I'm a worry-wart, I'd say.

@@ -1,0 +1,18 @@
++++
+author = "Jenny Agutter"
+title = "Jenny Agutter Quotes"
+quotes_len = "12"
+description = "the best 12 Jenny Agutter Quotes"
++++
+- I have grown up but that should be a positive thing. When you look at a photo album it's lovely to remember being so young but it's also good to know you grew up!
+- I have a huge respect for writers and realise that this is not an area that I find easy. I doubt that I would have the patience in front of a blank sheet of paper to become a writer.
+- So I'm not really quite sure what Landis' plans were to make another one. The American Werewolf in Paris was a completely separate story.
+- I hope I presented what I felt the woman seemed to be about, but I couldn't give any reason as to why she remained in the relationship other than that their relationship was very special.
+- Clearly any film company that makes a film is always going to talk about sequels particularly if they see something as being successful, which Werewolf was.
+- Fortunately, both television adaptations and the film I've been involved with are pieces of work that I'm proud of, so I'm very happy for people to focus on them.
+- I was really glad to meet Jane Clark because it did give me an insight. I couldn't imagine what kind of woman she was. I was hugely impressed by her energy, straightforward nature and enthusiasm for life.
+- I've done both theatre and film and the fact is if you start believing, if you start reading things and they're good reviews - you believe that and you're lost, and then you read bad reviews and you think that's true and you read that and you're lost.
+- But John Landis wrote a good relationship which is really what the film's about. A very straightforward young woman who's very sure of herself and she meets a young man who needs some taking care of.
+- The things that I've done that have totally been remembered, they've always started with the same kind of engine, they've always started with someone saying 'I have to make this film - I'm going to make this film whatever the odds'.
+- To make films is as boring as watching paint dry - you usually have to do little tiny bits here and there. You go off waiting for lighting, you come back - the energy dies. You hope you can find someone who can keep it going.
+- It's such a strange combination that I'd be unhappy to make anything like that without Landis directing.

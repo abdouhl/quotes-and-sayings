@@ -1,0 +1,23 @@
++++
+author = "George A. Smith"
+title = "George A. Smith Quotes"
+quotes_len = "17"
+description = "the best 17 George A. Smith Quotes"
++++
+- To us sin has not become any less of a mystery or a pain.
+- We must seek the loving-kindness of God in all the breadth and open-air of common life.
+- If we have a heart for the magnitudes of life, it will not seem vain to believe that God Himself should guard it.
+- Our enemies are our evil deeds and their memories, our pride, our selfishness, our malice, our passions, which by conscience or by habit pursue us with a relentlessness past the power of figure to express.
+- The whole mystery of temptation is to have sins suggested to us, and to be swept after them by a sudden enthusiasm, which sometimes feels as strong as the Spirit of God ever made in us the enthusiasm for virtue.
+- Let those who, still in their youth, have preserved their faith and fullness of hope, keep looking up.
+- Man does find in Nature deliverance from himself, oblivion of his past, with peace and purity!
+- The seasons come up undisturbed by crime and war.
+- Happiness, contentment, the health and growth of the soul, depend, as men have proved over and over again, upon some simple issue, some single turning of the soul.
+- Into every soul, however purged and fenced, evil appears to have as much freedom of entrance as God Himself.
+- Jesus Christ tells us that a man cannot be wrong if he argues towards God from what he finds best in himself.
+- The heart which finds life in material wealth is usually certain to go farther and seek for more in the satisfaction of base and sullen appetites.
+- There is no truth which the prophets press more steadily upon Israel than that all their national life lies in the sight and on the care of God.
+- Lives are changed by a moment's listening to conscience, by a single and quiet inclination of the mind.
+- Yet none use their words more recklessly than the strong, who have not been sobered by the rebuffs and uncertainties of life.
+- Power and position often make a man trifle with the truth.
+- God is stronger than their strength, more loving than their uttermost love, and in so far as they have loved and sacrificed themselves for others, they have obtained the infallible proof, that God too lives and loves and gives Himself away.

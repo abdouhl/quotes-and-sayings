@@ -1,0 +1,41 @@
++++
+author = "Mary Kom"
+title = "Mary Kom Quotes"
+quotes_len = "35"
+description = "the best 35 Mary Kom Quotes"
++++
+- My normal weight category is 48 kg. So for the 51 kg. category, I had to depend on lots of food and drinks before going in for the weigh-in. But that does not make my strength, my muscles. It's a little bit different. If there's a 48 kg. category, it's a perfect fit for me.
+- I never told my parents that I was doing boxing. They only came to know after I became state champion and my name and picture came in the newspaper.
+- When I started boxing, people laughed at me and said, 'What can women do in boxing?' I took it as a challenge. If men can do it, why can't women? And I became a world champion before my marriage.
+- In the 46-48 kg. category, I know every boxer, and I defeat them whenever I fight them.
+- Every medal I have won is a story of a difficult struggle.
+- Watching boxer Dingko Singh's performance at the Asian Games, Bangkok, where he won gold, was the defining moment. I was 15 and enjoyed sports more than anything else. Singh's performance changed my life and inspired me to follow boxing.
+- I have been juggling so many roles. I am a mother, too. I have three sons to take care of. I don't even know how I manage to pull it off sometimes.
+- Winning the 2012 bronze medal was magnificent, but I would love to win a gold medal in the 2020 Tokyo Olympics.
+- Like every other athlete, I always dreamt of playing at the Olympics, and it feels really good to see that dream materialize.
+- The incentive of a medal at the biggest sporting arena in the world is what drives me. Before I hang my gloves, I want to win the Olympic medal, and my performance at London will decide my future in the sport.
+- It's a punishment game... only two boxers get in the ring. So when we get in the ring and we're not angry, then you're not a real boxer.
+- You can't walk away from your responsibilities and commitments.
+- I learned my weaknesses at the Asian Games and other competitions where I lost. My guard was down.
+- At school, my favourite subject was social studies.
+- The truth is, the harder you fight, the sweeter are the rewards in the end.
+- I started athletics in 1999, throwing discus and shot put. I didn't tell my family when I started boxing.
+- I am blessed with a reasonable athletic talent and was an athlete in school.
+- In Manipur, mostly the top player's family background is very poor. I also come from a poor family, so we have to do more hard work to get money and a better life.
+- I had no support, no opportunity, no sponsors backing me for most of my career.
+- I miss my kids, and they miss me. It's very difficult, but I have to do it for my country and fulfill my dreams coming to the 2012 London Olympics.
+- I have a very fit body and have never faced any major injury problems. So yes, the secret to my success is my fit body.
+- I look like I'm Chinese or Thai or Japanese - very different.
+- Without boxing, I can't live. I love boxing.
+- Looking back now, I realise that belonging to the family of a labourer actually helped to prepare my body for boxing. There were many times when my family didn't have enough food or warm clothing to go around. All this made me physically, as well as emotionally, tough.
+- My dream is to produce thousand Mary Koms.
+- I took up boxing out of sheer interest and to help my parents financially.
+- I loved playing in the fields back home and racing with my fellow students on the way to school.
+- In a sportsperson's life, pressure is always there; you have to learn to deal with it.
+- I can easily get a gold in the 48 kg. category, but 51 kg., it's difficult because other boxers may have a height advantage.
+- I'm grateful to the state and central government for all their support for my academy.
+- A gold medal at the 2016 Rio Olympics is what I'm looking for. I have to pace my training in such a way that I'm at my best in Rio, and when I'm in form, no opponent can come in my way.
+- If I can achieve success, then anyone can.
+- Youngsters taking up boxing will get a lot of encouragement to do something for the country, seeing my laurels.
+- If you are good at something, and especially, if people who matter tell you that you are good enough, you must follow that sport.
+- The boys, they are laughing: 'Oh, you are boxing. Very funny.' But I always challenge when people are laughing - 'I'll show you one day.' After getting five times world champion, they are all quiet. And they respect me.

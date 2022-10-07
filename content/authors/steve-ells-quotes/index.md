@@ -1,0 +1,69 @@
++++
+author = "Steve Ells"
+title = "Steve Ells Quotes"
+quotes_len = "63"
+description = "the best 63 Steve Ells Quotes"
++++
+- One of the pivotal moments for me was realizing that our 'food with integrity' approach at Chipotle was satisfying my passion. That's about bringing the best quality, sustainably-raised ingredients to everyone: chicken without antibiotics; beef without hormones. These ingredients were only available in high-end restaurants, not mainstream places.
+- Think about the systems at McDonald's. It's a very mechanized world, where you take out a highly processed patty.
+- Chipotle is based on a very simple idea: We start with great ingredients, prepare them using classic cooking techniques, and serve them in a way that allows people to get exactly what they want.
+- Our economic model allows us to invest a disproportionate amount in our food costs. We have a very efficient system: customers go through a single line, the people who serve you are the ones who make the food, and our menu board is not cluttered.
+- The first Chipotle was intended to be my source of funding for a full-scale restaurant, a means to an end. But it turned out to be more successful than I ever imagined.
+- I remember feeling a little guilty every time I opened a Chipotle. I felt guilty because I wasn't following my true passion. But that eventually went away. And I realized that this is my calling.
+- I am deeply sorry that people got sick from eating at our restaurants. It's the worst thing that can happen.
+- Our investors are here for only one reason: great returns. They want to make money.
+- I remember looking to McDonald's, and, my God, they have 13,000 restaurants in the United States. Well, we have almost a couple thousand Chipotles. What if Pizzeria Locale is a few thousand, and Shod. All of a sudden, we're bigger than McDonald's in the U.S. I mean, that's not an unreasonable way to think about this.
+- I use a lot of citrus for seasoning. There's lemon or lime juice in just about everything, and that balances with salt very nicely. Things like toasted cumin seeds for the beans. The use of fresh herbs like oregano and cilantro.
+- The gimmicks that have driven the fast food sector for years - dollar menus, limited time offers, and merchandising partnerships - are not producing results like they used to, as consumers simply want better tasting, nutritious food and a more compelling experience, not gimmicks.
+- The economic model was formed by the constraints that I had: a small space, relatively inexpensive building materials, relatively inexpensive investment, a very efficient service line or assembly line.
+- My undergraduate degree was in art history! Raising money for Chipotle was really my MBA. The money for my first restaurant came from my dad, the second from mostly cash flow. The third was an SBA loan. After my dad invested $1.5 million to open a few more, he suggested I raise the money myself for the experience.
+- When I graduated from cooking school, I went to work at Stars, which was one of my favorite restaurants in the country at the time, and that's where I really learned to cook and to taste food in a discerning way.
+- To eat chicken that was raised with antibiotics is safe, right? But long-term, relying on antibiotics as part of our livestock production is probably not the right thing to do. To not serve chicken means that there's not an economic engine that's making it possible to build up a supply of antibiotic-free meat.
+- I am incredibly proud of Chipotle and our people - and grateful to our loyal customers - and while we are continuing to make progress, it is clear that we need to move faster to make improvements.
+- We keep the menu of burritos, tacos, and salads simple so we can make it using high quality fresh ingredients that are actually prepared and cooked on site rather than re-heated.
+- I was always interested in cooking; it was always a hobby of mine.
+- People were asking me all kinds of questions about the business, and I was initially put off. I was like, 'Just invest if you want to invest. Don't bother me.'
+- I started Chipotle with the idea to create an experience that's fast - and not fast food.
+- It is impossible to insure that there is a zero percent chance of any kind of foodborne illness anytime anyone eats anywhere.
+- The idea for Chipotle is a sort of combination of food borrowed from Stars and sort of a technique and a service format borrowed from the taquerias.
+- After operating in three diverse markets, we have determined ShopHouse hasn't demonstrated an attractive unit economic model.
+- We have a terrific team, and our managers are terrific managers, but we have made it too complicated for them and too complicated in a way that they just can't do an excellent job in many cases when it comes to the customer experience.
+- Chipotle is really showing that there's a better way to do fast food.
+- The traditional fast food model is built on buying the cheapest ingredients - and that usually means poor-quality, heavily processed foods. But you can use quality ingredients, cook food using classic cooking techniques, and still serve something that's fast and inexpensive.
+- We have two day-parts, lunch and dinner. We don't have breakfast. We don't have drive-thru. We don't have late night. We don't have 24-hours.
+- So much of today's food is based on the exploitation of animals and the environment. Yes, it's cheap, but at what cost?
+- From the very beginning. I didn't know what the fast-food rules were.
+- My father is very supportive of anything that his kids want to do.
+- Despite offering dollar menus and frequent discounts, many of these chains also scored poorly in terms of value.
+- If I had taken money from, say, venture capital, they would have wanted a certain return in a certain time period. McDonald's, on the other hand, seemed very interested in my passion about creating this brand. I trusted them, and they did not really interfere with the brand.
+- I was so terrified that the business would not do well and that there would be no way that I would be in a position to pay my dad back this $80,000. At Stars, as a line cook, I think that I was making $10 or $12 an hour. So $80,000 - to have to pay that back was incomprehensible.
+- When I started on the very first day with just one restaurant, we used to pick oregano off the stems and chop them. We still do that.
+- Stars was really good training. You know, we would come in at noon, and, you know, we would learn at that time what we were going to cook that evening. And, you know, there wasn't a set menu per se.
+- After a two-year stint at Stars, I wanted to start my own full-service restaurant, but I didn't have the funds to do so, so I got a modest loan from my parents and opened Chipotle with the goal of having it fund that restaurant.
+- Looking inward and understanding where you made mistakes in the past helps you set up for change.
+- Our commitment to serving produce from local farms and other sustainable sources is one of the ways we are changing the way people think about and eat fast food.
+- If we really want to change the way Americans eat, we need to make delicious, sustainably-raised food accessible to everyone. Most people are not willing to sacrifice taste or pay a lot more when it comes to eating better. That's why the Chipotle model is so important.
+- I thought we were going to get customers excited by telling them there were no antibiotics in our meat or no growth hormones used to raise the animals or no RBGH in our cheese or sour cream. Well, that's not a very appetizing message.
+- We can assure you today that there is no E. coli in Chipotle. We have thoroughly tested our food, we have thoroughly tested our surfaces, and we are confident that Chipotle is a safe place to eat.
+- We have tacos and burritos and things that sound Mexican. But to me, it's about great-tasting food in an atmosphere sympathetic to the food, prepared freshly and served to the customer in a way that's customizable.
+- For too long, great food has really only been available in high-end restaurants and specialty food markets, but Chipotle is making the same gourmet quality food available and affordable so everyone can eat better.
+- The earliest recollection I have of being in the kitchen and cooking was in the third grade, and we lived in Germany. And I remember cooking scrambled eggs.
+- The bottom line - customers want delicious food served quickly in an interactive format, and they are increasingly unwilling to compromise.
+- The best Chipotle restaurant managers get the title 'restaurateur' and a $10,000 bonus for each person they hire who starts as crew and goes on to become a manager.
+- Chipotle was wildly successful, and I thought, 'Well, let me open one more.'
+- Chipotle was going to incorporate all the things I had learned at the Culinary Institute and Stars and really elevate typical fast food.
+- If food is processed - like canned or frozen - you can reduce the risks of pathogens.
+- Having never taken a business class, the economics of restaurants scared me. I opened Chipotle with the idea that I could step away from it and use it to support my full-scale restaurant.
+- We want to make the old fast food model irrelevant. We want to make great ingredients and classic cooking techniques accessible to everybody.
+- Certainly, in college, I had no idea what I wanted to do, I studied art history and had a great time, but I didn't have any sort of career aspirations.
+- When I started Chipotle, I didn't know the fast-food rules. People told us the food was too expensive and the menu was too limited. Neither turned out to be true.
+- Being in compliance with industry standards is less than 5 percent of what companies need to do to make food safe. Company after company finds that out after they have events.
+- I certainly could've made a lot more money buying cheap ingredients, and people might not have been able to tell the difference. That was never a part of the calculus. It was not part of my DNA.
+- I'm very much looking forward to relentlessly focusing on ensuring an excellent guest experience, removing unnecessary complexity from our operations, championing innovation, and pursuing our mission of making better food accessible to more people.
+- We're not best in the world at burritos and tacos. What we're best in the world at is building a people culture, sourcing really great ingredients, cooking according to classic cooking techniques, understanding the corresponding economic model and how to tweak that and drive that and provide this really great, new fast food experience.
+- We want to show all of our customers that the industry standards that we had been employing before - which are considered great standards - were not good enough.
+- When I told my friends and family that I was leaving Stars to open a burrito shop in Denver, they thought I was crazy, but not long after the success of the first Chipotle, I knew I had to open just one more, so I opened a second one on Colorado Boulevard, which turned out to be even busier than the first.
+- You cannot take shortcuts. We've shown that we can spend more on ingredients, not less, and charge a fair price.
+- We can teach people how to run a Chipotle.
+- When our folks focus on exactly what is needed to succeed in the restaurants, they should be able to lead themselves to restaurateur level.
+- When our employees walk in in the morning, they see food. They have to cook. At the restaurants, we chop cilantro, onions, and limes two or three times a day. We make guacamole from fresh avocados.

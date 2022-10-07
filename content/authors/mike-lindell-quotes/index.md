@@ -1,0 +1,98 @@
++++
+author = "Mike Lindell"
+title = "Mike Lindell Quotes"
+quotes_len = "92"
+description = "the best 92 Mike Lindell Quotes"
++++
+- All of my employees have passion, the philosophy of caring about the customer as an individual customer.
+- I can't help that we help people so much.
+- I don't boycott any station.
+- I was 16 years old at the Supervalu Store in Chaska, Minnesota, working as a bag boy, and with one of my checks I went out and bought a $70 pillow in 1977. Who does that as a teenager?
+- I had this fear of rejection. I had this inner unworthiness.
+- I haven't had a perfect life.
+- Anything that hits us, with God all things are possible, and we get through by the grace of God.
+- That's what drives me - to be able to help people get to their own calling and find their own peace.
+- I keep my promises.
+- I've been with all walks of life... All people from all status.
+- Like Mr. Trump, an entrepreneur and business man by trade, I have seen, first-hand, the importance of the 'Made in the U.S.A.' label.
+- I give media outlets my direct number.
+- If you buy something on the Internet, and they didn't collect tax, you're supposed to pay it - but nobody knows that. So there's trillions of dollars that were never collected.
+- I actually had a dream, which I believe is right from God, about My Pillow.
+- It is a lot of work being an addict. There's nothing harder than being an addict.
+- Who doesn't like salvation?
+- I live in the same town I grew up in and all my kids have worked for me and now, I have grandkids and now, it's amazing. They came through. They all played a part in my business and that's pretty amazing.
+- I started out with a carpet-cleaning business. Then I had a lunch wagon business, where you pull up and serve food. Then I had bars and then restaurants.
+- God's given me a gift to be able to put people in the right position, where their strengths are!
+- I want every pillow shipped out the day we get the order.
+- I first met Mr. Trump in August of 2016 during which we specifically spoke about everything made in America, bringing jobs back to the U.S. and strategies for reviving the inner cities. I realized right then he would be the best president ever.
+- I come from a past of addition, so I didn't pay much attention to politics.
+- Advertising decisions are based on what's best for MyPillow, my employees and my customers.
+- Most pillows are air supported; the air goes out of them, and then your cervical nerves get bent.
+- I make all my advertising decisions based on what is best for my customers and my employees.
+- I'm on all the channels. I'm on every channel. Not just Fox. I'm even on the channels that attack me all the time.
+- A lot of people recognize me from the MyPillow ads, and they often stop and ask for pictures. It's a blessing.
+- Addiction's some kind of disease? No, it's not. It's a mask for pain that usually comes from childhood and fatherlessness.
+- Business owners are responsible for themselves.
+- I get my stuff from dreams from God.
+- You wanna boycott me, that's fine, but I'm not changing my advertising.
+- I enjoy it. I don't run from it. I like talking to people.
+- I had this vivid dream and woke up and I wrote the 'MyPillow' logo all over the house.
+- I believe that Amazon is going to destroy the box stores... and when box stores go under, restaurants go under, the movie theaters go under, the gas stations go under. You become ghost towns.
+- Every success story in this country was because of capitalism. Everything we're doing. Look at my story. It couldn't be done.
+- I didn't have that when I invented MyPillow. I didn't have a safety net.
+- I would ruin my credibility if I put my stamp of approval of anything I didn't do my due diligence on.
+- We're a mess in Minnesota.
+- The last thing I expected in the world was to end up being involved in a presidential campaign.
+- It's common sense. Here's a problem, here's a solution. What will it manifest to? This drives me every day.
+- As the inventor of MyPillow, I have been a proponent of American-made products for decades.
+- We've lost common sense.
+- We are the greatest nation in the world.
+- I went to one year of college. I only went to class twice a quarter to pass the tests. I thought it was a waste of time.
+- I didn't know a liberal from a conservative. I had a clean slate.
+- Donald Trump proved you need a businessman to run things, not just someone who is a career politician. I'm sorry, but to me what do they know?
+- Twice I got thrown out of casino, literally thrown out by my feet thrown through the front door when I thought I had caught a cheater one night.
+- There is so many good ideas that are left on the shelf of people going, 'I've kind of great idea, but I just - I'm afraid.' Out of fear. Fear blocks all of that it's a false fear.
+- So many people worry about something that never actually happens and you spend all your time worrying and living in fear.
+- There have been many attacks on my company.
+- Products made in America can lead to prosperity.
+- I didn't think politics had anything to do with our daily lives. I had never voted. Well boy I know now.
+- I'm giving people hope because I just put it all out there.
+- We take such good care of our employees. What I do is think about what I would want my employer to be like. We started helping our employees with every facet of their lives, and our HR problems went from A to Z in reverse.
+- When we had the hurricanes - Hurricane Harvey - we gave 80,000 pillows down there.
+- I've stuck by my beliefs, I'm not going to change.
+- Who doesn't like the American Dream?
+- I stand firm in what I believe in.
+- It's tough for entrepreneurs when they're small to get good prices on stuff.
+- I'm going to do what God wants me to do.
+- I want to see unity in Minnesota.
+- I can go to sleep when my head hits the pillow. When I get phone calls from my factory in the middle of the night, I can go right back to sleep on a dime.
+- When I put my credibility behind someone, or anything - even if it's a product - to me, it has to help people.
+- Anything can happen with Mike Lindell.
+- If you make every pillow like it's your only pillow, and every customer like it's your only customer, I mean, that's an amazing concept.
+- I'm a businessman. I never knew anything about politics. I know what's right, what's wrong and what's working.
+- I got freed of all of my addictions January 16, 2009, but at that point I didn't do a full surrender to Jesus. I didn't give a full surrender until February 18, 2017, so there's quite a story in between where God was still chasing me.
+- Well, you know, I've always been an entrepreneur. I've had it out of necessity.
+- I've sold 46 million pillows and my customers' opinions are the only ones that matter to me.
+- We don't use PowerPoints.
+- You know, my sister, she does my hair, and she says, 'Why don't you try changing your hairstyle?' And I go, 'I like it. Why would I change something I like?'
+- There are bad people in all walks of life, including police.
+- I had a very weird, very vivid dream. Donald Trump and I were in some kind of room. It was an office with pictures on the wall behind us, and we were standing next to each other posing for a picture.
+- If you do right, things come out right.
+- Whether I get four hours of sleep or eight, I always feel well-rested.
+- For years people have approached me with great products but have had no way of marketing them.
+- If God had me run for something, I would do it in a heartbeat.
+- 99.999% of everything you worry about doesn't even come true anyway.
+- I always had the dream of doing a 'real' infomercial because I had done smaller home shows and fairs. Everyone said it wasn't going to work. 'You need a movie star,' they said. But I wanted to do it myself because I'm selling the passion - there is a problem and I have a solution - that had resonated well with people.
+- I want 100 percent of customers to like MyPillow and 100 percent of people to be taken care of. If you help someone, they tell two people, they tell 20 people, they tell 200 people, and the money takes care of itself.
+- I got a story to tell.
+- You keep the faith, and with God, all things are possible.
+- I spent a lot of time in Minneapolis.
+- I've been on TV so much, and I think people like the message I give out, that MyPillow is just a platform for God, and it helps so many people.
+- I'm all about second chances.
+- Who doesn't like a redemption story?
+- God gave us grace on November 8, 2016, to change the course we were on. God had been taken out of our schools and lives, a nation had turned its back on God.
+- I just see things that are so poorly run, and they could be done a lot better. It might come down to, 'if you want something done right, do it yourself.'
+- MyPillow believes all lives matter and values all our employees and customers, treating them like family.
+- I want to be maybe the modern-day Billy Graham.
+- Addicts are hard workers.
+- I want to come across as an average guy, talking to his neighbor.

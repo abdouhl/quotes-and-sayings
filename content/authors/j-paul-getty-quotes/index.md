@@ -1,0 +1,62 @@
++++
+author = "J. Paul Getty"
+title = "J. Paul Getty Quotes"
+quotes_len = "56"
+description = "the best 56 J. Paul Getty Quotes"
++++
+- My wealth is not a subject I relish discussing.
+- I've never been one to bet on the weather.
+- Five wives can't all be wrong.
+- No one can possibly achieve any real and lasting success or 'get rich' in business by being a conformist.
+- I have never been given to envy - save for the envy I feel toward those people who have the ability to make a marriage work and endure happily.
+- My yachts were, I suppose, outstanding status symbols.
+- Governments, of course, can - and do - soak the rich.
+- I am - and have always been - a Methodist.
+- If you can actually count your money, then you're not a rich man.
+- If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem.
+- Without the element of uncertainty, the bringing off of even, the greatest business triumph would be dull, routine, and eminently unsatisfying.
+- I hate to be a failure. I hate and regret the failure of my marriages. I would gladly give all my millions for just one lasting marital success.
+- What I learned at Oxford has been used to great advantage throughout my business career.
+- Jack Dempsey and I became friends in the very early 1920s.
+- The meek shall inherit the Earth, but not its mineral rights.
+- I buy when other people are selling.
+- Before marriage, many couples are very much like people rushing to catch an airplane; once aboard, they turn into passengers. They just sit there.
+- You cannot further the Brotherhood of Man by encouraging class hatred.
+- The employer generally gets the employees he deserves.
+- You cannot bring about prosperity without discouraging thrift.
+- There are at least 50 cities in the world that would have liked to obtain the Getty Collection.
+- I vehemently deny that I was born a cynic and a pessimist.
+- Books, like proverbs, receive their chief value from the stamp and esteem of the ages through which they have passed.
+- To succeed in business, to reach the top, an individual must know all it is possible to know about that business.
+- In Japan, I was immensely impressed by the politeness, industrious nature and conscientiousness of the Japanese people.
+- I can afford to say what I wish.
+- A marriage contract to me is as binding as any in business, and I have always believed in sticking to an agreement.
+- I was brought up in an era when thrift was still considered a virtue.
+- The beauty one can find in art is one of the pitifully few real and lasting products of human endeavor.
+- I take pride in the creation of my wealth, in its existence and in the uses to which it has been and is being put.
+- I have always enjoyed the company of women and have formed deep and long-lasting friendships with many of them.
+- Control of a company does not carry with it the ability to control the price of its stock.
+- Money is like manure. You have to spread it around or it smells.
+- During the 1950s, Aristotle Onassis and I formed what grew to be a close friendship and association in several business ventures.
+- My formula for success is rise early, work late, and strike oil.
+- There are one hundred men seeking security to one able man who is willing to risk his fortune.
+- A hatred of failure has always been part of my nature.
+- Rhetoric and dialectics can't change what I have learned from observation and experience.
+- Formula for success: rise early, work hard, strike oil.
+- Oil is like a wild animal. Whoever captures it has it.
+- There are heads of royal families who control hereditary fortunes that defy comprehension.
+- How does one measure the success of a museum?
+- The Roaring Twenties were the period of that Great American Prosperity which was built on shaky foundations.
+- I have absolutely no intention of marrying Jacqueline Kennedy Onassis.
+- I am neither a homosexual nor a eunuch, nor have I ever taken any vows of chastity.
+- Nostalgia often leads to idle speculation.
+- The rich are not born sceptical or cynical. They are made that way by events, circumstances.
+- My love of fine art increased - the more of it I saw, the more of it I wanted to see.
+- Whether we like it or not, men and women are not the same in nature, temperament, emotions and emotional responses.
+- Nationalized industries are notorious for their inability to operate at a profit.
+- The man who comes up with a means for doing or producing almost anything better, faster or more economically has his future and his fortune at his fingertips.
+- I was 37 when my father died-and I no longer had any freedom of choice over what I would do with the rest of my life.
+- If you can count your money, you don't have a billion dollars.
+- Going to work for a large company is like getting on a train. Are you going sixty miles an hour or is the train going sixty miles an hour and you're just sitting still?
+- The overwhelming majority of my rated wealth consists of investments in companies that produce goods and services.
+- In times of rapid change, experience could be your worst enemy.

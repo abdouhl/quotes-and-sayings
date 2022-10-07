@@ -1,0 +1,20 @@
++++
+author = "James Green Somerville"
+title = "James Green Somerville Quotes"
+quotes_len = "14"
+description = "the best 14 James Green Somerville Quotes"
++++
+- I have to confess that there have been some times when I was less than glad to be a minister, and some Sundays still when I tremble under the weight of trying to speak a word for God.
+- I dropped out of school for a semester, transferred to another college, switched to an art major, graduated, got married, and for a while worked as a graphic designer.
+- Washington is a great international city and in the congregation we have people who are rich and poor, black and white, and from every part of the world.
+- There are congressmen in our congregation, judges, federal reserve governors. And there are also people who are homeless and some who are mentally ill. To be able to talk to each of those people is something that I've had to learn how to do over the years.
+- It's not just being called to the ministry that counts.
+- Even more important than what we do, then, is who we are.
+- I went off to a school with the children of CEOs and diplomats. To be able to be at home with that group of people and at home with the desperately poor has been good for me in preparation for my coming to Washington.
+- As long as I loved and served Christ I could be anything I wanted to be.
+- I began to pray those same fervent prayers, lying in bed at night, hoping to see a scroll unrolled from the ceiling with a message from God just for me.
+- We were growing up in West Virginia. Everybody was poor there in the southern part of the state. It was like growing up in the Great Depression from the stories I hear people tell. Everybody was poor and so we didn't know that we were any different from anybody else.
+- John the Baptist was supposed to point the way to the Christ. He was just the voice, not the Messiah. So everybody's calling has dignity to it and God seems to know better than we do what is in us that needs to be called forth.
+- I know the world is hungry for good ministry.
+- My father was a Presbyterian minister, working among the poor in West Virginia. He had taken what amounted to a vow of poverty when he accepted that call and so we never had much money.
+- While I am the one who made the choice to enter the ministry, there was a choice before that one, the choice God made in calling me to be his in the first place.

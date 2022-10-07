@@ -1,0 +1,39 @@
++++
+author = "Mouni Roy"
+title = "Mouni Roy Quotes"
+quotes_len = "33"
+description = "the best 33 Mouni Roy Quotes"
++++
+- 'Mahadev' got me most recognition. But I have to say that post 'Kyunki'... I was offered everything under the sun. Being an outsider, who didn't have to work too hard, I was overwhelmed.
+- For me, all days are memorable days.
+- I need my family and friends around all the time. They are always my number one priority, and that will never change.
+- I got roles from good production houses, though I wasn't keen on them, as I was asked to - and I won't - wear a bikini in a film. I'm not conservative, as I'd wear it on holidays, but definitely not in front of the camera. I have to think of my family.
+- When I'm abroad, I burn all my money on Broadway.
+- I am interested in Bollywood. Everyone wants to do bigger and better work. I also want to do good work.
+- I've never planned any of my career moves. Things have just happened, and luckily, they've worked out for the best.
+- Except for a few episodes, I have not watched any of my shows. I don't think I like to watch myself on TV. I get very critical about what I am saying.
+- I'm a religious, spiritual person, but if there is good in the world, there must be evil, too.
+- I have never been stereotyped in one kind of character. I have been a part of reality shows, events, singing and dancing. No one has ever told me, 'She will fit only in this character or this look.' It has never happened to me, luckily.
+- I have never done a show based on whether it will work or not. I took up all my shows because I liked the character and wanted to be part of those shows.
+- I want to write a script, but before that, I am planning to compile a book of short stories.
+- Even on holidays, I wake up early, and by 7 A.M., I am out sightseeing.
+- I am a foodie at heart and dancer/actress by choice. For me, being fit is a priority.
+- I'm a very aggressive person. I have slapped people when they have tried to grab me or my friends. I have reported people to the cops.
+- TV isn't like films; you can't rest on your laurels.
+- I'm not ambitious; it is clear in my choice of work. I am fine doing a few dance shows in a month to run my household and take care of myself.
+- I would be a very sad person if I didn't have dance in my life. However I can, whatever I do, I just feel a lot of joy. Even if I am sad, if you take me to a rehearsal hall, I will automatically become happy.
+- I am a creative person. I like painting, singing, dancing, etc.
+- I know that gossip comes with a territory. It's a professional hazard, and while initially, I'd get a little riled, I've now learnt to handle it well. And honestly speaking, it's all very good publicity, isn't it?
+- On television, there isn't much scope to do different roles. I try to bring some new shades to my roles, and I try to play them differently. I think I have been able to manage that pretty well.
+- I am a very moody person.
+- My last conversation with my father was an argument we'd had. When I came to know of his hospitalisation, I'd lost him within seven hours. I still regret the last conversation with him.
+- My father always taught me to never be quiet. That's the good thing about a Bengali household.
+- I have done a lot of reality shows. In fact,my first show was 'Shava Shava', which was a singing reality show.
+- I'm happiest when I run my home, work, and curl up with a book.
+- As an actor, my job is to perform to the best of my ability. Success or the ratings of a show are not in my hands. But yes, people's expectations can be unnerving.
+- What people don't realise is that it is the script which plays the most important factor in making or breaking a chemistry.
+- I didn't have any plans to act, as I thought I would take up a job behind the camera. But, life had its own plans for me. In fact, every time I plan things, they never happen.
+- Deep down, I'm a small-town girl who has it drilled in her DNA to grow up, marry, have kids, settle down. Maybe I will knock the same theory in my kids' heads, too. I'm also liberal, a political enthusiast, a bookworm, and the least bit ambitious to pull off a soap drama queen act.
+- I still remember how my father used to wake me up at 4 A.M. and make me study. He also used to take me for a walk and then always dropped me to school. I was very disciplined, as my father inculcated those values in me. Now that my father is no more, I understand that you should not take your parents for granted.
+- I don't believe in doing one thing after another. I am a bit lazy, laid back, and a happy-go-lucky person. I don't fret too much. I enjoy living in the moment. If I have too much, then I get confused and distressed.
+- I have always looked for growth, and in TV, you are as good as your last show. So I only care about my personal space, my family, and close friends.

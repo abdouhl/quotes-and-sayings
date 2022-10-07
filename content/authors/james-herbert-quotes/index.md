@@ -1,0 +1,18 @@
++++
+author = "James Herbert"
+title = "James Herbert Quotes"
+quotes_len = "12"
+description = "the best 12 James Herbert Quotes"
++++
+- I grew up in the East End of London, the youngest of three boys in a Catholic household. Both my parents were market traders and worked seven days a week.
+- I'm not into high literature, but I think all my books are literate.
+- For me, a good friend is someone you might only see once or twice a year but each time it feels as though you've just seen them last week.
+- I've always suffered from being labelled a horror writer - just because I didn't go to university, just because I still talk in my natural voice, just because I'm not as articulate as Martin Amis.
+- I've actually seen a ghost, so I know they're really around.
+- I'm terrible in the mornings, but I'm always at my desk by 10 A.M.
+- I never plan my novels because if I know what is going to happen, it bores me rigid. I let the story tell itself.
+- I hate violence, and I didn't plan to write horror; it just poured out of me.
+- I'm very cagey about making friends, and I rarely do.
+- I have a dread of sounding pretentious and try not to talk too much about what I do.
+- I worry about the many things that could happen to the people I love.
+- I've always loved comic books. As a kid, I used to read cowboy stories and historical comics about other worlds, unknown places that would take me out of myself and which helped to develop my imagination.

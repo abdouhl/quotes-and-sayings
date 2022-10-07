@@ -1,0 +1,77 @@
++++
+author = "Mahima Chaudhry"
+title = "Mahima Chaudhry Quotes"
+quotes_len = "71"
+description = "the best 71 Mahima Chaudhry Quotes"
++++
+- I am not in a hurry... I take slow steps but never go backwards.
+- When you count on someone you want him to be there in times of need. I may not be there when you are popping champagne bottles but I will be there, like a solid rock, if there is a tragedy.
+- If dinner needs to be served to the father, if clothes need to be ironed, parents ask the girl to do it, not the boy. Why? Equality needs to begin at home.
+- I started judging a few television shows, making appearances at functions or cutting ribbons because it was convenient for me. It also gave me quick and good money. Now, when I look back, I feel those assignments ruined me as an actress.
+- There were rumors in the magazines that I was seeing Ajay Devgn. That made me even more uncomfortable.
+- I came back and started living with my parents, and you depend a lot on your parents. That was the time when my mother was diagnosed with an illness; she needed help and she could not be of that great help for raising my child.
+- When a boy comes home late from college, nobody questions him. But if a girl is late by even half an hour, the mother asks, 'Kahan thi?' Why are you not asking the boy where he was?
+- I believe God is a big leveler in life.
+- I met a lot of people in Kolkata who said Sanjiv Khanna is a wonderful, well-spoken man.
+- When a director is making a movie after four years, it's not considered his comeback. It should be same with actors.
+- Every time I go on stage, it's like living my childhood dream, so it's really great.
+- North Indians tend to talk a little louder than others.
+- I do not think that my life starts and ends with films. I do not use my profession as my identification.
+- I wish I had taken some dance classes; I would love to be a female Hrithik Roshan.
+- Running around trees and across paddy fields can be exhausting after a while.
+- There is no particular dream role in my mind but I would love to play a 'surprised character' which makes people say, 'Omigosh, that was Mahima.'
+- I only worked out towards being fit!
+- You do a lot of movies, then you let others do it when you go and perform another role in life. When you again return to acting it shouldn't be taken as their comeback.
+- With a child, it was difficult to take up films, as it would have consumed a lot of time.
+- It's very tough playing a real life character in a controversial story.
+- I always wanted to sing to huge audiences.
+- You should have the same rules for boys and girls at homes. You should ask them the same questions because there is a defect in the way we are raising our kids. You have to give them the same liberties, the same treatment, and the same freedom.
+- More than films, endorsements and dance shows and attending functions or appearing in any shows brings more money.
+- They put a picture of me on a magazine's cover and wrote 'Mahima had an accident. She's got scars all over the face. We can actually call her scarface.' It still hurts me.
+- Ram Gopal Varma had signed me for 'Satya' and two days before the shoot, I was dropped out of the film. He didn't even have the decency to call me or my manager and inform me about the reality. I learnt from the press that he had begun shooting without me.
+- I don't know how my mom put up with us. We'd walk around school in torn jeans, put on this punk-rock image and sing ballads everywhere we went.
+- When I slowly got my confidence back, Akshay Kumar said why don't you be a part of 'Dhadkan' and then slowly I started picking up cameos and guest appearances, and those became hit.
+- If you are uncomfortable, you make your family uncomfortable because they don't know how to treat you when they come.
+- Cancer is something if you spot in the first few stages, it can be cured.
+- I got up and saw my face in the mirror and saw the horror. When they did the surgery on me, they took out 67 glass pieces. There were a lot of movies that I had lined up for myself during that time, and I had to let it go. I didn't want people to know because, at that time, people were not that supportive.
+- I've always worked with new directors. 'Pyar Koi Khel Nahin' with Sunny Deol, Anupam Kher's debut film 'Om Jai Jagdish,' and Niraj Vohra's 'Khiladi' were all first-time films.
+- It was the last day of the shoot in Bangalore. An early morning shoot. I sat in the car. A milk truck was coming from the wrong side and it rammed into my car. The glass pieces came like bullets into my face. I was preparing for a life without cinema. I was learning how to cope up with it. Anything that happened post that was just God's gift.
+- It was wonderful working with Kundan Shah. He is a very good director.
+- We all are brought up on some values, and I believe values define a man's character.
+- Like cricket, hockey too needs to be a lucrative career option.
+- Yes, it did look like 'where did she go?' I was hiding.
+- I was here all the time doing good films like 'Yeh Tera Ghar Yeh Mera Ghar,' 'Kurukshetra' and 'Khiladi 420' but since they weren't solid hits, people didn't talk about them much.
+- It might be the most inspiring film in the world, but if I do not like it I will not do it. I have to believe in the film to take it up.
+- The biggest change is that production has become organized, there is proper funding. It is more secure. Earlier, some people used to put in their money and if the money is not enough, it would go down the drain.
+- I was a single mother and had to earn money.
+- I had my lockdown period just after my two movies, 'Pardes' and 'Daag: The Fire,' where I had a double role, which was a huge thing at that time and it was a successful film.
+- And I think that motherhood has made me a better actress as well.
+- My choice for life partner has been pathetic. So, I have told my mother to look into it.
+- I don't drink.
+- What could be addictive about the limelight is the recognition that you gain. Can you imagine the feeling you experience when the whole country looks up to you? When you become a source of inspiration for millions?
+- When I was doing 'Pardes,' I was offered 'Satya.'
+- I will go in for a divorce if I plan to get married again.
+- I was bullied by Subhash Ghai. He even took me to the court and wanted me to cancel my first show. It was quite stressful. He sent a message to all the producers that nobody should work with me.
+- It's been quite some time now since I've been deejaying. And, I think I can play music well.
+- I enjoy the New Year best by performing in front of a huge crowd.
+- When I go to speak at schools, I speak to mothers and fathers, because the way we are raising kids in our country is wrong.
+- I was working for Ajay Devgn and Kajol's home production film 'Dil Kya Kare' with Prakash Jha. During that, in Bengaluru, while on my way to the studio, I had a massive accident where a truck hit my car, and the glass of my car went into my face mostly. I thought I was dying, and at that point, no one even helped me get to the hospital.
+- I know many men who say they are not meant for marriage - they don't believe in the institution. I respect them more than someone who cheats behind your back.
+- I very rarely use a Metro system but I'm glad to see the world-class things which are present in Lucknow now. I loved the artworks, especially at the Hazratganj Metro Station where chikankari work has been depicted.
+- The government should take a decision on whether to allow Pakistani actors in India or not, but I think directors and producers will themselves not cast Pakistani actors seeing the kind of opposition the country is witnessing against them.
+- In fact, do monogamous men exist at all?
+- Like every actor I too have some 'classics' in the closet, but I am not keen on adding to that collection.
+- I work hard on New Year's eve as I perform at shows. And then round it off by spending a lazy day on January 1st.
+- I have been keeping myself busy with events, live events, promotions, and of course, you have a child to raise and it takes an entire village to raise one, and I am a single parent.
+- My struggle began after my first film, post a success, post a jubilee of so many weeks.
+- I have not told anyone about deejaying. I developed a liking for it when I saw some girls becoming DJs.
+- The film industry has always been unpredictable! It is like the stock market really.
+- There is a general impression that if a man has a sexy wife or girlfriend, he won't stray. Men don't need a reason to stray - they do it anyway.
+- I know that there is life beyond films. I know the difference between reel and real.
+- After marriage, I was only concerned about raising my daughter, Ariana. I didn't want to miss her even for a second. I thought that's the best phase of my life, and I was enjoying it, far more than films.
+- I want to smile more. And I want to do more than what I am capable of.
+- Every time I wanted to go out and do an event, go out and do a show, I used to come drop my child at my mother's home and then I stayed back two days and I used to feel, 'I'm so much more comfortable here.'
+- I plan to cut an album as well.
+- I remember wrapping up the shoot for 'Hope And A Little Sugar' and going straight to a salon to cut my hair very short.
+- Movies are my pill. I can talk non-stop about them.
+- Ariana has completed me. I felt I'd lived all my high points, till the baby came and life's been on a high ever since. It feels like with her I'm discovering innocence all over again.

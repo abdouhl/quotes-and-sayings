@@ -1,0 +1,103 @@
++++
+author = "Mick Foley"
+title = "Mick Foley Quotes"
+quotes_len = "97"
+description = "the best 97 Mick Foley Quotes"
++++
+- In 1999, I had my back against the wall, and WWE had a ghostwriter working on an autobiography for me. He was halfway through, and it was awful, just boring. I took over as a way of trying to fix things, as I thought I could probably do a better job.
+- My mother wanted me to be a writer, which I have ended up taking a long road round to.
+- President-elect Trump wasn't my choice, but I'm going to be like Dave Chappelle, and I'm going to give him a chance - but I think there are people out there with legitimate worries.
+- My greatest personal Survivor Series moment was facing The Rock in 1998 and having Mr. McMahon turn on me. That set into motion one of the best series of matches I've ever had and some of the most important with The Rock. Not only did we have great matches, but then we became teamed up following the rivalry, so that was big.
+- As a halfway decent college DJ, I had been exposed to some great progressive stuff and always took pride in unearthing musical gems.
+- There is nothing like the indignity of not fitting into a roller coaster.
+- I just feel like there's a better mind-to-pen connection for me than a mind-to-keyboard connection.
+- I find that I get most of the same things I loved about performing in the ring when I do my live shows around the world.
+- The idea of standing five feet away from Norah Jones and listening to her sing Neil Young's 'Down By The River' was just phenomenal. I compare that to what my kids know of at a concert, which is sitting in a stadium and watching a huge screen.
+- Edge goes out every night, and not just on pay per views; every night, Edge goes out there with the intention of stealing the show. I know that he felt like his title run had not been given the respect from the company that it deserved, and he was really hell-bent on proving that he belonged as a main event guy.
+- It might surprise people to know that the person who convinced me to write the third memoir - 'The Hardcore Diaries' - was actually Vince McMahon.
+- I did like Test, and he was a guy I kept in touch with for years after we stopped working together.
+- The fans still want to see me, sweat pants and all.
+- On the 'SmackDown' side, A.J. Styles really has been phenomenal.
+- I lived in Alabama for a while during the dying days of the Continental Wrestling Federation. I lived in Montgomery and traveled all over Alabama.
+- It's difficult to differentiate between a story that's humorous and clever and one that actually makes people laugh out loud.
+- I was given a chance to try announcing, and it was a job that, in the end, I did not care for very much.
+- As great a spectacle as WrestleMania is, there's something to be said for seeing a guy you like telling stories from the heart from 20 feet away.
+- I don't have much choice but to be a WWE fan in my house.
+- Mother Nature and Father Time have not been happy with me.
+- I look back on my career and my time as commissioner with great fondness.
+- I can still remember the first time I heard Tori Amos. It was the fall of 1993, and I was in the back of a colossal '79 Lincoln Coupe Mark V, embarking on some otherwise forgettable road trip somewhere in the Deep South.
+- I developed an interest in the history of the Negro leagues to the point where I visited the museum in Kansas City, Mo., twice and made the museum an integral part of my unheralded 2005 coming-of-age baseball novel, 'Scooter.'
+- I loved Steve Martin when I was younger, in the '70s.
+- I can look back now and say, 'Aw, that was a little dumb taking huge bumps onto concrete before a couple of hundred fans,' but if it wasn't for that attitude and that type of work ethic, I never would have gotten to WWE.
+- I haven't worn jewelry since one of the front teeth I had made into an earring became no longer necessary because I lost the ear.
+- I think doing The Improv is a little more ominous than doing a college campus because it was so different than anything I'd done.
+- The first few songs of the album 'Little Earthquakes' were unlike anything I'd ever heard.
+- I leave my editor to put the periods and commas in.
+- I think what limited my role when I was WWE commissioner in 2000 was my reluctance to get back in the ring every now and then.
+- I really have to accept the fact that I'm not a young man anymore, that I've probably taken one lifetime's worth of punishment already, and I really do need to be careful. Certainly I don't want other WWE superstars taking the shots I did. That makes me feel very uncomfortable when I see somebody get hit with an unprotected chair shot.
+- I like those really multidimensional characters like Dean Ambrose and Bray Wyatt.
+- A lot of my loyalty is to the wrestlers - the guys who put their heart and health on the line.
+- Sooner or later, The Rock's going to get tired of that empty space on his mantle where an Oscar should be, and that's when I'll get the phone call for the buddy movie that finally makes his career.
+- I saw James Ellsworth at an independent wrestling show where I was signing autographs, so I took a photo with him and put up a post on Facebook called 'The night I met James Ellsworth.' Just by nature of how popular that post was, how many comments there were and likes and shares, I was like, 'people love this kid.'
+- One thing I was proud of when I did the college talks was that, although stories revolved around experiences that I had in wrestling, one did not need to be a wrestling fan to enjoy them.
+- I always had an appreciation for diverse musical styles.
+- Back in 2004, Vince McMahon basically told me to consider WWE to be my playground, and that I could come and play any time I wanted to.
+- I've actually met quite a few of my heroes from the past.
+- I really enjoy watching the younger talent like The Shield rise up on the card and make a huge impact.
+- I remember being really hurt by a relative of a good friend of mine when I mentioned that someone was a great wrestler - she said, 'What do you mean? How can you be great at wrestling?' I stopped them and said, 'Do you think that what I do takes no talent whatsoever?' She realized how hurtful those words were.
+- You can't satisfy everybody. If you do, you're probably doing something wrong.
+- If you're in my shoes, and your goal is to leave people with the biggest possible smile on their face, then doing the meet-and-greet afterwards makes sense.
+- You really can't go wrong. There's no bad New York pizza, as far as I know.
+- I was told that the fact that I had nothing but good things to say about Judith Regan distinguished me. I enjoyed writing for Judith. I really enjoyed working with Victoria Wilson at Knopf, and Simon & Schuster, they've all been great experiences.
+- I'd like to see Dolph Ziggler get involved in a really intense, personal feud that will bring out another side of his personality. Because the personality is there, and the wrestling is there, so I'd like someone to come along and bring out his ugly side.
+- It's funny: wrestlers and comics bond over remembering their best shows and their absolute worst shows.
+- Maybe I should have taken it easy on the smaller shows especially, but all in all, I have no regrets.
+- Probably better than anybody, I realized that I could have easily been one of those guys who was not seen as being a WWE-type guy.
+- Without knocking Impact Wrestling, your contribution was largely limited to what you could do in the TV show. WWE is a bigger company with a bigger infrastructure and a lot more ways to make a contribution.
+- I think I had four concussions throughout my career that were diagnosed, and I guess that I've had seven more. But the fact that three of them came in a four month span when I was making a comeback in 2004 is a little bit scary.
+- I always felt like the wrestling business was better off with two viable mainstream promotions.
+- My goal in wrestling was always to take people on a journey to get a reaction and make people feel like they had seen something special. Thankfully, I get reminded of that every day.
+- When people see my show, they may not laugh out loud as they do with some of the classic comedians, but they do enjoy it. I regret that I called it comedy to begin with; I should have called it 'An Evening With' or put it down as spoken word. But the emphasis is always on funny stories.
+- Nakamura, to me, is a main event star.
+- In a sense, I think the WWE Universe has become one of the greatest characters of the modern era.
+- Even though 'SmackDown' has been kind of like the Internet darling, I believe that if they had three hours instead of two, they would find out that it's tough to be a darling when you've got that massive three-hour anchor around your neck.
+- By the time I got to WWE, I had a lot more confidence and willingness to speak up.
+- I loved George Carlin... I used to sit in front of the TV and watch the HBO comedy specials. I loved those comedy specials.
+- I think you can always learn lessons by the guys who came before you.
+- I remember the first time I smelled B.O. was at a cross-country meet. But it wasn't unpleasant, in a strange way. That's what you got when you worked hard.
+- You want the match to be like a roller coaster, so you can't predict it.
+- I'm glad I had a chance to see great music played up close and live. In a way, that's what I hope my show does. It's almost like an acoustic evening with Mick Foley.
+- I would leave my wife for Whataburger.
+- I'm not a dabbler.
+- The truth is, pro wrestling is such an incredibly vast, incredibly surreal world. There's no telling how many words could be written about the subject - especially when the subject involves WWE.
+- Bray Wyatt is one of the most captivating characters to come down the pike in ages.
+- Everybody has the idea of Santa in their head and in their heart.
+- I am a roller-coaster addict.
+- At heart, I was always a performer, not a competitor.
+- I get to define for myself what being a success is.
+- I'm still a big wrestling fan. I buy the Pay-Per-Views. I think that gives me the right to speak out just like any other fan.
+- Everything's relative. I don't think any new pursuit will be as difficult as trying to break into wrestling 25 years ago.
+- Political parties could learn a lot from pro wrestling, as we have our passionate base, too, but we don't necessarily gear our show around them.
+- It's much easier to see my son involved in creative than to see my daughter in the ring. But they've both worked really hard. I'm really proud of both of them.
+- Triple H was one of the main proponents of women's wrestling.
+- I cannot look back and say I did everything I wanted to do in TNA.
+- I really enjoy Sarah Silverman's fearlessness.
+- Be safe and be realistic. They're both equally important.
+- For me, announcing wasn't the ideal working condition.
+- I don't advocate any child following in their parent's footsteps when their parent's footsteps are as crooked as mine are.
+- I see The Rock running in 2020 and being a two-term president. I think he would be great, and I'm joking when I say I think Stephanie McMahon wouldn't be a fine president of the United States. I think she's got the leadership qualities. I see those two as potential candidates, and I see Kane as a congressional leader.
+- I think people know by now that I do my own writing.
+- When Dee Snider and I get together for breakfast, it's just two Long Island guys hanging out.
+- Everybody in wrestling is looking at the information coming in on concussions. Everyone from the NFL to the WWE to TNA to the youth soccer groups around the country are realizing that there are dangers that weren't previously known.
+- I do some things just to entertain myself, and I figure that part of the audience will be entertained as well.
+- I always welcome being part of something positive in WWE.
+- You have to believe in yourself. But you know what? There's a fine line between believing in yourself and being delusional. And I'm sure there were a lot of people who thought I was being delusional when they saw me attempting to become a big shot in the world of pro wrestling. Luckily, it worked out: it doesn't work out for that many people.
+- There was a time when Vader and I had a main event Pay-Per-View match, back in 1993 at Halloween Havoc, and I firmly thought that it was going to be the biggest match of my career and that everything after would just be going downhill.
+- I wanted to be a baseball player, but I became fascinated with wrestling as a teenager.
+- Everything that you want Santa to be, he is.
+- I love, for example, 'Full Frontal with Sam Bee.' I just love her show.
+- There are guys who thrive completely on the action in the ring and see the promotion as a necessary evil, whereas I think it's so much easier to tell people what a tough guy you are, as opposed to backing it up.
+- I tell people the most important move they can make is not in the ring. It's taking the time to get to know Mr. McMahon.
+- A joke bombing on stage doesn't bother me, especially if it's intended to bomb.
+- I think people who read Internet blogs are usually trying to fit it in during a busy part of their day, and there's only so much information that you digest. Whereas an experience with a book is a little more comfortable, and I think people are a little more willing to really delve into information.
+- I get asked a lot about the Rock N' Sock Connection.

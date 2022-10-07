@@ -1,0 +1,78 @@
++++
+author = "George Lucas"
+title = "George Lucas Quotes"
+quotes_len = "72"
+description = "the best 72 George Lucas Quotes"
++++
+- I started out in anthropology, so to me how society works, how people put themselves together and make things work, has always been a big interest.
+- You simply have to put one foot in front of the other and keep going. Put blinders on and plow right ahead.
+- I've never been that much of a money guy. I'm more of a film guy, and most of the money I've made is in defense of trying to keep creative control of my movies.
+- I am simply trying to struggle through life; trying to do God's bidding.
+- 'Young Indiana Jones' was one of the happiest times I ever had, so I love television.
+- Part of the issue of achievement is to be able to set realistic goals, but that's one of the hardest things to do because you don't always know exactly where you're going, and you shouldn't.
+- A special effect is a tool, a means of telling a story. A special effect without a story is a pretty boring thing.
+- Before I became a film major, I was very heavily into social science, I had done a lot of sociology, anthropology, and I was playing in what I call social psychology, which is sort of an offshoot of anthropology/sociology - looking at a culture as a living organism, why it does what it does.
+- Football games are on TV, and it doesn't affect stadium attendance at all. It's the same with movies. People who really love movies and like to go out on a Saturday night will go to the movie theater.
+- Learning to make films is very easy. Learning what to make films about is very hard.
+- The ideals and principles for which Dr King fought have never been forgotten and are as relevant today as they were 40 years ago.
+- There's no difference between movies and television. None at all. Except in a lot of cases, television's much better than movies.
+- A lot of people like to do certain things, but they're not that good at it. Keep going through the things that you like to do, until you find something that you actually seem to be extremely good at. It can be anything.
+- Digital technology allows us a much larger scope to tell stories that were pretty much the grounds of the literary media.
+- I'm not much of a math and science guy. I spent most of my time in school daydreaming and managed to turn it into a living.
+- The way I define 'intelligent design' is that when people started out, we wanted to make sense of the world we lived in, so we created stories about how things worked.
+- I was afraid that science-fiction buffs and everybody would say things like, 'You know, there's no sound in outer space.'
+- It was the money from 'Star Wars' and 'Jaws' that allowed the theaters to build their multiplexes, which allowed an opening up of screens.
+- One of the amazing things about 'Seven Samurai' is that there are a lot of characters. And considering you have so many, and they all have shaved heads, and you've got good guys and bad guys and peasants, you get to understand a lot of them without too much being said.
+- The influence of 'Hidden Fortress' comes up a lot because it was printed in a book once. The truth is, the only thing I was inspired by was the fact that it's told from the point of view of two peasants, who get mixed up with a samurai and princess and a lot of very high-level people.
+- The technology keeps moving forward, which makes it easier for the artists to tell their stories and paint the pictures they want.
+- I grew up in San Francisco. And so I'm informed in a certain kind of way about, you know, believing in democracy and believing in America. And I'm a very ardent patriot.
+- Making a film is like putting out a fire with sieve. There are so many elements, and it gets so complicated.
+- It's hard work making movies. It's like being a doctor: you work long hours, very hard hours, and it's emotional, tense work. If you don't really love it, then it ain't worth it.
+- I was never interested in being powerful or famous. But once I got to film school and learned about movies, I just fell in love with it. I didn't care what kind of movies I made.
+- In 3-D filmmaking, I can take images and manipulate them infinitely, as opposed to taking still photographs and laying them one after the other. I move things in all directions. It's such a liberating experience.
+- There wasn't much as a kid that inspired me in what I did as an adult, but I was always very interested in what motivates people, and in telling stories and building things.
+- The sound and music are 50% of the entertainment in a movie.
+- Although I write screenplays, I don't think I'm a very good writer.
+- The secret is not to give up hope. It's very hard not to because if you're really doing something worthwhile I think you will be pushed to the brink of hopelessness before you come through the other side.
+- I thought Star Wars was too wacky for the general public.
+- One thing about 'Star Wars' that I'm really proud of is that it expands the imagination. That's why I like the 'Star Wars' toys.
+- As a Western, 'The Magnificent Seven' was a pretty good film. I don't think it was as interesting or as multi-faceted as 'Seven Samurai.'
+- For 'Star Wars' I had to develop a whole new idea about special effects to give it the kind of kinetic energy I was looking for. I did it with motion-control photography.
+- If you look at 'Blade Runner,' it's been cut sixteen ways from Sunday, and there are all kinds of different versions of it.
+- None of the films I've done was designed for a mass audience, except for 'Indiana Jones.' Nobody in their right mind thought 'American Graffiti' or 'Star Wars' would work.
+- I'm one of those people who says, 'yes, cinema died when they invented sound.'
+- I loved photography and everybody said it was a crazy thing to do because in those days nobody made it into the film business. I mean, unless you were related to somebody there was no way in.
+- Storytelling is about two things; it's about character and plot.
+- You can't do it unless you can imagine it.
+- A director makes 100 decisions an hour. Students ask me how you know how to make the right decision, and I say to them, 'If you don't know how to make the right decision, you're not a director.'
+- I am a giant proponent of giant screens. But I accept the fact that most of my movies are going to be seen on phones.
+- When you are a beginning film maker you are desperate to survive. The most important thing in the end is survival and being able to get to your next picture.
+- Working hard is very important. You're not going to get anywhere without working extremely hard.
+- Film is a very tight little box. If you don't fit in that box, you're gone. Television, there's more room to move around.
+- Even in high school I was very interested in history - why people do the things they do. As a kid I spent a lot of time trying to relate the past to the present.
+- I've always been a follower of silent movies. I see film as a visual medium with a musical accompaniment, and dialogue is a raft that goes on with it.
+- Whenever you do something, people try to re-do it and do a better version, especially if they're in another country.
+- I was going to go to a four-year college and be an anthropologist or to an art school and be an illustrator when a friend convinced me to learn photography at the University of Southern California. Little did I know it was a school that taught you how to make movies! It had never occurred to me that I'd ever have any interest in filmmaking.
+- If the boy and girl walk off into the sunset hand-in-hand in the last scene, it adds 10 million to the box office.
+- I live a reasonably simple life, off the beaten track.
+- If you really love films, and you really want to get the full impact, there's a huge difference between watching something on a small screen with a mediocre sound system and watching it on a giant screen in a giant theater with a huge beautiful sound system. I mean, the difference is electric.
+- Digital technology is the same revolution as adding sound to pictures and the same revolution as adding color to pictures. Nothing more and nothing less.
+- Changes are not unusual - I mean, most movies, when they release them, they make changes. But somehow, when I make the slightest change, everybody thinks it's the end of the world.
+- All art is dependent on technology because it's a human endeavour, so even when you're using charcoal on a wall or designed the proscenium arch, that's technology.
+- The secret to film is that it's an illusion.
+- I realized why directors are such horrible people - in a way - because you want things to be right, and people will just not listen to you, and there is no time to be nice to people, no time to be delicate.
+- I wanted to race cars. I didn't like school, and all I wanted to do was work on cars. But right before I graduated, I got into a really bad car accident, and I spent that summer in the hospital thinking about where I was heading. I decided to take education more seriously and go to a community college.
+- Film is not an easy occupation. There's a lot of occupations that are difficult and film is one of them.
+- Everybody has talent, it's just a matter of moving around until you've discovered what it is.
+- 'Star Wars' is fun, its exciting, its inspirational, and people respond to that. It's what they want.
+- Whatever has happened in my quest for innovation has been part of my quest for immaculate reality.
+- A film is sort of binary - it either works or it doesn't work. It has nothing to do with how good a job you do. If you bring it up to an adequate level where the audience goes with the movie, then it works, that is all.
+- To be renewed is everything. What more could one ask for than to have one's youth back again?
+- When I was making 'Star Wars,' I wasn't restrained by any kind of science. I simply said, 'I'm going to create a world that's fun and interesting, makes sense, and seems to have a reality to it.'
+- I've come to the conclusion that mythology is really a form of archaeological psychology. Mythology gives you a sense of what a people believes, what they fear.
+- Good luck has its storms.
+- The secret to the movie business, or any business, is to get a good education in a subject besides film - whether it's history, psychology, economics, or architecture - so you have something to make a movie about. All the skill in the world isn't going to help you unless you have something to say.
+- Everyone seems to think that digital technology devoids the medium of content, but that is not true at all. If anything, it broadens the content.
+- The story being told in 'Star Wars' is a classic one. Every few hundred years, the story is retold because we have a tendency to do the same things over and over again. Power corrupts, and when you're in charge, you start doing things that you think are right, but they're actually not.
+- 'American Graffiti' was unpleasant because of the fact that there was no money, no time, and I was compromising myself to death.
+- There should be a point to movies. Sure, you're giving people a diversion from the cold world for a bit, but at the same time, you pass on some facts and rules and maybe a little bit of wisdom.

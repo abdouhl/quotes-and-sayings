@@ -1,0 +1,104 @@
++++
+author = "Naga Chaitanya"
+title = "Naga Chaitanya Quotes"
+quotes_len = "98"
+description = "the best 98 Naga Chaitanya Quotes"
++++
+- I feel that, irrespective of a hit or flop, there's always pressure on an actor. When you give a flop, there's a pressure to ensure that the next film works, and when you give a hit, you want to keep it going. So, the pressure of success and failure is always there, and that's what keeps me going.
+- Going to a gym or playing a sport should not be mechanical. There should be an emotional attachment to it.
+- Your work should do the talking and define who you are. That's the mantra I follow.
+- Pooja Hegde is not only a good actress but also very hardworking.
+- I'm a very private person, and I never felt the need to speak about my relationship in public.
+- I don't like to mix my personal and professional life. Both are different, and I don't mix it.
+- I want to make every film different from my previous one.
+- Both Dad and Granddad treat me like a friend.
+- 'Manam' will always be close to my heart, and I will cherish the the memories of shooting with my grandfather all my life.
+- There is no safe zone now: whether it's commercial or experimental films, the audience wants content. Otherwise, they reject the film.
+- I am happy that two newcomers are being introduced with 'Vaisakham.' New talent bode well for the industry, as they bring refreshing content.
+- I always cooperate to complete a film within the budget. Not a single film of mine has overshot its budget.
+- I think I did experimental roles too early in my career.
+- I'd love for Samantha to continue acting after our marriage. She has worked hard to achieve her stardom. Unlike me, she had no family empire to back her career in Telugu cinema.
+- Most of my time is in front of the camera, so the little time that I get is mine alone.
+- I have been able to balance work and my personal life, and with the presence of a partner, I am stronger and better prepared to face the ups and downs.
+- I really liked 'Premam,' and when we decided to remake it, our intention was never to make a better film.
+- Whether between family members or others, there should be a competition. Without that healthy competition, it is impossible to grow as actors.
+- We fell in love during the making of 'Ye Maaya Chesave' in 2009, and the love affair continued very well in the following years. I was, however, delaying revealing to my parents about my love affair despite Sam's insistence. One day, when we were chatting casually, Sam threatened to tie a 'rakhi' on me if I didn't tell about the love to my parents.
+- I'm interested to branch out to Tamil because I know the language. If Bollywood happens, it will be a bonus, but I'm not working towards a career in it.
+- My father's only advice is to 'do what makes you happy,' and I follow it religiously.
+- My holidays in Hyderabad would be spent on films sets visiting my father and uncle, or in the studios; I was gradually drawn to films.
+- Action movies haven't been encouraging in my case. Nevertheless, this is my favourite genre.
+- The Tamil industry has a huge market and already has many talented actors. So, making a mark in Kollywood is not easy. I will have to choose the right script and do it the right way.
+- I take criticism positively, and I keep trying to develop as an actor.
+- I always feel pleasure while introducing new talent.
+- Audiences like me in soft, romantic roles, and 'Premam' ticks all the boxes.
+- Dad has been my guiding force. Whenever I am confused about choosing a script, I discuss it with him. However, I have said 'no' to scripts he agreed to, while he has said 'yes,' too, for scripts I have turned down. We have this mutual understanding that works between us.
+- I believe failures are very important in any person's growth. I've learnt what not to do from them.
+- Oh, it is a boon to have a lineage like mine. Of course there's additional responsibility, and I have to live up to expectations all the time, but that's fine with me.
+- I love fresh ideas and want to do films which offer something new.
+- I'm not very particular about the commercial angle in my films, but entertainment is very important.
+- As an actor, it's really important for me to improve my work, and I take criticism in a positive sense.
+- For me, every other actor is a threat, and it makes me work hard.
+- I was class VI or VII when I had a crush on a girl, and I thought this is the girl I'd marry. When you're so young, you are crestfallen when things don't turn out your way and think it's the end of the world.
+- I love taking my bike for a spin during my free time.
+- I want to do sensible films.
+- After I met Ajay Bhuyan, we thought of making the English TV show 'Prison Break' as a Telugu film. Ajay put it all down, but somehow, we felt it would not work. Then 'Dhada' emerged.
+- Wherever I go, I'm asked about my marriage. I believe this phase, where people constantly want to know about my marriage, it won't last long. Let me enjoy while it lasts.
+- I believe in films that have logic behind every emotion or action.
+- I love 'Swamy Ra Ra' movie and I wanted to act in Sudheer Varma's direction after watching that film.
+- My father doesn't like to promote me every time, and he wants me to build my own image.
+- I can't differentiate between mass and class films.
+- Love is an eternal feeling, and it is nothing wrong if you are in love with someone. I'm always in love, whether it is with my parents, with my friends, or with myself.
+- Every moment shooting for 'Manam' has been very special.
+- I tried my hand in action films, and now I am back to love stories, as people like to see me as a lover boy! But as an actor, I want to try all genres.
+- I never had many girls in my life.
+- I want to be known as an actor who can do all kinds of roles.
+- When 'Ye Maaya Chesaave' released, there were no expectations. With '100% Love,' I felt, 'Oh my God, it has to work.'
+- I learn everything with my every film. If we stop learning, we would stop growing as an actor.
+- My father is definitely the inspiration behind working with new directors.
+- If you like working out in a gym over playing a sport, then you should go ahead and do it. It is about what your mind has a liking towards.
+- I think Grandad's demise brought our family closer. He has been such a great personality and inspiration to us.
+- To survive in this industry, you need to prove yourself. Stardom follows.
+- I prefer hanging out with my small group of friends, maybe head to the beach once in three months, pursue my hobbies, and just be happy with the small joys of life.
+- I was 19 or 20 when I was confused whether to take up films as a career. At that juncture, I enrolled in an acting workshop and then eventually realised I was destined to be in films.
+- Production-wise, it is difficult to shoot an entire film in the U.S. It's logistically difficult, as getting permission takes time, and it is also expensive to shoot there.
+- There's absolutely no doubt that I enjoy doing romantic films more, and they've worked for me, too. But I love doing action as well.
+- In most Telugu families, marriage is a union of two families, and 'Rarandoi Veduka Chuddam' presents conflicts from that aspect.
+- Our idea to remake the Malayalam 'Premam' was not to make a better film than the original film or correct the mistakes they made or perform better than that hero. The soul of the Malayalam movie was taken and changed a bit to match with the Telugu sensibilities so that our audience can enjoy the movie.
+- It's time for Telugu cinema to make its presence felt.
+- My father and my grandfather always watch my films and share their feedback with me. It helps me a lot in my own career.
+- I'm calm and composed, and I don't expect a lot from anyone.
+- To me, love is everything. I can't think of living without it happily. Only when it's there in my life do things happen smoothly for me.
+- A box-office number is good for a producer and the industry to keep the turnover game on, but as an actor, I give importance to script. I will turn down a script, even if it guarantees Rs. 100 crore, when I'm not convinced with it.
+- Akkineni fans are the best.
+- I wasn't very good at studies but was into a lot of extra-curricular activities. I used to play the keyboard and bass guitar in my school band and went on to study keyboard from Trinity College, London.
+- It's true that love stories are my comfort zone, and the result that 'Premam' got has only boosted my confidence in trying films of this genre.
+- My father said, 'How many days can I promote your film? You need to get your own recognition and your own identity. I can't be there always. So do it yourself.' So now I work on promotion, and he steps in to help just before the release.
+- 'Sailaja Reddy Alludu' bears similarity to my father's film 'Allari Alludu,' and it's a fun family entertainer.
+- Usually, I prefer not to clarify anything that is being talked about me, but when it goes out of limits, I reply.
+- My mother was very strict, and though I was reserved, I did give in to certain demands of my age, like sneaking out of the house to hit Dublin.
+- 'Savyasachi' has got all the essential elements. This is an all-rounder movie. So many girls have called me up during the making of this movie. Never before did I receive those many calls from girls.
+- All producers and directors want to make good films.
+- Coming from Akkineni family, I could say I was drawn into cinema, but nobody forced me to become an actor.
+- I wanted to do action, and it was a bit irritating when people called me a chocolate boy. I can do other films, too.
+- I wish that 'Damarukam' will be a huge hit.
+- I'm not a social guy. I don't like the constant media glare on everything I do.
+- I am happy to be acting with my wife.
+- It makes sense for an actor to space out his releases. But filmmaking is unpredictable.
+- After starting with 'Premam,' asking director Chandoo Mondeti to do a remake was a mistake because he has much more potential and creative ability to direct.
+- No matter what kind of film audiences pay money to watch, they definitely expect to be entertained. They want to forget the outside world and have a good laugh while watching a movie.
+- I have no qualms approaching directors who I know will help me grow as an actor.
+- When it comes to scripts, I take a critical look at them and then sound it off with Dad.
+- Off screen, I am a very shy person, and I want to keep my personal life completely personal.
+- After my marriage, I feel stronger and confident to do anything.
+- Mollywood movies are narrated at their own pace, unlike Telugu movies, which ought to be crisp.
+- My father always watches my films and gives his opinion. I am even ready to reshoot at times if he asks me to.
+- The love for fitness is something I picked up from my dad, and I make it a point not to miss working out.
+- If somebody asks me to choose a biopic, it would be Narain Karthikeyan because I love racing.
+- I have the fear of losing everything. At times, I get these reality checks which make me aware of what a privileged life I lead.
+- I'm not the type who parties regularly. I'm happy sitting at home, cooling my heels.
+- I don't usually prefer over-the-top action.
+- 'Premam' moved me; it was almost like seeing life play out on screen.
+- I don't want to work in heavy duty commercial movies that Tollywood is known for. The audience need characters they can relate to, so my aim is to play such roles.
+- When I told my father about Samantha, he simply laughed and said that he is happy and that he already knew about our love story.
+- I want my work to make news and not my personal life.
+- I've made many career mistakes in the eight years that I've been acting. I did films that I never should have. I was young, inexperienced, and a bit reckless.

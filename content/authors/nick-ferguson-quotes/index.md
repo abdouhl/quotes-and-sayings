@@ -1,0 +1,16 @@
++++
+author = "Nick Ferguson"
+title = "Nick Ferguson Quotes"
+quotes_len = "10"
+description = "the best 10 Nick Ferguson Quotes"
++++
+- As a kid, there are some things you looked forward to. You looked forward to Charlie Brown during Halloween and you looked forward to Monday Night Football.
+- We played a lot of sandlot ball, so we were used to tackling each other, or falling on the concrete, things of that nature. And nine times out of 10, our flag games turned into tackle anyway. So when I got to high school, tackle football was kind of natural.
+- The career isn't guaranteed for as long as you might want to play.
+- My dad was a longshoreman in the Port of Miami. Tough job. I worked down there in the summer once. One day. Never again. My dad was a no-nonsense guy. As a kid, I hated his rules, but as a man, I understand what he was teaching. He taught me you have to work hard for everything you get.
+- Like most athletes, I like to go home and relax. I try not to bring the game home with me. I might play some video games that are, let's just say, for mature audiences only. And I might get some flak for this, but I like to watch 'Seinfeld.' Sometimes, laughter is the best medicine.
+- I expected to get drafted. I knew that I wouldn't get drafted on that first day due to the fact that not a lot of people had the opportunity to see me play much.
+- When I was in high school, my mom hated football. But then, the more I played, the more it grew on her. This game has done a lot for my family - not just from a financial standpoint, but it also helped bring my family together.
+- I remember bumming rides across town to Georgia Tech, trying to get myself registered, trying to apply for financial aid, trying to get their coaches to watch my film.
+- It's always great when a defense is able to create turnovers and score. That's something we missed last year. We'd get some turnovers, but we never scored points.
+- My mom didn't let me play tackle until I was in high school. She didn't want me to get hurt.

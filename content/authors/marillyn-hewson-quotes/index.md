@@ -1,0 +1,33 @@
++++
+author = "Marillyn Hewson"
+title = "Marillyn Hewson Quotes"
+quotes_len = "27"
+description = "the best 27 Marillyn Hewson Quotes"
++++
+- The best candidates make a strong case for themselves. They can clearly articulate why they are the best choice for the job - and they can tell me what unique qualities they bring that no one else can offer.
+- My mother did what all great leaders do: She sparked the growth of future leaders.
+- My role at Lockheed Martin puts me in contact with extraordinary leaders in many fields - from science and engineering to philanthropy and government. And since we also work closely with our nation's armed forces, we tend to reflect a lot on leadership and how we can inspire successful teamwork, cooperation, and partnerships.
+- As we consume more than ever, climate change is accelerating as well. In fact, we know that 2014 was the hottest year in human history. These pressures combine to create real threats to security and stability around the world.
+- I do work hard, but I have a passion for work. That's just who I am.
+- My parents met at Fort Riley, Kan., during World War II. My father was an Army civilian; he had been trampled by a horse in his youth and couldn't enlist. My mother was studying to be a nurse and, when war broke out, joined the Women's Army Corps without even telling her parents.
+- My job is to make sure that as our customers' priorities change, as the environment changes, we shift that portfolio of products to meet them.
+- Since his election, President Trump has made clear that he and his administration will be focusing on ensuring that the government is a smart buyer, getting the most for the taxpayer's dollar.
+- I certainly want to continue to be a role model. But I don't think it's necessarily about being a female in our business. I think it's about... my track record, my results.
+- The mission we are about is something that truly energises me. I feel that at Lockheed Martin we have the opportunity to make a difference... supporting men and women fighting for our peace and freedom.
+- Elected leaders in government and our men and women in uniform face a range of unprecedented challenges and pressures that demand innovative solutions.
+- Good leaders organize and align people around what the team needs to do. Great leaders motivate and inspire people with why they're doing it. That's purpose. And that's the key to achieving something truly transformational.
+- Candidates need to demonstrate strategic thinking and strong problem solving skills. And, just as importantly, they need to know when and how to ask for help.
+- In times of uncertainty, employees crave clarity. As a leader, you won't always have all of the answers - no one expects you to - so you must be open to listening and learning from others. Once you understand a particular challenge and outline the options, you have to be confident in making bold and optimistic decisions.
+- You can't forget that organizational success flows from the hearts and minds of the men and women you lead. Rather than treating your people as you'd like to be treated, treat them as they would like to be treated. Small gestures like opting for face-to-face meetings or sending personal notes can have an enormous impact on teams and their morale.
+- Sometimes, my self-doubt became self-limiting.
+- If you look at the global security environment and how challenging and crazy that is, and it's our products that are going to help with that, I think we're a great growth story. As I look at companies in our industry, I'd bet on us.
+- I was 9 years old when my father - a strong, vibrant man in his early 40s - died of a heart attack. He was such a central figure in our lives that losing him was a terrible shock to all of us, my mother in particular.
+- If you were just to look at Lockheed Martin, you'd see a lot of women in senior roles in our company and, not only that, our customers, so I don't consider it an old boys' club.
+- Leaders have to see past problems to solutions, and my mother excelled at just that.
+- The best employees are those who bring real energy and initiative to the job. I like to know whether you're the kind of person who can set priorities, take initiative, and drive results right from the beginning.
+- If you look at the pipeline of women moving up through the organisation, it's a matter of time and experience that they develop and performance that allows them to move into senior levels.
+- President Trump recognizes that the F-35 is a very large program - the largest program in the Department of Defense. He wants to make the sure that the American taxpayer is getting the lowest possible cost on the program.
+- I remembered the times I'd second-guessed myself or questioned my own ability. The times when a little voice in my head worried that I didn't have the know-how or the experience to reach for an exciting opportunity.
+- I have been in this business for over 30 years. I've seen a lot of development programmes. They don't all run smoothly.
+- Leaders must exemplify integrity and earn the trust of their teams through their everyday actions. When you do this, you set high standards for everyone at your company. And when you do so with positive energy and enthusiasm for shared goals and purpose, you can deeply connect with your team and customers.
+- When the first American steps on the red dust of Mars, it's going to be because of computer scientists.

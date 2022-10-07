@@ -1,0 +1,35 @@
++++
+author = "Michael Steele"
+title = "Michael Steele Quotes"
+quotes_len = "29"
+description = "the best 29 Michael Steele Quotes"
++++
+- I'm a pro-life Roman Catholic conservative, always have been.
+- We don't need to allow any more Nancy Pelosies to wind up in Congress.
+- The reality of it is I think the GOP - Republicans and certainly conservatives - will partner with the Tea Party movement around this country.
+- I respect Rush Limbaugh; he is a national conservative leader, and in no way do I want to diminish his voice.
+- We have a lot to gain through furthering stem cell research, but medical breakthroughs should be fundamentally about saving, not destroying, human life. Therefore, I support stem cell research that does not destroy the embryo.
+- My style is a little bit different than most conventional Republican Party chairmen. My style is more grass roots-oriented. I'm much more of a street guy. I love hanging out in boardrooms, but I prefer to be in neighborhoods and communities.
+- We are a grassroots party. We always have been. That's been the strength of the GOP.
+- My view on politics is much more grassroots oriented; it's not old boy network oriented, so I tend to, you know, come at it a little bit stronger, a little bit more street-wise, if you will. That's rubbed some feathers the wrong way.
+- You know, conservatism is not a bad thing. It's not a pejorative.
+- We are cooling. We are not warming. The warming you see out there, the supposed warming, and I use my finger quotation marks here, is part of the cooling process.
+- The bottom line is, I hear my donors, I hear our base out there, I hear the leadership. And we're taking steps to make sure that we're even more - how shall we say it - fiscally conservative in our spending and certainly making sure the dollars are there when it's time to run our campaigns.
+- Congress must also enact pro-growth policies that encourage the economy to expand: like making tax relief permanent and repealing the death tax.
+- You know, when we get to a point in this country where dissent is extremism, we've turned, I think, a very dark page in our history. And I don't want us to go there. I encourage Americans and I'm - right now, to go to these town hall meetings, to - to talk to your Congressmen, the people that you elected.
+- Tax policy is not about compassion.
+- Rush Limbaugh is an entertainer. Rush Limbaugh's whole thing is entertainment. Yes, it is incendiary. Yes, it is ugly.
+- We need to increase access to health insurance through Health Savings Accounts and high deductible policies, so individuals and families can purchase the insurance that's best for them and meets their specific needs.
+- Let's focus on how we can take someone who is being poorly educated in an American public school and how they are poorly trained for a job, and put in place those opportunities for them to get that education, give their parents choice in education, make it real for them.
+- I was born in D.C. on 8th Street. I know what's up. I know what time it is. I used to hang out in Brooklyn and in the Bronx as a teenager. I know what the real world is like.
+- We want to convey that the modern-day GOP looks like the conservative party that stands on principles. But we want to apply them to urban-suburban hip-hop settings. We need to uptick our image with everyone, including one-armed midgets.
+- There is no struggle, rift, fight between those who claim the banner of the tea party and those who are in the Republican Party. We work together.
+- You can have all the gun control laws in the country, but if you don't enforce them, people are going to find a way to protect themselves. We need to recognize that bad people are doing bad things with these weapons. It's not the law-abiding citizens, it's not the person who uses it as a hobby.
+- George Bush created lots of jobs.
+- At the end of the day, I have one job requirement right now that's been given to me by the Republican Party and, I think, the American people, and that's to fire Nancy Pelosi.
+- Just because a black man is running the RNC doesn't mean black folks are going to, 'Oh, OK, I will be a Republican.' Just as with the election of President Obama. All the problems and concerns that are very important to African Americans don't get solved overnight.
+- Look, not everybody plays well with each other on the playground. I get that, that's politics.
+- There's room in the Republican Party for anyone who wants to be a part of the values that we espouse when it comes to the role of government, free enterprise, free markets.
+- Secure our borders first. Let us know and let us make sure the American people know that we're taking care of the important business of dealing with the illegal immigration into this country. You cannot begin to address the concerns of the people who are already here unless and until you have made certain that no more are coming in behind them.
+- The federal government has never created one job that is sustainable long term. It creates government project work but not creating real work where people are.
+- In order to achieve optimal economic growth, Congress must adhere to sane spending guidelines while promoting smart policies devoted to growing businesses and creating jobs.

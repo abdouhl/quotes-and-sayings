@@ -1,0 +1,25 @@
++++
+author = "Michael Badnarik"
+title = "Michael Badnarik Quotes"
+quotes_len = "19"
+description = "the best 19 Michael Badnarik Quotes"
++++
+- Gun control means being able to hit your target. If I have a 'hot button' issue, this is definitely it. Don't even think about taking my guns. My rights are not negotiable, and I am totally unwilling to compromise when it comes to the Second Amendment.
+- The first lines of defence against criminals are the victims themselves.
+- Government is necessary for our survival. We need government in order to survive. The Founding Fathers created a special place for government. It is called the Constitution.
+- The Libertarian position on immigration is to have, not open borders with no restrictions, but to have controlled borders that allow hard-working people to come into America to help raise their standard of living and improve the American economy.
+- I don't know that the Libertarian Party has an official position on the separation of church and state.
+- The government never does anything successfully.
+- NAFTA and GATT have about as much to do with free trade as the Patriot Act has to do with liberty.
+- If we really want liberty - if we really want liberty - then we need to go out and get it, we need to take it, because nobody is going to give it to us. And we need to do it now.
+- I am opposed to any individual taxes until we eliminate all of the unconstitutional agencies, and I suspect we wouldn't need a tax after that.
+- I find it very offensive when the government tells me what I can and cannot watch. Censor yourself.
+- Gun bans disarm victims, putting them at the mercy of murderers or terrorists who think nothing of breaking the gun laws.
+- On average, drug prisoners spend more time in federal prison than rapists, who often get out on early release because of the overcrowding in prison caused by the Drug War.
+- Communities don't have rights. Only individuals in the community have rights.
+- I just want everyone to know that 20,000 gun laws in the United States are unconstitutional. They infringe on your right to protect your life, the lives of your loved ones, and your property.
+- The Libertarian position on the freedom of speech is a strong support of freedom of speech, and we oppose government intervention in controlling what is or is not moral.
+- War doesn't need more participants. It needs fewer participants.
+- When the state or federal government control the education of all of our children, they have the dangerous and illegitimate monopoly to control and influence the thought process of our citizens.
+- The Libertarian Party holds that same-sex marriages are an individual issue and that the government has no right to determine with whom a person should have a relationship.
+- The question is: how bad do things have to get before you will do something about it? Where is your line in the sand? If you don't enforce the constitutional limitations on your government very soon, you are likely to find out what World War III will be like.

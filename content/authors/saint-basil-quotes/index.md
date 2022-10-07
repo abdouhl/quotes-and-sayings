@@ -1,0 +1,41 @@
++++
+author = "Saint Basil"
+title = "Saint Basil Quotes"
+quotes_len = "35"
+description = "the best 35 Saint Basil Quotes"
++++
+- Every evil is a sickness of soul, but virtue offers the cause of its health.
+- Does not the gratitude of the dog put to shame any man who is ungrateful to his benefactors?
+- In truth, to know oneself seems to be the hardest of all things. Not only our eye, which observes external objects, does not use the sense of sight upon itself, but even our mind, which contemplates intently another's sin, is slow in the recognition of its own defects.
+- Many a man curses the rain that falls upon his head, and knows not that it brings abundance to drive away the hunger.
+- Liberated from the error of pagan tradition through the benevolence and loving kindness of the good God with the grace of our Lord Jesus Christ, and by the operation of the Holy Spirit, I was reared from the very beginning by Christian parents. From them I learned even in babyhood the Holy Scriptures which led me to a knowledge of the truth.
+- There is nothing unpremeditated, nothing neglected by God. His unsleeping eye beholds all things.
+- No one who is in this world will deny that evils exist. What, then, do we say? That evil is not a living and animated substance, but a condition of the soul which is opposed to virtue and which springs up In the slothful because of their falling away from good.
+- Not the power to remember, but its very opposite, the power to forget, is a necessary condition for our existence.
+- Any one who chooses will set up for a literary critic, though he cannot tell us where he went to school, or how much time was spent in his education, and knows nothing about letters at all.
+- Among irrational animals the love of the offspring and of the parents for each other is extraordinary because God, who created them, compensated for the deficiency of reason by the superiority of their senses.
+- Just as we would have no need of the farmer's labor and toil if we were living amid the delights of paradise, so also we would not require the medical art for relief if we were immune to disease, as was the case, by God's gift, at the time of Creation before the Fall.
+- Strive to attain to the greater virtues, but do not neglect the lesser ones. Do not make light of a fall even if it be the most venial of faults; rather, be quick to repair it by repentance, although many others may commit a large number of faults, slight and grievous, and remain unrepentant.
+- Do not measure your loss by itself; if you do, it will seem intolerable; but if you will take all human affairs into account you will find that some comfort is to be derived from them.
+- Men whose sense of taste is destroyed by sickness, sometimes think honey sour. A diseased eye does not see many things which do exist, and notes many things which do not exist. The same thing frequently takes place with regard to the force of words, when the critic is inferior to the writer.
+- Whatever requires an undue amount of thought or trouble or involves a large expenditure of effort and causes our whole life to revolve, as it were, around solicitude for the flesh must be avoided by Christians.
+- It is impious to say that evil has its origin from God, because naught contrary is produced by the contrary. Life does not generate death, nor is darkness the beginning of light, nor is disease the maker of health, but in the changes of conditions there are transitions from one condition to the contrary.
+- All who call the Holy Ghost a creature we pity, on the ground that, by this utterance, they are falling into the unpardonable sin of blasphemy against Him.
+- What is the benefit of fasting in our body while filling our souls with innumerable evils? He who does not play at dice, but spends his leisure otherwise, what nonsense does he not utter? What absurdities does he not listen to? Leisure without the fear of God is, for those who do not know how to use time, the teacher of wickedness.
+- If men are in a state in which they find it hard to be weaned from their own ways and choose rather to serve the pleasures of the flesh than to serve the Lord, and refuse to accept the Gospel life, there is no common ground between me and them.
+- As we were baptized, so we profess our belief. As we profess our belief, so also we offer praise. As then baptism has been given us by the Savior, in the name of the Father and of the Son and of the Holy Ghost, so, in accordance with our baptism, we make the confession of the creed, and our doxology in accordance with our creed.
+- God who created us has granted us the faculty of speech that we might disclose the counsels of our hearts to one another and that, since we possess our human nature in common, each of us might share his thoughts with his neighbor, bringing them forth from the secret recesses of the heart as from a treasury.
+- He who confesses magic or sorcery shall do penance for the time of murder, and shall be treated in the same manner as he who convicts himself of this sin.
+- We glorify the Holy Ghost together with the Father and the Son, from the conviction that He is not separated from the Divine Nature; for that which is foreign by nature does not share in the same honors.
+- Now, if you notice how the swan, putting its neck down into the deep water, brings up food for itself from below, then you will discover the wisdom of the Creator, in that He gave it a neck longer than its feet for this reason, that it might, as if lowering a sort of fishing line, procure the food hidden in the deep water.
+- We do not accost a physician as we do any mere nobody; nor a magistrate as we do a private individual. We try to get some advantage from the skill of the one and the position of the other. Walk in the sun, and your shadow will follow you, whether you will or not.
+- The woman who purposely destroys her unborn child is guilty of murder. With us there is no nice enquiry as to its being formed or unformed.
+- Do not despise the fish because they are absolutely unable to speak or to reason, but fear lest you may be even more unreasonable than they by resisting the command of the Creator. Listen to the fish, who through their actions all but utter this word: 'We set out on this long journey for the perpetuation of our species.'
+- By nature, men desire the beautiful.
+- Good masters teach good doctrine, but that taught by evil masters is wholly evil.
+- A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
+- To lovers of the truth, nothing can be put before God and hope in Him.
+- We men are easily prone to sins of thought. Therefore, He who has formed each heart individually, knowing that the impulse received from the intention constitutes the major element in sin, has ordained that purity in the ruling part of our soul be our primary concern.
+- First and foremost, the monk should own nothing in this world, but he should have as his possessions solitude of the body, modesty of bearing, a modulated tone of voice, and a well-ordered manner of speech. He should be without anxiety as to his food and drink, and should eat in silence.
+- All of us who desire the kingdom of God are, by the Lord's decree, under an equal and rigorous necessity of seeking after the grace of Baptism.
+- Indulging in unrestrained and immoderate laughter is a sign of intemperance, of a want of control over one's emotions, and of failure to repress the soul's frivolity by a stern use of reason.

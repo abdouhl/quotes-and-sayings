@@ -1,0 +1,39 @@
++++
+author = "Josh Lucas"
+title = "Josh Lucas Quotes"
+quotes_len = "33"
+description = "the best 33 Josh Lucas Quotes"
++++
+- Always do something different. Always different things.
+- New York has got this sort of wonderful romantic idea of the South.
+- I think that often times Hollywood panders to the cliches of small town life, specifically Southern small town life, and I think that this movie does the opposite.
+- I had friends of mine tell me they had a baby, and I didn't even know they were pregnant.
+- I got so used to being unstable that I started to only be comfortable being unstable.
+- I think actors become jacks-of-all-trades and masters of none.
+- It was a long period of time where I tried to figure out what worked, what didn't work.
+- At a certain point, even if the one alpha male is dominant, at a certain point there's a younger lion that is stronger, and everyone knows it.
+- Comedy is so hard; it's so much harder than drama. The pacing of it, the energy of it.
+- Wrap parties can be really sad, actually, disorienting.
+- So when we finally settled down outside of Seattle I felt totally uncomfortable with that idea.
+- There's such good people out there where there filmmaking world is alive.
+- Once everyone else around you starts to become incredibly comfortable - if anything, quite happy with what you are doing - then I start to settling in and trusting all those choices that I've made up to that point.
+- I love how people in this business push themselves to know themselves, the world, and their creativity better.
+- No, well, my father's definitely not Christopher Walken.
+- Every day is intense and alive, whether it's travel, work, even down time, which there is so little of.
+- It's funny, but we were living on this small island off the coast of Charleston, South Carolina when I was 9.
+- My nomadic childhood dramatically fed my eventual decision to be an actor, but not in the way you might think.
+- When I was on that boat, I realized the only way I would feel creatively challenged was if I totally changed everything about my environment and put myself in a storm, in a sense.
+- I had a Southern accent but I had broken it so hard.
+- I've worked with some incredibly difficult directors but my understanding is that a lot of the best people are driven from a place of being extremely challenging and dark within their way.
+- I'm right at a time when I'm strongly finding my identity inside of my work.
+- I'm challenged by people like Russell Crowe and Sean Penn who come in with such incredible discipline and power.
+- My instincts are not comedic.
+- I love experiencing other people's realities, seeing the world through their eyes for a short period of time.
+- I visited those friends who'd just had a baby, and she was washing dishes and he was cleaning the house, and I burst with happiness. And in their minds, they were in this terrible domestic rut.
+- I'll look at the script and I'll try to find as many books, movies, and pieces of music that I think are going to feed each scene or the character as a whole.
+- I want to be so strong as an actor that people wouldn't say... eh, that's Josh Lucas.
+- On A Beautiful Mind, there was a wall of math.
+- The Hulk, that was the experience of my life, so far.
+- This fear of death infused me with the desire to live, and to live harder.
+- It's the South that maintains the idea that they're different, which is interesting because nobody else really cares.
+- I think I've spent so much time playing characters that are so far away from me and learning how to technically build and how to technically put something on top of you.

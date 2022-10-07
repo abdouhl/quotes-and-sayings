@@ -1,0 +1,103 @@
++++
+author = "Nick Harkaway"
+title = "Nick Harkaway Quotes"
+quotes_len = "97"
+description = "the best 97 Nick Harkaway Quotes"
++++
+- My scientific qualifications are relatively scant. I like science. I try really hard to educate myself about it, but in the end, if something has to go 'boom,' and it would probably only go 'fwoosh,' I am relatively unconcerned about that, which is a sin, but not, I think, a grave one.
+- At the heart of both democracy and capitalism is a simple assumption that, across the board, people make free and relatively rational decisions: that we are, to borrow a medical term, Gillick Competent.
+- I studied revolutions at university, and I think each revolution must begin with a moment of 'no.' If enough people have that moment at the same time, it becomes a movement.
+- Prize lists are out, and you're not on them? Nature of the world - means nothing. Prizes are a lottery.
+- Steampunk appeals to the idea of uniqueness, to the one-off item, while every mainstream consumer technology of recent years is about putting human beings into ever more granular, packageable and mass-produced identities so that they can be sold or sold to, perfectly mapped and understood.
+- Revolutions come in two stages: the bit where everything gets smashed and the bit where you have to build it again. The first is great fun; the second is so very hard.
+- Professional politicians will say anything, and they're always careful to leave themselves room to turn around and do the other.
+- I grew up on the Roger Moore and Sean Connery Bond movies, so the DNA of my spies is extremely ridiculous and goofy.
+- We need to differentiate between commercial piracy - where criminal organisations produce illicit DVDs on a huge scale - and domestic, unauthorised filesharing, which may or may not be detrimental to overall sales.
+- If you ask who I aspire to, well, if a single line of mine was as funny as P. G. Wodehouse can be, that would be great.
+- I read my father's books growing up. I thought then and I still think now that his writing is wonderful. It delights and infuriates me in equal measure that he's still that good.
+- I am the world's most appalling martial artist. I am so bad. I've studied jujitsu, kickboxing, t'ai chi. Once, I was sparring with someone, made a mistake, and managed to knock them down. I was so shocked that I dropped to my knees to see if they were all right, and then they knocked me out cold. From the floor.
+- In abandoning the understanding that things - services, goods, wars, and houses - have costs, we risk becoming infantilised, incapable of making decisions about government or finance, and perhaps above all about the environment, the wellbeing of the planet upon which we depend and which our children will inherit from us.
+- Margaret Thatcher inherited a country in transition. The British Empire was still a considerable entity well into the 20th century.
+- When the time comes to work, I work.
+- My books are written from the heart, to entertain: they're books I would like to read. Because of that, when I meet people who like them, we have so much to talk about!
+- An important part of the Internet is that it provides a space for people whose identities are socially unacceptable. If it enables someone who feels minoritised to be who they want to be, it's actually worth having other people be offensive. I'd much rather have both than have neither.
+- I'm not shy, exactly, but I am private. I don't like to talk about myself. I had to learn - I was interviewed for print, radio and even TV.
+- In a novel, even if you put a country in the wrong hemisphere, which I've done, I can always claim it was part of the additional weirdness of the story.
+- The great thing is to have been surrounded by stories all my life.
+- The idea that the law should punish what is rude; that government should protect our tender sensibilities from those who would - quite often with shallow motivations but sometimes with deeper and more serious complaints - challenge our national certainties and rituals, should alarm and anger us.
+- Whether you're choosing for yourself or for a character - or for a child - names have baggage of their own.
+- Digital books are still painfully ugly and weirdly irritating to interact with. They look like copies of paper, but they can't be designed or typeset in the same way as paper, and however splendid the cover images may look on a hi-res screen, they're still images rather than physical things.
+- Booksellers are tied to publishing - they need conventional publishing models to continue - but for those companies, that's not the case. Amazon is an infrastructure company; Apple sells hardware; Google is really an advertising company. You can't afford as a publisher to have those companies control your route to market.
+- I work in our living room, a strange room in a strange, topsy-turvy house. I work underneath this enormous bookshelf.
+- We have a curious relationship with 'funny' in the U.K. We love to laugh, but we also think that making people laugh is just a little bit second-tier, especially in a literary context.
+- My dad and I compete on the pool table; that's the most important competition of our lives. The fact that I'm writing and it works for me is one of the great joys for him. We talk about writing, and it's great.
+- Google's library plan was staggering and exciting - it wasn't the idea I objected to, but the method.
+- As I work, I see my writing - each scene, each chapter, each section, each book - in three-act structures and classic myths, and I analyze them through the handy filter of the detective story.
+- The notion of our leaders as patrician ascetics of unassailable virtue is risible.
+- The mainstream of literary culture in the U.K. is very averse to writing about technology.
+- I'm fascinated by human agency - by the process of decision, both in the individual and the mass.
+- Sir Terry Pratchett - he was knighted in 2009, and on him it looked earned rather than entitled - wrote about dragons, wizards, turtles, witches, time-travelling monks, and suitcases with legs.
+- I'm not an absolutist about free speech. Intellectually, I believe that most of the time it's better to let things get said, argue them, and put lies and stupidities to rest. Practically, I know that newspapers rarely issue corrections with the same prominence they give to denouncements - and Twitter, by its nature, never does.
+- Cheese is good. And Britain, despite the grumblings of the French and the outrage of the Swiss, not to mention some plucky challenges from Italy, Austria, and Spain, has some of the best cheese in the world. We're world leaders in cheese.
+- Amazon makes money differently from a conventional publisher. It is an infrastructure player.
+- With true free speech has to come an understanding of when and when not to use it. But you can't legislate that. It must be voluntary - especially in a world where a whisper can reach a million people in an eye blink.
+- My wife runs the charity Reprieve, and so rendition, droning, and capital punishment are very much the topics of our dinner table because of that.
+- Happiness is boundlessly weird. Other people's choices often seem to delight them, where I would run screaming.
+- I'm a novelist: I spend a great part of my day pretending to myself that I'm in a different world, being a different person, faced with decisions I pretend I haven't created.
+- We tend to assume that data is either private or public, either owned by one person or shared by many. In fact there's more to it than that, above and beyond the upsetting reality that private data is now anything but.
+- Peace is not a state - it is a choice, and you have to remake it every day. It's possible to get a sort of stability, a habit of peace, but it's like an egg balanced, spinning, on its point: lose your momentum, and your equilibrium is gone, too.
+- All my characters are me, in one way or another.
+- Yes, you are under surveillance. Yes, it is odious. Yes, it should bother you. And yes, it's hard to know how to avoid it.
+- I never engage negatively with reviewers. If someone says something that enrages me, I do what I do on stage. I make a joke about myself and move on. Sometimes people say things that are manifestly wrong or even apparently malicious. That's fine, too. It's a response.
+- In a social context, digital technology introduces you to neighbours of the mind - people who are separated by distance, but close to you in thought and interest.
+- We simply cannot afford to allow our government to go unscrutinised, most of all in amid the bleak seeming imperatives of the 'war on terror'.
+- Digitisation was supposed to lead to a great democratisation of access to creative work.
+- The market, as we're all painfully aware in the aftermath of the banking crisis, can be an idiot. It has no perception of right or wrong, or even sensible or insane. It sees profit.
+- I wanted a pseudonym partly because I'm quite shy and private. I know that sounds ludicrous, but if I should be lucky enough to make a hit, I wanted to be able to shrug off the mantel of Nick Harkaway when I got home.
+- I wrote the first draft of 'Tigerman' while my wife was pregnant - needless to say, I was relaxed and casual about her well-being during this tender time - and the novel clearly has its center in that panicked parental desperation that accompanies a first child and in the admittedly comedic extremes to which it drives us.
+- I'm a white, middle-aged, married, middle-class male with kids. I couldn't be disenfranchised if I tried.
+- Performance is hard. I know this. I really enjoy it, but I have bombed, I have fluffed, and I have said the wrong thing.
+- I want a politics that doesn't need to pretend to be holy or perfect or infallible. I want a politics that gets on with it.
+- I'm caught somewhere between introversion and extroversion. Performance is natural to me, joyful, but it is also exhausting. I can feed on it, but the expense is high, too, like being a carnivore: I have to chase down my meals.
+- Amazon is a corporation, not a philanthropic trust dedicated to the production of works of art and literature.
+- After university, I went into film. I started out making tea, managed a brief stint as an assistant director, then found myself writing a screenplay. In the end, I wrote quite a few - but by January 2006, I wanted out.
+- In both 'Tigerman' and my first book, 'The Gone-Away World,' there are characters who never really get names. They're too fundamentally who they are to be bound by a name, so I couldn't give them one.
+- Being a parent is weird. It changes people in subtle and unsubtle ways. In my case, it awoke a kind of manic sentinel in my brain. Anything in the house that might be a threat to the kids or to my wife gets terminated - food, sharp edges, poor wiring.
+- In the aftermath of September 11, you can't - as Tony Blair was so fond of suggesting - draw a line under historical events. They don't go away. They come back.
+- We lose stories every day because they drift out of use and into the vast limbo of in-copyright, out-of-print books whose ownership is unclear.
+- Knowledge is not just power - it is control.
+- Victorian theorists competed to identify how many biologically differentiated races lived on Earth and proposed inherent characteristics for them, formulated explanations for these presumed variations in humanity.
+- There is not now, nor I suspect will there ever be, a le Carre novel with ninjas in it. Most serious novelists are wary of including ninjas in their writing. That's a shame, because many much-admired works of modern fiction could benefit from a few.
+- I don't do a lot of research, exactly, but I'm constantly wandering through the world finding things incredible and remembering them.
+- A lot of author events are basically hour-long classes in entropy perched on bad seating under bright, hard lights, with - if you're lucky - bad Chardonnay and cheese on a stick waiting for you at the end of the ride.
+- To my irritation, you still can't flick through an ebook properly; you can't riffle the pages, you can't look at more than one page at once.
+- My reading of history is that we continually inherit trouble.
+- I'm an irredeemable urbanite. I can't imagine living more than a five-minute walk from my fellow human beings. Other people are vital to my peace of mind.
+- The end doesn't justify anything, because all we ever live with is the means.
+- I do public appearances. I'm bluff, hearty, goofy. I wear loud clothes, and I read the funny bits. I occasionally get taken to task for one thing or another, and I acknowledge my fault, my flaw, my failure, and I move on.
+- There's a saying in the movie industry that if your movie is about what you actually think it's about, you're in big trouble. I think it's the same with books.
+- The First World War was a horror of gas, industrialised slaughter, fear, and appalling human suffering.
+- I do not propose that everyone in Guantanamo or its evil twin at Bagram is innocent. I just don't believe we should incarcerate people without trial and torture them or facilitate and profit from their torture.
+- Throughout the '90s and early 2000s, our financial industry and governments leaned on a snake-oil mirage of wealth creation, a bubble predicated on the obvious falsehood that things could only get better.
+- I think lots of boys sat down with 'The Three Musketeers' and felt it was a really long book, but then discovered that it's a really gripping swashbuckling story.
+- We don't need to chase a nostalgic rendering of Britain as it never was and never can be: we need instead an understanding of who we really are and what a happy, prosperous, just nation might look like.
+- We are bodies which think, and we're at home with steampunk because it is an ethos of design and creativity which acknowledges the humanly physical: that which we can understand with our fingers.
+- I'm usually reading too many books - in fact, I'm usually reading enough books that if the stack fell on me, I'd be injured.
+- My family has something of a special relationship with confidence tricks: my grandfather was a professional swindler.
+- In ancient Greece, Socrates reportedly didn't fancy a literate society. He felt that people would lose the capacity to think for themselves, simply adopting the perspective of a handy written opinion, and that they would cease to remember what could be written down.
+- It's true that interacting through text means no eyelines, no facial expressions, no tone of voice. That can be an advantage, helping us to consider content rather than eloquence, import rather than source.
+- 'Gone-Away World' was a shotgun blast, an explosion out of the box I'd put myself into writing film scripts. 'Tigerman' is shorter, tighter, more crafted.
+- In the span of a human lifetime, and well within the collective memory, Britain went from a stable imperial power ruling an appreciable fraction of the Earth's surface to being a tumultuous patchwork which was at least superficially in decline.
+- Suddenly, the idea of writing a book was like coming home. I didn't tell anyone except my wife, Clare. I just began.
+- I make up names for people all the time - it's part of writing. Very often, the name comes with the character, along with of a sense of who they are and what they do.
+- E-readers are uninspired. They're slabs of plastic with fiddly controls and display a badly-formatted, typographically impoverished rendering of a paper book. That's not the electronic book I want. I want a gorgeous physical object, with paper pages, that can transform into any story I choose, perfectly presented on the page.
+- Names aren't just coathooks, they're coats. They're the first thing anyone knows about you.
+- I think the reason I wrote screenplays for nearly a decade was because it was my territory. I could stake that out.
+- The Internet has the capacity to extend to us genuine choice, and that is not without risk. Real power does entail real responsibility.
+- I am an avid reader of comics, though I came to them late.
+- 'Tigerman' was born in the front seat of a Hilux SUV on the road north out of Chiang Mai.
+- I know that when I talk to my parents and my friends, there's a strong feeling of the world out of control and damaged.
+- Executive power in any nation arguably has more in common with executive power in another country than with the citizens it should serve.
+- The reason steampunk attracts people is that it is premised on a technology which is visible and pleasing to the naked eye, and whose moving parts are comprehensible on a human scale.
+- An enormous amount of a writer's life is performance. I find myself wondering, at the moment, whether I do too much of it.
+- I used desperately to want to be a brooding hero from literature, but I'm optimistic, healthy and fair-haired.

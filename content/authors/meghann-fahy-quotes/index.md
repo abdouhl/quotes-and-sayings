@@ -1,0 +1,20 @@
++++
+author = "Meghann Fahy"
+title = "Meghann Fahy Quotes"
+quotes_len = "14"
+description = "the best 14 Meghann Fahy Quotes"
++++
+- I just try to get as much sleep as I can when I'm not working.
+- My family is crazy about watching what - everything I do.
+- Because I'm such a die-hard New Yorker, I was skeptical of Montreal being a New York double.
+- It took me a really long time to finally feel good about saying, 'Yes, I'm an actor. I chose to do this. I'm doing this.'
+- I started publicly singing when I was eight. Singing was always what I did. I never really acted.
+- You have to just figure out how to let it roll off of you, because no matter who you are or what you do, somebody's always going to disagree with something that you're doing or saying or something that you think or believe.
+- Any audition that I have now, I feel like it's easier for me to learn the words because of my time on 'One Life to Live.'
+- In the entertainment industry, especially, is a total different environment then working in a corporate setting.
+- Intimate scenes are always super awkward - and that is the truth. I know everybody says it, but it really is true.
+- My parents are kind of young, and my dad always listened to rock music and stuff like that, so I sort of grew up around that. As far as acting goes, I didn't really have any major influences because it wasn't really something that I focused on.
+- I was afraid that if I said, 'Yes, I'm an actor,' what would happen if I was bad at it?
+- When I was a senior, I did my senior class play, and that was pretty much it... It was 'The Wizard of Oz,' and I was Dorothy.
+- I was a senior in high school, and my mom saw on the news at work that they were having an open call in New York, and she thought it's for a musical, and maybe we should go and just sort of chalk it up to a new experience... And so, we did. We went.
+- You can't fake the subway, and you can't fake friendships.

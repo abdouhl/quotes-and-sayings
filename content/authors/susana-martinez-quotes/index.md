@@ -1,0 +1,78 @@
++++
+author = "Susana Martinez"
+title = "Susana Martinez Quotes"
+quotes_len = "72"
+description = "the best 72 Susana Martinez Quotes"
++++
+- Unfortunately, New Mexico depends significantly on federal dollars. We have four military bases here in New Mexico. We have two national labs that are very important to our national defense.
+- When I first registered to vote I registered as a Democrat.
+- I didn't suddenly become conservative. It was only the label that changed.
+- When I was a young prosecutor, I got called to testify against my boss. I could have backed down, but I didn't. I stood up to him. And he fired me for it.
+- Sometimes you pay a price for standing up.
+- My father was a security guard. I was a security guard.
+- Raising taxes does nothing to allow the economy to recover.
+- I don't want to be known as a politician.
+- Despite what some would have us believe, success is not built on resentment and fear.
+- There is one candidate in this election who will protect that dream. One leader who will fight hard to keep the promise of America for the next generation. And that's why we must stand up and make Mitt Romney the next president of the United States.
+- I think politicians nationwide have earned a reputation sometimes that is very unfavorable because they will say things and then do something else when they get into office.
+- My parents taught me to never give up and to always believe that my future could be whatever I dreamt it to be.
+- I want to make sure that I fulfill the promises that I made to New Mexicans. That's extremely important to me.
+- I actually became a lawyer because I thought you had to be a lawyer in order to get into national politics.
+- My parents grew that small business from one 18-year-old guarding a bingo to more than 125 employees in three states. And sure, there was help along the way. But my parents took the risk. They stood up. And you better believe they built it.
+- We talked about many issues, like welfare, is it the way of life or hand up? Talked about size of government, how much should it tax families and small businesses? And when we left that lunch, we got in the car and I looked over at Chuck and said, 'I'll be damned. we're Republicans.'
+- The big corporations have a team of lawyers and accountants to help them. It's the small businesses, the mom and pop shops, that get lost in the layers of red tape.
+- My parents were Democrats.
+- I have to deliver the results I promised because, as the first Hispanic female governor, I'm going to pave a path of some kind. I want it to be one that little Hispanic girls will want to follow.
+- New Mexico should be a tech jobs leader and a haven for innovation, a place where the best and the brightest come to bring their products to market.
+- 'Self-deport?' What the heck does that mean?
+- I fear some of our leaders today have lost the courage to stand up. What we have now are politicians. They won't offer real plans, and only stand up when they want to blame someone else.
+- At 18, I guarded the parking lot at the Catholic Church bingos. Now, my dad made sure I could take care of myself. I carried a Smith and Wesson .357 Magnum - that gun weighed more than I did!
+- No child is un-teachable. I will never give up on any kid. Every child can learn.
+- When there is a crisis, how you handle the crisis is just as important as the crisis.
+- We need to grow the private sector in every corner of New Mexico.
+- I registered Democrat because my parents did. They were, we were. There was no thinking behind it.
+- I've always known that my father's father and grandfather and grandmother were from Mexico. I've never denied it. I've always said it.
+- Our laws are too lax, our justice system too weak - particularly when it comes to violent, dangerous offenders.
+- Gangs have evolved. The stereotypical gang member covered in tattoos and wearing colors does not really exist any more. There's this fear that it could be any kid, but by any kid, that means any Latino kid.
+- Republicans need to stop making assumptions, and they need to start talking to younger people, people of color, and ask them - not talk to them - ask them, 'What is it that we can do better? How do we earn your vote? How do we earn the ability for you to see that we can be the party that will make your life better and that of your children?'
+- I don't think there's ever a silver bullet to any problem. There are always several answers and solutions to a problem.
+- I want to make sure kids read by the third grade and are prepared for the fourth grade. As school gets harder and kids get older, the words get bigger... If they don't understand what they are reading, they start to fall back, and their interest in school falls off.
+- Success, they taught me, is built on the foundation of courage, hard-work and individual responsibility. Despite what some would have us believe, success is not built on resentment and fears.
+- Growing up, I never imagined a girl from a border town could one day become a governor.
+- Republicans want to be tough and say, 'Illegals, you're gone.' But the answer is a lot more complex than that.
+- You want to earn the vote of every single person you can... It doesn't matter whether individuals are in need of assistance of the government or individuals who are in college; it doesn't matter.
+- As a border prosecutor, I've put criminals behind bars who worked for some of the most violent cartels in the world.
+- Criminals take advantage of weak laws, like giving driver's licenses to illegal immigrants.
+- New Mexico's agricultural economy is primarily composed of dairy and range livestock production.
+- Growing up I never imagined a little girl from a border town could one day become a governor. But this is America. In America algo es possible.
+- During my administration, we've welcomed a broad and diverse group of industries to New Mexico, including high-tech and traditional manufacturing, health care, information technology and finance. Some are homegrown New Mexico companies; others are global leaders in their industries.
+- New Mexico is an environment where we are open for business.
+- The criminal justice system should have the authority to determine the immigration status of all criminals, regardless of race or ethnicity, and report illegal immigrants who commit crimes to federal authorities.
+- Certainly, cutting spending is one of the things that can transcend to the federal government. I mean, I think the federal government has grown by leaps and bounds, and they need to look where do they need to cut.
+- I will veto any tax increase.
+- As the first Hispanic female governor in history, little girls often come up to me in the grocery store or the mall. They look and point, and when they get the courage, they ask 'Are you Susana?' and they run up and give me a hug.
+- I am my own person.
+- I've known where my heritage is from all along.
+- As a prosecutor, I served victims; I fought to keep communities safe, and in every instance, I knew that it was my job to protect individuals' privacy.
+- I offered early on - I think I was governor about a month when I met President Obama - and said, 'I would like to visit with you in reference to border security, in reference to immigration. I'd like to be part of the discussion because I lived on the border all my life.' I've never received a call.
+- When we set up our kids for failure, we set up our workforce for failure, and we set up our economy for failure. I can't emphasize enough the importance, the absolute importance, of education in achieving long-term economic growth.
+- Sometimes Republicans engage in number-crunching analysis that doesn't always take the neediest into account.
+- In many ways, Mitt Romney and I are very different. Different starts in life. Different paths to leadership. Different cultures.
+- As an elected official, I live a very public life. That elected figures live under something of a microscope is perhaps a necessary condition for an informed public, and yet, even as a public official, I maintain very personal documents that are not intended for public view.
+- My dad was a golden gloves boxer in the Marine Corps, then a deputy sheriff. My mom worked as an office assistant.
+- I hope I've been able to show other young girls that as long as you work hard and you're committed to fight for your education, that anything's possible.
+- Latinos care about education, yes, so we need reform, not just money.
+- I absolutely advocate for comprehensive immigration reform.
+- Success is the American Dream. And that success is not something to be ashamed of, or to demonize.
+- I do think we do have to respect the position of the presidency.
+- I was a prosecutor for 25 years. I saw so many 15, 16, even 20 year-olds who could not read, had little hope that they would ever find work, faced more challenges than opportunities in life, dropped out of school at some point, and turned to crime.
+- It's extremely important that we elect people that look like the population they serve.
+- I went to law school. And I became a prosecutor. I took on a specialty that very few choose to pursue. I prosecuted child abuse and child homicide cases. Cases that were truly gut-wrenching. But standing up for those kids, being their voice for justice was the honor of a lifetime.
+- Too many Americans are out of work, and our debt is out of control.
+- I am donating $10,000 from my inaugural committee to the 'Pink Pack' because the only way we will find a cure for cancer is by joining together, pooling our resources, and focusing on the lifesaving mission that everyone can fight back against cancer.
+- Experience has taught me that privacy truly is the touchstone of our criminal justice system.
+- I know what not being able to read can do to a child's confidence.
+- In New Mexico, I inherited the largest structural deficit in state history, and our legislature is controlled by Democrats. We don't always agree, but we came together in a bipartisan manner and turned that deficit into a surplus. And we did it without raising taxes.
+- I didn't have a whole lot of role models to say, 'This much is possible, versus this much.' So I finally said, 'I think I'd like to be a mayor. I'd like to pull together a city and help do good things.'
+- Every judge should have real-time access to the criminal background and history of defendants who appear in their courtrooms - so that sentencing and bail decisions can be made with that information.
+- I'm an independent thinker. I am a woman. I am a Republican. And I think for myself, and I decide where I vote and how I vote.

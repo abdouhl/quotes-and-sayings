@@ -1,0 +1,33 @@
++++
+author = "Jeff Miller"
+title = "Jeff Miller Quotes"
+quotes_len = "27"
+description = "the best 27 Jeff Miller Quotes"
++++
+- Every American knows there are government expenses that are absolutely not necessary. I disagree with the very idea that our government is spending $2.4 trillion in the most efficient manner.
+- With a nation at war against terrorism and our men and women on the front line defending our homeland from abroad, resources need to be prioritized and allocated properly.
+- It is no secret that our tax code is drastically outdated and burdensome to all Americans. Fortunately, more and more people are aware daily of the inequities that arise from things such as the estate tax, and it has come to the forefront of Congress' agenda.
+- The 2004 Election marks the first time in modern political history that Republican voter turnout matched Democratic turnout in a presidential election year.
+- I think it's unconscionable for a Senator from Massachusetts to come down here and tell the people of Florida what's right for them. It's arrogant and irresponsible.
+- The democratic process is only as great as the people who participate in it.
+- I, in fact, have been involved in the construction of and the management of wastewater treatment plants.
+- I have always been a firm believer in the longstanding American principle of having the right to bear arms and I will remain committed to see that this freedom is not infringed upon, revoked, or limited in any way.
+- The willingness of America's veterans to sacrifice for our country has earned them our lasting gratitude.
+- Second, the facility at Guantanamo Bay is necessary to national security.
+- Democrats have no agenda, no plan for the future, and no sense of leadership.
+- It is not secret here in Congress we have not had the discipline in many instances to keep our hands out of the cookie jar of Social Security. Now to stop this I propose that in the future that Congress cannot get its hands on the money in the first place.
+- We establish no religion in this country, nor will we ever. But we poison our society when we remove its theological underpinnings. We court corruption when we leave society devoid of belief.
+- As a strong supporter of our 2nd Amendment rights, I believe tougher enforcement of our nation's existing gun laws must be done before any more laws are enacted and put on the books.
+- According to the U.S. Census, the most common reason people give for not voting is that they were too busy or had conflicting work or school schedules.
+- As a taxpayer, I want to assure you that Republicans are doing everything we can to reduce wasteful spending.
+- Far too often we see attention paid to the firearm and not the criminal.
+- The marriage of a man and woman is the most enduring human institution, honored in all cultures and by every religious faith. It's in this institution that children are meant to be nurtured. We know this after thousands of years of human experience.
+- All are free to believe or not believe; all are free to practice a faith or not. But those who believe must be free to speak of and act on their belief.
+- That future depends on the values of self-government, our sense of duty, loyalty, self-confidence and regard for the common good. We are a diverse country, and getting more diverse. And these virtues are what keep this great country together.
+- In our open society, we are inclined to give to the less fortunate for the pure goodness of giving. We open our home to those who are alone on this holiday to spread some warmth into the life of another.
+- Reconciliation is a special budget procedure to change entitlement and tax laws. It cannot be filibustered and requires only a simple majority in the Senate to be passed. It is primarily intended for deficit and mandatory spending reduction.
+- The American flag, Old Glory, standing tall and flying free over American soil for 228 years is the symbol of our beloved country. It is recognized from near and afar, and many lives have been lost defending it.
+- I've often argued that oil and gas exploration is a state's rights issue. It is abundantly clear that the State of Florida does not want drilling to negatively affect its beaches and shores.
+- We need religion as a guide. We need it because we are imperfect. Our government needs the church, because only those humble enough to admit they are sinners can bring to democracy the tolerance it requires in order to survive.
+- But recently it seems that each time I vote, I am being asked to compromise my conservative ideals and my commitment to the American taxpayer simply for the benefit of political gain.
+- I continue to vote against such spending increases, but sometimes I think some of my Republican colleagues forgot that we were sent here to shrink the federal government, not to grow it.

@@ -1,0 +1,23 @@
++++
+author = "Matt Le Tissier"
+title = "Matt Le Tissier Quotes"
+quotes_len = "17"
+description = "the best 17 Matt Le Tissier Quotes"
++++
+- When I was a kid I wanted to play in the First Division and I wanted to play for England. I achieved both those ambitions.
+- The most important thing about being on a football pitch is having options. That's what makes players look good. If you get the ball in possession and you look up and you've got three or four options, it's so much easier just having one or maybe two.
+- I'm 28 now. I've played 10 seasons in the top division, scored 170 goals in 400 games, and still I'm having to prove to people that I'm a decent player.
+- I've spoken to referees from my era who have openly admitted they were influenced by Sir Alex Ferguson when they were refereeing at Old Trafford.
+- One of the things people don't appreciate is the mental side of things. The taker has to want to be there. He must be comfortable with being in that situation. I didn't mind the pressure, the focus of the whole stadium being on me.
+- I only ever had two options when taking a penalty. It was either going to the left-hand side or the right.
+- I enjoy sitting beside Paul Merson every Saturday and listening to his unique pronunciation of foreign names. That really tickles me.
+- I'd like to think I can put myself in positions where I can get the odd half-chance to score, that's what I was best known for and I like to think if the chances came along I'd be able to stick them in the back of the net.
+- All I've ever wanted to do was to play for England. That ambition hasn't changed.
+- It annoys me a great deal when people accuse me of not having any ambition because I've stayed at Southampton all these years. You can't get more ambitious than to aim to play for England, can you?
+- I think it has to do with the English mentality, we've always been wary of people with talent, we prefer people who are seen to work hard.
+- No, I've never had any interest in coaching, probably because I hated being told what to do when I was a player so I wouldn't like to be lecturing others now.
+- I always sidefooted the ball as I wanted to keep the accuracy on it but I was quite fortunate that I could sidefoot a ball powerfully.
+- I knew I could play and I thought I could get away without working particularly hard because I could do stuff that other people couldn't.
+- I used to visualise the stadium erupting as the ball hit the back of the net. I erased all negative thoughts from my head.
+- I ended up getting sent off at The Dell against Liverpool for two bookable offences. I think that was the lowest point of my career. I ran straight into the dressing-room and stayed there, alone, until the final whistle.
+- But I can tell you that my favourite singer is Shania Twain and my favourite band is Lonestar.

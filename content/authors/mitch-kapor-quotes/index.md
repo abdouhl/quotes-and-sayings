@@ -1,0 +1,107 @@
++++
+author = "Mitch Kapor"
+title = "Mitch Kapor Quotes"
+quotes_len = "101"
+description = "the best 101 Mitch Kapor Quotes"
++++
+- Open source can propagate to fill all the nooks and crannies that people want it to fill.
+- Oakland's time is coming. In fact, Oakland's time is already here. Tech is coming to Oakland, and it's terribly exciting.
+- I'm an inveterate note taker - I scribble all these things down on pieces of paper. I wanted to create some way of organizing all of them.
+- If you can command a lot of attention, that's what is valuable, and many in the commercial ecology would like to have a piece of that attention.
+- We have to examine very carefully any privacy-reducing technology.
+- Architecture is politics.
+- Fundly is at the dynamic intersection of high-growth technology startups, social entrepreneurship, and the exploding world of social media. Kapor Capital is proud to back this passionate team, their product, and Fundly's impressive customer base.
+- I had no fear of speaking to large audiences.
+- Diversifying our tech talent pool is an imperative for the tech sector. More diverse engineers and entrepreneurs will bring about a new type of innovation that Silicon Valley has yet to see.
+- I think there is widespread agreement that there is a crisis in public education.
+- Old ways of thinking die hard, particularly when they were weaned by legally enforced monopolies.
+- A typical medical practice is like an old-fashioned business which keeps all of its records on paper. It can probably track down any individual transaction if it needs to, but it's basically helpless when it comes to overall measurements of performance. And that's the big problem.
+- In my case, having knocked around at different jobs helped me get a sense of what the world is actually like and also helped me get out of a cocoon.
+- I believe in having an impact in doing things.
+- Life in cyberspace seems to be shaping up exactly like Thomas Jefferson would have wanted: founded on the primacy of individual liberty and a commitment to pluralism, diversity, and community.
+- Inside every working anarchy, there's an Old Boy Network.
+- The critical thing in developing software is not the program, it's the design. It is translating understanding of user needs into something that can be realized as a computer program.
+- I've been around long enough to know that empires come and empires go, and I can't tell how long the Google empire is going to last - but I'm pretty convinced that the answer is less than forever.
+- Even though I had the talent, programming just didn't feel right. I never considered it very seriously. Some people get gratification from bending a machine to their will. I didn't.
+- There are a lot of similarities between cyberspace and the frontier. It's pretty raw and primitive. I mean, you have to churn your own butter in cyberspace. You can't go down to the 7-Eleven and buy a stick of butter because it's not that well developed.
+- If only I'd stayed on the West Coast, I might have made something of myself.
+- Getting information off the Internet is like taking a drink from a fire hydrant.
+- There's a great deal of suspicion and misunderstanding about IT among practicing doctors. One hears things like, 'I don't want to be turned into a data entry clerk, and I don't want some machine between me and my patients.'
+- I actually built a tiny computer as a junior high school project.
+- Jazz was a bomb. That was also the low point of Mac sales. People had just written it off.
+- We have a responsibility to give people opportunities to do what they can do. It's a fundamental tenet of democratic society. Libertarians who believe in a completely minimalist state, and don't feel we have that responsibility, are harming humanity.
+- Velano Vascular has developed a simple, game-changing innovation that will improve the way medicine has been practiced for decades.
+- I was trying to figure out what to do next, I'd been accumulating ideas for productivity tools - software people could use every day, particularly to help organize their lives.
+- StumbleUpon has humanized the Web and mastered a way for people to discover online content by incorporating an individual's personal preferences and recommendations of friends and like-minded people.
+- My history is to find the next big thing early.
+- If information wants to be free, then that's true everywhere, not just in information technology.
+- Every year we are greeted by a host of new apps that will 'change the way we think' about ordering takeout, 'fundamentally transform' our shoe purchases, or 'revolutionize' the way we edit photos.
+- Wikipedia has a way of compiling compendiums of information on subjects.
+- No, my family is Russian, Georgian, via Ellis Island.
+- We are living in an era of anxiety produced by computer and communications technology.
+- Today, in the Internet gold rush, so many people go into dot-com jobs right from school or even before finishing. Their motivation is understandable, but sometimes they just lack experience.
+- For people who know both New York and the Bay Area, it is a complement to say that Oakland is San Francisco's Brooklyn. It's a complement both to Oakland and to Brooklyn. And, if you look at Brooklyn, Brooklyn is hot; Brooklyn is cool.
+- If you look at the history of other movements, whether Civil Rights or environmental rights, these are all decades-long undertakings.
+- Failing to continue to support the public higher-ed system in California will have devastating long-term consequences.
+- Computers ought to help people find their own best path through lots of textual information.
+- The more you eliminate the inefficient use of information, the better it is for productivity.
+- The kind of products you envision as an entrepreneur is a function of your life experience.
+- People in the industry foresee a time in which, for many people, the only thing they'll need on a computer is a browser.
+- Well, I had a lot of help from my father with the soldering and so on, and he was very good at math and was fascinated with computers, and so I was fortunate enough to have a bunch of exposure going all the way back to high school - this was in the 1960s.
+- Everyone has a subconscious and automatic preference of this over that. Once you're aware of that, you can take steps to change.
+- Often, the disconnect between the marketing hype around a new product and what the product actually does is astounding.
+- There are excellent public interest grounds to have a search engine whose rankings are transparent.
+- Beware angel investors: they can be disruptive.
+- It's illegitimate to talk about a post-scarcity Utopia without talking about questions of distribution. There have always been these Utopian predictions - 'electricity too cheap to meter' was the atomic promise of the 1950s.
+- The computer environment is radically different today. In the 1980s, it was like the Wild West, with a lot of open territory. Now, the cowboys have moved out and the farmers have moved in.
+- When regulations restricting competition are relaxed, nobody's market share is protected. If telephone companies can offer video programming, cable revenue will surely drop.
+- Reversing the escalation of health care costs is going to need more than legislation, yet it can be done without imposing rationing, as critics of reform fear.
+- Managerial and professional people hadn't really used computers, hadn't sat down at keyboards, until personal computers. Personal computers have a totally different feel.
+- I'd always wanted to live in San Francisco, and my circumstances never permitted it. I'm so happy I made the move.
+- Life in cyberspace is often conducted in primitive frontier conditions, but it is a life which, at its best, is more egalitarian than elitist and more decentralized than hierarchical. It serves individuals and communities, not mass audiences, and it is extraordinarily multi-faceted in the purposes to which it is put.
+- Startups, in some sense, have gotten so easy to start that we are confusing two things. And what we are confusing, often, is, 'How far can you get in your first day of travel?' with, 'How long it is going to take to get up to the top of the mountain?'
+- I give Bill Gates an A for vision because, as a business person and a strategist, he's brilliant. His flaw is that his view is not informed by a humanistic or compassionate vision of how to make computers work for people.
+- E-mail is a victim of its own success.
+- I soon realized that the best thing I could do for the profession of human services was to get out of it.
+- Linden Lab's technological breakthroughs have made 'Second Life' a truly revolutionary experience.
+- The accomplishment of open source is that it is the back end of the web, the invisible part, the part that you don't see as a user.
+- Technology advances at exponential rates, and human institutions and societies do not. They adapt at much slower rates. Those gaps get wider and wider.
+- I was not a student of Wall Street, but I was a quick study.
+- Lotus's efforts around the Mac were pathetically unsuccessful, which is sad.
+- Bulletin boards are sort of the garage bands of cyberspace.
+- Physicians today, as human beings, are not exempt from the perverse economic pressures created by fee-for-service regimes to see more patients for shorter appointments and order more tests and procedures. If the incentives were changed to pay to foster better health outcomes, I am convinced physician behavior would change over time.
+- People are hungry for community. They're hungry for meaning in a society that is oriented around the production and consumption of consumer goods.
+- Hackers are seen as shadowy figures with superhuman powers that threaten civilization.
+- The Internet, the network of networks, is growing at an exponential pace. It's growing so fast, in fact, nobody really knows how many people use the Internet.
+- In an economy where more and more value is in information - is in the bits, not the atoms, where bits can be copied essentially for free - any time you have that situation, economic schemes that rely on existing models of intellectual property laws for protection are going to do less and less well.
+- Microsoft represents the best of ourselves or the worst.
+- 'Silicon Valley' has come to mean the Bay Area, not just down the Peninsula.
+- If we're not creating an educated and skilled workforce, there is just no conceivable way that were going to be economically competitive.
+- The widespread adoption of broadband and the continued advances in personal computing technology are finally making it possible for the collective creation of an online world on a realistic scale.
+- You can't be in the tech community... without realizing there's a big shortage of talent.
+- It became clear to me by 1984 that Microsoft was likely going to be the big winner in the PC software apps and operating system category, partly because of the dynamics of owning and controlling the operating system: that gave you enormous power, and I came to see Bill Gates was fierce competitor.
+- The culmination of all of that was the decision to start a company, which became Lotus, to do a product, which became 1-2-3. By the time I reached that point it had been four years, and it felt like a lifetime, but really it was kind of evolutionary.
+- Before I started a company, I was an employee with a bad attitude. I was always felt like, bosses are stupid, and people weren't well treated.
+- I'm fascinated by management and organizations: how organizations get things done and how successful organizations are built and maintained, how they evolve as they grow from start-ups to small companies to medium companies to big companies.
+- I'd been a great angel investor, but professional venture capital was clearly not the right thing for me.
+- We've already gotten a significant grant from the Andrew W. Mellon Foundation, and a university consortium. I think the whole sector of Foundations, potentially with government support, is promising - more than promising, I think, it's substantial.
+- Human intelligence is a marvelous, subtle, and poorly understood phenomenon. There is no danger of duplicating it anytime soon.
+- I routinely failed to understand that 'simple and straightforward' would have been a much better product strategy for Lotus.
+- Successful entrepreneurs develop products that inspire their passion. They have to. It's that passion that gets them through the long, arduous, uncertain and frightening early days of a start-up.
+- I woke up nights, worrying that Lotus was out of control - that no one would know what to do.
+- On a personal note, I was born in Brooklyn. My folks moved out to Long Island when I was quite young, but once a Brooklynite, always a Brooklynite.
+- Few industries have the ability to transform society like tech, yet too few companies are asking the questions or working on the problems that would create meaningful social change.
+- When new technology in the classroom starts happening, some people get very excited and think of it as a panacea. It attracts very high amounts of money; it raises expectations, and those expectations aren't met.
+- I tell people that the history of Mozilla and Firefox is so one of a kind that it should not be used - ever - as an example of what's possible.
+- If advertisers want to decorate their ads to increase their conversions by showing what users think, that's a good thing.
+- I'm like George Lucas, bringing together a creative team that will come up with a unique, well-crafted product.
+- That's why it has to be a nonprofit, because a nonprofit is required to take monies it receives and use them for the purposes for which it's chartered by the government. It can't be pocketed.
+- Both VisiCalc and MultiPlan were available when the IBM PC shipped in October 1981. 1-2-3 didn't hit the market until January 1983.
+- The main languages out of which web applications are built - whether it's Perl or Python or PHP or any of the other languages - those are all open source languages. So the infrastructure of the web is open source... the web as we know it is completely dependent on open source.
+- I originally invested in Dropcam because I foresaw what the company and their products could do for consumers and the industry. I've been deeply impressed with what they've done in such little time, and I'm confident that they'll continue to exceed my expectations.
+- I don't think Silicon Valley understands the power of Wikipedia, how it works, or the opportunities it represents.
+- One of the perks of being the founder is that you get to build the company in your image.
+- What is design? It's where you stand with a foot in two worlds - the world of technology and the world of people and human purposes - and you try to bring the two together.
+- There's an admirable belief about the virtues of meritocracy - that the best ideas prove the best results. It's a wrong and misguided belief by well-intentioned people.
+- It is possible to take a population of students who are failing and whose schools are failing them, who are being written off as not being college material, and if they have the right support, they can all go to college and succeed.
+- If you go back to the '50s and '60s... there was zero tech in S.F. It was all in the Valley... and it crept northward in early 2000s.

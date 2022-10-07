@@ -1,0 +1,41 @@
++++
+author = "Matt Stone"
+title = "Matt Stone Quotes"
+quotes_len = "35"
+description = "the best 35 Matt Stone Quotes"
++++
+- In our show, there's usually a comeuppance. Or, if not, it's an anti-ending. And you're supposed to get that.
+- Sometimes I wish I could get fired.
+- I would vote for a Mormon.
+- We're kind of like the smoking section in high school. We're immature, keep to ourselves.
+- There are good characters and bad characters.
+- With religion I was always like, 'Does it matter if it's true if it makes you happy?'
+- It's the business of movies, it's the fights that go along with the level of budget, and more than anything, it's the creative constipation of having to live with one idea for two or three years. It's just not that fun.
+- Even celebrities, most people have a sense of humor. Most of the people we meet who we've done on the show, like it.
+- We were the only ones interested in comedy. Everybody else wanted to be Martin Scorsese.
+- I went to a couple Academy Awards parties and I was definitely like, 'Whoa, no one will talk to me.'
+- I just get my news from the Internet.
+- I think the neoatheists have set atheism back a few decades. And I'm a self-described atheist.
+- I just hate that Lucas... and it is not just Lucas, because everybody does it, where, boom, they get it out, and then there's a special edition for a movie that doesn't deserve a special edition.
+- I would never want the show to be a Democrat show or Republican show, because for us the show's more important than that. It isn't for everybody else in the world, but it is for us.
+- We don't feel pressure of, 'Let's make this really raunchy.' It's more about making a good story, which is 10 times harder. The raunchy stuff's really easy for us.
+- I may have my personal political thing, but we never wanted it to stain the show.
+- We've been around long enough and have been to enough award shows to know that it is easy to lose to Phil Collins at any time.
+- You can make fun of everything.
+- There's something uniquely aggravating about the smugness of liberal Hollywood.
+- Once you get yourselves into things that are working on a deeper level, you just have to keep going. When you reach that deeper level, you can't go back.
+- Ripping on Republicans is not that fun for us only because everyone else does it.
+- And there's a visceral fun in watching Team America and making it, like taking a puppet and throwing it against the wall. Because it's not CG, there's something funny about it.
+- I definitely think we get a lot of respect for what we do, but I definitely think that some people don't like us, which is fine.
+- The culture is just so coarse that you have to take it to that level and people will be like, 'Whoa!' And then you can make people think about stuff. It's kind of like shock therapy.
+- The pride of the hipster food movement is sort of annoying, but it fascinates me.
+- We are entertainers. We're trying to entertain people.
+- I've been to China and Russia, and I don't know anything about Chinese or Soviet relations.
+- At this point, we've ripped on everyone.
+- So a lot of our shows where even we think we've taken a very deliberate stand, liberals say, 'That's awesome, you took on the conservatives' same show and conservatives say 'That's awesome, you took on liberals.'
+- We've rewritten entire scenes and had them animated twelve hours before the show goes on the air. It's not fun.
+- I'm concerned about people being happy.
+- It is like football with coaches, like, 'We're only going to think about the next game.' It is really true, all you think is, 'Okay, we have to make a good next episode.'
+- That decision to commit your life to certain principles and a certain narrative, if I wrote a paper on that, I know I'd find inconsistencies.
+- I'm a producer... I am a Hollywood producer. That is so weird. And it's not lame. But it's just like, how did that happen?
+- Do goofy stories make people nice? What if, in their goofiness, these stories somehow inspire that in the right way. Is that a social good?

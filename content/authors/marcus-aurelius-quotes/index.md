@@ -1,0 +1,85 @@
++++
+author = "Marcus Aurelius"
+title = "Marcus Aurelius Quotes"
+quotes_len = "79"
+description = "the best 79 Marcus Aurelius Quotes"
++++
+- Do every act of your life as if it were your last.
+- Here is the rule to remember in the future, When anything tempts you to be bitter: not, 'This is a misfortune' but 'To bear this worthily is good fortune.'
+- Life is neither good or evil, but only a place for good and evil.
+- Execute every act of thy life as though it were thy last.
+- Such as are your habitual thoughts, such also will be the character of your mind; for the soul is dyed by the thoughts.
+- Anger cannot be dishonest.
+- Anything in any way beautiful derives its beauty from itself and asks nothing beyond itself. Praise is no part of it, for nothing is made worse or better by praise.
+- When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love.
+- What springs from earth dissolves to earth again, and heaven-born things fly to their native seat.
+- How much more grievous are the consequences of anger than the causes of it.
+- If it is not right do not do it; if it is not true do not say it.
+- The act of dying is one of the acts of life.
+- Despise not death, but welcome it, for nature wills it like all else.
+- That which is not good for the bee-hive cannot be good for the bees.
+- We ought to do good to others as simply as a horse runs, or a bee makes honey, or a vine bears grapes season after season without thinking of the grapes it has borne.
+- To understand the true quality of people, you must look into their minds, and examine their pursuits and aversions.
+- Forward, as occasion offers. Never look round to see whether any shall note it... Be satisfied with success in even the smallest matter, and think that even such a result is no trifle.
+- To live happily is an inward power of the soul.
+- The art of living is more like wrestling than dancing.
+- The object of life is not to be on the side of the majority, but to escape finding oneself in the ranks of the insane.
+- Tomorrow is nothing, today is too late; the good lived yesterday.
+- Everything that exists is in a manner the seed of that which will be.
+- Each thing is of like form from everlasting and comes round again in its cycle.
+- Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present.
+- Nowhere can man find a quieter or more untroubled retreat than in his own soul.
+- Be content with what you are, and wish not change; nor dread your last day, nor long for it.
+- Men exist for the sake of one another.
+- Because your own strength is unequal to the task, do not assume that it is beyond the powers of man; but if anything is within the powers and province of man, believe that it is within your own compass also.
+- Observe constantly that all things take place by change, and accustom thyself to consider that the nature of the Universe loves nothing so much as to change the things which are, and to make new things like them.
+- Loss is nothing else but change, and change is Nature's delight.
+- Nothing has such power to broaden the mind as the ability to investigate systematically and truly all that comes under thy observation in life.
+- Adapt yourself to the things among which your lot has been cast and love sincerely the fellow creatures with whom destiny has ordained that you shall live.
+- Because a thing seems difficult for you, do not think it impossible for anyone to accomplish.
+- The happiness of your life depends upon the quality of your thoughts: therefore, guard accordingly, and take care that you entertain no notions unsuitable to virtue and reasonable nature.
+- When thou art above measure angry, bethink thee how momentary is man's life.
+- Poverty is the mother of crime.
+- The only wealth which you will keep forever is the wealth you have given away.
+- Each day provides its own gifts.
+- Be content to seem what you really are.
+- Accept the things to which fate binds you, and love the people with whom fate brings you together, but do so with all your heart.
+- Let it be your constant method to look into the design of people's actions, and see what they would be at, as often as it is practicable; and to make this custom the more significant, practice it first upon yourself.
+- There is nothing happens to any person but what was in his power to go through with.
+- You have power over your mind - not outside events. Realize this, and you will find strength.
+- Perhaps there are none more lazy, or more truly ignorant, than your everlasting readers.
+- The universal order and the personal order are nothing but different expressions and manifestations of a common underlying principle.
+- The soul becomes dyed with the color of its thoughts.
+- Let men see, let them know, a real man, who lives as he was meant to live.
+- A man's worth is no greater than his ambitions.
+- Let not your mind run on what you lack as much as on what you have already.
+- And thou wilt give thyself relief, if thou doest every act of thy life as if it were the last.
+- Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
+- Whatever the universal nature assigns to any man at any time is for the good of that man at that time.
+- Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished.
+- Waste no more time arguing about what a good man should be. Be one.
+- Reject your sense of injury and the injury itself disappears.
+- Death is a release from the impressions of the senses, and from desires that make us their puppets, and from the vagaries of the mind, and from the hard service of the flesh.
+- Death, like birth, is a secret of Nature.
+- Everything that happens happens as it should, and if you observe carefully, you will find this to be so.
+- To the wise, life is a problem; to the fool, a solution.
+- Our life is what our thoughts make it.
+- We are too much accustomed to attribute to a single cause that which is the product of several, and the majority of our controversies come from that.
+- How much time he saves who does not look to see what his neighbor says or does or thinks.
+- A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself. The one produces aspiration; the other ambition, which is the way in which a vulgar man aspires.
+- Where a man can live, he can also live well.
+- A man should be upright, not be kept upright.
+- Nothing happens to any man that he is not formed by nature to bear.
+- Natural ability without education has more often raised a man to glory and virtue than education without natural ability.
+- Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig.
+- I have often wondered how it is that every man loves himself more than all the rest of men, but yet sets less value on his own opinions of himself than on the opinions of others.
+- It is not death that a man should fear, but he should fear never beginning to live.
+- Aptitude found in the understanding and is often inherited. Genius coming from reason and imagination, rarely.
+- Time is a sort of river of passing events, and strong is its current; no sooner is a thing brought to sight than it is swept by and another takes its place, and this too will be swept away.
+- The universe is transformation: life is opinion.
+- He who lives in harmony with himself lives in harmony with the universe.
+- Confine yourself to the present.
+- To refrain from imitation is the best revenge.
+- Very little is needed to make a happy life; it is all within yourself, in your way of thinking.
+- The best revenge is to be unlike him who performed the injury.
+- The universe is change; our life is what our thoughts make it.

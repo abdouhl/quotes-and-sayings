@@ -1,0 +1,14 @@
++++
+author = "Stephanie Rice"
+title = "Stephanie Rice Quotes"
+quotes_len = "8"
+description = "the best 8 Stephanie Rice Quotes"
++++
+- And I guess the thing that I really sort of rely on in me is that I love racing and I love competing and so I know that you know when the time comes and the pressure's on and I have to swim well, I'm sort of able to pull it out and sort of get the best out of myself.
+- I think for most people it's hard to understand what it is about swimming - I mean it's such a solo endeavour.
+- I think there is more pressure at trials when you are trying to make the team and you have to come first or second, and you have to go under qualifying time.
+- I think for me I've always loved being in the water and I love training and I love being at the pool so you know it's not a chore for me to go training, but come race day I would never just train to train - I train to race.
+- You don't want to line up on the blocks and know you have not done everything you possibly can.
+- Swimming is one of the hardest sports.
+- Whenever you get a sharp pain, you need to back it off.
+- I sort of set myself really high standards which is good and bad. If I know that I've done all I can to prepare, that's when I race the best and in '09 I was going through a lot of emotional ups and downs and I was never as fit as I would have liked to have been. So I never felt comfortable.

@@ -1,0 +1,68 @@
++++
+author = "Nathaniel Philbrick"
+title = "Nathaniel Philbrick Quotes"
+quotes_len = "62"
+description = "the best 62 Nathaniel Philbrick Quotes"
++++
+- The great lesson I get from 'Moby-Dick' is that when the times are bad, when there is great foreboding, there are still ways to go about living. It's through Ishmael that I find a kind of overall cosmic approach to a meaningful life in this meaningless world.
+- The irony is that Washington was, in reality, very much like Benedict Arnold. The big difference was that Washington was ultimately able to control his emotions, something Arnold never learned to do.
+- For me, 'Moby-Dick' is more than the greatest American novel ever written; it is a metaphysical survival manual - the best guidebook there is for a literate man or woman facing an impenetrable unknown: the future of civilization in this storm-tossed 21st century.
+- Writing can't be too calculated. My best writing is when I set it aside, move on. It's not when I'm crafting a sentence, thinking about what word should follow another.
+- Whatever you read, there's no better place to read than the cockpit or the berth of a boat. It's kind of like being in a womb.
+- As an author of narrative history, I read a lot of history books.
+- Martin Scorsese, everything he does, I've got to see. And Jack Nicholson, I've got to see what he does.
+- By 1760, the Nantucketers had virtually exterminated the local whale population.
+- I follow the Patriots, but the Steelers were my first and true love. I still have a 'Terrible Towel.'
+- I had a great AP U.S. History teacher in Pittsburgh. We still exchange Christmas cards. She was the first teacher who said I was a good writer - and I'd never heard that before. And so I remember that, and I remember that level of loving the material and really loving writing about it.
+- Some of my books sort of have a provocative take. Sometimes you find interesting things about characters that show they weren't necessarily the way people usually see them. It can make for lively conversations, but that's great. Spark a little controversy, get people to think about it. That's what it's all about.
+- For me, the hardest thing in the world is how to start a book.
+- Right whales - so named because they were 'the right whale to kill' - grazed the waters off Nantucket as if they were seagoing cattle, straining the nutrient-rich surface of the ocean through the bushy plates of baleen in their perpetually grinning mouths.
+- I don't subscribe to the idea that the founders or anyone else were somehow better than us and that we have to live up to their example.
+- Even though I hadn't read a word of it, I grew up hating 'Moby-Dick.'
+- Whaling was the oil business of its day.
+- As a former English major, I have always been fascinated by the connections between literature and history.
+- We've got a yawl named the Phebe, which is named for a boat in a whaling journal my father and I edited. We keep a copy of the journal on board.
+- There's an ugly civil war side to revolutionary Boston that we don't often talk about and a lot of thuggish, vigilante behavior by groups like the Sons of Liberty.
+- Most Americans have no clue that before there were highways, there were only waterways to get through the wilderness. If you weren't on a lake or a river, you were in a jungle.
+- I do work-related stuff on airplanes. Then, when I'm in the hotel room or just vegging out, I read for pleasure.
+- XTC is my favorite band; I'm a huge Neil Young fan, Jayhawks, all that type of stuff. I like Death Cab for Cutie, also Ryan Adams. I try to impress my children: 'Have you listened to such-and-such?' They're not impressed.
+- I consider myself a writer who happens to write about history, rather than a historian. I was an English major in college. What I've learned about history is in the field, so to speak. Going into the archives and working with it directly.
+- As long as I can remember, I've been writing - first poems, then stories, and by my early teenage years I was also in love with sailing.
+- History is obviously dependent on the evidence, and it's always amazing to me how much evidence there is.
+- 'Moby-Dick' has a remarkable way of resonating with whatever is going on in the world at that particular moment.
+- I'm a big Stephen King fan.
+- When I was at Brown, I wanted to write the great American novel, but I was too scared to take a creative course. I signed up for one, got in, and just didn't have the courage to go. I was a tremendously shy person, almost pathologically shy. The thought of peers critiquing my work - oh, God.
+- I was an English major at Brown. I never enjoyed history classes.
+- Maybe it's because I was named for him, but I've always wanted to meet Nathaniel Hawthorne. It's oversimplifying, but all Hawthorne's short stories and novels are, in one way or another, about guilt. Something profoundly disturbing must have happened to him at an early age. I'd like to know what that was.
+- Reading 'Moby-Dick' helps you discover how to live.
+- We think of the revolution ending in Yorktown, Va. The fact of the matter is that the French defeated the British in a naval battle right in the mouth of Chesapeake Bay. Because the British fleet was coming to rescue Cornwallis, the British general, Washington was able to surround Cornwallis.
+- To my mind, an adventure is something a person willingly undertakes.
+- We think of Washington as the defensive-minded pragmatist who won the Revolution by avoiding unnecessary risks on the battlefield. But that was not how he started out.
+- Many of us came away from our youth thinking that the story of the Revolution was that the Americans were patriots fighting the oppressive British. It was kind of good versus evil, liberty versus tyranny. When you get into it, you find that it was much more complicated.
+- In my early 20s, I was a big fan of Theodore Dreiser and might be one of the few people on the planet who have voluntarily read all his novels.
+- One of the questions I face when working on a book about a historical event is whether I should visit the actual place that I'm writing about. No matter how scrupulously maintained a historic house or battlefield may be, it is nothing like it was in the long-ago past.
+- What's been largely forgotten is that Washington was highly passionate and aggressive, and it was only after losing Philadelphia to the British after a string of disastrous battlefield performances that he finally resigned himself to the more conservative approach with which he has since become associated.
+- I hated the fact that I had to read 'Moby-Dick' as a senior in high school.
+- It is impossible to say when 37-year-old Benedict Arnold first met 18-year-old Peggy Shippen, but we do know that on September 25, 1778, he wrote her a love letter - much of it an exact copy of one he'd sent to another woman six months before. But if the overheated rhetoric was recycled, Arnold's passion was genuine.
+- More than 25 miles off the coast of Massachusetts and only 14 miles long, Nantucket is, as Herman Melville wrote in 'Moby-Dick,' 'away off shore.'
+- I'll watch anything, from action to art films.
+- Nantucket's English settlers, who first disembarked on the island in 1659, had been mindful of the sea's dangers. They had hoped to earn their livelihoods not as fishermen but as farmers and shepherds on this grassy isle dotted with ponds, where no wolves preyed.
+- A good leader has to at some point trust those around him; otherwise, nothing constructive is going to get done.
+- 'Johnny Tremain,' Paul Revere's Ride, today's Tea Partiers - you have to tune all that out to get at the real story.
+- The American Revolution as it actually unfolded was so troubling and strange that once the struggle was over, a generation did its best to remove all traces of the truth.
+- Washington worked very hard to create his legacy. Even before the War of Independence was over, he was assembling his papers and making sure they were going to be in a state of preservation that would represent as best he could the official side of what occurred during the Revolution.
+- I watch a lot of bad TV. I spend my entire day reading and writing, and after dinner my idea of fun is just to watch a lot of bad TV. That's how I relax and stay in touch with modern culture.
+- A survival tale peels away the niceties and comforts of civilization. Suddenly, all the technology and education in the world means nothing. I think all of us wonder while reading a survival tale, 'What would I have done in this situation? Would I have made it?'
+- Joseph Warren, like a lot of revolutionary leaders, was into Enlightenment literature.
+- Nantucket was a Quaker-based culture, so they were not readers. There's a great Nantucket-based novel from the 19th century that Melville read for his research for 'Moby-Dick': 'Miriam Coffin' by Joseph Hart.
+- Instead of being a page-turner, 'Moby-Dick' is a repository of American history and culture and the essentials of Western literature. The book is so encyclopedic that space aliens could use it to re-create the whale fishery as it once existed on the planet Earth in the midst of the 19th century.
+- I'm not one of these people who want to tear down our heroes and that kind of thing.
+- He was born in 1741, a descendant of the Rhode Island equivalent of royalty. The first Benedict Arnold had been one of the colony's founders, and subsequent generations had helped to establish the Arnolds as solid and respected citizens.
+- In all natural disasters through time, man needs to attach meaning to tragedy, no matter how random and inexplicable the event is.
+- In the years to come, the combination of climate change and population growth could have a devastating effect on the planet and, needless to say, on humanity.
+- You cannot underestimate the influence of Shakespeare.
+- After Brown, I went to Duke, to a Ph.D. program in American literature. My dad's an English professor. After a year there, I was like, 'Jesus. I don't want to do this. I don't want to be in the library.' So I pulled the ripcord, and that was it.
+- You know, if you're at home with children, you lose twenty-five IQ points.
+- For the very young, there's nothing better than Mother Goose and anything by Dr. Seuss for the rhythms and language.
+- If you live on Nantucket, you can't avoid its history, and 'Moby Dick' is the way most of us get into Nantucket's history.
+- Unfortunately, we have a tendency to see figures from the past as caricatures - either all good or all bad - when the truth is always much more complex.

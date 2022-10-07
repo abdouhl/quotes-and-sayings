@@ -1,0 +1,38 @@
++++
+author = "Saul David"
+title = "Saul David Quotes"
+quotes_len = "32"
+description = "the best 32 Saul David Quotes"
++++
+- By 1917, thanks to the new munitions factories and the women that worked in them, the British Empire was supplying more than 50 million shells a year.
+- The first Romanov ruler was just 16 when he was crowned Tsar Michael I in Moscow in 1613, thus ending the 'Time of Troubles' sparked by Ivan the Terrible's death.
+- Given the gruesome fate of the last Tsar, Nicholas II, and his family, and the fact that five of the previous 12 Romanov rulers were also murdered, it is easy to regard Russia's imperial dynasty as cursed.
+- The people who read the history books tend to have a natural zeal and are alarmingly well-read.
+- I passed the 11-plus, but it was decided that I should take the Common Entrance exam to Monmouth School, the nearest independent. I was never entirely comfortable there, as they didn't have girls, and they played rugby instead of football.
+- Henry Kissinger is perhaps the best-known American statesman of the 20th century.
+- If getting a contract was relatively straightforward, writing fiction was far harder than I could have imagined, and there were moments during the long and torturous edit process when it seemed that 'Zulu Hart,' the first of the trilogy, would never be fit for public consumption.
+- I was brought up with a whole bunch of cousins in the Wye Valley during the hippy days of the 1970s.
+- By Vietnam, the Jeep had given way to the helicopter, and it is hard to imagine a modern army fighting a war without this supremely adaptable workhorse.
+- In the early hours of 16 December 1944, the Germans launched their last great offensive of the Second World War against weakly held U.S. positions in the Ardennes Forest, the site of their original Blitzkrieg success against the French in 1940.
+- We've all faced the charge that our novels are history lite, and to some extent, that's true. Yet for some, historical fiction is a way into reading history proper.
+- I worked hard at my four-year M.A., but got a 2.1. That was a big disappointment, as I wanted to write about history and thought I needed a First.
+- There were about 30 children at one stage, running around like savages at a place called Callow Hill, near Monmouth, which was owned by my grandparents. They lived in the big house, but my dad had five brothers and a sister, and they all lived in various houses scattered on the hill.
+- My great-great-grandfather, who made his money in the jute trade, had at one time 600 houses in London, and within three generations, the money was gone.
+- Historians turning their hands to fiction are all the rage. Since Alison Weir led the way in 2006, an ever-growing number of established non-fiction writers - Giles Milton, Simon Sebag Montefiore, Harry Sidebottom, Patrick Bishop, Ian Mortimer and myself included - have written historical novels.
+- It is not enough just to get your forces from A to B - you have to keep them fed and watered as they go. The art of movement, therefore, is one of the most complex and vital that any commander must master if he is going to win.
+- By the time Napoleon abandoned his army to its fate in Poland - arriving back in Paris on 5 December - it numbered fewer than 10,000 effectives. It was a disaster from which he would never recover.
+- It is surely no coincidence that Napoleon's two greatest heroes were Alexander the Great and Julius Caesar. In certain respects, he would outdo them both.
+- At school, there were more Davids than any other name: more than 20 of us cousins out of 40 pupils. When my older cousins moved on, the school had to close.
+- No campaign of the First World War better justifies the poets' view of the conflict as futile and pitiless than Gallipoli.
+- Winter horseshoes are equipped with little spikes that give a horse traction on snow and ice and prevent it from slipping.
+- History tells us that a general can move and feed an army as efficiently as he likes, but the real litmus test is the battlefield.
+- Those who read the fiction assume that, because I'm also a historian, I know what I'm talking about.
+- Ever since World War I, superior force is no longer measured in terms of men or horses, but in the means to wreak destruction.
+- From 1801, Napoleon began an ambitious programme of civil reform to standardise law and justice, centralise education, introduce uniform weights and measures and a fully functioning internal market. That achievement alone makes him one of the giants of history.
+- Historical facts are the vital framework around which non-fiction writers construct their narratives; they are, quite simply, indispensable.
+- Even a moderniser like Alexander II - who emancipated the serfs in 1861 - had no intention of devolving real power.
+- If I'm at a book signing, and someone decides to take me to task, it can make for quite a sticky moment.
+- Few remember that the battle of Rorke's Drift was fought on the same day that the British Army suffered its most humiliating defeat at nearby Isandlwana.
+- In March 1915, at the Battle of Neuve Chapelle, the British fired more shells in a single 35-minute bombardment than they had during the whole Boer War.
+- My forebears were fantastically wealthy Armenians who came to England from India in the 19th century and did what foreign types do - they married into a penniless but well-bred local family.
+- When I was six or seven, we went to the nearest English primary school, St Weonards, about seven miles away. The teaching was good, and this was the start of my beginning to shine as a student.

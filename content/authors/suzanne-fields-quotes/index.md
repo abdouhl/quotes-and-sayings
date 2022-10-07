@@ -1,0 +1,40 @@
++++
+author = "Suzanne Fields"
+title = "Suzanne Fields Quotes"
+quotes_len = "34"
+description = "the best 34 Suzanne Fields Quotes"
++++
+- Many of the Europeans who want Israel to go away don't even know why they do. Nearly a third of those interviewed concede they have no idea what the Israeli-Palestinian conflict is all about. It's enough to know that Israelis are Jews.
+- Lebanon is restless, Syria got its walking papers, Egypt is scheduling elections with more than one candidate, and even Saudi Arabia, whose rulers are perhaps more terrified of women than rulers anywhere else in the world, allowed limited municipal elections.
+- Great teachers transcend ideology.
+- Many critics of the Palestinians, especially those in Congress, think the current calm is merely the eye of the storm. That's why the House of Representatives approved a foreign aid package last week that forbade the direct financial assistance to the Palestinian Authority .
+- Churchill knew the importance of peace, and he also knew the price of it. Churchill finally got his voice, of course. He stressed strategy, but it was his voice that armed England at last with the old-fashioned moral concepts of honor and duty, justice and mercy.
+- There is a bright spot or two for the Spaniards. French toast has become freedom toast on the Air Force One breakfast menu, but the Spanish omelet is still a Spanish omelet.
+- German businessmen are overwhelmed by the high cost of doing business. Inflexible rules, enforced by a burgeoning bureaucracy, discourage entrepreneurship.
+- Dostoevski does not tell you what to think about his legend, but he requires that you think about it. The novelist was a deeply religious man and he always thought many readers missed that point about him.
+- We all want to look younger, become stronger and healthier and live longer.
+- The Academy Awards ceremony is designed to be without irony, but Chris Rock supplied it anyway with filmed movie-theater interviews with black men and women who had never heard of the movies nominated for Best Picture.
+- Insult is powerful. Insult begets both rage and humor and often at the same time.
+- Hollywood and the recording industry argue that current law permits the copying of songs and movies, and sharing them on the Internet. This enables young people to grow up learning how to steal.
+- American high school students trail teenagers from 14 European and Asian countries in reading, math and science. We're even trailing France.
+- There are enough Poles in Chicago to make up one of the largest cities in Poland.
+- You still can't find Israel on a map of the Middle East in a Palestinian schoolbook.
+- If any of the beautiful people plan to vote for the president, they usually keep their secret to themselves.
+- The old studios that mass-produced dreams are gone with the wind, just like the old downtown theaters that were the temples of the dreams.
+- The lopsided attitudes of college professors pose a serious challenge to learning because students are so susceptible to becoming lopsided sheep.
+- It's easier to make fun of a first lady than for a first lady to have fun. The scrutiny is ferocious.
+- HBO has 28 million subscribers, small stuff compared to TBS, which can be seen in 88 million homes.
+- It's not very hip to consider the plight of single women who yearn for something so old-fashioned as men.
+- Most of the debate over the cultures of death and life is about process. The debate focuses on the technology available to determine how we prolong life and how and when we end it.
+- Fully 57 percent of American college students are women. Life insurance companies sell more policies to women than to men. As women continue to draw on experience and education, they're accelerating their numbers in upper management, too.
+- That's what Major League Baseball's steroid scandal was all about, the hidden harm in competitive sports that sends the wrong message to the young.
+- Sometimes the ignorant are among the most educated.
+- The death of Pope John Paul II led many of different faiths and of no faith to acknowledge their debt to the Roman Catholic Church for holding on to absolutes that the rest of us can measure ourselves against.
+- It's long been a cliche in Washington that if you hang a lamb chop in your window, guests will come.
+- Fast sex, like fast food, is cheap, but it doesn't nourish the body - or the soul.
+- Everybody's looking for the niche to make the difference. Some people think they see the mother lode in the beautiful people, especially the vote of the beautiful women.
+- A growing number of young women who have the freedom to decide have decided that career can wait, and the delicious early years of their children's lives can't.
+- Women can break down barriers to opportunity, and men, many of them reluctantly, have learned to relate to women as their equals in thought and action. But except for an eccentric few, women do not want to become warriors.
+- There's more than a few remnants left in German welfare policy today. Many Germans eagerly condemn Hitler's fascism but won't examine the other reasons why the Third Reich succeeded for a season.
+- We've become more tolerant because we're tired of the debate.
+- Stupidity fuses notoriety and celebrity.

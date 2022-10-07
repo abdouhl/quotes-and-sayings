@@ -1,0 +1,26 @@
++++
+author = "Nick Rahall"
+title = "Nick Rahall Quotes"
+quotes_len = "20"
+description = "the best 20 Nick Rahall Quotes"
++++
+- I believe that the Framers of the Constitution made their intent clear when they wrote the First Amendment. I believe they wanted to keep the new government from endorsing one religion over another, not erase the public consciousness or common faith.
+- Wilderness is not defined by the absence of certain activities, but rather by the presence of certain unique and invaluable characteristics.
+- A free people, free to believe as we wish, free to speak our minds, free to raise our children as we see fit, will, make no mistake about it, endure.
+- For hundreds of millions of Americans who believe in God, prayer is our bridge between Earth and Heaven, our way of opening our hearts to the Lord. Through this intimate relationship we find peace and guidance.
+- We all understand that compromise is part of the legislative process, yet at the same time, I would submit that wilderness is not for sale.
+- With that in mind and in celebration of National Prayer Day, today I have proposed in the House of Representatives a Constitutional Amendment that would restore voluntary prayer in our Nation's schools.
+- Our work to provide equal opportunities for all Americans should be a year-round mission.
+- The President's announcement sounded less like a national energy plan than like a page from an election-year play book. This Administration's plan to reduce obscene oil company profits is to regulate them less.
+- Wilderness designations should not be the result of a quid pro quo. They should rise or fall on their own merits.
+- America, 5 years after this brutal attack, is testament that a Nation conceived in liberty and equality will endure. It is a triumph of millions of Americans but it is also the triumph of an idea larger than any one person, larger than any one nation.
+- A resilient people cherishing liberty and equality and the rule of law will endure.
+- Simply put, I believe we should not seek the lowest common denominator when it comes to wilderness and saddle a wilderness designation with exceptions, exclusions, and exemptions.
+- As a people of faith, we know that prayer is a powerful instrument. And as one Nation under God, we know that many times our most powerful tool is prayer.
+- Today we thank God for all the blessings He has bestowed upon this great Country and ask Him to continue to heal our land and meet our needs - and we do so through the power of prayer.
+- Peace cannot come from punishing the Palestinian people.
+- Over the last six years, airlines have experienced severe financial pressure to leave smaller communities, making demands on the EAS program even greater.
+- Reasonable, even intelligent people can, and frequently do, disagree on how best to achieve peace in the Middle East, but, peace must be the goal of our foreign policy tools, whether they be by the stick or by the carrot.
+- Madam Speaker, I have spent more than half my life as a member of the Resources Committee. In that time I have supported numerous wilderness designations. In fact, I cannot recall ever opposing a wilderness bill.
+- Today, our actions must be motivated only by our intense desire to achieve a just and lasting peace. The compassion and charity of the American people should be reflected in this legislation, though sadly, they are silenced.
+- But through world wars and a Great Depression, through painful social upheaval and a Cold War, and now through the attacks of September 11, 2001, our Nation has indeed survived.

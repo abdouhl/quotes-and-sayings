@@ -1,0 +1,130 @@
++++
+author = "Spike Jonze"
+title = "Spike Jonze Quotes"
+quotes_len = "124"
+description = "the best 124 Spike Jonze Quotes"
++++
+- Every actor I've worked with I want to work with again.
+- Chris Cooper I got to work with many times.
+- I'm always amazed when any actor can decipher my direction.
+- I have a home phone number, and I like it! It's like a throwback already.
+- Movies, they take years of my life, so I'm fortunate that I get to work in a lot of different mediums.
+- Our subjectivity is so completely our own.
+- The strengths and failings of a relationship depend entirely on your ability to talk about your feelings.
+- I loved Fugazi, the D.C. hardcore band, because they always did everything themselves. They had their own label, and the CDs always cost nine dollars, the T-shirts always cost eight dollars, the shows always cost five dollars, no major label.
+- I knew I could write infinitely about relationships. That's the most beautiful, most confusing, most rewarding, most heartbreaking thing in our lives - and not just romantic relationships: that's all relationships.
+- I love people that willfully defy what you're supposed to be and create their own definition of their selves.
+- You have to be involved and relate to the characters in order to make a film that is true emotionally.
+- I'm a little slow, so forgive me if I'm inarticulate.
+- I feel like every movie, I've learned more and more about what I think of the world and what I'm trying to figure out.
+- It's fun when you start a movie, because it's kind of like you get to go Christmas shopping... you get to make your wish list and you start thinking about what each character needs.
+- Some of the best ideas come from sheer discovery, and not by some masterminded, preconceived genius.
+- I'm not one to intellectualize why I did something.
+- I definitely check my phone for texts a lot - like, 'Did anyone text me? Is anyone thinking about me? Does anyone love me?'
+- Whenever I start writing, I try to put together songs that feed the feeling of the movie.
+- I'm very nervous about taking jobs. I always make sure that, if I'm going to work with somebody, that they really understand what it is that I want to do. I'd rather not take the job than be vague about how I'm going to do something and run into trouble later on. It's a hard thing to negotiate.
+- When you're close to somebody, you can never really know how they're experiencing the world.
+- I've got to say, I've probably seen a lot more of the Three Stooges than of the Marx Brothers.
+- You make a movie that is about what you want it to be about and let people have their reaction to it.
+- I think there is something about... unless you come from a really evolved family that allowed you to talk about your feelings and felt like a safe environment, then you aren't really prepared to do that when you grow up.
+- I want to make films without a single clear message, and films that are as close as possible to what it feels like to be alive. At least to me.
+- As creatives, it's a hard thing to push, to make something you're truly excited about, especially if you've written 100 different concepts and they keep getting shot down.
+- Me and my friends had BMX magazines and skate magazines, and I was a photographer who made skate videos.
+- When I'm making stuff, the thing that excites me most is not the result, but the process and trying to do something I've never done before.
+- I just want to make whatever is exciting.
+- I've done a couple of interviews, and I realized how uncomfortable I felt as soon as I started talking.
+- The Beastie Boys are guys I loved before I met them, and when I got to know them, we started a magazine together, and we started making videos together, and a lot of it came out of us just cracking ourselves up, like going to the fake mustache store and buying fake mustaches.
+- Felt is not the easiest thing to animate. It's very flimsy.
+- Be willing to get fired for a good idea.
+- Is artificial intelligence less than our intelligence?
+- I've done the thing where I stop being communicative, and I've been on the other side where the other person isn't communicating, and I become frustrated.
+- Samantha Morton is one of the best actresses in the world.
+- Emotions are messy and hard to figure out.
+- On set, there's a lot of pressure. But it sort of heightens the moments.
+- Emotions are messy and hard to figure out. Hard to know where you start and the next person stops. Even as an adult, that's a hard thing to know. As a kid, it can be really confusing, because it's all new and you're trying to sort of make your map.
+- I like the idea of the documentary as a portrait. There's not a chronological beginning, middle, and end structure. You build something in the editing room that's shaped by getting to know the person and digging deeper, unpeeling the layers of them as you get to know them.
+- The best videos were the ones where I became friends with the artists first.
+- I definitely liked the Muppets. I definitely liked Yoda in 'Empire Strikes Back' and Chewbacca. I don't know if I was a fan of puppets or those, like, specific characters.
+- As a parent, your perspective of childhood is through the eyes of this person that you care so much about and you just want the world to be great for them. You want their life to be easy and happy.
+- I never knew how to do anything before I did it, really.
+- Everything in L.A. is - it's just an easy place to live in. The houses are nice, the backyards are nice, you got the ocean right there and the mountains behind you; there's an idealised easiness to the way you live and the whole environment.
+- 'Where The Wild Things Are,' I think I could have written on my own. When I brought Dave Eggers on, I already had 60 pages of notes. I technically could have, but I don't think I was ready to. I needed him to be there and help me.
+- I respect people that are die-hard film people, but I started on video. I started on Hi8 video and mini-DV, and I made skate videos. So, I love film, and I love the way it looks, but I also love the way crappy video looks, or VHS. I've always been a fan of whatever the look is that's appropriate for what the feeling is.
+- I don't understand the whole testing-numbers thing. It is not how I want to make movies.
+- I guess a lot of things I make are relationship movies. Maybe all movies are relationship movies, because they're all about how we relate to each other.
+- Moms are people, too. Moms make mistakes, too.
+- You get a buzz when getting texts: 'Oh, someone's thinking about me.'
+- I don't know what life was like 1,000 years ago, but I imagine there was the same struggle: people trying to connect with each other.
+- A lot of times, you have an idea, and all the things you are thinking about might fuel it. But that's not where the idea came from.
+- I think the way kids create is so inspiring. They're drawing a picture? They love the picture they drew; they're not tortured about it.
+- I was only going to go to college because that's what I thought you were supposed to do.
+- Any conversation I have with anybody that's real is always revealing and inspiring.
+- I wasn't a film kid.
+- I like Kanye, and I care about him.
+- I like people that define their own values. I am much more interested in somebody who has their own definition of what they value, their own definition of what success is, their own definition of what love is.
+- I just want to be who I am, as I am.
+- There are a lot of kids in the world. People seem to keep having them.
+- I'll still make movies for studios, but my editing process will be much further removed from the studio system. Because I don't understand it. I don't understand the whole testing-numbers thing. It is not how I want to make movies. So if that's how they do it, then I don't think I want to do it.
+- Nicolas Cage, I would love to work with him again. He's just a fearless madman. He'll go anywhere you want to go. He would not say 'no' to anything.
+- Pop music, I think there's a reason why kids connect to it.
+- If you focus your energy on the camera, it takes away from the time you have to focus on the performances.
+- Obviously technology has become such a big presence in our lives and, I definitely know, in my life.
+- I'm in awe of directors like the Coen brothers who can shoot their script and edit it, and that's the movie. They're not discovering the movie in postproduction. They're editing the script they shot.
+- I think because I'm not a parent, my most immediate connection to childhood is my memory of my own childhood.
+- I feel like everything I make is personal to me.
+- I'm fortunately not, like, typecast. I don't have to just do one kind of thing; I can do all kinds of things that reflect different parts of me.
+- I'm hesitant to make grand statements because I feel like that it's not exactly what I'm writing about.
+- I love when me and my friends don't know how to make something - there's that risk of failure, which should be there. If it's guaranteed not to fail, it's something you already know how to do.
+- I think, as you're growing up, your emotions are just as deep as they are when you're an adult. You're ability to feel lonely, longing, confused or angry are just as deep. We don't feel things more as we get older.
+- Kids are so fiercely opinionated, that if they love the Harry Potter books and they go see the movie, they'll be the first to say, 'That was wrong! They didn't get that right!' They're storytellers themselves. They're critics. They're going to have the critical opinion.
+- I think the thing that is meaningful is when I can tell that someone's been affected by the movie or by anything I made.
+- I think at the beginning of a project, you decide if you're in love with the idea and what it's about, or what you think it's about at that time at least. Then you commit to it, and once you've commit to it no matter what, no matter how many self doubts you have, you're in it. The ship's sailed, you can't turn around.
+- I met Arcade Fire on their first record, 'Funeral.' I loved that record, and it was a record I was listening to while I wrote 'Where the Wild Things Are.' Those songs - especially 'Wake Up' and 'Neighbourhood' - there's a lot of that record that's about childhood.
+- I am better at math than spelling.
+- We can empathize as deeply as we can empathize.
+- I like hiring people based on a feeling - this person gets it - rather than what they've done in the past.
+- If you compromise what you're trying to do just a little bit, you'll end up compromising a little more the next day or the next week, and when you lift your head you're suddenly really far away from where you're trying to go.
+- I think if something's emotionally real - and I'm not even talking about in movies or in art, but in life - you can't really argue with that, even if your intellectual mind might know differently.
+- Big emotions that are unexplained are really scary. At least to me.
+- Is an audience open to seeing a film that isn't what they expect when they see a film that's been adapted from a children's book?
+- If I heard somebody else say, 'I worked on a movie for five years', I'd be like, 'What? How could it take that long? What were you doing?'
+- The invention of the iPod changes how you use music. Suddenly you have music everywhere.
+- The thing I remember most about having a tantrum is not the rage during the tantrum, but the being freaked out afterwards, and embarrassed, and guilty. It's scary to lose control of yourself.
+- I would love to make video games.
+- If I leave my phone in the car and go to dinner or something for a few hours, I'm very proud of myself.
+- Maurice Sendak never - I remember he said something that was very striking because it's something I never thought about. I always loved his work, and he said, 'I don't really view myself as a children's book author. I just try and write about childhood as honestly as I can.'
+- I definitely enjoy getting to know people I find inspiring.
+- The world is becoming nicer and easier, but that doesn't mean we are any less lonely or any more connected.
+- I started directing videos at the same time that Michel Gondry was starting to direct videos, and I watched what he'd do. They all seemed to be pushing some new visual effects idea, but never just for spectacle. They all captured a feeling.
+- I remember when MySpace came out. It did do something pretty incredible - which was unite people around the world with common interests and common tastes.
+- As a director, you never get to watch other directors work, and you also don't get to collaborate with other directors that much.
+- There's a difference between stress and pressure.
+- I always aspire to that, where it feels like the film was made by the characters as opposed to the filmmakers. I try to be invisible.
+- I worked at this bike shop called Rockville BMX, and I started going on this summer tour with this one company. One summer, we ended up in California, and I got to hang out with the guys who made 'Freestylin' - Andy Jenkins and Mark Lewman.
+- When I was 20 years old, I had no plans to ever be a filmmaker.
+- There's great food everywhere, and even McDonald's uses nice wood now.
+- The market groups and demographics said, 'Teenage guys don't read magazines.'
+- Obviously, movies and music videos are different because they're different lengths, and in a movie, you have more time to explore an idea. But I feel like they're all the same, really.
+- Music is thousands and thousands of years old and I don't think that basic, primitive connection to the language of music ever changes.
+- What I learned from the Beastie Boys was to be independent. They set up their own world separate from the label. They built their own studio.
+- There were times in 'Adaptation' during the editing where I really thought, 'Okay, well, this was a noble failure. I tried to do something good, but this is not going to work.'
+- A great poem leaves so much room for everybody to have such a different reaction to it.
+- On everything I do I'm always taking someone's money, whether it's a movie studio or a record label. Somebody's paying for it, and I'm always respectful of that. But I'm never going to compromise.
+- You can go on Nike's website and choose exactly what fabrics and colours and shapes you want your sneakers to come in.
+- There was definitely a point in my thirties when I thought, 'Oh, wow, I'm not the youngest person on the set anymore.' But I like it. Working with younger artists is totally exciting.
+- Writing is hard.
+- I think there's a knee-jerk reaction to things from parents.
+- Doing a documentary is about discovering, being open, learning, and following curiosity.
+- I'd love to do a musical one day - a theatre musical.
+- I'm always inspired by other filmmakers, whether it's a shot or the way they handle tone.
+- After 'Where The Wild Things Are,' which was this big, long five-year project, I spent a year making small things.
+- I don't want to make a movie till I have an idea I have to make. I don't want to make a movie just to make a movie.
+- I'm not a film-snob.
+- I feel like you only have so much time to make stuff. I'm definitely aware of that. I'm also excited about it.
+- If I can make one generalised statement, and generalised statements are never entirely true, nobody wants to be talked down to, kids included.
+- After 'Where the Wild Things Are,' I guess I felt more confident as a writer.
+- I think the way Win Butler writes, I really identify with it. He writes very emotionally and very cinematically, and I just connect with his sensibility.
+- I like naps. I don't drink coffee.
+- Johnny Knoxville went from struggling to pay his rent to being on the cover of 'Rolling Stone' in the course of, like, a month.
+- Arcade Fire has such intimacy and epic-ness, at the same time, and that's really inspiring.
+- I skated and rode bikes on ramps, and my mom was always super supportive. She was one of the only divorced moms in the neighborhood, so all the other parents looked down upon her for letting her kids do that kind of thing.

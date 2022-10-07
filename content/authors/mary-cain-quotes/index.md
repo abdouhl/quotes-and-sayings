@@ -1,0 +1,90 @@
++++
+author = "Mary Cain"
+title = "Mary Cain Quotes"
+quotes_len = "84"
+description = "the best 84 Mary Cain Quotes"
++++
+- I'm used to running against the clock.
+- There's always people that you can turn to and it's just about finding the right support system.
+- I have a lot of confidence. I'm just excited to compete, and run well.
+- When I kick I tend to be a little bit too tight and all over the place.
+- I often kind of forget about my running. It's not until I'm really at these competitions and at these meets that I really remember what I do.
+- Running is such a mental sport.
+- I think you have to be a leader to be a coach. I think you have to be somebody who is willing to stand up even when it's hard.
+- That's one reason I think the 1,500 is so exciting. You have to be strong, have to be a distance runner. But in that last hundred you are going all out.
+- In the U.S., track and field struggles and I am such a trackie. I love the sport. It's one of those things where if I could garner a little more attention for it or make it a little more exciting, I would love to do that.
+- In track and field, Nike is all-powerful. They control the top coaches, athletes, races, even the governing body.
+- If you don't have good running form, there's only so fast you can go.
+- It was definitely a hard decision to turn professional.
+- The biggest thing that I've appreciated is that a lot of brands have stepped up and sent me stuff. As a professional runner, for many years I've been given Nike clothes. It's been kind of cool and fun to try something new and to do something that I haven't done in six years - train in non-Nike gear.
+- We live in a society in which female weight is both fetishized and also under so much scrutiny. And so trying to shame somebody into losing weight is just such, I mean, an emotionally, psychologically and mentally traumatizing way to coach somebody.
+- Ultimately, I decided to go pro because that is what makes the most amount of sense for me.
+- One of the things Coach Salazar always tells me is you're in just as good shape as anyone else and as long as you're in it with 400 meters to go, you can't give up.
+- Now that I'm officially signed with Nike to get to race with the Oregon Project, it's definitely a dream come true.
+- My goal is to demonstrate that you can have a happy, full life and run at your highest level.
+- I'll do my core, I'll do my strength training, I'll do my occasional cross training if I need it.
+- I'm not one of those people who is scared, like, 'Ooooh, I'm going to burn out.'
+- It definitely is very exciting running against professionals now. Many of the runners in my races have amazing resumes and a lot of experience, so I just remind myself that every race is just a learning experience.
+- As long as I really stay on top of my school work, which I'm for the most part able to do, it's really no problem, me missing school.
+- For many years, the only thing I wanted in the world was the approval of Alberto Salazar. I still loved him. Alberto was like a father to me, or even like a god.
+- At the end of the day, as long as you kind of focus on what you can do and what you can achieve and what's in front of you, that's all you can be doing and all you should be doing. Anything else is probably unhealthy.
+- Always maintain confidence in yourself and confidence in your training.
+- When you're healthy, it's easy to stay healthy. But when you're hurt, it's easy to stay hurt.
+- I guess my whole thing has always been that nobody knows you except for yourself and nobody knows your story except for you and the people who you care about.
+- Don't get me wrong, it's fun when you get cheers for being a little kid. But if I wanted to be babied, I would not have gone pro. I'm welcoming the idea that people will be thinking of me as Mary Cain the professional, not Mary Cain the high schooler.
+- So in my sophomore year of high school, I ran in Barcelona for the World Junior Championships, and I set the national record for the girls' 1,500 meters in doing so.
+- Part of me wonders if I had worked with more female psychologists, nutritionists and even coaches, where I'd be today. I got caught in a system designed by and for men which destroys the bodies of young girls.
+- Sometimes, I do think it's important to not get super ahead of myself.
+- I want to stay humble and not sound cocky. But at the same time I don't want to be the little high schooler.
+- The best thing about getting hurt is that it makes you appreciate running so much more.
+- In so many ways, I just love athletics. It would be really hard for me to pivot outside of the sports world.
+- Going pro out of high school maybe won't work for everybody, but I know that wherever my career goes I'm happy with the choice I made.
+- I'm definitely somebody who wants a college degree. My attitude is, if I'm going to do it I'm going to go full in.
+- I love the sport of track and field. If I can be the person to make it a big thing in this country, that would be amazing.
+- My attitude is, especially in New York, we have some pretty brutal summers in terms of humidity. So for me, if you survive a summer of running in New York City, you get your runner badge!
+- I feel like in New York, we could of course open up more bike lanes, but I think it's even more important to create access for people to run, because I think it's more open to people of all socio-economic backgrounds. I think it's even more of an equalizer, in terms of sports.
+- I hope to be out there showing people that you can come back from really tough, awful times.
+- I'm never one to shy away from competition or working hard.
+- I absolutely think I have the ability to be a world-class athlete and make a team. But even if I never make another world championship team or Olympic team, I think there are so many things I can say about the sport that can really excite me and bring me a lot of motivation in the day to day.
+- Mary Decker's my idol.
+- Societal pressures can really force girls to look one specific way, when in reality there's not one way to be good.
+- Nobody goes into a sport saying, I want to be the fourth-best person. We all want to be No. 1.
+- I don't really think of records beforehand. I don't want them to freak me out.
+- There's something really fun about being a kicker. Once you get to 200 to go and you're still with those girls, you smell blood.
+- I'm an epic nerd. My life is running and schoolwork and sleeping. And eating.
+- I never let myself get psyched out. My motto is, 'Stay calm and carry on.'
+- It's nice in that I have my track life and I have my school life, and so far I've been balancing them really well.
+- I'm still the weirdo who enjoys taking organic chemistry.
+- Tracksmith came to the table with an outside-the-box opportunity to join their team as both an athlete and employee, to pursue my dreams, contribute to a team and build a career.
+- When I was out in Portland there was a lot of really great things about it. But being home, I'm a New Yorker, and I think I've really enjoyed being back out here.
+- And I know I will run for the rest of my life because the actual act and art and feeling of running I love, and I hope to compete on a high level.
+- In terms of just the number of people who run, New York is really unlike any other city. We have such a culture of people who would qualify themselves as runners, and then we have a whole host of people who maybe wouldn't consider themselves a part of that community, but who do actively run, whether it's for exercise or whatever reason they want.
+- I was lucky to have friends and family who were always supportive. It didn't matter to them how I raced.
+- It took me so long to accept that a lot of the stuff I went through was really messed up. I did realize I was being invested in more as a product rather than as a person.
+- Getting to wear a Team USA uniform is amazing. I really wanted to get a uniform.
+- One thing I struggle with is competing, being in a pack, running with a lot of bodies.
+- I have decided, and am truly excited to announce, that I will be turning pro. I believe that, in the long run, this is the best way for me continue to develop as an athlete.
+- Latin AP was a struggle. There were a lot of people in class drawing pictures during that, but I took it seriously.
+- I don't think I could hack it in the 200m.
+- The life I live is the life I want to live.
+- It's good to have somebody who is there to see you day-to-day, even hop into some runs with you.
+- I'm an Armory girl. I've been racing here since eighth grade. Our relay won here my freshman year, but winning the Wanamaker Mile is even bigger. That's huge.
+- I feel like athletes lean into this indestructible character. But unless you're doing something really shady, no one nails every day of their life. You're always going to have rough patches.
+- My competitors won't be thinking, 'Oh, she's only 18, let's go a little slower for her.'
+- To be completely consumed by track, that might be a little bit out of my comfort zone. I kind of like having friends who are less tracky.
+- Rather than force young girls to fend for themselves, we have to protect them.
+- I like that kind of weather. Constant drizzle. At the Olympic trials in 2012, my mom was, like, 'It's pouring rain out there, Mary. You shouldn't even notice it. You're Irish.'
+- The emotional weight being lifted just let me run free and commit to it. I have almost been able to refind a joy for running.
+- Some runners have a constant progression, but mine was very stop and start because of injuries.
+- I was only looking at a few schools and narrowed it down to the University of Oregon. Having a great choice made me more excited and I knew it would be a great opportunity.
+- I joined Nike because I wanted to be the best female athlete ever.
+- All of my friends and a lot of kids at school know what I do. It's really something that's a big deal in my town. So it keeps it really special when people do congratulate me.
+- Returning to running has been a really cathartic experience.
+- I tied so much of my self-worth - and trust me, if you're a runner, you understand this - to my performance.
+- I guess I've always been the type of kid who looks to the stars.
+- I think for me, I've always come back to the fact that I feel most alive when I'm racing. That sounds very cliche, but for me the reason I feel that is because racing is that opportunity to really find your limit.
+- My training is about growing, and getting better.
+- Different people have different things that trigger them to realize their situation was not OK. In events like the #MeToo Movement, there are many cases where it took decades for someone to talk about their situation. That doesn't mean their stories aren't valid.
+- I definitely look to people like Usain Bolt and Sanya Richards and especially Allyson Felix, being an American athlete who went pro right after high school. Of course I would like to replicate that career, but obviously as a 1500-meter runner.
+- Sometimes athletes are expected to lose weight over the course of the season. But usually they work with a professional nutritionist. There's not some arbitrary target that's trying to be reached. It's more go through the process - train hard, eat well.
+- What I have learned in this sport is that it's very easy to feel very alone.

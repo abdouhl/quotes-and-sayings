@@ -1,0 +1,106 @@
++++
+author = "Mandira Bedi"
+title = "Mandira Bedi Quotes"
+quotes_len = "100"
+description = "the best 100 Mandira Bedi Quotes"
++++
+- People are willing to do whatever it takes to get to where they want to.
+- When I'm in Mumbai, I make sure I drop Vir to school and pick up as well. And I fit all my work within that time duration so that I can be as present a parent I can be.
+- Before I had my son, I used to travel a lot, almost 40-50 days at a time for cricket tournaments.
+- Shanti was a strong woman who stood for many things. I would find myself standing up for the rest of the unit when the food served was bad.
+- I don't want to get into the daily soap drama.
+- When you experience parenthood, it makes you look at the other side as well.
+- I don't think it is very polite and respectful asking someone out during an interview.
+- Therapy shouldn't be taboo, if it's going to clear your head.
+- My Tara has the love of a family. She will receive the education and care that will allow her to fulfill her potential wherever her dreams take her. As a parent, I have only unconditional love to offer.
+- Working out genuinely makes me happy.
+- I have never planned my acting career and was never ambitious.
+- We had applied for adoption three years ago, but it was during the lockdown that I felt the void even more.
+- Success is transient and so is failure.
+- The entertainment business is brutal.
+- I am not putting down what is on television, but I don't see myself in that space. Unless someone offers me a 'Shanti,' I would definitely do that.
+- We were looking for an older child since we didn't want too much of an age gap between her and Vir. However, nobody matched the criteria. So, we were advised to extend our search across India. Within a week, we found Tara in a place near Jabalpur.
+- Dhoni is easily the best captain Indian team had ever had, whatever people say.
+- The cricket World Cup opened a lot of doors for me. People invite me to host shows and events.
+- I think audiences were somewhere fed up with watching the same Saas-Bahu soaps all the time. I've been part of one of them.
+- I just take life as it comes.
+- I have always been on television in cricket hosting, anchoring reality shows.
+- I follow a strict routine and healthy diet to stay fit.
+- There is so much that I learn from my son.
+- When I was pregnant, we decided that if it's a girl, we would name her Tara and if it's a boy it would be Vir.
+- I have got lines on my forehead, so be it, the laugh lines add to my personality.
+- I try to keep it authentic and I try to keep it real, that has been my mantra from age 40 onwards.
+- In my 20s, I was carving a space for myself in the world of entertainment.
+- I'm keen on doing TV shows and if anything really challenging comes my way, I'm up for it.
+- You can't put the blame squarely on one person. Casting couch is not just about one person who says 'come and compromise.' The other person is also willing to compromise. It's always a two-way street.
+- 'Shanti' made me a stronger person.
+- I always wanted to adopt a little girl.
+- I was offered only item numbers and did not want to accept as I had it ticked off my bucket list.
+- Balance does not come naturally to any working mother, I can assure you that.
+- I have faced trolling from the time I have been on social media.
+- We are a spectrum of colors in our family and that's what makes us so special.
+- I've only done one romantic film, 'Dilwale Dulhania Le Jayenge,' and I didn't get my man there.
+- Even if I have a shoot in the morning, I don't go a night before because that would mean one less night with my son and I don't want to lose time on him.
+- I have worked for a major part of my married life.
+- I have loved doing live shows and that gives me a pump.
+- Motherhood is the most beautiful thing that has ever happened to me.
+- Gone are the days when you could go to an orphanage or a centre and apply for adopting a child there. Everything is online now, and under one umbrella.
+- People forgot I was an actor before gaining success in anchoring. That was one of the turning phases of my career.
+- I like to come home after an event and show my daughter what I was wearing, because I know she really appreciates it.
+- My work has spoken for itself, and I've been offered work purely on merit.
+- At times, I find that TV today has taken so many steps backwards and has become so regressive as compared to the kind of wit in shows from the '80s and '90s.
+- I'm stressed when I don't have crazy hours.
+- People like to watch downtrodden women who are suffering and trying to find their way up. I don't know why we have gone backwards.
+- I remember anchoring the World Cup 2011 show when I was seven months pregnant! So, I don't think that my connect with cricket will ever end.
+- In the 23 years that I have been here in this industry, I have not once been in a position where somebody has propositioned me or I found myself in a place where they're offering me good work in return for some favors.
+- '24' is such a game-changer.
+- Raj has always been a great encouragement to me. We have gone through some really rough patches as well. There was a time when I was always busier than him. That was a good part of our married life.
+- My husband is the wind beneath my wings.
+- People have a limited vision. While abroad actors such as Halle Berry have done many positive roles, we still associate short hair with negative characters.
+- Of course, my husband is extremely supportive.
+- Motherhood is something that everyone should experience and I didn't want to be left behind.
+- I never got the right kind of roles.
+- I have grown up in an environment of equality, so feminism is equality for me.
+- The unconditional love I feel for my son, I can only imagine what my parents feel for me. And it has made me love and respect my parents more.
+- I play the role of a gangster's wife in a web series, a cop's wife in Hindi film 'Vodka Diaries,' a cop in 'Adangathey' and a gangster in 'Saaho.' So yeah, I have got all the roles covered.
+- I feel blessed that I could give a family and a home to one child, and give birth to another.
+- I enjoy acting.
+- Anchoring or doing anything live is thrilling. But acting and playing different characters is also amazing.
+- I have designed 150 saris.
+- I get many offers from Tamil films but I refuse to do them because I get offers to do item songs.
+- I was working with Prahlad Kakkar's ad agency. Somebody saw me there and 'Shanti' happened.
+- There are a lot of TV roles that were offered to me after '24,' but I'd rather wait and come back with a season two of '24.'
+- Insulting people doesn't make you brave, bold, cool or courageous.
+- There is no chance of retakes during live shows and that really challenges me.
+- Until the legal formalities are completed, one is not supposed to make it public. When a child comes home, he/she is considered to be in foster care for the first month; the legal procedures begin after that.
+- I always thought I will wait for a channel to come with a Mandira Bedi centric role.
+- As my primary language was English, I had to work on my Hindi. I wasn't so comfortable with it.
+- I don't give two hoots about nasty comments. I can laugh over them when they are about me but it's not okay to attack my family, my children. I can't take it. My claws will come out.
+- After my parents, the one person who believed in me - more than myself - is my husband.
+- My 30s was the time that was riddled with insecurities.
+- There really needs to be more of progressive shows and strong characters that women should aspire to be like.
+- I circuit train three times a week and run 10 km once a week.
+- Now I finally know how painful it is for a mother to be working when her child needs her.
+- In every show that you see, there's some stuff that's funny and some stuff that is not, or there might be stuff that you find funny and I don't. That would be true for any show, however funny or popular.
+- That's the saddest part about fiction shows. If one show works, there would be six other made on similar lines.
+- They offer me item numbers, Bhabhi roles and all that. When they offer me the role of the main lead, that particular film ends up not being made. I don't know what they want.
+- We are lucky to be blessed with a baby on Father's Day.
+- Ever since I turned 40, I just feel people are appreciative of the fact that I am what I am.
+- Vir made his first appearance at age four months. The more he gets exposed to the people and the life that I have lead, it's good.
+- I've been anchoring corporate events, award shows and cricket tournaments for so many years now that they have become an integral part of my life.
+- Hosting shows is a journey for me. I bond with the contestants.
+- The good woman, who makes all the sacrifices is always the one with long hair.
+- Chris Gayle has always been known to be a rather irreverent person.
+- I take Vir with me wherever I go. Its not really practical to leave him behind.
+- I don't make statements, I am not rude, and I have never used social media to attack people or to make points. I use it to spread positivity.
+- Theatre is always going to be an important part of my life.
+- Short hair is reserved for the questionable characters, the vamps.
+- I come from a background where I have no acting experience and when I did 'Shanti,' I got a lot of support from my parents.
+- The problem in India is that people see you in one role and then they want to offer you similar roles.
+- I gave birth to my son when I was 39, in 2011, as my contracts didn't allow me to get pregnant. I was scared that if I get pregnant, it will be the end of my career.
+- Raj and I wanted a sister for Vir. My son is eight and we are looking at adopting a girl who could be between two-and-a-half to four-years-old. We have already thought of a name for her. We are going to call her Tara.
+- I play a government agent in '24.'
+- I have worn saris a lot over the years, so designing them was like a natural progression.
+- I think that short hair teamed with sari and bindi looks fab.
+- I like Dhoni's energy and his passion towards the game.
+- I have a thing against using botox and fillers. That's not my thing at all.

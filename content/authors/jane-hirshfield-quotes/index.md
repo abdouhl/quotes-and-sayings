@@ -1,0 +1,15 @@
++++
+author = "Jane Hirshfield"
+title = "Jane Hirshfield Quotes"
+quotes_len = "9"
+description = "the best 9 Jane Hirshfield Quotes"
++++
+- My job as a human being as well as a writer is to feel as thoroughly as possible the experience that I am part of, and then press it a little further.
+- At some point, I realized that you don't get a full human life if you try to cut off one end of it; that you need to agree to the entire experience, to the full spectrum of what happens.
+- What we want from art is whatever is missing from the lives we are already living and making. Something is always missing, and so art-making is endless.
+- I feel like I am in the service of the poem. The poem isn't something I make. The poem is something I serve.
+- One reason to write a poem is to flush from the deep thickets of the self some thought, feeling, comprehension, question, music, you didn't know was in you, or in the world.
+- I see poetry as a path toward new understanding and transformation, and so I've looked at specific poems I love, and at poetry's gestures in the broadest sense, in an effort to feel and learn what they offer from the inside.
+- In the dream life, you don't deliberately set out to dream about a house night after night; the dream itself insists you look at whatever is trying to come into visibility.
+- You can't write an image, a metaphor, a story, a phrase, without leaning a little further into the shared world, without recognizing that your supposed solitude is at every point of its perimeter touching some other.
+- Poetry is a release of something previously unknown into the visible. You write to invite that, to make of yourself a gathering of the unexpected and, with luck, of the unexpectable.

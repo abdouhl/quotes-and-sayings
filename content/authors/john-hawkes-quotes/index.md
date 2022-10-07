@@ -1,0 +1,61 @@
++++
+author = "John Hawkes"
+title = "John Hawkes Quotes"
+quotes_len = "55"
+description = "the best 55 John Hawkes Quotes"
++++
+- Starting in the mid-'80s, I played in a band called Meat Joy, and we made our own record, toured.
+- I've never had any delusions about being a leading man, and it's not sour grapes to say that in the best films that I've always enjoyed, the cliched leading man type isn't a part of the picture.
+- I generally play strong people and scary people.
+- Being a kid, as all kids do, you feel out of place or like kind of a freak. You wake up feeling like your head got put onto someone else's body that day.
+- When something gets attention so quickly, people sometimes will look for reasons to find fault and tear it down.
+- Part of the way that I work is to observe.
+- As an actor, you don't often get a chance to know exactly the impact of what the audience is seeing, even though you can ask where the frame is. A move that feels tiny can be huge, and vice versa.
+- I understand why people achieve a level of fame and disappear, I never understood it before, but it's an attractive prospect to walk away from it all.
+- There's a lot of skeletons in my closet!
+- When I over-prepare, I try to let it all go and forget all about it when the camera rolls, so I can just be present with the other actors and allow what's going to happen to happen without too much preconception.
+- It's probably odd for someone to read an interview where the interviewee is worried about exposure while they're talking in an interview.
+- For the last 20 years of my life, I've had the mantra to do amazing parts with amazing people in amazing projects, so I'm attracted to good story, writing and character and good people. That's what I'm always searching for and I don't think that's ever going to change.
+- I want people to believe me when I play a part and they are less apt to if they know a lot about me and have associations about me.
+- If you're telling a story it's always best not to play the ending.
+- When you're just starting out, and someone you think is a real storyteller says something good about you, that helps.
+- Certainly I've had the experience of thinking a person was one thing, and finding out they were another.
+- I do all kinds of roles - nerd, psycho, nerd, psycho, nerd, psycho - and occasionally someone kind of normal. It's weird, when I lived in Austin I was always cast as pretty normal people. But when I moved to Los Angeles I was immediately branded a psycho.
+- I think we're all mysteries to ourselves.
+- I don't have any training as an actor, but I guess I'm an intense pretender. When you read something over and over, it gets into you a little bit. You can't help but begin to feel it, even if you're a healthy person as I think I am.
+- I don't think there are in life, pure darkness or pure light. Everyone's got a little of everything.
+- You don't really ever think you're that crazy person you're playing.
+- I don't mean to be highfalutin about it, but I try to limit my visibility.
+- I have to be careful of what TV shows I choose, particularly ones that have commercials in them, because it's going to be a different kind of television show.
+- I met Robert Rodriguez working on a movie called 'Roadracers.'
+- Even the small amount of infamy I have makes me uncomfortable - on a personal level and on a professional level.
+- I don't have actor training myself.
+- I don't really try to judge any character that I play, afterwards I figure it out, but while I'm working on the character, I have to find something in them to relate to.
+- 'The New York Times' thing... I think any actor would be thrilled to be profiled in that paper.
+- I maintain that if you're a novelist and you go into an art museum, you'll come out a better novelist. And if you paint a picture for an hour you're a better actor at the end of it.
+- The only thing I do on a computer is play Texas Hold 'Em, really. Obviously my cell phone is a computer. My car is a computer. I'm on computers every day without actively seeking them out.
+- I lived in Texas for 10 years.
+- As an actor you have to have a strong vivid imagination as you're working and when the camera's rolling, but there's certainly a part of you that is aware of real life, that you're making a movie.
+- Hitchhiking was such a pure form of existence. You'd wake up in the morning, and you'd have no idea what your day was going to be. And that's something I've never been able to shake. I loved that.
+- I guess you can say that every actor is a 'character actor' on some level. But I think some actors have a wider range. I think that's how you get that mantle.
+- It's much more interesting to watch someone who is ill-equipped to solve their problem fight to solve their problem than wallow in the knowledge that they're ill-equipped to solve their problems.
+- My fear now is of cliche, of complacency, of not being able to feel authenticity in myself and those around me.
+- It's hard to get concert tickets.
+- It's nice to sometimes get things out of life, rather than stealing from other artists. I'm trying to steal from the real people.
+- I'm just looking for the best story being told by the best people and the best part that I can find. If those things add up, I want to be a part of it whether it's a studio film or, more likely in that instance, an independent film.
+- As an actor, I think a mistake that any storyteller can make is to play the ending.
+- I'd said to my sweetheart a couple of days before that the SAG and Spirit Award nomination was amazing and I had no attachment to the Academy Award. I knew I was an underdog so I just decided to sleep through the announcement.
+- A lot of times, you just don't get the jobs you want to get.
+- If a musician wants to be an actor, everyone thinks that's pretty cool. But if an actor wants to play a song, even if they've been doing it for 40 years, that's bad news.
+- People have said unkind things and you kind of have to, if you happen to read it, you have to just, you know, move on.
+- I think that no matter how dark a person is, the more you learn about them, the more you understand about their life, the more you can sympathize with them or even root for them.
+- I went to a performance of 'The Crucible' at the Guthrie when I was a sophomore in high school, and I knew right away that that's what I wanted to do.
+- It's tough being an actor making music, because even I have a knee-jerk reaction to that.
+- Some friends of mine bothered me for a long time about getting on the social networking pages. They were close friends that I liked to mess with, and I think that I kind of enjoyed for a while that it bothered them so much. Now they've just kind of given up.
+- I think we've all been misled, at moments in our lives, certainly in school situations, and things like that, with getting with the wrong group briefly, or falling in with someone who we learn the truth about and no longer want to really be with.
+- When I realized that you can't necessarily be cast in a really great part living in Austin, even when Hollywood comes to town, I got a demo reel together and headed out west.
+- For me and for I'm sure any actor, each role is a different challenge to prepare for in a different way.
+- In the time between when you first read a script and are offered the role and the time when you begin to shoot, I really love putting in the time and work on that and getting a solid backstory to a character and researching all that I can about what that person does for a vocation or their upbringing or where they're from.
+- It's not like every director in every movie is seeking me out by any means, there are a lot of things I'm not suited for, a lot of things I'm not interested in, and a lot of things that directors wouldn't be interested in me for.
+- You never really forget who you are. If you did, you'd need to seek some professional help.
+- It seems like every year Hollywood makes an attempt to retell the Manson story, and I just couldn't be less interested in it. It's not really our crowning achievement as a civilisation. I'm not saying it shouldn't be done, but it just bores me.

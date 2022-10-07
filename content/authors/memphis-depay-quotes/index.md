@@ -1,0 +1,102 @@
++++
+author = "Memphis Depay"
+title = "Memphis Depay Quotes"
+quotes_len = "96"
+description = "the best 96 Memphis Depay Quotes"
++++
+- I have been through little situations. That makes me strong.
+- To win, you have to score; if I can do that frequently, my job is done.
+- Sometimes I play as simply as possible, in one or two touches. But I also make bad decisions, I make mistakes, and I try too-complicated things.
+- Let's be honest: doesn't everyone look at Ronaldo's free kicks? I've looked at a lot of his technique, but I do it in my own way. I have my own style and try not to do the same.
+- I try to make the right decisions.
+- I believe I can be one of the best players in the world. That's why I have my 'Dreamchaser' tattoo on my chest.
+- Back in Manchester, I was not happy with myself.
+- Ask any player: we all want to play in the best clubs and the best championships.
+- I've learned so much at PSV, not only on the pitch but also as a person.
+- Arjen Robben, for instance, is a good player, and he helped me a lot with the international team.
+- I have a life next to football.
+- Great players play all matches.
+- If you believe in something that you can achieve, I think you will make it if you put everything into it.
+- I have no bitterness towards Mourinho. I did what I had to do in training. Of course, I didn't understand his choices, but he was the boss. I had to accept those choices.
+- I have a lot of expectations on myself. That's important.
+- In the first season, I didn't contribute enough, but I really believe you need a year to succeed in the Premier League; it's the fastest league in the world.
+- I've always been criticised, but the important, that's what my team thinks. Others, I don't care about their opinion; they speak in the void. Social networks give them a voice, but I don't listen it.
+- Van Gaal is really a man with personality.
+- It's important for me to play every match the best I can.
+- Everyone knows the history between me and Man United wasn't successful. I didn't want it like that.
+- I get up every morning and thank God for giving me the opportunity to play football.
+- I don't always feel like a valued player.
+- I'm proud of winning the title with PSV. It's something the fans deserved and something I wanted so bad as well.
+- You go through experiences in life on and off the pitch.
+- Some people collect stamps; I like fashion, discovering nice new things. I feel good about doing that.
+- I was always reading about the Premier League. It has been a big dream and one that came true. But it is not the end of the dream; it is just starting.
+- It does not matter to me. I can play from the left, the right, or attack through the middle.
+- I take risks; sometimes I lose the ball. It happens. This is the football.
+- I'm not David Beckham. I don't compare myself to such a legend.
+- I live day by day.
+- It is something special coming back to Manchester.
+- Of course I want to be the best in the world; I want to play against big teams and against big stars.
+- Mourinho is a great coach. He has told me he believes in me, both in person but also publicly.
+- To stay positive, you have to be very strong mentally.
+- I should be playing every match.
+- Even if I start on the bench, if I come on, I go. Because I know I should be on the pitch, and I want to show why.
+- Once you lose connection with the coach, it gets difficult.
+- I want to improve myself; I believe I can be a big player in the Premier League.
+- I am unbreakable.
+- I have to do my job, so then yeah, maybe in time I can be a legend. But to have those positive sounds from the fans and the legends that talk about me, I'm grateful for that.
+- I always dreamed about the Premier League.
+- I'm not a football player 24 hours a day.
+- What am I missing to be the best in the world? Honestly, nothing in terms of quality, just consistency, and that's not arrogance.
+- I don't want to talk too much. I want to show it on the pitch.
+- Everybody watches free-kicks, and when you watch them, you enjoy them. You have got to learn how to shoot and connect with the ball and how to move your leg. For everybody, it is different, but if you want to score lots of goals, then free kicks is an extra way to do that.
+- You learn from your mistakes. Those moments they will come, and I will work and focus on it.
+- I learn from my failures, but I will always try technical things; I will always try to take pleasure and do great things.
+- Being a fringe player is not the role I want.
+- I heard people compare me to Cristiano Ronaldo.
+- I'm focused on football and my career. No one really has to doubt that. Outside, I do other things that make me happy.
+- I think soccer kept me off the street.
+- I don't feel sorry for myself.
+- I want to aim as high as possible. I want to become the best player in the world.
+- If you want a left winger who plays simple, I'm not the good player.
+- My quality on the ball will improve the more minutes I get in my legs because it works like that.
+- In Manchester, I always worked as I had to. For me, personally, it wasn't all that easy.
+- I will put pressure on myself to play good every game.
+- I hope I can develop here in the Premier League, and I hope I can be like those great legends one time in my career.
+- Leaving Manchester United? That was not complicated.
+- That's my motto: dream, believe, achieve.
+- If my body gets tired in the game, it's harder to keep the quality on the ball.
+- Good is not good enough at United.
+- I take risks sometimes, and it's not the best choice. I have to take that kind of risk to become one of the best players in the world. If that's what I want to be, I cannot just play simple.
+- In the Premier League, you always have to be at your best. You get forced to get the best out of yourself.
+- I feel confident. I feel there is a lot of confidence in me.
+- I'm a flamboyant guy, and I like nice stuff, but that doesn't mean I couldn't be more smart.
+- I'm honest - of course I want to be a legend.
+- I cannot be anyone else but Memphis. I tried that, and I was not happy with myself.
+- I want to go to a club like Real Madrid, Barcelona, Chelsea, Manchester City, Paris Saint-Germain, or Bayern Munich.
+- No matter what, you have to always keep your chest out. Sometimes it's hard; it's really hard.
+- I want to go to a city that suits me and a club that suits me, to a team that really wants to play football.
+- Apparently, the things I do outside of the football are not taken as positives. I don't care, but sometimes it amazes me.
+- Sometimes I wonder if people realise how beautiful and honourable I find it to play for my country.
+- Everybody likes new shoes! It is a new feeling, going onto the pitch, so it is great to be able to wear them straight out of the box. They are comfortable straight away and move with you. I could not do that with my old shoes. So every time I have a big match, I want new shoes straight out of the box.
+- I want to let my feet speak.
+- The most important for me, what is expected of me, are goals and assists. For the rest, I do my best.
+- I am the person I am. Everybody has to respect that.
+- I'm very comfortable in my own skin.
+- It is a nice feeling to score two goals at Old Trafford.
+- First and foremost, I want to play well.
+- I enjoy my tattoos, as you can see.
+- I want to become a star. Failure is not an option.
+- I stay close to my identity - that's something I find important - but I don't completely shut myself off from the outside world.
+- I have to play with discipline in midfield.
+- If I don't score goals or get assists, I am not doing my job.
+- I play for God and only God.
+- I cannot become the best in the world by staying in Lyon; that's clear.
+- How can I be a great football player when you're not happy with yourself?
+- Lyon is a big club, but not one of the five best in Europe.
+- I am a striker, so I have to score goals and give assists.
+- A keeper can almost never catch my shots.
+- I believe I can be a great player for Manchester United.
+- You have to work on your dreams every day, and that's what I am doing.
+- I work a lot on my coordination and starting speed.
+- I can improve and make my game more complete, but I keep on working and try my best.
+- What's my secret? I don't have a secret - you just have to work every day on your dreams.

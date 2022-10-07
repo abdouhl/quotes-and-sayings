@@ -1,0 +1,87 @@
++++
+author = "Jami Attenberg"
+title = "Jami Attenberg Quotes"
+quotes_len = "81"
+description = "the best 81 Jami Attenberg Quotes"
++++
+- I did get in a few fights in school. Kids threw around anti-Semitic slurs, not knowing necessarily what they meant. It was probably just something they picked up somewhere, as kids do.
+- I kind of want to be seen as an American writer, not just a New York writer.
+- I won't go anywhere near the new Times Square. It's seizure-inducing.
+- People are branded as either 'fat' or 'skinny' from an early age. You sort of never shake it, even if you end up losing weight.
+- I make up stories about people who are either imaginary or some variation of myself.
+- There's something to be said for an author who clearly respects a reader.
+- In addition to public housing, South Williamsburg is home to shabby artists' lofts like mine, apartments of Hasidic Jews, and one extremely tall, high-priced condo.
+- Food and love are all intertwined at our core level. It can be a very nurturing, wonderful, loving thing.
+- The interesting thing about overeating or being obese is there's this physical manifestation of it.
+- Young adult novels don't shy away from the discussion of weight issues, and 'Blubber,' the tale of an overweight, not-so-sympathetic fifth-grader bullied by her peers, is a refreshing take.
+- I don't know if I had ever found my place in the world until I fully committed to being a writer.
+- As creative people, we should be really conscious of being of service in our work, being as generous as we can.
+- I was fat because I lived in the Midwest in the 1970s, and everyone was a little fat then and only getting fatter.
+- I feel a bigger sense of fulfillment when writing a novel, and short stories are more about instant gratification.
+- It's the differences in people that help you realize who you are. Even if we silently pass each other on the street.
+- I've always been an old soul.
+- No offense to Bushwick, where all my neighbors greeted me on the street and there is a growing arts community and a curious beauty to its industrial zone, but Bushwick is no Williamsburg, even if the real estate agents would have you believe it is.
+- When I was growing up in Chicago, my family and I used to go to a local chain, Hackney's, for burgers and their French fried onion loaf. I probably haven't been to one in 25 years, and yet, I once saw Donald Trump from behind in an office building and the first thing that flashed in my mind was his hair looked like that onion loaf.
+- I do not mourn the death of the printed letter in a snobby, East Coast, patrician way - 'Where have our manners gone?' - but because I love objects, I love paper, and I love something that I can hold to my chest for a moment. Still, I bear no grudge against the e-mail form itself.
+- In 1998, I started a blog, something I could control very easily and update at my own whim.
+- My Twitter feed is probably my biggest resource of news. Other people scour the web so I do not have to, and I thank them for it.
+- With apologies to all my past boyfriends, I never loved a man the way I loved my old apartment.
+- I remember being banned from other houses as a younger child during the winter holiday season; I was the only one who didn't believe in Santa Claus, and I was ruining everyone's Christmas.
+- In your 40s, you shed those who bring you down and surround yourself with the most positive people you know.
+- Cooking skills aside, my mother is an exceptional nurturer.
+- In 'The Odyssey,' every feast is extremely ritualized; high-status individuals even get a better cut of meat.
+- Why e-mail a full emotional statement when, instead, you can text a totally insignificant and ambiguous half-considered phrase?
+- Sadly, e-mail has triggered the decline of the handwritten note; I have seen its near-disappearance in my lifetime.
+- I'm not really interested in writing or reading about people who are nice and easy. I like the problem children.
+- It's good to pass on stories.
+- I check my phone first thing when I wake up in the morning. I usually take it up with me to bed so it's on the floor next to the bed, although not actually in bed with me, because I really do not want to be the person who sleeps with their phone.
+- My grandmother died when my mother was just 11 years old, and consequently, my mother never learned how to cook particularly well.
+- I know I have a problem with semi-colon abuse and have written page-long sentences. Nobody needs to be reading page-long sentences, at least not written by me.
+- We've all got flesh. I've just got a little more.
+- I always tell people this when they're looking for an agent - they should love your work. You are entitled to work with someone who believes in you. Why do business with someone who is ambivalent about you and your art?
+- For years I'd thought my color was black: deep, dark, thoughtful, mysterious. Black, you can hide behind. But now I know it is red.
+- In the past, I was sometimes put in this women's lit category, and I was never really sure that was the appropriate place for me - although I certainly recognize it can be helpful and correct for other people.
+- When we are young - or even 32 - we often say 'yes' to everything because we're worried that we won't know what we'll like if we don't try it.
+- An ellipsis is a giant ocean of possibilities.
+- I think when you first start out, you're writing books that are about your immediate place.
+- In the wintertime I like macaroni and cheese.
+- I can act like a boy as much as I want, but when I wake up in the morning, I'm still a woman.
+- My parents are still married. They don't weigh 350 pounds; they go to the gym all the time.
+- I'm a really selfish person. But I would do anything for my friends.
+- No matter how many feminist tracts you read, you never forget what boys like.
+- Most of my writer friends are women, and they're all extremely talented, so of course I think the state of contemporary fiction for women is pretty great. Which is to say there is a ton of amazing work out there. These women are writing hard. There's much to be said. We're on it, chief.
+- There are generations of people who don't know how to eat properly.
+- I don't think there's any topic a writer should feel afraid of tackling just because it has already been discussed. If you feel you have a fresh perspective and an understanding of a certain emotional truth, it's always worth writing.
+- For years I drove cross-country, back and forth a dozen times, sometimes on book tour, sometimes just to get lost and found.
+- I'm from the Midwest. We like to know who our neighbors are.
+- I have very distinct memories about growing up as part of what was then a very small Jewish community in Buffalo Grove, IL.
+- When does an object become a symbol? All I know is you cannot force it.
+- I am not one of those people who string their exes along. Instead, I run and hide: under the covers, behind my computer screen, on opposite coasts of the country.
+- I was fat because my parents were a little fat themselves at that point in their lives, and I ate what they ate.
+- What a character eats is a detail - like eye color or a favorite song. But food is also our lifeblood.
+- No matter how much money I made from writing, I'd keep the bookstore job.
+- Does everything in this life begin and end with Judy Blume? Perhaps.
+- I wrote a novel. It's called 'The Middlesteins.' It's fiction. It's not a memoir. I'm not a spokesperson.
+- I find that short stories are almost like palate cleansers or brain cleansers.
+- The best thing about the Web is the sound of all the individual voices rising.
+- Maybe I wouldn't hit three fast food restaurants in a day, but I could hit one in a day. I try not to do that.
+- I'm pretty pro-food.
+- I think it's nearly impossible to write something fictional without having it be about yourself in some way or another.
+- I actually didn't grow up in a household that loved Chinese food particularly, and it's not really my go-to food or anything... We were more a pizza family, being from the Chicago area and all.
+- Listen: I'm OK cute. I'm no stunner.
+- I don't know much about any of the Hasidim because the men won't talk to me because I'm a woman, and the women won't talk to me because, while I am Jewish, I'm not Hasidic.
+- Maybe just as many women writers as male writers could be billed as the next great American writer by their publisher. Maybe book criticism sections could review an equal amount of female and male writers. Maybe Oprah could start putting some books by women authors in her book club, since most of her audience is women.
+- I have watched Occupy Wall Street mostly from the sidelines.
+- There are a lot of great things about food, but it's something that's an eternal struggle in our contemporary society, where and how food is made, where it's coming from, how much to consume. There are so many layers to it.
+- I didn't go to graduate school, where all the important writers seemed to be getting their start. I didn't pursue getting published in literary magazines. I didn't even send out countless pitch letters and manuscripts to agents.
+- Social media can connect you with other people in so many wonderful ways - but it can also make you really sick of yourself.
+- Do you often find yourself uttering the phrase, 'I feel like I should go?' You do not need to go. You are busy that night. You are busy every night, forever.
+- Many online journals get the most hits of the day during the lunch hour.
+- It should be said upfront that I totally dig people who work in bookstores and libraries. They love books, and I love books, and that is all I really need to know. If they are friendly to me, then we are clearly soul mates.
+- Some journal writers choose to password-protect their site, which is either an incredibly responsible act or a paranoid one.
+- You write a book, and after 50 pages you think it's about one thing, and then you write another hundred and you realize it's about something else, and then by the time you're done, you can look back and say, 'Oh, this is what it's about.'
+- Anything by Lorrie Moore speaks to a certain kind of person.
+- I know the bestseller 'Gone Girl' doesn't need an ounce of support from me, but that book was as sharp and witty as they come.
+- What I try very hard to do is have an hour or so in the morning when I leave the house and don't have my phone with me. I'll go sit in a cafe and read and handwrite in my notebook and not be facing a screen. My head will be clear. I will be able to hear myself think. Because honestly for the rest of the day it's just screens, screens, screens.
+- My love can be easily bought with a steak from Peter Luger's.
+- Your family is unavoidable. You cannot escape them or trade them in for another family. You also can't change them... but you can change your response to them.

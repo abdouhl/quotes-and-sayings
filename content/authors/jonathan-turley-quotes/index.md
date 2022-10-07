@@ -1,0 +1,27 @@
++++
+author = "Jonathan Turley"
+title = "Jonathan Turley Quotes"
+quotes_len = "21"
+description = "the best 21 Jonathan Turley Quotes"
++++
+- Frankly, most governments are used to lying to each other - to a degree that most people would find shocking. Part of diplomacy is the art of strategic lying.
+- While Congress saw some need to loosen the standard in the initial days of a war, it wanted the president to comply with FISA in carrying out surveillance in the United States.
+- People don't seem to understand that the separation of powers is not about the power of these branches; it's there to protect individual liberty - it's there to protect us from the concentration of power.
+- For many, the recent disclosure of massive warrantless surveillance programs of all citizens by the Obama administration has brought back memories of George Orwell's '1984.' Another Orwell book seems more apt as the White House and its allies try to contain the scandal: 'Animal Farm.'
+- After almost half a billion dollars spent on the computer registration system for Obamacare, the website coughed, sputtered, and appeared to descend into an immediate coma as millions tried to log on. One reason is that the Obama administration never fully tested it.
+- I happen to agree with many of President Obama's policies, but in our system, it is often as important how you do something as what you do.
+- I supported Barack Obama. I wasn't very quiet about my support. I thought he was going to be a refreshing change to George Bush. But what has happened is that we have an election that's become a single-issue election, and that issue is Barack Obama. And he's an icon to both sides.
+- In Washington, task forces work like Tylenol: they reduce the symptoms of scandal while leaving the substance untouched.
+- Under the common law, one of the more controversial rules is the 'no duty to rescue rule' that says that, if you were not responsible for placing someone in danger or risk, you have no obligation to help them, even when it would cost little to save their life.
+- Our carefully constructed system of checks and balances is being negated by the rise of a fourth branch, an administrative state of sprawling departments and agencies that govern with increasing autonomy and decreasing transparency.
+- There's no question that Roberts will vote like William Rehnquist... If he swings, it will be from right to far right.
+- People don't realize that the Obama Administration has been, if anything, harder on whistleblowers than the Bush Administration. Part of the reason is that they know that the response will be more muted because the traditional constituency supporting whistleblowers just happen to be the same constituency as Obama's.
+- The Republican and Democratic parties have accomplished an amazing feat with the red state/blue state paradigm. They've convinced everyone that regardless of how bad they are, the other guy is worse.
+- Truth be known, President Obama has never been particularly driven by principle. Right after his election, I wrote a column in a few days warning people that even though I voted for Obama, he was not what people were describing him to be. I saw him in the Senate. I saw him in Chicago.
+- Few people know that President Obama has used drone attacks many times more than Bush ever did. Obama's off the charts in terms of drone attack.
+- There are many people that frankly cannot get themselves to oppose Barack Obama. They make a lot of excuse for him.
+- Obama is as likely to be impeached as he is to be installed as the next pontiff. And I say that as someone who has testified in Congress that this president has violated federal laws, unconstitutionally appointed various executive-branch officers and improperly transferred money.
+- I've said it before: Barack Obama is really the president Richard Nixon always wanted to be. You know, he's been allowed to act unilaterally in a way that we've fought for decades.
+- There's a misconception about Barack Obama as a former constitutional law professor. First of all, there are plenty of professors who are 'legal relativists.' They tend to view legal principles as relative to whatever they're trying to achieve.
+- Bill Clinton was impeached primarily for criminal conduct: lying under oath and misleading a federal grand jury about his affair with Monica Lewinsky. Nixon would have been impeached for a wide array of criminal acts, as well as abuses of power.
+- Law professors like Obama tend to view the law as one means to an end, and others, like myself, tend to view it as the end itself.

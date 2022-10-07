@@ -1,0 +1,57 @@
++++
+author = "Maria Ressa"
+title = "Maria Ressa Quotes"
+quotes_len = "51"
+description = "the best 51 Maria Ressa Quotes"
++++
+- I'm not a criminal but I've been fingerprinted like a criminal.
+- Now technology gives you a chance to help organize. You don't have to wait for either the inefficiency or the corruption. You don't have to wait for government. You can actually self-organize and build institutions bottom up.
+- Without facts you can't have truth.
+- If you want to rip the heart out of a democracy, you go after the facts. That's what modern authoritarians do. You lie. All the time. Then, you say it's your opponents and the journalists who lie.
+- How well we survive this time of creative destruction, it really is, depends on each of us, on each of us fighting our individual battles of integrity, for integrity.
+- We know firsthand how social media and the law have been weaponized against perceived critics of the Duterte administration. We've been reporting on it from the start.
+- The seed idea for Rappler really is looking at information cascades. If you think about it, the end goal - when I was raising money for Rappler, I didn't talk about investigative journalism, even though that's our core.
+- After I got arrested the Filipino government unshackled me. I knew first-hand how they violated my rights and I could speak about that from experience.
+- Journalism has a check-and-balance effect to those in power, and those in power submitted themselves to it.
+- I'm banking on the fact that there are still good people in government who will prevent this. I've been a journalist for more than 33 years, and at Rappler we refuse to change, I refuse to be bullied.
+- I run Rappler, an online news site in the Philippines.
+- Any journalist who asked critical questions, anyone on social media who questioned about the extrajudicial killings was bombarded with abuse, threats of violence death threats from trolls and bots and these fake Facebook accounts.
+- All around the world, leaders are gaining more power. That's what this pandemic demands: a coordinated whole-of-nation approach with a powerful conductor at its center.
+- In 14 months, my government, the Philippine 2 government, has filed 11 cases. I posted bail eight times, I've been arrested twice in five weeks, detained once, and the only thing I've done, my only crime is to be a journalist, to speak truth to power.
+- Press freedom is the foundation of the rights of all Filipinos to the truth.
+- The social media platforms have taken over the distribution of news globally. They treat a lie the same way you would treat a fact.
+- I don't think we have wrapped our heads around how much technology has allowed the manipulation of individuals and democracies.
+- A Princeton education sets you up for life: you have learned how to learn, and at a time when technology has changed everything, you will constantly have to learn.
+- If the social media platforms don't take the gatekeeping seriously they will kill the public sphere. If we don't get this right in 2020 you can open a decade or longer of a descent into fascism. And it will be global because platforms are global.
+- Embrace your fear. Imagine what you're most afraid of, touch it and hold it so that you rob it of its power.
+- I'm not a politician; I'm a journalist.
+- Truth matters. Checks and balances matter.
+- I would give back every single award to be able to actually do our jobs as journalists without this kind of harassment.
+- I'm not a critic, I'm a journalist. I'm doing my job holding the government to account.
+- The difference between Rappler and other newsgroups in the Philippines is that journalists control Rappler both editorially and commercially. We make decisions that are bad for business but protect the public sphere.
+- In a weird way, I'm a good target for the government, because I can push back.
+- Ninety-seven percent of Filipinos on the Internet are on Facebook. And according to Hootsuite or We Are Social, in January 2019, Filipinos spend the most time on the Internet, and they spend the most time on social media globally.
+- Always make the choice to learn. What Princeton taught me was whatever mess you are studying, pull a thread with great persistence 'til you have clarity of thought. Princeton taught me how to solve a problem. How to think - that's what we pull out of this place.
+- If you can make people believe lies are the facts, then you can control them.
+- Technology enabled Rappler's fast growth starting in 2012, but we were also among the first victims when social media was weaponized in 2016.
+- Don't be afraid - if you don't exercise your rights, you will lose them.
+- What are the values that give meaning? What is the line that you will never cross, because on this side you're good, and on this side you're evil.
+- Press freedom is not just about journalists, right? It's not just about us, it's not just about me, it's not just about Rappler. Press freedom is... the foundation of every single right of every single Filipino to the truth, so that we can hold the powerful to account.
+- I always felt that I wasn't as American as Americans and then I realised when I got back to the Philippines that I was not Filipino.
+- When you're on social media, your brain is being rewired.
+- My heroes were always a combination of Captain Kirk and Mr Spock. You have to be ruled by logic, but if you're only ruled by logic and you don't touch your emotions, you will make the wrong instinctive call.
+- Enshrined in the Philippine constitution, which is similar to the United States, is the bill of rights: freedom of expression, freedom of the press. These are enshrined. And yet, freedom of the press has been curtailed.
+- All through my life, when faced with a difficult decision, I always ask myself - where can I learn more. Make the choice to learn.
+- The attacks against me and Rappler began appearing on Facebook in the summer of 2016. A year later President Rodrigo Duterte was repeating them in his State of the Nation address.
+- Investigative journalism is never mass-based; it's very focused, and you want people who are passionate about it to take it.
+- So a lie told a million times becomes the truth.
+- I think that social media platforms and technology have been the accelerator for the push for the populist-style administrations in democratically elected presidents.
+- Frankly, it's a bit shocking to me the lengths government will go to to let little Rappler feel its power.
+- Constitutionally you can't have a law go retroactively.
+- In a war zone you know exactly where the threats are coming from. I plan my way in and we plan our way out and you're there for a limited period of time.
+- If I lose these tax-evasion cases and others filed by the Philippine government, I could go to jail for 10 to 15 years.
+- Let me go back to a fundamental thing we all used to agree on: information is power. That's why we became journalists in the first place.
+- To deal with COVID-19, countries like India, Brazil, Jordan and Thailand are cutting press freedom and freedom of expression. In nations like Israel, South Korea and the U.S., intrusive surveillance has been imposed to track the movement of citizens, at the expense of human rights.
+- Then there is my country, the Philippines. President Rodrigo Duterte placed most of the country under a lockdown on the ides of March. Surrounded by men in uniform, he cut public transportation and talked about home quarantine, checkpoints and curfews, but said little about the virus or economic aid for those in need.
+- After living a decade in Jakarta, I chose. I chose Manila, the Philippines, for better or worse.
+- I landed in New Jersey, where I could barely speak English, and I had to figure out what a short brown kid was going to do in this big white world.

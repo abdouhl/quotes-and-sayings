@@ -1,0 +1,18 @@
++++
+author = "Michael Welch"
+title = "Michael Welch Quotes"
+quotes_len = "12"
+description = "the best 12 Michael Welch Quotes"
++++
+- I've never liked to play stereotypes.
+- I really don't care what I look like as long as it fits with the thing I'm working on.
+- I know a lot of actors don't watch themselves on TV, but I think it's good to see how else you can improve.
+- I live in L.A., I grew up here, it's not that crazy for me because it's L.A., you know?
+- When I go outside of L.A., no matter where it is, really anywhere I go, people will be stopping me or taking pictures or whatever it is. And it's great. It's amazing. I'm just lucky.
+- I always thought it'd be fun to go to a sci-fi convention, watch a bunch of Klingons walking around, all of that kind of stuff.
+- I guess because you study the character and you do all those things. But when it comes down to it, it's still my performance, it's still my interpretation. I'm not going to, you know, be a clone - well, I was a clone of Richard Dean Anderson!
+- I know some actors feel classes are not cool or they create negative public relations, but I continue to crave the story just beyond my reach. To grasp that brass ring I need to continue to fine-tune my talents.
+- It was more freeing, mainly because he's so free anyway. He just is in his performance. So to mimic someone doing a free performance, well, that's pretty freeing within itself.
+- Acting is an art and a science and there is more to me then that young blonde kid.
+- I am a story teller and I take each story very seriously.
+- In Boston they have gone from large autonomous high schools to smaller schools within the same building.

@@ -1,0 +1,29 @@
++++
+author = "Jonathan Brownlee"
+title = "Jonathan Brownlee Quotes"
+quotes_len = "23"
+description = "the best 23 Jonathan Brownlee Quotes"
++++
+- I support Leeds United, and like any fan, I dreamed of playing for them. I tried out at the club and also tried rugby and cricket, and triathlon didn't really become part of my life until I was 16 or 17 - but it was the sport I enjoyed most.
+- During an open water swim, it's easy to lose your direction. With all the splash, it can be quite hard to see the next buoy, so I look behind it for something bigger, like a tree or a building, and aim for that instead.
+- Cycling into work every day is a brilliant way to add in extra training hours without feeling like you are taking up much time.
+- I was good at swimming until everyone started to grow. The best swimmers are really tall with great big shoulders, and that just isn't us. But then a big, powerful swimmer isn't going to be so good on the bike and the run.
+- I was almost expecting the Olympics to be the biggest thing ever, but it wasn't. It was just another race.
+- I'm a big gamer, so I love my PlayStation to switch off from triathlon.
+- I remember watching the 2000 Sydney Olympics, with my nose right up to the screen, knowing there and then that I wanted a sporting career.
+- Your hips get really stiff when you're stuck on a bike for several hours each day.
+- The triathlon can be a very hard sport to train for. You see all the time when people try to improve - like their swim, for example: they train really hard for two to three weeks, and then when they go back to normal training, the swim goes back to where it was before.
+- I raced in London in the 2012 Olympics, and it was incredible to be a part of, with half a million people watching and then later seeing kids going back to cycle.
+- Alistair made my goals feel more achievable. I remember him competing for Great Britain when he was 15, and he came back with his GB kit. I thought, 'Wow, I want a part of that.' Sportsmen can seem distant, like superheroes. Seeing my brother achieve that made me think I could, too.
+- For any good course, you need somewhere beautiful to swim with a nice backdrop, some nice roads to cycle on, and a nice, fast run.
+- To win a joint gold medal with my brother - that's the dream, to cross the line together.
+- The school holidays were always an exciting time in the Brownlee household. This was the opportunity for my brother Alistair and me to escape from the classroom and enjoy the great outdoors. Our childhood was jam-packed with fun family games and activities.
+- It's great to have an honest course where you can use your strength. I swim 10 hours a week, I bike 20 hours a week, and I want to be able to show that.
+- Athletes can be a very stressy bunch. We like routine. I'm a very routined person. If something changes, I really don't like it.
+- I get up at 6:17 in the morning. I've timed it perfectly.
+- In a triathlon, it's all about cycling in the most efficient manner. You need to save your energy for the run at the end, so you want to ride really efficiently and not waste your energy. The only way to do that is to spend a really long time on the bike.
+- The Olympics is this big global event, but when neighbours come up and wish you well, it feels more personal.
+- The variety of training is a major selling point of triathlon. Different sports, different venues means it's always interesting, and you can always switch things round if the weather messes your plans up.
+- 2014 wasn't my finest year. I was a bit inconsistent. I did too much training and got a bit overtired. It's the way I am, and sometimes I overtrain.
+- Yorkshire weather can turn quickly. At one Auld Lang Syne race, it dropped to -16C. The frost turned everybody's hair grey. I couldn't take my shoes off, as my laces had frozen solid.
+- On the night before a triathlon, I normally eat something simple like a pizza. You know where you stand with pizza. It's not going to upset you or give you food poisoning, and it contains carbohydrates and a bit of salt, which is perfect before a triathlon.

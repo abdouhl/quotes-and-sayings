@@ -1,0 +1,51 @@
++++
+author = "James Mercer"
+title = "James Mercer Quotes"
+quotes_len = "45"
+description = "the best 45 James Mercer Quotes"
++++
+- There's not a lot of thinking that I need to do away from the studio on Broken Bells stuff.
+- My dad was a Navy munitions officer, and by the end of his career, he was a specialist in nuclear weapons.
+- I think perfect dates involve walking a lot, and not a bunch of driving around in cars. Ideally, you can walk together and go to a restaurant, and then walk from there to another nice place - this is, I guess, because of really great dates that I've had with my wife here in Portland.
+- The love you have for your kids is so overwhelmingly powerful that it alters your perspective. The dark things going on in the world become very poignant and vivid.
+- I'm real happy. I've been lucky in love, and I've got a wonderful kid now, and things have been going well.
+- My hope is that one day I'll be able to work and have a quieter life, but still a creative life.
+- I think that once you start writing songs, you start developing a library of ideas that you can go and take from, so it gets easier as you go.
+- The real challenge of writing songs isn't just writing a bunch of parts - like a verse, chorus, verse - but making something that flows together, that brings you back.
+- Meeting Perry Farrel was kind of cool. He's such an icon, and I was such a fan of Jane's Addiction.
+- I was really shy as a kid.
+- Horrible dates are when you're with people who are immature and can't really be comfortable in their own skin.
+- Until having kids, I had never really thought about mortality so much.
+- So happy that Broken Bells is a thing in my life and really cool in so many ways. Not only, like, as something to sell records and be a band and whatnot, but just to give me an outlet and give me a fresh approach on things.
+- I kinda learned to sing singing to Echo and the Bunnymen songs and Smiths songs: Morrissey would be a big favorite.
+- I was a regular dork. I was a kid who was scrawny and all that, and probably kind of dumb or something. I wasn't unordinary; I wasn't extraordinary.
+- I know that there are a lot of sort of silly things that one thinks as a music listener about bands. I am a fan of many bands.
+- I don't like the idea of a singer-songwriter record. I don't picture myself that way, and it's not my favorite sort of look, I guess. It's really just an aesthetic thing.
+- My whole goal is to make good records and keep myself inspired and able to accomplish what I need to accomplish.
+- Maybe it's just parenthood that puts you in a situation where you just have to develop a new attitude, I guess, about things.
+- When I started The Shins, it really was just me, alone, but it was still The Shins. I was totally recording stuff and writing songs as The Shins and all of that. So the beginning inception of the whole thing was some sort of a lie, I guess.
+- I sit and write songs alone and then get together with people to help me flesh it out into a recording.
+- We played a festival in Ireland once, and in the middle of 'New Slang,' the Scissor Sisters kicked in across the field on this mega stage. It was a little distracting. It was hard to keep track of what I was supposed to sing.
+- You have to keep the recording process open. If you make too many decisions before you go in, you can lose out on those serendipitous moments that can really make a record, that I think are always required in the making of a really good record.
+- The Shins is, in a way, a recording project that turned into a live band. So I don't really keep myself beholden to any rules when I'm in the studio for Shins. I just gotta get it done as best I can.
+- Life is sad. People, you know, are going to pass, and you know that you will one day.
+- I remember being in high school, and you had to draw those lines and define yourself. I don't think when I was in high school I would have been willing to admit that I liked the Shins. I was into TSOL and Black Flag. I probably would have listened to the Shins secretly in my bedroom.
+- I've always sort of felt like what the Shins is, I guess, is a vehicle for my writing.
+- I have no ethics when it comes to art. You just do what you can to make it as beautiful as you can.
+- For some reason, it seems like pop writers, it's like they just get worse or something over time. And then you're really jealous of movie directors whose careers seem to grow and they'll be 70 years old and still doing these incredible jobs. I'm going to reverse that, I hope.
+- Honestly, humans are social creatures that really crave intimacy, and I think that the friends I have who are trying to somehow go it alone are suffering for it.
+- I have the soundtrack for 'A Clockwork Orange,' which is kind of cool. I guess I don't really end up buying a lot of modern soundtracks. Another soundtrack I love is from a French movie called 'Betty Blue.' it has some really melancholy piano work.
+- The way I was brought up, there was a little bit of prodding to do something more practical, and I wasted a lot of time trying to be a practical person.
+- Lyrically, I think I'm frustrated with this whole process of trying to figure out what I believe about the world and life. I don't like to adopt a sort of guiding philosophy.
+- Collaboration is something I missed at one point in The Shins. I really wanted to have that experience again, you know, not having everything rely on me. I wanted to have a partner.
+- The part of modern pop music I don't know much about is hip hop.
+- The fact that I'm often pushing my voice as hard as I can is from playing in nightclubs in Albuquerque where you don't have a good sound system.
+- There is pressure that comes with everything being a big deal. I remember thinking, 'I need to survive the Shins. I don't know what I'm going to do to make a living otherwise, but I really don't want to do the Shins right now.'
+- I've never been one to think it was cheating to sample this or to loop the drum part there - I've always done that. Even using four-track cassette recorders, I was always doing whatever I could to make it as good as I could.
+- I'm trying to avoid having regrets about missing opportunities. That would be the worst thing. Like having an audience waiting, and not working hard enough, and coming out with a record that disappointed them.
+- I tend to write a pretty half and half split of, like, slow, morose things and then sort of more upbeat stuff.
+- I most enjoy sitting down with the acoustic guitar and just fiddling around and trying to come up with something like a hook or some sort of melodic line. That's something that I do habitually.
+- The thing that inspires me most is empathizing with people's flaws and seeing how they deal with them. That sort of connection you feel with someone when you realize that maybe even the negative things that they've said or done are because of insecurities or injuries they've endured.
+- My attempt at really doing classic sort of songwriting is Shins stuff.
+- As a child, I lived in Germany at the Ramstein air force base, where my dad sang at a nightclub in Kaiserslautern. My parents couldn't afford a babysitter, so when I was, like, ten or 11, I would go with them to the bar until two in the morning.
+- For the longest time, I didn't even want to admit I was serious about music. Before the Shins, I would tell myself, 'Oh, I'm going to figure something out someday.' I had this romantic vision of being this old dude maybe making guitars or something.

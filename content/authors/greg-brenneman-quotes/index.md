@@ -1,0 +1,28 @@
++++
+author = "Greg Brenneman"
+title = "Greg Brenneman Quotes"
+quotes_len = "22"
+description = "the best 22 Greg Brenneman Quotes"
++++
+- As business people, we have to remind ourselves that it's up to us to create jobs. It's up to us as business people to drive the economy, and no one else.
+- Being a consultant is like flying first-class. The food is terrific, the drinks are cold. But all you can do is walk up to the pilot and say, 'bank left.' If you're in management, you have the controls.
+- I do not run late. Growing up on a farm, you're just not late when it's time to do chores or go to work. I grew up Mennonite, and so that work ethic and timeliness was just ingrained in me from a very young age.
+- The most important thing is that you treat everybody incredibly well and lead with a bit of humility. I've found that when I go into a company to lead, it's important to have a plan and to make that plan a simple one that everybody can understand.
+- I usually tell people upfront what to expect, and that I really want their feedback and their ideas, and if they think I've got a hair out of place or food stuck in my teeth, gosh, I want to know that.
+- Business is a team sport.
+- It's all about the money. Write a check, and you can build anything you want.
+- I got more out of the farm than Harvard Business School.
+- I don't like Las Vegas. I'd rather be mountain biking or climbing.
+- Burger King's business model was broken. But it was like sex in the '50s. Everyone knew it, but no one would talk about it.
+- It's hard for the same people who put you in the ditch to pull you out of it.
+- It's all about having a product that you're proud of and coming to work every day. Those basic building blocks are the same in any business.
+- If you have a chance of working for a healthy company or a sick one, choose the sick one. The sickest ones need the best doctors and it's a lot easier to stand out in a company that needs help.
+- Financing is tough, and you really have to work hard in the businesses you invest in.
+- What I love to do is take on business challenges in a way that really can have an impact on peoples' lives.
+- I'm not bothered by the food Nazis. Customers ought to be able to pick what they want to eat.
+- I love making a difference, and doing it quickly.
+- What you can do is ask: 'What is the value to the customer? What are they willing to pay for?' Then, deliver great products and services.
+- When you run a company, you need to be pretty open-minded. There are a lot of different views on faith, on religion, on many different issues, and you can't let your own faith be the barometer.
+- I pass on any opportunity I see that I can't add value on.
+- There's nothing magic about working with franchisees. What you have to do is help them improve their business.
+- The whole concept of treating people with dignity and respect is a concept that isn't a business concept, it's a life concept. It's who you are at the end of the day.

@@ -1,0 +1,31 @@
++++
+author = "John Lothrop Motley"
+title = "John Lothrop Motley Quotes"
+quotes_len = "25"
+description = "the best 25 John Lothrop Motley Quotes"
++++
+- The rise of the Dutch Republic must ever be regarded as one of the leading events of modern times.
+- A third force, developing itself more slowly, becomes even more potent than the rest: the power of gold.
+- The sword - the first, for a time the only force: the force of iron.
+- The crusades made great improvement in the condition of the serfs.
+- A soil, exhausted by the long culture of Pagan empires, was to lie fallow for a still longer period.
+- For a century longer, Rome still retains its outward form, but the swarming nations are now in full career.
+- With the Germans, the sovereignty resided in the great assembly of the people.
+- A new civilization was not to be improvised by a single mind.
+- Wealth brings strength, strength confidence.
+- In Gaul were two orders, the nobility and the priesthood, while the people, says Caesar, were all slaves.
+- Enthusiasm could not supply the place of experience.
+- Give us the luxuries of life, and we will dispense with its necessaries.
+- The splendid empire of Charles the Fifth was erected upon the grave of liberty.
+- In the tenth century the old Batavian and later Roman forms have faded away.
+- The ferocious inroads of the Normans scared many weak and timid persons into servitude.
+- Thus again the Netherlands, for the first time since the fall of Rome, were united under one crown imperial. They had already been once united, in their slavery to Rome.
+- A good lawyer is a bad Christian.
+- Thus the whole country was broken into many shreds and patches of sovereignty.
+- A terrible animal, indeed, is an unbridled woman.
+- History shows how feeble are barriers of paper.
+- Thus the liberties of Holland and Flanders waxed, daily, stronger.
+- The whole territory of the Netherlands was girt with forests.
+- The history of the Franks becomes, therefore, the history of the Netherlands.
+- When did one man ever civilize a people?
+- The gigantic Gaul derided the Roman soldiers as a band of pigmies.

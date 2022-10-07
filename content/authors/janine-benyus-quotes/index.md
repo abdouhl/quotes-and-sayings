@@ -1,0 +1,28 @@
++++
+author = "Janine Benyus"
+title = "Janine Benyus Quotes"
+quotes_len = "22"
+description = "the best 22 Janine Benyus Quotes"
++++
+- The truth is, natural organisms have managed to do everything we want to do without guzzling fossil fuels, polluting the planet or mortgaging the future.
+- Water is at the center of every chemical reaction, and therefore should be the earth's most precious gift.
+- For businesses, biomimicry is about bringing a new discipline - biology - to the design table. It's not to write an environmental impact statement, as most biologists in business do right now.
+- Organisms don't think of CO2 as a poison. Plants and organisms that make shells, coral, think of it as a building block.
+- We're basically this very young species, only 200,000 years old. We're one of the newcomers, and we're going through the same process that other species go through, which is, how do I keep myself alive while taking care of the place that's going to keep my offspring alive?
+- Trees and bones are constantly reforming themselves along lines of stress. This algorithm has been put into a software program that's now being used to make bridges lightweight, to make building beams lightweight.
+- Per capita, I would say that Australia has more biomimetic projects going than many other countries I've been to.
+- Glue actually contaminates recyclables. We throw things in a landfill just because they're glued together.
+- There are literally as many ideas as there are organisms.
+- Biological knowledge is doubling every five years.
+- Organisms sip energy, because they have to work or barter for every single bit that they get.
+- Life solves its problems with well-adapted designs, life-friendly chemistry and smart material and energy use.
+- Biomimicry is basically taking a design challenge and then finding an ecosystem that's already solved that challenge, and literally trying to emulate what you learn.
+- Green chemistry is replacing our industrial chemistry with nature's recipe book. It's not easy, because life uses only a subset of the elements in the periodic table. And we use all of them, even the toxic ones.
+- There are three types of biomimicry - one is copying form and shape, another is copying a process, like photosynthesis in a leaf, and the third is mimicking at an ecosystem's level, like building a nature-inspired city.
+- Hospital-acquired infections are now killing more people every year in the United States than die from AIDS or cancer or car accidents combined - about 100,000.
+- Nature works with five polymers. Only five polymers. In the natural world, life builds from the bottom up, and it builds in resilience and multiple uses.
+- Biologically inspired materials could revolutionize materials science. People looking at spider silk and abalone shells are looking for new ways to make materials better, cheaper, and with less toxic byproducts.
+- Life doesn't use detergent to clean itself.
+- Everyone is trying to jump on the biomimic bandwagon. But a cork floor is not biomimicry. Neither is using bacteria to clean water.
+- Conserving habitats is a wellspring for the next industrial revolution.
+- Life creates conditions conducive to life.

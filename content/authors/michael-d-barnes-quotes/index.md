@@ -1,0 +1,22 @@
++++
+author = "Michael D. Barnes"
+title = "Michael D. Barnes Quotes"
+quotes_len = "16"
+description = "the best 16 Michael D. Barnes Quotes"
++++
+- The vast majority of Americans agree with us. We're doing everything that we can. We're advertising, right now we're on television with an advertisement running in the Washington area. We've got newspaper ads.
+- If today is your typical day in America, 80 of our fellow citizens will die from gunfire. In the last two weeks, more Americans have died from gunfire here at home in the United States than in the entire war in Iraq since it started.
+- It's a tragedy, but with your support and your help we will wage this fight and we're going to win it.
+- But there are 90 million gun owners in the United States. Only 3.5 million want the insurance and magazines and the various things you get for joining the NRA.
+- There should be a background check every time a firearm is transferred. You shouldn't be able to go to a gun show and buy guns without a background check. There are Internet gun sales, classified ads in the newspapers - and you can buy guns without background checks.
+- If you are a gun manufacturer, the product you make is not subject to safety regulation by the Consumer Product Safety Commission. Toy guns are subject to safety regulation; water pistols are, but not real guns.
+- We've got activists all across the country like the members of the Million Mom March organization, some of their leaders are here tonight. We're phone banking congressional offices and pursuing editorial boards.
+- Who's paying the million bucks? The insurance company. We've been trying for years to get the insurance industry to say to the gun industry, We won't insure you unless you have policies that will reduce the likelihood of guns falling into the wrong hands easily.
+- Let me share some facts with you about the law in most of our country. California is in many ways a little different from the rest of the world, and California has better gun laws than many states, although California's need to be improved.
+- The gun dealer is not only paying these two police officers, but more importantly, the gun dealer has said he will never again sell more than one gun to a customer. This is exactly what we're trying to get the gun industry across the country to do.
+- They have some pretty tough gun laws in Japan, as they do in any other civilized country in the world, and they're not killing each other off with firearms. You have very violent films in Europe, yet it's not causing the mayhem we see in our streets routinely here.
+- We should have a system of licensing and registration, we should treat firearms the same way that automobiles are treated so that people have to pass a safety test.
+- Every place in the country you should get a license that shows you know how to safely store it, keep it away from your children or grandchildren. You should have to license it so the police can trace it if it's used in a crime.
+- Should we have background checks, waiting periods? To drive a car you have to pass a test that shows you know how to drive your car safely, you should have to do the same thing with guns.
+- The fight for sanity in our gun safety laws is not by any means over. In many ways it's just beginning.
+- We're trying to publicize this one and make people realize that the gun industry can clean up its act and can operate in a way that can reduce the likelihood of guns killing police officers and other innocent people.

@@ -1,0 +1,67 @@
++++
+author = "James Thurber"
+title = "James Thurber Quotes"
+quotes_len = "61"
+description = "the best 61 James Thurber Quotes"
++++
+- I'm 65 and I guess that puts me in with the geriatrics. But if there were fifteen months in every year, I'd only be 48. That's the trouble with us. We number everything. Take women, for example. I think they deserve to have more than twelve years between the ages of 28 and 40.
+- Don't get it right, just get it written.
+- The animals that depend on instinct have an inherent knowledge of the laws of economics and of how to apply them; Man, with his powers of reason, has reduced economics to the level of a farce which is at once funnier and more tragic than Tobacco Road.
+- Speed is scarcely the noblest virtue of graphic composition, but it has its curious rewards. There is a sense of getting somewhere fast, which satisfies a native American urge.
+- The wit makes fun of other persons; the satirist makes fun of the world; the humorist makes fun of himself, but in so doing, he identifies himself with people - that is, people everywhere, not for the purpose of taking them apart, but simply revealing their true nature.
+- Unless artists can remember what it was to be a little boy, they are only half complete as artist and as man.
+- A word to the wise is not sufficient if it doesn't make sense.
+- Nowadays men lead lives of noisy desperation.
+- I hate women because they always know where things are.
+- It's a naive domestic Burgundy without any breeding, but I think you'll be amused by its presumption.
+- I used to wake up at 4 A.M. and start sneezing, sometimes for five hours. I tried to find out what sort of allergy I had but finally came to the conclusion that it must be an allergy to consciousness.
+- Humor is emotional chaos remembered in tranquility.
+- There is something about a poet which leads us to believe that he died, in many cases, as long as 20 years before his birth.
+- Why do you have to be a nonconformist like everybody else?
+- The past is an old armchair in the attic, the present an ominous ticking sound, and the future is anybody's guess.
+- Laughter need not be cut out of anything, since it improves everything.
+- You might as well fall flat on your face as lean over too far backward.
+- If I have any beliefs about immortality, it is that certain dogs I have known will go to heaven, and very, very few persons.
+- We all have faults, and mine is being wicked.
+- It is better to have loafed and lost, than never to have loafed at all.
+- Sixty minutes of thinking of any kind is bound to lead to confusion and unhappiness.
+- But what is all this fear of and opposition to Oblivion? What is the matter with the soft Darkness, the Dreamless Sleep?
+- You can fool too many of the people too much of the time.
+- Love is what you've been through with somebody.
+- The difference between our decadence and the Russians' is that while theirs is brutal, ours is apathetic.
+- Let us not look back in anger, nor forward in fear, but around in awareness.
+- Early to rise and early to bed makes a man healthy, wealthy, and dead.
+- There is no exception to the rule that every rule has an exception.
+- Love is the strange bewilderment that overtakes one person on account of another person.
+- A drawing is always dragged down to the level of its caption.
+- The dog has got more fun out of Man than Man has got out of the dog, for the clearly demonstrable reason that Man is the more laughable of the two animals.
+- Sophistication might be described as the ability to cope gracefully with a situation involving the presence of a formidable menace to one's poise and prestige (such as the butler, or the man under the bed - but never the husband).
+- It is better to know some of the questions than all of the answers.
+- Boys are beyond the range of anybody's sure understanding, at least when they are between the ages of 18 months and 90 years.
+- One martini is all right. Two are too many, and three are not enough.
+- With sixty staring me in the face, I have developed inflammation of the sentence structure and definite hardening of the paragraphs.
+- The most dangerous food is wedding cake.
+- I think that maybe if women and children were in charge we would get somewhere.
+- He who hesitates is sometimes saved.
+- Old age is the most unexpected of all the things that can happen to a man.
+- I am not a cat man, but a dog man, and all felines can tell this at a glance - a sharp, vindictive glance.
+- The only rules comedy can tolerate are those of taste, and the only limitations those of libel.
+- Discussion in America means dissent.
+- Progress was all right. Only it went on too long.
+- There is no safety in numbers, or in anything else.
+- Women are wiser than men because they know less and understand more.
+- My opposition to Interviews lies in the fact that offhand answers have little value or grace of expression, and that such oral give and take helps to perpetuate the decline of the English language.
+- The sanity of the average banquet speaker lasts about two and a half months; at the end of that time he begins to mutter to himself, and calls out in his sleep.
+- Man is flying too fast for a world that is round. Soon he will catch up with himself in a great rear end collision.
+- There are two kinds of light - the glow that illuminates, and the glare that obscures.
+- The appreciative smile, the chuckle, the soundless mirth, so important to the success of comedy, cannot be understood unless one sits among the audience and feels the warmth created by the quality of laughter that the audience takes home with it.
+- Man has gone long enough, or even too long, without being man enough to face the simple truth that the trouble with man is man.
+- All men kill the thing they hate, too, unless, of course, it kills them first.
+- Humor is a serious thing. I like to think of it as one of our greatest earliest natural resources, which must be preserved at all cost.
+- The dog has seldom been successful in pulling man up to its level of sagacity, but man has frequently dragged the dog down to his.
+- The nation that complacently and fearfully allows its artists and writers to become suspected rather than respected is no longer regarded as a nation possessed with humor or depth.
+- The laughter of man is more terrible than his tears, and takes more forms hollow, heartless, mirthless, maniacal.
+- Comedy has to be done en clair. You can't blunt the edge of wit or the point of satire with obscurity. Try to imagine a famous witty saying that is not immediately clear.
+- Well, if I called the wrong number, why did you answer the phone?
+- All men should strive to learn before they die, what they are running from, and to, and why.
+- Last night I dreamed of a small consolation enjoyed only by the blind: Nobody knows the trouble I've not seen!

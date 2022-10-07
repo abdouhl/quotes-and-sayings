@@ -1,0 +1,106 @@
++++
+author = "Stephen Gostkowski"
+title = "Stephen Gostkowski Quotes"
+quotes_len = "100"
+description = "the best 100 Stephen Gostkowski Quotes"
++++
+- You do something, the same thing over and over again for a long time, you're gonna feel like crap.
+- I threw a good fastball and changeup, but a below-average curveball.
+- If you do well and play well, good things will happen.
+- One thing I'll never do is panic.
+- The hardest thing about kicking field goals sometimes is you don't know when you're going to play. You don't know what situation you're going to be in. I remember in the Atlanta Super Bowl, it's two weeks of the biggest buildup of your life, and I didn't step on the field until there was two seconds left in the second quarter.
+- There's only so much you can talk about football. Anytime you can get into a conversation that's not political, it's a welcome change.
+- If I'm throwing a no-hitter and someone says, 'Hey, you've got a no-hitter,' obviously I'd be like, 'Yeah, I know.' I just try to be humble. I don't like to talk about myself. I have no problem speaking up when I screw up, but if I'm doing good, people are going to notice. I don't need to talk about it.
+- I'm not really into reality shows. 'Nip Tuck' is my favorite TV show.
+- I'm upset when I miss.
+- Just to keep my mind sharp. When you have like one job, you want to think about it enough to do well, but you can't over think it. It's not rocket science. It's just trying to kick the ball through the uprights.
+- To have faith and confidence in someone in front of you just helps you attack the ball a lot better.
+- I've made game-winners, I've missed game-winners. I've pitched shutouts, and I've given up 10 runs. You just deal with the experiences and learn how to get over the bad outings and learn from them, so they don't occur time and time again. You take what you did right from the good games and turn those into, 'How do I repeat that success?'
+- No one puts more pressure on themselves than me as far as an individual thing.
+- Two to four classes each offseason - just trying to chip away. There are times when I think, 'Man, I don't need to be doing this. Why am I doing this to myself?' But to fight through that and come out and make a good grade, it feels worth it. Hopefully something good comes out of it one day.
+- I'll watch a highlight tape of my kicks and I'll play a song that I like the night before the game and then I'll sing that song in my head to visually get myself ready and have positive thoughts.
+- There was a time where I was such a perfectionist even if I made the kick, but that's no way to live. I can tell you what, that will drive you crazy. I'm very hard on myself, but if the ball goes in a little bit left of the middle, you're not going to hear me crying about it.
+- Sometimes if you kick too much, it can work in a negative direction. If you get tired or sore, you might develop some bad habits.
+- There's no time in the NFL, especially as a specialist, to pat yourself on the back. It's a week-to-week, game-to-game, kick-to-kick kind of job.
+- I don't live in the past.
+- I love kicking off. Just like anyone else, after a while, you're like, 'Man, I don't want to practice this.' But I love kicking off and I want to try to do it as long as I physically can do it.
+- Sometimes there are really severe conditions like super, super wind or crazy wind or something like that that you don't really get to practice for. But it's kind of you just show up and whatever you get in warm-ups, you kind of adjust to it and play as you go.
+- My curveball is a C-.
+- I had a problem of not eating well when I was young. My parents always used to try to stress on me about eating well.
+- There are a lot of reasons why guys can miss - it isn't always just black and white - but you just have to learn to move on from it. That's just the approach I take. I've missed plenty of kicks before.
+- There aren't many kickers that don't miss at all, so I just try to go out there and make a lot more than I miss.
+- It's my job to be able to deal with adverse conditions as well as kick well in good conditions. I just look to prepare to go out to do well no matter what it is.
+- If I watch football, I just watch as a fan.
+- I just don't worry about any moment. I just worry about kicking well.
+- The more I get on the field, the more comfortable I am.
+- In athletics, I've gone through ups and downs my whole life.
+- There's nothing wrong with furthering education and working your brain in a different way than you normally work it.
+- The thing about kicking is, it's not as competitive as other positions, but I feel like I am a competitor.
+- As long as I'm out there and getting a chance to play, I expect to do well. No one is harder on themselves than me when I do bad, and I don't plan on changing any time soon.
+- I don't do social media. I'm not looking to get a death threat every time I miss a field goal. I'm just not going to put myself through that.
+- The older you get, you might think you have it all figured out, but you are never too old to work on fundamentals. You can't take anything for granted in this business.
+- You're only as good as your last kick.
+- I admire every kicker in the NFL. I know how hard it is to be successful on a week-in-week-out basis.
+- You lose weeks of sleep over a bad game, and a bad game could be one missed kick. So the ones you make, you just try to build on the confidence with it, and the ones you miss, you try to get it out of your head as quickly as possible and try to make the next one.
+- As a field goal kicker you can't make your own opportunities.
+- Soccer was probably the most fun game I've played because I never walked away feeling like I had a bad game. If you play a position in soccer where you can out-hustle or out-work or out-prepare somebody, it is a lot easier to walk away from the game and say, I gave it my all. I could always try. I could always hustle.
+- In a sport like baseball, you strike out or get embarrassed, you turn the page.
+- I have a lot of nicknames. In high school and growing up it was Beaver. In college it was Gotti.
+- When you're in a slump you want to try something else and you get on a roll.
+- Every year means different challenges, different opportunities.
+- It stinks to play terrible and your team loses. It's like salt on the wound.
+- Kicking is like a love-hate relationship. When it's going good it's really good. When it's bad, it's really tough. You just have to find the fine line between not getting too high or too low.
+- You'll go down a dark road if you just dwell on every time you screw up. We play a very fickle position. If I make nine kicks out of 10, people are going to talk about the one I missed.
+- I'm upset when we lose. It doesn't matter if I make 10 60-yarders in one game if we lose.
+- A lot of times guys have the tendency to try to kick it too hard or over-kick it. Just like a golf swing, the harder you try to hit it the less chance you have at it going straight.
+- I personally love kicking off. It gives me another chance to get on the field.
+- There's multitudes of factors of why a kick can go in or not.
+- There are times where you're in the zone and everything moves in slow motion, and there's sometimes when everything goes really fast and you have to slow yourself down.
+- The thing that kept me from going to the next level was, I really didn't have an out-pitch. My story in baseball could have been a lot different if that's all I focused on.
+- I don't talk that much when I do well and I try to talk even less when I'm not doing well. All that really matters is the next game and helping us win.
+- I've missed before in college and high school. If you miss, you figure out what went wrong and kick the next one.
+- It's a high-pressure situation to be in my position, but I've kind of gravitated toward those positions in sports. It's nothing that I worry too much about. I'm not going to act like I have the most stressful job in the world. This is pretty darn fun.
+- Once you get a couple good plays, you get confidence and it carries over.
+- If you are a reliever, you get one inning per game or if you are a starter you get one game per week. There is a lot of buildup for a little bit of work compared to the guys who play every down or play every day in baseball.
+- In New England we get awful weather and it's cold. You definitely appreciate the times where you aren't freezing your butt off, because we are always outside practicing and playing. It's nice to not have to bundle up to play.
+- You can miss a kick on a good hold and you can still make kicks with bad holds but the more the operation is perfect, the percentages go up and up.
+- When you play in New England you have cold weather, hot weather, windy weather, or snow.
+- You're only as good as your opportunities in this game and you're lucky to get some opportunities.
+- I've said this before, any accomplishment that I make will be something that I will look back on when I'm done playing and be excited about and probably brag to my kids and grandkids about.
+- Most kickers and punters and snappers are pretty cordial with each other throughout the year.
+- I'll try to play as long as I can stay healthy.
+- They don't give you extra points if you make a 50-yarder that goes over the net.
+- It's nice when other teams show interest in you and stuff like that. But at the end of the day, I would like to try to finish where I started.
+- I bleed blue. I love being a Tiger and love being back here in Memphis.
+- I've always been able to move on and contain. I get mad, I get frustrated. No one gets more upset when they miss a kick than I do. But I have to be able to get over it for the sake of the team and my own job.
+- When you're on a good team, you just want to do your part and know that they trust you.
+- It doesn't take much to be at the top or the bottom in a position such as mine.
+- The hardest thing about kicking a kick at the end of the game or end of the half is not letting your excitement get the best of you.
+- We all know someone who has been affected by cancer.
+- To take an hour or two per day while the kids are in school to read really isn't that tough to do once you get into the routine of it.
+- I try to treat every kick the same and I want to make every kick, let alone the kick at the end of the game.
+- There's games you try one field goal, and if you miss that one field goal you'll feel like crap for the whole rest of the week... It doesn't do you any good.
+- Kicking's kicking. Pressure's pressure. You beat other guys just to get drafted.
+- There might not be kicking in the NFL by the time I get to 45.
+- You're one kick away from being Public Enemy No. 1. You're always one kick away from trending on Twitter as the No. 1 loser in America.
+- All I really think about is, 'Don't try to kick the ball too hard,' because a lot of times when I missed kicks, it was because I tried to kill it. I just try to think of a smooth swing, being slow and under control, and making the kick.
+- Sometimes things just pop up right in front of your face and you have to take advantage of it.
+- It's always nice to get off to a good start, but one game is one game, you know. Good or bad, you have to turn the page.
+- I think my experience playing multiple sports kind of helps deal with a little bit of a bind.
+- I'm so blessed to have a chance to play 15 years in one spot. I know my position is different than most. But even in my position, guys that have played it this long, have probably already been with two or three different teams.
+- Obviously kicking is very mental and if you do struggle it is a little harder to go out there with confidence, but the good ones, if they miss they can bounce right back and make the next one.
+- You never want to leave points out on the field, especially in a game when you know it is going to be close.
+- I don't ever want to get too high or too low.
+- I really enjoy charity work and helping people.
+- If you're a starting pitcher, the ball's in your hands and all eyes are you. And when you're kicking, either you missed it or you made it. So there's a lot of parallels in that.
+- I prefer New York style pizza.
+- I think a pitcher in baseball is the most relatable position to a specialist in football, because you get a limited opportunity to prove your worth to the team.
+- I try to take the mental aspects of every sport that I've ever played and use it toward kicking, how to react in certain situations.
+- Win, lose or draw, I try to stick to the same program that is going to give me the most consistent results.
+- Any time your team has confidence in you, it's cool, but I don't go back. I haven't watched one Super Bowl that we've played in.
+- I've always had confidence when it comes to athletics. It's sometimes stubborn to a fault.
+- Kicking is a weird thing. You can go stretches and stretches of just doing really good, then you could have one or two kicks that can derail you. You've just got to learn to ride the wave.
+- We play a game for a living.
+- Pitching, if you have a bad start, a lot of the blame is put on you and then you have to sit around and think about it all week. And the same thing with kicking. You either make it or miss and no one is going to make excuses for you. The mentalities of the two are very comparable.
+- Any time I screw up I feel bad about it.
+- The way the field feels like before the game isn't like what the field is during the game.

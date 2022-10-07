@@ -1,0 +1,28 @@
++++
+author = "Mariana Van Zeller"
+title = "Mariana Van Zeller Quotes"
+quotes_len = "22"
+description = "the best 22 Mariana Van Zeller Quotes"
++++
+- I truly believe the importance of shining the light on the dark corners of our world.
+- You'd be surprised how many doors flattery can open.
+- Breaking Borders' is about, more than anything, communication and conversation. The best lesson I've learned from doing this show is that when there is a breakdown in communication, conflict starts.
+- I'm obsessed with trying new and different food. Always have been.
+- I always tell young journalists to leverage what you have. If you have a particular language skill or access to a particular place or culture in a way that others don't, that's your advantage.
+- All conflicts are different, and yet the victims are always the same. They are people, just like you and me, but whose lives are deeply affected by violence and war.
+- The bar for loud family meals is set pretty high when you come from Portugal.
+- No one is going to tell me that I can't do something because I'm a woman, and I take that as a personal challenge.
+- I don't really take no for an answer. Giving up isn't an option.
+- I'm more sort of attracted to these worlds that are very hard to gain access to. I think those are the most interesting stories.
+- I've always been attracted to the underworld.
+- There is not a lot known about the informal economy, and yet it makes over 60% of the global economy. And these black markets are all around us. It's important for us to know that and to understand how they operate if we really want to stop them.
+- Soon after I graduated from Columbia University grad school, the war in Iraq started. I was a young freelance journalist with no experience in conflict zones but I wanted to be close to it, so I moved to Syria.
+- There's whole television stations, magazines, organizations devoted to analyzing every up-and-down twist and turn, IPO, everything that happens in the formal economy. And yet the informal economy, these black and gray markets, actually make up for almost half of the global economy. And there's so little information that we have about them.
+- When I was 12 years old, I went to France for a long-awaited summer program. A month in an idyllic castle surrounded by sports and fun activities turned out to be a miserable week in a decrepit mansion with a crazy couple who owned and ran the place and often had screaming matches and food fights in front of the kids.
+- After spending over 15 years reporting in these worlds and getting to meet these traffickers, drug dealers, and other people that are really stereotyped in our society, I've come to realize the uncomfortable truth that most are not very different from us.
+- It's part of my DNA as a Portuguese. Like many of my ancestors, there's that need to discover the world - exploration is in my blood.
+- My husband is a journalist as well, and while we love beaches, we can't sit for that long. If we go to a beach destination, there needs to be something else we can do there as well. I need to be around interesting and different people and cultures.
+- Communication is what sets us human beings apart from other beings in this world.
+- I'm a shopaholic when I travel. I have a large collection of artifacts from all over the world at my house, some of which I keep in drawers until I find a place to display them.
+- I watched the Portuguese TV anchors talking about what was happening all over the world and I just thought they were so knowledgeable and the most interesting and incredible people in the world.
+- No story is worth a life.

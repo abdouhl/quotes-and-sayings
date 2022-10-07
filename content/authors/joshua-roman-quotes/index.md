@@ -1,0 +1,17 @@
++++
+author = "Joshua Roman"
+title = "Joshua Roman Quotes"
+quotes_len = "11"
+description = "the best 11 Joshua Roman Quotes"
++++
+- I record cello Etudes that are fewer than four minutes long and post them on YouTube. How can one execute fully-formed ideas with utmost perfection, yet stay free enough to allow improvisatory nuance? This has immediate application in almost every area of life, but especially in performance.
+- I used to practice cello while watching TV and films. I watched several complete TV series this way, including 'Lost' and 'The Wire.' As a kid, I'd read books while playing.
+- Connection is very important. It's extremely important for me to be connected and sharing with other people, giving them what I feel is important.
+- I'm never sure how to rank these things, but I will say that it has been a dream of mine ever since I was a kid to play for the Queen of England. Preferably in the throne room.
+- There's a great energy and drive that takes precedence in a lot of rock and pop. It's about making a strong visceral connection. That's something that I think great classical music can have, too.
+- I like to read, especially nonfiction. I love learning, so I study languages, cook, learn basic HTML, and enjoy other activities that stimulate communication and the dark recesses of my musician's brain.
+- Generally, I love traveling because it's great to see new places.
+- It's a small community, the classical music community, along with the excitement of new places and new things and this feeling of being at home wherever you go because that's where your community is.
+- Around age 11 or 12, I started playing jazz bass. From there, I went to electric bass and then guitar, which I kept up for a long time.
+- My mom says that my dad coerced me into choosing the cello. He says that's not entirely true. I don't remember; I was three.
+- I'm interested in directing attention and focus, explored through playing cello.

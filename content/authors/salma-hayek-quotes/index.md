@@ -1,0 +1,129 @@
++++
+author = "Salma Hayek"
+title = "Salma Hayek Quotes"
+quotes_len = "123"
+description = "the best 123 Salma Hayek Quotes"
++++
+- I do have a Mexican accent, but that doesn't mean that I'm a Latin vamp.
+- For my wrap present, Colin Farrell gave me a first edition book. I got so involved with this character and I was so sad when the movie was over that when I got home and I tried to read the book I got really emotional and I started crying.
+- I noticed in the past, a lot of guys who like strong women, they really freak out if you're not strong 24/7. Or they complain about you being strong, then the moment you're not strong, they're like, 'Oh, no, no, no.'
+- Love food and I love to eat.
+- I have a small house so I borrow everything except art, that's what I love.
+- I said, 'I'm going to the United States to study with Stella Adler and do movies because nobody here has done it and my passion is films.' But I came here and I didn't speak English, I didn't have a green card, I didn't know I had to have an agent, I couldn't drive, I was dyslexic.
+- I'm concerned about my daughter because she will not believe in Santa Claus. No matter what I say to her, she just doesn't buy it, and she's 2. I refuse to give it up. I say, 'There is a Santa Claus,' and she says, 'Okay, Mommy. In pretend world, right?' She really doesn't believe.
+- I received so many hate letters when I breast-fed a starving baby in Africa. I was in Sierra Leone in 2009 and I was weaning my child at that time - she was not there with me. There was a hungry baby who was crying because his mother had no milk, and I thought, 'Why throw away my milk if I can give it to a baby who needs it?'
+- For me, I have to say that I like to work a lot too, but I like not working better. The perfect scenario is when you just worked and you know something's coming up, then you have four, five, six months off. But you know you're going to have a job later.
+- I love to cook when I have the time. I don't cook French or Mexican food with exact recipes. I just go to the supermarket and buy things that look good, and I mix it all together and invent something. Ninety-five percent of the time, I'm lucky. Sometimes not so lucky, and I say, 'Let's go out to dinner.'
+- I really do love Diana Ross; I grew up listening to her records. I grew up in a little town in Mexico, so while we got the music, we never got the experience of watching her.
+- There has never been a female director who has won an Oscar. There has only been one woman who won at the Cannes Film Festival.
+- Hollywood has definitely grown, in embracing the inclusion of Latinos in the world, because, for some time, we didn't exist. We were not part of any stories.
+- Some men have a silly theory about beautiful women - that somewhere along the line they'll turn into a monster. That movie gave them a chance to watch it happen.
+- If you're paralyzing your face in your 20s and 30s, you're not exercising the muscles that give it strength. My feeling is, laugh, cry, move your face.
+- I think that it's important for every single person, no matter what they do in life, to participate in the well-being of humanity and the planet. Don't let a year go by knowing you didn't make an effort to do something - no matter how small - outside your own problems and drama.
+- Botox, trust me I've been tempted - but I resist! Think about what happens to your muscles - and your skin - if you're sick and don't move for a few days. It all atrophies! Plus, if you freeze a muscle in your face, other muscles have to compensate! And once you stop, what does that look like?
+- I will not have Botox. You know why? Because I eat! I eat the fat, I eat the vegetable, I eat everything. If you exercise and you don't eat enough, it takes its toll on the skin.
+- I have never denied my background or my culture. I have taught my child to embrace her Mexican heritage, to love my first language, Spanish, to learn about Mexican history, music, folk art, food, and even the Mexican candy I grew up with.
+- 'Frida' was a joy; this was delicious, I couldn't wait every day to get to the set, although I was exhausted, and have my leg get cut off or lose the baby or be in her shoes and get to play my hero and be able to go places emotionally. You know, we live for parts like this. This is a dream for an actor.
+- Somehow I am really relaxed within the chaos of having a baby - and anyone who's a mother knows it's very hard to relax, because there is so much to do and worry about!
+- If you love food and you love red wine and they put you in France, you're in a good place and you're in a bad place at the same time. You have to weigh yourself every day, and you have to have an alarm number. When you get to that number, you have to start putting it in reverse.
+- I don't have stamina in exercise... but I have it in life.
+- I have always been an active part of my community.
+- I want my little girl to tell me who she is so I can encourage her and not impose my desires for her on her life. I want her to dream big and to know that if she is willing to earn it, she can have anything - and become anything.
+- There is a subconscious way of taking violence as a way of expression, as a normality, and it has a lot of effects in the youth in the way they absorb education and what they hope to get out of life.
+- Don't try to dress like me or wear your hair like mine. Find your own style.
+- What once was an expression of who I was - acting - also became my hiding place.
+- When I first came to Hollywood I was told to go out with an agent because it was good for my career. So I went to a party with him because it was good for my 'career.' Well, he thought the whole thing was a big date. Needless to say, I was very upset.
+- I have tried my whole life to represent my Mexican roots with honor and pride.
+- I'm a country girl. I have to be in nature, so my daughter is exposed to it a lot.
+- I love family films. Of course, as a mother who has to watch so many movies, you really appreciate it when somebody makes a film that is for everybody - family entertainment that's really for the family, where everyone has a good time.
+- I'm not a skinny girl. I push it. I'm at the limit of chubbiness at all times, but I'm happy at all times.
+- My new movie, Fools Rush In, is a romantic comedy and the girl I play in that is very warm, very sweet.
+- My English was limited to vacationing and not really engaging with Americans. I knew 'shopping' and 'eating' English - I could say 'blue sweater,' 'creme brulee,' and 'Caesar salad,' - so I came here thinking I spoke English.
+- If I go on a diet and work out, I'm always in a bad mood. I'd rather be a little heavier but nice.
+- I have a farm and I love it there. There's really nothing to do, but even watching the chickens, its fun.
+- When I feel stressed, I turn to food for comfort, but I don't like to diet and I'm not good at it.
+- If a man lets all of my dogs sleep in the bed with us, then that is the most romantic thing. You must love my dogs in order to love me. A man who is nice to my animals and doesn't shoo them away - well, that's the height of romance.
+- Every woman who thinks she is the only victim of violence has to know that there are many more.
+- When it is important for you to say something and you find a vehicle to say it, then go for it. It is so rare when that happens so I think every minute spent fighting for it is always worth it. Even if nothing ends up happening, it's still worth the fight.
+- I think it's not a femme fatale when someone is not doing it to manipulate men or be like a black widow. She loves him. She does it out of love. She wants him so badly to stay with her.
+- The truth is, I just don't have the drive to be the prettiest and the thinnest. I can be happy for other people for their beauty.
+- I keep waiting to meet a man who has more balls than I do.
+- If you give me any problem in America I can trace it down to domestic violence. It is the cradle of most of the problems, economic, psychological, educational.
+- My driving abilities from Mexico have helped me get through Hollywood.
+- My heart has been stolen too - but I've gone and got it back every single time!
+- What you need is one black dress I call Plan B. It doesn't have to be fabulous, it just looks good, covers up the problems and is neutral enough for dinner, business, a date, a funeral. You don't overwear it, you don't overwash it, because the Plan B is - gold.
+- Find your own style. Don't spend your savings trying to be someone else. You're not more important, smarter, or prettier because you wear a designer dress.
+- When I started acting, I was told over and over again, 'You're no good.' But I said to myself, 'You've got to keep it up.'
+- Being a mother is more exhausting than working, and sometimes I push myself too hard and burn myself out. I can appreciate how exhausting it must be for women who have to do everything themselves all the time.
+- I know the only reason that I haven't gotten many good parts is because I am Latin - and they tell it to my face a lot of times.
+- So you have to keep waiting and then they give you the script and it's terrible. Then you have to go to the rewrite and they're very upset because you didn't like it. I went through that for seven years.
+- Everybody has a weakness. Mine is food.
+- People often say that 'beauty is in the eye of the beholder,' and I say that the most liberating thing about beauty is realizing that you are the beholder. This empowers us to find beauty in places where others have not dared to look, including inside ourselves.
+- I like to eat. I'm always on the edge of how much can I eat without looking too - you know. If I eat something salty, it makes me want something sweet. I eat something sweet, then I want salty. And exercise is not my thing, though I do it.
+- Every unwanted animal ends up on my farm: alpacas and horses and dogs and cats and chickens and ducks and parrots and fish and guinea pigs.
+- I don't ever want to have to depend on anyone completely.
+- If you look at any other group of people suffering injustice, women are always in the worst situation within that group.
+- You can be a thousand different women. It's your choice which one you want to be. It's about freedom and sovereignty. You celebrate who you are. You say, 'This is my kingdom.'
+- I have one friend that I've had since I was born, and she's from Coatzacoalcos. She's not really impressed or interested in the actor's life. My family isn't really either.
+- Before I had my child, animals were my life. I slept with four dogs in my bed.
+- I aim for a lifetime full of movies.
+- I was privileged to grow up in Mexico at a time when you could play in the streets. We lived not too far from the ocean, and we would be outside all the time with the neighbours' kids, running free. What better place could there be for a child?
+- I don't see women and think of them as competition or with judgment. Women really move me. I feel connected to all kinds of women. I am angry because I think we've been mistreated throughout history in different countries, including America. I admire women.
+- I am so, so lucky. I am the luckiest girl in the world, really. And still with access to everything I could possibly want I still say 'Oh dear, what am I going to wear today?' There's no ending to that question!
+- You know Latin people? African-American people? How our skin ages more slowly? Even though we're dramatic, we move our faces, we eat higher-fat foods, we're the ones with fewer wrinkles - it makes you wonder.
+- I love being a wife and homemaker - because it's my choice. My husband doesn't expect me to do it. I don't mind doing things for him because he does so much for me; we both feel that way so there is no power struggle.
+- I've never had anything done on my face. I've never had dermabrasion or peels or injections of any kind, nothing.
+- They offered me that film before I did Frida and I said, no, I'm not capable of directing. Then after seeing Julie direct, I was inspired by it. She motivated me to do it, because we don't have role models as woman for directors.
+- Do I envy Madonna's body? Yes. Do I thank God that she has it? Yes! If you're fifty-something and you look like Madonna, and you put a lifetime's work in the way you look, then flash it to the world!
+- I became obsessed with all these women who die never feeling they did anything extraordinary with their lives.
+- I directed a movie and now, I'm going to do the editing.
+- After doing a juice cleanse, I'm motivated to eat healthier and not emotionally. Cleansing is like my meditation. It makes me stop, focus and think about what I'm putting into my body. I'm making a commitment to my health and hitting the reset button.
+- I think that a lot of women that know they're going to be part of history somehow decide to have a character to be remembered by.
+- I also have a film coming up called Breaking Up, and my part in that was not written for a Latina, and my character is not particularly pretty or sexy or exotic.
+- There were many times when I had to emotionally come to terms with the fact that maybe I wasn't ever going to get married. And I started getting comfortable with that.
+- I didn't think marriage worked. I thought everybody who was married was secretly miserable - that it was something they just put up with for their children.
+- I work hard, I make my own living and I love it. I like having financial independence.
+- I think if I was not in love, I would probably let myself go faster. Love gives me the vanity to continue.
+- I like being a mother. For some people, it's so much work that it can be a burden. But it's not for me, maybe because I had my daughter, Valentina, later on in life, at 41.
+- People always underestimate me. But if you stick around long enough, act out of conviction, and try to be honorable in everything you do, good things will come to you.
+- I grew up in Mexico, not the U.S., and the fact is that there just aren't any parts for Latin actresses. I have to persuade people that my accent won't be a problem, but an asset.
+- I want to work for a long, long time and keep growing in my work, and if I am very lucky and very blessed, maybe somewhere along the line there will be one movie in there that becomes a classic.
+- Producing is hell, writing is frustrating, acting is really satisfying, directing is heaven.
+- If it wasn't because of my high heels, I would still be in Coatzacoalcos with 10 children.
+- No woman has to be a victim of physical abuse. Women have to feel like they are not alone.
+- I love to cook for my husband and daughter. I enjoy going to the market for fresh vegetables.
+- They thought I was crazy in Mexico when I said, 'I'm going to Hollywood.' Nobody thought I could make it.
+- How I would describe my characters is absolutely different from how I would describe myself.
+- I think if you are young and you have children, you still have so much to prove. When you have children later in life, you lose a bit of that urge for working.
+- If I've been indulging in rich foods, a cleanse is a wonderful way to hit the reset button.
+- The thought of somebody pulling and cutting around my face gives me stomach ache. Plastic surgery would be so painful. What if it doesn't look good? What if they made a mistake? I couldn't do it.
+- I think it's important that kids have responsibilities and understand the value of things, but I think it's great I get to travel the world with my daughter.
+- What is important is to believe in something so strongly that you're never discouraged.
+- My mother was devoted to helping people - with my father's money! - who had great voices but didn't have the financial means to study music. He and my mum gave away dozens of music scholarships, and my mum opened a school in town, introduced opera to children and created fantastic programmes.
+- You can have a spiritual awakening and discover a new side of you at any age. And best of all, love can happen at any age. Life can just start to get exciting when you're in your 40s and 50s. You have to believe that.
+- I believe that change keeps you young.
+- I'll tell you, there is nothing better in life than being a late bloomer. I believe that success can happen at any time and at any age.
+- I think it's nice for women to try to be sexy for their man.
+- If you're feeling blue, lock yourself in a room, stand in front of a mirror, and dance - and laugh at yourself and be sexy. Dance the silliest and ugliest you've ever danced. Make fun of yourself and try to recover your sense of humor.
+- And I highly recommend for all the women in the world, even if they're 71, you can never take for granted that he loves you. It's always good to flirt with him. It's a great sport.
+- Life is tough; and if you have the ability to laugh at it, you have the ability to enjoy it.
+- I proved to myself that if I believe in something and set my mind to it I could actually accomplish it.
+- I don't believe in the so-called Latino explosion when it comes to movies. Jennifer Lopez doesn't have an accent. She grew up in New York speaking English, not Spanish. Her success is very important because she represents a different culture, but it doesn't help me.
+- Beauty products always cheer me up and give me hope. If it makes you feel pretty, why not?
+- What works in a relationship of very public people is not making the relationship public - keeping it as personal as it can be. It's the only way it is real.
+- Imagine if I'd said, 'I have to be the best actress - I want that and nothing else.' I never would have directed. I never would have produced. I never would have done a beauty line. I would have just worried about getting a job or been frustrated that I wasn't getting the job that I wanted. I was ready to be a businesswoman.
+- I have a ranch, which is my favorite place in the world.
+- It sounds trite to go after men who are nice but when you've been hurt a lot it becomes appealing.
+- At one point in my life, I was very involved with social causes. I'm still involved, but now I have a family and it's important to me.
+- My grandmother was energetic and fearless - a talented poet and songwriter. She was also interested in chemistry and history and medicine, taking care of the people in her hacienda in Mexico, delivering babies. She could have become anything, but this was the 1930s, and she was forced into an arranged marriage.
+- There's a lot about the character. It doesn't always happen, but there are some characters you really create a relationship with, almost as if they were your friend. And you never get into their heads again or think like them.
+- I do have thighs and a butt. I have cellulite.
+- I'm good at working, but I'm very good at playing.
+- You know how macho boys get when they're all together? Well, the set of 'Desperado' was like that. They were all trying to put me down, saying, 'Bring on the stuntwoman, Salma can't do that.' But I did everything.
+- I realize now that I've hoped to be great - as an actress, as a mother - because I want to embody the greatness of women who didn't get to be all they could have been. Their dignity, their courage, and their brilliance make me strive to be better. They're a part of me.
+- I don't want to be size zero and I'm glad I'm not.
+- Art and activism seem to go together naturally, the idea being that if you're an entertainer, you can have a voice, and if you have a voice, you can make a difference. But if I were not an actress, I would still try to extend myself beyond my little micro-universe of my job, family and personal joy.
+- My accent was horrible. In Mexico, nobody says, 'You speak English with a good accent.' You either speak English, or you don't: As long as you can communicate, no one cares.
+- I believe eating well, and with people you love, is about feeding your body, heart, and soul - I used juicing to ensure I covered my nutritional bases every day, and as a tool to restore inner balance if my body needed a break from too much indulgence.
+- I had to endure the worst time of all in terms of racial discrimination in Hollywood when I first started out. It was inconcievable to American directors and producers that a Mexican woman could have a lead role.
+- I've stolen a couple of hearts and they are in my private collection!

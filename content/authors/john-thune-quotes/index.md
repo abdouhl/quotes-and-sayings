@@ -1,0 +1,36 @@
++++
+author = "John Thune"
+title = "John Thune Quotes"
+quotes_len = "30"
+description = "the best 30 John Thune Quotes"
++++
+- Because of my upbringing, I believe in things like limited government, fiscal responsibility and personal accountability. I believe in the wisdom of our founders and the sanctity of our Constitution.
+- I think that if Republicans are given the reins of leadership in the House or Senate or both, we will have to govern in a way - at least put forward solutions whether or not the president goes along with them or not, that deal with these long-term challenges.
+- I valued the biblical foundation I got at Biola. I was able to take classes that strengthened my faith and helped me to better understand what I believe and how to, in a practical way, apply my faith in real-world situations.
+- Having a Christian worldview shapes my decision-making with respect to all aspects of my life. I always respect people in public life who are principled, and those principles have to be connected to something. And my faith is what serves as the anchor and directs my actions.
+- Absolutely. I think that this is - politics is a tough business. I describe it as a full contact sport. You have to be prepared to get in there and mix it up.
+- I have a Christian worldview and so it shapes the way that I view issues. I don't apologize for that, and I don't think people of faith ought to shrink away from being in the public arena.
+- I think the problem with President Obama - and I like him personally, I came into the Senate with him - is his agenda.
+- Chuck Swindoll is somebody who I've read a lot over the years and have used his curriculum when I've taught Sunday school classes.
+- Like a lot of people, I'm interested in public service and want to do as much as I can to change the direction of this country and will give some consideration to that after midterm elections.
+- I'm a big, big reader of pretty much everything that Chuck Colson has written. And I consulted with him when I was making some decisions about running for the Senate in the first place.
+- Social Security is an extremely complicated program.
+- President Obama likes to talk about winning the future. But someone needs to tell him: You can't win the prosperity of tomorrow if you're mortgaging it to pay for the big government programs of today.
+- I believe our flag is more than just cloth and ink. It is a universally recognized symbol that stands for liberty, and freedom. It is the history of our nation, and it's marked by the blood of those who died defending it.
+- I just think we need more accountability and more transparency.
+- I feel that I am best positioned to fight for America's future here in the trenches of the United States Senate.
+- When you're the president of the United States and you know that the biggest issue facing you is this cliff that we're about ready to head over if we don't get this spending and debt situation under control, it's very irresponsible not to take the action that is necessary to fix the problem.
+- Ethanol reduces our dependence on foreign sources of oil and is an important weapon in the War on Terror. By investing in South Dakota's ethanol producers, we will strengthen our energy security and create new jobs.
+- If you're blessed enough to serve in public office, then you shouldn't just talk a good game about your values; you should cast your vote according to them.
+- The closest I've come to being on a reality TV show is C-SPAN's live coverage of the Senate floor.
+- There are more than 30 states, who either by statute or constitutional amendment, have defined marriage as being between a man and a woman.
+- Freddie Mac and Fannie Mae, although they're not officially debt of the federal government, they are off-balance-sheet debt.
+- There is a battle to be waged over what kind of country we are going to leave our children and grandchildren and that battle is happening now in Washington, not two years from now.
+- I've also said you don't rule any options out, because if you are in public life because you want to make a difference... obviously, you have to be open to those kind of possibilities.
+- We are spending more as a percentage of our entire economy, almost 25 percent, than we have spent at any time since the end of World War II.
+- I think that all areas of the budget have to be scrubbed. Clearly the entitlement issues have to be reformed and that's an issue that's going to require I think some strong bipartisan cooperation and leadership.
+- We must ensure that today's seniors' benefits are rock solid and find a solution that fixes Social Security for the next generation that is just entering the workforce.
+- Let's not dismiss or attack individual ideas as being inadequate before we have had a chance to assess their positive effect as part of a whole solution.
+- I don't happen to subscribe to the notion that everybody who criticizes Tom Daschle is criticizing Tim Johnson. I think that's a bit of a stretch.
+- We must work together to save and strengthen Social Security not just for my father's generation but also for my daughters' generation.
+- But what shouldn't happen is, you shouldn't have the taxpayers from states that are managing their situations well paying for those states that are not.

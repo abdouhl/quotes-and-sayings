@@ -1,0 +1,40 @@
++++
+author = "Jeff Giles"
+title = "Jeff Giles Quotes"
+quotes_len = "34"
+description = "the best 34 Jeff Giles Quotes"
++++
+- When salaries skyrocket, budgets skyrocket, and then rigor mortis sets in: moviemakers turn out formulaic junk in an effort to hedge their bets.
+- Authors all have at least one thing in common, which is that when we finally get finished copies of our books, we get giddy as kindergartners. We touch them constantly, and build towers with them, and take pictures of our cats and dogs reading them.
+- Any time a young adult book throws a girl and a guy together, the clock starts running on the countdown to the kiss.
+- I didn't want to write a pure fantasy novel, though I love those and grew up on J. R. R. Tolkien and Ursula LeGuin.
+- Independent booksellers tend to have good taste and big mouths.
+- Because I'm a writer, I'm really good at being nervous.
+- There are all kinds of voices in YA, and they are realistic and unflinching.
+- I'm definitely interested in two questions: 'Is anybody ever really irredeemable?' and 'How much are we all prepared to do for each other?'
+- The YA category changes pretty fast. I'm so impressed by what these authors do.
+- In its more listless moments, 'Pharaoh's Army' seems a ramshackle collection of memories not overly concerned with telling a larger story.
+- Jean Thompson's short-story collection 'Who Do You Love' is a beautiful book, but a hell of a sad one.
+- Leaving New York and friends is tough, and there are things about it I still really miss. But Montana is a great place to write.
+- By now, we all know that Hollywood producers always chase after the same properties, that the sharks circle simply because the other sharks are circling.
+- I like beautiful writing, pain, unexpected humor, and the message that, at the last second, people are going to be kind to each other. It almost doesn't matter what the genre is.
+- Tobias Wolff is a hell of a writer, but you knew that already. His first memoir, 'This Boy's Life,' was a Huck Finn story set in the Eisenhower era - a story so rich and wounding that not even Hollywood could make a bad movie out of it.
+- In the annals of the rich and miserable, Christina Onassis stands out, if only because she was so rich and so miserable.
+- I know Peter Jackson a tiny-tiny bit from interviewing him about the 'Lord of the Rings' movies over the years. When I was visiting the set of 'The Return of the King,' he let me be an extra so I could see filmmaking from a different perspective. I was a Rohan soldier.
+- It has taken Thomas Harris 11 years to publish the sequel to 'The Silence of the Lambs,' which suggests that while everyone was desperate to read it, he was not desperate to write it.
+- Tim Burton's 'Sleepy Hollow' has got to be the most gorgeous, sumptuous, painterly movie ever made about multiple decapitations.
+- Owen Wilson is an actor, but think of him as a sort of secret agent. He has an offbeat, indie-movie sensibility. Every so often, however, he infiltrates some big-budget movie he clearly doesn't belong in - 'Anaconda,' 'Armageddon,' 'The Haunting' - and struggles valiantly to stop it from sucking.
+- Scott Bradfield writes weird, oblique, unsettling stuff.
+- Some actors occasionally waive their outlandish salaries and take a cut of the gross instead.
+- 'White Teeth' has far too many characters, and its plot is tortured. But Smith has an astonishing intellect. She writes sharp dialogue for every age and race - and she's funny as hell.
+- It's been said that Generation X should get a life. Well, in 'Bottle Rocket,' they get a life of crime. Or at least try.
+- I had written many things as a journalist, but I had no idea if I could write something scary or romantic or touching that wasn't me writing about someone else's life story. It was really exciting to try.
+- It is amazing how quickly a true talent can announce itself. In the case of Myla Goldberg, it is not even a matter of pages, but of sentences.
+- I'd been wanting to try a YA novel for years because I saw how exciting the genre was and how amazing, hungry, and curious the readers were.
+- My father-in-law lives in Montana, and we would come here every summer.
+- In my work at 'Entertainment Weekly,' I had written reviews and news stories about YA books and film franchises and was always moved by how smart and voracious and loyal the readers were. Everything we did got lots of attention and reaction.
+- Asking the director of 'The Lord of the Rings' to read my novel was exactly as terrifying as you'd think. I came this close to not doing it because I was so embarrassed. But he was so gracious about it.
+- Sharon Stone has made a fortune from her movies, so who says you can't get something for nothing?
+- Making a summer movie is like accepting a mission impossible: your enemies are everywhere, and if you fail, the studio's never heard of you.
+- The conventional wisdom is that authors get only one chance in this world. If your first novel doesn't sell, publishers and bookstores lose interest, and your career stalls, barring an act of God or Oprah.
+- 'Bottle Rocket' is an underdog.

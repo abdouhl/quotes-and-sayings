@@ -1,0 +1,34 @@
++++
+author = "Jim Barksdale"
+title = "Jim Barksdale Quotes"
+quotes_len = "28"
+description = "the best 28 Jim Barksdale Quotes"
++++
+- Well, the sales of our products clearly demonstrate their value to businesses and to individuals.
+- The ability of our people to think quickly and create great products in this whole new world of Internet open standards is not only essential to our success but is also one of the things that impresses me most about Netscape.
+- We also provide a lot of services with our consulting group that allow people to take maximum advantage of the Net economy. Those all seem to resonate with customers and are providing a good strong base going forward.
+- One problem was that my direct testimony was in writing, so a lot of people didn't get to see it. I hope they see it, because I think it built a very strong case.
+- We're no longer a small business; we're a large organization spread around the world. I can't imagine Netscape growing as fast as it has if it weren't for the way we use our products.
+- We can collaborate with a Netscape employee or partner who's halfway around the world. We can distribute information and software to customers and shareholders, and get their feedback.
+- Well, another market is being created now out of Internet technology.
+- Take our own company as an example: We're living proof, we jump with our own parachutes.
+- I think the touchstone is to give consumers a full, fair choice without the power of a monopoly operating system pushing them in a direction that free competition might or might not achieve.
+- Where we can compete on merit, we do very well.
+- We can provide beta software to our developers in advance of the general public. We can easily link up with external partners, customers, and suppliers.
+- I want my testimony to stand on that point. But I would point out that Zona Research Inc. showed we have increased market share among business users, educational users, and government users over the past several months - and that's more recent than the IDC report.
+- In my column series 'The Main Thing', I often talk about how Internet technology can improve the way people communicate - both within a business and between a business and its customers and partners.
+- Our people are excited about building solutions, and it's rewarding to see how much fun Netscape employees have doing something they think is relevant and important.
+- There are no pat answers - we're pushing through some new frontiers, and lessons of the past don't always apply.
+- We provide many options in many product areas that they seem to want to adopt, and that's working well for us.
+- I think we're proving ourselves as we go along. The past several months our strategy has been evolutionary - making maximum advantage of our client browser, as well as our enterprise software for people who want to build Web sites.
+- It's the first time I've ever done anything like that. It took longer than I expected. I've gotten a lot of E-mail since I got back, saying they thought I did a good job and presented the case well.
+- One of Netscape's main attractions to customers from Day One is that we provide alternatives. And that's cherished by many customers - certainly not all.
+- I think they should separate Microsoft's application group from its operating system group.
+- I don't believe in government regulation of the software industry.
+- I can't deny that some customers and prospects think it's the key to our future. But it's not. We're certainly supportive of the Dept. of Justice and the 20 states that have brought this action.
+- That's the ultimate gratification in any business situation - do customers buy the product? And do they use it and do they come back and buy more of it?
+- We're building a great company, and we're very excited about the future of the company.
+- After all, it's the future of business communication that we're looking toward.
+- We've tapped into a huge demand, and it's up to us to fulfill that demand and to be creative doing it.
+- I've tended to work at fast-growing companies that improve the way business gets done.
+- I was telling the truth. I feel like we got that point across.

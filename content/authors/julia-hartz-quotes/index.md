@@ -1,0 +1,106 @@
++++
+author = "Julia Hartz"
+title = "Julia Hartz Quotes"
+quotes_len = "100"
+description = "the best 100 Julia Hartz Quotes"
++++
+- I founded Eventbrite when I was 25 and had exactly five professional years under my belt. Perspective was lacking; idealistic views were not. I really had no idea what I was getting myself into, and I'm beyond thrilled I took the leap from a comfortable corporate career into the abyss of founder-hood and entrepreneurship.
+- Eventbrite is 50-50 male-female, and this has been accomplished organically.
+- We always had a sense that we were the underdog. There's lots of competition and niche players. But we have every type of event on Eventbrite, whether you're a consumer or you're organizing a bacon festival. Our identity is our users.
+- I'm thrilled to share the story of my journey in building Eventbrite and what I've learned along the way as a working mother and entrepreneur.
+- My worst day is away from the office, when I'm traveling and not with the Britelings.
+- Your first company is like your first baby.You have this unconditional, irrational love.
+- I think entrepreneurship is combining a passion with the tenacity to problem-solve and the fearlessness to fail.
+- Legacies are built on the practices of your company.
+- Being a female head of a successful tech company means that I'm in a pretty niche category.
+- It's extremely easy to get people to share what events they are going to because events are inherently social.
+- Four Seasons' legendary brand epitomizes the highest standards for service in the hospitality industry worldwide.
+- I am excited to be working with the dedicated Four Seasons board and leadership team to build upon their reputation for industry-leading customer experiences while seeking out innovative ways to leverage technology that will help spur additional growth.
+- When we set out to build Eventbrite, we had to face many challenges and come up with creative solutions to get past them. Each time we learned new ways to cope, we became a stronger and more cohesive team.
+- Getting to profitability does not mean all our problems are solved.
+- In television, things move quite slowly. It can take years to get a show off the ground.
+- I didn't play any extreme sports growing up. I never surfed, and I grew up in Santa Cruz. I was very good at doing what I was told, taking direction, and staying middle of the road. I mean, they called me 'grandma' in college.
+- I encourage women who are starting families to think about the five-year horizon. The first few years of parenthood are really hard, but if you stick it out, it gets easier.
+- To be a true leader, I needed to better understand my unique strengths and how to apply them across the company as we grew.
+- If you can't see an example of what you could be, you really aren't going to have that extra incentive to break through any types of barriers.
+- Our platform is self-service, so we enable people to host events themselves. The biggest events tend to be the free ones. We had 100,000 at a salsa congress in Mexico.
+- I think having a visionary CEO is awesome, and visionary leadership is one thing, but you also need checks and balances on whether this company can withstand a very honest and critical look at itself.
+- I think people are intelligent, empathetic, multi-dimensional.
+- We wanted to harness the power of technology to make it possible for anyone to sell tickets to any type of event.
+- As founder of Eventbrite, I've interviewed almost every single person we've hired.
+- We thought we could reinvent the way people came together for live events. We wanted to ticket everything from a five-person yoga class to a 10-person cookery class to a fashion event.
+- The beauty of being co-founders with your spouse is that we run our business and family together.
+- Live experiences are more than fundamental - they're transformative.
+- I'm not good at throwing around rhetoric.
+- I think there's a fine line, and once you cross it, you are in a dangerous territory of overhyping your company, your service, and your product and sort of under-delivering. But I think we probably could have been a little more overtly confident in the early days.
+- As far as funding and building a team, you being romantically involved with your cofounder really shouldn't play a factor in how you run the company and how you create a team or find resources. It's all about the partnership.
+- For a global company, it is imperative to respect and honor local culture and weave that into the core company values rather than the other way around.
+- There's always a little bit of friction when you're trying to democratize an industry.
+- To force a culture creates something that is inherently not sustainable. It does not evolve forward.
+- The majority of our happiness at work is determined by the people who surround us. Strong teams produce more content, launch more products, and sign more contracts. And most importantly, they have fun doing it.
+- I think a universal feeling that we all share is that live experiences create indelible memories.
+- Work does come home with us, but home also comes to work. Our kids are regulars at Eventbrite's HQ in San Francisco.
+- There is no finish line to leadership.
+- Being productive at work is rewarding, and feeling supported, challenged, and appreciated allows us to be our most efficient selves.
+- I'm a very connected and passionate founder. And I do model transparency and openness and loyalty in my actions.
+- I think there's real value in having a founder CEO. Obviously, I'm biased, but I'm driven by a purpose and a mission and a vision, not just profits.
+- At Eventbrite, we care about the whole you, not just the employee you.
+- I studied broadcast journalism at Pepperdine University. After a short career in television with MTV and later on at FX Network, I found my true calling in Eventbrite.
+- Being an entrepreneur can be learned, and that is exactly what I have done. You don't have to be born with it or have had the 'lemonade stand.' But, you do need to have the passion, devotion, conviction, and sheer will and drive to make it happen.
+- What I didn't appreciate about myself is that I'm good at coaching leaders.
+- Humans want to know the hierarchy; it's important for there to be one leader.
+- I wasn't the kid with the lemonade stand.
+- We focus on Eventbrite and our family. That's how we spend our time, full stop.
+- I was a dancer and performer.
+- For the first two years of Eventbrite, all the work was done by just the three founders: me, my husband, Kevin, and our chief technology officer, Renaud Visage.
+- As with any other crucial aspect of a growing business, you need the right technology and tools.
+- Co-founders shouldn't excel in the same areas - it's inefficient and will inevitably lead to conflicts down the road.
+- Creating a strong company culture isn't just good business. It's the right thing to do, and it makes your company better for all stakeholders - employees, management, and customers.
+- Getting over the stigma of needing to appear as if I do it all myself took about 12 months. I finally realized that the only way to be a successful, happy mother, founder, wife, and daughter was to accept the help that was being offered to me.
+- Swaying to new beats, hearing old favorites, and drinking expensive beer are ageless pastimes.
+- I don't have just one role model - rather, pieces of inspiration from many different entrepreneurs. One of the great things about being an entrepreneur is that it naturally enables you to build a village of advisors and role models.
+- I've been told many times that I should give up trying to find balance in my life, but I refuse.
+- One of the reasons why we were so successful in integrating with Facebook was because we saw people using Facebook to promote their event and link back to Eventbrite before Facebook Connect and before the event's API was even available.
+- If you want to build a sustainable culture, you have to have a strong philosophy and then let people do with it what they will and be OK with that.
+- Each company is different because they get their DNA from the founders.
+- Many tech companies experience steep growth curves that require them to build their teams at breakneck speeds.
+- Every day is sort of a jigsaw puzzle. You have to make sure that you're putting the most important things first.
+- Since the earliest days of Eventbrite, we've made our people core to our mission. Our culture is an ever-evolving manifestation of those on our team. As people join, we believe in earning their trust by demonstrating we'll embrace them and help them grow.
+- If you have a cofounder, one of the benefits is you'll get from point A to point B two times faster.
+- It's important for founders to think about how they would build their company from scratch - again.
+- There's a lot of clarity in hindsight.
+- My goal is to create one of the greatest companies that's ever existed, and that has everything to do with the people, the culture, and what our core values are versus what we build or how we're perceived out in the market.
+- During college, in Los Angeles, I interned all over Hollywood. Development roles appealed to me; they were a perfect blend of business and creativity.
+- I've done everything from traditional yoga to Bikram yoga to Pilates.
+- That seems to be my superpower - really understanding what motivates people.
+- Millennials are the experiences generation.
+- My mom always instilled in me that it was braver to ask for help when you need it. That has absolutely stuck with me over the years but became even more important in practice once I became a mother. It may sound trite, but the concept of 'it takes a village' really could not be more true.
+- At Eventbrite, we value quality results over everything else. So while working late is acknowledged, at the end of the day, I care more about the results you're producing.
+- I get extremely detail-oriented. In my most stressed-out days, I get way more focused on those details than anyone should be.
+- Showing that you consistently have their best interests at heart not only motivates your people to do their best work; it also builds goodwill that you may need to draw on when the going gets tough and you have to lean on one another to find the horizon.
+- I graduated from college and went straight into a job with MTV.
+- I live, breathe, and die by what kind of company we're creating.
+- One of the most brilliant parts of being a first-time founder is that you experience everything for the first time. It never gets old.
+- Working in MTV's development team, my days would consist of pitches and deciding which concepts we wanted to buy. We would then develop those into a pilot. Very few ended up making it to a full series, but if they did, I would manage the project alongside the show's creators.
+- There has been an intention since day one that it's as important to us that we build profits as much as we build a wonderful culture and a lasting legacy of a great company. We've created this inclusive environment that's very thoughtful in terms of how we can create allyship, how we create mentorship, and what kind of voices are heard.
+- The gender parity is something that has been organic to Eventbrite since we started building a team.
+- Ticketing is a people-intensive business to get it right on a global scale.
+- I think I lead with empathy and connection to our people. I find that the most effective leadership style for me is to just talk and listen. It sounds simple, but it's so effective.
+- We live in an experience-hungry society with advanced event technology and broad social reach at our fingertips. These external factors offers an ideal environment for organizers to create a connection with a broader set of people and maximize each interaction with their audience.
+- It's incredibly important to be - once you do have a product - acutely observational about the trends.
+- Our team finds motivation in knowing that we're transforming the ticketing industry, this notion that we're bringing democratization to an industry and disrupting it using technology.
+- Great leadership and great companies aren't built overnight, and they're not built without capital. And capital can sometimes be counter-productive to building a great culture.
+- I know my daughter was dealt a very, very good birth card, but sometimes I feel like I want to honor the fact that she also drew a lottery that she didn't get to choose, which is that there is this thing called Eventbrite in our lives, and it sometimes takes precedence.
+- If you're going to be an entrepreneur, most likely you're going to be Type A - stubborn.
+- People are multi-dimensional and crave a multi-sensory experience.
+- One of the biggest mistakes that founders can make is doing something that maybe seems like a great idea, and seems like a good use of time, but actually isn't measurable, significant, incremental growth.
+- If I were to think of myself as a role model, I would say that it's really important to realize when you are a role model and to be willing to give advice, share how you do things.
+- What we've found was that people were utilizing Eventbrite to turn their passions into revenue-generating ventures.
+- Whether you're a founder, a leader, or an individual contributor, building a strong team is critical to your success.
+- Acquiring customers at the start is one of the hardest things you'll ever experiences as an entrepreneur.
+- I truly believe there is this confidence gap, at least for me. You have to 'manipulate' yourself to get over it,and I do think it has something to do with being a female. If you live in fear or doubt and have that confidence gap, you are simply not going to achieve your full potential and what you know you can achieve.
+- Leading Eventbrite has taught me a lot about how to connect with people to drive results.
+- I started my career in Hollywood, where I learned the rumors were true - having success there really was dictated by how who you knew, not what you knew. I grew frustrated by the fact that careers could be made and broken by relationships alone.
+- I have not always been a risk taker.
+- If you think about stripping away 80 percent of the things that don't matter and focusing on the the 20 percent that will actually make a difference, I think you'll find great results even in the toughest of situations and the harshest of environments.
+- I love just being home with the kids and, seeing what they do when they're bored and then I just follow.

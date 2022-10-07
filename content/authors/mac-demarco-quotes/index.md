@@ -1,0 +1,36 @@
++++
+author = "Mac Demarco"
+title = "Mac Demarco Quotes"
+quotes_len = "30"
+description = "the best 30 Mac Demarco Quotes"
++++
+- For me, it's all about the Canadian tuxedo, and maybe a bolero. The province I grew up in in Alberta is pretty much the denim capital of Canada. The first premier of Alberta started Grand Western Garment, which Levi's bought later on.
+- My grandma did opera singing for the better part of her life; she used to sing all over the place. My grandpa was a sax player, and he used to travel all over the place, too.
+- At the time I was writing the second album, I was sitting home in my underwear all day every day; I didn't have all that much to write about except for my own life and my family.
+- I'm terrible at collaborating with people; nothing ever ends up coming out good.
+- I first started going to shows when I was about 16 - seeing local bands. I mean, I loved music before that, and I played a bit of guitar when I was younger and thought maybe I'd become a guitar teacher or something, but when I saw other kids doing it, I was like, 'Whoa, these are great bands! I can do it, too.'
+- I had a band called the Sound Of Love, and that was R&B songs about girls in my high school. I played in some other indie bands who were trying to make it big; those sucked. Then I started Makeout Videotape, and that was that.
+- I like guitar. It just turned out that it's the instrument I learned to play. I have a lot of respect for it, and I'm learning more and more every day. For me, the classic band setup - guitars, drums, bass - will stay fresh forever. I don't know. I'm still into it.
+- I don't necessarily like wearing lipstick; I just think it's funny to do. I think the darker the better, but it's whatever my girlfriend Kiera has in her purse.
+- I love Jonathan Richman - I love a lot of his music, and the thing I really like about him is his attitude. He seems very happy, and the way he performs is like, 'Don't worry, everybody, just get into it. I'm just having fun; I like when you guys are having fun.'
+- I'm just trying to have fun, and maybe the way I hold myself kind of freaks people out. I don't feel like an outsider, and I think my friends feel the same way I do. Now that we're playing to larger audiences, maybe we're weird to some people. But I'm trying to express what I am.
+- Perfectionist? That's not something I am.
+- I'm going to try to do music for the rest of my life, but that's just trying. Maybe it's not going to work out. Who knows?
+- It's so crazy now with the Internet and being able to play shows to people who are actually interested in you. I still feel so lucky when that happens. Things just happen so fast.
+- If people are talking about you, that's great. You start making more money, that's great. You get to go to weird places, that's great. The music industry is weird, especially with the Internet. People are calling you all kinds of weird stuff, like 'jangly.'
+- One thing I hear a lot is, 'Dude, my mom loves your record,' or 'I got it for my dad for Christmas.' I'm essentially doing dad rock. Which is great, because I love Steely Dan, you know? Nothing wrong with dad rock!
+- I actually had a really nice guitar as a teenager. I took jazz guitar, so my mom bought me this probably $1,600 guitar. But I got really into garage rock and local bands, and I noticed they played really crappy guitars. So I thought, 'Hey, I should get a crappy guitar, too!'
+- I don't care about what people might call my style. It's just like when people call my music 'jangly,' 'dream,' 'oceanside,' whatever - I don't care. I'm just wearing whatever I can scrap together.
+- When you play a guitar for a long time, you get your hand oils in there; it starts feeling good and behaving, and you just don't want to mess with that.
+- The way I'm portrayed on the Internet is partly my doing, but it's partly the people that are presenting it so, you know, people come to know this strange version of a human. It can be pretty weird because people think I'm digging through dumpsters and smell like crap all the time.
+- I live like a scumbag, but it's cheap.
+- I'd probably describe my sense of humor as 'twisted,' I guess. It's not hard to make me laugh, especially when I'm surrounded by my close friends, especially my bandmates.
+- I write for myself; I'm trying to keep myself interested in the music. But at the same time, I want to make the songs relatable in a way; I want to keep melodies pretty simple and the lyrics open-ended so that people could maybe relate them to their own life in different ways. Something for everybody to have a piece of.
+- I'm a pretty easygoing person, and it bleeds into the music. Even if I'm writing the most personal song, it's not going to come out totally serious; there's always a little tongue in the cheek.
+- When people think of someone being prolific, it's like, 'He's got a vault with 5,000 songs in it,' or something, but I just kind of pick them out of the air when they float by.
+- Neil Young is the prime example, the grand goal, if you will. He's still shredding, and he never lost his credibility.
+- I don't want a job, and I think I've been trying my hardest to make sure I don't have a job.
+- The crowd can be a little different in some places. For example, in Europe, people tend to be very respectful. They try not to make too much noise at inappropriate times. In other countries, people can be very still. Sometimes I'm not sure if a crowd is into it until the end, when they usually want me to do something crazy for the encore.
+- I'll probably have to open a recording studio at some point because I won't be able to pay the bills.
+- A lot of people assume I have a great hat collection, but kids steal my hats at every show. I've had all these hats that I've loved, but now they're in some little kids' possession. It's difficult to replenish. I don't think the kids realize this.
+- A lot of the songs on '2' are pretty personal, but even if I'm writing about something like that, I still tend to keep it pretty simple and open-ended. I like the idea of people listening to my album and it meaning something to me but maybe meaning something else to them.

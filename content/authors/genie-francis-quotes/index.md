@@ -1,0 +1,21 @@
++++
+author = "Genie Francis"
+title = "Genie Francis Quotes"
+quotes_len = "15"
+description = "the best 15 Genie Francis Quotes"
++++
+- There is something else at work here that is beyond me - and that is Laura. She has a life of her own. There is a magic in her. The muse is in her. And I'm lucky to have her in my life.
+- I've always loved interior design.
+- Being a wife and a mother is very gratifying, but it's not a creative expression and that's something I need to be happy.
+- I remember being in Atlantic City once when I was 18 or 19, and a sea of people were screaming and pulling their hair because I was there. It was weird. Nobody deserves adulation like that. I tried to explain it to my kids once. I said, 'Mommy used to be kind of cool, kind of like a Britney Spears.'
+- It's nice to come back for visits. 'General Hospital' is my home.
+- My heart goes out to the Lindsay Lohans and Britneys who have really had childhood taken from them and probably missed important developmental steps. They have become sort of 'public domain' and something to be made money on. There's no sense of self there, I'm sure of it.
+- I felt for a while with the GH appearances, they were kind of using me as a media trick, bringing me on for three or four weeks, saying I was back on the show, but not really writing for me. And then I would be gone. I just didn't like that anymore. I guess it was me putting my foot down.
+- A lot of actors think they can't be happy without the acting... But I think I couldn't be happy with it anymore.
+- I have never, ever, had an acting partnership that was a safe, as full, and as exciting as the one I had with Tony. I didn't want to go through life without having a chance to taste it again.
+- What I have found is that my fan base will follow me to whatever I'm doing. They gave me a big tune-in for Hallmark. They were just happy to see me working again, and my job is not to disappoint them, not to cheat them.
+- I would stay on, but 'General Hospital' honestly doesn't seem to want that relationship with this character at the moment. They want little short doses during sweeps periods.
+- From the time I was 16 and I had my own checking account, you'd think most young women would run out and buy clothes. No, I ran out and got myself a psychiatrist!
+- I have an appearance on a new TV show called 'Bar Karma' on Current TV. I had the most fun ever making this episode. I play someone with a multiple personality, and I think my fans will be surprised and get a real giggle out of it. It's a new model for TV in that it is interactive with the community.
+- Most of my actor friends don't believe it's possible to let go of it and be happy, and for a while that was true for me. For the first two years I ached, every day. And I had such bad dreams. But then I made the decision to start working on my little shop and all that went away.
+- The pleasant surprise for me is that when I look into Tony's eyes, he's still 100% present, sharing everything that's going on. Acting with him is like a beautiful dance.

@@ -1,0 +1,18 @@
++++
+author = "Joan Severance"
+title = "Joan Severance Quotes"
+quotes_len = "12"
+description = "the best 12 Joan Severance Quotes"
++++
+- I want good and different parts, different from what I've done.
+- I don't think I'd want to sit down and listen to people's stories all day long.
+- Wearing this kind of costume is not something I fantasize about. It's not natural, it's not comfortable. I don't see myself as this. But it gives you dramatic license to do almost anything when you're dressed as a bug.
+- I did commercials since I was 16, and that's kind of acting, depending on what you're selling.
+- I really think the mind of someone who hasn't been welded into place by their work or studios or actors or this whole society is a wonderful mind to work with, so I'd like to do a big picture with an unknown director.
+- I definitely feel, when I'm wearing the costume, that I could scare people and hurt them.
+- I now have a plan - I haven't had a plan up until this year.
+- I hope they make a show like M*A*S*H, which dealt with a lot of difficult subject matter but was very funny.
+- Every part I've done has been for one reason or another-money, or the part, or the director, or the location. I'd like to get one thing that's all of those combined.
+- When you're dead weight, in the right position, you win. And in reality, you wouldn't see someone my size kicking seven martial arts experts and winning.
+- I was watching something the other day which started out with five guys walking towards you and one woman, and there you go-it's still being dominated by the male society.
+- You can take charge, kick ass, do whatever you have to do and it's okay. You can blow people up. These are things that are okay for cartoon characters to do.

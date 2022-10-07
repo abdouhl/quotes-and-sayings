@@ -1,0 +1,19 @@
++++
+author = "Gever Tulley"
+title = "Gever Tulley Quotes"
+quotes_len = "13"
+description = "the best 13 Gever Tulley Quotes"
++++
+- Every day, new laws are created that further hamper the ways children can engage with the world.
+- I'm a contract computer scientist by trade, but I'm the founder of something called the Tinkering School. It's a summer program which aims to help kids to learn how to build the things that they think of.
+- The idea that we can make all things safe for all behaviors is in itself a dangerous and slippery slope.
+- We put suffocation warnings on all the - on every piece of plastic film manufactured in the United States or for sale with an item in the United States. We put warnings on coffee cups to tell us that the contents may be hot. And we seem to think that any item sharper than a golf ball is too sharp for children under the age of 10.
+- The evolution of playground equipment has been to this ever safer, less challenging, less interesting assemblies of equipment.
+- When we protect children from every possible source of danger, we also prevent them from having the kinds of experiences that develop their sense of self-reliance, their ability to assess and mitigate risk, and their sense of accomplishment.
+- Persistence and resilience only come from having been given the chance to work though difficult problems.
+- Tinkering is a way of understanding difficult problems, of wrapping our heads around them and quantifying the unknowns.
+- Being able to jump off a swing is actually a useful and meaningful thing for a child to do... those are the tests that help us understand the limits of our body. That's a positive learning experience that we deny children on a regular basis.
+- Pocketknives are kind of drifting out of our cultural consciousness, which I think is a terrible thing.
+- Every child, and every person, deserves a chance to make something of themselves.
+- Kids who grow up in radically different environments are always going to have different comfort levels with regard to a topic. If you don't live near a train track, it's hard to squash a penny that way, and if you live in an apartment in New York City, it may be difficult to get to drive a car.
+- The news media is so quick to pick up tragic stories of imperiled children that it seems like there are more terrible events today than ever before - when in fact it's quite the opposite. It is, in all manners possible to calculate, the safest time in the history of civilization to be a kid.

@@ -1,0 +1,17 @@
++++
+author = "Simone Manuel"
+title = "Simone Manuel Quotes"
+quotes_len = "11"
+description = "the best 11 Simone Manuel Quotes"
++++
+- Swimming is a life-saving skill, so just the fact that the sport that I love can give so much back to other people - and inspire them to join something that they never thought they could do or go after their dreams - is something that is really special to me.
+- I want to be an inspiration, but I would like there to be a day when it is not 'Simone the black swimmer.'
+- I am fortunate that I have two older brothers, and they have definitely helped me with being competitive just to keep up with them. We were always encouraged to try what we wanted to do. As long as we tried our hardest and did the best we could, it didn't matter what we did.
+- I cook often when I am at home but not in college. I do it alone. It is just very relaxing to me. Just about anything that I like to eat, I can cook - chicken, salmon, stir fry. I like to cook seafood or burgers the most when I am entertaining.
+- I like to listen to Beyonce or any type of upbeat music when I am working out. Gospel music always motivates me.
+- People call me Swimone more than Simone now.... Not quite used to that yet!
+- I swim for myself. I love it, I have fun, and just representing my country is the greatest honor I could ever have.
+- The title 'black swimmer' makes it seem like I am not supposed to be able to win a gold medal, I am not supposed to be able to break the Olympic record, and that is not true, as I work as hard as anybody else, and I love the sport, and I want to win, just like everybody else.
+- For people who believe that they can't do it, I hope I'm an inspiration to others to get out there and try swimming. You might be pretty good at it.
+- LeBron James, I just love watching him play. I love his work ethic and all the things he stands for.
+- My first gold medal, at my first Olympics, is kind of a surprise to me. I never thought I would be in this position, but I'm so blessed and honored to be on the medal stand.

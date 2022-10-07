@@ -1,0 +1,71 @@
++++
+author = "Jack Dangermond"
+title = "Jack Dangermond Quotes"
+quotes_len = "65"
+description = "the best 65 Jack Dangermond Quotes"
++++
+- As we continue advancing and leveraging GIS and as we keep bringing in new generations of technology as well as new generations of people, my sense is we're going to achieve extraordinary things.
+- Planning a garden, park, building, or city shouldn't be done in an office.
+- GIS started on mainframe computers; we could get one map every five to 10 hours, and if we made a mistake, it could take longer. In the early '90s, when people started buying PCs, we migrated to desktop software.
+- Google has been an amazing benefit for our business. People understand the whole world of mapping and want to do more than not get lost. They want to do spatial analytics. It's been fantastic for us.
+- We have to build a better education in this country. We need to step it up.
+- I went on to Harvard and got very interested in computers and studying the earth's landscape.
+- GIS is the only technology that actually integrates many different subjects using geography as its common framework.
+- We have millions of users around the globe who do amazing things with our technology every day.
+- A location-aware tablet will let us use what's called geodesign to compose participatory, what-if scenarios onsite, using maps that several people can share - something we could always do with paper but that's been a challenge with digital maps in the field.
+- In a nursery, if you don't take care of those plants, your profits get lost real quickly. You have to weed. You have to water. You have to nurture. Also, you have to take care of your employees in such a way that they do the same.
+- As an organization, Esri is strong, and we're continuing to grow. We're dedicated to this. And we're excited to see what you can accomplish and to watch your work evolve.
+- My definition is that geo-enlightenment is understanding the interconnectedness of things.
+- I am not that good a manager for me to be comfortable borrowing someone else's money.
+- Once you digitize data, you can actually analyze patterns and relationships in geographic space - relationships between certain health patterns and air or water pollution, between plants and climate, soils, landscape.
+- During that year at Harvard learning with Carl Steinitz, I had the feeling that I was drinking knowledge out of a fire hose. I learned more in that year than I had learned in the previous ten years of my education.
+- You have to decide who you are going to serve - stockholders or your customers.
+- In the area of field apps, Collector for ArcGIS is great, but where do you go? There's a navigator app. And then what do you do when you get there? There's a workforce app. So all of these apps work hand-in-hand to support field workers.
+- One thing that has made us so successful is that we've never taken outside investment. That means we can concentrate on what our customers want - not what the stockholders or the VCs want.
+- Mapping and visualization is a huge area of work and is of interest to many people. We're working on reinventing a new kind of 3D cartography to make it easier to tell stories with 3D maps.
+- We are driven by providing technology to enterprise customers.
+- Our intention and aspiration is to continue building out thematic information about every subject - basemaps, imagery, demographics, landscape data, etc. - so anyone can use it to access thousands of authoritative maps.
+- Because we're in a small town and somewhat isolated from the fast lane of high tech, we've been able to grow and concentrate on our work instead of being distracted by the competition and getting caught up in the soap opera of Silicon Valley.
+- My parents had no money, but they had strong values that I've carried throughout my life - things like not going into debt, never borrowing money, never leveraging, paying your bills on time, keeping your agreements, selling customers the right things, treating employees right, and growing things.
+- On the landscape crew, I learned a lot from the other workers. We treated everybody equally, and we worked hard.
+- I prefer to find craftspeople I can be colleagues with and who take an area of responsibility and run with it.
+- When I got into college, I found what ultimately became my life's work. I couldn't sleep at night, I was so excited about it. So I'm attracted to people who play at that level. They actually want to play in their professional life.
+- Cartography and geographic thinking are cool.
+- A number of organizations are already using Web GIS to create shared information and facilitate collaboration, and it is literally changing the way organizations operate.
+- ArcGIS includes a Living Atlas of the World. It's like a large living library of geographic information.
+- Web GIS provides us with a whole new window into our information through applications that are easy, 3D, and analytic. These applications are not just casual things, but reach deep into geographic knowledge and apply it.
+- Something like 80 per cent of business decisions have a location element. In fact, it's probably higher than that.
+- We support about 5,000 non-governmental organizations (NGOs) with software, training, and technical support. We provide our software at virtually no cost to them, and they're lighting up the world with what they do.
+- We tell stories with maps about global warming, biodiversity; we can design more livable cities, track the spread of epidemics. That makes a difference.
+- We shifted our philosophy from being a computer mapping group that would support planners to the idea of building actual software that would be well engineered. Because at that time, our software was not well-engineered at all; it was basically built with project funding and for project work, largely by ourselves.
+- I can put tweets on a map to show who is saying what where, which could be used for marketing or social research.
+- Executives are waking up to realize that they can do a lot better, save money, make better decisions if they optimize and start thinking geographically and have a location strategy.
+- There is the GIS world that is largely managing authoritative data sources, supporting geocentric workflows like fixing roads, making cities more livable through better planning, environmental management, forest management, drilling in the right location for oil, managing assets and utilities.
+- At Harvard, I worked for some time as a researcher in a lab for computer graphics and spatial analysis, which is one of the birthplaces for what we do.
+- ArcGIS Online is the complete hosted GIS in the cloud, supporting mapping and apps. Additions to this component have included smart mapping, formal metadata, better administration, and high-performance geocoding.
+- GIS is waking up the world to the power of geography, this science of integration, and has the framework for creating a better future.
+- My parents owned a plants nursery. We all grew up growing things and planting things and selling things, and I also managed landscape crews.
+- We started with things like locating ski runs or locating a transmission line corridor or locating a new town or doing a coastal zone plan. We ourselves weren't doing the planning work, but we were doing all the mapping work for the landscape architects and planners who would subsequently incorporate the maps into their actual designs.
+- ArcGIS is an integrated Web GIS that is supported by services. These are abstracted in a geoinformation model that's managed by the portal, and then accessible by a number of apps, which are the growing part of this system.
+- We have a rich and vibrant partner ecosystem with several thousand formal business partners. Some of them are very large companies that we collaborate with in many ways.
+- We have been supporting GIS in schools for more than 25 years.
+- I am hunting for people who would be a good colleague or a teammate, not someone who works for me.
+- I think it is widely agreed that Carl Steinitz, over the 50 years he taught at Harvard, has been one of the most important figures in influencing the theory and practice of landscape architecture and the application of computer technology to planning.
+- One city can look at other cities relative to their city and learn something. It's a matter of sharing the patterns of what exists in one society based on landscape or cultural values versus other cities.
+- GIS is being influenced by and integrating with all kinds of new innovations such as faster computing, big data, the cloud, smart devices, and distributed processing.
+- AppStudio is a native app builder that allows you to build the app and automatically deploy it on Android, iPhone, and Windows. It lets you design it once and then implement it anywhere.
+- I don't understand why young entrepreneurs feel this pressure to take venture capital or go public. Don't get me wrong: Public companies are A-OK with me. I just think there is another way. Staying private is a lot more sane.
+- Landscape architecture is basically geodesign; it's designing geography. And yet geodesign is not only done by landscape architects, it's done by some of the world's largest corporations.
+- You have to be very fast-thinking, creative, and mobile. It is key to making a business move.
+- My parents were immigrants who started a nursery as a way to get us kids through school. I learned around the dinner table about customer service and cash flow and paying bills.
+- One of the things that's making ArcGIS come alive is apps. Apps are opening up the ArcGIS platform, making it available to everybody in your organization as well as to the public.
+- Web GIS allows us to take our systems of record - our traditional server and desktop technologies - and integrate them, bringing them together into a system of systems.
+- Our world is evolving without consideration, and the result is a loss of biodiversity, energy issues, congestion in cities. But geography, if used correctly, can be used to redesign sustainable and more livable cities.
+- We aren't into the consumer space because that space is largely dominated by search and advertising, and it has a consumer face to it.
+- Bringing GIS into schools gets the kids very excited and indirectly teaches them different components of STEM education. That's been illustrated at school after school.
+- GIS, in its digital manifestation of geography, goes beyond just the science. It provides us a framework and a process for applying geography. It brings together observational science and measurement and integrates it with modeling and prediction, analysis, and interpretation so that we can understand things.
+- I have high hopes that GIS will become increasingly relevant for landscape architects as we make the tools easier to use for the design process of just inventory and mapping.
+- I want to have all that scientific information that we're building be used in designing the future so that people who make geographic decisions - and here it's not just land-use planners, but it's everyone: foresters, transportation engineers, people who buy a house - can analyze all of these information layers and design a future.
+- The world that you and I live in is increasingly challenged. Population growth, pollution, over-consumption, unsustainable patterns, social conflict, climate change, loss of nature... these are not good stories.
+- It takes a while for executives to understand that every company is a spatial company, fundamentally: where are our assets, where are our customers, where are our sales. But when they get it, they light up and say, 'I want to get the geographic advantage.'
+- Someone once told me be interested, not interesting - that really clicked for me.

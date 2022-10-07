@@ -1,0 +1,20 @@
++++
+author = "Joe Mansueto"
+title = "Joe Mansueto Quotes"
+quotes_len = "14"
+description = "the best 14 Joe Mansueto Quotes"
++++
+- Every August, I go away for four weeks to a place in Michigan. I work in the mornings, spend the month in shorts and flip-flops. It gives me time to think like an investor and come back in September for some heavy planning.
+- As I get older, I increasingly value free time that's completely free of appointments. Time to think, time to reflect, time to just hang out with my wife and kids.
+- I'm not an overly material person. Sure, I like certain comforts in life. But buying a lot of 'things' doesn't produce happiness for me.
+- I was a slightly geeky kid.
+- No one can tell you what to do or push you around. It gives you a secure feeling. That's the best thing about money.
+- Publishing had been successful where there had been natural geographic monopolies.
+- I found an approach to investing that made enormous sense to me: rigorously analyzing a company's fundamentals, understanding exactly how it makes money, developing a view on the business's future prospects, and deciding if it's a good business.
+- I thought a company that provides mutual-fund information could be a great business, because you could construct an effective moat by building large financial databases and customer lists and a strong brand name.
+- I spent the bulk of my career on building my company, and Morningstar is where the passion is.
+- I want a desirable place to work to attract and keep them here. So you try to create an environment for people to do their best work, and be generous on the benefit side.
+- I'm trying to set a good example. I don't need to take a high salary, which would impede the success of Morningstar.
+- In school, you get a limited view of the world. Start working. Find your passion. Take your time doing that. Once you've found what you're passionate about, then lock down. Even if you want to start a business, it's helpful to work, see how other businesses are run.
+- To me, money is independence. It gives you freedom to do what you really want to do. It allows you to not be dependent on anyone or anything, and so you can be yourself and follow your passion.
+- Once you create a loyal customer base, it's tough for a competitor to take that away.

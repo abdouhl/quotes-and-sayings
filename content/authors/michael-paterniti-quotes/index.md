@@ -1,0 +1,55 @@
++++
+author = "Michael Paterniti"
+title = "Michael Paterniti Quotes"
+quotes_len = "49"
+description = "the best 49 Michael Paterniti Quotes"
++++
+- I first went to Cambodia in 2002, primarily, as it turned out, to change diapers. My wife had work in Phnom Penh, and thus left with her driver and translator early each morning and returned later each night, while I took care of our firstborn son, who was 2 at the time.
+- I'd read about Alexander Imich, a Polish-born 'psychic researcher,' in 'The New York Times' not long after he'd turned 111 and had been declared the oldest man on earth.
+- The pleasure of hanging with Drake is that there isn't a question he won't try to answer openly and honestly, shifting easily and unselfconsciously between talk of the rap game, money, family, and love.
+- What the Khmer Rouge had in store was a radical agrarian revolution, one with the professed aim of completely renovating society while giving the peasants a better life, of evening the rewards and feeding the hungry, of bringing a rational and utilitarian nation-state into being.
+- When in my writing lair, I have no access to the Web. Otherwise, I'm like one of those lab rats on too much sugar. To compile my Google searches would be to see my sludgy, allusive brain at work.
+- It is not uncommon for angels to take corporeal form, to appear before us on earth as people with names and credentials.
+- People have become so much more obsessed with the stories behind their food. When we go the market to buy bacon, we want to know where that pig came from and what processes were involved in getting it to us.
+- Sloppy casual has always been my default look. My preppier classmates in high school would sometimes sport two, three, even four shirts at a time - Lauren, Izod, Brooks Brothers, all collars-up - while I wore secondhand faded olive German-army fatigues and this cool T-shirt with a troll on it.
+- When somebody tells you a story, as long as that story lasts, you're caught in this sort of timeless moment.
+- The lucky village of Sodeto, in the kingdom of Aragon, is a cluster of sensible houses spackled together off the main road, curtained behind a pine copse.
+- In the battle of substance over flash, few to none of the Al Jazeera correspondents are recognizable to U.S. audiences. Many have foreign names and accents; none have best-selling books atop the list or can be heard pounding their shoes on the nightly infotainment podium.
+- The older we get, the more we desire to reclaim our body at 25; we'll take our face at 35, the elasticity of our mind at its most powerful, to return ourselves somehow to our most vital moment of rigor and protean creation.
+- As a kid, I watched 'Bugs Bunny' cartoons, and for some reason Pepe Le Pew, the indomitable French skunk pursuing his would-be kitty paramour, left his mark on me: became an instant emblem of odoriferous hubris, hedonistic bad behavior. He was an entry-level Dominique Strauss-Kahn, a rookie Marquis de Sade.
+- Storytelling is about patience, about making sense of the moments of pathos and beauty that you find, and about carrying these moments back into your own life.
+- Roja Dove - who, at 58, is a stock-straight six feet and handsome with lantern jaw, blue eyes, and impeccably combed silvering hair on the sides of an otherwise tanned bald head - may possess the finest nose in the world.
+- As it is, Al Jazeera is mostly funded by grants from the emir of Qatar-Sheik Hamad bin Khalifa al-Thani, whose family has ruled the country since the mid-1800s.
+- Albania is located sixty miles across the Adriatic Sea from Italy. It borders Montenegro and Kosovo to the north, Macedonia to the east, and Greece to the south. If you know nothing about 'the Land of the Eagles,' relax. You're not alone.
+- Drake's home is its own fantasia, a single-level ranch that sprawls in various wings over 7,500 square feet, from the game room to the gym to Drake's master bedroom with Jacuzzi. The pool is like a scene out of Waterworld, with a bar inside a grotto, waterfalls, and a slide that drops thirty feet through the rock.
+- Over time, Benedictine monasteries appeared around the world, always with the same anomaly: brothers living in obedience, meditation, and faith just beneath the rush of the world.
+- I'd never bought a bottle of cologne in my life, never dabbled in Drakkar Noir before the big high school date or Polo before the prom.
+- The telling room is, in Spanish, known as 'el contador.'
+- Albanians love topiary and fancy doors. They speak Albanian, an Indo-European language with traces of Greek and Latin - and the lek is their monetary denomination, which trades at one hundred to one on the dollar. Their food is excellent, a melange of Greek, Turkish, and Italian cuisine, all very fresh and legume-y.
+- Those who know the sport of swimming understand that the grueling practices that fill a pre-Olympic winter lay the base for any success that might come later in the Games, especially if one has it in mind to swim an astonishing eight events.
+- 'Supercentenarian' is the term used by longevity experts to signify a near numerical impossibility: those who've outpaced 99.9999 percent of the population and landed in the 110+ Club.
+- Legend has it that when Franco's troops crushed Catalonia in 1939, relegating it for the next thirty-five years to abuse and neglect, one of his generals was asked what more he could possibly want now that he had Barcelona.
+- In January of 2009, President Barack Obama signed an executive order to close Guantanamo Bay within a year's time, vowing to continue to fight terror but 'in a manner that is consistent with our values and ideals.' A plan was considered to move a number of detainees to stateside prisons in order to have them stand trial in civilian court.
+- I've been told there's a special golden shelf, in the secret vault kept at the back of every bookstore in America, that contains the Bible, 'War and Peace,' and 'Driving Mr. Albert.'
+- The monastery of Christ in the Desert had its resident hermit, Brother Xavier, chosen after years of devotion and service, a monk so trusted and experienced that he qualified by Benedictine standards to be sent to the front lines in the fight against the devil.
+- I do think that narrative, long-form nonfiction is the perfect form because it's rooted in something very real, but we're also, you know, completely spiritual, emotional creatures driven by all sorts of desires and needs.
+- I wish we could all have a telling room, a place where we go to tell our stories and listen to the stories of others; in our culture, the telling room might be around the dinner table or in the car on a long trip.
+- I love when stories have something a little magical in them, and there's wonder and curiosity. Somewhere there are people living these improbable stories, and our job is to go out and find them and bring them to the page. And so, the more surprising, the more uplifting, the more sort of even inspiring a story is, I find myself gripped by those.
+- A perfectly tailored gray one-and-a-half-breasted blazer or suit. I travel often, and this is something I must always have with me. It must always accentuate the shoulders and chest, to create a more flattering look.
+- Though Mohyeldin's journalistic reputation continues to grow - born in Egypt, raised in Michigan, started as a gofer for NBC News, reared as a producer at CNN, first appeared on-camera for Al Jazeera in 2006 - his is hardly a household name, not in America at least.
+- At its height, Guantanamo's population of alleged combatants swelled to nearly 800.
+- I feel so disassociated from my writing - whether it's in book form or magazine - that I sometimes have a hard time believing that it's mine.
+- Being a Barca fan means certain God-given inalienable rights: It means that, no matter what its record, Barca is, and will always be, the greatest team on earth. This is a fact. And it means that your love for Barca is like no other love in the world. It's the kind of love that clouds your memory and gives you hope.
+- Roja Dove believes that by test and experimentation - by a sort of psychoanalysis via fragrance - you can find the flavors and smells that connect you both to the here and now and to memories of the past.
+- Ring Kuot, a 15-year-old Sudanese boy, was rumored to be eight feet three. And until Leonid's emergence at eight feet four inches last spring, people generally assumed that Radhouane Charbib of Tunisia, at seven feet nine, was the tallest documented man in the world.
+- Luck is not having to worry, but also working hard to preserve the things that once gave your life meaning, like work and love.
+- Going to Cambodia to cover the genocide trials, I did read a lot about the Khmer Rouge; I read a lot about the country and its history.
+- Listening to Brunello Cucinelli is like getting your own personal tutorial with a very glamorous, fatherly professor. He is charming and solicitous, speaking in an urgent, musical voice. Associates say he is both disciplined and happy, as well as extremely meticulous. When it comes to business, he's known as savvy and calculating.
+- 'El Gordo' is the name given to the oldest lottery jackpot in the world - and the richest. Held every year in Madrid on December 22, the Christmas Lottery culminates with the picking of the El Gordo number, the Fat One, which, for many, has become the true Christmas miracle in Spain.
+- Operating from 1975 to 1979, S-21 became the most infamous of 196 such prison camps the Khmer Rouge established throughout Cambodia, primarily because so many of its prisoners were the purged party loyal - and because Duch's methods were so stunningly brutal.
+- There's Jay-Z, who morphs a certain street hustler's cool and indifference into CEO extravagance. But for all his prominence, Jay-Z hasn't written a lot of crossover hits.
+- Being partly Italian or, rather, having an Italian last name, I've always dreamed of really becoming partly Italian, of eating piles of mouthwatering fettuccine in the piazza, speaking a language that demands music over mumble, and yes, if I'm honest, perhaps dressing a little better.
+- I remember doing 'The Long Fall of One-Eleven Heavy,' and I'd been reporting that story for a long time; I had a lot of good facts, but I had no story. I didn't know what the story was.
+- Writers like John T. Edge, whose work is all about the cultural histories behind food, have done so much to show that these stories are a really vital part of our cultural heritage.
+- By living so long, the supercentenarian earns the prefixal 'super' and becomes a person suddenly freighted with power and meaning. He's Gandalf, Yoda, the Ancient Mariner, perhaps with some otherworldly insight. He's lived so long that, in fact, he's living the afterlife to his own initial life.
+- For a rapper as well-known as Drake, there remains an essential element of mystery about him. For one so open, there's a distance, and he prefers it that way. But then there's something beneath the exterior that reveals itself with urgency in conversation: Drake's raw ambition.

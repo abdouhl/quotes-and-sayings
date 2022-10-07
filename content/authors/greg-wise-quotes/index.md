@@ -1,0 +1,32 @@
++++
+author = "Greg Wise"
+title = "Greg Wise Quotes"
+quotes_len = "26"
+description = "the best 26 Greg Wise Quotes"
++++
+- I'm best when I'm feral, when I don't wash or shave or change my trousers for a couple of weeks.
+- The last thing I want to do is get togged up, go out and be polite.
+- Parties are not my thing; I keep it low-key.
+- I'm a trained architect. Both my parents were architects.
+- As a teenager, I used to travel everywhere with my guitar. I appreciated the fact it was with me, but it was always an absolute pain to carry around - even though, in those days, you could take in on a plane as hand luggage.
+- It's good to explore your darkness.
+- I'm very interested in poo. We don't have a very good relationship with poo, and we should have.
+- I don't think women have ever thrown themselves at me, although I'm quite naive about these things, or was when I was available.
+- Any woman knows that it takes two people to be a good parent.
+- I am starting to hate airports and the whole business of getting onto the plane. It all takes so long I want to scream.
+- Very few of us playing a murderer will actually have killed someone.
+- I am a better listener than talker - but that's partly because I believe rows are often caused by saying things you haven't thought through properly.
+- Acting is not my primary drive in life, although I'd be a very unhealthy person without it.
+- Life is about now - some things are just too important to miss.
+- As an actor, you have to understand how you are seen and then play with that. Otherwise, my looks are not important.
+- I used to work as a tour guide for Americans. I'm convinced that even after four weeks on the road they had no idea where they had been. They were in a bubble.
+- I don't see the point in marriage: if you make a commitment, you make a commitment. Fidelity is important to me; it's about honouring that commitment.
+- I've spent quite a bit of time in East Africa.
+- I owe it to those around me to keep sane. We all do.
+- The nuclear family doesn't work. It's very destructive; it grew out of selfishness.
+- My first heartbreak was extreme. I went to Australia for 10 months when I was at school and told the girl I was madly in love with not to come out to see me - and of course, when I came back, she met me at the airport to tell me she'd met someone else.
+- I think you must be running away from something pretty enormous if you don't want to see a person more than once or twice. I think relationships don't get interesting for quite a while. When the initial heady rush fades, that's when it gets really exciting.
+- I've built a tree house; because of my architectural training, it's heavily over-designed, with an oriel window sticking out of it and flying foxes coming off it.
+- I'm terribly bad at lying in real life. I flush, look away, do the scratching of the nose, or whatever.
+- In Scotland, I have a huge barn full of woodworking tools. I love working with my hands. I basically just make myself bleed a lot. I'm very accident-prone.
+- I don't have any labels for myself, really. Sometimes, when I am out with my wife, I am just Mr. Thompson. Or at my daughter's school, I'm Gaia's dad. I don't think of myself as Greg Wise, actor.

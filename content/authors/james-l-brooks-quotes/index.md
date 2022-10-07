@@ -1,0 +1,64 @@
++++
+author = "James L. Brooks"
+title = "James L. Brooks Quotes"
+quotes_len = "58"
+description = "the best 58 James L. Brooks Quotes"
++++
+- Working on any show that works is the best job you can possibly have in any area of the business. You've got so much going for you, a good community, everybody's hanging together, and you get to do it every week.
+- A lot of things just aren't true any more.
+- If you write about a process you're about to go through, market research, and you go through it, and it doesn't echo what you've written about, you've failed.
+- I have a lot of nightmares.
+- We can go years without making a picture, and that's fine.
+- That's the great thing about a series: you're driving to work, and you have an idea for a story for your characters, and you can go into work, and it's gonna be a television show. I mean that's what's great about the job.
+- Great things that can happen when you're doing a movie.
+- The fact is that television, even before the movies, offered the chance to control our work and to get to do it again when we did something right. So television has always been better to writers than any other medium for a long time.
+- I always fight hard to push a movie to the point where it pulls me.
+- Watching people see your picture for the first time is such a public agony.
+- I was at CBS News on a fluke. I replaced somebody who was on vacation. I worked as a copy boy, then became a news writer.
+- You know you're in love when you're more yourself than you ever imagined possible.
+- I took some time out for life.
+- I had a marketing idea that everybody hated, decency is sexy.
+- I was raised primarily by women. I had a mother who almost killed herself to survive, I had a sister who was eight years older who was like a second mother, and my mother had two sisters. In the environment I grew up in, I heard a lot of female perspectives.
+- 'Fargo,' man, with so many actors playing so many great characters, and then they do another season, and it changes all over again? It's wild.
+- A television job that's working is the best job in the world.
+- Nothing is a matter of course when you get to do your own thing. It's always a gift that can stop giving and probably will.
+- Tone is up for grabs in what we do - what's the tone of the scene.
+- In television writing, even if you're running the writers room, it's a writers room.
+- I don't know whether I have ideas all the time. I think I'm curious about things all the time; I think I'm always curious, and I think I'm always interested in whatever passes by, and I know I tend to think about things, and I tend to talk about things, and sometimes that takes root and gives me something to chase.
+- When I wrote a gay character, I spent six months asking questions I've never asked a gay friend, the questions you don't ask just because you don't have the right to do it.
+- I think you always want to have a project where it's not about you: where you're serving it. Where it has needs, and you're trying to meet those needs, so you're trying to lift it out of you and put it out there and then say to people, 'Hey, I think that's it; let's head that way.'
+- In my mind, if you write a comedy where human beings experience pain, you're just being realistic.
+- Things get very distorted when you do a movie, weirdly so.
+- My greatest regret is that my mother died before I could help her materially.
+- I think you have a pact with an audience in every picture, and I think the pact is to try and be truthful and to be real.
+- The remarkable thing about 9/11 was that journalism pretty much put down its badges. People didn't worry about reacting as human beings. People who weren't reporters reported. David Letterman was sort of a brilliant reporter for a second - but it was a way nobody had ever covered a story. They just presented what was inside themselves.
+- When it comes to being confused about what to do about life, that's been me and will always be me.
+- I laugh every day. There are days when my laughs are pretty hollow. Dust comes out of your mouth, and your bones make a funny sound. But I'm laughing.
+- I have a rule in research: The third time you hear something, it's generally true.
+- I had no road map for fatherhood; I had no personal history to draw from.
+- You become so obsessed, and that's not a bad thing for a movie. Serve it with that sense that it's the whole world.
+- I love bingeing. 'The Wire' was my first binge, and the thing about bingeing is, when you are doing four or five hours a day for a number of days, it becomes a literary experience, closer to reading.
+- If you ever catch a great boss, it's just such a rare thing, and it's amazing.
+- I always think that the deal, once I do the script, sort of the experience I go through writing, which is everything you can imagine, but I always think it's the one thing I can do when I'm directing is say is that it's all about the actors, that I can say, 'We're all here to serve the actors.'
+- I think television keeps on being a place where writers can go, and if they're successful, they can have their way, and they can have creative freedom.
+- Linking up the things you were with the things you become is what growing up is.
+- I love it if comedy reflects real life because to me it's more reassuring that we'll get through.
+- I worked for CBS News in the aftermath of all the greatness. I actually brought coffee to Edward R. Murrow.
+- Media reporting denied privacy to anybody doing what I do for a living. It was no longer possible to work on your picture in privacy.
+- I value comedy. I value somebody who can be funny.
+- I was only in college, unfortunately, for, um, a year. I think my major was public relations, and I had no idea what it meant except it seemed maybe attainable.
+- I came to 20th Century Fox to do movies, and then they started a network, and they asked me to do a show as part of their starting what became the Fox network.
+- When you work alongside somebody day in and day out, the relationships tend to be wonderful: they're lifelong.
+- I saw 'Annie Hall' with a group of people working in comedy and television. We were all stunned. Stunned. It was like watching a spaceship land. That something that funny could also be that beautiful.
+- I've done it with Broadcast News-where there was no finish line, there was no agenda that I had to move all the characters to this point, that I was sort of open to what happens.
+- Making an authentic film about anything is difficult.
+- I could see no position to say, 'I'm going to make a living as a writer.' But I went to classes for it; I read every play in 'Theater' magazine. I saw the second acts of everything on Broadway - I had a job as a CBS usher in New York City, and on my way home every night, I'd see what shows I could get into.
+- With music, you can put sophisticated thoughts in a child's head - it gives you a whole new avenue to express ideas.
+- What does it mean for an actor to make a part his own? It means that he takes on what you had intended and starts to put in his own stuff so that it becomes something that could only happen if he played it.
+- I love romantic comedy, but I think you have to have another idea that you're chasing along with romantic comedy.
+- I always think a successful television series is the best job because it gives you community, it doesn't demand temporary insanity the way movies do, and you can be almost a normal person.
+- I'm a journalism junkie.
+- I always loved writing, but never considered that I could do it professionally.
+- Kids in general make things fresh and alive and they have this great appreciation for, Holy mackerel, we're making a movie!
+- I'm big on research.
+- It's craziness to see yourself as damaged goods, so I was the goofy kid who'd stop a strange adult and say, 'Do you know how to get to Palm Avenue?' They'd say no, and I'd say, 'You go two blocks and turn right. You can't miss it.'

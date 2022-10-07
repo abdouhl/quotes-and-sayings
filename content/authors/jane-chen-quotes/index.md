@@ -1,0 +1,17 @@
++++
+author = "Jane Chen"
+title = "Jane Chen Quotes"
+quotes_len = "11"
+description = "the best 11 Jane Chen Quotes"
++++
+- Around 20 million premature and low-birth weight babies are born every year and are at high risk of death or disability because of hypothermia.
+- I believe the only way we'll be able to solve infant mortality - and other huge social problems - is by designing solutions for those with the greatest intent to carry it out.
+- Often, women who lose babies are blamed for the loss of those children and are ostracised.
+- Embrace's infant warmers are a novel solution. The product has been designed specifically for resource-constrained settings.
+- Many premature babies are never given a chance to make it out of the hospital.
+- My dad, coming from a very traditional family, always wanted me to be a doctor. So he would always ask me, 'What are you going to be when you grow up?' And I'd have to say 'Dr. Chen.'
+- Technology is only an enabler, which can help achieve the intention of the person who is using it.
+- Since I was about seven, I've loved cooking. I'd wake up at five in the morning and make cinnamon rolls and all these different things.
+- I love classical music and have been playing violin since I was seven. Music helps me to express feelings in a way words often cannot.
+- I'm a big foodie, I do a lot of yoga - I love yoga - I love running... I just enjoy being really active, and traveling.
+- I know that a mother, no matter how impoverished or uneducated, will do anything to save her babies.

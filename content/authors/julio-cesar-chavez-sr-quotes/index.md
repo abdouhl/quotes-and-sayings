@@ -1,0 +1,106 @@
++++
+author = "Julio Cesar Chavez Sr."
+title = "Julio Cesar Chavez Sr. Quotes"
+quotes_len = "100"
+description = "the best 100 Julio Cesar Chavez Sr. Quotes"
++++
+- I like to surround myself with people, to always celebrate!
+- Camacho's a very fast and intelligent fighter but I don't think he can handle the pressure I will put on him.
+- When you fight the best and then you have to face someone who is supposedly easy to beat, that's when you take your eye off the ball and the defeats begin.
+- Whitaker is much better. De La Hoya hits hard, and he's fast, and he comes in with a lot of force. But he has to learn how to fight, and Whitaker is very difficult.
+- Whitaker is nothing without me. He can't fill an arena or stadium. He's nobody.
+- Whitaker will be nothing without Julio Cesar Chavez. I do not need Whitaker. Whitaker doesn't make the money I can. He can't fill arenas. He is nobody.
+- The North American media have been very difficult and very critical of Julio Cesar Chavez. Why?... Because a Mexican broke the records of Muhammad Ali.
+- Most people know who I am and what kind of legacy I have.
+- My father, Rodolfo, worked as a train conductor and that's how we came to live in the railway car. The Government owned it, and we paid rent on it. Back then I would wake up at 4 in the morning and run through the streets, selling newspapers. I'd scream out, 'Sol, Debate, Noreste.' Those were the papers I sold.
+- I made my history. I don't have to prove anything.
+- When I fight, all of the eyes in Mexico are upon me. It's a big responsibility. Sometimes it seems I am defending the nation.
+- I sometimes get worn out by the training and going into the gym, but never by the fights.
+- Sometimes I have signed blank contracts.
+- The fight with Camacho is very attractive. It's a natural fight, and one that Mexico, Puerto Rico and the world wants to see.
+- Fights are won by fighting, not by running.
+- I want 100 victories, not just 100 fights.
+- I want that fight with Tszyu.
+- I want to shut Camacho's mouth, quiet him for good.
+- Macho means you are in the ring to fight, to attack.
+- I'm macho because when I get in the ring, I attack.
+- I have set crowd records fighting indoors and outdoors.
+- I'm not a selfish person.
+- People are very confused and wrong because there is no comparison between me and Canelo.
+- I am going to have to search for Whitaker. I intend to throw punches at him from the bottom of his feet to the top of his head.
+- Lonnie Smith will be a tough and hard fight for me.
+- Thank God that I lost against Frankie Randall because he made me put my feet firmly on the ground.
+- They would not boo me in Culiacan.
+- I never said I was a robot or a superman or a super being.
+- Americans did not want to see a Mexican become more popular in boxing than Muhammad Ali.
+- I was 10 years old and my hero was a local fighter, Juan Antonio Lopez, who would fight twice for a world title and not win.
+- I took some fights where I didn't care if I won or lost.
+- I do feel pressured sometimes because I feel responsible for so many people.
+- I know I symbolize something. I don't really know what.
+- After 99 fights, I don't fight for the passion of boxing.
+- I think open-scoring should be a part of boxing so the public doesn't walk away with a bad feeling.
+- Hands down, my son fighting for a world title, that's bigger than me going into the Hall of Fame.
+- I can fight at both 135 pounds and 140. I want to lose both my titles in the ring.
+- I am popular at home, I am popular everywhere.
+- Meldrick Taylor deserves the rematch. He gave me the toughest fight of my career.
+- I respect Frankie Randall.
+- They say De La Hoya is pretty boy. I am prettier.
+- I think 113 fights are really enough.
+- I was always winning, winning, winning. I took winning for granted.
+- If Hector Camacho can ever win a title, I'd like to fight him.
+- All the drinking and emotional problems I had, I really let the fans down. I lost my respect for them. I did not give them my best effort.
+- I'm an authentic Mexican.
+- All I did was win, win, win. I took winning for granted.
+- Temoya is a place that's isolated from everyone. You can only concentrate on your training there. There are no distractions. You live life in a very different way. There, you learn to value life, to appreciate the things you have.
+- There have been times I've fought just to fight.
+- I want everybody to see, even though they say I am old and should retire, I can still do it in the ring.
+- I am Mexican, and people tend to forget that.
+- I have received all this criticism because I am a Latin American.
+- God has given me so much that I feel I must give to those who are less fortunate. I don't do it to be in anyone's good graces.
+- I had it all - money, women, fame, cars, yachts, everything a man could want - but it didn't give my life meaning.
+- I don't like to judge from tapes. The strategy starts in the ring.
+- I hate boxers who dance. To me that is a stinky style.
+- To beat me, Camacho has to beat me in the ring.
+- My opponents, they say, 'Aw, I can take this one.' But when they see me in the ring, when I transform myself, then they say to themselves, 'God, what have I put myself into?'
+- I've never been booed in my hometown.
+- I have had 100 fights and I am very proud.
+- I am a boxer for the people. I am one of them.
+- The thing I don't like about Whitaker is he has an ugly style. He makes all his opponents look ugly.
+- I have too much chin.
+- Americans treat me very, very well.
+- Whitaker cannot be and will not be the best because he has lost. His style is bad and he doesn't motivate people.
+- I never run away from any opponent.
+- I would die for my son.
+- I like to drink cold beer from time to time when it's very hot.
+- I wanted to be a good role model for my son.
+- Other great fighters like Sugar Ray Leonard and Muhammad Ali have fallen to the canvas. Why not Julio Cesar Chavez?
+- Whitaker ran... he made a lot of fouls.
+- It was tough to overcome Lockridge. I damaged my right hand beating him.
+- Very few people can reach 100 fights.
+- I told my mother I was going to become a world champion and buy her a home.
+- The fighter is born. He cannot be made.
+- I've had a lot of problems with my arms, with my knees.
+- One hundred fights and I will stop.
+- I fought every kind of boxer.
+- I needed Oscar De La Hoya to get motivated.
+- Oscar De La Hoya looks good boxing, but you have to consider the opponent.
+- Professional athletes have been blessed by God.
+- Bobby Lee's actions and his dealings with Bob Arum have convinced me that I am not being treated fairly by Bobby Lee.
+- Mexican boxing is very aggressive; you go forward with great heart. The American style is always that you run around, you try to be elusive. The Mexican style is much better. I never tried to be elusive.
+- I get quite depressed and unmotivated by my injuries.
+- For me it's very difficult to watch my boys fight. I have to support them, but it's hard.
+- Logically money is important in a boxer's career. That is why one fights.
+- Chicanito Hernandez certainly is not an opponent in my category.
+- I have to give credit to Hector Camacho. He's a much better fighter than I anticipated.
+- I would like to keep fighting until I have my 100th victory. But if I lose, I'll lose fighting hard, with pride and dignity.
+- I know sooner or later I'll lose.
+- People pay to see you fight.
+- Everything I have is natural. I do everything by instinct. I am not like the 'gringos,' with all of their apparatus.
+- I don't live for publicity or glory.
+- Lonnie Smith doesn't deserve to fight ever again. I am totally disgusted with him. If I had known he would run like a coward, I would never have given him a fight. He has disgraced boxing.
+- All my goals I have accomplished. All of them.
+- Certainly old men are old, but they keep going strong, don't they?
+- I'm not going to try and go after Meldrick Taylor. He's too dangerous and much faster with his hands.
+- One-forty-two is my natural, normal weight.
+- I could never go back to Mexico if I lost to Camacho.
+- I'm gonna challenge Camacho, Rosario or anyone else who has the lightweight title.

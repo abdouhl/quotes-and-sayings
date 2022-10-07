@@ -1,0 +1,97 @@
++++
+author = "Shamna Kasim"
+title = "Shamna Kasim Quotes"
+quotes_len = "91"
+description = "the best 91 Shamna Kasim Quotes"
++++
+- Be it a cameo, a character role or a lead role, I am happy that people are finally recognising my acting calibre and are casting me in their films.
+- I made my debut in 2004 as a fresh faced teenager in a small role in director Kamal's Manjupoloru Penkutty.'
+- At times, I would decide to keep myself completely free for a week to relax. But, after the second day, I would feel bored and tell myself, You better do something.'
+- The credit for the success of my films go to the director and the script.
+- After I got my head tonsured, I stopped taking up projects, and have been very choosy because my hairstyle doesn't suit every role. A few filmmakers even asked me to act with a wig, but I don't want to do that.
+- Even when I was bald, I loved seeing myself in the mirror, loved the attention that came with it and flaunted the look. It gave me a lot of confidence too.
+- People think if you are an actor or a social figure, you have more freedom in life. But that's not the case.
+- Landing substantial and author-backed roles is indeed very gratifying.
+- I don't say no to dance shows on TV channels as they have always served as stress busters. I thoroughly enjoy dancing.
+- In Santhosh Sethumadhavan's remake of the yesteryear hit, Chattakkari,' I was required to wear short skirts and frocks as I play an Anglo-Indian girl in it. But my role as Julie is hardly a show of glamour.
+- Ravi Babu's films are known to have its heroines playing prominent roles. Further, all the heroines he has cast in his films are well-established, known faces. I consider myself lucky to have been considered by him to play Mohini.
+- I hail from an orthodox family, but they encouraged me to learn various dance forms.
+- I am more comfortable working in Tamil films rather than in Malayalam.
+- I used to do semi-classical dance as a child; I did not have a choreographer, but my mother gave me a cassette to learn from.
+- I'm ready to wait for the best role rather than do all the projects coming my way and regret about it later.
+- Malayali audiences are well aware of Shamna as a dancer and that may be a reason why I was constantly being approached by filmmakers to do song sequences alone.
+- What leads me is the conviction that as an artiste, attempting versatile roles will help me improve.
+- I couldn't contain my excitement when I was invited to judge Dance Vs Dance.' I've followed the series closely and am thrilled to be a part of this magnificent show.
+- I'm basically a dancer and cinema just happened to me, sometimes I still wonder how I could become an actor. My friends too keep asking how I pulled it off.
+- Ever since I gave the nod for Chattakari,' I've been flooded with offers from the Malayalam film industry, like never before.
+- It was fun shooting for Vithagan.' It's a bubbly character. I perform minor stunts too.
+- Shamna is a 'hot star' for Malayalis, but for my Telugu and Tamil audience, Poorna is a girl next-door. That is because I have mostly played village belle or de-glam characters in these industries. Whatever people's perception about me is I'm happy.
+- Actually I saw Manichitrathazhu' in Malayalam and I wanted to try the costume Shobana wore, to sit like her and carry that attitude, to feel like a queen.
+- Dancing has always been my passion and it was my parents - Kasim and my mother Ramla Beevi's encouragement and support that helped me learn dancing at an early age.
+- When I am not acting or practising dance, you'll find me fast asleep!
+- After donning an item number in Rajadhi Raja,' I got a string of offers to perform similar characters. But I consciously rejected all those offers as I don't want to be tagged as an item girl.
+- Don't compare me to veteran actor Lakshmi who immortalised Julie in director Sethumadhavan's Chattakkari.' It's so unnerving.
+- In Tamil and Telugu films, I am not called for stylish roles and often play rustic or unglamorous roles in them.
+- I am not called for good roles in Malayalam films for reasons which I cannot fathom.
+- Rarely do heroine-oriented films happen in the film industry.
+- I am a dancer first. That is why I don't accept all roles that come my way.
+- As an actor, it doesn't matter to me if I play the role of a mother, with or without make-up and so on. I focus only on getting the expressions and acting right.
+- Wearing wigs don't work for all characters.
+- I was approached for the remake of Maniyara,' the yesteryear film that starred actors Mammootty and Seema in the lead.
+- When people question me too much, I generally ask them if such rules are applicable to someone like actor Mammootty. They reply, Mammootty is a man and you are a woman. You aren't supposed to do certain things.' And I go like, Why not? Are there separate rules for Muslim men and women?'
+- When working under experienced filmmakers, many artistes tend to get nervous.
+- I'm friends with many actors across the southern film industry, who've been my co-stars, too, and with whom I share a great rapport.
+- Avunu's stellar run at the BO and the positive response from the audience was such that most scripts coming my way from Telugu have been from the horror genre!
+- I am scared when I hear the word 'marriage' but I cannot say to my family that I don't want to marry at all.
+- I don't watch horror films at all and if at all I see, then my mother gets really bugged. She switches off the television and tells me not to destroy her sleep and happiness.
+- I have a very strong family.
+- There are several talented Malayali actresses, but still M-Town directors choose actresses from other states.
+- Moreover, I am confident when I act without make-up; I feel free, as there is no hindrance.
+- If I am part of a movie, the character I handle should make sense to me at first and should also be convincing to the audiences, in terms of casting.
+- As a woman, I too nurture dreams about the one man with whom I'd be sharing my life.
+- I don't want to star in films for the sake of acting.
+- I am thrilled with Suvarna Sundari,' which is very unique and I play one of the three women characters.
+- There are offers, but I would sign the dotted line only when a project excites me enough to spare time for it.
+- Frankly speaking, ever since my debut, I have been offered cop roles. However, I never felt confident about pulling them off, probably due to my short physique or the absence of the required traits in me.
+- As I always say, I don't want to limit myself to being an ingredient in any dish. I want to be the sole flavoring agent, without which making the dish is impossible.
+- I am playing a brave girl in Thagararu.' I was told by the director that Madurai girls are naturally brave and during my shoots in the city, I realized that this is true about the girls from Madurai.
+- I did Kodiveeran,' which had grey shades. Being an actress, I should try challenging roles.
+- Your performance should be acclaimed. If awards come, I am happy.
+- I love experimenting with roles and that's what keeps me hungry for versatile roles.
+- Asking Muslims to stay away from social media is downright absurd.
+- Dance gives me a lot of confidence and helps me overcome all my insecurities in personal and professional life.
+- I've been performing from the age of three.
+- I have complete faith and trust in our criminal justice system.
+- I had once decided to quit acting when Chattakari' didn't do well at the box office.
+- My family has been thinking of arranging my marriage for over a year now. At one point I too thought it would be fine.
+- When I was asked to play the lead character Mohini in Avunu' I asked Ravi Babu why he chose me. He said he wanted someone who can act well. I felt nice.
+- To be frank, I am confused. If an actress does a cameo dance sequence, it is often referred to as an item number, if an actor does the same, it is just a dance number!
+- Unless I am convinced that it is a strong, prominent role with ample scope to perform, I don't accept it. I want the audience to recognize me for my acting talent.
+- I sometimes just break down and cry.
+- There have been ups and downs in my life, and at a point of time, I had thought of even quitting from films, by focusing on dance alone.
+- In Sarvamangalam,' I am fond of flowers and I want to own a nursery. My character talks only to flowers. If she is sad she will go and talk to flowers. It is not a comedy film, it is a nice subject.
+- Like every girl, I had dreams of marriage, but I got victimized in a cheating scandal. When the proposal came through the family, everyone was happy. I had started talking to him with the consent of both families and after a week, all of a sudden, we got to know that I wasn't even speaking with the person whose picture had been given to us.
+- A lot of substantial roles are coming my way from Tamil and Telugu, and I am happy with the way my career is progressing.
+- As I was always busy with dance, acting, giving performances on stage, and even studies, I had no time for other hobbies and I hope to make more time for other things once I am settled.
+- I have always wondered why I don't get as many good roles in Malayalam as I do in other languages.
+- I was doubtful whether I can play overly glamorous characters, as I am not slim. But, I was amazed at the kind of fame that came my way in Tollywood.
+- As a person who keeps away from horror flicks for fear of losing sleep over it - not just for days but months together - Avunu' was a great experience for me.
+- There is a limit to everything; whomsoever I act with, I'm rumored to be having affairs with them. I just can't take it anymore. How many affairs can an actress have?
+- In fact, dance is an extension of who I am.
+- It has been ten years since I stepped into the industry and I have done a lot of song and dance and romantic films.
+- I love simple dresses and use only minimal make up.
+- Dance has given me so many opportunities including a foothold into filmdom.
+- Just because I am a Muslim doesn't mean that I need to live in a certain way and sport a certain look.
+- I always give preference to the script and when it's good, I am game for anything.
+- In our religion, there are people who might be conservative about practicing dance after marriage, but I don't want anything or anyone to come between me and my dance.
+- In fact, I became popular in Kerala after I took part in a reality dance show and despite making my foray into films as an actress I make it a point to take part in stage shows whenever I find time.
+- My first stage performance was when I was just four.
+- I'm blessed to have a supportive family and friends, who keep pushing me to never give up dancing whatever happens.
+- I have regretted saying no' to a director who wanted to bank on my dancing skills for an amazing role in the past.
+- I have not come this far in one shot, and I have undergone struggles. My life was built step by step.
+- I go by the script and the director. Decisions about signing on the dotted line are mine. Of course, mom and dad listen to the scripts but I think I'm a better judge.
+- If I want to do realistic cinema and convince the audience in authentic roles, I have to walk the extra mile.
+- There is lot of competition happening in the South and I'm incapable of being in the race, but I will be more than happy to do a good role and prove that I am capable of doing it.
+- The choreography in films is completely different. I find it easier when I am asked to dance to classical music, but it's a different ball game altogether.
+- I am glad that I had to work my way up and was not handed anything on a platter.
+- Tamil is almost like my mother tongue and for quite some time, I had been concentrating on Telugu.

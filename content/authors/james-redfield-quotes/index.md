@@ -1,0 +1,37 @@
++++
+author = "James Redfield"
+title = "James Redfield Quotes"
+quotes_len = "31"
+description = "the best 31 James Redfield Quotes"
++++
+- The world is set up - as foreign as that can be to some people who are very materialistic - but there is a force in this world, once we step into it, that opens doors for us, that gives us a sense of purpose and the greatest life there is, in my view.
+- If you've ever walked a mile into a virgin forest - you know, like a deep forest where trees have been uncut - the energy is totally different from the shopping mall.
+- It's about really having a God connection: a connection with the divine behind the world and flowing forth out of that in a positive way with love and moving toward making a contribution that pushes forth the evolution of the world.
+- I'm asked that a lot: 'James, is there really a continuing spiritual renaissance occurring on this planet? Look at all the conflict, look at the wars.' And I believe, yes, we're still moving toward a deeper spirituality. It's personal. It's grassroots. It's everybody trying to get their own connection made, and from there it grows out.
+- If you connect with a greater part of yourself, I call it higher self, but that's an experience, and when you do this, knowledge comes in, including intuition, and it's always about, 'What's my heart's sole desire?'
+- A lot of people are simply interested in exploring their own spirituality, their own values, who they are, whether they're happy where they are.
+- I had to find some clarity about approaching life more spiritually. I think I'm kind of dense, and it makes me pull the process into mind and struggle over it in finding the path.
+- What I need in order to stay creative and centered is a certain amount of distance from the maddening crowd. You cease to be your best self if you're running too fast.
+- You can be non-judgmental, but you don't want to be non-discerning because, remember, the force of evolution is the conversation, you know: two truths standing up to each other in conversation, and the best truth emerges, and the best truth prevails.
+- There's a rich legend of this in other cultures, this speaking with ancestors. The Christian mystics communicated with angels.
+- I grew up in a little Methodist church that was very rural, very community support-oriented, made up of great people who talked about love and grace and the spiritual experience, but only in rhetorical terms.
+- Sometimes you just make a contact, and it feels right, but you don't know why. But down the road, something will happen that will make it clear why that connection had to be made at the point it was made.
+- I'm just a philosophical journalist, trying to describe what's going on. I want to stimulate conversations, and hope out of them will come truths.
+- The world is much more mysterious than we ever thought.
+- We're all addicted to sort of the habits of our lives. And we get stuck, and sometimes we'll get stuck because we had traumas that we don't want to remember.
+- I didn't start a Celestine movement.
+- One of the things I think we're learning to do as the twelfth insight emerges is to be discerning without being judgmental, because condemning someone certainly feels like a comic event that brings other things back on you.
+- Wherever we are in life is where destiny has brought us. It doesn't mean we have to stay there.
+- Being with nature opens us up to divine experience.
+- Most intuitive ideas have to be clarified, so there is a trial and error process.
+- We all have times that we get off center.
+- Spiritual consciousness is, on the whole, very adventurous and all about pursuing our deepest, most fulfilling dreams.
+- I call it the birth vision - what we are called to accomplish. If we follow this calling, we help spiritualize the planet.
+- Each of us has a gift, a talent, that we can offer to the world that makes the world essentially a better place.
+- When we cultivate mystical awareness or transcendent identity - which is a natural outgrowth of meditation and other practices - what happens is that we begin to take a witness position on our own lives, and that includes our minds.
+- Beauty is something we can affirm and intend to have more of.
+- I try not to recommend too many books, frankly, because I think there's a certain synchronicity that happens when people discover books.
+- One of my teachers once said that the way you know you're on the right path is that it works. Now, that doesn't mean you don't run into blocks and brick walls, but it does mean that you can find a way around them or find a way to change yourself or your project in order to find the flow again and have it work.
+- We have to transcend our own negativity and vulnerability and work from our own inner security.
+- Fundamentalists from every religion have to be replaced, have to be disempowered.
+- There's a destiny for everybody. The world is set up - as foreign as that can be to some people who are very materialistic - but there is a force in this world, once we step into it, that opens doors for us, that gives us a sense of purpose and the greatest life there is, in my view.

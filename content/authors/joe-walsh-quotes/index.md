@@ -1,0 +1,65 @@
++++
+author = "Joe Walsh"
+title = "Joe Walsh Quotes"
+quotes_len = "59"
+description = "the best 59 Joe Walsh Quotes"
++++
+- In 1980, we just ran out of steam. After about 15 years, Don Henley and Glenn Frey came to me and said, 'We have been thinking of starting the Eagles back up again, and we can't do it without you, and we can't do it unless you're sober.' I was just about homeless.
+- Before we really started writing our own songs in the James Gang, we'd play covers, and then, in the middle of them, we'd go for a jam for four or five minutes. At some point, we had six or seven of those sections, and we didn't need to cover other people's songs anymore.
+- In the Eagles, you have specific assignments. You have vocal parts and musical parts that need to be exactly in place at the right time. And if all of us do our job, it becomes something bigger than any of us.
+- The Eagles are four very alpha personalities. We've all done solo work, and we've all played with very good musicians, but when the four of us get together, it becomes something that's much bigger than any one of us.
+- The big stadiums get totally packed, and everyone knows the words, and it's screaming young girls. I met a whole bunch of great Nashville musicians, and they accepted me in their community. Classic rock and country music go well together.
+- You used to make records, record companies sold them, and people went to record stores and bought them. That's all gone now.
+- When you're young, it's really easy to lose your perspective, which I did, really losing sight of who I was. I started believing I was who everybody thought I was, which was a crazy rock star. You know, 'Life's Been Good,' that story.
+- I had left the James Gang, left Cleveland, and gone to Colorado because Bill Szymczyk was there, and so were a whole bunch of other people I knew.
+- I have watched music go from an art form into an industry. And I have watched it stop dead in its tracks because of the digital age.
+- I was 20, and my reality was that people either went to college full-time, or they were draftable. The dear friends that I went to high school with that didn't go to college eventually wound up in Vietnam, and I noticed that they came home different. I was in Ohio during the Vietnam War era.
+- It was pretty radical to go from the Eagles to being the only melodic instrument. You have to play a certain way. It's like the Who. It was a great kick in the pants for me to get my chops up and to improvise a little more.
+- I was a student at Kent State University in May of 1970. I was also a musician in a regionally popular band called the James Gang. I was still going to class and stuff, but I was in and out because we were playing a lot.
+- I woke up one time coming out of a blackout, and I was on an airplane, descending to land in Charles de Gaulle Airport in France. And all I can think is I must have decided it was a good idea to go to France, and got my passport, and got on a plane.
+- I've been in all kinds of various arrangements of chain of command, and I was very comfortable - and everybody was - and I think the music shows that. I'm an honorary Foo Fighter, I guess. Or alumni or something. I'm proud to be one.
+- I don't remember everything about my life, but I'm very fortunate to have a group of friends I can rely on - they fill in the blanks.
+- I was a fan of the group. I thought they were great - loved The Eagles - but I thought that their beautiful harmonies would sound amazing with some rock guitar behind them.
+- A homeless veteran should not have to stand at a freeway exit with a cardboard sign. That's not okay.
+- One of the things that Marjorie has done has given me the joy of family. It's a joy I never really knew. I spent a long time being lonely and hiding, and now, at Christmas, there's this huge family. That's something that's very new to me. And very special.
+- There's a different feeling when you've played with musicians for 30 years. A lot of stuff doesn't even need to be said, especially onstage. We just read each other so well.
+- What matters is voting for where you live: Who's your mayor, who's your police chief, who represents you, your city council, your judges. That matters that you vote.
+- There's a total separation between the federal government and the people. So running for president was an attempt on my part to get people to care enough to go vote. But people just don't bother. And that's why it's not working.
+- 'Hell Freezes Over' happened, and the Eagles decided to get back to work. We've toured pretty much since then, and I've been around the world a couple times. I had never really gotten any momentum going in a solo project during that period of time - Eagles was pretty much a full time job.
+- People often ask me if I believe in God, and I kinda have to, because I'm still here. I had not planned on living this long, and here I am.
+- The best part of success is that it got me past the basic survival level of existence so that I was comfortable. I didn't have to worry about stuff pertaining to survival. Once that was taken care of, I got the chance sit down and create and work at what I do.
+- The message from 'Analog Man' is that I'm back, and it won't be 20 years until the next album.
+- I like to give people equipment and stuff. For me, it's a kind of payback. Anyone who is an influence or hero for me, I'm always concerned with how I can balance the karma.
+- My wife was the part of me that was missing. And I got that whole family that came along with her in the deal. It's an extended family, and they're very close, and it's a dynamic that's never been around me before.
+- My wife one time got a fishbone stuck in her throat and had to fly back to L.A. from Monte Carlo to have it taken out. I thought, 'Wow, what a great blues song!'
+- We're sober now, and we all have families and obligations of being senior citizens. Oh, that's hard to say. We have grown-up responsibilities. We used to all live in the same car.
+- I play like I always used to, with no agenda. And, every once in a while, I will play something I really hadn't thought about or even intended to play. And I'll go, 'Whoa! What was that?'
+- I relate with military families and Gold Star families. Gold Star families are families where somebody didn't come home. My father died in 1949. He was a flight instructor in the Army Air Corp.
+- I have some fond memories - a couple of the nights on the town ... a couple of songs I wrote when I was messed up that I'm sure wouldn't have come out of me unless I was messed up. It's kind of happy-sad about those days - I could do anything I wanted to. I did. And now I don't want to do any of that.
+- I had seen my buddies crash and burn. Keith Moon died, and I always thought that was the way he wanted to go. John Belushi was a dear friend. A lot of the guys that I ran with were ending up dead, and I saw myself right on schedule to do that. I had some moments of clarity - once in a while.
+- New Zealand is in my heart, always.
+- You can work on an album forever, but finishing it is a whole different deal.
+- Here's my problem: Hillary Clinton has been found grossly negligent of classified information. Period. She should not have any security clearance. That should be taken away from her.
+- I looked at Willie Nelson and Farm Aid as a role model; they do it every year, and it draws people together, and drawing people together where they realize they're not alone, to me, is strategic in healing.
+- I've always written observations on the world, and now there's two of them. The virtual world is a new thing, and it doesn't really exist, but people are in it a lot.
+- I love Las Vegas, but I never get a chance to play a club like the House of Blues. I guess we've graduated to a bigger scale than that. When the Eagles come in and play, that's on a grand scale.
+- 'Band Played On' is a good one. Barbara Orbison, who was Roy's wife, was involved in publishing in Nashville because she oversaw Roy's publishing, and she had a company in Nashville. She had a whole bunch of writers assembled, and they got together every day and wrote, and they write for everybody in Nashville.
+- There's a lot of politics in the Rock and Roll Hall of Fame. There's a lot us artists would change about the induction ceremony and who they pick.
+- I love being in a small club where everybody has a good seat, and we don't look like ants. And you can feel the audience, which makes it kind of magical, and I miss that. I guess I have the best of both worlds.
+- In the very early Seventies and the very late Sixties, nobody out here was originally from L.A.
+- There's no more record companies, so I have to get on the Internet and let people know the album is out there. I don't know if we're working for it, or if it's working for us.
+- People try to function in the real world - the analog world - while they're texting in the digital world, and they run into the car in front of them. It doesn't work to be in both.
+- I was obsessive-compulsive, and I probably had a little splash of Asperger's in there, but in those days, in 1953, you were just a difficult kid. Attention deficit didn't even exist back then. I really had trouble completing tasks - I couldn't sit still.
+- L.A. is kind of flat these days; I guess Austin and other places are like that now. But that's what I wanted to get across: You could be as crazy as you wanted, and that was OK. You didn't have to be good; people would still come and hear you.
+- We are at war, and it's ongoing, and there's no end in sight. More and more guys are coming back from it, and the transition back to civilian life is almost too big a mountain to climb.
+- I enjoy my solo career because I get to play smaller places like clubs and theaters, and the interaction with the audience is much higher quality. It also sounds better than a baseball stadium. Everybody has a good seat, and I don't have to play a specific part like I do in the Eagles.
+- The new generation of musicians is writing music on computers, and this is very sad because the quality of songwriting has crashed and dived. There are some songs out that are made by only one guy who works a computer and doesn't play any instruments.
+- I've been able to meet a lot of vets at different functions and events, and it just hit me that I should step it up a notch, and I have a lot of peers who feel the same way.
+- Ricky Washington is from a Baptist church in Miami, Florida, and he can pretty much sing anything. We just started working it up at soundcheck, and holy smokes, it's just great! The audience gets to singing. So there's that stuff to do - find some old obscure R&B stuff - because we can do it justice.
+- When I married Marjorie, along with her, I got this very large family and a bunch of family friends. It's a dynamic I've never been around. I've always been kind of a loner, and my attempts at domestic life failed miserably. So the family dynamic is a great thing.
+- The one that achieved the greatest amount of success is the Eagles. And because it was really successful, it was a lot more fun. It still is. We get a chance to play music that a lot of people really relate to, and to play places all over the world. That's fun.
+- 'Turn to Stone' was written about the Nixon administration and the Vietnam War and the protesting that was going on and all of that. It's a song about frustration. Also, I attended Kent State.
+- In my early twenties, I got the basics covered. In retrospect, one of the great things about success is that I never really had to work in a factory full-time. So that's a blessing.
+- I would say 'struggling' is a good word. We were all struggling to keep doing what we were doing, and more things were expected of us. I mean, one of the big things was how in the world are we going to top 'Hotel California?'
+- People are texting and smash into the car in front of them - I think there is some humor in that. And the virtual games. People are playing these virtual games, but they're real - I mean, the people are really playing, but it's not a game.
+- I used to throw stuff out of the window and trash hotel rooms - and superglue all the drawers shut and superglue the toilet seat down and superglue the phone to the nightstand - and all kinds of stuff. I had a chain saw for a while. I didn't really use it but once or twice.

@@ -1,0 +1,28 @@
++++
+author = "Nick Lampson"
+title = "Nick Lampson Quotes"
+quotes_len = "22"
+description = "the best 22 Nick Lampson Quotes"
++++
+- The war on terror is a fight that we did not start, but it is one that we shall finish.
+- I will continue to push for doubling the strength of the U.S. Border Patrol, and to make sure that every cargo container that enters this nation is screened for radiation and potential weapons of mass destruction.
+- Any veteran can tell you it is already hard enough to see a doctor down at the VA and get the health care they were promised when they signed up to serve this country.
+- Such an arrangement would provide Taiwan and China with a forum for dialogue whereby they may forge closer ties based on mutual understanding and respect, leading to permanent peace in the Taiwan Strait.
+- We are telling veterans they must sacrifice to pay for the pet projects and contracts to campaign donors of powerful members of Congress.
+- There is nothing nobler than risking your life for your country.
+- More needs to be done to take the fight to the enemy and secure our borders against the terrorist threat. We need more protection on land, sea and air.
+- Today, I will vote in support of the Marriage Protection Amendment. I shall do so because like President Bush, I strongly believe that marriage should be between a man and a woman.
+- With 1.7 million private sector jobs lost and half a million jobs shipped overseas over the past three years, we must take action to spur job creation and restore economic prosperity.
+- We were also able to do a great deal of work to improve highways, airports and airways, waterways, and railways, all of which are important and have provided a better quality of life and economic development opportunities for my constituents.
+- The local communities, through their leaders, were able to build a communications network that allowed my work here to reflect the needs and interests of the people within the 9th Congressional District. It's been an honor to do that and we did so successfully.
+- Congress should stop treating veterans like they're asking for a hand out when it comes to the benefits they were promised, and they should realize that, were it not for these veterans, there would be nothing to hand out.
+- None of the things I have done would have been accomplished without a true team effort.
+- While we face economic obstacles that challenge every decision made in Washington, decisions made merely for political gain must stop. It's time to restore civility in Congress. It's time for action where action is needed - all politics aside.
+- Mr. Speaker, in seeking to return to the United Nations, the Republic of China on Taiwan will once again ask diplomatic allies to present its case before the United Nations this fall.
+- Despite global economic concerns, other nations are continuing to push forward and invest in their space capabilities. A U.S. withdrawal from the industry will only allow others to surge in their own capabilities, potentially impacting our national security and technology competitiveness in the future.
+- One of the most important accomplishments of the Caucus is raising awareness with law enforcement and communities nationwide on the issues of child safety and Internet safety.
+- Moreover, as we live in an era of the ascendancy of democracy and human rights, we must see that Taiwan has been a vibrant democracy with a democratically elected president and legislature.
+- But this Veterans Day, I believe we should do more than sing the praises of the bravery and patriotism that our veterans have embodied in the past. We should take this opportunity to re-evaluate how we are treating our veterans in the present.
+- We must always emphasize research and development of science and mathematics, and I can think of no better way to achieve this than through our future in space.
+- As southeast Texas's only Member of the House Transportation Committee, I'm especially proud of being able to help bring hundreds of millions of dollars to the region to create jobs and improve the area infrastructure.
+- Free nations of the world cannot allow Taiwan, a beacon of democracy, to be subdued by an authoritarian China.

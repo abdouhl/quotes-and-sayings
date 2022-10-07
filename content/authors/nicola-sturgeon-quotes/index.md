@@ -1,0 +1,191 @@
++++
+author = "Nicola Sturgeon"
+title = "Nicola Sturgeon Quotes"
+quotes_len = "185"
+description = "the best 185 Nicola Sturgeon Quotes"
++++
+- If something can be proven to work, we should try it... Making sure that our young folk get the best education is the only thing that matters to me, and if something can be shown to work in doing that or if something's worth trying to do that, then I'll certainly be in the market for it.
+- I bow to no one in my ambition to see Glasgow be as successful as it possibly can be.
+- I think Scotland will become an independent country. I've always believed that. It means that if I'm right on that, there has to be another referendum at some stage. But the timing and circumstances of that will require careful judgment.
+- I know you've got to earn people's trust, and you've got to earn it day after day after day.
+- Vote SNP for a party that always stands up for Scotland, that is stronger for Scotland, and a government that will keep the country moving in the right direction.
+- Would I love to think that one day I would be First Minister of an independent Scotland? Of course.
+- Equality and prosperity shouldn't be seen as enemies of each other, but as partners. One reinforces the other.
+- I want there to be another independence referendum at some stage. I want Scotland to be independent, but I wouldn't choose to have it happen because England votes to come out of the E.U.
+- Maybe its time for politicians to fight back a little bit in terms of this notion that politicians are all in it for themselves, we're all the same, we're not driven by sincere motives. Because the fact of the matter is the vast majority are.
+- My politics are wildly different from hers, but someone who has been good for women in politics, stamped her authority on European and world affairs, is Angela Merkel.
+- Men - the colour of their tie is the most difficult decision they have to make every day.
+- A good education is the most important gift we can give our young people.
+- The oil and gas sector in the North Sea does have a strong future if we do the right things now, but we've got to make sure that the infrastructure is right to support the sector, but also to support, over the next few years, diversification as well.
+- Instead of an end to austerity, Labour has made clear that it wants to impose more austerity cuts.
+- For parents - women in particular - good quality, affordable childcare is vital.
+- U.K. welfare cuts are pushing more children into poverty; that is beyond dispute.
+- Literally every time I'm on camera, as well as there being commentary on what I've said, there'll be commentary on what my hair looked like, what I wear. Often it's written in the most hideous and quite cruel way.
+- Maybe unlike a lot of people who join the SNP today, I never had any expectation of a political career.
+- I'm not making any secret of the fact I still believe in independence. We'll continue to argue the case.
+- Ed Balls has made it crystal clear that, left to its own devices, a Labour government would simply carry on with the same budget policies as the Tories.
+- I admire Obama.
+- For me, personally, it has been humbling since I became First Minister to speak to women and girls and have them tell me how much it means to them to have a woman in the top job in politics in Scotland.
+- An independent Scotland could afford pensions full stop - after all, it is our taxes and national insurance contributions that fund them now.
+- I was fascinated, long before I joined the SNP, in the world around me; current affairs really interested me.
+- At these big set-piece events like the leaders' debates, that exterior of calm and serenity is nothing compared to what's going on inside most of the time.
+- I am quite hot-headed; I am quite impulsive. Fortunately, it doesn't last very long.
+- One of the attributes Glasgow is best known for all over the world is the friendliness of her people.
+- I've had particularly unpleasant stuff, and it has been reported that I've had death threats. Twitter and Facebook give people who have always been out there a platform from which to hurl abuse, and all I can do is try to block it out and remind myself that tweets are transient and get lost in the ether after a few moments.
+- Voting Labour in the past hasn't protected Scotland against Tory governments.
+- Labour long ago realised it could no longer automatically assume that it would win elections in Glasgow and other places where it has taken people's votes for granted for decades - as we have seen across Scotland at local council and Holyrood elections.
+- Being a housewife is not important to me, but I'm never happier than when I come home and shut the door.
+- As a young woman in politics, with few women around, you start to subconsciously behave like men in politics. That comes across as quite hard, tough and humorless, but you're trying to be taken seriously.
+- Under the Fixed Term Parliaments Act, it is possible for other parties to change the direction of a government without bringing a government down.
+- I think you should always aim for more.
+- I am privileged to count many Muslims among my friends - some are amongst my closest friends.
+- There are lots of jobs and investment in Scotland dependent on our membership of the E.U. single market.
+- I am quite driven. I know what I think, and I know what I want to achieve, but I also hope that people who are asked to describe me would describe me as pretty down-to-earth, loyal, friendly. The more experience I have got in politics, I think the more I have allowed me to shine through.
+- Taxing people for having a spare bedroom and forcing them into rent arrears or the possibility of losing homes they have lived in for years has always been a cruel and heartless measure, and so it is good that the Scottish Parliament has been able to step in.
+- My political awakening, if I can be as grand as to call it that, was all about what was happening around me. It wasn't some romantic, patriotic vision of Scotland going back to what it had been 300 years previously.
+- Too often in the past, Scotland has been sidelined and ignored in the Westminster corridors of power, but that doesn't have to be the case anymore.
+- Scotland is not a region of the U.K.; Scotland is a nation, and if we cannot protect our interests within a U.K. that is going to be changing fundamentally, then that right of Scotland to consider the options of independence has to be there.
+- I love talking to the public, I love hearing what people have got to say.
+- There is nothing in your background that inherently holds you back or means you can't achieve what others can achieve. You are the master of your own fate, and if you work hard, you can do what you want.
+- I'm manifestly not the same as Alex Salmond. I'm a different gender, for example... I'm being flippant, but maybe this is a partly gender-driven difference: I'm very keen that we find a way of reaching out across party divides to find things we agree on, as well as the things we disagree on.
+- It's not opinion polls that determine the outcome of elections, it's votes in ballot boxes.
+- The SNP became a minority government in 2007, then a majority one in 2011. But Labour viewed what was happening as some kind of aberration. They felt the problem wasn't theirs: they didn't have to change; the Scottish people had just gone down this wrong road, and if they waited long enough, they would find their way back.
+- Our opposition to Trident is very clear, very firm, very long-standing, very principled, and we would seek to build an alliance to prevent the renewal of Trident.
+- I came into politics because of my opposition to what a Tory Government was doing to the community I grew up in.
+- Not once in my life has the Tory Party come anywhere close to winning an election in Scotland, and yet, for more than half my life, we have had a Tory government. That is wrong and undemocratic.
+- Thatcher was the motivation for my entire political career. I hated everything she stood for.
+- I think the first decision I took when I became a government minister was to reverse the planned closure of Monklands Accident and Emergency. It's an issue close to my heart.
+- I'm not going to do anything that sees a Tory government be likely.
+- There's nothing in my background that would have said I was destined to be a senior politician.
+- I am a social democrat - I believe in pursuing greater equality and tackling social justice - but... you can't do that unless you have got a strong economy, unless you have got a vibrant business base earning the wealth that makes that possible.
+- An independent Scotland - like all countries - will face challenges, and we will have our ups and downs. But the decisions about how we use our wealth will be ours.
+- Personally, I can think of no greater privilege than to lead the party I joined when I was just 16.
+- If Scotland was independent, we'd be the 14th richest country in the developed world.
+- The U.K. needs a strong opposition, and Labour shows no signs of being capable of being that. The SNP is filling that void and will go on seeking to do that.
+- Poverty is on the increase - due to welfare cuts - and demand for food banks has rocketed.
+- The teachers who taught me at Dreghorn Primary and Greenwood Academy were fantastic.
+- For the Scottish government, the practice of having meetings in different parts of the country is well established, but for the U.K. government, it is a much rarer event.
+- Scotland has been re-energized, and people all over the country have become involved in - and informed about - politics and government in a way that I have never known before. In short, we have put ourselves firmly in control of our country.
+- To every woman out there who thinks that they might like to get involved in politics or stand for parliament, I say go for it. If I can do it, so can you.
+- If you have a Tory government at Westminster that takes us out of Europe against our will, there may be people in Scotland who think, 'You know what, we might be better off independent.'
+- Because of lower life expectancy in Scotland - something that we are working hard to improve - the average woman will get £11,000 less in pension payments than counterparts in the rest of the U.K., even though she will pay exactly the same in contributions.
+- The Scottish Government's international development work began in 2005 with a £3 million budget focused solely on Malawi, reflecting the historic links between our two countries.
+- I thought if people were going to talk about what I wear, wouldn't it be good if they were talking about who designed it, who made it and if that's a Scottish company, so teaming up with Totty Rocks has been fantastic.
+- The U.K.'s debt belongs legally to Westminster, so Scotland, by definition, can't default on it.
+- I'm quite hypercritical of myself. It's a very Scottish thing, always thinking that you've got to be that bit better than everyone else to be good enough.
+- Some of the brightest and best women in our society are stifled in their ambitions.
+- I'm a politician, and as you know, politicians are rarely very funny.
+- I take responsibility for everything that happens in the SNP as leader.
+- Twitter's probably my bad habit.
+- It is hard to overstate the economic importance of the U.S.A. to Scotland, and that makes it essential that we engage with companies and potential investors and get the message across that we are open for business.
+- The fact is that co-operation between independent countries - to our mutual advantage - is the way of the modern world.
+- London has a centrifugal pull on talent, investment and business from the rest of Europe and the world. That brings benefits to the broader U.K. economy.
+- My pledge to you is that the SNP will put women and gender equality right at the heart of the Westminster agenda.
+- I have said repeatedly I do want to take longer to eliminate the deficit than the other parties. Because I want to see us have the ability to invest more in our economy, in our public services, and in lifting people out of poverty.
+- The total impact of the Tory/Liberal tax, welfare and public spending changes has hit the poorest 10% in society disproportionately hard - and women have been affected even more badly than men.
+- I and Alex Salmond are not in competition - we are on the same side; we are on the same team, working together.
+- We already know that social security is more affordable in Scotland than it is in the rest of the U.K. - spending on social protection takes up a smaller share of our economic output and our tax revenues than is the case in the U.K. as a whole.
+- Politics is a very male-dominated, male-driven profession. I was not just a woman but a young woman, and I suppose you end up trying to behave in a way that you think is expected of you.
+- I think the fact that people are even talking about the prospect of the Tories coming second is less about anything the Tories have done and more about the failures of Labour to set out, in any kind of coherent sense, what it's for anymore.
+- I don't cook very often. Actually, I'd go further: I can't cook.
+- I am the granddaughter of an English woman. I love England and her people and, regardless of politics, consider you to be family... and always will.
+- I stand here today as the first woman first minister of our country. Every day I hold this office, I will work to ensure that every woman, every wee girl across this country, gets a chance to do what I've done and follow their dream.
+- In particular, I want to set a challenge to public bodies and private companies to improve gender balance on their own boards.
+- I drove my mum and dad mad.
+- This government and the party that I lead will continue to argue an alternative to the Tory-Labour austerity.
+- Is it not typical that we have a Tory Government that wants, just like its pals in the Labour Party, constantly to talk down Scotland's prospects?
+- Parties that win elections should form the government, not parties that lose elections.
+- I feel sorry for generations of Labour voters and supporters who must look and wonder what on earth has gone wrong and what Labour is for.
+- I believe we should support people to live, and I am therefore in favour of good quality palliative care.
+- People who think of a nationalist party sometimes think 'inward-looking and parochial.' The kind of nationalism I represent is the opposite of that.
+- Any politician or campaigner trying to pull the wool over the eyes of the public won't get very far.
+- Scotch beef, salmon and shellfish are recognised the world over for their excellence and Scottish provenance. People recognise the Scottish brand. They associate the country with quality food and drink, and clearly other Scottish sectors, such as dairy, can benefit from that, too.
+- I'll be arguing for Scotland to vote to stay in the E.U.
+- Governments in countries across the world have a duty to do everything possible to keep the public safe from terrorist attacks.
+- The truth of the matter is that countries the world over have deficits. Let us remember this about Scotland's deficit: it was not created in an independent Scotland; it was created on Westminster's watch.
+- There was nothing in my childhood that said, 'She's going to be first minister of the country one day.'
+- One thing we've learned is that there's not anything that Nigel Farage won't blame on foreigners.
+- We've chosen to stay part of the Westminster system, but we don't want to be a forgotten, sidelined part of it.
+- Let us put the normal divisions of politics aside. Let us come together as one country; let us seize this historic moment to shift the balance of power from the corridors of Westminster to the streets and communities of Scotland.
+- The decision on whether there is another referendum is down to the Scottish people.
+- As a veteran of many campaigns, I know how important it is not let up in the last few days.
+- There can be no greater privilege in life than to be chosen to lead your country.
+- Scotland almost invented the modern world. I mean, all of these televisions, telephones, penicillin, we all - all of these things were invented in Scotland.
+- People don't want to go back to the days, pre-referendum, when the Westminster establishment sidelined and ignored Scotland. They want Scotland's voice to be heard.
+- I do not want to see, for any reason, the Tories resurgent in any way.
+- Many people from many different walks of life have marriages that break up, and those are deeply personal, deeply painful but ultimately private matters.
+- I am quite a shy person. You say that to people, and they say, 'You do interviews, speeches. How can you be shy?' But, fundamentally, I am.
+- I'm not a scientist. If there is a risk to our environment, there will be no fracking.
+- A whole range of things are done to ensure services remain safe and sustainable because that is the absolute paramount duty of the health board.
+- Tory governments are bad for Scotland.
+- Sometimes things happen in life, sometimes they don't. Don't get me wrong: I have no regrets - if I could turn the clock back 10 or 20 years, I wouldn't want to fundamentally change the path my life has taken.
+- Do I look like one of the most dangerous women in Britain? Come on!
+- The Scottish Government will continue to do all it can to get people into work.
+- I don't know Ed Miliband as a person particularly well.
+- Talent is really important in politics, but experience is also really important.
+- I'm the leader of the SNP. I think you would expect me to say I would vote SNP in whatever constituency I lived in.
+- I consider myself a selfie specialist.
+- Tax credits are designed to help people who work hard but who, through no fault of their own, don't earn enough to keep their families out of poverty.
+- The debate around the ageing population should, in my view, focus much more on how we grow the active, working population.
+- Many hard working people in low paid jobs get housing benefit.
+- Most people would agree that the E.U. is too bureaucratic, not transparent or democratic enough and that it often interferes too much in matters that are best left to national governments.
+- Sporting success doesn't happen by accident. It takes hard work and determination on the part of the individual athletes. And it also takes investment in facilities and training support.
+- Most politicians come into politics because they want to make a difference; we just have different ideas how to do it.
+- People in Scotland don't take too kindly to being lectured by a Tory Chancellor.
+- We will never vote for the renewal of Trident; that's a decision which will fall to be made in the next Westminster parliament. We will never vote for that.
+- Trespass, the outdoor clothing company based in the South Side, is run by two of the nicest guys and proudest Glaswegians you could meet, Afzal and Akmal Khushi.
+- My early years as a political activist were dominated by the poll tax.
+- It's very much the currency of discourse on social media where political disagreements very quickly become very personalised.
+- I am a believer in people succeeding on merit.
+- I've got absolutely no desire or intention of damaging England.
+- Clearly, any issues about breaching of expenses rules should be properly investigated.
+- I like Indian takeaway.
+- When I was growing up, I was lucky to benefit from a first class education.
+- Scotland has a great deal to offer the world in terms of our approach to key economic and social issues.
+- It still annoys me when I read really derogatory things about how a woman looks because you would usually not read these things about a man, and that still has the potential to put women off public life.
+- My message is a simple one - the E.U. is not perfect, but Scotland's interests are best served by being a member.
+- It is clear that my predecessor as First Minister is frightening the life out of the Tories and the Labour Party. Long may it continue.
+- Social media is natural to me, and it's a very immediate way of saying something. It's the way politics are done these days. In modern politics, you can't ignore that even if you wanted to. I can't imagine doing politics without it.
+- It would be a very serious mistake for the U.K. to vote to leave the European Union, and I think it would be democratically indefensible for Scotland, if we had voted to stay in, to face the prospect of being taken out.
+- Scotland's relationship with Malawi is perhaps unique - with almost every town or village in Scotland having some connection.
+- I desperately want Scotland to be an independent country. I cannot, though, sit here and tell you definitively that it will happen, and that it will happen on this timescale, because I have to respect the opinion of the people of Scotland.
+- Since I became First Minister, I have made clear my priority to alleviate poverty and tackle inequality in Scotland. Ensuring that everyone can do better in life will not only make Scotland fairer, but it will also make it a more prosperous place.
+- Labour's support in Scotland depends on their ability to be electable. If they are divided and unelectable, what's the point?
+- English businesses would face massive transaction costs if Scotland, their second biggest export market, used a different currency.
+- I worry about the direction of the U.K. and U.K. politics and governance in the event of a Brexit.
+- I do struggle to identify an occasion when I was held back because I'm a woman... You don't think about it at the time, but looking back at it, of course.
+- I think it is important the communities are listened to and that their voice is heard, particularly with local government boundaries more than parliamentary boundaries, because you are talking very much about communities. It can be a very emotive thing.
+- I wish we lived in a world where how you looked or what you wore wasn't an issue for men or women, and it's by and large not an issue for men, so I wish it wasn't an issue for women, but it is.
+- If there is a 'Leave' vote in England and across the U.K. as a whole, then we see the reins of power being seized by politicians who are on the right of the Conservative party.
+- I'm not going to do anything that heralds in a Tory government.
+- Haggis is delicious. It is wonderful. It's spicy, it's tasty, and you get vegetarian haggis as well.
+- Of course, aid is only one small part of international development. Some of the greatest benefits to the world's poorest can be achieved through policy changes by developed countries.
+- A minority government can't govern without support from other parties.
+- I think the Tories are doing - and are intent on doing - damage to things I hold dear.
+- Scottish politics, U.K. politics, is not really like American politics in this respect. Not everybody is absolutely obsessed with image. I'm not saying the United States is obsessed with image.
+- I've not had a deliberate image makeover.
+- The assumption that people sometimes make is that I have made a cold, calculated decision to put my career ahead of having family, and that's not true.
+- The importance of education is ingrained in Scottish history.
+- The fact that healthier lifestyles and advances in medicine mean that we are living longer is actually something to be celebrated.
+- Scotland never voted for Margaret Thatcher.
+- What a war in Iraq will not do is bring about peace in the Middle East or end the injustices that feed resentment and breed terrorists.
+- One of Ed Miliband's shadow ministers has said he would never vote for the renewal of Trident.
+- American companies based in Scotland employ large numbers of people - in fact, we are the best performing part of the U.K., outside London and the southeast of England when it comes to attracting foreign direct investment.
+- If your pal or neighbour is in the SNP, you're more likely to listen to them than if you just turn on the telly and see me or Alex. The growth of membership is building a politically engaged community base that hasn't been there in my lifetime.
+- I feel comfortable in a position of leadership, but that's not to say I feel complacent about it. I take it incredibly seriously.
+- I don't feel we need to be independent for me to feel confident in my Scottish identity. I think Scotland is pretty comfortable in its identity. We won't need independence to preserve it... if we don't become independent, it won't disappear; it isn't under existential threat.
+- The fact is Scottish Labour has lost its way.
+- I hope nobody in England is afraid of the SNP - there is absolutely no need to be.
+- True gender equality in Scotland - and elsewhere - is still some way off.
+- It is one of the little known facts about modern Scottish politics that it is not quite as cut-throat as people think it is.
+- The U.K. government sets a cap on how much can be spent on discretionary housing payments.
+- If there are healthy - and growing - numbers of people working and paying taxes, we are better able to pay the costs of people living longer.
+- I've not hidden and I'll never hide the fact that I want Scotland to be an independent country. But as long as we're part of the Westminster system, it's really important to people in Scotland that we get good decisions coming out of Westminster. So we've got a vested interest in being a constructive participant.
+- I was studious and bookish. Not just as a child but also as a teenager. I took myself too seriously.
+- As First Minister, I will always act in the best interests of the country. As party leader, I will always act in the best interests of the party, and if that sometimes means taking difficult, unpalatable decisions, I will never shy away from that.
+- I've never had a voice coach, but I am about to name drop horrendously here: I did once get some advice on how to project my voice from Sean Connery, which was lovely. It's all about where you breathe. That's my claim to fame.
+- I was very proud, on just my second day in office, to appoint a gender-balanced cabinet - one of only three in the developed world.
+- Glasgow is a great city.
+- I won't say I've never felt in Alex Salmond's shadow, but latterly, when Alex was leader, I didn't. It's more about my awareness of the fact I became First Minister during a parliamentary term. That means you're First Minister, but you haven't been elected in your own right as First Minister.
+- Polls can change; people's opinions can change. Voting intentions can change, and I think it would be a silly leader, a silly political party, that would assume that we have it sewn up.
+- Our MPs will take decisions on how they're voting on a day-to-day basis. But I'm the leader of the party, and in terms of our overall strategy and how we vote on key issues, then ultimately, those decisions will be mine.

@@ -1,0 +1,76 @@
++++
+author = "Nita Strauss"
+title = "Nita Strauss Quotes"
+quotes_len = "70"
+description = "the best 70 Nita Strauss Quotes"
++++
+- All my real heroes made instrumental albums. All my own career has been spent playing in bands, but I never forgot that dream of what inspired me to pick up the guitar in the first place.
+- It never really occurred to me to seek out a female influence, a female musician.
+- The guitar player that I'm doing my solo tour with, Angel Vivaldi, he's been releasing incredible guitar albums and people just don't really know about them because instrumental guitar isn't really at the forefront of music these days.
+- I always was a fan of Alice Cooper's, but I got a new appreciation for his music playing in his band. It's really amazing to see how his music transcends age.
+- I record everything myself, I engineer everything myself.
+- Yes, of course, I've been dreaming about it since I was a kid. Even now, I'm 31 years-old now and I've never been on a cover of a magazine. It makes you feel in such a way to do it with my signature guitar and to have it be Guitar Player magazine, it was really just an amazing experience.
+- I do remember being a kid and hearing Van Halen. My dad was always playing Van Halen in the car.
+- I love to play guitar. I've never really been the type of guitar player that goes, 'I'll only play this style of music or that thing.'
+- You know, I try not to think too much about women guitarists versus men guitarists; the world does that for me.
+- Me personally, I've had really great experiences. I'd be lying if I said it was all roses and perfect, but, by and large, the metal community is so incredibly supportive.
+- There are no apologies for being a female in heavy metal and especially not in 2019.
+- I really hope that with my album, because I have a bit more of a mainstream crossover following, I really hope that I can introduce some new listeners to this world of instrumental music.
+- I might come across like kind of a show-off onstage and stuff, but I like collaborating with people.
+- All of these really strong females making names for themselves in what were traditionally male-dominated spaces. And I'm not usually one to get too hung up on the male-vs.-female side of things, but it is interesting to see the dynamic shifting and it's happening across the board. It's cool to be a part of that.
+- I'm a total tomboy at heart. If I don't have to be on stage or doing anything that day, I'm always in band t-shirt and yoga pants and sneakers.
+- I think the WWE Universe have really accepted me, because they know I'm one of them.
+- My boyfriend and I haven't taken a vacation in years. Usually, when we travel, I have to play. It's not really a vacation even if we do fun stuff to do because I'm always running around sound-checking and taking care of business stuff. And he is my manager, so he is taking care of more business stuff than I am.
+- So, as I step out and take these first steps on this journey to do my own thing, I didn't want to have to get anybody's approval on anything. I didn't want to have to ask a record label 'Is this okay for the album cover? What time do you think I should go on tour this year?'
+- I dreamed of recording a guitar album since I started playing, but I just never felt ready. I never felt like I was the player that I wanted to be. But I had this epiphany: you're never going to feel ready.
+- I think my best advice for young guitar players is that it's not an easy road - definitely not; female guitar player or male guitar player, it's not an easy road at all.
+- A big part of the Alice Cooper sound is the big classic rock licks, the big, classic thematic kind of... It's not about going crazy, it's not about playing super fast.
+- I'm 30, and I've been touring since I was 15. So it's been a long journey to get here.
+- The solo album is really my way of branching out and doing my own thing. I'm mostly known for playing other people's music, so this is a way to just do something that is purely from my heart and my creativity. So it's really exciting.
+- There were always people in the audience that judged me on the way I looked. They just assumed, because I was a girl, that I wasn't going to be any good, and it motivated me to improve and nail it every night.
+- I remember sobbing myself to sleep because I couldn't play an open G chord.
+- During those years with the Iron Maidens, I felt I had to be great and really prove myself at every single show.
+- I think in a new relationship it's really important to at least respect each other's interests, even if you don't get super into everything.
+- But when I started playing in bands, everyone would just have a couple beers at rehearsal, at the shows, or whatever, and alcohol is a great equalizer. It's a great way to make friends and interact with people.
+- I think as long as you're going out and treating everything with respect - you're not going in there acting like a helpless girl - as long as you don't go in there demanding special treatment, I think you won't receive any special treatment.
+- I started playing guitar because of instrumental guitar music.
+- The great thing about the Alice Cooper camp is that its a true family and there's definitely a reason why he's had such a long and successful career spanning over 50 years. You don't get that far by not keeping good people around you.
+- And, of course, there were some times when I had writer's block and I had a hard time figuring out how to express what I wanted to express.
+- It's not odd to be a female in a band anymore. It's not odd to be a girl carrying a guitar case to a gig.
+- To put my name on a track as a solo artist was a big deal to me. There was no band to act as a buffer.
+- Nothing is more important to me than love.
+- If I go on stage and I think I look cool and I think I'm playing well, that's what it's all about, I think.
+- I was not a super social kid and I didn't have the easiest time making friends.
+- I love my regular job playing with Alice Cooper, I love doing my solo stuff, I love doing guest spots and guest tours. So I just love to play, and I'll play with anybody that'll have me, just about.
+- It's hard to get a start as an instrumental guitar player. It's a much quicker route to be in a band, so I was always in a band and writing songs with singers, but I always had the dream in the back of my mind to make an instrumental record.
+- I didn't start watching wrestling until 2015.
+- And I would say that the main thing that I faced as a female in this industry was being underestimated. But being underestimated isn't always a bad thing. It's nice to get out there and blow people's minds when they think you're not gonna be any good.
+- The thing that I don't like is the selfie when people turn their back to the stage. I'm playing my heart out, I put everything that I have into my performance. If someone turns their back to me like a zoo animal... that drives me absolutely bananas.
+- Yeah, of course, there's always gonna be people with their own opinions about a female in rock music and men in rock music, but at the end of the day, it's just about being a good musician.
+- The first riff that I totally mastered was 'Come As You Are' by Nirvana. I remember sitting there, plunking along, I remember thinking 'How do they even do this?'
+- I'm pretty easy-going and pretty happy most of the time.
+- I started playing guitar because of seeing Steve Vai.
+- You can be in the band, you can go buy your own guitar strings at Guitar Center, you can go and do everything the boys can do and you're not the oddity anymore.
+- The first wrestling event I ever went to was PCW Ultra in L.A., and it was insane. They had RVD wrestling, Shane Strickland, Penta, and all these incredible indie wrestlers.
+- I saw Jennifer Batten do a cool guitar solo before I ever saw any other girl do a cool guitar solo.
+- Every band wants to play in every city. We all do.
+- I was definitely not one of those kids prodigy guitar players.
+- If I can give that back to one little girl, much less thousands, and if they start on this journey because they saw me do this, then I did a good thing with my career and my life.
+- So, really, I just try to be the best guitar player I can be - not the best female guitar player, not the best 'X amount of years' guitar player, or whatever - just the best guitar player.
+- The biggest challenge was the whole learning curve of being solo artist. I've been in bands for so long that being a solo artist was completely new thing.
+- The important thing to remember is you control you. Nothing else can control you.
+- When you're your own business, and my business is called Nita Strauss Incorporated, and I am my business, so it's not like I get to stop working at 5 p.m. and go home and do other things. It's a full-time job.
+- I was always listening to the records that made shredding sound fun - Steve Vai, Satriani, Cacophony, Paul Gilbert. I think that's what's missing from modern shred guitar; so many people are playing so many amazing notes, but a lot of it doesn't really sound all that fun.
+- Three of my heroes that have gotten clean and sober that I got to ask for advice were Alice Cooper, Nikki Sixx and Zakk Wylde.
+- When it's your own name that is the business, the business never stops.
+- I will champion this forever - that the rock and metal scene is absolutely the most inclusive, amazing, supportive community that I've ever been a part of.
+- You see opportunity... Opportunity is like a window: every once in a while, it opens, if you're ready for that opportunity. So be prepared, work hard, and follow your dreams.
+- I've worked my entire life to be this busy. I've worked my entire career to have this many things to do and this many emails to answer. Even when it's overwhelming, it's still a blessing.
+- Go in, do a great job, be super professional.
+- I don't really find it to be a man-dominated industry. I mean, I guess when you look at it, it is, but I don't really look at it as a female or male thing, or female or male guitar players or whatever.
+- And I was a kid from L.A. and I just wanted to play thrash metal.
+- The thing that drove me, and the thing that still drives me today to stay sober is all the blessings that have come into my life since this happened.
+- But at the end of the day, I'm a girl. I'm from Santa Monica. I'm going to look how I want to look and play how I want to play, and if people don't like it, then they don't like it.
+- So, to see the response to the Kickstarter, and to see people actually really want to see, hear what I'm doing, hear what comes out of my own mind, is really an incredible experience.
+- It's 2019. People aren't going to shows to watch a band play the song exactly like the record.
+- And for it to make the statement the way that it did, for 'Controlled Chaos' to debut in the Top 10 of the iTunes rock chart... We debuted behind Queen and Chris Cornell, so it's not like we were just hidden away in the back of the instrumental metal category.

@@ -1,0 +1,74 @@
++++
+author = "Jean-Jacques Rousseau"
+title = "Jean-Jacques Rousseau Quotes"
+quotes_len = "68"
+description = "the best 68 Jean-Jacques Rousseau Quotes"
++++
+- Patience is bitter, but its fruit is sweet.
+- Remorse sleeps during prosperity but awakes bitter consciousness during adversity.
+- We are born, so to speak, twice over; born into existence, and born into life; born a human being, and born a man.
+- The training of children is a profession, where we must know how to waste time in order to save it.
+- All of my misfortunes come from having thought too well of my fellows.
+- I have always said and felt that true enjoyment can not be described.
+- Every man has a right to risk his own life for the preservation of it.
+- Money is the seed of money, and the first guinea is sometimes more difficult to acquire than the second million.
+- Fame is but the breath of people, and that often unwholesome.
+- Take the course opposite to custom and you will almost always do well.
+- What wisdom can you find that is greater than kindness?
+- To endure is the first thing that a child ought to learn, and that which he will have the most need to know.
+- We pity in others only the those evils which we ourselves have experienced.
+- Man was born free, and he is everywhere in chains.
+- Heroes are not known by the loftiness of their carriage; the greatest braggarts are generally the merest cowards.
+- I only see clearly what I remember.
+- A feeble body weakens the mind.
+- We are born weak, we need strength; helpless, we need aid; foolish, we need reason. All that we lack at birth, all that we need when we come to man's estate, is the gift of education.
+- Insults are the arguments employed by those who are in the wrong.
+- Our greatest evils flow from ourselves.
+- I may be no better, but at least I am different.
+- God made me and broke the mold.
+- Free people, remember this maxim: we may acquire liberty, but it is never recovered if it is once lost.
+- I hate books; they only teach us to talk about things we know nothing about.
+- Happiness: a good bank account, a good cook, and a good digestion.
+- Childhood is the sleep of reason.
+- No true believer could be intolerant or a persecutor. If I were a magistrate and the law carried the death penalty against atheists, I would begin by sending to the stake whoever denounced another.
+- Most nations, as well as people are impossible only in their youth; they become incorrigible as they grow older.
+- Reading, solitude, idleness, a soft and sedentary life, intercourse with women and young people, these are perilous paths for a young man, and these lead him constantly into danger.
+- Base souls have no faith in great individuals.
+- We should not teach children the sciences; but give them a taste for them.
+- O love, if I regret the age when one savors you, it is not for the hour of pleasure, but for the one that follows it.
+- People who know little are usually great talkers, while men who know much say little.
+- I undertake the same project as Montaigne, but with an aim contrary to his own: for he wrote his Essays only for others, and I write my reveries only for myself.
+- No man has any natural authority over his fellow men.
+- It is too difficult to think nobly when one thinks only of earning a living.
+- Do I dare set forth here the most important, the most useful rule of all education? It is not to save time, but to squander it.
+- Take from the philosopher the pleasure of being heard and his desire for knowledge ceases.
+- Our affections as well as our bodies are in perpetual flux.
+- We do not know what is really good or bad fortune.
+- The body politic, as well as the human body, begins to die as soon as it is born, and carries itself the causes of its destruction.
+- It is a mania shared by philosophers of all ages to deny what exists and to explain what does not exist.
+- The English think they are free. They are free only during the election of members of parliament.
+- Plant and your spouse plants with you; weed and you weed alone.
+- Falsehood has an infinity of combinations, but truth has only one mode of being.
+- The person who has lived the most is not the one with the most years but the one with the richest experiences.
+- Religious persecutors are not believers, they are rascals.
+- When something an affliction happens to you, you either let it defeat you, or you defeat it.
+- Ordinary readers, forgive my paradoxes: one must make them when one reflects; and whatever you may say, I prefer being a man with paradoxes than a man with prejudices.
+- Gratitude is a duty which ought to be paid, but which none have a right to expect.
+- However great a man's natural talent may be, the act of writing cannot be learned all at once.
+- The first step towards vice is to shroud innocent actions in mystery, and whoever likes to conceal something sooner or later has reason to conceal it.
+- Absolute silence leads to sadness. It is the image of death.
+- The world of reality has its limits; the world of imagination is boundless.
+- I long remained a child, and I am still one in many respects.
+- Whoever blushes is already guilty; true innocence is ashamed of nothing.
+- You forget that the fruits belong to all and that the land belongs to no one.
+- I have resolved on an enterprise that has no precedent and will have no imitator. I want to set before my fellow human beings a man in every way true to nature; and that man will be myself.
+- Nature never deceives us; it is we who deceive ourselves.
+- Although modesty is natural to man, it is not natural to children. Modesty only begins with the knowledge of evil.
+- How many famous and high-spirited heroes have lived a day too long?
+- Those that are most slow in making a promise are the most faithful in the performance of it.
+- Every man has the right to risk his own life in order to preserve it. Has it ever been said that a man who throws himself out the window to escape from a fire is guilty of suicide?
+- Virtue is a state of war, and to live in it we have always to combat with ourselves.
+- The English are predisposed to pride, the French to vanity.
+- It is unnatural for a majority to rule, for a majority can seldom be organized and united for specific action, and a minority can.
+- Force does not constitute right... obedience is due only to legitimate powers.
+- Our will is always for our own good, but we do not always see what that is.

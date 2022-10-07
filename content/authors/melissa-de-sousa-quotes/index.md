@@ -1,0 +1,14 @@
++++
+author = "Melissa De Sousa"
+title = "Melissa De Sousa Quotes"
+quotes_len = "8"
+description = "the best 8 Melissa De Sousa Quotes"
++++
+- 'The Best Man' was my first feature film, and I didn't want to be known as a director who only does romantic comedies.
+- Just go and keep auditioning and keep trying and keep believing things will turn around, and it always does.
+- I've grown as a storyteller, and my comedic timing has gotten better.
+- You cannot let people come up in your face and stop you.
+- You have to have an attitude that nothing's gonna stop me. I think that's just my New York kind of attitude - survival of the fittest.
+- When you're in your 20s, you're a little more carefree; you're single. You have a very different way of looking at the world and experiencing the world. But later in your 30s, when you have children, a career, career obstacles, mortgages, car payments and relationships, you have to negotiate; that's a very different life.
+- I've always been kind of an introvert growing up.
+- There are roles for all types of movies. I mean, you still want to watch the urban movies, and they need to be told. You still want to see something you haven't seen before.

@@ -1,0 +1,36 @@
++++
+author = "Sharmeen Obaid-Chinoy"
+title = "Sharmeen Obaid-Chinoy Quotes"
+quotes_len = "30"
+description = "the best 30 Sharmeen Obaid-Chinoy Quotes"
++++
+- What good is my parents' wealth and education and upbringing if I'm not contributing to the world?
+- I think perhaps Pakistan can take the lead. Perhaps Turkey can as well, being part of Europe. But someone has to start talking about why the Muslim world has become a boiling pot and look beyond these cartoons to what the ideological reasons are for this divide.
+- I don't think I'll be making documentaries my whole life.
+- I believe in telling the truth.
+- The news that comes out of Pakistan is always geared toward terrorism and fundamentalism. But when you give people freedom of expression and the freedom to go out and be social and to express themselves, you will see a change. I see that coming about in my country.
+- When I'm not working on the ground, spending time with my husband and daughter puts me at ease.
+- Thousands of civilians have lost their lives to terrorist attacks inside Pakistan, and thousands more will - because, unlike the Pakistani government, which has no coherent policy to deal with the radicals, the Taliban have one to deal with Pakistan and its citizens.
+- It doesn't matter who you are or where you come from - if you put quality work out there, it will be appreciated.
+- There are a number of parallels between the slums of Brazil and those found in my hometown, Karachi. The dichotomy that exists in Brazil is uncannily similar to that found in Pakistan, and I hope to one day make a film that follows similar themes.
+- I hope I can make Pakistan proud by bringing home an Oscar.
+- The Pakistani government and its allies must overhaul their policies in Pakistan.
+- It takes one second to ruin a woman's life.
+- In December 2011, I will be opening up my production house, Sharmeen Obaid Films, and aspire to change the way Pakistanis approach nonfiction storytelling. There are thousands of stories to be found here.
+- An Academy Award nomination is stuff dreams are made of.
+- Education liberates a woman.
+- Working in any country where you want to talk about the kind of issues that other people don't want to talk about is difficult.
+- The young boys I speak with say to me: Why would I want to live in this world - where they rely on charity, dry pieces of bread and water, where they are subjected to harsh treatment, when they can be free and be the envy of their colleagues in the afterlife. They are only too eager to sign on the dotted line and join the ranks of the Taliban.
+- I'm generally quite an angry person, and I like to channel my anger toward something creative.
+- I have very strong Canadian connections. My daughter was born there a year and half ago. But because of the nature of my job, I need to be in countries where I can get the stories that I am looking at.
+- Fighting the Taliban and the various radical organizations on the front lines is like adding a Band-Aid to a cut, it may stop the bleeding but unless you clean it with antiseptic, the germs stay and multiply.
+- Don't give up your dreams.
+- My films are motivated by a keen interest in highlighting issues that affect marginalized populations who are caught in difficult circumstances.
+- The day I won an Emmy was also the day my father passed away. I received a call from my sister on the way to the ceremony and had to turn my car around and catch the first flight back to Karachi.
+- I feel that for the first time in a long time, educated Pakistanis are returning to their country to start up educational projects, to start up businesses, so instead of the brain-drain that happened in the 1950s and 1960s, the country is growing and improving economically.
+- I'd like to do a film in Canada, but it's too difficult. National Film Board funding takes too long, and there's too much paperwork; by the time the film is approved the topic is dead and gone.
+- By bringing the voices of the ordinary people faced with extraordinary challenges to television screens around the world, I hope to affect change in one community at a time.
+- My topics are timely. When an event is happening is when I want to be there... I think it is our duty to challenge the status quo.
+- Pakistan destroyed its own reputation. If anything, I have improved Pakistan's image.
+- My family restores my sense of ease and keeps me balanced.
+- In terms of 'Saving Face,' I was inspired by the stories of survivors who didn't let their attacks stop them from pursuing justice and seeking treatment.

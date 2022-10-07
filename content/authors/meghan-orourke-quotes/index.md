@@ -1,0 +1,47 @@
++++
+author = "Meghan O'Rourke"
+title = "Meghan O'Rourke Quotes"
+quotes_len = "41"
+description = "the best 41 Meghan O'Rourke Quotes"
++++
+- But there is a discomfort that surrounds grief. It makes even the most well-intentioned people unsure of what to say. And so many of the freshly bereaved end up feeling even more alone.
+- A death from a long illness is very different from a sudden death. It gives you time to say goodbye and time to adjust to the idea that the beloved will not be with you anymore.
+- The truth is, I need to experience my mother's presence in the world around me and not just in my head.
+- Grief is a bad moon, a sleeper wave. It's like having an inner combatant, a saboteur who, at the slightest change in the sunlight, or at the first notes of a jingle for a dog food commercial, will flick the memory switch, bringing tears to your eyes.
+- Like my mother before me, I have always been a good speller.
+- It's all too easy when talking about female gymnasts to fall into the trap of infantilizing them, spending more time worrying more about female vulnerability than we do celebrating female strength.
+- This is part of the complexity of grief: A piece of you recognizes it is an extreme state, an altered state, yet a large part of you is entirely subject to its demands.
+- Grief is at once a public and a private experience. One's inner, inexpressible disruption cannot be fully realized in one's public persona.
+- I think about my mother every day. But usually the thoughts are fleeting - she crosses my mind like a spring cardinal that flies past the edge of your eye: startling, luminous, lovely... gone.
+- I believe in the importance of individuality, but in the midst of grief I also find myself wanting connection - wanting to be reminded that the sadness I feel is not just mine but ours.
+- My whole life, I had been taught to read and study, to seek understanding in knowledge of history, of cultures.
+- What's endlessly complicated in thinking about women's gymnastics is the way that vulnerability and power are threaded through the sport.
+- I envy my Jewish friends the ritual of saying kaddish - a ritual that seems perfectly conceived, with its built-in support group and its ceremonious designation of time each day devoted to remembering the lost person.
+- One of the ideas I've clung to most of my life is that if I just try hard enough it will work out.
+- There is always tension in women's gymnastics between athleticism, grace, performance, and eros.
+- My mother died of metastatic colorectal cancer shortly before three P.M. on Christmas Day of 2008. I don't know the exact time of her death, because none of us thought to look at a clock for a while after she stopped breathing.
+- Our minds are mysterious; our conscious brain is like a ship on a sea that is obscure to us.
+- Many Americans don't mourn in public anymore - we don't wear black, we don't beat our chests and wail.
+- My mother never liked Mother's Day. She thought it was a fake holiday dreamed up by Hallmark to commodify deep sentiments that couldn't be expressed with a card.
+- I'm not much like my mother; that role falls to my brothers, who have more of her blithe and freewheeling spirit.
+- One word I had throughout the first year and a half of my mother's death was 'unmoored.' I felt that I had no anchor, that I had no home in the world.
+- But when my mother died, I found that I did not believe that she was gone.
+- Television has never known what to do with grief, which resists narrative: the dramas of grief are largely internal - for the bereaved, it is a chaotic, intense, episodic period, but the chaos is by and large subterranean, and easily appears static to the friendly onlooker who has absorbed the fact of loss and moved on.
+- Loss doesn't feel redeemable. But for me one consoling aspect is the recognition that, in this at least, none of us is different from anyone else: We all lose loved ones; we all face our own death.
+- A mother, after all, is your entry into the world. She is the shell in which you divide and become a life. Waking up in a world without her is like waking up in a world without sky: unimaginable.
+- If the condition of grief is nearly universal, its transactions are exquisitely personal.
+- I wasn't prepared for the fact that grief is so unpredictable. It wasn't just sadness, and it wasn't linear. Somehow I'd thought that the first days would be the worst and then it would get steadily better - like getting over the flu. That's not how it was.
+- To mourn is to wonder at the strangeness that grief is not written all over your face in bruised hieroglyphics. And it's also to feel, quite powerfully, that you're not allowed to descend into the deepest fathom of your grief - that to do so would be taboo somehow.
+- A mother is beyond any notion of a beginning. That's what makes her a mother.
+- When my mother was sick, I found myself needing to put down in my journals all sorts of things - to try to understand them, and, I think, to try to remember them.
+- Grief is characterized much more by waves of feeling that lessen and reoccur, it's less like stages and more like different states of feeling.
+- My theory is this: Women falter when they're called on to be highly self-conscious about their talents. Not when they're called on to enact them.
+- Loss is so paradoxical: It is at once enormous and tiny.
+- Writing has always been the primary way I make sense of the world.
+- I live to collect information, and I am also a perfectionist.
+- All love stories are tales of beginnings. When we talk about falling in love, we go to the beginning, to pinpoint the moment of freefall.
+- Nothing prepared me for the loss of my mother. Even knowing that she would die did not prepare me.
+- 'Hamlet' is a play about a man whose grief is deemed unseemly.
+- I am the indoctrinated child of two lapsed Irish Catholics. Which is to say: I am not religious.
+- And after my mother's death I became more open to and empathetic about other people's struggles and losses.
+- 'Hamlet' is the best description of grief I've read because it dramatizes grief rather than merely describing it.

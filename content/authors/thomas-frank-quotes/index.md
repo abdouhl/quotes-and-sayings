@@ -1,0 +1,86 @@
++++
+author = "Thomas Frank"
+title = "Thomas Frank Quotes"
+quotes_len = "80"
+description = "the best 80 Thomas Frank Quotes"
++++
+- There is no higher claim to journalistic integrity than going to jail to protect a source.
+- Promises to get beyond partisanship are the most perfunctory sort of campaign rhetoric, almost as empty as the partisanship itself.
+- The great fear that hung over the business community in the 1970s was death by regulation, and the great goal of the conservative movement, as it rose to triumph in the 1980s, was to remove that threat - to keep OSHA, the EPA, and the FTC from choking off entrepreneurship with their infernal meddling in the marketplace.
+- I think there's great potential for autonomy, but we have to remember that we live in a world where people may have free will but have not invented their circumstances.
+- Maybe that first, gigantic deficit the Reaganites piled up was an accident, just a combination of deluded 'supply side' tax cuts and a huge bag of good stuff for the Pentagon. But pretty quickly conservatives discovered that deficits, when done correctly, did something really cool: deficits defunded the Left.
+- Most of Roosevelt's innovations have been the law of the land for 70 years now, and yet we are still a free society free enough, that is, to allow tens of thousands of protesters to gather on the National Mall and to broadcast their slogans and speeches to the world via C-SPAN.
+- Joe Klein is the flower of American political journalism, a sharp raconteur who shows traces of the gonzo style that was in vogue when he was honing his craft at Rolling Stone back in the day.
+- Yes, Democrats can prove that America pays more for health care than other countries; yes, they have won the dispute that private health insurance is needlessly expensive. But what they've lost is the argument that we are a society.
+- One of the things I keep coming back to in my writing is that society doesn't work on this mirror principle, you don't have an exact replica on the left of what you have on the right. It just doesn't work that way.
+- Privatizing bits of the prison industry was a step in the right direction, but what we didn't have - until recently - were proper instruments for incentivizing the judiciary. That's what the 'kids for cash' judges were apparently experimenting with.
+- When the entertainers of the Right aren't declaring their disgust with President Obama for groveling before foreign potentates, they're pretending to fear him as a left-wing thug, an exemplar of what they call 'the Chicago way.'
+- We have become a society that can't self-correct, that can't address its obvious problems, that can't pull out of its nosedive. And so to our list of disasters let us add this fourth entry: we have entered an age of folly that - for all our Facebooking and the twittling tweedle-dee-tweets of the twitterati - we can't wake up from.
+- Under the administration of George W. Bush, you will recall, federal spending grew pretty significantly. At the same time, the number of people directly employed by the federal government shrank. One of the factors that explained the difference was contracting.
+- When money is exchanged for pregnancy, some believe, surrogacy comes close to organ-selling, or even baby-selling.
+- There are few things in politics more annoying than the Right's utter conviction that it owns the patent on the word 'freedom' that when its leaders stand up for the rights of banks to be unregulated or capital gains to be untaxed, that it is actually and obviously standing up for human liberty, the noblest cause of them all.
+- For decades Republicans have made policy with a higher purpose in mind: to solidify the GOP base or to damage the institutions and movements aligned with the other side.
+- For-profit higher education is today a booming industry, feeding on the student loans handed out to the desperate.
+- Massive inequality, we have learned, isn't the best way to run an economy after all. And when you think about it, it's also profoundly ugly.
+- Every city is either vibrant these days or is working on a plan to attain vibrancy soon. The reason is simple: a city isn't successful - isn't even a city, really - unless it can lay claim to being 'vibrant.'
+- Can policy be both wise and aggressively partisan? Ask any Republican worth his salt and the answer will be an unequivocal yes. Ask a Democrat of the respectable Beltway variety and he will twist himself into a pretzel denying it.
+- I was never a fan of Barack Obama's bipartisanship routine.
+- Journalism has a special, hallowed place for stories of its practitioners' persecution.
+- Thanks to a deal finalized in 2008, Chicago's parking meters will be operated for the next 75 years by a group of investors put together by Morgan Stanley, including the sovereign wealth fund of Abu Dhabi.
+- Conservatives may believe that impoverished borrowers destroyed Wall Street. But we liberals will not fool ourselves that stupid bankers sank conservatism for good.
+- Back in the days when the market was a kind of secular god and all the world thrilled to behold the amazing powers of private capital, the idea of privatizing highways and airports and other bits of our transportation infrastructure made a certain kind of sense.
+- People getting their fundamental interests wrong is what American political life is all about.
+- Presidential legacies are valuable things, too valuable to be left up to historians.
+- In the subprime mortgage industry, bankers handed out iffy loans like candy at a parade because such loans meant revenue and, hence, bonuses for executives in the here-and-now.
+- When you take somebody's quote out of context, which happens all the time, nobody's ever going to go and do the research on their own and figure out that you got it wrong.
+- These days, of course, the focus of talk about popular liberation through products is mostly associated with the Internet. I've been collecting computer ads and ads dealing with Internet industries.
+- American conservatism depends on its continued dominance and even for its very existence on people never making connections about the world, connections that until recent were treated as obvious or self-evident everywhere on the planet.
+- Public borrowing is costly these days, true, but interest rates on municipal bonds are still considerably lower than those borne by corporate debt.
+- While Democrats fussed with the details of health care reforms, conservatives spent months telling the nation that the real issue is freedom, that what's on the line is American liberty itself.
+- As you watch the world crumble, try taking your Armageddon with this sprinkling of irony: Over the last three decades, business has got virtually everything it wanted, and its doomsday scenario from the 1970s has come true because of it.
+- Liberal that I am, I support health-care reform on its merits alone. My liberal blood boils, for example, when I read that half of the personal bankruptcies in this country are brought on, in part, by medical expenses.
+- Former President Bill Clinton, who is widely regarded as a political mastermind, may have sounded like a traditional liberal at the beginning of his term in office. But what ultimately defined his presidency was his amazing pliability on matters of principle.
+- Financial regulation is the next item on the political horizon, and it doesn't have to be the deathly dull wonk-battle that it sounds like. In fact, if the Democrats do their job, it can just as easily become a platform for addressing the greatest issues of them all.
+- Acknowledging class was always difficult for 'New Democrats' - it was second-wave, it was divisive - but 2008 made retro politics cool again.
+- This aesthetic quality, then, is what politics is all about. It's authenticity that separates winners from losers, good politics from bad, and he-man leader-types from consultant-directed puppet-boys.
+- Vibrancy is so universally desirable, so totemic in its powers, that even though we aren't sure what the word means, we know the quality it designates must be cultivated. The vibrant, we believe, is what makes certain cities flourish.
+- As you may recall, Truman was extremely unpopular when he finally left Washington in 1953, thanks largely to the Korean War. Today, however, he is thought to have been a solidly good president, a 'Near Great' even, in the terminology of those surveys of historians they do every now and then.
+- The pursuit of the vibrant seems to be the universal job description of the nation's city planners nowadays. It is also part of the Obama administration's economic recovery strategy for the nation.
+- There is something uniquely depressing about the fact that the National Portrait Gallery's version of the Barack Obama 'Hope' poster previously belonged to a pair of lobbyists. Depressing because Mr. Obama's Washington was not supposed to be the lobbyists' Washington, the place we learned to despise during the last administration.
+- Selling public property is the true Chicago way. Had Mr. Obama not been elected president, the nation's business journals would be falling over one another to praise his city for its daring, market-friendly innovations.
+- A lot of populists after populism died just became socialists. At the beginning of the 20th century, socialism looked like it was going to take off. It didn't, of course, but a lot of people thought it was going to.
+- What is at stake in the debate over health care is more than the mere crafting of policy. The issue is now the identity of the Democratic Party.
+- Is Wall Street the rightful master of our economic fate? Or should we choose a broader form of sovereignty?
+- A president aiming for 'Great' or 'Near Great' status must do more. He must give lots of interviews, make records accessible, and heap the flattery on academia - each of which Mr. Bush has signally failed to do.
+- Money has transformed every watchdog, every independent authority. Medical doctors are increasingly gulled by the lobbying of pharmaceutical salesmen.
+- Mr. Obama still has time to reverse course. A great deal depends on it. To fail on health care yet again might well be the 'Waterloo' Republicans dream of.
+- Money never seems to be interested in strengthening regulatory agencies, for example, but always in subverting them, in making them miss the danger signs in coal mines and in derivatives trading and in deep-sea oil wells.
+- Governing was always difficult for conservatives, but as they return to the opposition, they are rediscovering their skill at blame evasion.
+- What becomes fascinating is the way the culture industry doesn't deny it and doesn't try to mitigate it, but tries to sell its products as a way of liberating oneself.
+- To be sure, we should all eat right, brush our teeth, and cut down on sweets, but that will hardly help us if we're born with a condition that requires expensive treatment.
+- Whereas all liberals are thought to erupt self-righteously whenever they feel like it, conservatives believe that they themselves are never permitted to say what they really think.
+- The Obama administration's plan is to have the Federal Reserve regulate banks that might pose a 'systemic risk' if they were to fail.
+- Government is, by its very nature, a destroyer of liberties; the Obama administration, specifically, is promising to interfere with the economy and the health care system so profoundly that Washington will soon have us all in chains.
+- We the people say it loud and clear every Election Day, in high-crime periods as well as peaceful stretches - More of our population needs to be behind bars.
+- Surrogate motherhood has been the subject of much philosophical and political dispute over the years.
+- Our current way of regulating the financial system is dysfunctional. Oversight is dispersed among numerous confusing bodies that at times have seemed to be racing each other to the bottom. Setting up One Big Regulator would end that problem.
+- There is much to dislike about President Obama's approach to the financial crisis. But opposition, it seems, will have to come from somewhere other than conservatism. The party out of power is also a party out of touch.
+- Above all else stands the burning question of bipartisanship. Whatever else the politicians might say they're about, our news analysts know that this is the true object of the nation's desire, the topic to which those slippery presidential spokesmen need always to be dragged back.
+- Media bias has been a favorite theme of the Right for decades, of course.
+- In the last James Bond movie, the villain was a culture captain, a tycoon of culture, a Murdoch figure. It's not as if people don't know what is going on.
+- The thing now is to seem concerned in a vaguely social-democratic way.
+- Concerns about the size and role of government are what seem to leave reformers stammering and speechless in town-hall meetings. The right wants to have a debate over fundamental principles; elected Democrats seem incapable of giving it to them.
+- We are watching industries crumble, Wall Street firms disappear, unemployment spike, and unprecedented government intervention. And our designated opinion leaders want to know: Is Obama up this week? Is he down? And is his leadership style more like Bill Clinton's, or Abraham Lincoln's?
+- In America, we no longer have an institutionalized, organized way of calling business to task - of taking them to account for what they've done - and this is especially true in the cultural realm.
+- In small towns, bored teenagers turn their eyes longingly to the exciting doings in the big cities, pining for urban amenities like hipster bars and farmers' markets and indie-rock festivals. Like everyone else, they want the vibrant and they will not be denied.
+- Americans have known about mounting inequality and king-sized Wall Street bonuses for years. But we also had an entire genre of journalism dedicated to brushing the problem off.
+- The revival of the Right is as extraordinary as it would be if the public had demanded dozens of new nuclear plants in the days after the Three Mile Island disaster; if we had reacted to Watergate by making Richard Nixon a national hero.
+- As it happens, Chicago is the nation's leader in municipal privatization efforts. That's right: The city that conservatives portray as the citadel of the power-grabbing, government-growing left has been selling itself off in pieces for years. It signed a 99-year lease for the Chicago Skyway, a toll road in the city's South Side, back in 2005.
+- It is always a disappointment to turn from forthright consideration of some subject - whether from the Left or the Right, a poet or a plumber - to the Beltway version, in which the only aspects of the issue that matter are the effects it will have on the fortunes of the two parties and the various men in power.
+- Just as the financial crisis has created toxic assets and 'zombie' financial institutions, so has it transformed conservatism into a movement of the living dead.
+- Republicans run the machine when it's their turn, and then hand the wheel over to Democrats when the public has had enough.
+- The only truly individualistic health-care choice - where you receive care that is unpolluted by anyone else's funds - is to forgo insurance altogether, paying out-of-pocket for health services as you need them.
+- Our laws governing lobbying and campaign contributions have struck the right balance between the wishes of the people and those of private industry, so why are we so quick to doubt that the same great results can be achieved by putting the government's justice-dealing branch on the same market-based course?
+- Allowing a private rather than a public entity to take over your toll road merely means that your tolls will have to be that much higher to cover their more expensive debt.
+- During the financial crisis and bailouts of 2008, it probably occurred to very few average people that we were entering a period of hardship for billionaires.
+- When done right - or wrong, depending on how you look at it - deficits remove liberal options from the table. Suddenly there's no money for building bridges or inspecting meat. Not surprisingly, running up a deficit is a strategy favored by the wrecking crew for its liberal-killing properties.

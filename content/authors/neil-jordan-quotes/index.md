@@ -1,0 +1,38 @@
++++
+author = "Neil Jordan"
+title = "Neil Jordan Quotes"
+quotes_len = "32"
+description = "the best 32 Neil Jordan Quotes"
++++
+- Initially with The Butcher Boy, there was this kid growing up in this strange, weird environment that I remember from when I was a kid. And Patrick's vision was so complete there.
+- Films have gotten leaner and leaner, cutting out all variations from the story line.
+- I took two years away from making films to write a novel.
+- It's the same thing in a way, although writing a book is a very solitary thing.
+- The Company of Wolves is about how society teaches young women to look at themselves, and what to be afraid of. It's about a girl learning that the world of sensuality and the unknown is not to be feared, that it's worth getting your teeth into.
+- My conception of it was that in a normal film you have a story with different movements that program, develop, go a little bit off the trunk, come back, and end.
+- I'm less comfortable making American movies because I don't know them so well.
+- There's no point in making a film out of a great book. The book's already great. What's the point?
+- The most difficult thing is the organization of people and the expression of your intentions. It's very easy to have a picture in your head and to imagine that you've told everybody about what you need.
+- I've also worked hard portraying an Ireland which is fast disappearing. Ireland was a very depressed and difficult place in the 1980s, and I've tried to include that in the script. I worked really hard to find the heart of the book.
+- Never make a promise - you may have to keep it.
+- The End of the Affair is almost like a play.
+- It is extremely difficult to get movies that cost more than $40 million to be made these days.
+- For me now, it's about what you would write and what you wouldn't write, and that's how I select what I am going to do. It can be quite nice being brought a concept by a studio for me to work on.
+- I do enjoy working with writers.
+- The Company of Wolves doesn't belong in any category, so it's difficult to prepare an audience for it. It's not a horror film, it's not a fantasy film, it's not a children's film - so what is it?
+- It's nice to work with Hollywood because there is never any question of resources put at your disposal to make a film as long as it is the right thing to do.
+- Well, I suppose I'm interested in ways of storytelling and in stories that are about storytelling.
+- It's the opposite journey from what I've usually done with films. I find it very easy to go from, say, a lit, pleasurable environment, like what you see outside there, to a very dark place. But the opposite journey, which is what this movie takes, is much more complicated.
+- Well, if you're talking about the current climate, there's a lack of content in American film because I think people are deeply confused about their emotions, and they don't regret certain aspects of their own foreign policy.
+- I can't do a film if I don't start with the writing.
+- For me, the filmmaking has to be about the dramaturgy.
+- No, I just thought of a story and wrote down what I saw. It was about two kids in Ireland who went around killing people. It was called Travelers, and it was made as an independent film.
+- And I think I often choose to do something because it's quite different from what I've done before.
+- Why should a horror film be just a horror film? To me, The Company of Wolves is a fairy tale; it's got all those elements plus a lot more. And we know that fairy tales aren't innocent any more.
+- I mean I grew up in Ireland, so one would have to be consciously blinkered not to have reflected on the issue of political violence because that was the story since I was 19 years old or 20.
+- It's hard to know whether certain characters come to life or not, they either come to have their own life or they don't. I've written many things in which the characters just remain inert.
+- I've had three novels published, and I was working a little bit in theater in Ireland. I wrote one film script just to see what it would turn out like.
+- In Dreams... well, I was slightly overcompensating with that. I was a bit like a director for hire, so maybe I was putting too much imagery that was familiar to me into it.
+- But everyone gets burnt, don't they? Certain things are outside of your control. I suppose the only thing you can learn as a director is to not put yourself into situations where it can get outside of your control. And that's what happened.
+- When you've written a movie, you then get together with a whole lot of people and make it. In many ways, I think it is far nicer to be with people rather than being completely solitary.
+- Well, Company of Wolves was about that literally, about fairy tales.

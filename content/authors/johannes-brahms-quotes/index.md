@@ -1,0 +1,15 @@
++++
+author = "Johannes Brahms"
+title = "Johannes Brahms Quotes"
+quotes_len = "9"
+description = "the best 9 Johannes Brahms Quotes"
++++
+- I sometimes ponder on variation form and it seems to me it ought to be more restrained, purer.
+- If there is anyone here whom I have not insulted, I beg his pardon.
+- Those who enjoy their own emotionally bad health and who habitually fill their own minds with the rank poisons of suspicion, jealousy and hatred, as a rule take umbrage at those who refuse to do likewise, and they find a perverted relief in trying to denigrate them.
+- It is not hard to compose, but what is fabulously hard is to leave the superfluous notes under the table.
+- A symphony is no joke.
+- Without craftsmanship, inspiration is a mere reed shaken in the wind.
+- Composers in the old days used to keep strictly to the base of the theme, as their real subject. Beethoven varies the melody, harmony and rhythms so beautifully.
+- Straight-away the ideas flow in upon me, directly from God, and not only do I see distinct themes in my mind's eye, but they are clothed in the right forms, harmonies, and orchestration.
+- We cling nervously to the melody, but we don't handle it freely, we don't really make anything new out of it, we merely overload it.

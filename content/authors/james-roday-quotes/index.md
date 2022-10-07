@@ -1,0 +1,53 @@
++++
+author = "James Roday"
+title = "James Roday Quotes"
+quotes_len = "47"
+description = "the best 47 James Roday Quotes"
++++
+- Actors geek out over athletes. Everyone knows that.
+- I came from Texas, I was studying theater at NYU, and I thought for sure that my lot in life would be to get the best bartending job I could find and do theater in New York. And that was a good life.
+- That's the thing that continues to blow me away and just never ceases to amaze me. Younger people continue to seek out this show and find it, and we get approached by 11-year-olds who say, 'Oh, my God, 'Psych' is my favorite show.' It's like, 'You weren't born when we started making that!' It's fascinating - and also awesome and humbling.
+- Acting is certainly my first love, but writing and directing has been on the 'to do' list for a long time.
+- 'Monk' planted the seed that a procedural could have character and be quirky and have comedy.
+- I would say I'm more fascinated by Big Daddy V than I am necessarily a huge fan of Big Daddy V. He simply threw on the double-strapped unitard... and now he's some sort of fearsome, fighting, wrecking machine.
+- My plan was to go to New York and do some theatre, and then I got the script for 'Psych.' I was like, 'Ahh - just as I thought I was out, you pulled me back in!' I had a great meeting with the show creator and we laid out the parameters to make the show work: what I would do, what he would let me do.
+- Without banging a drum or getting on a soap box, there are always ebbs and tides in this country in terms of the political and social climate that we might be dealing with at any given moment.
+- In some ways, especially with social media, I feel like 'Psych' has found another whole life since it went off the air.
+- I don't know if we would have stuff like 'Deadwood' and 'Boardwalk Empire' if 'Twin Peaks' had never happened.
+- The more reasons for people to be willing to put their differences aside, the better.
+- I was a strange, dark little dude. I fell in love with horror movies, at a very early age. Somehow, as a first grader, I was able to convince my parents to let me go see stuff like 'An American Werewolf in London' in theaters, so I was headed in that direction anyway.
+- In the real world, it doesn't always go your way like it can on a television show.
+- 'Twin Peaks' is my favorite show of all time.
+- Have I ever pretended to be something? I think back in college I think I might have told a girl that I was a professional tennis player once. And then, of course, she had never heard of me so I had to dig deeper. 'I'm just sort of on the playing satellites. You know, I'm kind of working my way up. I'm not ranked in the top 100 or anything.'
+- I usually just pick a genre of movie that I feel like saluting and then go off and come up with something that I can sort of pay homage to. That's the great thing about our show is we've sort of created a landscape for 'Psych' where we're kind of allowed to go off and give shout-outs to movies that we love, genres that we love.
+- I'd describe 'Psych' as 'Real Genius' meets 'Django Unchained.'
+- As 'Psych' went on, deeper in the run, I started to feel more of a challenge just because, how many jokes are there? How many times can you reinvent the wheel?
+- It's rare that you sit down for an episode of 'Psych' and think, 'Oh, that was just okay.' For the most part, we're either really knocking the ball around, or we're striking out and failing miserably, but you don't ever want to be anywhere in between.
+- People need to laugh and turn their brains off.
+- I don't think the expectation is that the 'Psych' musical is going to be 'Rent,' so I think as long as we didn't completely humiliate ourselves and it is funny and it is in the tone of what we do, we'd have a fighting chance of pulling it off.
+- And I have to say, for the record, my favorite line from 'Without A Clue' is after Michael Caine pokes a dead body with a stick and announces to everyone, 'It is my opinion that this man is dead.'
+- I think what we do is fairly unique on 'Psych,' and we just have to keep doing that because that's what got us where we are.
+- I did nothing but theater until, I guess, '99. I was all the way through college the first time that I had stepped in front of a camera. And it's weird; it's definitely a transition.
+- It's impossible to make 22 or 16 great episodes every year. It doesn't matter who you are or how talented of a group you have.
+- As soon as I knew we were going to be doing tribute episodes, and as soon as I knew the landscape of 'Psych' allowed us to do homages, the show creator and I both had respective dreams. His was a musical episode, and mine was a 'Twin Peaks' episode.
+- I remember one night, my parents were out at a function of some kind and I had just gotten cable in my room. That was a big deal, and I saw 'Blue Velvet' on HBO. It blew my mind in a way that I don't think children's minds are supposed to be blown, but they probably shouldn't be watching 'Blue Velvet.'
+- I had just come off my third consecutive failed television series. I had sworn off doing TV for a while. I was going to go to New York, sublet an apartment, and find my soul again. Before I got on the plane, my agent sent me the script for 'Psych.' I read it on the plane and realised it had a lot of potential.
+- Anytime you're lucky enough to be on something that lasts longer than half a season, you never quite know what kind of life the show is gonna take on.
+- I would say I've actually done a lot more comedy than I've done drama. It's weird the way that worked out, because when I came out of theater school I took myself way too seriously, so it's kind of ironic that I ended up sort of going down the comedy path.
+- My father is Jaime Rodriguez from San Antonio, Texas, and I've got one whole half of my family that's Mexican through and through.
+- 'Psych' is a cult show, and anytime a show takes on a cult status, it means that the fans are a huge part of it.
+- 'Psych' was so many different things, and they evolved in so many different ways over the years, and towards the end there, we were barely solving mysteries anymore. We were just paying homage to our favorite movies, television shows, and bringing through as many '80s icons as we possibly could.
+- They just think I'm a white dude. Every once in a while someone thinks I'm Jewish. I get a lot of stuff, but never Latino.
+- I never had a thing for movie stars. I was into the guys who could transform. Sean Penn. Daniel Day-Lewis. The ones who privileged the craft.
+- 'Gremlins' is essential '80s comedy scary viewing.
+- Look at every show on television; it's derivative of another show that came before it. It was only a matter of time. So all you 'Mentalist' fans, it's okay to like the show, but don't be in denial of where it came from. Friday nights, U.S.A., basic cable-style baby.
+- When he came to television, there was no way I wasn't going to watch. Of course, he delivered everything that you would expect David Lynch to deliver, and more, and he was doing it in primetime network television. Even as a 14-year old, I wanted someone in the room with me that I could look over and say, 'Can you believe we're watching this?'
+- I get star-struck anytime I meet performers that I grew up watching and appreciating. I mean, it's still incredibly surreal to me that I was a kid in San Antonio watching movies and then now I'm working with some of the people that were in those movies. I don't think it'll ever stop being surreal on some level.
+- I always feel like I'm not very impressive in interviews when I talk about what I watch on television.
+- You do something, like, something like 'Psych' for long enough, it's tough to shake up people's preconceptions of who you are as a performer.
+- Leonardo Dicaprio didn't change his name, Emilio Estevez didn't change his name. But every case is different. I only have one reference of what my career was and I was very, very blessed and very, very lucky, and it got started very quickly after college. And I only know that by going with Roday.
+- I'm a sports fanatic. It's hard for me to commit to the weekly, episodic nature of television, so for me, anytime that I can put a game on, that's what I do.
+- Gallows humor is part of our coping mechanism. It's part of our grief process. If we don't know what else to do, we laugh. That's a very real thing.
+- I would say 'Gremlins,' 'Die Hard,' and 'Black Christmas' are all pretty good Christmas movies that aren't really about Christmas.
+- I can watch SportsCenter on a loop, like, five times in a row until my girlfriend is like, 'Seriously? It's the same highlights!' It just brings me peace, I think. Any kind of game - college basketball, college football, obviously anything pro.
+- Kids love watching adults act like children. It's that spirit they can relate to.

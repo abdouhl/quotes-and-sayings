@@ -1,0 +1,38 @@
++++
+author = "Joseph Rotblat"
+title = "Joseph Rotblat Quotes"
+quotes_len = "32"
+description = "the best 32 Joseph Rotblat Quotes"
++++
+- I did not imagine that the second half of my life would be spent on efforts to avert a mortal danger to humanity created by science.
+- The present basic philosophy is nuclear deterrence.
+- But scientists on both sides of the iron curtain played a very significant role in maintaining the momentum of the nuclear arms race throughout the four decades of the Cold War.
+- Let me remind you that nuclear disarmament is not just an ardent desire of the people, as expressed in many resolutions of the United Nations. It is a legal commitment by the five official nuclear states, entered into when they signed the Non-Proliferation Treaty.
+- All nuclear weapon states should now recognize that this is so, and declare - in Treaty form - that they will never be the first to use nuclear weapons. This would open the way to the gradual, mutual reduction of nuclear arsenals, down to zero.
+- But the first the general public learned about the discovery was the news of the destruction of Hiroshima by the atom bomb. A splendid achievement of science and technology had turned malign. Science became identified with death and destruction.
+- This is the reality of nuclear weapons: they may trigger a world war; a war which, unlike previous ones, destroys all of civilization.
+- There is no direct evidence that nuclear weapons prevented a world war. Conversely, it is known that they nearly caused one.
+- The Cold War is over but Cold War thinking survives.
+- At a time when science plays such a powerful role in the life of society, when the destiny of the whole of mankind may hinge on the results of scientific research, it is incumbent on all scientists to be fully conscious of that role, and conduct themselves accordingly.
+- So I ask the nuclear powers to abandon the out-of-date thinking of the Cold War period and take a fresh look. Above all, I appeal to them to bear in mind the long-term threat that nuclear weapons pose to humankind and to begin action towards their elimination.
+- The most terrifying moment in my life was October 1962, during the Cuban Missile Crisis. I did not know all the facts - we have learned only recently how close we were to war - but I knew enough to make me tremble.
+- Indeed, the whole human species is endangered, by nuclear weapons or by other means of wholesale destruction which further advances in science are likely to produce.
+- We are told that the possession of nuclear weapons - in some cases even the testing of these weapons - is essential for national security. But this argument can be made by other countries as well.
+- This means that the only function of nuclear weapons, while they exist, is to deter a nuclear attack.
+- Several studies, and a number of public statements by senior military and political personalities, testify that - except for disputes between the present nuclear states - all military conflicts, as well as threats to peace, can be dealt with using conventional weapons.
+- As for the assertion that nuclear weapons prevent wars, how many more wars are needed to refute this arguments? Tens of millions have died in the many wars that have taken place since 1945.
+- I have to bring to your notice a terrifying reality: with the development of nuclear weapons Man has acquired, for the first time in history, the technical means to destroy the whole of civilization in a single act.
+- My third appeal is to my fellow citizens in all countries: Help us to establish lasting peace in the world.
+- The time has come to formulate guidelines for the ethical conduct of scientist, perhaps in the form of a voluntary Hippocratic Oath.
+- Indeed, the very first resolution of the General Assembly of the United Nations - adopted unanimously - called for the elimination of nuclear weapons.
+- But the nuclear powers still cling tenaciously to their weapons.
+- Long before the terrifying potential of the arms race was recognized, there was a widespread instinctive abhorrence of nuclear weapons, and a strong desire to get rid of them.
+- Since the end of the Cold War two main nuclear powers have begun to make big reductions in their nuclear arsenals. Each of them is dismantling about 2,000 nuclear warheads a year.
+- I saw science as being in harmony with humanity.
+- The decision to use the atom bomb on Japanese cities, and the consequent buildup of enormous nuclear arsenals, was made by governments, on the basis of political and military perceptions.
+- To sum up, there is no evidence that a world without nuclear weapons would be a dangerous world. On the contrary, it would be a safer world, as I will show later.
+- If the militarily most powerful - and least threatened - states need nuclear weapons for their security, how can one deny such security to countries that are truly insecure? The present nuclear policy is a recipe for proliferation. It is a policy for disaster.
+- I appeal to my fellow scientists to remember their responsibility to humanity.
+- When the START 2 treaty has been implemented - and remember it has not yet been ratified - we will be left with some 15,000 nuclear warheads, active and in reserve. Fifteen thousand weapons with an average yield of 20 Hiroshima bombs.
+- The chief task was to stop the arms race before it brought utter disaster. However, after the collapse of communism and the disintegration of the Soviet Union, any rationale for having nuclear weapons disappeared.
+- From my earliest days I had a passion for science.

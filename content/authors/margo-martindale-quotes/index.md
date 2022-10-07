@@ -1,0 +1,37 @@
++++
+author = "Margo Martindale"
+title = "Margo Martindale Quotes"
+quotes_len = "31"
+description = "the best 31 Margo Martindale Quotes"
++++
+- So many actors who are really gifted and talented just don't get the opportunity. I happened to get that opportunity.
+- 'The Good Wife' was so unbelievably luxurious to step into.
+- And I love having the job to go to every week. With movies, there's a lot of downtime. I like working, and television really does that.
+- Let me just say, as I've gotten older, the parts have gotten better.
+- I love television because it's the most alive, because you don't know how it's going to end. It's a living thing. Sometimes the writers are watching you to see how things will unfold. Sometimes the writers have written it, and you come to it, and they have to change their way of going because of what you've done.
+- I've been very, very, very, very fortunate, and I'm very grateful for my career and that, at 60, I won an Emmy.
+- I am just so grateful for every single day, and if I could just not think past today, I would be living the life that I think God meant me to live.
+- I did a lot of commercials starting in about '75, yeah. Well, not 'a lot'; I never was a big old commercial gal, but I made a good living. I didn't immediately make 'a living' at commercials; the first year I made maybe a living was about '80. I had a great year in '85. I had a nice little supplement.
+- My favorite thing to do is just sit outside on the stoop and talk with all my neighbors. I can go out with curlers in my hair, and nobody blinks twice. It's just sad when people want to take a picture!
+- If you need things, you work harder to get them.
+- I'm gaga over Richard Jenkins.
+- I got my first professional job at Harvard, at the Loeb Drama Center, and I remember sitting on campus one day under a tree - I was doing 'Threepenny Opera.' I was reading a book, and the light caught me, and I thought, 'I want to be in the movies.'
+- Wine has class. I love wine. The drier, the better. But beer? I just can't do it.
+- I loved 'Dexter.' I loved the writing of 'Dexter.' I thought that was a brilliant show, and Michael C. Hall was just brilliant.
+- I am very musical. Am I a great singer? No. But I'm extremely musical.
+- I've always learned in show business: you take the job.
+- I love Kentucky people, but you have to get on the inside before they accept you.
+- I played Big Mama in 'Cat on a Hot Tin Roof' when I was 20 years old at the University of Michigan.
+- I had done plays all my life. Many, many, many plays, off-Broadway plays.
+- Texas people are very open, because it's open.
+- TV is the only thing that's really alive, because it's happening as you go. You don't know the end, so another day brings a new life to it. Unlike a play, unlike a movie, where you know the beginning, middle, and end.
+- I've been blessed to play these great parts that just open another door and another door, is I guess how it's worked.
+- I played an old woman in a wheelchair at 18.
+- When you're with a bunch of loud 20-year-olds, if you're on a movie and everybody is a lot younger than you and they want you to go to a club, I'm not very comfortable in that situation. I've been on movies when everybody goes out to some loud place. I don't know; I'm not comfortable.
+- I love just being at Lincoln Center - it's so New York! Those fountains!
+- In order for me to have fun, I have to be able to not be buttoned down.
+- I'm delighted with how my career unfolded.
+- I love Steve Harvey on 'Family Feud.' I love 'Antiques Roadshow' and 'Fixer Upper.' Anything that's mind-numbing.
+- I'm from East Texas, yes.
+- I honestly never turn on the television if I'm alone.
+- You can call me whatever you want to call me, just keep hiring me.

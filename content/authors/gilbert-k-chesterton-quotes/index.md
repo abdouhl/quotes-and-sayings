@@ -1,0 +1,148 @@
++++
+author = "Gilbert K. Chesterton"
+title = "Gilbert K. Chesterton Quotes"
+quotes_len = "142"
+description = "the best 142 Gilbert K. Chesterton Quotes"
++++
+- Never invoke the gods unless you really want them to appear. It annoys them very much.
+- I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+- If you do not understand a man you cannot crush him. And if you do understand him, very probably you will not.
+- Lying in bed would be an altogether perfect and supreme experience if only one had a colored pencil long enough to draw on the ceiling.
+- Men always talk about the most important things to perfect strangers. In the perfect stranger we perceive man himself; the image of a God is not disguised by resemblances to an uncle or doubts of wisdom of a mustache.
+- What affects men sharply about a foreign nation is not so much finding or not finding familiar things; it is rather not finding them in the familiar place.
+- A good novel tells us the truth about its hero; but a bad novel tells us the truth about its author.
+- Education is the period during which you are being instructed by somebody you do not know, about something you do not want to know.
+- Those thinkers who cannot believe in any gods often assert that the love of humanity would be in itself sufficient for them; and so, perhaps, it would, if they had it.
+- Happiness is a mystery, like religion, and should never be rationalised.
+- True contentment is a thing as active as agriculture. It is the power of getting out of any situation all that there is in it. It is arduous and it is rare.
+- We make our friends; we make our enemies; but God makes our next door neighbour.
+- A woman uses her intelligence to find reasons to support her intuition.
+- To be clever enough to get all that money, one must be stupid enough to want it.
+- Thieves respect property. They merely wish the property to become their property that they may more perfectly respect it.
+- Men feel that cruelty to the poor is a kind of cruelty to animals. They never feel that it is an injustice to equals; nay it is treachery to comrades.
+- A teacher who is not dogmatic is simply a teacher who is not teaching.
+- The poets have been mysteriously silent on the subject of cheese.
+- You can never have a revolution in order to establish a democracy. You must have a democracy in order to have a revolution.
+- There is a great deal of difference between an eager man who wants to read a book and the tired man who wants a book to read.
+- How you think when you lose determines how long it will be until you win.
+- A stiff apology is a second insult... The injured party does not want to be compensated because he has been wronged; he wants to be healed because he has been hurt.
+- The cosmos is about the smallest hole that a man can hide his head in.
+- New roads; new ruts.
+- It is as healthy to enjoy sentiment as to enjoy jam.
+- We call a man a bigot or a slave of dogma because he is a thinker who has thought thoroughly and to a definite end.
+- A new philosophy generally means in practice the praise of some old vice.
+- Buddhism is not a creed, it is a doubt.
+- There is a road from the eye to heart that does not go through the intellect.
+- The trouble with always trying to preserve the health of the body is that it is so difficult to do without destroying the health of the mind.
+- A man who says that no patriot should attack the war until it is over... is saying no good son should warn his mother of a cliff until she has fallen.
+- The perplexity of life arises from there being too many interesting things in it for us to be interested properly in any of them.
+- The whole object of travel is not to set foot on foreign land; it is at last to set foot on one's own country as a foreign land.
+- Tolerance is the virtue of the man without convictions.
+- One may understand the cosmos, but never the ego; the self is more distant than any star.
+- Marriage is an adventure, like going to war.
+- The whole order of things is as outrageous as any miracle which could presume to violate it.
+- Art consists of limitation. The most beautiful part of every picture is the frame.
+- When we were children we were grateful to those who filled our stockings at Christmas time. Why are we not grateful to God for filling our stockings with legs?
+- The mere brute pleasure of reading the sort of pleasure a cow must have in grazing.
+- When we really worship anything, we love not only its clearness but its obscurity. We exult in its very invisibility.
+- When it comes to life the critical thing is whether you take things for granted or take them with gratitude.
+- The honest poor can sometimes forget poverty. The honest rich can never forget it.
+- The Christian ideal has not been tried and found wanting; it has been found difficult and left untried.
+- Education is simply the soul of a society as it passes from one generation to another.
+- The poor have sometimes objected to being governed badly; the rich have always objected to being governed at all.
+- Coincidences are spiritual puns.
+- Happy is he who still loves something he loved in the nursery: He has not been broken in two by time; he is not two men, but one, and he has saved not only his soul but his life.
+- The object of a New Year is not that we should have a new year. It is that we should have a new soul and a new nose; new feet, a new backbone, new ears, and new eyes. Unless a particular man made New Year resolutions, he would make no resolutions. Unless a man starts afresh about things, he will certainly do nothing effective.
+- It is the test of a good religion whether you can joke about it.
+- And they that rule in England, in stately conclaves met, alas, alas for England they have no graves as yet.
+- If a thing is worth doing, it is worth doing badly.
+- Experience which was once claimed by the aged is now claimed exclusively by the young.
+- There is nothing the matter with Americans except their ideals. The real American is all right; it is the ideal American who is all wrong.
+- The true object of all human life is play. Earth is a task garden; heaven is a playground.
+- Tradition means giving votes to the most obscure of all classes, our ancestors. It is the democracy of the dead. Tradition refuses to submit to that arrogant oligarchy who merely happen to be walking around.
+- Science in the modern world has many uses; its chief use, however, is to provide long words to cover the errors of the rich.
+- The object of opening the mind, as of opening the mouth, is to shut it again on something solid.
+- The simplification of anything is always sensational.
+- All architecture is great architecture after sunset; perhaps architecture is really a nocturnal art, like the art of fireworks.
+- What people call impartiality may simply mean indifference, and what people call partiality may simply mean mental activity.
+- Do not free a camel of the burden of his hump; you may be freeing him from being a camel.
+- Without education we are in a horrible and deadly danger of taking educated people seriously.
+- Ritual will always mean throwing away something: destroying our corn or wine upon the altar of our gods.
+- The only way to be sure of catching a train is to miss the one before it.
+- One sees great things from the valley; only small things from the peak.
+- Compromise used to mean that half a loaf was better than no bread. Among modern statesmen it really seems to mean that half a loaf; is better than a whole loaf.
+- Journalism largely consists of saying 'Lord Jones is Dead' to people who never knew that Lord Jones was alive.
+- I was planning to go into architecture. But when I arrived, architecture was filled up. Acting was right next to it, so I signed up for acting instead.
+- There is no such thing on earth as an uninteresting subject; the only thing that can exist is an uninterested person.
+- Man is an exception, whatever else he is. If he is not the image of God, then he is a disease of the dust. If it is not true that a divine being fell, then we can only say that one of the animals went entirely off its head.
+- A yawn is a silent shout.
+- The traveler sees what he sees, the tourist sees what he has come to see.
+- It is not funny that anything else should fall down; only that a man should fall down. Why do we laugh? Because it is a gravely religious matter: it is the Fall of Man. Only man can be absurd: for only man can be dignified.
+- With any recovery from morbidity there must go a certain healthy humiliation.
+- The paradox of courage is that a man must be a little careless of his life even in order to keep it.
+- Democracy means government by the uneducated, while aristocracy means government by the badly educated.
+- Some men never feel small, but these are the few men who are.
+- An adventure is only an inconvenience rightly considered. An inconvenience is only an adventure wrongly considered.
+- Chastity does not mean abstention from sexual wrong; it means something flaming, like Joan of Arc.
+- We are justified in enforcing good morals, for they belong to all mankind; but we are not justified in enforcing good manners, for good manners always mean our own manners.
+- A radical generally meant a man who thought he could somehow pull up the root without affecting the flower. A conservative generally meant a man who wanted to conserve everything except his own reason for conserving anything.
+- The vulgar man is always the most distinguished, for the very desire to be distinguished is vulgar.
+- Journalism is popular, but it is popular mainly as fiction. Life is one world, and life seen in the newspapers is another.
+- Youth is the period in which a man can be hopeless. The end of every episode is the end of the world. But the power of hoping through everything, the knowledge that the soul survives its adventures, that great inspiration comes to the middle-aged.
+- The present condition of fame is merely fashion.
+- The only defensible war is a war of defense.
+- Don't ever take a fence down until you know why it was put up.
+- Let your religion be less of a theory and more of a love affair.
+- Art, like morality, consists in drawing the line somewhere.
+- Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men.
+- Man does not live by soap alone; and hygiene, or even health, is not much good unless you can take a healthy view of it or, better still, feel a healthy indifference to it.
+- The way to love anything is to realize that it may be lost.
+- A man does not know what he is saying until he knows what he is not saying.
+- In matters of truth the fact that you don't want to publish something is, nine times out of ten, a proof that you ought to publish it.
+- The man who throws a bomb is an artist, because he prefers a great moment to everything.
+- An inconvenience is an adventure wrongly considered.
+- Drink because you are happy, but never because you are miserable.
+- Love means to love that which is unlovable; or it is no virtue at all.
+- The ordinary scientific man is strictly a sentimentalist. He is a sentimentalist in this essential sense, that he is soaked and swept away by mere associations.
+- The family is the test of freedom; because the family is the only thing that the free man makes for himself and by himself.
+- People generally quarrel because they cannot argue.
+- There are no rules of architecture for a castle in the clouds.
+- White... is not a mere absence of colour; it is a shining and affirmative thing, as fierce as red, as definite as black... God paints in many colours; but He never paints so gorgeously, I had almost said so gaudily, as when He paints in white.
+- The word 'good' has many meanings. For example, if a man were to shoot his grandmother at a range of five hundred yards, I should call him a good shot, but not necessarily a good man.
+- The most dangerous criminal now is the entirely lawless modern philosopher. Compared to him, burglars and bigamists are essentially moral men.
+- Nothing is poetical if plain daylight is not poetical; and no monster should amaze us if the normal man does not amaze.
+- The only way of catching a train I have ever discovered is to miss the train before.
+- 'My country, right or wrong' is a thing no patriot would ever think of saying except in a desperate case. It is like saying 'My mother, drunk or sober.'
+- Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long; and the age of the great epics is past.
+- Brave men are all vertebrates; they have their softness on the surface and their toughness in the middle.
+- The fatal metaphor of progress, which means leaving things behind us, has utterly obscured the real idea of growth, which means leaving things inside us.
+- Literature is a luxury; fiction is a necessity.
+- If I had only one sermon to preach it would be a sermon against pride.
+- Half a truth is better than no politics.
+- All slang is metaphor, and all metaphor is poetry.
+- Music with dinner is an insult both to the cook and the violinist.
+- I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
+- The greenhorn is the ultimate victor in everything; it is he that gets the most out of life.
+- Being 'contented' ought to mean in English, as it does in French, being pleased. Being content with an attic ought not to mean being unable to move from it and resigned to living in it; it ought to mean appreciating all there is in such a position.
+- The aim of life is appreciation; there is no sense in not appreciating things; and there is no sense in having more of them if you have less appreciation of them.
+- Man seems to be capable of great virtues but not of small virtues; capable of defying his torturer but not of keeping his temper.
+- The Bible tells us to love our neighbors, and also to love our enemies; probably because generally they are the same people.
+- Women prefer to talk in twos, while men prefer to talk in threes.
+- I regard golf as an expensive way of playing marbles.
+- People who make history know nothing about history. You can see that in the sort of history they make.
+- The purpose of Compulsory Education is to deprive the common people of their commonsense.
+- No man who worships education has got the best out of education... Without a gentle contempt for education no man's education is complete.
+- A puritan is a person who pours righteous indignation into the wrong things.
+- All conservatism is based upon the idea that if you leave things alone you leave them as they are. But you do not. If you leave a thing alone you leave it to a torrent of change.
+- It isn't that they can't see the solution. It is that they can't see the problem.
+- Let a man walk ten miles steadily on a hot summer's day along a dusty English road, and he will soon discover why beer was invented.
+- If I can put one touch of rosy sunset into the life of any man or woman, I shall feel that I have worked with God.
+- Cruelty is, perhaps, the worst kid of sin. Intellectual cruelty is certainly the worst kind of cruelty.
+- Courage is almost a contradiction in terms. It means a strong desire to live taking the form of readiness to die.
+- I've searched all the parks in all the cities and found no statues of committees.
+- Artistic temperament is the disease that afflicts amateurs.
+- There is but an inch of difference between a cushioned chamber and a padded cell.
+- A businessman is the only man who is forever apologizing for his occupation.
+- Large organization is loose organization. Nay, it would be almost as true to say that organization is always disorganization.
+- And when it rains on your parade, look up rather than down. Without the rain, there would be no rainbow.
+- I owe my success to having listened respectfully to the very best advice, and then going away and doing the exact opposite.

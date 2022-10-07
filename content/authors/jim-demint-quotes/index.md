@@ -1,0 +1,79 @@
++++
+author = "Jim Demint"
+title = "Jim Demint Quotes"
+quotes_len = "73"
+description = "the best 73 Jim Demint Quotes"
++++
+- I like to be a strategic policy guy.
+- I don't think we need to extend unemployment any further without paying for it, and without making some modifications such as turning it into a loan at some point. It then encourages people to go back to work.
+- I have been on shop floors. I have talked to a lot of the companies that create jobs in South Carolina and across the country. And what they want is less regulation.
+- Something happens to me when someone says, 'You can't.' I'm generally not very competitive; unless someone tells me I can't do something that should be done.
+- It has always been my plan not to serve more than two terms.
+- Marriage is a religious and state issue.
+- Motorists who want to save money on gas will demand and buy more fuel-efficient vehicles. We should not limit their freedom with more government regulations.
+- I can tell you if you look at the polls, Democrats, Republicans, Independents, they do not think we should increase the debt limit.
+- Forget the consultants, the pundits and the pollsters; good policy is good politics.
+- I have no plans to run for president.
+- Since the dawn of time, traditional marriage - the union between one man and one woman - has been the building block of civilization, and at no point in our nation's history has that foundation been under more severe attack than now.
+- I believed the only thing that could turn around this government spending and mounting debt would be if the people rose up.
+- The Democrats have essentially decided to move more toward central power, control of just about every aspect of our culture and economy.
+- So, the point I'm making is, we are not going to cut spending in Washington if we think it's the job of every congressman and senator is to pave local parking lots and build local sewer plants. These parochial interests are getting in the way of the national interests.
+- Republicans are the only one who can carry the banner of what I think millions of Americans are saying.
+- I've developed a lot of reform proposals myself and been accused of trying to destroy Social Security, when the whole point was to try to save it. I think most people know that Social Security is bankrupt.
+- Frankly, if independents and Democrats want to work with us on conservative ideas, I can do that better at Heritage than as a partisan inside.
+- We have this kind of revolving door, we don't have a permanent class of millionaires in America like a lot of other countries.
+- The Tea Party doesn't like politicians.
+- The debate in the Republican Party needs to be between libertarians and conservatives.
+- The problem we've got now in Washington is that the goals are completely the opposite from each other.
+- I'm a conservative first, and I believe that, if we do a better job of helping Americans understand what we're trying to do, to showcase every place in the country that our ideas are working at the state level, that that will help those at the federal level who want to carry those policies.
+- I don't even like playing a contentious role.
+- I'm not a kingmaker.
+- If we want to secure the best jobs in the future, we must make America the best place in the world to do business.
+- Well, I'm not trying to get rid of the unions, but I am saying that they appear to be an antiquated concept in today's economy.
+- I know I was a businessman for years, and I stayed up countless nights worrying about having to let one person go. It's a terrible thing to do.
+- If a person wants to be publicly gay, they should not be teaching in the public schools.
+- I would support a devolution of power out of Washington for education, health care, transportation.
+- I'm humbled to follow in the footsteps of Ed Feulner, who built the most important conservative institution in the nation. He has been a friend and mentor for years and I am honored to carry on his legacy of fighting for freedom.
+- I don't have the support inside Washington or even inside my own party.
+- I want to find the candidates who understand the principles of American exceptionalism and have the character, the courage, and the confidence to actually lead the greatest nation in the world.
+- I drive Fords, and I've driven American cars all my life, and I want to have a strong American manufacturing sector, especially in automobiles.
+- What happens in the Senate is the Republicans sink to the lowest common denominator.
+- We need comprehensive reform that will make America the best place in the world to invest and do business.
+- You've got the Democratic Party that now depends on more government spending and actual building the dependence on government in order to increase their political party.
+- I just want people to know that if they want to change the direction of the country, they can do it, but only if they're active, informed, and engaged.
+- Today is a celebration of hope for the Iraqi people. The Iraqi people can now take control of their government and their future by creating a society that protects the rights endowed to us by our creator - life, liberty and freedom.
+- The hope and change the Democrats had in mind was nothing more than a retread of the failed and discredited socialist policies that have been the enemy of freedom for centuries all over the world. I fear America is teetering towards tyranny.
+- We know from our own history that democratic institutions take decades to mature, and we know from past conflicts that freedom is not free.
+- Compromise works well in this world when you have shared goals.
+- Sometimes people credit me for the Tea Party. It's actually the other way around.
+- If we become too scared to confront the chief problems of our time, there is no hope of ever solving them.
+- We must now make clear to Lebanon that it will not benefit from U.S. assistance and support as long as it harbors this brutal terrorist and murder.
+- Heritage will remain, first and foremost, a research institute dedicated to impeccable research and data-driven policy analysis.
+- As more people rely on government programs, the harder it becomes to conduct the necessary reforms to preserve them to help our society's most vulnerable.
+- If you remember you just have one constituent, and that's God himself, and if you try to please him I think you usually come with a lot steadier pace and a lot more peace in your life.
+- I'm getting optimistic. I think, as I talk to people around the country - they seem to get it. They want a return to those things that made America different and great.
+- I don't have many litmus tests, but this is one: Any candidate who doesn't understand that we need to balance the budget should not be president of the United States.
+- I'm never going to rule anything out in life, because most of what I'm doing now, I never intended to do.
+- I play the guitar a little bit.
+- I'd like to see a Republican Party that embraces a lot of the libertarian ideas.
+- We have been blessed with a healthy, growing economy, with more Americans going back to work, and with our Nation acting as a positive force for good in the world.
+- American businesses and upper incomes pay a larger portion of the federal taxes of our national taxes than any country in the world.
+- Anyone who says the Republicans have been irresponsible aren't looking at the facts.
+- I went through two pretty dark years being fed up with the system and frustrated with my own party after two disastrous elections in 2006 and 2008.
+- Well, we lost a lot of our independence already. We are dependent on China for credit. We are dependent on Middle Eastern countries for energy supplies. And many Americans are dependent on the government for their income, health care, education of their children, food stamps.
+- I don't need to be asking for money for local museums and other projects just to make me look good back home.
+- Ideas are more powerful than people.
+- The message is pretty clear: Americans are sick and tired of the doubletalk coming out of Washington, of us going home and saying we're conservative and then coming up here and voting for 10,000 earmarks. We can't fool America anymore; the media is too good. They're reporting what we're really doing.
+- It doesn't make sense to have to do the wrong thing in order to do the right thing.
+- Well, one of the most important things for Americans to be reminded of is that a lot of the exceptional nature of our country is founded in Judeo-Christian values that promotes individualism, personal responsibility, a strong work ethic, and a commitment to family, charity.
+- First of all, no candidate is going to win by catering to the alleged Occupy Wall Street vote.
+- Well, purity - there's no purity in politics.
+- A free and stable Iraq will be a shining light against the shadow of Islamic extremism.
+- California is going to take themselves off the cliff culturally and economically, fiscally. They are going to be at the trough in Washington wanting a bailout.
+- I think people are confused about what the Tea Party is. I mean, they were a broad cross-section of Americans who came together concerned about our debt and our spending. And they're interested in constitutional, limited government. And so they're not one group of people. They're thousands of small groups all over the country.
+- You could accuse Republicans of a lot of things, but you could never convict us of being too conservative!
+- What we need is some people to stand up with the courage of their convictions, to do what they promised when they ran for election, and fight to stop Obamacare.
+- From a policy standpoint, the Judeo-Christian principles are important.
+- One of the greatest titles in the world is parent, and one of the biggest blessings in the world is to have parents to call mom and dad.
+- I don't think Obama will get re-elected.
+- The Heritage Foundation is the premier think tank, research organization. The premier idea group for the conservative movement.

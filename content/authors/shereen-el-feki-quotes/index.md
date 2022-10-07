@@ -1,0 +1,29 @@
++++
+author = "Shereen El Feki"
+title = "Shereen El Feki Quotes"
+quotes_len = "23"
+description = "the best 23 Shereen El Feki Quotes"
++++
+- Fulla is the Arab world's answer to Barbie. Now, according to proponents of the clash of civilizations, Barbie and Fulla occupy these completely separate spheres. They have different interests. They have divergent values. And should they ever come in contact... well, I've got to tell you, it's just not going to be pretty.
+- Egypt, once a melting pot of peoples, classes, cultures and religions, has, after 30 years of Mubarak's rule, become a place of intolerance and distrust of the other.
+- Where you criminalize people living with HIV or those at greatest risk, you fuel the epidemic.
+- 4Shbab has been dubbed Islamic MTV. Its creator, who is an Egyptian TV producer called Ahmed Abu Haiba, wants young people to be inspired by Islam to lead better lives. He reckons the best way to get that message across is to use the enormously popular medium of music videos. 4Shbab was set up as an alternative to existing Arab music channels.
+- In Egypt, where my research is focused, I have seen plenty of trouble in and out of the citadel. There are legions of young men who can't afford to get married, because marriage has become a very expensive proposition. They are expected to bear the burden of costs in married life, but they can't find jobs.
+- Social change doesn't happen in the Arab region through dramatic confrontation, beating, or indeed, baring of breasts, but rather through negotiation.
+- Throughout its history, Islam has borrowed and adapted from other civilizations, both ancient and modern.
+- The patriarchy is alive and well in Egypt and the wider Arab world. Just because we got rid of the father of the nation in Egypt or Tunisia, Mubarak or Ben Ali, and in a number of other countries, does not mean that the father of the family does not still hold sway.
+- HIV brings out the best and the worst in humanity, and the laws reflect these attitudes.
+- My mother's family is Christian: her father was a Baptist lay preacher, and her brother, in a leap of Anglican upward mobility, became a vicar in the Church of Wales. But my mother converted to Islam on marrying my father. She was not obliged to; Muslim men are free to marry ahl al-kitab, or people of the Book - among them, Jews and Christians.
+- We were the outliers: my mother was the only Western woman (khawagayya, in Egyptian Arabic) to have married into the family, and during my childhood, we were the only members living outside of Egypt. So between my father's prestige as the eldest son and my own exotic pedigree, I basked in the spotlight.
+- Where I work, in the Arab region, people are busy taking up Western innovations and changing them into things which are neither conventionally Western, nor are they traditionally Islamic.
+- Laws that treat people living with HIV or those at greatest risk with respect start with the way that we treat them ourselves: as equals. If we are going to stop the spread of HIV in our lifetime, then that is the change we need to spread.
+- The patriarchy is alive and well in Egypt and the wider Arab world.
+- Now there are laws in many parts of the world which reflect the best of human nature. These laws treat people touched by HIV with compassion and acceptance. These laws respect universal human rights and they are grounded in evidence.
+- Part of my job at 'The Economist' was writing about HIV, and that included the grim task of reporting on the state of the global epidemic.
+- Some countries have good laws, laws which could stem the tide of HIV. The problem is that these laws are flouted. Because stigma gives unofficial license to treat people living with HIV or those at greatest risk unlike other citizens.
+- I'm Egyptian and Muslim, but I grew up in the West, far from my Arab roots. I began 'Sex and the Citadel' to help outsiders - like myself - to better comprehend this pivotal part of the world, up-close and personal.
+- If you really want to know yourself, start by writing a book.
+- Civil society must be strengthened to help raise awareness among people living with HIV, and those at risk, of their rights, and to ensure they have access to legal services and redress through the courts.
+- Although I was raised in Canada and the U.K., my roots are in Egypt through my father, in a family line that stretches back generations and runs along the Nile, from the concrete of Cairo to the coast of Alexandria.
+- Growing up, I came to love Egypt and respect Islam, but I never thought to go beyond the surface. Back in Canada, many of my father's Egyptian friends questioned his decision not to raise his only child more strictly in the faith. I was not taught salat, the Muslim ritual of prayer, nor did I study Arabic.
+- I'm half Egyptian, and I'm Muslim. But I grew up in Canada, far from my Arab roots. Like so many who straddle East and West, I've been drawn, over the years, to try to better understand my origins.

@@ -1,0 +1,29 @@
++++
+author = "Gary Neville"
+title = "Gary Neville Quotes"
+quotes_len = "23"
+description = "the best 23 Gary Neville Quotes"
++++
+- One year's poor form remains a blip but if it happens next year, you can say it's a trend.
+- In my 20 years in football, I was fortunate enough never to have experienced relegation. And while there is the pressure of expectations at the top of the league, at the bottom it comes in fear and trepidation, which is almost worse.
+- It will be a difficult couple of days. It's difficult now and it will be difficult tomorrow.
+- There are some agents who do a good job looking after players but there are others who stifle and mollycoddle them.
+- The best managers out there at the moment are Pep Guardiola and Jose Mourinho but they are at other clubs - Real Madrid and Barcelona.
+- We live in a multi-cultural society far more open to international ideas. If you'd told me 20 years ago I'd drive through Bury and see someone sitting outside a cafe drinking a latte, I'd have laughed. In fact, I wouldn't have even known what a latte was.
+- We have to win that game. But we have to win every game, that's the way it's always been.
+- Nothing improves your confidence and brings a team together more than winning a cup.
+- I developed a mechanism so that whatever mistakes I made, I would bounce straight back. Whatever was happening off the pitch, I could put it to one side and maintain my form. Call it mental resilience or a strong mind, but that is what we mean when we talk about experience in a football team.
+- Playing for England was one long roller-coaster: some ups and downs, but also quite a few moments when you're not really sure if you're enjoying the ride.
+- For sportsmen or women who want to be champions, the mind can be as important, if not more important, than any other part of the body.
+- I would have been about seven years old when the formative years of my competitive football education began. I was playing in the local leagues around Manchester, playing against lads from tough areas who had been taught they had to fight for everything.
+- It is one of my pet hates when I see players who have agents who do everything for them. They don't know how to set up their own bank accounts, they don't know what they are spending their money on and they can't make their own decisions.
+- I have been a Manchester United fan all my life and fulfilled every dream I've ever had. I am disappointed that my playing days are at an end. However, it comes to us all and it's knowing when that time is and for me that time is now.
+- Ryan Giggs will go down as the most successful British footballer of all time and I cannot see anyone ever overtaking him. He's on the brink of his 13th league title, after all.
+- There are lots of concerns facing English football but for me the major one is the way in which football clubs are run by owners, whether they are growing organically and sustainably and how that is being policed by the football authorities.
+- A collection of strong-minded individuals who have learned how to dismiss mistakes, disappointments and problems in their personal life make up a strong team. If the majority of the team have that then, as a unit, you are almost impossible to beat.
+- When I was a child, the FA Cup was one of the crown jewels of the sporting year, along with the Grand National, Wimbledon and The Open. But with every announcement it seems to lose another piece of its identity. First it was sponsors added to the name, followed by the semi-finals at Wembley.
+- As football gets more globalised, it's probably more important than ever to have one or two players in your team who have grown up in the same streets or been to the same schools as the hard-core fans.
+- A coach once told me there are four factors that determine a players' performance: his tactical awareness, his physical condition, his technical ability and his mental strength.
+- There have been times when I've reflected on my international career and just thought: 'Well that was a massive waste of time.' Sorry for sounding sour, but my best mate, David Beckham, got butchered after the World Cup in 1998, then my brother, Phil, after Euro 2000.
+- With good coaching, proper motivation and the right club structure with organic growth, you can achieve an awful lot in football.
+- Something interesting has happened over the last 10 years in the Premier League. Players who once would have been discarded as expensive and too old have become important parts of title-winning squads.

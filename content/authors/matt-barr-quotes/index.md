@@ -1,0 +1,14 @@
++++
+author = "Matt Barr"
+title = "Matt Barr Quotes"
+quotes_len = "8"
+description = "the best 8 Matt Barr Quotes"
++++
+- I think all of the secrets of the universe are revealed in history. We understand who we are by understanding where we've been and why we are the way we are, and where we come from.
+- Years go by, but the heart of what we all fight and die for at the core is the same. We fight and die for love and our family and our land and for what's ours. We do things for something as simple as pride.
+- I'm really low maintenance when it comes to my clothes and what I wear. I definitely take care of my body, not so much for how I look, but I just like the feel of exercising and being healthy and having energy. That's why I work out all the time.
+- Food is a huge passion of mine, and because I want to eat whatever I want, I run every morning, and then I do weights a few times a week. It's just how I can balance eating pancakes in the morning, a big burger for lunch, and then a fat steak and cheesecake at night.
+- I'm not really a computer guy. It's like recess. I'd rather be outside getting dirty in the sandbox.
+- 'The Notebook' wrecks me! I cry like a 6-year-old girl at the end.
+- My sister was drowning in the ocean once, and my brother and I dove in and saved her. True story. She owes us her life. It's great leverage; we abuse it all the time!
+- I don't know if it's that the scripts are evolving or just that I'm getting older, but the characters become more interesting as you get older because you've lived more life at different stages. You've loved; you've lost; you have more of that journey.

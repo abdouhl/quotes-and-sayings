@@ -1,0 +1,106 @@
++++
+author = "Michael Ballack"
+title = "Michael Ballack Quotes"
+quotes_len = "100"
+description = "the best 100 Michael Ballack Quotes"
++++
+- I played in the Champions League constantly for 12 or 13 years in my career, and I reached only two finals. I know how difficult it is to get to that point.
+- I think if you play for Chelsea you have to deal with the pressure, everybody knows the expectations.
+- Of course there should be training sessions open to the public, but not always.
+- I hope that people will remember me as a special footballer.
+- I would have loved to have had a farewell match, and would have wanted the DFB to make that offer. But certain people did not plan that for me. I have to accept that.
+- There must be some tensions in a team, which you can't always wipe away or smooth over.
+- When evaluating the players, too little emphasis is placed on the individual. Reaction times are measured, stress situations are simulated, sleep behaviour is analysed, eating behaviour, how the body reacts - everything is available. The control over the players has got out of hand. They are judged on this data, albeit subjectively. That's madness.
+- As it is, in football if you are on top and winning games everyone wants to play well against you, put in more effort and beat you.
+- If too much harmony dominates, then aggression can get lost.
+- Italian teams are difficult to beat even if they play away.
+- I like Daniel Sturridge a lot after playing with him at Chelsea.
+- Everybody has to play for their team and accept his role, even if you are in a defensive position sometimes. That is the key if you want to have success.
+- I wanted to go outside of Germany and I saw English football as a big, big challenge.
+- For 17 years, I played at the highest level.
+- At 36 years old I can look back on a long and wonderful time in professional football, which I could never have dreamed of as a child.
+- People have weaknesses, we should accept it.
+- That's what counts for you as a player if you are on a high salary and you are earning, let's say, enough money, which you normally can't spend in your lifetime. It's something you should really think about - where you play, what level you play, the audience.
+- You love what you do but it's still a job and you are limited in the time to earn money and you think about it if someone makes you a crazy offer.
+- A player can't request on what position he wants to play, and it is the same with the captaincy. One should respect this, there are hierarchies.
+- Ancelotti showed in the past, that he can work with different teams and different players.
+- You need a certain amount of inner aggression, a bit of anger about you and the others in order to give your maximum.
+- The main reason to come to England and Chelsea was to play with a great team. Money and the chance to live in a city like London are additional factors.
+- Football is not always harmonious.
+- When I see Mario Gotze, his development does not go in the right direction. He has outstanding qualities, but he has not reached his potential for whatever reason. His charisma is not so good, fellow players, coaches, fans and the media do not feel that he is fighting against his current situation. He's more an introvert player.
+- We should integrate the quality of ex-players at the highest level more in football, especially in the youth sector. That is absolutely crucial for me.
+- Football in Europe is No. 1 - that is what everyone watches because the best players in the world compete in this area.
+- I played at the highest level throughout my career and I'm happy about that.
+- I think that's the philosophy of all top teams - to educate young, top players and to give them the possibility to play.
+- When you're young it's football, football, football. Then you get a family, kids come into things and you find you have a broader view of life. You get your inspiration from many different places.
+- If you are a top player in England, the cult around you is bigger than in Germany.
+- Germany is a nation which must always win.
+- Of course, you want to win something and be as successful as possible as an individual player. It is normal to look around and think, 'With what club can I achieve that with?'
+- Very good players have no problem moving to a different country.
+- We will give everything for the FA Cup, Champions League and Premier League.
+- I don't want to look back on my career at some point and say, 'What a pity, I came close a few times, but it was never good enough.'
+- I was able to turn my hobby into my profession, and I am thankful for that. But I have other interests beside football, and I can devote my time to them now.
+- When you're 29 and you've already got family, it's important that they feel comfortable.
+- Chelsea is an ambitious club and it will always be possible that a coach and the players are competitive at the highest level.
+- When I moved to Chelsea, it was a big, big challenge and experience for me at the time to play with so many good players.
+- You always need time to adapt to a new manager. But in football if you don't get a result, you are under pressure.
+- It is something very special when you can win a league title, because it is the one that you play all year for.
+- Players sometimes don't want to have this heavy weight on their shoulders to carry the team or to get asked in certain situations to have that responsibility.
+- Football is not about possession or playing a nice passing game. Football is about winning games.
+- Of course, South Americans are different from Europeans; I knew that when we played them.
+- It is not about the system, it is about how individuals perform on the pitch and whether they do the right things, so it is not as simple as just picking a system.
+- As German players we have something special inside us, because of our football history. We know we have to win, it is what is expected, so we have a good focus.
+- I can imagine finishing my career at Chelsea.
+- A team can have quality but it's also about personality and how they can grow.
+- I was able to play for and captain my country.
+- Sure, Mourinho was obviously crucial for my move to Chelsea.
+- I want to prove myself at Chelsea and be successful in the Premiership and the Champions League.
+- At Bayern you need other characteristics to assert yourself. Just being good is not enough there.
+- I am always open to new ideas, but you can't always be right.
+- Pogba is a great talent.
+- It is really difficult, after Jose Mourinho, to work at Chelsea. It could cause a problem for any manager because Mourinho had such a relationship with the players and the fans.
+- The first league game always feels different from the pre-season friendlies.
+- With a coach like Mourinho, it's probably easier for a club to get top stars.
+- In the summer, during the holidays, there would be 5,000 people each day at training with Bayern Munich and that makes it hard to concentrate.
+- In football, if you have a big break after a disappointment you can stew on things, and that hurts you.
+- It's good for your career as a sportsman if you watch other professional sports - how they're behaving and how they react in difficult situations.
+- London is a brilliant city.
+- If you want to work as a coach for longer term you need consistency, trust in the club and also the environment around the club.
+- Playing for Chelsea I have to be more ruthless than in the German team, where I have managed to earn myself a different status over the years.
+- Sometimes a new coach can find it not easy.
+- To pass on your ideas and have an influence on a team really interests me.
+- Chelsea have given me the opportunity to play in a top team with top players, so I will try to be as successful as possible here.
+- Of course Lothar Matthaus is always going to be associated with the 1990 World Cup. But does everyone immediately remember what titles Gunter Netzer, Johan Cruyff or Luis Figo won? Or do they also think about how those players played their football and how they led their teams?
+- I have said in the past that I would be happy to see out my career at Chelsea. I moved here to play in the best league in the world with one of the strongest teams.
+- The Premier League is a different kind of league, in terms of physical play.
+- I am happy to play in the Premier League. It's a competition which encourages players to give only their very best week in, week out and you have to be 100%.
+- We have to focus on ourselves and if we play the best we can we can win the league.
+- I had a great career. But not to win a big international title is also part of my career.
+- Mario Gotze is a great player, but one of my favourites is Marco Reus, who is a fantastic player, and one of the very best.
+- It's always disappointing to lose a final.
+- You want to win everything possible and you try it every year, but you can't win everything, we know this as well but we have to play good football, we have to get the best of our team.
+- Titles are sometimes overrated.
+- We know the history of players at Real Madrid and things are not easy at that club.
+- As soon as I knew I was leaving Chelsea, our first thought was to return to Germany.
+- I've always reflected on the game.
+- Football has never been about young or old players - it is about good or bad players. If you're 13 or 31 and good enough, you're not too young or old.
+- I did not win anything at Leverkusen so to win six titles in four years with Bayern shows the move was worthwhile.
+- It was a privilege to work with world-class coaches and fantastic players.
+- When you a buy a player like Ozil, you know his strengths and Arsene Wenger knows, I think, where he is at his best.
+- A lot of things have to come together to win a World Cup.
+- Mesut is an amazing player.
+- I've had a few injuries and if you can't carry on, that's always a bad sign. Sometimes it's bruising or sometimes it's a nerve that stops you.
+- Experienced national players deserve at least some respect and loyalty.
+- Things aren't always full of sunshine, there has to be friction at times as well.
+- In training, for example, when you feel your position on the team is in danger then you have to be fully focused.
+- I was on the lucky side of life.
+- In 2006 I ended up at Chelsea on a free transfer, so Bayern did not see a euro for me.
+- You don't step back and have less motivation when you get older, the opposite is true. You become more focused, more professional in terms of things like looking after your body and more determined because you can see all the younger players coming up, looking for your place.
+- I didn't join Chelsea to lose things. I came because the Premier League is the strongest in the world and I am playing for one of the strongest teams.
+- When you are not winning, the coach is more or less the weakest person in the team who can be replaced.
+- Sometimes you can lose games unluckily or the other team is better than you and has a great day as well. That can happen in football.
+- Having 18 or 20 class players is a luxurious problem, and it doesn't mean that you have to play them all.
+- I had a lot of emotional days at Chelsea, some that did not really end well, especially in the Champions League.
+- I've learned to adapt to the pace of the English game and a different style of football in the Premier League.
+- The coach is the first person who is under pressure but when a new manager comes you should give him time.
+- Winning the league is one thing but for me it was always the dream to win the Champions League.

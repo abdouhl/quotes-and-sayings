@@ -1,0 +1,30 @@
++++
+author = "Jeffrey R. Immelt"
+title = "Jeffrey R. Immelt Quotes"
+quotes_len = "24"
+description = "the best 24 Jeffrey R. Immelt Quotes"
++++
+- There is no real magic to being a good leader. But at the end of every week, you have to spend your time around the things that are really important: setting priorities, measuring outcomes, and rewarding them.
+- When you take over a company like GE, you think you're going to visit 100 businesses. You're going to go see the factories you haven't seen before. You're going to see a site in Texas and one in Canada and stuff like that. That has fallen by the wayside.
+- President Obama has asked me to chair his new President's Council on Jobs and Competitiveness.
+- Is France a completely open market to G.E.? No, of course not. I think we're more discerning about China because it's China, and they're big, and they're more concerning. But the best global companies are ones that are nuanced.
+- I think we should have basically the same tax policy that Germany, Japan, the U.K., everybody else has, which is a tax rate in the mid-20s and no loopholes. Zero. The U.S. has the most antiquated tax system. And that means some people are going to pay more taxes, and some people are going to pay less.
+- I think that if you run a big company, you've got to, four or five times a year, just say, 'Hey team, look, here's where we're going.' If you do it 10 times, nobody wants to work for you. If you do it zero times, you have anarchy.
+- Every leader needs to clearly explain the top three things the organization is working on. If you can't, then you're not leading well.
+- I have learned that nothing is certain except for the need to have strong risk management, a lot of cash, the willingness to invest even when the future is unclear, and great people.
+- I'd be lying if I didn't say there were days when I went back and said, 'I wish I'd done this. I should have done that. I handled this the wrong way.' But it's always in the motivation of getting better. I've never once looked in the mirror and said, 'Oh boy, can't do this one.'
+- As one of America's largest exporters, GE remains committed to producing more products in the United States, which is our home and largest market.
+- You can stay too long in a job, that's for sure. But by the same token, in the 12 years I have been CEO of GE, there have been four CEOs of Toshiba. So there's too short a time to do it, and there's too long a time to do it.
+- Many bought into the idea that America could go from a technology-based, export-oriented powerhouse to a services-led, consumption-based economy - and somehow still expect to prosper. That idea was flat wrong. Our economy tilted instead toward the quicker profits of financial services.
+- September 11 was horrific, but I've been through enough crises before that I had my own pattern as to how to collect facts, what a leader should do, how to communicate with people, how to set up operating mechanisms to work our way through it.
+- Enron and 9/11 marked the end of an era of individual freedom and the beginning of personal responsibility.
+- I'm a complete globalist. I think like a global CEO. But I'm an American. I run an American company. But in order for GE to be successful in the coming years, I've gotta sell my products in every corner of the world.
+- The one thing that people don't get about GE is that, to the people who work here, it's not a company. It's not just a job. You feel like you're part of a 120-year-old ever-growing, ever-improving family.
+- I love working with customers. Sales has really influenced everything I do. It has instilled in me the important traits of operating with a sense of urgency and listening to people.
+- Business leaders should provide expertise in service of our country. My predecessors at GE have done so, as have leaders of many other great American companies.
+- Leadership is an intense journey into yourself. You can use your own style to get anything done. It's about being self-aware. Every morning, I look in the mirror and say, 'I could have done three things better yesterday.'
+- I think this notion that it's the population of the U.S. against the big companies is just wrong.
+- GE sells more than 96 percent of its products to the private sector, where America's future must be built. But government can help business invest in our shared future.
+- When I was a young guy, when I first started with G.E., Jack Welch sent us all to Japan because in those days Japan was gonna crush us. And we learned a lot about Japan when we were there. But over the subsequent 30 years, the Japanese companies all fell behind. And the reason why they fell behind is because they didn't globalize.
+- I do business in 170 countries; none of them is perfect. There is not even one country that I think of, and I am like, 'God, that did everything that I wanted it to do.'
+- I grew up in Cincinnati, Ohio, and my parents are really right wingers. My dad watches, like, five or six hours of 'Fox News' every day and stuff like that.

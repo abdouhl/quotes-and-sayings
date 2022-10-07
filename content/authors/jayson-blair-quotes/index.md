@@ -1,0 +1,29 @@
++++
+author = "Jayson Blair"
+title = "Jayson Blair Quotes"
+quotes_len = "23"
+description = "the best 23 Jayson Blair Quotes"
++++
+- Those ethical choices often are made every day at a time, minute by minute in ways that you may not even relate to ethics, so I'm going to walk them through the whole story from that perspective and hopefully they'll be able to walk away with something good from it.
+- I have lived a life that has been beautiful and painful at some moments. But I am convinced others can learn how to control a certain kind of rage that bubbles up in many Americans, particularly, but not limited to, women, blacks, and other minorities.
+- It's very painful to have something that's not true written about you.
+- I fooled some of the most brilliant people in journalism.
+- You know I am done lying. Obscuring the truth is no longer something I have any interest in doing. I want it all to come out. The good, the bad, the ugly.
+- I used to walk around saying that I'm just another black man without a college degree.
+- It's hard to say what role race really played in my case.
+- I seek to be authentic and engaging, using my own experiences, being as vulnerable as I ask my clients to be, to enhance the process.
+- I think people can learn from my experience - you know, any young people who are under pressure, whether you work on Wall Street or you work in a factory in Alabama, and young journalists.
+- One of my weaknesses happens to be lying, and I could tell you that I'm never going to lie again in my life, but that would be a lie.
+- I believe my own demons would have caught up with me regardless of my race and regardless of whether I worked at 'The Times.'
+- Some people it seems to me would like for me to crawl in a hole and disappear forever. That's just not in my nature.
+- Once I had a better beat, I needed to have an even better one. And somewhere in that climbing, I lost sight of, sort of, my moral and ethical underpinnings.
+- When we report stories, we don't just want to talk to people who did the right thing. We want to talk to people who did the wrong thing.
+- I don't know how one would define an affirmative-action hire. I ultimately do not know what role race played in my hiring.
+- People in the news media after I got caught said how could you have not caught this guy? He had 50 corrections in four years. That's a lot of corrections. Well what they failed to look at is how many stories there were and out of 700 plus stories, 50 corrections is not a high amount.
+- If they're all so brilliant and I'm such an affirmative-action hire, how come they didn't catch me?
+- I am immensely contrite. And I'm sorry for the damage I've done.
+- I am making amends and seeking forgiveness. My only hope is that some good can come out of my situation.
+- I feel like I delivered a blow, an unfortunate blow to a profession that not only did I personally love doing but that I value for society.
+- Racism built me into a person that was set up to be self-destructive.
+- You face racism in small and large ways.
+- Well the first thing I'd say is that I'm not sure exactly what I'm supposed to do to show my remorse other than to say that I'm remorseful.

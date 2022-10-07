@@ -1,0 +1,34 @@
++++
+author = "Michelle Rodriguez"
+title = "Michelle Rodriguez Quotes"
+quotes_len = "28"
+description = "the best 28 Michelle Rodriguez Quotes"
++++
+- I was born in Texas and I lived there 'till I was 8. Then I moved to the Dominican Republic with my mom, lived there for two years and forgot every word of English I knew.
+- I also love the makers of South Park, because they're political, strong, and they're making all of these comments that would get you shot for if you did it in a drama.
+- I wanted to express myself. I wanted to be creative and I didn't want to worry about someone bossing me around in the process. You have to struggle no matter where you are to get to where you're going, so I'm like, working it honey!
+- I would like to see a fierce Fantasia mixed with Blade Runner, Lord of the Rings, and Star Wars all in one. That's the kind of movies I want to make.
+- Whenever a female takes a strong stand for herself, the majority of the time they have to really, really narrow it down to being feminine and wearing dresses and just being lipstick chic.
+- The only place that I'd be worried about being typecast is the independent film world.
+- I learned that you can make a sci-fi film that is satisfying overseas. European people have everything in check. I'd make every sci-fi film in Europe. They only work 14 hours a day. After that, it's overtime.
+- I want them to listen to me for what I am saying. And I think the best way to do that is to sniff my armpits, and like, sit and burp every now and then.
+- I wanted to write a film and I thought the best way to do so was to train myself within the field... It was just like a cycle of people trying to make it, not making it, doing extra work, and it was pretty depressing in the end.
+- Basically I was a rebel growing up. I got kicked out of six schools. But I don't think that it makes you less of an intellect. You know, if you ever crave knowledge, there's always a library.
+- The whole surf culture is starting to embrace women a lot more.
+- I use to watch like maybe three or four movies, five days out of the week. I was a movie buff, but I really didn't know what it was like behind the scenes, or the whole political process of it.
+- I just decided to play make believe, memorize it like it was just some kind of song and just take the emotion out of the words. And I did. I goofed a couple of times.
+- I'm a video game fan. I played them before I became an actress.
+- I knew nothing about the independent film industry. I didn't know much about the industry itself. All I knew was how to watch movies, how to enjoy them, how to hate them, how not to like them.
+- When I was about, I'd say, 18 or 19 years old, I wanted to be a part of the CIA just because they know those intimate secrets... So I was just always into knowing. I like to know things.
+- The Dewey decimal system really works. So that's all I needed to know. Elementary school taught me that.
+- It's the board I had a problem with. I could totally handle being in the water and stuff. I came here to do my own stunts. Water! Ocean! Action! Big waves! That water, that water has tamed me. You can feel that the world is connected to it.
+- I think empathy is a beautiful thing. I think that's the power of film though. We have one of the most powerful, one of the greatest communicative tools known to man.
+- The best part of making the movies... learning from the pros themselves.
+- Until they come up with an independent woman who's on an adventure of her own, I don't think I'm interested.
+- I didn't know how to box so I would have looked like a complete street fighter actually, but what we did have to do was pick up some sides and then just memorize them within two days and go there and audition.
+- I was in Jersey when the whole World Trade Center thing happened and I felt powerless. So, I went to Hawaii and did a surf movie. It's kind of fluffy.
+- They didn't train me to be in the ring for five and a half hours punching air. So, it was hard, I had to get some body contact in there somewhere, it was mostly body shots and stuff. I had no clue, really.
+- I do have a delicate side.
+- Going to car racing school was phenomenal.
+- People forget we come from an embryo and we're part sperm and part ovary. We have both sides in us.
+- I am looking forward to seeing my buddy Colin represent in front of Pacino. That's sweet.

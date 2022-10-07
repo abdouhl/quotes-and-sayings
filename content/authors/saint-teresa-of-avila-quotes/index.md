@@ -1,0 +1,65 @@
++++
+author = "Saint Teresa Of Avila"
+title = "Saint Teresa Of Avila Quotes"
+quotes_len = "59"
+description = "the best 59 Saint Teresa Of Avila Quotes"
++++
+- If Christ Jesus dwells in a man as his friend and noble leader, that man can endure all things, for Christ helps and strengthens us and never abandons us. He is a true friend.
+- While the soul is in mortal sin, nothing can profit it; none of its good works merit an eternal reward, since they do not proceed from God as their first principle, and by Him alone is our virtue real virtue.
+- Prayer is an act of love; words are not needed. Even if sickness distracts from thoughts, all that is needed is the will to love.
+- Anyone who truly loves God travels securely.
+- Nothing can be compared to the great beauty and capabilities of a soul; however keen our intellects may be, they are as unable to comprehend them as to comprehend God, for, as He has told us, He created us in His own image and likeness.
+- My father was a man of great charity towards the poor, and compassion for the sick, and also for servants; so much so, that he never could be persuaded to keep slaves, for he pitied them so much: and a slave belonging to one of his brothers being once in his house, was treated by him with as much tenderness as his own children.
+- To have courage for whatever comes in life - everything lies in that.
+- I know the power obedience has of making things easy which seem impossible.
+- Accustom yourself continually to make many acts of love, for they enkindle and melt the soul.
+- A beginner must look on himself as one setting out to make a garden for his Lord's pleasure, on most unfruitful soil which abounds in weeds. His Majesty roots up the weeds and will put in good plants instead. Let us reckon that this is already done when the soul decides to practice prayer and has begun to do so.
+- Whenever we think of Christ, we should recall the love that led Him to bestow on us so many graces and favors, and also the great love God showed in giving us in Christ a pledge of His love; for love calls for love in return. Let us strive to keep this always before our eyes and to rouse ourselves to love Him.
+- If I were to give advice, I would say to parents that they ought to be very careful whom they allow to mix with their children when young; for much mischief thence ensues, and our natural inclinations are unto evil rather than unto good.
+- Discontent with this world gives such a painful longing to quit it that, if the heart finds comfort, it is solely from the thought that God wishes it to remain here in banishment.
+- If God should desire to raise us to the position of one who is an intimate and shares his secrets, we ought to accept this gladly.
+- The tree that is beside the running water is fresher and gives more fruit.
+- Those who give themselves to prayer should in a special manner have always a devotion to St. Joseph; for I know not how any man can think of the Queen of the angels, during the time that she suffered so much with the Infant Jesus, without giving thanks to St. Joseph for the services he rendered them then.
+- I have often thought with wonder of the great goodness of God; and my soul has rejoiced in the contemplation of His great magnificence and mercy. May He be blessed for ever! For I see clearly that He has not omitted to reward me, even in this life, for every one of my good desires.
+- It is no small misfortune and disgrace that, through our own fault, we neither understand our nature nor our origin.
+- It is here, my daughters, that love is to be found - not hidden away in corners but in the midst of occasions of sin. And believe me, although we may more often fail and commit small lapses, our gain will be incomparably the greater.
+- Don't let your sins turn into bad habits.
+- When the soul, through its own fault... becomes rooted in a pool of pitch-black, evil smelling water, it produces nothing but misery and filth.
+- I had many friends to help me to fall; but as to rising again, I was so much left to myself, that I wonder now I was not always on the ground. I praise God for His mercy; for it was He only Who stretched out His hand to me. May He be blessed for ever! Amen.
+- Our body has this defect that, the more it is provided care and comforts, the more needs and desires it finds.
+- Pain is never permanent.
+- Our souls may lose their peace and even disturb other people's, if we are always criticizing trivial actions - which often are not real defects at all, but we construe them wrongly through our ignorance of their motives.
+- O my God, what must a soul be like when it is in this state! It longs to be all one tongue with which to praise the Lord. It utters a thousand pious follies, in a continuous endeavor to please Him who thus possesses it.
+- Do you think it is only a little thing to possess a house from which lovely things can be seen?
+- We can only learn to know ourselves and do what we can - namely, surrender our will and fulfill God's will in us.
+- May God protect me from gloomy saints.
+- I don't know what heavy penance I would not have gladly undertaken rather than practice prayer.
+- What friends or kindred can be so close and intimate as the powers of our soul, which, whether we will or no, must ever bear us company?
+- The feeling remains that God is on the journey, too.
+- What value is there in faith without works? And what are they worth if they are not united to the merits of Jesus Christ, our only good?
+- I thought of the soul as resembling a castle, formed of a single diamond or a very transparent crystal, and containing many rooms, just as in Heaven there are many mansions.
+- I am more afraid of those who are terrified of the devil than I am of the devil himself.
+- There are more tears shed over answered prayers than over unanswered prayers.
+- The custom of speaking to God Almighty as freely as with a slave - caring nothing whether the words are suitable or not, but simply saying the first thing that comes to mind from being learnt by rote by frequent repetition - cannot be called prayer: God grant that no Christian may address Him in this manner.
+- All blessings come to us through our Lord. He will teach us, for in beholding His life we find that He is the best example.
+- For prayer is nothing else than being on terms of friendship with God.
+- To reach something good it is very useful to have gone astray, and thus acquire experience.
+- In a state of grace, the soul is like a well of limpid water, from which flow only streams of clearest crystal. Its works are pleasing both to God and man, rising from the River of Life, beside which it is rooted like a tree.
+- My good works, however wretched and imperfect, have been made better and perfected by Him Who is my Lord: He has rendered them meritorious. As to my evil deeds and my sins, He hid them at once. The eyes of those who saw them, He made even blind; and He has blotted them out of their memory.
+- Whoever has not begun the practice of prayer, I beg for the love of the Lord not to go without so great a good. There is nothing here to fear but only something to desire.
+- Let us consider the glorious Saint Paul: it seems that no other name fell from his lips than that of Jesus, because the name of Jesus was fixed and embedded in his heart.
+- Be gentle to all and stern with yourself.
+- The devil put before me that I could not endure the trials of the religious life, because of my delicate nurture. I defended myself against him by alleging the trials which Christ endured, and that it was not much for me to suffer something for His sake; besides, He would help me to bear it.
+- God gave us faculties for our use; each of them will receive its proper reward. Then do not let us try to charm them to sleep, but permit them to do their work until divinely called to something higher.
+- A soul which gives itself to prayer, either much or little, should on no account be kept within narrow bounds.
+- I was living an extremely burdensome life, because every time I prayed, I became more clearly aware of my faults. On the one hand, God was calling me. On the other, I was following the way of the world. Doing what God wanted made me happy; but I felt bound by the things of this world.
+- God has been very good to me, for I never dwell upon anything wrong which a person has done, so as to remember it afterwards. If I do remember it, I always see some other virtue in that person.
+- If I should say anything that is not in conformity with what is held by the Holy Roman Catholic Church, it will be through ignorance and not through malice. This may be taken as certain, and also that, through God's goodness, I am, and shall always be, as I always have been, subject to her.
+- It is a most certain truth, that the richer we see ourselves to be, confessing at the same time our poverty, the greater will be our progress, and the more real our humility.
+- All things must come to the soul from its roots, from where it is planted.
+- Mental prayer in my opinion is nothing else than an intimate sharing between friends; it means taking time frequently to be alone with Him who we know loves us. The important thing is not to think much but to love much and so do that which best stirs you to love. Love is not great delight but desire to please God in everything.
+- More tears are shed over answered prayers than unanswered ones.
+- How friendly all men would be one with another, if no regard were paid to honour and money! I believe it would be a remedy for everything.
+- I had a father and mother, who were devout and feared God. Our Lord also helped me with His grace. All this would have been enough to make me good, if I had not been so wicked.
+- When I took the habit, the Lord immediately showed me how He favours those who do violence to themselves in order to serve Him. No one saw what I endured... At the moment of my entrance into this new state I felt a joy so great that it has never failed me even to this day; and God converted the dryness of my soul into a very great tenderness.
+- I do not fear Satan half so much as I fear those who fear him.

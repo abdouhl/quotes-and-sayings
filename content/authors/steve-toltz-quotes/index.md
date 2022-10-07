@@ -1,0 +1,25 @@
++++
+author = "Steve Toltz"
+title = "Steve Toltz Quotes"
+quotes_len = "19"
+description = "the best 19 Steve Toltz Quotes"
++++
+- I made some probably very cringe-worthy short films that shall hopefully never make the light of day.
+- I actually went into writing first to supplement my income, which was a strange thing to do, and actually failed.
+- I think as you get older, there are things that there's just no light side to, but you know, I guess the more you empathise with people, the more empathy you have, the less you are able to see the lighter side.
+- I haven't been part of the criminal world.
+- I'm not sure if I always wanted to be a writer, but I was always writing.
+- I don't have a great respect for reality or getting the 'facts' as a means of putting together a story.
+- If I knew a story page by page before I started writing it, I just wouldn't do it. The process of discovery is really important for my own enjoyment.
+- People always say, 'Write what you know', but I've always found that to be terrible advice. It's quite limiting, what you know.
+- I am influenced by books which don't have their eye on the endgame, but which try to be entertaining on each and every page.
+- I don't really have an office or anything, and I like to have to move location every two hours. So I just kind of write in a park, on a bench, in the library, in a cafe, back to the library, that kind of thing.
+- I know you're supposed to hide your influences, but I suppose I see writing as riffing, really, about whatever you have been reading or thinking about that day or that week.
+- If I've written five pages by hand, out of those five pages, one page might be worth saving. The rest is crap. I have to throw it away. It's like I need eight hours to do two hours' work.
+- There's only one common element that united every writer I've admired... they're all incredibly well-read.
+- There is something so arbitrary about prizes.
+- Raymond Chandler I love a lot, and the Austrian writer Thomas Bernhard. I really love his voice.
+- When people come up to me and say, 'I read your book,' I'm thinking, 'How dare you! Who gave you a copy?'
+- Optimism isn't funny unless you are laughing at the person, whereas extreme pessimism is extremely funny. It's exaggeration.
+- I enjoy being influenced by other writers.
+- I can't sit through dinner with somebody I don't like.

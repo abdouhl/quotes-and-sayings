@@ -1,0 +1,18 @@
++++
+author = "Mario Lopez"
+title = "Mario Lopez Quotes"
+quotes_len = "12"
+description = "the best 12 Mario Lopez Quotes"
++++
+- I haven't gotten labeled as a Hispanic actor.
+- I like to consider myself an actor who just happens to be Hispanic.
+- I'm proud of my background, so I hope there will be more roles where Hispanics are being portrayed.
+- In some cases, the casting directors have casted blindly and have not looked into my ethnic background.
+- I love talking about women because they are a constant study and you're always learning.
+- I grew up in a household without a lot of problems and they have been very supportive from day one.
+- Right now, I'd like to just continue on a series where I am doing good work with a balance of comedy and drama. That and do occasional features and movies.
+- Like they say, you can learn more from a guide in one day than you can in three months fishing alone.
+- Usually I'll go to San Diego to hang out with my parents if I want to unwind.
+- Eventually though, I'd like to have my own production company. Then I could create great opportunities not only for myself, but for other actors as well.
+- There's three things men always talk about - women, sports, and cars.
+- That's what 90 percent of the people talk about when they're first exposed to the fish.

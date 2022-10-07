@@ -1,0 +1,12 @@
++++
+author = "James Hong"
+title = "James Hong Quotes"
+quotes_len = "6"
+description = "the best 6 James Hong Quotes"
++++
+- My dad wanted me to be a professional person, which I was - I was a civil engineer. I graduated from civil engineering at USC in California. I became an engineer, and I helped design the roads for the L.A. County Roads Department. And I did that for about one and a half years in a sense to please my parents - to be a 'respectable' person.
+- Doing comedy is still in my veins; that's my first love.
+- My father was a restaurant man, laundry man in his lifetime. And I've often wondered how and why did I become an actor? Where did I get the so-called talent to express myself? And I look back, and I see that my mother was very animated. I can remember that she used to, what she called 'bei zhu.'
+- Nature, God, Buddha - someone has given me this health. I can break dance still; I can run; I can play basketball. In my mind, I can do anything. As long as I have that spirit, I'm going to keep doing it.
+- I am very fussy; I am very detailed; I nag a lot. So in a sense, I am like Mr. Ping. I am temperamental, I am emotional, I'm fussy, and I'm very exact. And I want people to not fail; I want them to execute - all those things Mr. Ping wants in other people. Or animals.
+- As long as I have the talent and there's a demand for the old Chinese man - whether he's a philosopher, or a master, or an old-time restaurant owner, or a villain, or a so-called good guy - I will always be working.

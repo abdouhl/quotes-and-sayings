@@ -1,0 +1,24 @@
++++
+author = "Norman Lamm"
+title = "Norman Lamm Quotes"
+quotes_len = "18"
+description = "the best 18 Norman Lamm Quotes"
++++
+- I was not the midwife of the Law School, but its fraternal twin.
+- However, the word madda in modern Hebrew specifically means science.
+- My mother, whose family was heavily rabbinic, said she wanted me to continue the family tradition in the rabbinate. My father said he wanted me to be a scholar of the Talmud, but he wanted me to make my living in science.
+- Most Modern Orthodox are religious Zionists. Despite all differences and nuances among us, we consider the founding of the State a historic change. We accept it as something that came from Providence.
+- Conventional dogmas, even if endowed with the authority of an Aristotle - ancient or modern - must be tested vigorously. If they are found wanting, we need not bother with them. But if they are found to be substantially correct, we may not overlook them.
+- I was critical of the Israeli government, however, for not being prepared for the move. One does not uproot thousands of people without planning in advance what will be done with them. This was a political and human error in which the government functioned poorly.
+- As a result of this article, I was invited to testify in the Senate Judiciary Committee on privacy law.
+- I think our vision heretofore has been and should continue to be to have Cardozo be the kind of law school that we can be proud of. I would like to see it gain recognition as one of the three best law schools in New York City.
+- Judaism is an intellectually based religion, and the single most important theme is that of study.
+- Most students have thoughts about emigrating to Israel. A significant number go on aliyah. We are proud of our Israel programs, which come at a considerable cost to the university.
+- At Cardozo, study of law is part of a larger culture. You can get a law degree and make a good living, but it is best that you do that having studied the discipline for its own inherent merit, because you love studying.
+- Maimonides taught that it is better that 10 criminals go free than let one innocent man be executed. The Innocence Project represents that point of view.
+- I showed that privacy was an implicit right in Jewish law, probably going back to the second or third century, when it was elaborated on in a legal way.
+- As far as YU faculty and students are concerned, the love for Israel is very strong. Probably about three thousand of our graduates have settled in Israel. On average, every year 650 male and female students study in Israel for a minimum of one year.
+- In Judaism, there are 613 biblical commandments, and the Talmud says that the chief commandment of all is study.
+- Not all Modern Orthodox Jews, at the present juncture, identify with what the Israeli government does. In Israel many religious Zionists strongly oppose the government because of the disengagement.
+- No religious position is loyally served by refusing to consider annoying theories which may well turn out to be facts.
+- Modern Orthodoxy has a highly positive attitude toward the State of Israel. Our Ultra-Orthodox brethren recognize only the Holy Land, but not the state.

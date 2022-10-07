@@ -1,0 +1,21 @@
++++
+author = "Michael Heizer"
+title = "Michael Heizer Quotes"
+quotes_len = "15"
+description = "the best 15 Michael Heizer Quotes"
++++
+- I wasn't political enough to write articles about myself or go to cocktail parties, meaning that not only has my art been pirated and my intellectual property rights stolen, but my work has been misrepresented.
+- I was taken out of school by my dad when I was 11 and lived in Mexico City, then later in Paris. I went with him to excavate in Bolivia and Peru. I never finished high school. I was a straight F student anyway. My father admitted to me later that he'd thought I would come to no good.
+- Landscape to me is a planar thing, just a view. Environment is everything down to the ecosystem. Big difference.
+- I think size is the most unused quotient in the sculptor's repertoire because it requires lots of commitment and time. To me it's the best tool. With size you get space and atmosphere: atmosphere becomes volume. You stand in the shape, in the zone.
+- I come from an academic background. I wasn't raised to be into promoting myself.
+- I'm self-entertaining. My dialogue is with myself.
+- Artwork is not like a commercial business; there is no such thing as a schedule for art. You can't hurry art.
+- The trouble is, once you say something about a source, then you've pegged it down, and so now I'm reluctant to say anything. If I say I developed 50 different shapes from Mississippian tumuli, that doesn't mean they're copies of tumuli - I'm not ripping off those shapes.
+- I make static art, not dynamic art. That's what I do.
+- The history of American art, in a way, begins with Jackson Pollock and his big paintings. This theme of bigness - all painters and sculptors have dealt with it ever since.
+- I wasn't an academic looking in books for ideas. But I educated myself about historical work that was similar to mine, to provide a frame of reference that wasn't the usual frame of reference of the New York art world and Europe.
+- The type of work I like is pure and simple and profound.
+- A strong work of art really leaves people speechless. They feel a little angry because they don't understand it.
+- I'm not a dogmatic, purist psychopath. There's an unfair image of me - mean, crazy, hostile. I'm really a very gentle person.
+- The size thing is not some gimmick or attention-getting trick but a genuine undercurrent of the work. Frank Gehry for instance likes to imagine his buildings as sculptures. I like to imagine my sculptures as architectural.

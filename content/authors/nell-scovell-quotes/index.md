@@ -1,0 +1,104 @@
++++
+author = "Nell Scovell"
+title = "Nell Scovell Quotes"
+quotes_len = "98"
+description = "the best 98 Nell Scovell Quotes"
++++
+- There's this perception that there's a pipeline problem for women and people of color. I don't buy into that. I think we have a broken doorbell problem, and there are plenty of women and people of color standing at the doorstep trying to get in the door, and nobody's opening it.
+- Hollywood is built on relationships, and the way you keep relationships is by playing nice.
+- The creative process is often wrapped up in bottomless anxiety, and when the world applauds the product of that process, it soothes the anxiety. Briefly. Then the anxiety returns and even intensifies.
+- Moms Mabley blazed a path for female stand-ups in a housecoat and floppy hat. Phyllis Diller worked equally hard to make herself unattractive to men and non-threatening to women.
+- I was ahead of the gender curve, but I wasn't ahead of the intersectionality curve, and I get it now. It's important to me.
+- My criticisms of late-night TV blew up some old friendships and sparked some new ones.
+- By June 1990, I'd racked up 'written by' credits on both 'Newhart' and 'The Simpsons.'
+- In March 2010, I attended an art opening for Kimberly Brooks's show 'The Stylist Project' in Los Angeles. It was a starry celebration hosted by Dior and 'Vanity Fair' to benefit P.S. Arts. But even as fun-to-gape-at actresses like Christina Hendricks arrived, I couldn't take my eyes off the oil portraits.
+- Sometimes, not knowing what you're doing allows you to do things you never knew you could do.
+- The desire to keep doing what we love supersedes the desire to penalize bad behavior.
+- I turned 40, and things started to go south.
+- I basically lived like a guy for, certainly, the first decade of my career, and I just wanted to blend in.
+- Constant exercise can keep the body trim and taut, but the face is another thing.
+- I'm such an admirer of Wendy Davis.
+- An ocean of ink - real and virtual - has been spilled critiquing the appearance of female politicians.
+- The more successful you are as a man, the more you're liked. And the more successful you are as a woman, the more you're disliked.
+- Arts are a luxury, proof that a civilization has risen above 'politics and war.'
+- Retaining a child-like sense of wonder is a boon for creative types like Steven Spielberg and J. K. Rowling.
+- In over thirty years working in TV and movies, I've never had an exit interview or contributed to a 360 assessment.
+- Male writers don't want to be judged in the room. They want to be able to scarf an entire bag of potato chips while cracking fart jokes and making lewd comments without fear of feminine disapproval. But we're your co-workers, not your wives.
+- I'm both an insider and an outsider.
+- I've worked on over twenty TV staffs, and nine out of ten male colleagues are wonderful, inclusive, and professional. Still, there's usually one guy - the Tenth Man - who turns a fun job into a dental appointment.
+- When blue-eyed Donald Trump married hazel-eyed Ivana Zelnickova, he probably figured his broad-shouldered DNA would dominate her girly alleles. But genetics played a cruel trick on Trump: Of the couple's three children, only the youngest, Eric, wound up with his father's fishy blue eyes.
+- To be happy about the fall of one powerful man is to know there are another 10 that need to follow.
+- Blondness is a core Trump-family value: Both Donald Jr. and Eric got the memo and married blondes.
+- When you start a memoir, you think, 'I'm going to blast all the people who were mean to me.' And then you start writing, and you go, actually, it's so much more fun to say nice things about people who were kind and generous to you.
+- The Pulitzer Prize was established when Joseph Pulitzer died in 1911, leaving a bequest to create the eponymous award. An immigrant from Hungary, Pulitzer struck it rich by combining the 'St. Louis Post' and the 'St. Louis Dispatch' to make the - wait for it - 'St. Louis Post-Dispatch.'
+- In Hollywood, you kind of trick yourself into feeling like you have impact.
+- It's notoriously difficult to get actors to go on record speaking about other actors. Such requests are usually met with terse replies from publicists explaining that their clients are on set and too busy to reply.
+- I'm a little sad that they actually came up with the metaphor of waves for feminism. By definition, a wave goes in, and it comes out. I would really like it to be a tsunami that creates a flood that forever changes the landscape.
+- Sensitivity training is a fine idea but isn't taken seriously by those who need it most.
+- I've been speaking out about harassment and gender disparity for years.
+- Even when powerful men stumble, they inspire fear.
+- I was the second female writer ever hired at 'Late Night.' When I applied for the job in 1988, I had no way of knowing how much the odds were stacked against me.
+- If women who don't help women get a special circle in hell, I think women who do help women should get a special cloud in heaven.
+- Misogyny - and racism - are 'hidden in plain sight,' and the burden of eliminating them should fall on the institutions, not the victims.
+- Like Lindsay Lohan and Lauren Conrad, Barack Obama is addicted to his BlackBerry.
+- Everyone - male and female - is biased. But no one wants to admit it, so our brains search for examples that disprove the accusation.
+- Smash together the Grammys, Oscars, Emmys, and Tonys, and you get the Green Room at the Kennedy Center Honors.
+- One of the greatest benefits to come out of 'Lean In' was convincing women to help and support other women - not out of this sense of duty and that you'd be condemned to hell forever if you didn't, but because it will make all your lives better.
+- Albert Brooks. Julia Louis-Dreyfus. Larry David. The best comedic actors play broad and real simultaneously, coming across as both larger than life and all too human.
+- I'd like to see David Letterman adopt the inclusion rider on his Netflix show.
+- The average career span for a TV writer is 11 years. The only other thing I could find that had the same career span was a police dog.
+- If I were to write a sequel to 'Lean In' for men, I would call it 'Make Room.'
+- If necessity is the mother of invention, urgency is the uncle of change. Without it, progress slows and then stops and then reverses.
+- One of the great things about being in entertainment is you have access to the media. People pay attention to you.
+- Studies do show that in hierarchical structures, you do get more harassment. There's more power concentrated at the top, which means there's more abuse of power concentrated at the top. And every TV show is very much a hierarchy.
+- I learned not to get too happy about good news or too distraught about bad.
+- One of the most rebellious things a woman can do is allow people to think she's mean.
+- There have always been women who were successful against the odds. Now we need to change the odds so more women can be successful.
+- When I write, I feel like an optometrist, constantly flipping between lenses and asking, 'Is this better? Is this?' Slowly, the work comes into focus.
+- The focus on male politicians extends beyond clothes, legs, and pretty faces. It's hard to find an article about former Illinois governor Rod Blagojevich that doesn't mention his mop.
+- Once, after a long week, I felt so insecure that I decided to make a list of people who thought I was funny even if I didn't think I was. At the top of the list, I wrote, 'Garry Shandling.' His early praise protected me like a comedy-writer version of Harry Potter's scar.
+- For thirty years, I've been hearing that it's getting better for women. And until I see statistical proof over enough years that that's true, I won't believe it.
+- I think, in all fields, there's this motherhood pay penalty where, the second you become a mother - and this is true whether you give birth or adopt - you're perceived to not be as committed to your job. Whereas men are perceived as breadwinners who now need more money and promotions because they're fathers.
+- I traveled to Israel in a small party assembled by Marty Peretz, the editor-in-chief of 'The New Republic.' Other guests included Senator Al Gore and his wife, Tipper. Like every tourist group, we climbed Masada, floated in the Dead Sea, and visited a kibbutz.
+- The Kennedy Center Honors reflects our humanity and higher purpose. We are a great nation, in part, because we value culture.
+- Given the long history of global anti-Semitism and continued calls for the destruction of Israel, it's tough to be a Jew.
+- Making someone laugh is the simplest, most basic positive human connection.
+- When threatened, the nervous system sometimes goes into a 'freeze response.' You assess the risk and determine that fight or flight doesn't help you. Staying put does.
+- Howard Dean is no longer the brilliant mastermind of the Fifty State Strategy that enabled the Democrats to storm the White House and Congress. He's the idiot wearing an ugly sweatshirt.
+- In TV, you look to make characters consistent, but in real life, we're not consistent. Sometimes we're brave, and sometimes we're not. Sometimes we're very aggressive, and sometimes we back right down.
+- The vocabulary of my cynical world doesn't allow me to explain the success of 'Lean In.'
+- Unfortunately, my system for tracking down funny female writers isn't methodical. It's mainly based on word-of-mouth, which can cast a limited net.
+- Feminists cried, 'Sexism!' when New York Senator Hillary Clinton was judged not by the content of her character but by the color of her pantsuits.
+- At 26, I was single, living in Manhattan, and working as a journalist at 'Vanity Fair.' I was Carrie Bradshaw... in sensible shoes.
+- Writing for TV made way more sense than writing for magazines. And by sense, I mean money.
+- Like leggings, comedies created by women came into vogue in the late 1980s, exploded in the early '90s, went mainstream in the mid-'90s, and were shoved into the back of the closet around 1997.
+- I think it's an uphill battle in every field. You hear late-night comedy is hard on women. And then you hear investment banking is hard on women. And tech is hard on women. And then you start digging, and you learn philosophy departments are hard on women!
+- Together, we must all remember that one of the most effective responses to hate speech is more speech.
+- Give me a rock, and I will roll it.
+- I think empathy is undervalued in a lot of these comedy writers' rooms.
+- For me, TV had always been a medium for entertainment.
+- Moral licensing comes into play when people rely on past behavior to dismiss current prejudiced behavior. This is better known as the 'Some of my best friends are...' defense.
+- I loved working on 'Murphy Brown,' and I loved working on 'Monk.'
+- Hated 'The Imitation Game.' Totally inaccurate. A gay man with a messy room? Don't buy it.
+- I fantasize about the networks making a rule that each show's writing staff needs to reflect the gender and racial makeup of its audience.
+- Jenny McCarthy has used her celebrity and sex appeal to attract attention to autism. And while no one questions McCarthy's determination and passion, many scientists have debunked her anti-vaccine message and her claims that a gluten-free diet can provide a cure.
+- Garry Shandling's stand-up specials were masterpieces of tightly crafted stories that delivered both hard jokes and hard truths. He was neurotic and self-deprecating, and his observations on life cut deep.
+- People say, 'Dress for the job you want,' and since I wanted a job that guys had, I dressed like a guy.
+- The first Emmys I went to was in 1990 when the five nominees for best comedy were 'Designing Women,' 'Golden Girls,' 'Murphy Brown,' 'Cheers,' 'Wonder Years.' Three and a half were created by women.
+- We have so many great memoirs from women in front of the camera, from Tina Fey, Mindy Kaling, Amy Poehler, and Amy Schumer.
+- Hollywood is hard on everyone, but it really is harder on women and people of color.
+- There have been many great newspapermen, but to my mind, only two have achieved immortality: Pulitzer for his endowment and William Randolph Hearst for his castle.
+- I have a husband who didn't just resign himself to staying home but was happy to be the primary parent.
+- Writing is not what you start. It's not even what you finish. It's what you start, finish, and put out there for the world to see.
+- You want a diverse writers' room, not because it's the fair thing to do or the right thing to do, but because it's the best thing to do for your show. I've seen that to be true.
+- I'm on the board of the Annenberg Inclusion Initiative, which is run by Dr. Stacy Smith - she conceived of the inclusion rider. What I love about the inclusion rider is it uses the fact that Hollywood is based on hierarchies, and it knows that these key players have persuasive power.
+- Trump Tower is no ordinary property: It is the jewel in Donald Trump's brass crown.
+- My first joke that ever aired on 'Late Night' was for a list of 'Top 10 Least Popular Summer Camps.' My contribution - 'Camp Tick in beautiful Lyme, Connecticut' - squeaked in at No. 10. Like a trip to Camp Tick, my time at 'Late Night' faded into memory like a short session at a dicey summer camp.
+- In the writers' room, I know the difference when someone brushes up against me and makes a sexist crack and when they've stepped over the line and made me feel uncomfortable and unsafe.
+- Early on in my career, I was often the only woman in the room, writing for shows like 'Late Night with David Letterman,' 'The Simpsons,' 'Newhart,' and 'Coach,' and sometimes I'd feel like I didn't belong.
+- I realize that 'hire qualified women!' is the sort of outraged demand that's often met with a sigh. No one disagrees, and yet gender inequality in high-paying positions extends into all professions.
+- In her darkest hours, Diana, Princess of Wales, could have used a friend like Empress Elisabeth of Austria. The two lived similar lives, a century apart.
+- An executive producer with an all-male writing staff once inadvertently revealed his deep, dark fear. While discussing a full-time position for me, he mused out loud, 'I wonder if having a woman in the room will change everything.' Of course, what he really meant was: 'I wonder if having a woman in the room will change me.'
+- Broad City's first season is full of moments that are insane... and yet make total sense.
+- You don't have to let a bad experience stop you from doing what you want to do.
+- I think I'm funnier in my writing than in person.

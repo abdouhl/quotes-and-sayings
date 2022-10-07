@@ -1,0 +1,37 @@
++++
+author = "Matthew Broderick"
+title = "Matthew Broderick Quotes"
+quotes_len = "31"
+description = "the best 31 Matthew Broderick Quotes"
++++
+- I walk into rooms and I don't know why I'm there. I'm like, 'Why am I standing in front of the toilet now?'
+- There can be moments onstage - but sometimes in a movie, too - where you just feel you're in a golden space. You're in this strange world where everything you do makes sense. And it's funny: the audience is right in it with you, and the other actors, and you get these rare moments of feeling at one with something. You hear voices in your head.
+- Most of the people in Donegal knew me long before I was an actor. But even since then, they don't talk that much about it, which is very nice.
+- People are consistently telling me how much they like my wife. That's my cross to bear.
+- 'Election' - I just loved the script, and I loved having the part.
+- I probably wouldn't make a good accountant. I don't even understand what my accountant tells me. But the character is a sort of exaggerated version of me, he's a little more frightened than I am, everything seems so much bigger to him than it does to me.
+- Having a baby changes the way you view your in-laws. I love it when they come to visit now. They can hold the baby and I can go out.
+- I've liked Pete Gurney's writing always.
+- The first dog I got was a border collie. Her name was Sally.
+- I love musicals more than anything.
+- I used to wonder what it would be like to see my name on a billboard. I couldn't even imagine something like that. Then you see it, and, well, it just makes billboards not as special as they used to be. It's weird.
+- I liked 'Brighton Beach Memoirs,' which I did with Neil Simon. I kind of was playing him, as Eugene Morris Jerome, and I played that a few times at the very beginning of my career.
+- I think I'm a somewhat nervous bee who just wants to conform. Which, I guess, is common in bees.
+- I like the sentimentality of 'Miracle on 34th Street' and all those movies, and there actually is a tradition of Christmas comedies, too.
+- I spent a lot of time growing up in Ireland in Donegal.
+- Anytime I talk about my wife, I want to make it, like, 'the battle-ax,' and I always do that bit, but it's not true. She's a very positive person.
+- When I see people who have to fly to a city every day with a laptop and stuff, that's why - I don't think I could manage that.
+- I saw Al Pacino on the street once. That made me very nervous.
+- You have to fight the green monster with your mind, not your fists.
+- It was not a good thing in my family to be a 'personality.'
+- I'm not the best dog owner.
+- I like actors who are sort of different and eccentric - not what you expect.
+- 'The Road to Wellville'... it had Anthony Hopkins, Bridget Fonda, directed by Alan Parker. I hadn't been doing all that well, and I was thrilled to get it, and it just didn't work. It was a terrible movie, but I don't think it's anyone's fault.
+- I think if ever I met Peter O'Toole, I'd faint.
+- I just want the money and the fame and the adoration, and I don't want any of the other stuff.
+- Television makes you very famous. It's very strange.
+- We celebrated Christmas. Not religiously, but we did the tree and the lights. Hannukah always seemed not quite as thrilling - Sorry to my Jewish brothers and sisters! But when you're a kid, Santa and all that, you know, that really trumps the menorah. So we did Christmas.
+- It's no fun to be miscast. The times I've done parts that I don't feel, in retrospect, I was great for - it's a very bad feeling.
+- I slip from workaholic to bum real easy.
+- I like animals.
+- When I was a kid, I would sometimes go to Ireland with our family.

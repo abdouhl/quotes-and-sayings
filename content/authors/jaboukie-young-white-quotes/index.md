@@ -1,0 +1,49 @@
++++
+author = "Jaboukie Young-White"
+title = "Jaboukie Young-White Quotes"
+quotes_len = "43"
+description = "the best 43 Jaboukie Young-White Quotes"
++++
+- I use Twitter as a writing tool a lot.
+- When I started out in stand-up, I was already used to speaking in front of people, how to project, control my voice - a lot of learning curves I had overcome.
+- Living and performing in New York has allowed me to try my weirder and more experimental things.
+- I love Mykki Blanco.
+- I went to Catholic schools my entire life and never had anything close to a cis heterosexual sexual education let alone a queer one. Everything I learned was trial and error or the Internet or 'Talk Sex with Sue Johanson.'
+- After the 'Fallon' set, I had a lot of queer people message me about how much it meant to see a queer perspective on late night TV.
+- That is what I got into comedy for, to be able to challenge myself and just grow as a comedian and find new ways to be funny.
+- Nothing screams 'I'm desperate for attention' like tweeting in all caps.
+- I think pop music was going through a phase where it was like pop but dance-hall or pop but R&B. But, no, I just want a pop song.
+- My parents are Jamaican immigrants and both have a multiracial background. They're Jamaican but my genetic makeup is West African, European, Asian.
+- I go through my tweets while writing and be like, 'Oh, this has staying power and is still relevant.'
+- I've been doing some acting, writing classes, and taking a holistic approach so I can actually be good at this craft. But ideally I'd eventually want to get my own show and make my 'Atlanta' or my 'Master of None' - whatever that would look like - in whatever media landscape that would best suit it.
+- I'm friends with Kehlani - she's a LGBTQ icon.
+- The urge to push the concept of sex and sexuality into the fringes of the human experience is so bizarre to me.
+- Twitter is comedy writing. It's one-liners that give way to fully fleshed-out thoughts.
+- There's a lot of times when I just want to scream into the void.
+- Why do we still use paper to vote? Paper is over!
+- I never feel like it'll be something where like, 'Aha, I've got it. I'm funny for the rest of my life. I don't need to tell jokes anymore. I just am comedy.'
+- For me, I didn't really have family that was in entertainment. I didn't really grow up with an uncle that's a TV writer or something, so I didn't even know that it was possible at all. I slowly learned more about it and ended up here. I want people to not be discouraged by the fact that they don't have a legacy in Hollywood that's bringing them in.
+- Once I started getting serious about standup I got a better handle on word economy and making jokes punchier, which translated well to Twitter.
+- I accomplished a lot in 2017 that I'd dreamt of: a late night set, TV writing gig, a speaking movie role.
+- On a 1 to 10 scale, I don't think that I could model, but I could definitely end a Republican senator's career.
+- Is socialism still for me if I'm a millennial millionaire?
+- There's an infectiousness to comedy. It's meant to be shared and spread, so I feel like any message that you're talking about through the vehicle of comedy is going to get further than if you just straightforwardly said it.
+- I just try to do things that make me excited. If I can find a way to surprise myself, then that's when I'm really excited to share something and really can stand behind it.
+- Whatever I'm writing has seemed to be about something I don't feel I could freely express in my everyday life, and stand-up is a really effective medium for getting people to hear exactly the things and viewpoints that they normally don't want listen to.
+- Developing a following and maintaining that is so much free labor - just for the love of it.
+- I definitely post a lot of memes and content that's isolated to Twitter that I wouldn't be able to do on stage because a live crowd doesn't have that same frame of reference.
+- My favorite topical tweets are the ones that put a tweet in context so it illuminates a deeper truth or societal trend.
+- Fact check: The examples of failed socialism that critics use are not socialist democracies but authoritarian states led by corrupt, ruthless, and paranoid dictators.
+- The Internet has created so many niche audiences that when millions or even thousands of people can be on the same page it's a truly special thing.
+- Seriously, you can't talk socialism in America without going to the OG, Sen. Bernie Sanders.
+- But I do have one real problem with socialism: I like money.
+- You want young people to vote, make Election Day a national holiday.
+- I love St. Vincent. She is like our queer rock goddess and that's so needed.
+- Voting is designed for old people.
+- I don't need a driver's license, my Uber driver needs a driver's license.
+- The news can by very cyclical. The same issues are coming up over and over and over again.
+- As a gay person, I'm used to speaking on gay issues. As a black person, I'm used to speaking on black issues.
+- I think we're past the point in entertainment where you can have one thing and explode. If you have one thing, people ask, 'All right, what else?' You have to be multihyphenate.
+- Amazon's been around for 24 years, and now they're doing what any 24-year-old does: move to New York and gentrify a neighborhood.
+- For memes, I have an entire iPhone folder of photos that I've taken or saved because I find something about them hilarious.
+- One time I spent more than $40 on groceries, and my bank thought someone stole my debit card.

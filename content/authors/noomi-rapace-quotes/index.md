@@ -1,0 +1,24 @@
++++
+author = "Noomi Rapace"
+title = "Noomi Rapace Quotes"
+quotes_len = "18"
+description = "the best 18 Noomi Rapace Quotes"
++++
+- In Sweden everybody has this perfect surface. Everyone's very polite and controls their feelings.
+- I was a punk rocker when I was a teenager. I wanted to look like Nancy Spungen. I had dyed blonde hair and lots of piercings.
+- I always felt like I was on the move, that I was going towards something.
+- I can't see any value in being a celebrity, famous for being famous.
+- I'm interested in people's darker side, the ones that aren't easy and well balanced. The cracks.
+- I like doing fight scenes. I always have, and I insist on doing as much of that action as they'll let me do. I think that's easy for me.
+- I'm terrified of being too famous. What I'm really afraid of is that the audiences will go into the theater and not be able to forget that it's me, that fame will stand in the way of my acting. I want to keep being able to change into different shapes and different personalities.
+- I don't have this crazy dream about going to Hollywood, because I really love to watch movies and do movies that are complicated, and I want more strange things and complicated things.
+- I think Stieg Larsson was pretty brave. He wanted to bring up things that we don't like to talk about, or like to ignore.
+- If I don't see myself as a victim, then I'm not a victim.
+- We need more extreme movies in Sweden. Personal projects that are necessarily made for a bigger audience. I think it creates a creative lock-up to have the audience as a goal.
+- I want to explore more sides of humanity and myself. That's what acting is about.
+- I hate when you see a film and after one scene you know what's going to happen and you can predict the whole story.
+- So I kind of lost track for a while, then I came back, I pulled myself together and I decided when I was 15 that I'm going to get sober and I'm going to become an actress.
+- I've always been very stubborn, had a very clear will of what I want to do.
+- It's better to not be afraid of things and not avoid things.
+- When I was a teenager, I was like, 'Something is wrong with me. I don't fit in. I'm not like everybody else.' So, I always knew that I wanted to explore and move on, but it was completely unexpected, the way it happened.
+- When I don't understand things, I become passionate to understand.

@@ -1,0 +1,43 @@
++++
+author = "Matt Nagy"
+title = "Matt Nagy Quotes"
+quotes_len = "37"
+description = "the best 37 Matt Nagy Quotes"
++++
+- If you're given a chance, and you're driven and obsessed and consumed when given the opportunity to prove people right, the sky is the limit.
+- I'm a big boy; I can handle criticism.
+- There was a lot of reflection - I know that - wondering, 'What in the hell am I doing?' But it paid off.
+- I was a player in the Arena League, I was building relationships with that internship.
+- The coach needs to understand, when he's not teaching something the right way or he sees something wrong, he's got to be able to admit to his mistakes.
+- You can't just say, 'This team's going to win,' or 'This team's going to lose.' Anything can happen. So what you can control is winning your game as much as possible. If you don't do that, and then the other team has a chance to lose, and they lose, and you didn't go about it the right way, now you just let that slip.
+- I'm living the dream.
+- If somebody comes out and has a poor game, it doesn't mean they're getting cut.
+- The quarterback needs to know when he's doing something wrong or how he can get better.
+- If it's a good play, don't get too high. Make a good play, follow it up, and then if it's a bad play, if there's a mistake or there's something wrong, don't worry about it.
+- Sometimes when you get out there and you want to just do your own thing, we have to reel that in.
+- You've just got to go with your gut feeling.
+- You see the excitement on the players. I don't know... if they think, 'This coach is crazy,' or if they think that, 'No, this is pretty good.'
+- I've got to be better. So when I talk to the team, I want to make sure that I'm real with them, and I tell them I can be better.
+- There are scenarios when I wish I would have made some different choices with the playcall.
+- You learn from any criticism. You learn from any self-criticism. And you learn from when you do things the right way: you try to keep going.
+- I normally don't get frizzled.
+- In high school, it was NEH-gee. In college, it was NAG-ee. Now we don't know what it is.
+- When you fail to communicate, there are gray areas. And when there's gray areas, then bad things happen.
+- I think when you start changing things, you're not being yourself.
+- Anytime you give up two special-teams touchdowns, I can't imagine the numbers are too good in regards to winning that game.
+- I went to the ultimate high to an ultimate low. It's just how life goes, and everything happens for a reason.
+- Details - that's what it comes down to, so you're always learning more about a play or a concept.
+- In the end, everyone talks. We're all evaluated and judged on. It's about production and results.
+- Even as a coach, sometimes you forget the little intricacies of the offense, the details of the routes, the timing of the footwork, and the timing of the offensive tackles with the different sets that they have.
+- We have to make sure as a staff, and I have to make sure as the staff learns, that we just really keep it simple. We get good at the fundamentals. And then, as we perfect that part of the game, now we can add on.
+- That's my nature: I'm going to be aggressive, but it has to be calculated.
+- Every running back has their own strengths and weaknesses. There are some that are better as pass receivers. There are some that are better inside, tight zones and mid zones and outside zones.
+- For me, you understand that we always talk about a 'we' and not a 'me' thing. And we always talk as a team. We win as a team. We lose as a team.
+- I've always considered myself a leader, a leader of men.
+- You stay positive. Any competitor is going to get angry with themselves and frustrated, and all the emotion comes on.
+- I think it all circles back to me just trusting myself as a coach and believing in what I feel is the right thing to do.
+- When you throw the ball 50 times, there are going to be some that are inaccurate.
+- I'll never forget the day I went home and told my wife, 'I'll never be a kindergarten teacher.'
+- That's what good teams do right there: We come together - and go boom!
+- A quarterback has to trust the quarterback coach. And the quarterback coach has to trust him.
+- You can't make the kid feel like he just made three mistakes in a row and you're pumping him up. No. There's a balance to it. It's, 'Listen, here's why you did what you did. Don't do it next time, and you'll be OK.'

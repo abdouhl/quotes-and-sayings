@@ -1,0 +1,31 @@
++++
+author = "Josiah Royce"
+title = "Josiah Royce Quotes"
+quotes_len = "25"
+description = "the best 25 Josiah Royce Quotes"
++++
+- No consensus of men can make an error erroneous. We can only find or commit an error, not create it. When we commit an error, we say what was an error already.
+- So far as we live and strive at all, our lives are various, are needed for the whole, and are unique.
+- That this individual life of all of us is not something limited in its temporal expression to the life that now we experience, follows from the very fact that here nothing final or individual is found expressed.
+- Our will makes constantly a sort of agreement with the world, whereby, if the world will continually show some respect to the will, the will shall consent to be strenuous in its industry.
+- As for you, my beloved friend, I loyally believe in your uniqueness; but whenever I try to tell to you wherein it consists, I helplessly describe only a type.
+- No baseness or cruelty of treason so deep or so tragic shall enter our human world, but that loyal love shall be able in due time to oppose to just that deed of treason its fitting deed of atonement.
+- This preparatory sort of idealism is the one that, as I just suggested, Berkeley made prominent, and, after a fashion familiar. I must state it in my own way, although one in vain seeks to attain novelty in illustrating so frequently described a view.
+- I teach at Harvard that the world and the heavens, and the stars are all real, but not so damned real, you see.
+- For myself, I do not now know in any concrete human terms wherein my individuality consists. In my present human form of consciousness I simply cannot tell.
+- Ideas any one can mould as he wishes.
+- And just because God attains and wins and finds this uniqueness, all our lives win in our union with him the individuality which is essential to their true meaning.
+- The lonely wanderer, who watches by the seashore the waves that roll between him and his home, talks of cruel facts, material barriers that, just because they are material, and not ideal, shall be the irresistible foes of his longing heart.
+- For the Absolute, as we now know, all life is individual, but is individual as expressing a meaning.
+- We seek true individuality and the true individuals. But we find them not. For lo, we mortals see what our poor eyes can see; and they, the true individuals, - they belong not to this world of our merely human sense and thought.
+- The other aspect of idealism is the one which gives us our notion of the absolute Self. To it the first is only preparatory. This second aspect is the one which from Kant, until the present time, has formed the deeper problem of thought.
+- The world, as transformed by this creative deed, is better than it would have been had all else remained the same, but had that deed of treason not been done at all.
+- If I look to see what I ever did that, for all I now know, some other man might not have done, I am utterly unable to discover the certainly unique deed.
+- Listen to any musical phrase or rhythm, and grasp it as a whole, and you thereupon have present in you the image, so to speak, of the divine knowledge of the temporal order.
+- Interfere with the reality of my world, and you therefore take the very life and heart out of my will.
+- Of this our true individual life, our present life is a glimpse, a fragment, a hint, and in its best moments a visible beginning.
+- I never felt a feeling that I knew or could know to be unlike the feelings of other people. I never consciously thought, except after patterns that the world or my fellows set for me.
+- So, as one sees, I by no means deprive my world of stubborn reality, if I merely call it a world of ideas.
+- God is One, all our lives have various and unique places in the harmony of the divine life.
+- But you are alone. Yet I never tell what you are. And if your face lights up my world as no other can - well, this feeling too, when viewed as the mere psychologist has to view it, appears to be simply what all the other friends report about their friends.
+- God too longs; and because the Absolute Life itself, which dwells in our life, and inspires these very longings, possesses the true world, and is that world.

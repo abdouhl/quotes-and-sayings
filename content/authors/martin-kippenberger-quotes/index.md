@@ -1,0 +1,20 @@
++++
+author = "Martin Kippenberger"
+title = "Martin Kippenberger Quotes"
+quotes_len = "14"
+description = "the best 14 Martin Kippenberger Quotes"
++++
+- An artist who opposes himself still has the best chances to reach some result.
+- You really can't bring about anything new with art.
+- What people will say about me then - or maybe not say - will be the only thing that finally counts.
+- Entertainment and art are not isolated.
+- I am not an easel-kisser.
+- My style is where you see the individual and where a personality is communicated through actions, decisions, single objects and facts, where the whole draws together to form a history.
+- Entertainment is in art like color in pictures.
+- I can't cut off an ear everyday. Do the Van Gogh here and the Mozart there. Anyway it's exhausting enough always having to check up on what one is really doing!.
+- I'm not interested in provoking people, but only in trying to be consoling.
+- Nobody helps anybody.
+- Assuming roles is something that simply won't work for me, since I don't have a style. None at all.
+- A good artist has less time than ideas.
+- I am a travelling salesman. I deal in ideas.
+- What I'm working on is for people to be able to say that Kippenberger had this really good mood.

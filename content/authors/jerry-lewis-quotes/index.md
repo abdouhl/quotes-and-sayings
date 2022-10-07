@@ -1,0 +1,129 @@
++++
+author = "Jerry Lewis"
+title = "Jerry Lewis Quotes"
+quotes_len = "123"
+description = "the best 123 Jerry Lewis Quotes"
++++
+- I am probably the most selfish man you will ever meet in your life. No one gets the satisfaction or the joy that I get out of seeing kids realize there is hope.
+- I make sure that I take good care of me.
+- I expect people that come to the studio to work to come with the same energy I come with. If I see less than that, I get very strong about, if you want to do this, come with a sense of pride, come with eagerness and anxiety.
+- I've had the greatest respect for my work in this country by Americans. Critics have no brains.
+- The beauty of love, as far as I'm concerned, is it makes you better. It makes you stronger. It gives you direction. It gives you understanding of what life is and what we've been given.
+- Don't you understand how dramatic it is to be a comic? To be a fool, to get people to laugh at this show-off? Milton Berle could take Laurence Olivier and stick him under the table if he wanted to. And so could I.
+- What's happened at 85 is I've lost my appetite. I used to be a little hog when I was young. But now I really don't seem to need it.
+- You see, the people that have a point of view and have an opinion and have some intellect are dangerous in the film community - they're dangerous.
+- If I found the cure for dystrophy tomorrow, I would do a telethon in four weeks for acute pain that in this country is a bigger problem than cancer, heart, sickle cell, anemia, name it. It is - it's hitting 70 million Americans.
+- My dad was a stickler for teaching me the pratfall. There is something magical about taking a good fall, and when it works, when you get that laugh, there's no better feeling in the world.
+- I've had great success being a total idiot.
+- I think the movie industry has to pay attention that we need to make good quality films, or we are never going to get the business back.
+- Interviews are vital, but you cannot allow an interviewer to take your life and disturb it.
+- I almost resent being Charley Moviestar. Yeah, I'm grateful. But it takes me away from my kids.
+- Pity? You don't want to be pitied because you're a cripple in a wheelchair? Stay in your house!
+- I'm sour at times.
+- Being 90 is not simple, but it's interesting, very interesting. Before I was 90, I could walk, I could see well, I could hear terrific, and now, I can't hear or see or walk.
+- I'm always thinking about future projects and at the same time trying to finish the project you're in the middle off.
+- Every man's dream is to be able to sink into the arms of a woman without also falling into her hands.
+- I never got a formal education. So my intellect is my common sense. I don't have anything else going for me. And my common sense opens the door to instinct.
+- Nothing can stop anyone who has a love and passion about their work.
+- Billy Crystal, Steve Martin do wonderful things.
+- Most performers are used to the highs and the lows. If you can let a low stop you, that would be a sad commentary.
+- When you're doing a different kind of film, you have to bring a different kind of attitude; you have to bring a different kind of concentration.
+- I like to watch all those shows that shouldn't be on the air - reality shows.
+- When you're 89, dementia develops. I mean, I've told a story onstage, and I'm telling it with a full heart, and I forgot the damn punch line.
+- You can ask me anything you want. That doesn't mean I'm going to answer you.
+- I don't ordinarily do television because I don't like some of the things projected on it.
+- I really am opinionated, but not for long. I have found myself coming off of what I think of something because the guy I'm talking to makes better sense than I am. I have so many points of view, I can't keep track of 'em, because I talk to too many people... I'm not so opinionated that I won't budge.
+- I happen to believe in the human condition so strongly that I don't have to make up games to play with people. Here's what I think: If it's good, let's go for it. If it needs work to be better, let's work on it.
+- I turned down 'Some Like It Hot.' See how smart I am? I felt I couldn't bring anything funny to it. The outfit was funny. I don't need to compete with the wardrobe.
+- I need the applause.
+- You can't be faulted for being selfish if you're going to get better because of it.
+- Seeing a woman project the kind of aggression that you have to project as a comic just rubs me wrong.
+- Red is uplifting.
+- There's nothing more dramatic than the comedy I've done. Because the comedy I've done is to get to the audience, get them to feel it, or they won't laugh.
+- I don't want to be remembered. I want the nice words when I can hear them.
+- I never tell an audience what they can expect. I never have, and I never will.
+- I'm shocked to be saying this, but as a child, I never went to a circus. It cost too much.
+- When you are debilitated, and you're very depressed, and you believe there's no hope, you cannot get a better potpourri of down.
+- My Judaism has always been a great pride with me.
+- Adrenaline is wonderful. It covers pain. It covers dementia. It covers everything.
+- God hadn't made me handsome, but he'd given me something, I always felt: funny bones.
+- It'll keep you alive for another 10 years if you get yourself a laugh once a day: either provoke it, or look around in the wildest laboratory in the world, the public.
+- People hate me because I am a multifaceted, talented, wealthy, internationally famous genius.
+- I say to everybody, love is what wakes you up in the morning, love is what makes you walk, and love is what makes you hope.
+- The young man who's had the Guggenheim fortune behind him all his life - he can hire all the authorities on the subject to teach him how to do a monologue, but he's never going to have the right stuff to pull it off. If he doesn't walk out onstage needing to walk out there, he doesn't have a dream of doing well.
+- I can't stand to ask anyone, 'How was that?'
+- I think the cartoons that they're children are watching, particularly 'The Simpsons,' they're OK. I think that the adult audience is making much too much of the danger that they imply. That's not the case. The danger for children today, honey, is the news. Keep them away from news on television.
+- I got the 'Max Rose' script, and I fell in love with it. It just hit me. It was something that needed to be made.
+- When I get an idea, I start to write like I was electrically motivated.
+- My God, the stage is the only place I know where to go.
+- A wonderful thing happens over time. You fall in love with the sound of your own voice.
+- I never stop working.
+- An only child, I always wanted a large hug-house.
+- I get paid for what most kids get punished for.
+- We're leaving the House to people who either were born with a silver spoon in their mouth... or couldn't get better jobs in the first place.
+- I have always said that I cannot allow the child within me to die. It's kept me alive.
+- That never stops. That's what drives you: the joy and excitement of doing what you love.
+- I have a loyalty that runs in my bloodstream, when I lock into someone or something, you can't get me away from it because I commit that thoroughly. That's in friendship, that's a deal, that's a commitment. Don't give me paper - I can get the same lawyer who drew it up to break it. But if you shake my hand, that's for life.
+- The film I did with Bobby De Niro, 'The King of Comedy' - an awful lot came to me out of that movie because De Niro never allowed me any room to be crazy. If I had tried to play it the way I would normally play it and get hysterical, Bobby would punch me.
+- I started as a writer. I had the dumb act, but I made my living from writing.
+- A lot of people resent that I've been in someone's life for 50 years. Why shouldn't people have an affection for me and what I've done? Didn't I have to be genuine for them to buy into what I did? There are children who grow up today who will not have that when they're 55 years old. With whom will they have it? Name an example for me.
+- I think it has helped that I am so curious about what has been happening to me and that I have enjoyed watching the changes through my life, you know? I didn't know what was going to happen to me next.
+- Adrenaline is so strong that none of us understand it.
+- Every day is another something that comes along.
+- Turning 90 is not for sissies.
+- When I'm working, I stay in ICU in any hospital that will get me a bed.
+- From 1936 on, I have taken more falls than any other 20 comedians put together. From the time I was 21, I've taken them on everything from clay courts to cement to wood floors, coming off pianos, going out a two-story window, landing on Dean, falling into the rough. You do that and you're gonna have problems.
+- Most people are embarrassed to admit there's another human being that's in control of them, that your heart beats three times as fast because you've given yourself to someone else.
+- I don't like any female comedians.
+- Marilyn Monroe was a fabulous dame - fabulous.
+- I will not say anything negative about the president of the United States. I don't do that. And I don't allow my children to do that.
+- I was once six feet tall, but at 85, I'm now five feet four.
+- The greatest thing I can remember in my whole career was the Ringling Brothers & Barnum and Bailey clowns asking me to appear with them at the Shrine Auditorium in Los Angeles in 1965.
+- When you get a question like, 'Did you like meeting Her Majesty?' 'No, I thought she was a slob.' I mean, what are you going to say... The mischief comes into me when I'm doing a Q&A, I'm 9 years old again. I don't get mad. I do get offended.
+- I almost get annoyed at the fact that I'm not going to use all that I got.
+- I think so much in time. I always have. Even at 20, I thought in terms of time, that I don't have a lot of time left. And I want to do so many things.
+- I have some very personal feelings about politics, but I don't get into it because I do comedy already.
+- I'm an unusual man. I know that.
+- There's something wonderful about taking a tag off a pair of socks, off a shirt, off a jacket. I really think that it has to do with my wanting to give myself all the perks that there are. It's part of my psychosis.
+- I've raised my boys the old-fashioned way, with spankings, sending them upstairs if they misbehave at parties, the works. I believe discipline is the proof of love.
+- You want to know why Barbra Streisand is so difficult? Because she's brilliant. She's a brilliant entertainer, she's a brilliant lady, and she's a wonderful human being, and the community doesn't like it.
+- I've never been more than 9 years old.
+- I go where the action is.
+- Gambling is part of the human condition. I love it. I have the best time gambling. I've been winning fortunes, and I've been losing them.
+- The people at Columbia Pictures have been great, but I had to tell them, 'Please don't be nice to me. Just pay me.'
+- I'm really not thick-skinned - my wife will tell you that I take sunsets personally - but I know that I've got the belly for whatever comes down the pike. I think it's tenacity. You've been there before, and you just have to recall, 'How did I handle that one?'
+- When I would be myself, I was being big-headed. I was being egotistical. I was a megalomaniac, when it really was just having not to be a monkey for a few hours a day. And fulfilling the need to be a man.
+- What happens at 90 is that I don't walk so good, my eyes are going, I can't hear well, and I'm getting all of the 90s residuals.
+- A woman doing comedy doesn't offend me, but sets me back a bit. I, as a viewer, have trouble with it. I think of her as a producing machine that brings babies in the world.
+- People think I'm against critics because they are negative to my work. That's not what bothers me. What bothers me is they didn't see the work. I have seen critics print stuff about stuff I cut out of the film before we ran it. So don't tell me about critics.
+- When I was onstage doing the work, adrenaline killed the pain because I never hurt in front of an audience.
+- You would not believe some of the scripts I have seen. I have read something like 160 that I've rejected, and I keep them all, for posterity.
+- I never tell an audience what they can expect. I never have and I never will. I'm an entertainer for 75 years.
+- Going unnoticed has never been my strong suit.
+- When I arrived in Las Vegas, I felt I was embraced by it.
+- If you're an old pro, you know how well you're doing when you're doing it, and your inner government spanks you if you're not doing well.
+- I feel I have been a part of some very wonderful films, and I have had it in mind when I was on the set, every day, that what I am doing has meaning.
+- I would not want to do one-episode television - that's just a brief encounter with your audience. The arc takes the actor into an arena where he can really stretch.
+- This is the pain pacemaker. I've got a battery under my skin. From that battery are two electrodes that go into the spine where they cut bone away to accommodate it. Now I put on the power here. If I have the pain, the stimulator starts. It's tingling, like when your foot falls asleep, you know?
+- Love is what makes you dream, and love is what makes you want to get up in the morning. Love is something that you want to be a part of because it makes you better.
+- Commercial television has underestimated the intelligence of the public.
+- I want to know why the government of this country can't take care of the people who are keeping us safe?
+- I'm really, basically, nine, and I've always been that. I've never, ever allowed the child within me to die.
+- I believe when you go out there, you have a responsibility to deliver. I have old-fashioned thinking when I'm out there.
+- To ask a pratfall comedian, a dishes-in-the-face comic like me, to lay back and bring none of that stuff to the script because it doesn't call for it? That's tough.
+- My family was as absolute as the work.Family was first always.
+- I will do whatever is necessary to make better the stupidity on my part - and therefore go after those who are acting stupid themselves. It's not popular. You don't make friends when you do that. And I couldn't care less.
+- I don't talk about anything negative.
+- My ego and my vanities have nothing to do with comedy.
+- I dream in color.
+- The connection between pathos and broad comedy is very tight. But you do far more work in a comedy scene than you do in a straight scene. It's much harder.
+- I tell young comics, 'Do you want this badly enough? It's there. But you have to go get it. And if you think I'm going to give you the key to the lock of that door, there is no key, there is no lock, and there is no door.'
+- You can't hold comedy back, because it needs to be exposed.
+- I learned from my dad that when you walk in front of an audience, they are the kings and queens, and you're but the jester.
+- You think about getting old, but when you get there, it's not what you thought it would be.
+- Getting attention is my business. My whole life's predicated on, 'Hey, look at me!'
+- Postwar America was a very buttoned-up nation. Radio shows were run by censors, Presidents wore hats, ladies wore girdles. We came straight out of the blue - nobody was expecting anything like Martin and Lewis. A sexy guy and a monkey is how some people saw us.
+- When I was young, I wasn't disciplined at all.
+- When I hit around 65, 66, I started to feel tremendous worth and incredible personal esteem. I was becoming very cognisant of my contribution to the American spirit of helping your fellow man and all of the good stuff.
+- If I was performing, I had no pain. But you can't stay on stage 24 hours a day.
+- For a comic to put a public performance in jeopardy for a snickering little laugh - no, no, no, I don't believe in it.

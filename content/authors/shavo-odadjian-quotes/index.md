@@ -1,0 +1,96 @@
++++
+author = "Shavo Odadjian"
+title = "Shavo Odadjian Quotes"
+quotes_len = "90"
+description = "the best 90 Shavo Odadjian Quotes"
++++
+- I can't try to write a song - songs come out of me. I have to play the guitar and if I jam a song, boom! That's a song.
+- I was born born April 22. I got married May 22. System of a Down started started blowing up when I was 22.
+- Chop Suey!' was really heavy, but it had a lot of melodic parts. It was fast and frenzy.
+- So the universe is the sacred silence and sleep, and the kids are the disorder. So how do you control the disorder in that universe? You can't. To me, that's 'Toxicity.'
+- It's not unpatriotic to have feelings and beliefs that don't go with the President - with his feelings and beliefs.
+- If I plan to write, I won't be able to write anything good. I just need to kind of jam and let things come.
+- We don't preach, but we just tell you what we think, and it provokes thought.
+- When something's taboo, the kids get a sense where they want to do it because it's taboo.
+- I like having things to do. I like to always be busy.
+- Every human being sees something different in a painting, so I want every single person to have their own thoughts about our songs.
+- I like to think we're like a cross between Pink Floyd and Slayer.
+- I can't force anybody on stage. I can't force anybody into a studio. I can't force anyone anywhere.
+- Well here's how I look at it, I've always been someone that's liked to have things on my plate, it just keeps me going.
+- We want to sound like a band you can't clone or even categorize. We like to throw everyone off.
+- System of a Down is my lifeline. It'll never go away.
+- Rock's not dead.
+- I think we all want maybe 'Lost in Hollywood' to one day be a single.
+- We're a life band, a social band.
+- We're a band that keeps writing and recording - we don't know when it's over.
+- When I hear a song, I close my eyes and see a lot of stuff happen, and I love making those visuals come to life. It's always been a passion.
+- I used to be very good friends with Kanye.
+- I always play music at home, every day I grab a guitar and start riffing.
+- I've always been someone that always likes to do things, and I don't like to be sitting around: I get nervous when I sit around.
+- The industry is so oversaturated with these fly-by-night rappers who come in and come out. People who say 'rock is dead,' it's because of that. It's because of what's out there saturating the industry.
+- I have a pretty good track record of what I put my name on, so I don't want to ruin that.
+- I want to be proud of everything I do.
+- I'm kind of right in the middle - I'm an Independent, not far Left or far Right. But I don't think everyone needs to know about that, do they?
+- Oh, I know the Kardashians quite well.
+- People see citizens who are anti-war anti-American or anti-patriotic and that's so wrong.
+- System is always System for me. If System's touring or making a record, I'm there.
+- Man, George Clinton taught me some serious lessons! For a couple of years we were hanging out almost every other day. He'd stay at my house sometimes because we were working so much.
+- We're not into the rock/rap movement.
+- I listen to a lot of Eighties hip-hop. I listened to a lot of Ice-T.
+- I've been so hesitant to do anything else besides System because you know, when you do something grand and it's noticed so much, everything else you do is secondary.
+- I started a project with the RZA back in '09 called Achozen, but we never actually dropped that.
+- I would skate in the '80s. I started skating with Jordan 1s, and that was a big deal. I looked different, because no one was getting with Jordan 1s. That became my little thing. I grew up in Hollywood.
+- I love to hear my ideas come through other people. There is strength in numbers.
+- I'm not a solo artist. I love to collaborate.
+- RZA helped me make my first beat, and he rhymed over it, and that made the 'Babylon A.D.' soundtrack. That first track was very raw and unmixable, but it's so anthemic. After that, I started learning how to make tracks. It was a process, but once you stop learning you're dead.
+- I would never want to put my name on a crappy thing. So, everything that has my name on it is pretty high quality: I put my heart and soul into it.
+- I have a lot of ideas for videos, and I want to pursue directing. This is one of the goals I have always had.
+- We're four guys that play music. We're not a part of any genre. We just happened to have come out in 1998.
+- I did Achozen with RZA and that was straight hip-hop.
+- I used to always wear Vans back in the day. I had every type of Vans and Converse there was. I was a Chucks guy and a Vans guy.
+- I'm not a giant rock star. I play one on TV, though.
+- To me, punk rock isn't a style of music, it's something you live.
+- I like to make music and anytime I come up with something good, I'll record it as a video on my phone.
+- The people who hate us, I don't think they are wrong. That's what they think, and I promote thought.
+- We've been a band since 1993. I don't think we're ever gonna be broken up.
+- People either hate us or love us.
+- I always thought when I was 22 something bomb was gonna happen, then when I was 22, System started blowing up in like '96. Not blowing up really, but I started putting it into fruition. '96 is when people started noticing us, then '97 was when we got signed.
+- I directed videos for System, I do stage production visuals for the band, so that's important to me.
+- Glendale is such a mecca of our fans. They are the most important things. It's the fans and then music, then we come third or fourth.
+- I'm used to being in a band and collaborating.
+- There's nothing anti-patriotic about wanting peace. There really isn't.
+- I don't like record company people very much, so I don't want to be one of them.
+- We had labels offering us deals the first year we formed - 1995 - but we were afraid of them going, 'Let's change this and that.' We had labels telling us to get rid of our singer. I look back sometimes and go, 'Imagine if we had done that-what a shame it would have been?'
+- We don't want to name our songs after the choruses, so we sometimes come up with random titles. We don't care if people don't know the names of the songs, we want them to play it and never get sick of it. We want it to be exciting, melodic, heavy and emotional. It can make you cry and laugh and be angry.
+- Creativity, I think, is within you.
+- I come from the '90s where there was rap-rock and I was never a huge fan of it. I loved Rage, I loved some of the other stuff that was going on, but it got really oversaturated and it got kind of cheesy at some point - we can all say that.
+- I'm one of the most, like, 'wanting-to-tour' guys in the band.
+- There's a lot of bands that don't release an album every year. There's a lot of bands that take three, four or five years off here and there, but they don't say 'hiatus,' so no one really notices it.
+- I never wanted to do rap-rock because it had been done loads in the '90s, but I love hip-hop and I love metal.
+- I haven't sold one painting. I have either given them as gifts or just kept them. It's like babies you know. It's, like, hard to sell a baby.
+- We played a 600-seater in France that was amazing. I got so excited when I saw the place. Just vibewise, with the crowd, it was amazing.
+- I don't like videos that explain the song. I like it to be kind of abstract, like a painting.
+- If something's good once, it's always going to be cool. It just has to be quality.
+- I don't want every member of System to have their own label. It will be like a circus.
+- When you open for a band, you don't play one of their songs. You just don't do that.
+- I've been a fan of Bad Brains ever since I can remember. They are iconic pioneers of punk, not just the music but the attitude.
+- I didn't know you had to do so much to be a director. I thought, 'I can do it. I can write a treatment.' I didn't know about shot lists.
+- There was a time in my life when I drank. I wasn't the best me when I was a drinker.
+- That's what a producer does - make it better; help make the song better and make the band better. Not write music for the band or tell a band what to do. And Rick Rubin doesn't tell you what to do; that's why some people don't like him.
+- I didn't join a band and didn't get famous to stop playing music.
+- I've always questioned death and birth and life. Where do we go? Are we here now? Or is this just one of the lives that we live?
+- I love System. I love the guys. They're my friends, over anything. Even if I don't see them or talk to them for months, when we're on the phone, we're best friends. That's how I am with them.
+- We're musicians and despite that, we get more political questions than musical questions, which kind of irks me.
+- I've never rapped. I karaoke-d 'Paul Revere' from Beastie Boys when I was 15, 14 years old, but that's it.
+- When I moved from Armenia to L.A., I moved to North Kingsley Drive. That was my street, that's where I grew up and I saw everything there. I started skateboarding there. I witnessed homelessness, the poor, you know, I noticed gangs. I learned about friendship.
+- I want to put my harshness into rap videos and create a new style.
+- A band is a real band if they can play not just their songs, but they can just play.
+- So, there's a lot of 22 in my life. That always followed me and has always been good to me. I also have a condition that is synesthesia, where you relate different senses with each other. So every time I think of numbers, since I was a kid, each number has had a color in my head.
+- Yeah, I like the Kardashians a lot.
+- I believe a band has to evolve rather than making the same album over and over again, because if you do, sooner or later people are going to get tired of you.
+- I was a Puma guy for a while. When System got signed, we got a deal with Puma, and they would just give me carte blanche, bro. I would walk into the Puma office and they would just give me whatever I wanted. I would just take it. I'd walk out with boxes and boxes, so I had every color, every style that I wore.
+- I never wanted to be in a heavy-metal band.
+- We are always writing music.
+- When I was a kid, I used to make skateboarding videos, and I would pretend to be in a band and make rock videos that I'd edit with two VCRs.
+- When I listen to a band like Pink Floyd, I don't know the names of the individual songs, I know the full albums. That's what we want for our albums.
+- We didn't just make Achozen's music to sell it.

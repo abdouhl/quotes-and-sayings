@@ -1,0 +1,20 @@
++++
+author = "Jesse Lee Soffer"
+title = "Jesse Lee Soffer Quotes"
+quotes_len = "14"
+description = "the best 14 Jesse Lee Soffer Quotes"
++++
+- I'm playing a cop in Chicago. So I have to look beefier - like a guy who eats steak and potatoes.
+- I definitely try to keep some level of style on my days off because you never know who's going to snap your picture.
+- I've always loved action stuff.
+- It's an interesting situation to be in to play a cop on TV and to know so many police officers through our training and our advisors.
+- I want to do 'Chicago P.D.' for as long as it's on the air. I love the show; I love the Dick Wolf family. I think he's created something genius with the crossovers and having everyone on these shows inhabit the same universe as far as 'Chicago Med' and 'Chicago Fire' and 'Chicago P.D.'
+- I try to stay away from carbs, but it can get cold in Chicago, and some sort of fettuccine Bolognese is right up my alley. That's why I try to get to the gym as much as possible!
+- I definitely binge watch. My schedule is so inconsistent and crazy and hectic that if I get a chunk of time, it's like, 'Oh, sweet, I have three hours. I'm going to watch three episodes of 'Peaky Blinders' right now.'
+- Every guy's got to own a watch. I'm a watch guy. Men don't get to wear jewelry, really, and that's the one item that we can make our own and personalize our stuff with.
+- I liked being one of the fastest guys on the field.
+- The men and women that I've worked with on the police force are some of the most honest, heroic, and pure human beings I've ever met.
+- I love Chicago.
+- I've been doing a lot of deadlifting and squatting for overall strength.
+- I think there's so many actors out there that we see and we know as one thing but are capable of so much more.
+- Playing a cop on TV and working closely with actual cops on set, I do think the media does a disservice to our first responders.

@@ -1,0 +1,84 @@
++++
+author = "Gillian Tans"
+title = "Gillian Tans Quotes"
+quotes_len = "78"
+description = "the best 78 Gillian Tans Quotes"
++++
+- Not only do we need more women in the technology sector, we also clearly need to refocus energy on improving gender equality in the global economy.
+- Friction still exists in travel, and we are on a quest to go even further to make the entire experience - from planning to staying and beyond - even easier with technology.
+- Instead of traveling on a weekend, begin your trip on a Tuesday or Wednesday, which are often the cheapest days to fly. Being flexible with timing can help with savings.
+- I found the Internet really fascinating.
+- Recognizing that female participation in technology is lower than it should be, we are committed to bolstering female tech talent, eliminating obstacles and challenges they face, and fostering diversity.
+- We have built out the diversity of our product teams, and we saw the caliber of our testing and experimentation improve significantly.
+- There are more and more properties joining us to benefit from and leverage our global online marketing expertise.
+- As a company, we believe in free and open borders. We feel this best facilitates the exchange of cultural values and ideas.
+- Understand tipping culture. Whereas Americans tip 15-20% when dining out, most European countries don't tip, as a service charge is typically included in the bill. Make sure you're not over-tipping by doing research before traveling.
+- Whether you are checking luggage or bringing a carry-on, always weigh and measure your bags to make sure they are below the airline's size and weight restrictions. Excess baggage fees can be costly. Avoid all baggage fees by only bringing a carry-on.
+- I am a woman, and I am proud to say that I work in technology. But I also recognise that the combination of those two facts puts me in the minority.
+- There's no point being at the airport longer than needed.
+- I don't think there's ever a wrong answer as long as people are willing to learn, share. You're never done learning.
+- Traveling changes you as a person. If you buy something, it's so different than if you put your money into traveling.
+- Booking.com is one of the biggest translation companies in the world.
+- An American customer can book in English all over the world, but also, somebody from Japan or China can book in their own language everywhere. We translate all of our content into these languages, and that's quite unique. We service our direct customers - the innkeepers - as well in their own language.
+- If you look around Booking.com, it's a very gender-balanced company.
+- Booking travel is not like shopping or groceries or booking a restaurant. It's much less frequent, so understanding what works just takes a lot more time.
+- As a company powered by technology and digital innovation, Booking.com believes strongly in ensuring equal access and opportunity for all within the technology sector.
+- A long time ago, we had to build interfaces to connect with other companies, and I thought that was a great idea. The company had to pay a lot of money to build it and basically launched it, but our whole operating system almost broke. So, we couldn't continue it. In the end, I had to go on the train to Paris to explain that I had spent millions.
+- We know that companies which have more women in leadership positions have a better performance.
+- I think companies need to take more ownership over the gender gap themselves because if everybody does that, then overall, it will improve.
+- China's domestic travel is increasing, and that's why we are building our teams here in China.
+- If you run a global business, it's so important that you understand what happens in each place, and you can't do that remotely. I don't want to go anywhere and leave and not have seen the people who work for us. That doesn't feel good.
+- Pack snacks. Food prices once you pass through airport security or within blocks of a major tourist attraction can be double the price. Pack travel-friendly snacks or visit a grocery store in the destination you are visiting to get a better price.
+- Starting a business and building a product are not for the faint of heart. You have to learn to not let little disappointments get you down and to stay focused on the big picture.
+- In the beginning of Booking.com, we were travelling around Europe a lot. Sometimes we'd do five cities in a week.
+- I travel very light. I never want to check a bag. My only standards are a few sets of clothes, my white sneakers, my blue backpack, and my laptop. I don't have any special things otherwise.
+- Both business and leisure travellers are enjoying unprecedented levels of choice.
+- We want to make sure that we have the right products for Chinese people.
+- We believe in global scalability with local relevance.
+- Employing women is good for business.
+- The move to Internet-enable travel booking is creating massive convenience, efficiency, and savings for consumers.
+- If you're afraid of failure or getting it wrong, you'll never truly innovate or disrupt the market.
+- People always travel no matter what.
+- On the one hand, you have markets such as Singapore and Thailand, with an extremely strong inbound booker market and a well-developed tourism industry. You also have markets that are just opening up to tourists, like Myanmar, that have massive growth potential and then markets that are extremely fragmented within themselves such as Indonesia.
+- We will invest more into China to make sure that our brand gets more known to Chinese customers.
+- Booking.com has been very good at performance marketing. That's how we grew our business.
+- India has a sizeable chunk of the Asian travel market - both inbound and outbound travel.
+- Every customer is different, and the travel experience is completely fluid, but the end goal is to find the best solutions.
+- Technology's great, but you can only be as good in technology as your people are.
+- Eventually, people should just say 'give me the best hotel in a certain date in a certain location.'
+- We found we were able to create better, customer-centric product features more quickly with a more diverse product team.
+- Typically, I get to the office around eight o'clock. I have a very mixed schedule, and I always try to keep time for things that are not planned. You need time for whatever might pop up in the week.
+- I'm a master at getting as much in a day as possible.
+- There are a lot of threats out there. Amazon can enter the travel market. Google could enter the accommodation space. But that is not something that we actively focus on.
+- Education is crucial in determining which profession women will choose, so it's important to spark interest in technologies at an early age.
+- We are putting a lot of investments behind building customer loyalty. We need to make sure we keep investing in the right tech that will help customers. If we keep doing that well, we will keep progressing.
+- Japan is a very important market for us and has grown remarkably as one of the most popular travel destinations in the world.
+- Using science to tell us what customers are looking for is second nature for us here.
+- From our earliest days, Booking.com has been deploying technology to help strip the friction out of travel.
+- With any previous transition we made with technology, it hasn't been the case that we need less people.
+- There are a few books I can recommend, but one you should read for sure is 'Do More Faster,' a book full of advice for young entrepreneurs. Looking back at the early days of Booking.com, I recognize a lot of things that feature in this the book - like 'fail fast, learn quickly.'
+- We are a bottom-up culture, and we need a communications platform that can facilitate that.
+- We have many accommodation owners - people who own small hotels, villas and bungalows - and the digital economy has opened up a world of possibility for these business owners. Now, they can sell to and communicate with people around the world, and where Booking.com comes in is to help these accommodation owners adapt to the digital world.
+- We wanted to go much bigger than anybody else. That's why we've targeted so many countries.
+- Things like chatbots, machine learning tools, natural language processing, or sentiment analysis are applications of artificial intelligence that may one day profoundly change how we think about and transact in travel and local experiences.
+- From the early days, Booking.com has been disruptive. Our aim is to create the best product for our customers, and we do that through constant innovation and testing.
+- Many people think we are a technology company, but we are totally customer-led.
+- One in five of our customers books for business. But it's scaling very fast. As a result, we have tools for medium or small-sized companies to allow them set their price and give basic reporting functionality.
+- There is a misperception among job seekers that opportunities for women in tech exist only for those with coding or engineering experience. To be sure, technology firms do need women with these skills, but they also need women with expertise in other areas, like marketing and finance.
+- Travel is a combination of the personal and the emotional.
+- I've always been curious and taken many risks, but that is quite atypical for a woman. On the other hand, I think that's the only way to grow beyond yourself.
+- And as a woman, you need to take risks. Don't stay too long in your own swim lane.
+- My mother was from an entrepreneurial family and very creative. She always pushed me to take risks, to do things I wouldn't have thought of.
+- Tech is a key driver of social and economic change, and around the world, women like me are transforming businesses, industries, and communities.
+- Booking.com started with just a website, but we've always thought of our company as being more than just a website.
+- What always drove me was my curiosity. That's what made me join Booking and not be afraid to leave a very successful job and then go into a startup.
+- India is a fast-growth market and is developing a lot. We continue to increase our partners here and make investments.
+- As CEOs or board members, women are still underrepresented, and that gap is actually growing.
+- The culture of Booking.com has been very good for me because it's a culture where you're allowed to fail. When you think about taking risks, if it's OK to fail, you actually do a lot more. And you learn a lot quicker.
+- For me, it's about taking things that do not take a lot of space. Don't take a lot of shoes. I tend to pack a lot of dresses, for instance, because they take up less space.
+- If firms were made to hire according to quotas, it might optimize the percentage of women in the industry, but that doesn't necessarily translate into more quality products for the customer.
+- When you start very young and you start to work, you're going to fail. That's how you learn.
+- Eventually, we want to be able to say, whether in your own neighborhood or a city across the globe, our technology will be needed to break through barriers - whether it's money, time, languages, or simply choice.
+- Our mission is to empower people to experience the world.
+- The mission of Booking is to empower people to experience the world. Whatever people want to do, wherever they want to go, they can book it with us.
+- Traveling is an experience that you can always carry with you. It makes the world come together more so we understand each other better.

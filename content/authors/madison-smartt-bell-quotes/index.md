@@ -1,0 +1,20 @@
++++
+author = "Madison Smartt Bell"
+title = "Madison Smartt Bell Quotes"
+quotes_len = "14"
+description = "the best 14 Madison Smartt Bell Quotes"
++++
+- I had been an abject fan of Robert Stone since the early eighties, when I borrowed a copy of 'A Flag for Sunrise' to read on a plane to Rome. I was twenty-something, with a first novel under my belt.
+- Hemingway's minimalism is based on the psychological mechanics of repression. An echo of his approach can be detected in a favorite trope of 1980s minimalists: a pattern of reference to dire secrets and hidden wounds these authors didn't realize they were supposed to have imagined.
+- The country is too often assumed to be a backward place: The First World has trouble remembering that Haitians were two centuries ahead of us in abolishing slavery and in extending full rights of citizenship to everyone, regardless of race.
+- I have always had a mystical attitude toward inspiration. That's my nature.
+- Normally, most writers don't say, 'I'm going into a mild hypnotic trance.' Typically, they don't know how they do it. Most people, when they have a good experience writing, they're well placed in that state, which is also sometimes called a 'flow state.' If you don't have trouble, you don't have to think about it.
+- One can't do anything alone in Haiti. Sharing and cooperation are so deeply woven into the culture that sometimes it's hard to have a separate thought.
+- Since the 1960s, exile for Haitians is a condition that ends only to begin again.
+- I don't call myself a very good Christian, but I think I know one when I see one, and I also think I know when I don't.
+- Haiti was founded by African slaves who rose against their European masters, had a revolution, and created a new state. There is no other such event in Western history.
+- John Fahey, thought during his lifetime to be possibly more than a little crazy, was the author of some thirty albums of gnomically introverted droning guitar instrumentals, which I listened to heavily in my teens and twenties; I even produced an hour or so of banjo music in an imitative John Fahey style.
+- To me, there is nothing more soothing than the song of a mosquito that can't get through the mesh to bite you.
+- I had a house in Haiti, in the hills above the North Atlantic coast. The house appeared as if out of a dream: my dream to have a foothold in the country. Like many concepts do in Haiti, the phrase 'pied a terre' became literal, material.
+- Our cultural capital has changed tremendously on its way into the twenty-first century. Manhattan has been secured and sanitized; it's smoke- and trans-fat-free. In the boroughs, many of the old jungles have been cleared as well.
+- In 'For Whom the Bell Tolls,' Hemingway cozies up to revolution by romanticizing it (and not only with those execrable love scenes).

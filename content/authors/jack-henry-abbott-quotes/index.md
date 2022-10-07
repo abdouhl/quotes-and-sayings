@@ -1,0 +1,24 @@
++++
+author = "Jack Henry Abbott"
+title = "Jack Henry Abbott Quotes"
+quotes_len = "18"
+description = "the best 18 Jack Henry Abbott Quotes"
++++
+- One morning I woke up and was plunged into psychological shock. I had forgotten I was free.
+- Nothing is over and done with. Nothing. Not even your malice.
+- Paranoia is an illness I contracted in institutions. It is not the reason for my sentences to reform school and prison. It is the effect, not the cause.
+- Imagine a thousand more such daily intrusions in your life, every hour and minute of every day, and you can grasp the source of this paranoia, this anger that could consume me at any moment if I lost control.
+- I find it painful and angering to look in a mirror.
+- My eyes, my brain seek out escape routes wherever I am sent.
+- I have been desperate to escape for so many years now, it is routine for me to try to escape.
+- I've wanted somehow to convey to you the sensations - the atmospheric pressure, you might say - of what it is to be seriously a long-term prisoner in an American prison.
+- When they talk of ghosts of the dead who wander in the night with things still undone in life, they approximate my subjective experience of this life.
+- When I'm forced by circumstances to be in a crowd of prisoners, it's all I can do to refrain from attack.
+- As long as I am nothing but a ghost of the civil dead, I can do nothing.
+- The other inmates stand in a long straight line, flanked by guards, and I am dragged past them. I do not respect them, because they will not run - will not try to escape.
+- There was never sufficient evidence presented at my trial to support a finding of intent to kill.
+- The part of me which wanders through my mind and never sees or feels actual objects, but which lives in and moves through my passions and my emotions, experiences this world as a horrible nightmare.
+- I escaped one time. In 1971 I was in the free world for six weeks.
+- That is how prison is tearing me up inside. It hurts every day. Every day takes me further from my life.
+- To be in prison so long, it's difficult to remember exactly what you did to get there.
+- Because there is something helpless and weak and innocent - something like an infant - deep inside us all that really suffers in ways we would never permit an insect to suffer.

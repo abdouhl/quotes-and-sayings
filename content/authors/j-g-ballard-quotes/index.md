@@ -1,0 +1,84 @@
++++
+author = "J. G. Ballard"
+title = "J. G. Ballard Quotes"
+quotes_len = "78"
+description = "the best 78 J. G. Ballard Quotes"
++++
+- I would love to have been a painter in the tradition of the surrealist painters who I admire so much.
+- There's a logic today that places a greater value on celebrity the less it is accompanied by actual achievement. I don't think it's possible to touch people's imagination today by aesthetic means.
+- There are signs, I think, that people aren't satisfied by consumerism: that people resent the fact that the most moral decision in their lives is choosing what colour their next car will be.
+- The dream of empire died when Shanghai surrendered without a fight. Even at the age of 11 or 12, I knew that no amount of patriotic newsreels would put the Union Jack jigsaw together again. From then on, I was slightly suspicious of all British adults.
+- Even one's own home is a kind of anthology of advertisers, manufacturers, motifs and presentation techniques. There's nothing 'natural' about one's home these days. The furnishings, the fabrics, the furniture, the appliances, the TV, and all the electronic equipment - we're living inside commercials.
+- At the school I attended, the clergyman who ran the cathedral school in Shanghai would give lines to the boys as a punishment. They expected you to copy out, say, 20 or 30 pages from one of the school texts. But I found that rather than laboriously copying out something from a novel by Charles Dickens, it was easier if I made it up myself.
+- What our children have to fear is not the cars on the highways of tomorrow but our own pleasure in calculating the most elegant parameters of their deaths.
+- Medicine was certainly intended to be a career. I wanted to become a psychiatrist, an adolescent ambition which, of course, is fulfilled by many psychiatrists.
+- The Internet is an amazing development.
+- Looking back, it puzzles me that my parents decided to stay in Shanghai when they must have known that war was imminent. But the cotton works were my father's responsibility, and duty then counted for something.
+- Writing a novel is one of those modern rites of passage, I think, that lead us from an innocent world of contentment, drunkenness, and good humor, to a state of chronic edginess and the perpetual scanning of bank statements.
+- Medicine was certainly intended to be a career. I wanted to become a psychiatrist, an adolescent ambition which, of course, is fulfilled by many psychiatrists. The doctor/psychiatrist figures in my writing are alter egos of a kind, what I would have been had I not become a writer - a personal fantasy that I've fed into my fiction.
+- To my child's eyes, which had seen nothing else, Shanghai was a waking dream where everything I could imagine had already been taken to its extreme.
+- I was in Shanghai when the Japanese invaded China. I was there in Shanghai when, the morning after Pearl Harbor, they seized Shanghai.
+- The future is going to be boring. The suburbanisation of the planet will continue, and the suburbanisation of the soul will follow soon after.
+- Given that external reality is a fiction, the writer's role is almost superfluous. He does not need to invent the fiction because it is already there.
+- Boredom is a fearsome prospect. There's a limit to the number of cars and microwaves you can buy. What do you do then?
+- My upbringing was so middle-class and repressed. It wasn't until I was placed in Lunghua that I met anyone from any other social strata. When I did, I found them colossally vital.
+- I admired anyone who could unsettle people.
+- I could sum up the future in one word, and that word is 'boring.' The future is going to be boring.
+- E. Klimov's 'Come and See,' about partisans fighting the Germans in Byelorussia, is the greatest anti-war film ever made.
+- Orwell's '1984' convinced me, rightly or wrongly, that Marxism was only a quantum leap away from tyranny. By contrast, Huxley's 'Brave New World' suggested that the totalitarian systems of the future might be subservient and ingratiating.
+- Novelists should be like scientists, dissecting the cadaver.
+- When the modern movement began, starting perhaps with the paintings of Manet and the poetry of Baudelaire and Rimbaud, what distinguished the modern movement was the enormous honesty that writers, painters and playwrights displayed about themselves. The bourgeois novel flinches from such notions.
+- There were no museums or galleries in Shanghai, but I was very keen on art - I was always sketching and copying, and sometimes I think that my whole career as a writer has been the substitute work of an unfulfilled painter.
+- During the 1960s, the Shanghai of my childhood seemed a portent of the media cities of the future, dominated by advertising and mass circulation newspapers and swept by unpredictable violence.
+- I was terribly wounded by my wife's death.
+- My father worked, and my mother played bridge. Every time I went out of the house, I was chauffeur-driven with my nanny next to me to stop me being kidnapped.
+- Burroughs called his greatest novel 'Naked Lunch,' by which he meant it's what you see on the end of a fork. Telling the truth. It's very difficult to do that in fiction because the whole process of writing fiction is a process of sidestepping the truth. I think he got very close to it, in his way, and I hope I've done the same in mine.
+- I don't think any particular painters have inspired me, except in a general sense. It was more a matter of corroboration. The visual arts, from Manet onwards, seemed far more open to change and experiment than the novel, though that's only partly the fault of the writers. There's something about the novel that resists innovation.
+- Morality covers our conduct, not what goes on inside our heads.
+- It is difficult to remember just how formal middle-class life was in the 1930's and '40s. I wore a suit and tie at home from the age of 18. One dressed for breakfast. One lived in a very formal way, and emotions were not paraded. And my childhood was not unusual.
+- In March 1943, my parents, four-year-old sister and I were interned with other foreign civilians at Lunghua camp, a former teacher training college outside Shanghai, where we remained until the end of August 1945.
+- The entertainment medium of film is particularly tuned to the present imaginations of people at large. A lot of fiction is intensely nostalgic.
+- No one in a novel by Virginia Woolf ever filled up the petrol tank of her car. No one in Hemingway's postwar novels ever worried about the effects of prolonged exposure to the threat of nuclear war.
+- I made a very slatternly mother, notably unkeen on housework, unaware that homes need to be cleaned now and then, and too often to be found with a cigarette in one hand and a drink in the other.
+- The chief role of the universities is to prolong adolescence into middle age, at which point early retirement ensures that we lack the means or the will to enforce significant change.
+- If you're against globalisation, it doesn't achieve much by sort of bombing the head offices of Shell or Nestle. You unsettle people much more by blowing up an Oxfam shop because people can't understand the motive.
+- I don't think it's possible to touch people's imagination today by aesthetic means.
+- Science and technology multiply around us. To an increasing extent they dictate the languages in which we speak and think. Either we use those languages, or we remain mute.
+- Electronic aids, particularly domestic computers, will help the inner migration, the opting out of reality. Reality is no longer going to be the stuff out there, but the stuff inside your head. It's going to be commercial and nasty at the same time.
+- Presumably all obsessions are extreme metaphors waiting to be born. That whole private mythology, in which I believe totally, is a collaboration between one's conscious mind and those obsessions that, one by one, present themselves as stepping-stones.
+- Any fool can write a novel but it takes real genius to sell it.
+- Yes, sometimes I think that all my writing is nothing more than the compensatory work of a frustrated painter.
+- I've decided to recast myself as Utopian. I like this landscape of the M25 and Heathrow. I like airfreight offices and rent-a-car bureaus. I like dual carriageways. When I see a CCTV camera, I know I'm safe.
+- Memories have huge staying power, but like dreams, they thrive in the dark, surviving for decades in the deep waters of our minds like shipwrecks on the sea bed.
+- I take for granted that for the imaginative writer, the exercise of the imagination is part of the basic process of coping with reality, just as actors need to act all the time to make up for some deficiency in their sense of themselves.
+- I came to live in Shepperton in 1960. I thought: the future isn't in the metropolitan areas of London. I want to go out to the new suburbs, near the film studios. This was the England I wanted to write about, because this was the new world that was emerging.
+- In 1949 - my father stayed on in Shanghai after the war. But in 1949, the Communists took over the whole of China, and in fact, my father was caught by the Communists in Shanghai. And he was there for about a year until he was finally able to get out.
+- Most writers flinch at the thought of being completely honest about themselves. So absolute honesty is what marks the true modern.
+- I think it's terribly important to watch TV. I think there's a sort of minimum number of hours of TV a day you ought to watch, and unless you watch three or four hours of TV a day, you're just closing your eyes to some of the most important sort of stream of consciousness that's going on!
+- I had a very mixed kind of childhood reading. I read the childhood classics like 'Robinson Crusoe,' 'Alice in Wonderland,' 'Chums Annual.' At the same time, I read an enormous number of American comics because Shanghai was an American zone of influence.
+- I was born in the city's general hospital on November 15, 1930, and we lived at 31 Amherst Avenue in the western suburbs. It was a magical place. There were receptions at the French Club, race meetings at the Shanghai Racecourse, and various patriotic gatherings at the British Embassy on the Bund, the city's glamorous waterfront area.
+- Consumerism is so weird. It's a sort of conspiracy we collude in. You'd think shoppers spending their hard-earned cash would be highly critical. You know that the manufacturers are trying to have you on.
+- The surrealists, and the modern movement in painting as a whole, seemed to offer a key to the strange postwar world with its threat of nuclear war. The dislocations and ambiguities, in cubism and abstract art as well as the surrealists, reminded me of my childhood in Shanghai.
+- Everything is becoming science fiction. From the margins of an almost invisible literature has sprung the intact reality of the 20th century.
+- I would say that I quite consciously rely on my obsessions in all my work, that I deliberately set up an obsessional frame of mind. In a paradoxical way, this leaves one free of the subject of the obsession.
+- The bourgeois novel is the greatest enemy of truth and honesty that was ever invented. It's a vast, sentimentalizing structure that reassures the reader, and at every point, offers the comfort of secure moral frameworks and recognizable characters.
+- My room is dominated by the huge painting, which is a copy of 'The Violation' by the Belgian surrealist Paul Delvaux. The original was destroyed during the Blitz in 1940, and I commissioned an artist I know, Brigid Marlin, to make a copy from a photograph. I never stop looking at this painting and its mysterious and beautiful women.
+- An arts degree is like a diploma in origami. And about as much use.
+- One of the things I took from my wartime experiences was that reality was a stage set... the comfortable day-to-day life, school, the home where one lives and all the rest of it... could be dismantled overnight.
+- A reality that is electronic... Once everybody's got a computer terminal in their home, to satisfy all their needs, all the domestic needs, there'll be a dismantling of the present broadcasting structure, which is far too limited and limiting.
+- I only realised why I keep living in Shepperton when I returned to China. All the people who moved there had come from places just like Shepperton, and so they built and lived in houses exactly like these. I now know I was drawn here because, on an unconscious level, Shepperton reminds me of Shanghai.
+- There are some people, who place enormous value on their home and feel that it defines them, that a stain on the carpet is a personal defilement. There are others, and I think I am one of them, who are entirely indifferent to where they live.
+- I've seen descriptions of advanced TV systems in which a simulation of reality is computer-controlled; the TV viewer of the future will wear a special helmet. You'll no longer be an external spectator to fiction created by others, but an active participant in your own fantasies/dramas.
+- I believe that if it were possible to scrap the whole of existing literature, all writers would find themselves inevitably producing something very close to SF ... No other form of fiction has the vocabulary of ideas and images to deal with the present, let alone the future.
+- People think that by living on some mountainside in a tent and being frozen to death by freezing rain, they're somehow discovering reality, but of course that's just another fiction dreamed up by a TV producer.
+- I felt the pressure of imagination against the doors of my mind was so great that they were going to burst.
+- I would sum up my fear about the future in one word: boring. And that's my one fear: that everything has happened; nothing exciting or new or interesting is ever going to happen again... the future is just going to be a vast, conforming suburb of the soul.
+- In a completely sane world, madness is the only freedom.
+- The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It's over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.
+- The Enlightenment view of mankind is a complete myth. It leads us into thinking we're sane and rational creatures most of the time, and we're not.
+- I suspect that many of the great cultural shifts that prepare the way for political change are largely aesthetic. A Buick radiator grille is as much a political statement as a Rolls Royce radiator grille, one enshrining a machine aesthetic driven by a populist optimism, the other enshrining a hierarchical and exclusive social order.
+- I think of science fiction as being part of the great river of imaginative fiction that has flowed through English literature, probably for 400 or 500 years, well predating modern science.
+- 'Crash' is a metaphor for what I see as the dehumanizing elements that are present in the world in which we live. We're distanced by the nature of the society we inhabit from a normal human reaction.
+- The first drafts of my novels have all been written in longhand, and then I type them up on my old electric. I have resisted getting a computer because I distrust the whole PC thing. I don't think a great book has yet been written on computer.
+- It's true that I have very little idea what I shall be writing next, but at the same time I have a powerful premonition of everything that lies ahead of me, even ten years ahead.
+- Most English writers are not interested in change but in the social novel. That demands a static backdrop. I'm intensely interested in change - probably as a matter of self-preservation. What the hell is going to happen next?

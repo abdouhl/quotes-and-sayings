@@ -1,0 +1,54 @@
++++
+author = "Gerard Butler"
+title = "Gerard Butler Quotes"
+quotes_len = "48"
+description = "the best 48 Gerard Butler Quotes"
++++
+- 9/11 was basically caused by box cutters, and that changed the world.
+- My overwhelming memory of being a child is the huge amount of love I felt for my mum. She was my everything, because she was both my mum and my dad.
+- I've had broken bones and cuts and dashes and tears from movies, but when I was five, my mom put the biscuits up high so we wouldn't be helping ourselves. So, one day I asked to stand up on a chair to get a biscuit, and it fell, and the corner of the chair went right into the side of my eye, and it made a big hole in there.
+- It was always a dream as I was growing up. I would watch movies, mostly American movies, and be so engrossed in those stories, all I wanted to do was be there. I wanted to be part of that romance or that fantasy or be that warrior or that struggling soul who finally makes it good.
+- I was amazed and upset by the looks I got just walking around the studio... It illuminates the ugliness and the beauty that exists within each of us, and that's what this story represents to me.
+- When I was a vocalist, a lead singer in a rock band, I was a law student at the time. It wasn't a professional rock band, it was for fun. I was already way out of that by the time Phantom came along. Having to learn to sing, it was such duress, having to really try and get to such a quality.
+- I had to get used to wearing a mask and wearing a prosthetic and performing with those things while singing and expressing myself through stylized movement, while keeping it as human as possible so the audience could be closer to the horror of the Phantom.
+- I was born in Glasgow. But my family is pretty much from a little town called Paisley, famous for its cotton mills and paisley pattern.
+- Sometimes I finish a movie, and I get used to a certain lifestyle, and when that stops, I get a bit lost for about a week. 'No one is bringing me lunch anymore - I've got to go do that myself?' I lose the main point of my focus.
+- I love a girl with a good sense of humour, who is confident but who has a sweetness to her - that melts my heart.
+- Generally I don't like doing remakes, but I think that's more in the cynical world of Hollywood where normally remakes are purely for commercial reasons.
+- In Scotland, I'm just like a lot of other guys, but in America, I'm seen as a very strong, masculine guy.
+- I go to Scotland maybe three times a year, and I love it. When I'm at home, I feel at home, I feel myself, I feel connected.
+- Manscaping and all of that is not my thing. I'm more of the Clint Eastwood kind of guy.
+- When I'm 80 and sagging all over, I can tell my grandkids, 'Look, when I was a lad, 'People' magazine thought I was sexy!'
+- To me, it's always good to retain a sense of wonder and never good too big for life, like you've seen it all before.
+- I sang in a rock band when I was training as a lawyer. You know, not professional, we just did it for fun. We just did gigs all over Edinburgh and some in Glasgow and some at festivals.
+- Ever since I was a child, I have loved being the centre of attention, but similarly, I can't remember a time in my life that I haven't battled with all sorts of quandaries, fears and weaknesses.
+- I was getting to bed about 10 P.M. so wound up and not getting to sleep by 11, and because I was putting the prosthetics on for five hours, I had to be up at 3 in the morning.
+- The problem with my mind is it sways from side to side. The idea of me fantasizing about becoming an actor quickly led to depression. 'No, it was never going to happen to me.' I was a sixteen-year-old kid on the other side of the world from where they made movies. Scottish actors never really got play. There was Sean Connery, and that was it.
+- I was training to be a lawyer... I was president of the law society at Glasgow University, and my bass guitarist was my secretary of my law society; the lead guitarist and writer worked at the law firm that I worked.
+- I always find stuff in my characters to relate to.
+- The Phantom, as well as being backed up by that music, it just so was a role that I identified with so powerfully. From the first second that I walked on to perform.
+- It's always more interesting to make a movie about what is relevant in your society. What's the political global backdrop? What are our threats? What are we vulnerable to? Because that's what an audience vibes on - that is what people are interested in, universally.
+- The chance to be both artistically appreciated and commercially appreciated... That's what you hope for.
+- I remember when 'Grease' came out, I used to force my mum to try and grease my hair back, and it was never long enough, and literally I'd be screaming at her, 'Do it. Just do it!'.
+- I love to spend a lot of time on my own. I can seriously go into my own head and often love to let myself travel where I don't know where I'm going.
+- I have literally run into 20 people all around the world with my face tattooed on them.
+- As long as you do the best work that you can and not make it bland... because you're going down a lane that is trying to make everybody happy. You have to take an angle on these things.
+- By that point, I had started taking singing lessons. And after the first session, I mean, I was surprised that the windows didn't shatter. And after the third session, I really didn't know where this voice had come from.
+- I had to go and sing with the musical director of the film, Simon Lee, who is just incredible, and it went great. I sang with him about five things, things we'd worked on. And then I went to sing for Andrew Lloyd Weber.
+- My manager and my agents, they go over my contracts.
+- I went from somebody who didn't sing to somebody who didn't speak.
+- I did spend a lot of my childhood playing out movie scenarios in my head. I'd walk along the road, pretending like I was in the army, talking on the radio, and doing maneuvers. I dreamt a lot about performing in movies and living in fantasies.
+- Choosing the right mask helps you... We went through many masks. It was very particular leather that as soon as you smudged it, you had to get a new one. We went through about 55 masks.
+- I had to prove myself to a lot of different people.
+- My problem is, whether it's for emotion or for the talents that a character has to have in a role, I find it very difficult to not take on a challenge. For instance, 'Phantom Of The Opera,' in truth, scared the crap out of me, but I wasn't going to walk away and say, 'I didn't do that because I didn't believe in myself.'
+- I see a lot of actors for whom life becomes one big schedule. I guess I try to be more sensitive to my private life - to take a breath of fresh air and be in the countryside or on a golf course.
+- I started singing for The Phantom in January, and we started filming in October and I sang all the way through to the next June. In fact, I was singing for about two months before I even knew I had the role.
+- I wear a lot of Brioni and Ferragamo and Dolce, all of those kind of things.
+- I knew I'd just done one of the most amazing things that I will ever get a chance to do. Just to be part of a musical that's not your background and to pull it off and to think that we've done something that's really special.
+- Funnily enough, when I originally went in for my screen test, that set was already built.
+- Angelina came up, and as soon as we said hello, I thought, This is going to be great. I'm really going to love doing this with her. And I did. And then I was very excited to do the movie after that.
+- So many actors get caught up in their technique, and to be honest, I see it really getting in the way. I see them forcing things. I definitely do my best work when I'm free of that. But I think as an actor, I work really hard in preparing the roles.
+- There's a great sense of achievement, testosterone, fun, being able to live out your masculinity when you play an action role or an action-adventure or a real tough-guy role.
+- '300' was a real turning point in my career. Until then, I felt like a steam train that was slowly chugging to the top of a hill. Now I'm over that hill, my career seems to have its own momentum.
+- I wasn't going to be an actor. I was going to be a lawyer. I came from a family just above working class, just below middle class, a great family of wonderful values. The idea of me having a chance for a law degree was enticing. Enticing to me but also very enticing to my family.
+- I love doing the stunts. It's as simple as that.

@@ -1,0 +1,13 @@
++++
+author = "Nat Turner"
+title = "Nat Turner Quotes"
+quotes_len = "7"
+description = "the best 7 Nat Turner Quotes"
++++
+- When I got large enough to go to work, while employed I was reflecting on many things that would present themselves to my imagination; and whenever an opportunity occurred of looking at a book, when the school-children were getting their lessons, I would find many things that the fertility of my own imagination had depicted to me before.
+- All my time not devoted to my master's service was spent either in prayer, or in making experiments in casting different things in moulds made of earth, in attempting to make paper, gunpowder, and many other experiments, that, although I could not perfect, yet convinced me of its practicability if I had the means.
+- I had a vision - and I saw white spirits and black spirits engaged in battle, and the sun was darkened - the thunder rolled in the Heavens, and blood flowed in streams - and I heard a voice saying, 'Such is your luck, such are you called to see, and let it come rough or smooth, you must surely bear it.'
+- Having soon discovered to be great, I must appear so, and therefore studiously avoided mixing in society, and wrapped myself in mystery, devoting my time to fasting and prayer.
+- To a mind like mine, restless, inquisitive, and observant of everything that was passing, it is easy to suppose that religion was the subject to which it would be directed; and, although this subject principally occupied my thoughts, there was nothing that I saw or heard of to which my attention was not directed.
+- Since the commencement of 1830, I had been living with Mr. Joseph Travis, who was to me a kind master and placed the greatest confidence in me; in fact, I had no cause to complain of his treatment of me.
+- After having supplied myself with provisions from Mr. Travis's, I scratched a hole under a pile of fence rails in a field, where I concealed myself for six weeks, never leaving my hiding place but for a few minutes in the dead of night to get water, which was very near.

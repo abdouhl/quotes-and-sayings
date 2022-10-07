@@ -1,0 +1,17 @@
++++
+author = "Nicole Gale Anderson"
+title = "Nicole Gale Anderson Quotes"
+quotes_len = "11"
+description = "the best 11 Nicole Gale Anderson Quotes"
++++
+- New Orleans is kind of dark in a very beautiful way.
+- I always think of young Hollywood as its own little high school. There are the girls who have been working for a while that are kind of like the Queen Bees and the new kids at 'school' just starting out.
+- I had a couple friends from all the different cliques in school, but my true friends were my gymnastics teammates. I grew up competing with them for ten years.
+- I was in three academic clubs, a huge book worm and the teacher's pet. I was kind of an easy target for bullies.
+- I can't say that I've ever tried to hurt someone or humiliate them intentionally. My parents raised me to always be the bigger person or to treat others the way you want to be treated.
+- I have gone to Niagara-on-the-Lake. You know, Niagara Falls in Canada. It's this cute little quaint town, and it's just warm, and everyone is so nice.
+- I was a huge bookworm, total nerd, so I was a victim in middle school. I was in three academic clubs, so I was an easy target.
+- I was home schooled in high school but was definitely the nerd in middle school.
+- Never change the person that you are just to fit in. You'll find your true friends that like you for you, and if you are happy with doing things that you genuinely enjoy, it shouldn't matter what other people think.
+- My best friends are just girls who go to school. They're not in the industry, and we have dinner nights and learn how to cook together and go on hiking trails and the beach.
+- I couldn't have gotten this far without my beautiful parents. I'm also very lucky to have the best friends that I do.

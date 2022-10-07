@@ -1,0 +1,23 @@
++++
+author = "Milos Zeman"
+title = "Milos Zeman Quotes"
+quotes_len = "17"
+description = "the best 17 Milos Zeman Quotes"
++++
+- It is more important to be a personality than a person who is in a political party.
+- The only holiday of independence which I can never leave out is the celebration of the independence of the Jewish State of Israel.
+- I am sometimes accused of being a dictator because I provoked the extraordinary elections by nominating the interim government. Can you imagine any dictator who provokes free elections in his own country?
+- It is necessary to name the enemy of human civilization, and this enemy is international terrorism associated with religious fundamentalism and religious intolerance.
+- I do not understand those who divide political life from the point of view of political parties.
+- Deep in my heart, I still believe that the democratization of Russia and the democratization of Ukraine will proceed.
+- Politicians differ in their views whether Russia or Islamic State is a bigger menace, and I personally think that Islamic State is the bigger threat.
+- I promise that as a president elected in a direct popular vote, I will try to be the voice of all citizens.
+- The best defence against mafia business is full declaration of assets and incomes.
+- Russia can become a strategic partner in a fight against international terrorism.
+- A left-wing idiot is as dangerous as a right-wing idiot.
+- I don't think Russia could start a war by attacking any of the NATO member states.
+- I won't let any ambassador have a say about my foreign travels.
+- Anyone who supports terrorism, anyone who sees terrorism as a legitimate means, anyone who uses terrorism to cause the death of innocent people is a terrorist in my eyes.
+- Visas represent one bureaucratic obstacle, so to say and, if removed, might increase the inflow of Russian money into the Czech economy. And not only Russian money, but Russian tourists, Russian entrepreneurs and so on.
+- I admire personalities. Some politicians who are only great mice are just persons.
+- There is a term called political correctness, and I consider it to be a euphemism for political cowardice.

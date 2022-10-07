@@ -1,0 +1,35 @@
++++
+author = "Sean Scully"
+title = "Sean Scully Quotes"
+quotes_len = "29"
+description = "the best 29 Sean Scully Quotes"
++++
+- I'm really in the business of unifying these two tendencies that have been at odds in our human history for a very long time: the logical and the romantic.
+- I was the only one to go to university, and the last thing my dad wanted was for me to be an artist. But later on, when I bought him a house in the south of Spain, he thought it was all right then.
+- I look at my paintings for a very long time before letting them out of my studio. I like to get on the treadmill and look around at all of my paintings while I exercise. I try to stare them down to make them reveal their weaknesses. If they reveal weaknesses, they get repainted.
+- I was always artistic - right from childhood - but my love of painting came a bit later. It followed my love of music.
+- As a child, the most important people in my life were my pet rabbit and Mary, mother of Jesus.
+- My father was a genius footballer, a natural, two-footed centre-forward who had played for Arsenal juniors, but he was sent out to work aged 14 and so lived out his life in a frustrated, rageful way.
+- I was doing an interview with a curator, and he asked me to sum up art in one word. Before he even finished asking the question, I said, 'Impurity.' Because that's it.
+- I work on stretched linen canvas, sized so that the surface already has a sense of tension when I begin. It is a very rich and reactive surface. I begin by drawing on the canvas with a kind of loose line, very simply and freely. I paint very thinly, which allows me to change the drawing if I want to.
+- My job is to return abstraction to the people: in a sense, to popularize it without lowering the bar, which is a lot easier said than done.
+- When I was a teenager, I was very political.
+- I started at school. When I painted, all the girls would come and sit around me. I realised that this was a really good way to get girlfriends.
+- When I was a young kid at art school, I loved the sensual geometry of Poliakoff, which, of course, is inherent in my own work.
+- My childhood was extremely unhappy. That's not to say that my parents didn't love me. But it was traumatic, and of course, art doesn't come out of rosy gardens. It comes out of damage.
+- My art is based on impurity. You have to mix things from different refined cultures to get something raw, to make it go again.
+- That's the job of art: to undo the logic of the world.
+- Art is transformative. It's not 2+2=4. It works like the sea. It changes geography through its constant and relentless movement, just the way plants and water shape the world.
+- I'm quite a social person, quite a communicator, and I like to have the work of other people around.
+- If you stand over on the edge of the west coast of Ireland and look west, you are looking at something you can't see, only imagine. You know America is there, and you can imagine it being there. But you're also looking into infinity, because you can see nothing.
+- Painting is profoundly emotional. When I finish a painting, I'm usually extremely sad.
+- After my son died, I went to a psychiatrist. He proved - or I proved - that Sigmund Freud was correct when he said that the Irish are impervious to psychoanalysis.
+- I've always wanted my art to be global rather than local. I want to make paintings that people everywhere can relate to.
+- I am a very spiritual person: I could say a Catholic with a strong underpinning of Zen.
+- Imagine a world without art: it's George Orwell's nightmare!
+- When I got into art school, I thought it was paradise. I wanted to be an artist so much that I was really driven and nothing could stop me.
+- I'm Irish in the mythic, romantic sense, but in the living sense, I'm a Londoner.
+- I probably use more grays than any other artist in the history of art.
+- My work is very serious, and I use a lot of black, too.
+- I don't think writers should have writer's block. I think they should write. Imagine you were a bus driver and you said, 'I've got bus driver's block.' Get over it.
+- I think that I make chords when I paint, so I think you would be listening to the cello. It's deep, and it's resonant. A lot of people have compared me to Brahms - that slightly melancholic sensuality that's highly structured. Well, that describes my work right there.

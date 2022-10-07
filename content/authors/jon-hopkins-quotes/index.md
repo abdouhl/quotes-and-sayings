@@ -1,0 +1,104 @@
++++
+author = "Jon Hopkins"
+title = "Jon Hopkins Quotes"
+quotes_len = "98"
+description = "the best 98 Jon Hopkins Quotes"
++++
+- It's really important for me to have a record which has a strong narrative feel to it.
+- I've learnt over the years to always be thinking of titles and ideas that I try to put across with just a couple of words. It's the difficult part when you're writing things that are basically abstract.
+- My first ever show in America was opening for Coldplay at Madison Square Garden. Nobody in that audience could have known who I was. It was almost like it was an accident, like I was in someone else's dream.
+- I don't really want to go into the world of production and I don't really want to produce other people particularly.
+- I have an obsession with making an album rather than a collection of tracks. For me it's like making a film - it's the perfect length of time to tell a story.
+- I always make sure there's something for the audience to connect to, in terms of my movements relating to the sounds being heard.
+- To try and create a transcendent state through music has always been the intention.
+- I really don't use that much stuff. I think it's good to know a few pieces of equipment very well, rather than learn new ones every time. I think it distracts from the writing process.
+- It sounds a bit pretentious, but I'm never really conscious of what I'm doing musically.
+- No, I'm a quite big believer in not being in the studio if I don't feel like being in there.
+- I'm more akin to things like Sigur Ros, Mogwai, possibly. But when I'm making solo electronic music, techno stuff is just the most exciting form of rhythm.
+- Meditation is a regular part of my day, every day.
+- It's extraordinary to hear from people who are bereaved, or gone through a divorce, and they still take the time to tell me how a certain track or album helped them through tough times, or kept them sane.
+- I remember having a 7-inch Depeche Mode single when I was ten and really loving that.
+- I'm not keen on interfering with nature; I don't want to edit my genome.
+- A lot of my creative ideas begin in the pub, talking through possibilities with collaborators.
+- I got this pretend grass stuff called LazyLawn on my roof. Now I can go out on my terrace in bare feet, and it looks exactly like a lawn. This is what science should be for.
+- I love truly forward-thinking music, and I'm not even sure I'd describe my work as that, even.
+- I don't want to make an album which is full of brutal and jarring techno.
+- I'm actually a big fan of turning off my phone and ignoring it for large chunks of the day.
+- You can only make the best thing you can make, and if it offends purists, or angers certain critics, you can only have done your best.
+- I was guided into piano lessons and 'guided' is a nice way of saying 'forced.' I don't regret it, but I think music theory as a concept doesn't work.
+- A night out isn't just chaos and hedonism. It can be beautiful as well and there's a sadness to the end of it.
+- Your music essentially reflects everything you do, everything you've been through, in the deepest part of you.
+- I've always lived in my head, which is very easy to do when you live and work in a city.
+- I'm not someone who can just be paid to play keyboards on songs. I tried to do it - I needed the money, but it made me really unhappy and ill to be doing it.
+- The first thing I remember hearing was just the dance music that was in the charts when I was growing up. I don't remember many of the names of specific tracks - they were just kind of early acid house things.
+- What do I call my music? Beats with melodies.
+- Overall, 'Singularity' has a certain lightness to it compared to 'Immunity.' It's less closed off; it doesn't have that claustrophobic sound.
+- My own personality is fairly optimistic and generally very happy, but like everyone else I've been through difficult stuff, particularly in my teenage years, where I experienced enough melancholia to feed any number of electronic records.
+- I don't believe in getting a lot of new gear all the time, so I get very deeply into one instrument and use it for many years.
+- I always liked the idea of shaving the back of my head and getting a tattoo of my own face there so that, whichever way I was looking, I could freak people out.
+- Music has always been so integral to my life. It's always been my work and my passion.
+- I was always fascinated particularly with synths: how they looked and stuff that when you're a kid you're like this is the most incredible thing in the world just to play.
+- Ironically, my tastes aren't that experimental, and I wouldn't describe my music on the surface as being overtly experimental, either.
+- I have the inability to stop thinking and switch off from work at night, which causes a lot of sleeplessness.
+- I like to have an album arc that comes from an experience rather than a story.
+- For me, the score is one of the main characters of a film.
+- What kind of music keeps its relevance? That's why I purposely try and avoid any particularly current trends in electronic music. I do actively stay away from the most popular rhythms of the moment. In six weeks' time, those will sound out-of-date.
+- Meditation gives you back one or two sleep cycles every time you do it. Do it every day and it goes quite a long way towards helping insomnia.
+- I prefer a long day of starting in the morning over working late into the night.
+- I think I took eight or nine months to make 'Immunity.' I just focused on mainly that, and it felt amazing.
+- As soon as I finish meditating, I get a beautiful feeling of expanded consciousness. When I'm in this headspace I can make so much progress in my writing.
+- I'm a massive catastrophist by nature.
+- Transcendental meditation in particular is very useful in terms of unlocking those deeper parts of the subconscious where ideas are floating.
+- I'm an example of someone who got a bit more focused as I got older.
+- Sometimes I hear records that are being recorded at the absolute highest quality, and I just don't like the sound of it.
+- I have always been interested in incorporating real places into the music I make. Bringing the outside into the controlled world of recorded sound just gives life and physicality.
+- I just love switching stuff off and going for a run, or sitting down and eating cake.
+- For me, the most important thing is to keep everything moving very fast, so when I have an idea, I can realize it and make it audible as soon as possible.
+- You don't make this kind of music expecting to have to do TV press and stuff like that. I don't mind doing it, but it's a fairly underground type of music. You do it for the love of the music more than being a star or anything.
+- I did classical music when I was a teenager, but the experience of performing a classical concert felt too frighteningly pristine for me to continue with it.
+- Making music has always had a therapeutic effect on me.
+- I've tried to do every album in a different style, which is why I tend to leave a fair bit of time between each one.
+- When I was 23, I felt like I was further back than when I was 21. After two solo albums for this small indie label Just Music, they'd gotten no real profile. So I kind of turned away from the solo thing a bit.
+- I went to a hypnotherapist and learned how to hypnotize myself and explored orthogenic training, how to relax each part of your body.
+- I think there's a spiritual element to dancing in general. There's a reason why in every culture, dancing seems to be in our DNA.
+- The track 'Open Eye Signal,' when you hear that choir sound come in, that's actually me singing but sped up and with huge reverb and overlayered harmonies.
+- I was drawn to music from a super early age. At school, my ego co-opted it to some degree and I would use it to gain some sort of social credibility.
+- You can't allow your creative sessions to be dominated by miniscule editing processes.
+- I learned over the years to trust that the subconscious is going to provide guidance.
+- I just love the hypnosis of a single bass drum.
+- I love that tension between machine sounds and organic sounds, and also the contrast between abrasive sounds and soft sounds.
+- If I've made something really serene... well, if everything is like that, it's like having too much icing on your cake. You need something else under it, some kind of grounding. It's like if you're making a film, you can't have only happy moments, or else they become meaningless.
+- Sometimes you can just record anything and slow it down hugely and you'll find all these hidden notes and frequencies that match up really nicely.
+- It's great to do something that makes your brain just switch to a different mode, and music can do that really powerfully.
+- Some machine-y music is great, but you can apply any groove to any song now - there's literally a massive drop-down menu on most programs. And that's what takes the human being out of the process.
+- If you're a traveling artist, you probably experience insomnia at some point. You need things to be the right temperature, the right light... it's essential.
+- Nothing competes with the buzz of making your own record.
+- Whenever I've improved, gone up a level in sound-making, it's been because I've done an album.
+- There's never been a time when there hasn't been ritualistic dancing, and I think clubbing is our modern incarnation of that.
+- Maybe I'm just stubborn about learning new things - I can't stand learning new programs - but any sound I can imagine, I can make with SoundForge. And I'm using the old version, like 4.5 from 1999. I use it for every sound.
+- I've always been obsessed with contrast in records, and using harsher elements to make the quieter ones more powerful.
+- That's the thing with electronic music, you set up systems to bring in an accident, to bring in quirks you didn't choose, but you still will have had to set up systems.
+- I don't have a huge amount of gear, but on the software side, I have a number of plug-in chains that act as abstracted versions of real instruments.
+- Writing music - particularly music without lyrics - calls almost exclusively on the subconscious.
+- I'm not interested in making an album that's just dark and pummelling for an hour, nor am I interested in making a beatless record from start to finish.
+- Music is an expression, a deep-seated feeling.
+- Well, I like the idea of seeing every piece of music as fluid. I see the tracks as places almost, structures you can inhabit and explore.
+- It is funny how we talk about nature as this separate entity when we are nature, and nature is us.
+- I'm a bit snobbish about breakfast: eggs benedict, or eggs royale, or something like that. Or just some really amazing, proper brown toast with smoked salmon, lemon, and black pepper. That's a great start to the day.
+- The process of repeating a rhythm while it gently evolves has an incredible effect on the brain, or on mine anyway.
+- Ever since I got a job in Imogen Heap's touring band when I was 17, there have been moments in my career that I can't quite believe really happened.
+- Well, I don't really use MIDI that much. But I do record audio around me a lot, and just layer it up and see what effect it has, without any aforethought.
+- I love exploring the hypnotic elements of music, and because of that there are very long tracks on 'Immunity.'
+- I love starting a track in one place and not knowing where it's going to end up.
+- I do believe there's a human right to experiment with your consciousness, as long as you're harming no one else.
+- I'm very impulsive and I always had a belief in instinct leading the way.
+- Singularity' goes through a process of purification and signification. If you listen to it, you can hear quite a chaotic and disruptive beginning and by the end, you're in such an opposite zone.
+- I tend to listen to podcasts while running. I don't like to listen to music because my brain would try to get me to run in time with it.
+- When I did 'Immunity,' even though I did a film score at the beginning and also at the end, I was left uninterrupted during the middle bit. I got a good year of just writing and focusing. That, to me, is when I make the best stuff.
+- I would never advocate anyone doing anything without educating themselves and finding out exactly what they're in for.
+- When you've got hardly any equipment, very little money and no access to any information, your sound is very much dictated by you, your setup and what you're listening to. Nothing more.
+- Learning how to be calm and centered in any situation is a skill for life, whatever you do.
+- Sometimes I think elements of 'Open Eye Signal' are better live. I do this really crazy stuff at the end, but I don't know if it'd translate well into recording. It would probably sound a bit too extreme.
+- When you sit there doing a film score for three months there's no time to experiment.
+- As a teenager, you don't really have restraint.
+- I'm never really conscious of what I'm being influenced by when I'm writing.

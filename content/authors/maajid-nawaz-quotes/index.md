@@ -1,0 +1,115 @@
++++
+author = "Maajid Nawaz"
+title = "Maajid Nawaz Quotes"
+quotes_len = "109"
+description = "the best 109 Maajid Nawaz Quotes"
++++
+- By the age of 24, I found myself convicted in prison in Egypt, being blacklisted from three countries in the world for attempting to overthrow their governments, being subjected to torture in Egyptian jails, and sentenced to five years as a prisoner of conscience.
+- I was born and raised in Essex, just outside London, to a financially comfortable, well-educated Pakistani family.
+- In Bosnia, the case was there were white, blond-haired, blue-eyed Muslims who were being slaughtered and identified as Muslims. That really touched me.
+- Broader social concerns within Muslim communities, such as discrimination, integration or socio-economic disadvantages, should be treated distinctively and not as part of counterterrorism agenda, which has been counter-productive.
+- Back when I was an Islamist, I thought our ideology was like communism - and I still do. That makes me optimistic. Because what happened to communism? It was discredited as an idea. It lost.
+- I was held in the Mazra Tora Prison for my role as leader of the pan-Islamist organisation Hizb ut-Tahrir in Alexandria.
+- Dogma not only blinds its protagonist, but it muzzles all other opposition.
+- We cannot hope to effectively counter extremism if we just focus on schools, universities and prisons: we need to take this online as well.
+- Before someone can change his ideas, he has to open his heart.
+- The truth is, 'Charlie Hebdo' is not a racist magazine. Rather, it is a campaigning anti-racist left-wing magazine.
+- Satire has been a sanctuary historically monopolized by progressives, originally used as a discreet tool against Western religious fundamentalism.
+- All my friends were non-Muslims. I actually knew very little about Islam - like, very little.
+- Islamism is not Islam. Islamism is the politicisation of Islam, the desire to impose a version of this ancient faith over society.
+- Chance explorations on search engines do not 'accidentally' lead users to extremist websites.
+- Being veterans of the struggle to push back against fundamentalist Christians, American liberals are well acquainted with the pitfalls of the neoconservative flirtation with the religious-right.
+- I became, suddenly, not just a Muslim in faith. I became a Muslim in politics. Somebody whose politics were pre-defined by one interpretation of Islam.
+- The fact is that there is a serious problem of extremism with minority groups within Muslim communities.
+- I was in prison with the assassins of the former president of Egypt, Anwar Sadat, who was killed in 1981. Those who weren't executed in that case were given life sentences, and two of those were with me in prison.
+- During my teenage years as an Islamist recruiter, I moved to live in self-contained communities in the London boroughs of Newham and Tower Hamlets.
+- Preying on the grievances of disaffected young men is the bedrock of Islamism.
+- I worked my way through the education system and was treated as though I had value.
+- My identity comprises of more than just my faith. I am a proud Muslim, but I am also a liberal, a Briton, a Pakistani, a Londoner, a father, a product of the globalised world who speaks English, Arabic and Urdu.
+- Islamism is an ideology that seeks to impose any version of Islam over society.
+- Islam will be what Muslims make of it. And it is the sum total of the interpretation that Muslims give to it.
+- Unity in faith is theocracy; unity in politics is fascism.
+- Expressing myself through language was always something that I had had to learn to do more so than others.
+- 'Muslim' is not a political party. 'Muslim' is not a single culture. Muslims go to war with each other. There are more Muslims in India, Russia and China than in most Muslim-majority nations. 'Muslim' is not a homogenous entity.
+- Non-violent extremism is essentially the increase of intolerant and bigoted demands made by groups seeking to dominate society.
+- In today's Britain, the weakest among us are often assumed to be minority communities. In fact, the weakest are those minorities-within-minorities for whom the legal right to exit from their communities' constraints amounts to nothing before the enforcement of cultural and religious shaming.
+- The positive is I'm delighted at the way the Liberal Democrats as a party have supported me and the way in which the work I'm doing, through the Liberal Democrats, has abled to broaden some of the work I work on.
+- Ironically, xenophobic nationalists are utilizing the benefits of globalization.
+- Increased sympathy for an Islamist cause, lack of integration, and the absence of acceptance of Muslims into British society makes it harder for Muslims to challenge Islamism and tough for non-Muslims to understand it.
+- The best revolutions are unplanned, and the most democratic are leaderless.
+- There has been a failure to grasp how competing narratives fight for the attention of angry young Muslims, and we have grossly underestimated the appeal of the jihadist brand.
+- What we cannot deny is that there's an association between exclusion, segregation, non-violent extremist thinking, and jihadism.
+- The only way that we can win over potential jihadists to liberal democracy is by winning the battle of ideas.
+- In an open society, no idea can be above scrutiny, just as no people should be beneath dignity.
+- I come from an immigrant family, but I know no other nationality apart from British.
+- The Islamist ideology took decades to incubate within our communities, and it will take decades to debunk.
+- I have founded Khudi, in Pakistan, a youth movement which tries to counter extremist ideology through healthy discussion and debate.
+- Language that is designed to dehumanize has consequences.
+- I care not to debate which came first, Islamism or anti-Muslim bigotry; suffice to say that both feed into each other symbiotically.
+- There are no globalized, youth-led, grassroots social movements advocating for democratic culture across Muslim-majority societies. There is no equivalent of Al-Qaeda without the terrorism.
+- To suggest that a Muslim cannot think for himself sounds to me very much like an incident of anti-Muslim bigotry.
+- Academic institutions in Britain have been infiltrated for years by dangerous theocratic fantasists. I should know: I was one of them.
+- Traditionally, open-minded secular liberal rationalists have not made a case for tolerance.
+- What's my audience? British society. Am I received relatively well? Yes. Is there within that... if you break it down, challenges with Muslim communities? Of course there are.
+- One of the problems we're facing is, in my view, that there are no globalized, youth-led, grassroots social movements advocating for democratic culture across Muslim-majority societies.
+- Imams must ridicule Caliphate fantasies. Exchange programmes between Muslim-only schools and non-Muslim-majority schools should be initiated. Community-based debates around these themes must no longer be shut down from fear of offence.
+- The British and French governments have taken a strong stance against 'extremist content' online when addressing their approach to tackling extremism.
+- Neoconservatism had the philosophy that you go in with a supply-led approach to impose democratic values from the top down. Whereas Islamists and far-right organizations, for decades, have been building demand for their ideology on the grassroots.
+- I really didn't grow up religious, and I didn't grow up acknowledging my Muslim identity. For me, I was a British Pakistani.
+- To be forced to defend oneself is an inherently undesirable position to be in. The focus shifts from ideas to the person conveying them.
+- Muslim communities themselves, as they expect mainstream society to stand down racists, must do more to also stand down the Islamist extremists.
+- For my own part, once I became a teenager, I experienced severe and violent racism.
+- The truth is that just as the 'West' is not a homogenous entity with one view on foreign and domestic policy, nor are Muslims.
+- In current times, our moral uproar is best reserved for those who aspire to stone men or women to death, not those who consensually watch women - or men, for that matter - dance.
+- I say I haven't lost my religion. I've lost my ideology.
+- The only certainty we have is that those who are certain of a way to arrive at worldly salvation, are committed enough to organize around this, and seek power to enforce it, will invariably descend into a bloody totalitarian fascism.
+- Liberalism will beat totalitarianism by killing it softly, not by mimicking it.
+- I can now say that the more I learnt about Islam, the more tolerant I became.
+- I was filled with hate and anger. But during my trial, something decisive happened: Amnesty International adopted me as a prisoner of conscience, and it was an unbelievable feeling to know that there is someone fighting for you on the outside. Amnesty's 'soft' approach made me seriously consider alternatives to revenge.
+- The first point of contact for radicalisation is almost always a personal one. Prisons and universities, for example, tend to be easily and regularly infiltrated by radical groups, who use them as forums to propagate their ideas.
+- Any item of clothing that covers the face and makes it impossible to identify individuals is open to abuse.
+- Wherever I've been, I've left people who joined Hizb ut-Tahrir. I have to make amends. What I did was damaging to British society and the world at large.
+- After much soul searching I was able to renounce my past Islamist ideology, challenging everything I was once prepared to die for.
+- As I went between the Islamic Society in my college and university, the mosque, the halal takeaway, and visited the homes of my male Muslim friends, it was entirely possible for me to get through my day without interacting in any meaningful way with a single non-Muslim.
+- Having our fundamental assumptions about life challenged is never a comfortable thing.
+- The way to tackle Muslimphobia is to tackle prejudice against Muslims. What it is not is to pretend that Islamist extremism does not exist.
+- If liberalism is to mean anything at all, it is duty bound to support without hesitation the dissenting individual over the group, the heretic over the orthodox, innovation over stagnation, and free speech over offense.
+- Quilliam will remain a priority for me because its values shape my beliefs and outlook.
+- If our hard-earned liberty, our desire to be irreverent of the old and to question the new, can be reduced to one, basic and indispensable right, it must be the right to free speech.
+- The University of Westminster is well known for being a hotbed of extremist activity.
+- Poking fun at other people's beliefs, while it may seem frivolous and offensive, is a non-negotiable right. It is a principle that underpins free speech, the basis for progress.
+- I realised that the idea of enforcing sharia is not consistent with Islam as it's been practised from the beginning. In other words, Islam has always been secular, and I had been totally ignorant of the fact.
+- Hip-hop in the '90s began moving towards the Nation of Islam and the 5 Percenters, black nationalist movements; very much so, these movements embraced a form of Islam: Malcom X's form of Islam prior to his change.
+- I am a Muslim. I am born to Muslim parents. I have a Muslim son. I have been imprisoned and witnessed torture for my previous understanding of my religion.
+- There were people who had sampled my voice from speeches when I was an Islamist and made them the chorus of pro-Islamist rap songs who then began talking about me as an apostate.
+- In the United Kingdom, we need to promote an inclusive British identity that involves and empowers people from all ethnic and faith backgrounds.
+- America did not invade Iraq because Iraqis are Muslims. Oil, money, economic interests. Who knows? But it was not because Iraqis are Muslims.
+- The British state already invests in early intervention campaigns in drug abuse and sexual health. Challenging extremism should be no less of a priority.
+- My arrest in Egypt happened in 2002, and I was convicted to five years as a political prisoner.
+- I think I would encourage leaders to start working with communities in order to inoculate angry, young teenagers.
+- I was imprisoned in the aftermath of the 11 September 2001 attacks, when Egypt's state security was rounding people up in unprecedented numbers.
+- The conclusion that I have come to is that actually, no religion, whether it's Islam, Christianity or any idea based on scripture or texts, is a religion of 'anything,' really.
+- I was, by the way - I'm an Essex lad, born and raised in Essex in the U.K.
+- Yes, women should be free to cover their faces when walking down the street. But in our schools, hospitals, airports, banks and civil institutions, it is not unreasonable - nor contrary to the teachings of Islam - to expect women to show the one thing that allows the rest of us to identify them... namely, their face.
+- My feminism, as intended by me, extends to empowering women to make legal choices, not to judge the legal choices they make. My fight is for rights.
+- De-radicalisation begins by breaking down the logic which once seemed unassailable and rethinking what you are fighting for and why. That is hard to do when Islamists and Islamophobes feed off each other's hateful cliches.
+- As people's opportunities to succumb to confirmation bias increases online - only seeking out information that confirms their prejudices - ignorance, extremism and close-mindedness have continued to rise unabated.
+- A fatwa is a religious edict. Such edicts bind only those who seek to follow the Imam issuing them but can be regarded as an option for others seeking an alternative view.
+- My upbringing was completely liberal from the start. In fact, I didn't even have a Muslim identity.
+- Satire is, by definition, offensive. It is meant to make us feel uncomfortable. It is meant to make us scratch our heads, think, do a double-take, and then think again.
+- I used to MC a bit when I was young - 14 or 15 years old.
+- Rather than allowing jihadists to shut down debate, it must proliferate so much that they simply cannot kill us all.
+- Let me make this clear: it is our duty to adopt a policy barring the wearing of niqabs in these public buildings.
+- I had a mind inquiring enough to question world events, as well as the passion fostered by my background to care, but I lacked the emotional maturity to process these things. That made me ripe for Islamist recruitment. Into this ferment came my recruiter, himself straight out of a London medical college.
+- The niqab, for some, has become an antiestablishment symbol around which one can rally and relish in the opportunities for confrontation that it provides.
+- Hizb ut-Tahrir spearheaded the radicalization of the 1990s and cultivated an atmosphere of anger.
+- I was in prison with pretty much the who's who of the jihadist and Islamist scene of Egypt at the time, and Egypt was the cradle of Islamism for the world - it's where it began and where jihadism began as well.
+- I joined a radical group at the age of 16 because I'm a passionate man; the good news is that I turned myself around since then. But my character is still quite free and passionate.
+- The cheeky ideal I am calling for is that Muslims should be viewed as equal citizens, nothing more and nothing less.
+- The only way we can challenge Islamism is to engage with one another. We need to make it as abhorrent as racism has become today. Only then will we stem the tide of angry young Muslims who turn to hate.
+- There are members - very, very close and dear members - of my family - I'm talking immediate family - who simply don't speak to me anymore and haven't done so for years. My marriage fell apart.
+- I can say with a level of confidence that Islam is not a religion of war, only because the majority of Muslims don't subscribe to that perspective, not because there's something inherent in the text that tells me it's a religion of peace.
+- Not all Muslims wish to express themselves in public through a communal religious identity. Identities are multiple, and some may wish to speak instead just as citizens in their professional capacity, through their political party, or their neighborhood body.
+- For years, Islamists and other extremists have taken advantage of grievances of Muslims in Britain and have successfully identified ways to integrate them under one 'Islamic' banner.
+- The rise of ISIS in Iraq is a wider threat to the stability of the Middle East and the West than many realise.
+- Societies should be judged by how they treat the weakest among them.

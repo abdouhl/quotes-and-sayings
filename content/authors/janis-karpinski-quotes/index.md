@@ -1,0 +1,29 @@
++++
+author = "Janis Karpinski"
+title = "Janis Karpinski Quotes"
+quotes_len = "23"
+description = "the best 23 Janis Karpinski Quotes"
++++
+- Military police know what to do, they know the Geneva Conventions, and their objective is to provide a safe, secure, fair environment for prisoners under their control.
+- In November, they transferred control of Abu Ghraib to the military intelligence command completely; it was, after all, the center for interrogations for Iraq.
+- The mission statement was ordered, and it sent the 800th MP Brigade, effective the first of July, up to Baghdad. I joined my brigade to take command at the end of June.
+- After they killed Uday and Qusay, the focus centered on Saddam: Find him, kill him, capture him, whatever it takes. To me, it was a false sense of security: If we get Saddam, we're going to win this war.
+- Shortly after we arrived in Baghdad, we had another conversation with the ambassador. He said that he wanted us to give him the timeline, because we had 90 days to get these prisons operational and transfer responsibility back to the Iraqis.
+- I thought that that mission and the mission of taking care of those soldiers were my priorities, and I stand by the same today. There wasn't a lot of support for those soldiers.
+- That policy was abandoned very quickly, and the military police were tagged with the responsibility of conducting training, which they did. We were not equipped or set up with personnel to recruit new Iraqi guards.
+- If they conducted a raid in this room, you'd all be policed up. They'd take all of you to Abu Ghraib and turn you over to the soldiers. Maybe there's only one or two of you in this group who was a known associate or had any piece of information that they are trying to exploit.
+- There was a military police brigade with over 3,400 soldiers getting ready to go home because their mission - prisoner-of-war operations - was finished.
+- I had 16 other prisons that I needed to pay attention to, and we did. And I had 3,400 soldiers who were depending on me to take care of them, and I did.
+- The day after the prison was transferred to the military intelligence command, they had an entire battalion - 1,200, 1,500 soldiers - arrive at Abu Ghraib just for force protection alone.
+- I was ordered not to go out to Abu Ghraib after dark early on, because Abu Ghraib was extremely dangerous.
+- If you are charged with this responsibility of enhancing interrogations, or using soldiers to enhance interrogations to find Saddam, and you're above the law for all practical purposes, you might try some unusual techniques. Now we know that, in fact, they did.
+- And shortly after that, when I try to get access to those soldiers, to ask them what in the world was going on, I was told that they did not work for me and I had no right to have access to any one of them.
+- I joined the 800th MP Brigade when they were already deployed.
+- We need to fix this. It hasn't been done yet because there's still a reluctance to admit that there was even a problem - anywhere above seven rogue soldiers who got out of control on the night shift.
+- It's hard to be happy when you are facing 120 to 140 degree temperatures and nothing seems to be moving in a direction that you think or they think or you've been told it's supposed to be moving in.
+- The war was declared over - the end of major combat operations - in May 2003. Release procedures got under way immediately; reducing the population from 8,000 to just over 300, of course, requires fewer military police soldiers.
+- I knew how many MPs I had assigned to the brigade, how many military prison operations I would be running, but we needed to evaluate how many criminal prison operations we could support.
+- Military intelligence interrogators, however, their goal is to get information, to save lives, to stop the war, to find Saddam - whatever the information is going to be used for, at whatever cost.
+- The vast majority of prisoners at Abu Ghraib, even after interrogation, had no further intel value whatsoever.
+- At that time, about July 5, we had no Iraqi corrections officers working for us. It was a responsibility of the CPA, with contractors, to set up a training program.
+- They transfer the prison, and all of a sudden all this money cuts loose, all these people cut loose.

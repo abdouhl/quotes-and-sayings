@@ -1,0 +1,98 @@
++++
+author = "John Kani"
+title = "John Kani Quotes"
+quotes_len = "92"
+description = "the best 92 John Kani Quotes"
++++
+- When I'm abroad it's almost like I'm in a transit lounge. I'm only comfortable when I know the date of departure.
+- I couldn't really say that a repressive society would result in creative art. But somehow it does help, it is an ingredient, it acts as a Catalyst to a man who is committed.
+- We've got the right to vote, but what does it mean? People now want to have the right to a job, the right to education, the right to medical services.
+- We never deal with propaganda. We never deal with politics. We never deal with newspaper headlines. We deal with the harsh realities of our lives. We will only comment when there is more bread to eat, more space in which to move, time in which to open your mouth and sing. As long as these things have not happened, we do not talk about politics.
+- In South Africa, we've been watching these movies all our lives - 'Batman,' 'Superman,' 'Captain America' - and every time the mask comes off it's a white man.
+- 'Sizwa Banzi' is the life of the black man. We look at it, laugh at it, re-examine it, but we do not change it.
+- When western culture developed, we became detached from nature, detached from our relationship with the animals. We saw animals perhaps as only the rhino horn, the elephant's tusk, we saw it as making money.
+- When you write as an artist, you just tell a story and people say it addresses issues.
+- In South Africa, it is different. When you are born not even your father knows what is going to happen in your life.
+- Whenever I play Shakespeare, I keep thinking, 'how did this Englishman know so much about me?'
+- Apartheid is a lie, people can work together, people can create together.
+- I started to get my doctorate, not to be called 'doctor.' Those are just little things you get to get recognition.
+- In the global push to stop gender-based violence, men in the entertainment industry need to join forces with women to end violence by men against women and children.
+- I used to wonder, when my grandmother would tell me what the wolf said to the jackal, how these animals can talk. And, she would say, 'in my stories, animals talk. Shut up and listen.'
+- You found during apartheid a strange occurrence from the white folks themselves. There were those who did make a choice to speak out and stand and be counted in the army of human beings who believed in justice. And then there are those who left.
+- In any character you are given to play, be it evil/good/whatever character, you begin with self. You examine yourself and ruthlessly see similarities between you and the devil, or between you and the dictator, or between you and the kind man.
+- I was the generation who hated the white man, despised him, wanted to shoot him.
+- Seventy is beautiful for me. I am truly, at last, an elder.
+- A telenovela is a story that's like a soapie, but it has a beginning, middle and an end.
+- When the situation politically became intolerable within South Africa, we used the arts as a weapon for change.
+- I want my work to contribute toward creating a better society, toward bringing people together. That is always the first consideration, not the money.
+- What does Macbeth want? What does Shakespeare want? What does Othello want? What does James want? What does Arthur Miller want when he wrote? Those things you incorporate and create in the character, and then you step back and you create it. It always must begin with the point of truth within yourself.
+- In South Africa in 1987, apartheid was still going strong. Some of the most brutal race laws had been relaxed, but they hadn't yet been repealed. There was still a lot of tension.
+- I will always vote. I have done so, ever since 1994.
+- When I first encountered Shakespeare as a boy, I read every word this man has written. To me, he is like an African storyteller.
+- I come from a long line of storytellers.
+- I believe strongly that the word 'protest' is no excuse for bad work. The artist must create.
+- Acting became a powerful tool for change. You had to tell stories that were important to you.
+- I am known for always playing virtuous characters.
+- And I'm part of the generation of South Africans who feel we're lucky to be alive.
+- Theatre has had a very important role in changing South Africa. There was a time when all other channels of expression were closed that we were able to break the conspiracy of silence, to educate people inside South Africa and the outside world. We became the illegal newspaper.
+- Everything you do on stage is always a response to something, not the next line.
+- Before 1994, many South Africans used theater as a voice of protest against the government. But with the end of apartheid, like the artists who watched the fall of the Iron Curtain in Europe, theater had to find new voices and search for new issues.
+- I must concentrate all my efforts in the attainment of freedom for my people.
+- I'm Dad at home, not John Kani.
+- Every time there is a movie that tells a South African story, it is done by someone who must be taught the right way of pronouncing 'Sawubona.' Enough is enough.
+- This is the problem I have: I write a play and I give it to a director and they say, 'I'll do it one condition: if you play the role.'
+- Shakespeare examines how democracy is built.
+- That's the beauty of art: art is universal.
+- I understood the whole purpose of Truth and Reconciliation, and I supported it 100 per cent, but I couldn't deal with it myself.
+- The government harasses everything. The government must keep a constant surveillance of all activities by black people in order to maintain their reign over them, especially when they are in a minority.
+- My grandfather told me our history through his stories about all the great Zulu battles.
+- I spent 51 years under apartheid. I don't imagine suffering. I know it.
+- Very rarely in the life of an actor and a performer do you do something you truly believe in, do you do something you are absolutely proud of.
+- 'Sizwe' is the beginning of protest theatre; 'Nothing But The Truth' is post-apartheid South Africa.
+- When I was asked to write a concept for a telenovela, I didn't underestimate my non-experience in the field.
+- It is a troubled soul that forces the human being to act. It is some kind of gangrene within you, inside of you, that eats your soul, that forces you to save your soul.
+- When I am offered work, I am very selective.
+- 'Captain Marvel,' whereby the steel trap is challenged, where the hero is a heroine, where the most powerful person who has the welfare of the future of the human race is a woman. What else can it be? Because that was the role of my mother when I was a kid.
+- I am a citizen of the world, or no world at all!
+- In Australia, I almost became a counsellor. At the end of each performance there would be a queue of sobbing people backstage. They all wanted to explain why they left South Africa.
+- It is ridiculous to think we can erase racism in South Africa, but through theater there can be a genuine attempt to move on with our lives and build a better country.
+- Working with my friend Sir Antony Sher is truly one of the highlights of my career as an artist.
+- In 1990 there were about 300 scripts being written demanding the release of Nelson Mandela. And suddenly we watched Mandela walking out of prison. So those scripts had to be destroyed.
+- You can't always play the hero. You have to play the villain.
+- I always say my first break was a dead man's break.
+- We are sort of not at the level of entertainment that the Western world is. Everything we see on the play in the screen, we read, we take serious. We take that it speaks to me. And so wonderful to see how the Johannesburg, South African audiences will say: What does it say to me? What does it make me feel? Why am I celebrating it?
+- You can give me any of Shakespeare's plays and I'll tell you a parallel African folktale.
+- In 'Lion King,' the music is brilliant. The CGI is amazing.
+- All over the world, there is someone sitting in a cell because he or she is not allowed freedom of expression.
+- We have to depoliticise our youth. We have to teach our youth that the word 'government' means them, it's something to feel pride in, not something to attack.
+- Yes, we have the judiciary, the Constitution, we're fighting racism on a daily basis, but these are all state efforts and are not the efforts of the individual. The individual has to commit to change, the individual has to look at the past and take accountability of the past; for the wound to heal we have to dress it together.
+- We haven't got those dreams: 'I wish to become doctor or a lawyer.' Black people in South Africa have been barred in doing anything that would articulate their cause.
+- In 1973, 'Sizwe Banzi is Dead' and 'The Island,' which I co-wrote with Athol Fugard and Winston Ntshona, transferred from The Royal Court Theatre to the Ambassadors Theatre in the West End.
+- Someone once asked me what I missed most. I said, 'My youth.' I've never been a boy who could run around, go crazy, do this, try that. There wasn't time for that.
+- Over the years, many young actors have approached me: Vusi Kunene, Sello Maake ka Ncube, and Seputla Sebogodi. They all said, 'Hey Bra John, let's do 'The Island and we want you to direct.' But somehow, my heart was not in it or I was busy with something else, so I'd say, 'ja, ja, we'll do it.'
+- Other theaters exist here solely to entertain the white audience and keep South Africa on a par with what's going on in the West End or Broadway. The Market concerns itself with theater of this country, for this country.
+- I did 'Sizwe Bansi is Dead' for 34 years.
+- The only reference in my life is my life, and it's my life experience. It's my environment. It's my community. I've not made that for books.
+- Art is universal. When works of art become classics, it is because they transcend geographical boundaries, racial barriers and time.
+- Our job as artists, we believe, is not to make changes in society. We don't have the ability to do that. We reflect life. We are the mirror of the society to look into. Our job is to raise questions, but we have no answers.
+- 'iNkaba' has made me famous in the living rooms of the people of my country. It was almost like being famous all over again. People stop me in the street and shopping malls to take pictures.
+- My stories are about humanity, about the challenges of surviving and the constant fight against ignorance, inhumanity and complacency.
+- Inkaba' is about a feud between two South African families. They have been fighting for years, from one generation to the next. It's like those typical feuds you have in rural KwaZulu-Natal where, after a while, you do not even know why you are fighting.
+- When I tell a story, I have to tell it honestly.
+- I have never been attracted to television work. Even to appear in series and soapies. I have always appeared in theatre and major movies, writing plays and other things.
+- When I tried to do 'Waiting for Godot, it was such a controversy. I was tired of political theatre. All I wanted to do was 'Godot.' You know what happened? We were told we had messed up and politicised a classic that has nothing to do with S.A.
+- Shakespeare's words paint pictures in glorious colour in my language. They were written by a man whose use of words fits exactly into Xhosa.
+- I still remember the moment when my teacher, Mr. Budaza, walked into class and said, 'Today we are going to study 'Julius Caesar,' one of Shakespeare's most important plays.'
+- The exchange rate of the Rand against the dollar, pound or euro makes South Africa an attractive location. The positive side of this is it gives our artists and technicians an opportunity to work.
+- Protest theater has a place again. It's not against whites or apartheid. It is against injustice and anything that fails our people.
+- It dawned on me that theatre is a powerful weapon for change.
+- I remember the words of my grandmother who died at 102. I remember my great mother, Grand Brika, who died at the age of 106. They talked to us all the time. And my grandmother even lied to me. She said there was royalty. She said that my great-great-great grandfather was the king of the outer Thembu.
+- My love, my passion, my everything is this continent of Africa. I have always celebrated African humanity.
+- Any older actor knows the last great mountain to climb is to play King Lear and now, if I ever play Lear, I will have done the pre-preparation because I had to go into the play and read it over and over again.
+- I write about the human condition, as a South African. I sometimes see South Africa with the spectacles of the past and there will then be a political content in my writing.
+- I have been on the Urban Brew board for many years and assisted with the artistic evaluation of the various shows that were pitched to the production company.
+- I had to look at white people as fellow South Africans and fellow partners in building a new South Africa.
+- I was 51 when I voted for the first time in 1994, and I look at South Africa through those spectacles.
+- I'd read Shakespeare in school, translated into isiXhosa, and loved the stories, but I hadn't realised before I started reading the English text how powerful the language was - the great surging speeches Othello has.
+- If we'd lived in England or America we'd have told stories abut our lives and nobody would have called it protest theatre. But the reality of South Africa was the arrests and detentions and oppression - we could not escape that, so we decided to take it on.
+- Forgiving is OK. Forgetting, never.

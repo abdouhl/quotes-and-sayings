@@ -1,0 +1,17 @@
++++
+author = "Magdi Yacoub"
+title = "Magdi Yacoub Quotes"
+quotes_len = "11"
+description = "the best 11 Magdi Yacoub Quotes"
++++
+- I always wanted to be a surgeon, because I had a lot of admiration for my father, who is also a surgeon. I also wanted to be a heart surgeon. That was motivated by the fact that my young aunt, a sister of my dad, died in her early 20s of a correctable heart disease.
+- If I wasn't going to be a surgeon, I wanted to be a farmer or grow oranges or something like that. I grow flowers now - orchids. That is something that I find very interesting.
+- I have a charity called the Chain Of Hope, where we target children from poor areas where heart surgery is not available, and we offer our services.
+- It is totally unacceptable that there are countries with no paediatric cardiac surgeries.
+- My dad was a surgeon in Egypt. He was a general surgeon. As a little boy I always admired what he was doing, and I wanted to do surgery.
+- The nanofibrillar scaffolds designed to guide the process of cellular repopulation is an important step towards prolonging life and enhancing the quality of life for patients with advanced heart disease with defective valve.
+- I don't have any regrets. I consider myself really privileged to belong to medicine and do what I do. I would do it all again.
+- As a heart surgeon I am on constant call, and when not researching or giving lectures, I like to be with my family.
+- What I worry about is the lack of understanding in society around the world that there is a divide in the world between those who have and those who do not.
+- Leaving Egypt and the people I loved so much, and the environment I liked, was definitely worth it, because I also have great love for medicine and science.
+- I actually consider myself as totally privileged to be able to serve science and medicine in a global fashion, because science and medicine know no boundaries.

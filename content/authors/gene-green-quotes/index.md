@@ -1,0 +1,70 @@
++++
+author = "Gene Green"
+title = "Gene Green Quotes"
+quotes_len = "64"
+description = "the best 64 Gene Green Quotes"
++++
+- Sen. Clinton carried our district, and it is difficult to vote against your constituents.
+- Many Americans are unaware that discarded electronics often contain lead, mercury, and other toxins and end up being salvaged under inhumane conditions in the developing world.
+- I've never been a 'yes person.'
+- The Hunting Bayou and Greens Bayou watersheds have experienced major flooding over the years and are crying out for investment to protect the hundreds of thousands of residents and businesses in those areas.
+- Punishment for putting patients at risk ought to reflect the gravity of manufacturing, distributing or selling counterfeit medications.
+- I support the free enterprise system, and I want companies to make money, but they shouldn't be reaping profits from the deaths of their employees or former employees.
+- What happened with Keystone is it actually poisoned the well for other pipelines that are not as controversial.
+- I prefer that we sit down and craft a bill that addresses the many challenges we face, not only domestically, but as a world leader.
+- I represent a blue-collar district: people who work at petrochemical plants and machine shops.
+- You have to have patience to be a legislator.
+- We should not continue to play politics with women's health.
+- Instead of saying we need to outlaw certain types of weapons, we need to find better ways to enforce current law.
+- Some of my toughest races are people I've known, because it gets more personal than it should be.
+- As a policy-maker in our country, I would much rather we have that investment in our refineries.
+- I think we've been the selection just because I think I've earned it by doing a lot of things for the district.
+- Whether it was the Alaskan pipeline disaster or the Texas City refinery fire where 15 people died, time after time it's been shown that BP chooses expediency over safety.
+- I'd like to vote for a bill. But I'm not going to vote for one unless I think it's going to be good for the area I represent.
+- The significant regulatory impact of reclassifying broadband services is not something that should be taken lightly and should not be done without additional direction from Congress.
+- The Electoral College was necessary when communications were poor, literacy was low, and voters lacked information about out-of-state figures, which is clearly no longer the case.
+- The result may not be perfect. But our forefathers wanted us to compromise to get things done for America.
+- People just don't know what civilian prisoners of war are.
+- It takes time to understand the difference between civilian POWs and military POWs. There's an educational process.
+- In some cases, corporations engaged in this activity have as much as 16 percent of their profits generated through the holding of 'janitor's insurance.'
+- As the pace of technology increases, the amount of toxic electronic waste is piling up at home and abroad.
+- We have lots of students graduating from our high schools, and you import the labor, then we're not giving that opportunity to our own folks.
+- You work really hard on something, and if you're lucky, you get a break.
+- I'm always running back and forth to the district.
+- If we can't remove a member of Congress who has been convicted of 10 felonies - including using his office for personal gain - we risk losing the faith and trust of the American people that we have.
+- If you're going to do something to hurt the district I represent, I can't vote for it.
+- I work closely with Hispanic leadership.
+- Our federal resources, our U.S. marshals, and the federal court system are being used, I think, by the private sector.
+- Congress should let HRSA release its guidance and analyze its impact before making changes to the 340B program that would harm safety-net hospitals and our vulnerable patients.
+- What auto and steel is to Ohio River Valley, refineries are to the oil regions. You wouldn't tell Silicon Valley you're going to put a moratorium on high-tech.
+- Cap and trade is not an easy one for refiners, so we tried to get some moderation in the bill, and we did, but not near as much I would like.
+- It's no secret I was part of John Dingell's whip team.
+- You draw a district for that particular minority - African American, Asian, Hispanic - so those folks have the right to elect whoever they want. If they don't decide to elect someone who sounds like them or looks like them, they can pick anyone they want.
+- Floor time is valuable. Our leadership isn't going to bring something up that's going to take up floor time and not be successful.
+- The Vietnam War soured President Johnson's legacy. We still have to recognize his domestic legacy.
+- Having someone from Washington, California, or Chicago come in as a verifier, it shows the Hispanic community that Hispanic leaders support me.
+- Ultimately, refiners, like all of us, are going to have to clean up their emissions.
+- E-waste is the fastest growing waste stream in the United States and can pose serious environmental and health problems here and around the world when not handled properly.
+- Allowing for endless legal challenges or partisan political discussions is not the proper way to handle an issue that affects the entire scope of the environment and the economy.
+- Women who may choose to have silicone breast implants are entitled to independent research to ensure they have complete and comprehensive information. It's especially important since so many women have experienced complications with their implants they never knew were possible.
+- People have the right to know the drugs they are taking will make them better instead of harming them.
+- I do have a lot of alumni in Washington.
+- Shell and Exxon support export, but refiners like Valero could end up paying more for the crude oil.
+- I've been hearing from people saying they see me more than they do their city council member.
+- If you're not worried, you're not reasonable.
+- There's a value in used electronic equipment, and currently, there are small, domestic recyclers that process this equipment safely. But they have a hard time competing with facilities overseas that have few, if any, environmental and safety standards.
+- Every citizen's vote should count in America, not just the votes of partisan insiders in the Electoral College.
+- I get better coverage on my Spanish stations than I do on my English stations.
+- I have a lot of hard-working, blue-collar people in my district who are at the end of their unemployment benefits.
+- Frankly, whatever assistance people get from FEMA will not have a lot of extras built into it, so they will need every dollar.
+- If the EPA cannot or will not act to halt the toxic e-waste trade to developing nations, then Congress should take action.
+- The knee-jerk approach of those who want to control firearms may not be the solution.
+- I've worked with Fred Upton, and I think we've got a lot of common agreement on energy production.
+- I'm not a green like most Democrats would be. I have a blue-collar district.
+- The Federal Communications Commission licensed satellite radio to be a national-only radio service.
+- It is simply a moral obligation to make sure our nation's heroes have a home to return to at night.
+- I did have a constituent four or five years ago - she never liked me. So, she called, I returned her call, and she was complaining about something, and she said: 'And why do you always use green? I think it's narcissistic.' And I said, 'Well, ma'am, everyone has to have a gimmick, and that's my gimmick.'
+- I hear from broadcasters pretty often. Their ad revenue is down.
+- More than 90 percent of what Planned Parenthood does nationally is preventive care - including cervical cancer screenings, breast cancer screenings, and family planning - mostly for women with low resources and income below the poverty line.
+- Refineries are very energy-intensive.
+- I really think we need to see how we can expand our privacy laws.

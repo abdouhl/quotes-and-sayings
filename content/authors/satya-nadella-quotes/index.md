@@ -1,0 +1,116 @@
++++
+author = "Satya Nadella"
+title = "Satya Nadella Quotes"
+quotes_len = "110"
+description = "the best 110 Satya Nadella Quotes"
++++
+- I think reconceptualizing Microsoft as a devices and services company is absolutely what our vision is all about. Office 365 and Azure on the services side are representative of it.
+- The thing we learned the most with the Xbox is the Xbox Live experience.
+- Every opportunity I got, I took it as a learning experience.
+- Businesses and users are going to use technology only if they can trust it.
+- I deeply appreciate all the support and encouragement I have received from people all across India.
+- There are nine million servers sold annually. Of those, just one million are sourced by the big guys. What we're trying to predict is: in the future, is that all going into the one million category? Or will there be some balance?
+- We must ensure not only that everyone receives equal pay for equal work, but that they have the opportunity to do equal work.
+- One lesson learned is you've got to finish the scenario with excellence. You just cannot stop. You have to complete this, and I think that's where Apple has taught us all what experience excellence means in the creation of categories.
+- The notion of having work-life harmony in a highly competitive economy is a first-class topic.
+- Microsoft is one of those rare companies to have truly revolutionized the world through technology, and I couldn't be more honored to have been chosen to lead the company.
+- It's not about asking for the raise but knowing and having faith that the system will actually give you the right raises as you go along.
+- We will reinvent productivity to empower every person and every organization on the planet to do more and achieve more.
+- India for sure is a mobile-first country. But I don't think it will be a mobile-only country for all time. An emerging market will have more computing in their lives, not less computing, as there is more GDP and there is more need. As they grow, they will also want computers that grow from their phone.
+- What matters is 'Have you done a better job of making our experiences feel like home on Windows?' That's our real goal, and that's what we're going to stay focused on.
+- The enterprise market is never winner-take-all.
+- I'm so glad to have Xbox as a franchise, especially at a time when gaming is becoming even more important - as a digital life category and in the mobile world.
+- When we think about Windows, we want to think of it as a broad platform, from wearables to industrial IoT platforms to PCs and tablets.
+- LinkedIn was an amazing deal for us to do because of their mission.
+- I will talk about two sets of things. One is how productivity and collaboration are reinventing the nature of work, and how this will be very important for the global economy. And two, data. In other words, the profound impact of digital technology that stems from data and the data feedback loop.
+- The thing I'm most focused on today is, how am I maximizing the effectiveness of the leadership team, and what am I doing to nurture it?
+- One thing we've talked a lot about, even in the first leadership meeting, was, what's the purpose of our leadership team? The framework we came up with is the notion that our purpose is to bring clarity, alignment and intensity.
+- If every sector of business and society will be driven by software - how does that get enabled? By highly-paid computer scientists funded by risk capital in Silicon Valley? Or by lots of engineers who can build it themselves?
+- The opportunity ahead for Microsoft is vast, but to seize it, we must focus clearly, move faster, and continue to transform.
+- Everything is going to be connected to cloud and data... All of this will be mediated by software.
+- One of the things I think a lot about, I am perhaps a great example of the enlightened immigration policy of this country where I was able to come here to study and then stay back and work and build a life.
+- One of the things that I'm fascinated about generally is the rise and fall of everything, from civilizations to families to companies.
+- Most people have a very strong sense of organizational ownership, but I think what people have to own is an innovation agenda, and everything is shared in terms of the implementation.
+- I think the combination of graduate education in a field like Computer Science and the opportunity to apply this in a work environment like Microsoft is what drove me. The impact these opportunities create can lead to work that has broad, worldwide impact.
+- At our core, Microsoft is the productivity and platform company for the mobile-first and cloud-first world.
+- There were many influences on me while growing up. In the late Seventies and early Eighties when I was growing up in Hyderabad, it was a bit more laid-back, and that gave you time to think about things differently without perhaps being caught up in the narrow approach to one's journey through life.
+- There is something only a CEO uniquely can do, which is set that tone, which can then capture the soul of the collective.
+- In the past, there was hardware, software, and platforms on top of which there were applications. Now they're getting conflated. That is all going to get disrupted by the move to the cloud.
+- Culture change means we will do things differently.
+- You look at marketing: everything that's happening in marketing is digitized. Everything that's happening in finance is digitized. So pretty much every industry, every function in every industry, has a huge element that's driven by information technology. It's no longer discrete.
+- Wherever we are seeing something getting used, that to us is an early indicator that there might be something that people want. And then let's figure out how to make that great. And then let's go figure out monetization.
+- At Microsoft, we're aspiring to have a living, learning culture with a growth mindset that allows us to learn from ourselves and our customers. These are the key attributes of the new culture at Microsoft, and I feel great about how it seems to be resonating and how it's seen as empowering.
+- I will always be a Hyderabadi.
+- It's our own ability to have an idea and go after the idea and make it happen. That's what at the end of the day defines us.
+- To me, what Minecraft represents is more than a hit game franchise. It's this open-world platform. If you think about it, it's the one game parents want their kids to play.
+- When we think about even the PC market and what is required in the student as well as in the consumer market, we want to be able to compete in the opening price point.
+- Cloud is just emerging, but it's high growth.
+- What happens in Britain, what happens in the world, matters a lot to us in our core business.
+- We had the Windows app store in Windows 8, but one of the big changes in the design of Windows 10 is to make sure that the app store is front and center where our usage is, which is the desktop.
+- I think we would be dead and gone if we were just mostly failing.
+- When I think about my career, my successes are built on learning from failures.
+- I definitely fall into the camp of thinking of AI as augmenting human capability and capacity.
+- With all the abundance we have of computers and computing, what is scarce is human attention and time.
+- Ultimately, what any company does when it is successful is merely a lagging indicator of its existing culture.
+- If you think you deserve a raise, you should just ask.
+- My ambition with connectivity is not to fly balloons in the national airspace of other countries, but my dream is to be able to enable the local entrepreneurs to have low-cost connectivity solutions.
+- We've had great successes, but our future is not about our past success. It's going to be about whether we will invent things that are really going to drive our future.
+- What gets lost is we wouldn't be who we are and as successful as we have been if we didn't have a decent batting average.
+- Longevity in this business is about being able to reinvent yourself or invent the future.
+- When I started at Microsoft, I was lucky enough to be part of the rise of the client-server paradigm.
+- We have only one Windows. We don't have multiple Windows. They run across multiple form factors, but it's one developer platform, one store, one tool chain for developers. And you adapt it for different screen sizes and different input and output.
+- I am absolutely thrilled to have the Xbox franchise.
+- The unique value that Microsoft can add is around productivity and platforms. Productivity is broadly something we can uniquely do.
+- If you talk about STEM education, the best way to introduce anyone to STEM or get their curiosity going on, it's Minecraft.
+- I want everyone inside of Microsoft to take that responsibility. This is not about top-line growth. This is not about bottom-line growth. This is about us individually having a growth mindset.
+- Ultimately, it's not going to be about man versus machine. It is going to be about man with machines.
+- Windows is the best place; it's the home for the very best Microsoft experiences.
+- At the core of the products we build, I want to think about productivity centered around people.
+- I went through a phase of reading lots of Urdu poetry, thanks to the great transliterated versions that have become available.
+- I'm not claiming that we are the only guys who are going to succeed in the cloud. Others can succeed as well, just like in the previous generation.
+- You renew yourself every day. Sometimes you're successful, sometimes your not, but it's the average that counts.
+- The energy you create around you is perhaps going to be the most important attribute - in the long run, EQ trumps IQ. Without being a source of energy for others, very little can be accomplished.
+- Information technology is at the core of how you do your business and how your business model itself evolves.
+- Microsoft has no SQL Server developers. We have only Azure developers.
+- We want to build intelligence that augments human abilities and experiences.
+- Xbox is one of the most revered, loved brands in games.
+- The one thing that I would say that defines me is I love to learn. I get excited about new things. I buy more books than I read or finish.
+- The question is: How are you able to organize your information, your tasks, and get stuff done spanning those different roles? Nobody lives in isolation.
+- I don't want to fight old battles. I want to fight new ones.
+- Believe me, my journey has not been a simple journey of progress. There have been many ups and downs, and it is the choices that I made at each of those times that have helped shape what I have achieved.
+- Our goal with the cloud is to make sure that our cloud and our cloud applications are available on every device in the world.
+- If you don't jump on the new, you don't survive.
+- Human language is the new UI layer, bots are like new applications, and digital assistants are meta apps. Intelligence is infused into all of your interactions.
+- In our business, things look like a failure until they're not. It's pretty binary transitions.
+- The mobile-first, cloud-first is a very rich canvas for innovation - it is not the device that is mobile, it is the person that is mobile.
+- I do believe that at Microsoft in general good work is rewarded, and I have seen it many times here.
+- When I grew up here, there was no T-Hub. Probably, the closest to T was the Tank bund.
+- Competition is not going to kill us.
+- It's not about the failure, it's about learning from the failures. Failure itself cannot be celebrated.
+- To me, Microsoft is about empowerment... we are the original democratizing force, putting a PC in every home and every desk.
+- Culturally, I think we have operated as if we had the formula figured out, and it was all about optimizing, in its various constituent parts, the formula. Now it is about discovering the new formula.
+- I believe men and women should get equal pay for equal work.
+- In the post-Snowden world, you need to enable others to build their own cloud and have mobility of applications. That's both because of the physicality of computing - where the speed of light still matters - and because of geopolitics.
+- Iran is a complete Windows country when it comes to the Office automation side.
+- I want to see us remain convinced that software matters in the future.
+- We are really excited about being stewards to the community that is Minecraft.
+- You've got to remember even the Apple regeneration started with colorful iMacs. So let us first get the colorful iMacs. I think with what we're doing with Lumia, we're at that stage. I want to do good devices that people like, and then we will go on to doing the next thing and the next thing.
+- We want to be able to service our customers more, like an Internet service. Our goal is to run one of the largest Internet services that enables people to use Windows on an everyday basis.
+- I cook a very exotic Hyderabadi rice dish called Hyderabadi biryani, which takes an entire day to cook, and the last time I cooked it was multiple years ago, but someday I'll cook it again.
+- We all know the mortality of companies is less than human beings.
+- A big part of my job is to accelerate our ability to bring innovative products to our customers more quickly.
+- There are always going to be people who are experts in security or end-user devices or collaboration or databases. That's not going to go away. But what's the reason all of these professions come together? To help the business transform itself.
+- The more you live it, the more sustainable your business approach becomes.
+- From Xbox in the previous generation to Xbox One, it's fundamentally transformed.
+- The fundamental truth for developers is they will build if there are users.
+- Without a doubt, I wholeheartedly support programs at Microsoft and in the industry that bring more women into technology and close the pay gap.
+- Be passionate and bold. Always keep learning. You stop doing useful things if you don't learn. So the last part to me is the key, especially if you have had some initial success. It becomes even more critical that you have the learning 'bit' always switched on.
+- Microsoft loves Linux.
+- I want the least number of decision makers. We want to empower people to get more things done and also give permission to question orthodoxy.
+- If you don't have a real stake in the new, then just surviving on the old - even if it is about efficiency - I don't think is a long-term game.
+- As I spent tons of time with customers, not just in the United States, but in emerging markets, in Europe, in Latin America, top of mind for everybody is how do they drive growth for their business going forward.
+- We're not in hardware for hardware's sake. We're in hardware to be able to express all our platform and productivity software in a way that's unique.
+- Making more sense out of my data, my needs, my tasks - to me, that's the future of Office.
+- We are going to completely change what it means to do advanced analytics with our data solutions. We have machine-learning stuff that is about really bringing advanced analytics and statistical machine learning into data-science departments everywhere.
+- I want people on the front line to be proud of what they're doing and give themselves permission to finish things in ways that they can be proud of.
+- Bottom line, we will continue to innovate and grow our fan base with Xbox while also creating additive business value for Microsoft.

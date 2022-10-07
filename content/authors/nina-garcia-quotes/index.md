@@ -1,0 +1,82 @@
++++
+author = "Nina Garcia"
+title = "Nina Garcia Quotes"
+quotes_len = "76"
+description = "the best 76 Nina Garcia Quotes"
++++
+- I'm a real believer in dressing tone-on-tone. I'm not saying you need to dress black. Dress just one color so the colors are not breaking your silhouette.
+- People always ask me if I could live in any other era what would it be, and I tell them none! I feel so lucky to live in an age where technology has changed and continues to change and make life so much more exciting. It keeps everyone young and constantly learning new things.
+- As always, work with your figure; draping, pleats, and proportion can work miracles when it comes to hiding flaws and enhancing assets.
+- If my closet were burning, it'd be my collection of jackets I would save - they always make me feel pulled-together.
+- I don't ride the subway. Either I walk, or I take a New York City taxi.
+- Style is about fun. True style is not about having a closet full of expensive and beautiful things - it is instead about knowing when, where, and how to utilize your collection.
+- We all get a little rush of excitement at the prospect of buying a brand-new outfit for a first date, but this is not the time. You're much better off wearing clothes, shoes especially, that you've already tested.
+- Style is really very personal. It's kind of timeless. Style is really about how you put yourself together. It's something very personal.
+- I'm all about the high heel; I think it's the sexiest accessory ever made, including lingerie.
+- I firmly believe that 90 percent of the confusion that women feel when they are attempting to put together an occasion-specific ensemble is caused by fear: fear of breaking the 'fashion rules,' fear of violating some long-forgotten tradition, or the basic fear of looking bad.
+- I'll admit it, the grunge trend doesn't really speak to me. I get why other people like it, but it's just not my style. Don't get me wrong, I love layering, but I like it when it is done with a little more polish and sophistication.
+- After assessing what's in your closet, make a list of what you need. Not want, but need. Write down the basics missing from your wardrobe. It could be a classic white shirt, a trenchcoat, or the perfect little black dress. Whatever the blank spots, write them down. This will be your reference for shopping.
+- I was obsessed with fashion when I was young. I thought fashion meant fashion design, and I thought I wanted to be a designer at some point.
+- I'm very classic and structural. I love clean lines and interesting, modern details. But I'm all about being streamlined - less is more.
+- Putting on fierce boots is an instant pick-me-up.
+- Working from home or going on maternity leave is no excuse to let go of your look. The more you schlep around in drawstring pants and tees, the less you're going to be able to pull yourself together when necessary.
+- My style is about making things last forever. When you're on a budget, it can be daunting to spend $300 on a pair of boots or a coat. But such basics are the building blocks from which your look is crafted.
+- My six favorite textures for fall and winter are leather, fur, tweed, mohair, velvet and wool. I love that they are all as warm as they are fashionable and easy to incorporate into your wardrobe.
+- Don't be afraid to mix things up by pairing a military-style jacket with a velvet skirt, vintage with modern, off-the-rack with couture, formal with casual.
+- Sweaters are a closet staple. They look great under a leather vest or with a pair of tailored trousers.
+- Invest in a couple of really good things - a great, classic coat; a good pair of shoes; and a timeless bag - then fill in the gaps with lower-priced pieces.
+- The fashion editor as it used to be has changed. Now you have to wear many hats, and whoever tells you differently is wrong. Now you're on TV, whether you want it or not.
+- When interviewing for any job, you of course want to dress appropriately for the position, but you also want to stay true to who you are.
+- I actually started my career interning at Perry Ellis and got to work with Marc Jacobs.
+- I've always been opinionated, unfortunately, to my mother's disappointment.
+- I've always spoken my mind. There's no reason not to!
+- I love shopping for guys! A watch is a fantastic gift idea - an oversized, stainless steel version with links is classic and cool.
+- I tend to wear leather pants with crew neck sweaters or leather jackets with denim.
+- Your wardrobe should complement your skill set, never detract - or distract - from your assets.
+- Nothing is more alluring to a man than a woman who looks good in her jeans.
+- Fashion is just an interpretation of the culture around us.
+- Taking stock of what you own, when done correctly and thoroughly, helps dampen the urge to shop frivolously.
+- The best thing about my apartment is that it looks over Oscar de la Renta and all the shops.
+- My mother was a very big inspiration. She loved fashion. I loved art in school, and I was very good at drawing. I could sit at the table forever and just dream up collections and draw.
+- 'Style Strategy' is about shopping smart, staying chic and making it all last. It's about showing women how to shop for value without compromising style.
+- What I loved about my partnership with 'Quarterly' was the fact that it bridges the online world with the real world. Sometimes we see these two worlds as separate entities, and to be able to establish a bridge is very exciting.
+- I love 'Project Runway' because I can really be of help to an industry and I can be supportive to designers.
+- If you look back in history of the women who are most memorable and most stylish, they were never the followers of fashion. They were the ones who were unique in their style, breakers of the rules. They were authentic, genuine, original. They were not following the trends.
+- I'm not sure if I can cook. I probably can. But I'm really good at cajoling anybody around me to cook for me.
+- I lived in South America when I was growing up. I spent hours sketching. I was good at drawing, and I was obsessed with fashion, but I was also obsessed with magazines.
+- I'm a big believer that accessories can make or break a look.
+- If you invest in something a little more expensive with longevity, you'll use it more.
+- I was born in Barranquilla, Colombia, and I came to attend high school in Massachusetts when I was about 15 years old.
+- Each moment calls for a different stylistic essence and a different sense of impact, and mastery of this balance is an art form - a very learnable art form.
+- My passion for fashion originated in my mother's closet. She was a woman who loved fashion. She enjoyed dressing up a lot, and she had a closet that was like her sacred room that belonged only to her. She wouldn't let us go in and play there very often.
+- I am always being stopped for style advice, and I love it! The way we dress says so much about ourselves, and I love when I can help others take control of that.
+- I think New York is the center of fashion, even though L.A. has a lot of heritage and the glamour of Hollywood.
+- For so many years fashion was shrouded in mystery, this glamorous profession that people knew very little about, they thought it was so glamorous. It now has become so available, with the Internet, with shops like H&M and Target that do designer collaborations, so it's more available to everyone and that's created more interest.
+- One of the most magical places on Earth is a small island in the Caribbean called Mustique. With brilliant beaches, warm water, and lush vegetation, this tiny green swath of land is my idea of paradise.
+- When I come home, I need to feel instantly disconnected. In the rest of my life, I feel overstimulated. Here, I want things to be serene and unfussy, full of objects I love - but not too many of them.
+- My nightmare of nightmares is being overdressed for a casual event - I've done it! You have to have a real sense of what you want to communicate.
+- I'm all about my rugs. I don't like a lot of color. The apartment isn't exactly monotone, but it's full of very soft shades. So, really, the fun is with the carpets.
+- There really are so many lines of work that you can join that don't have to only be design. And that was one that particularly interested me a lot, because the editors could appreciate all the trends, all the designs and all the work of the designers.
+- In Colombia, where I was born and raised, women like my mother considered their appearance and personal grooming a matter of principle. There was never an occasion where she didn't show up looking picture-perfect.
+- I happen to have an obsession with Korean food.
+- I was so passionate about being in the magazine industry, even when I first started at 'Mirabella.'
+- It's refreshing to see a woman who can artfully weave her individuality into an otherwise safe ensemble.
+- Like most people, I've grown a lot more sophisticated in my style choices. I know myself and what suits me better now than I did when I was much younger and feel more comfortable in my own skin.
+- I do not do selfies! That's a tough one because I don't do selfies, but I think it's all about personal style. The more outrageous, the better.
+- I have seen everything possible covered in studs and grommets. Also, what I call angry shoes: those platforms with the multiple buckles and studs. I think the polished girl is back.
+- You can find a mentor; you have to ask questions, you have to show interest in what the other person is doing. You have to have curiosity - I think that people appreciate that and will want to help you.
+- My aspiration was always to be a fashion editor.
+- It's interesting because we live in a country where the obesity is so enormous. And then the reflection on the runways is girls that are so thin. So there's two extremes that are almost like a reflection of themselves, and it's very hard to be in the middle with girls that are just healthy.
+- I think my Latino culture has equipped me with a different point of view than the rest of my counterparts, and seeing things from a different angle has helped me a lot. I feel very proud of my culture, of my Latino heritage.
+- Don't get me wrong, I love a good cardigan too, but a jacket - especially one with sharp shoulders, interesting buttons, or a unique collar - always looks the most fashion-forward.
+- When I was older and I first started working, I was obsessed with buying my first Chanel jacket. I saved up my hard-earned money, went to Barneys, and bought a little black Chanel jacket. It saw many, many job interviews and many, many events. I'm not fitting into it lately, but I still have it.
+- Serving jury duty is a fascinating little slice of life, with its motley crew of personalities.
+- I don't have a development deal, but the one thing I have learned is never say never. I will consider things as they come.
+- I grew up with a fashion-obsessed mother and an older sister, so there was a lot of fashion in my house. The first thing I remember owning was a Pierre Cardin jumpsuit when I was 9 or 10; of course I didn't actually buy it, but I fell in love with it.
+- Whenever I'm on a book tour, one of the questions I always get asked is what to wear to various occasions.
+- I'm really looking to reach any woman who's interested in refining and embracing her personal style.
+- I've said this so many times, but I keep coming back to this: Trends come and go. Own them and make them your own. If it doesn't feel right, then don't feel like you need to dress a certain way just to be trendy.
+- Many of my friends and colleagues are in the public eye, so they have to pay close attention to what they wear. But every woman needs to stay on her toes in this era of cell-phone cameras and Facebook.
+- Here's the thing: I love what I do for the magazine, and I love what I do on television. When you do the things that you love, it's not bad. It's about being very organized.
+- Fashion is an expression of a time, of a place, of history. It's putting things into context.
+- I've had to adapt my wardrobe to my various roles, both at the office, as a mom, and for television. When I shop for the season I look for pieces that will suit every facet of my daily life, not just one single occasion.

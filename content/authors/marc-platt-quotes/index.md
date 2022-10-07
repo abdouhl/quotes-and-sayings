@@ -1,0 +1,73 @@
++++
+author = "Marc Platt"
+title = "Marc Platt Quotes"
+quotes_len = "67"
+description = "the best 67 Marc Platt Quotes"
++++
+- When I first started in the business, it was hardly ever done. But today, it almost feels like studios go out and preview movies knowing full well that they're going to use the information they get to go back and reshoot.
+- Good movies beget other good movies. So when a movie captures the imagination and hearts of people around the world, it's going to have a positive influence on similar genres getting made.
+- I do love storytelling.
+- Even in a manuscript form, 'The Girl on the Train' sort of leapt off the pages as a contemporary suspense drama-slash-thriller. It has all the mechanics of a thriller, but at the heart of it was a great character study.
+- My personal challenge is always balance. My life has a lot of compartments to it, and I care about each of them deeply. So I wake up each day thinking, 'How am I going to balance today?'
+- That's what makes live TV exciting - the unknown!
+- The financial side of Broadway is the easy part. Plenty of people want to put money in a Broadway show. The challenging part is finding the material that excites me enough to spend a couple of years of my life devoted to it.
+- I think too many people in Hollywood perhaps fail to make a distinction between the political side of Israel and the notion of the country. And they can be separate things.
+- Ever since I was a kid, I dreamed about working in the theater.
+- The film world is always looking for great source material, and Broadway has traditionally and historically been a place to go.
+- One of the secrets of 'A Christmas Story' is that it's a relatable story. They feel like our family.
+- With 'Shinobi,' we hope to make a film that honors the essence of the games.
+- What makes 'A Christmas Story' universal, whether you celebrate Christmas or not, is that you recognize that family... It's ultimately about a family being glued together for the holiday season.
+- James McAvoy is not an action star.
+- We always love actors taking unexpected turns.
+- The notion of someone who is fitting in or trying to become part of a larger family... It's hard to separate that from my own Jewish roots.
+- The further you get up the corporate ladder, the farther you get from the actual filmmaking process.
+- Hollywood is what I do. It's not who I am.
+- I want my projects to be great, of course. The talent has to come from a diverse pool. Because that's the world we live in.
+- It was just the DNA of my family. Giving back didn't feel like an entitlement; it was an obligation.
+- Producers should have the courage of their convictions. See your project through to its fruition. Seek help and be generous enough to take on collaborators and not be territorial as you're learning.
+- Stephen Sondheim is calculus for actors. The words are witty and brilliant and profound but complicated.
+- 'Defying Gravity' is a big, theatrical, grand gesture. In film, how do you match that?
+- TV has the unique opportunity to take musicals, live events, so it has that feeling and excitement and spontaneity, but still has a camera between you and what you are watching.
+- I don't think anyone can ever predict a phenomenon. It's not something you can bank on.
+- As a producer, when you get to work with a filmmaker who is joyful about making films, you want to do it again and again.
+- As much as I love storytelling, I've always been drawn to talent.
+- I was always interested in storytelling, particularly in theater and film. I liked creative things. My mom and dad are wonderful people, but both are tone deaf, so I don't know where the gene came from.
+- I love getting up in the morning. I love coming to my office. I love going to movie sets. It's really what every parent wishes for their kid - to do what makes them happy.
+- I'm very competitive, and I want to be very successful, but at the end of the day, films to me are still films. I want them to be good, and I'll work the hardest, but at night, I go home to my life and my family, and that's where my heart lies.
+- In any adaptation, the challenge is to take the essence of the original source of the material, be faithful to it to a point, but to also recognize that you're telling a story in a very different medium. It has to exist on its own, and it has to offer something unique to that experience.
+- I do love being amongst creative people and facilitating that and being inspired by people. I get very bored with just competence and require inspiration all around me.
+- The theme of 'A Christmas Story' is that you can count on Christmas - that everybody has a Christmas story. Everybody has that time in the holiday season that they remember.
+- We're all human beings; people make mistakes.
+- Adaptations, especially movie musicals, are really hard to do.
+- Many actors in films are willing to go to Broadway, and screenwriters are writing plays. It's almost commonplace.
+- I appreciate actors who work very hard to get at the truth of the character they're playing. That speaks to me, and I try to protect that process because I value the focus and intention behind it.
+- Thankfully, as much as Hollywood is interested in brands, I think people are still looking for originality and freshness.
+- The character we've always thought of as the Wicked Witch of the West is a green girl who's actually very good, misunderstood, and trying to make her way in the world. She's an outsider looking in, wanting to be loved. That's a universal experience that everyone's felt at some point in their lives.
+- I saw 'Into the Woods' maybe 26 times in various incarnations. I'm very familiar with it.
+- Winning an Oscar attracts the attention of directors and other actors and creates a boost in salary, particularly for someone like Halle Berry. For an established star like Denzel Washington, the benefits are less tangible.
+- 'A Christmas Carol' and 'It's a Wonderful Life,' are movies we love with magic in them.
+- As a producer, it's your job to bang on the table and convince studio heads why great movies should be made.
+- I always believe that a good story will find its audience and that it will attract different kinds of elements of creative people who will make it more compelling.
+- I'm a very hands-on producer.
+- There's certain people you want to see in comedies; there's certain people you just want to see in dramas. Not that there aren't individuals who do both, but it's not everyone.
+- One of my skills is knowing, 'This is where I'm needed, and this is how I'm needed and where I'm going to be in control and where I'm going to cede control and why.'
+- You've got Marvel films, sequels, franchise movies, so much noise out there. You're trying to brand your entertainment. The musical is its own brand.
+- I always appreciate hard work, and every actor has a different process. I appreciate focus.
+- I loved being a film executive. But something was always missing for me. I always had the feeling that I was looking over my shoulder - what's going on on Broadway?
+- It's hard to get an inner dialogue in a film. It's not cinematic. But in a musical, the character can just turn to the audience and sing.
+- I have a certain kind of a taste for what will make a good movie or a good play or theater.
+- When a writer gets a second chance to look back on something, it's a great opportunity to say, 'Hey, this is really good, but we can do it even better.'
+- Some of the metaphors you find in 'Wicked' - how those in power can exploit fear in others to maintain their power - I think, as Jews, we've seen that historically on more than one occasion.
+- If we members of the Jewish community don't support the Jewish organizations, nobody else will.
+- I'm lucky that I get to do the bigger movies and the smaller movies.
+- I do remember feeling, 'I don't ever want to feel impotent in terms of what I can control in a business in which you can have very little control.' And that motivated me to go to law school - that, and my parents saying, 'Go to law school before you do anything.'
+- I have creative ADD.
+- Repression is the enemy of civilization - so keep dreaming, because the dreams we dream today will provide the love, the compassion, and the humanity that will narrate the stories of our lives tomorrow.
+- Musicals have long given voice to outsiders and speak of experiences in our culture and environment.
+- Music has a way of getting inside all of us and lifting us up.
+- There were 100 intellectual reasons not to pursue 'Wicked.' There were times where it was very challenging, where the mind said, 'This is maybe too challenging,' but the heart willed it. The heart willed it to succeed.
+- Good direction is often based on the ability to communicate.
+- Watching familiar characters take unexpected turns is very appealing.
+- The themes and ideas embedded in 'Into the Woods' always spoke to me.
+- Navigating the studio system has its own challenges, and, as a producer, you want to be astute and clever.
+- 'Wicked' has been one of the biggest hits in Los Angeles theatre history, and we are thrilled that theatergoers here have embraced the musical and welcomed us so heartily.

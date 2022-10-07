@@ -1,0 +1,60 @@
++++
+author = "Margherita Missoni"
+title = "Margherita Missoni Quotes"
+quotes_len = "54"
+description = "the best 54 Margherita Missoni Quotes"
++++
+- My ambitions are less important than my well-being. My children come first.
+- When I was growing up, my family was serious about manners. I always wanted to put my elbow on the table to prop my head up. I didn't understand how other people looked awake. My head felt so heavy after the whole day.
+- I live for any excuse to 'dress for the occasion.'
+- I was lucky enough to create my own dress, deciding on every single design detail. But, even if you don't have a custom dress, you can still create a signature wedding-day look with personalization - a belt, altering the sleeves, etc. But, when creating your bridal style, the most important thing to remember is to make it feel like you.
+- From my grandmother, I started drinking warm water with lemon every morning just before breakfast. That's something she has been doing for years. It has helped me a lot with digestion. And then also eating seasonal fruit and vegetables, like not eating tomatoes in the winter.
+- I come from a family of compulsive collectors, and my first memories are really all about collecting. I remember visiting flea markets with my mother or my grandmother - she goes to local ones around Varese, Italy, every Sunday when she's at home.
+- At the beginning, when you don't look so pregnant, I think it's all about dressing boyish, with jackets and loose layers.
+- I love dressing for different occasions and having dress codes. For me, it's such a fun thing to have a reason to think about dressing within restraints or codes or rules, so it's something I have fun with.
+- I bought a place in Milan, but Missoni headquarters are out in the country, in Sumirago. My whole family eats out of the same vegetable garden; my mother raises chickens. I love the city, but if you're always bombarded with stimulation, you get numb to it. I need to get bored to create.
+- Growing up, I saw the world as an inspiring place full of interesting people.
+- I studied philosophy at Columbia, then dropped out to do drama at the Lee Strasberg Institute.
+- I'm not keen on the Mini Me trend. In my opinion, kids' clothes should be kids' clothes.
+- All the clothes I got before my son was born; he can't really wear them! Either you can't wash them, or they're too hard to get on and off - you know, so many baby clothes have sleeves that don't let the baby's arms go in and out. It's ridiculous!
+- Since I was a child, everyone would ask me what I wanted to do when I grew up. Was I going to be a designer? It's as if there was a path drawn for me, and I could see, from where I was standing, exactly where it ended.
+- I loved everything about my wedding look, but, in retrospect, I would have changed the position of where we attached the veil on my head. Make sure you test a few different placements and styles before the big day to make a clear vision and plan with your hairstylist.
+- I have a lot of Missoni tablecloths, but for breakfast, we use placemats - we call them 'American-style.' I have some in crazy patterns from the Swedish brand Svenskt Tenn. And I like plates from Grottaglie in Puglia, stained in wild colors.
+- On my skin for the winter, I like Hydracid C20 cream by SVR.
+- I go to bed early, and normally before I do, I have a tea - it's a special tea that my doula gave me, and it takes about 25 minutes to make!
+- I think that style, taste, and choices in general are forged by everything that surrounds you - everything you see, taste, touch, smell and hear. So of course, my family has influenced me as a person and in my own style, but so have all the experiences that I went through as an individual.
+- I've been eating a porridge of millet for breakfast, something that my doula recommended I eat. It doesn't taste that great, but it's supposed to be really nourishing for the baby, and you're not supposed to eat any gluten when you're pregnant. I've been making pancakes out of it and add berries.
+- Shoes are the first thing I notice on a man. I like classic styles - not too square, not too pointy, not too fashiony. There's a fine line between too much and too little effort.
+- I buy a lot of fashion, and I wear many different brands. Even though I'm not so conceptual in my style, I probably buy the most from Junya Watanabe. It's always so spot on and of-the-moment although it's also so sophisticated and conceptual. I also love Marco de Vincenzo, Azzedine Alaia, and Yohji Yamamoto.
+- My phone is all ping-ping, eBay alerts.
+- It's the story of my life; I spend my life reorganising my closet. My husband thinks I'm crazy, and I change the rules every six months.
+- I'm not a hang-out-on-the-beach type of girl.
+- We never pull down the quality of the product, and I think that pays in the long term. People come up to me and say, 'I'm still wearing a Missoni sweater from 30 years ago, and it still looks great.' So quality, specificity and passion.
+- I grew up in the countryside with the factory here, my house 200 metres away, my grandma's house 50 metres away, in a kind of old-style Italian society where everyone works for the family business, everyone lives nearby, and the people you spend your time with are your family.
+- I'm the only one in my family who doesn't cook, but I can do a Swiss dish called frittatensuppe. You make a thin omelet from eggs, flour and parsley, then roll and cut it in the shape of tagliatelle and add broth. It's a tradition we adopted.
+- Americans have much less holiday, so for them, four or five days away is like a mini vacation, but for us, it's just a long weekend. In Europe, one takes time off more casually.
+- I saw a photo of a Christian Lacroix couture dress when I was in my teens and decided right then that that's how I wanted to look on my wedding day. In my mind, that's what angels looked like.
+- When we were children, every day after school, my brother and sister and I would go to my mother's office. It was full of pencils and marker and fabrics and beads. It was so much fun to be a child and to express my creativity through drawing and to playing dress-up in all of the wonderful and colorful clothes.
+- At Burning Man, the audience is the show: the boundaries between stage and public overlap and melt. Every form of self-expression, every fantasy... everything has a place. It's kind of a utopia, and everyone who sets foot in it is so impressed that they do their best to respect it and keep it alive.
+- A simple thing that we do is hot and cold showers for circulation. And using aloe vera on your face, but I guess that's not very Italian because we don't naturally have it, I think.
+- Fashion is a real passion in my family. I never even realised it was something glamorous until much later. For me, it was my family's job.
+- I grew up in the same place as my mother, seeing the same trees my mother saw when she was at work; the flowers I picked were the flowers that my grandma planted. We have different styles; I wouldn't make the same clothes that my mum made, or my grandma, but we have the same taste.
+- We live in the countryside, 15 minutes from the closest town, so I would never have time to drive and go somewhere. So I have a personal trainer come to my house, normally three times a week, and we do circuit training depending on what I need.
+- I like the brand BioNike for shower gel, creams, deodorant, and hair products. I also love RestivOil - it's a yellowy, orange shampoo that I've used forever because it's the gentlest on the scalp.
+- I definitely inherited a lot of from both my grandmothers and from my mother. I wear a lot of pieces that used to belong to other people.
+- My grandmother Rosita, my mother Angela and I have probably got different styles but we have very similar tastes. For example, I don't find it hard to use colours or wear knits, since it's something that comes to me naturally.
+- Growing up in a very big family, working together and playing together, that is something that has been part of my life since ever I was born. It has advantages and disadvantages. It's like an older style of living where everyone works in the family business.
+- I'm happy living in the countryside. We are 30 minutes away from Milan, so I can drive in for dinner and drive out. It's not a question of living in the country or in the city, it's really a question of living in a tight, close-knit clan that makes the difference.
+- Bio-Oil is the best scar and stretchmark prevention/remedy. I swear by the entire range of Vea Oleo - their lip balm is great. I use the one in tubes for my son Otto's winter skin dryness.
+- I lived in New York for five years; I've lived in Barcelona, Rome, and Paris at different times. When I was 18, I was dying to live in a city.
+- There may be people who try to imitate art when they get dressed and people who just get dressed to cover themselves up, but I guess that both send out messages and communicate their ideas and feelings through their looks.
+- Every little detail of my life is, and has always been, surrounded by fashion - from the cup I drink my coffee from in the morning to my constant travels - fashion always pops up somewhere and somehow.
+- When I became a mum myself, I really struggled to find great kids' clothes. Everything was either gorgeous but impossible to actually get open to change a nappy and expensive or poor quality.
+- Sometimes I have ice cream for lunch. Gelateria Sempione in Milan is the best in the world, hands down. The chocolate sorbetto is amazing.
+- I make homemade juices with whatever is in season. I rarely have coffee, but I drink lots of tea. I start with a pot of tea at home and sip on herbal teas throughout the day at work.
+- Whatever you thought you would wear when you got pregnant, you won't be wearing that.
+- My mother persuaded me not to pluck my eyebrows when I was a teenager - right now I'm so grateful I never did! She also taught me to pour 2 kg. of salt in my bath whenever I feel swollen and tired - and to end it with a cold shower. It does wonders.
+- It's always fun to visit multiple locations on one trip, but I think it also really depends on the ages of those on holiday. As a child, I loved spending time in one vacation spot, getting attached to the location, becoming comfortable, and feeling as though I were at home. This is something I would like for my children to experience.
+- I'm not a big sleeper. It just feels like wasting time. If I wake up, and it's after 5 A.M., I stay up.
+- I've always tried to control everything and every aspect of my life, and this is maybe the biggest lesson I've learnt with motherhood - you just can't control everything, and I'm much more relaxed now about unexpected changes and things that happen.
+- I think that clothes and accessories define and describe who we are. I can't see many differences between them; they are indeed a way to introduce ourselves to other people, and they help us transmitting a message to others.

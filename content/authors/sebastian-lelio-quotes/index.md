@@ -1,0 +1,61 @@
++++
+author = "Sebastian Lelio"
+title = "Sebastian Lelio Quotes"
+quotes_len = "55"
+description = "the best 55 Sebastian Lelio Quotes"
++++
+- I'm not saying transgender characters should be only interpreted by transgender actors - because that would be as rigid as saying transgender actors cannot play cisgender roles, and that's not the idea.
+- In the case of 'Disobedience,' the very secretive way of life and religion and tradition that the North London Orthodox Jewish community has was a huge invitation to explore an unknown world. And also a possible trap, and I tried to overcome that by portraying it, hopefully, with great nuance and detail and texture.
+- Poetry was my 'in' to the idea that I could express myself through art.
+- I'm always trying to get my characters to the point of complete rebelliousness. I like that attitude that characters feel when they own their lives. There's something beautiful in the moments when characters disobey.
+- I have never been religious, but I've seen the strength of it.
+- To me, there was something moving about the idea of telling the story of a lady who is, in a way, a forgotten character - someone who would normally be a secondary role in a movie.
+- Film is a game of projections upon projections, and the projected image on the screen is a game of light and shadows. There is nothing there; it is the brain that is decoding those things. The film doesn't have any decipherable kind of meaning if it's not seen.
+- I'm interested in characters. I love them, and I love to write them.
+- I had the idea that I'm going to make a trans-genre film about a transgender woman.
+- 'Gloria' was a gamble.
+- I'm interested in the intersection of character and actor.
+- The use of music in 'Gloria' is not cynical.
+- I was writing when I was very young, and then I became interested in everything - I wanted to do photography. I wanted to act. I wanted to write plays, and then I wanted to film and to paint, but I felt that film had a condition that reunites everything.
+- I grew up surrounded by strong women, and that was a very strong influence.
+- I'm very open to following the stories that move me and reach that flexibility where you can be more flexible. I'm expanding my horizons.
+- Latin American culture is conservative, and the rural areas are tremendously conservative. I don't believe that's just a Chilean thing.
+- Either we learn to live together and embrace the complexity of life, or we will end up with fascism again and destroy ourselves.
+- In Latin America, cinema has always been a bourgeois activity, I guess, as it is everywhere. It's just a stupidly expensive art form, and there is nothing you can do about it.
+- Every human society has its lights and its shadows. That's the reality of existence.
+- Cinema is empathy machinery, and we multiply our life experience through cinema. When it is good cinema, it almost counts as a personal experience.
+- It's not that I only want to make films about women, but from my experience, I have been very interested in the women who play these characters.
+- English is not my language.
+- We all face crossroads in our lives where we can retreat into ourselves, or we can hit the dance floor.
+- The living experience of film only happens when a film is seen, and only within the spectator, because they project their own fears, desires, and fantasies upon those lights and shadows.
+- 'Gloria' is a film about a fifty eight-year-old woman who is quite alone in life; however, she is quite optimistic. Nobody has much time for her, and so she regularly goes to these single adults' parties where she is looking for someone. By the end of the film, she doesn't necessarily find love, but she does find something else.
+- I don't come from a rich family, but my parents are professionals.
+- Casting is an art, and if you're interested in people, like I am, casting is essential.
+- When you're filming, not everything is rational.
+- I was always making new friends, then losing them.
+- I went to church as a boy, and then I quite quickly stepped away from religion. But I remained fascinated by the need people have for religion.
+- The mystery of film is not in the script. It's in the shooting, in the interacting of humans and space and time.
+- There has been too much silliness and cliche when looking at older people: I think that hides a fear of death that we have as a society. We are obsessed with youth and denying death.
+- I wanted to be a poet. I wrote from ages 15 to 22, but I left it because I discovered, and fell in love with, cinema.
+- Death is astute as a master. It's a process that teaches people aspects of themselves.
+- My stepfather was in the navy, so I got to know a side of Chile that is not what you would expect from an artist.
+- Chilean society is conservative, but U.S. society is puritanical.
+- I grew up in a dictatorship in a very Catholic country.
+- The idea behind 'Gloria' was to take a secondary character - the aunt, the mother - and stay with her as she becomes our protagonist.
+- I knew 'Transparent' and saw a few episodes of 'Orange is the New Black,' so I knew about the trans actor in that cast. Of course, I saw 'Boys Don't Cry' back in the day. But the path that led me to this subject was different... it's just my curiosity as a human being more than my awareness of any political struggles.
+- Rachel Weisz is amazing, instinctive, volcanic - an amazing force of nature.
+- I didn't know how I was going to deal with 'Disobedience' because it takes place in such a specific and often secretive world.
+- I don't believe in closed scripts; I think that they should be open.
+- We all have a potential revolutionary energy inside.
+- In order to make a film, you have to operate on many different levels, making all these different forms of expression converse, and so I just followed that intuition.
+- Creative processes are always very opaque. Afterwards, you tend to pretend that everything was planned and it was a strategy, but it was not like that at all.
+- I've been following my intuition and what moves me.
+- When you're filming, you're blind. But if you follow what really moves you, then you operate from a place of hope: maybe that the story you're telling will resonate with whatever the world will have become when the film is ready to be born.
+- In the case of 'Fantastic Woman,' I wanted to make it a more complex animal than just a 'cause' film. Even though I was sympathizing with the character's struggle, I didn't want to be trapped at that level - it's important, but it can be quite basic.
+- Those of us who make movies play with perception and reality; those who watch our films are responsible for making sense of it.
+- There's something about using the cinematic device as a tool to connect with dimensions of the world that you don't know too well, you're not too familiar with. It's like a creating a bridge, or a spaceship to travel to the unknown.
+- I learned at an early age to be socially effective while practicing disappearing.
+- This idea of walls, segregation, labels, and 'You against us' and 'We are superior and you are inferior.' Which people are legitimate? Which relationships are legitimate or not? Who declares that under which authority? These are things that are hugely important.
+- How can you repress Rachel McAdams? She's so full of life.
+- Fashion is totally political, the icon of a political system.
+- Sometimes we have to disobey in order to transcend, in order to survive.

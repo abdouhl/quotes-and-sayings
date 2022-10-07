@@ -1,0 +1,40 @@
++++
+author = "Milo Ventimiglia"
+title = "Milo Ventimiglia Quotes"
+quotes_len = "34"
+description = "the best 34 Milo Ventimiglia Quotes"
++++
+- I found that people want stories that are not too dissimilar from theirs. People want to be reminded that, let's say, struggle in your family is being felt by other people, that you're not alone.
+- I was used to playing misled youth, rough-and-tumble guys. It was nice to get back to a big-hearted, warm and gentle soul, a guy who is destined for something a lot larger than he ever expected.
+- My father was a very fun dad. He was always coaching our soccer sports teams; he made sure that we had activities to do. He was kind of goofy and fun. But at the same time, he had a lot of lessons to teach us so that we didn't grow up and just not be good people.
+- I don't think of myself as anything more than a person who sits in the living room with you telling you a story. I just happen to be in 16 million living rooms.
+- I go to the store. I go get my car fixed. I have friends. I have a life, but nobody needs to know about it. Because I'm just the same as anyone else.
+- I'd love to have kids.
+- I was either going to be an actor, a Naval aviator, or a pediatric surgeon. Those were the three things that I wanted to do.
+- Enjoy every moment.
+- I don't like attention.
+- In general, I pack really simply. Every shirt that I pack is going to work with every pant that I pack and every sweater that I pack. So, I can mix and match easily.
+- I was going to go be an auto mechanic.
+- I've got two older sisters, which I think was the best thing but also the worst thing. They dressed me up like a girl, but at the same time, I think they taught me a lot of what they experienced and what they lived through and passed that on to me as a young man and influenced how I approached not only women but people.
+- I'd love to hold a koala. They sleep 22 hours a day, eat eucalyptus leaves and just hang out. I want to spend some time with that guy.
+- I have a hard time with awards shows in general because I've never been part of the conversation. I just show up to work and do my job because I love the job and I love the people I get to make TV with. When someone wants to applaud it more than just watching it, that makes me somewhat uncomfortable.
+- I have dual citizenship with Italy.
+- Some places that I have been, I have brought a token or some home from different places I have been. Some of them are around the house, and some of them are tucked away safely.
+- You have to pay attention to the work on the page and make it as good as possible because it could be your last.
+- My sisters and mom raised me to respect women and open doors for them.
+- I think there's this idea that the depth of an actor's performance is built on tough times or horrible events or isolation, but I never found that. I figured that my imagination coupled with the story can get me anywhere.
+- I'm tough on the outside and soft on the inside... I'm really a shy guy.
+- Acting is very sacred. Anyone who stands in front of a crew with the camera recording their emotions is a brave individual.
+- Sleep when you can, rest when you can, take care of yourself, eat well, and hopefully, you just take advantage of the opportunities that are presented to you and spread some good.
+- I just try not to subscribe to the ways of celebrity. I'm not a celebrity, I'm a working actor. A lot of the events - the parties and the premieres that people go to to get noticed - I'm just not into. I'll hang out with my friends, go see punk shows, read at home. At the same time, I have a production company, which is a lot of work.
+- It would upset me if someone watching a show was thinking about me, Milo, as an individual at the supermarket or at a concert, wherever, and they're not thinking about what the character is experiencing.
+- I think, being a kid, you always think about being a movie star. And then as I got older, I started thinking about just the work.
+- There were a million different things I could have chosen or wanted to do, but the path of an artist was the one that pulled me the most.
+- I feel like there's a currency to your personal life and your performance - your acting, your work. If that personal life starts to outweigh what the work is, then your work suffers. Your actual performance suffers because the audience won't see the character, they'll see you.
+- I got very lucky with the family I was born into. From my older sisters to my mother and father, they're just good, kind-hearted people.
+- For me personally, it doesn't matter if I'm in a short film, a commercial, a digital series, a TV show, or a movie. Acting is acting. You have to embrace whatever medium you happen to be in and not worry about everything else around it.
+- I'm happy to be on a show that's bridging that gap of 'Okay, I'm not a teenager anymore, I'm a man.'
+- I'm a homebody, I'd rather be in the kitchen cooking than hanging out in a bar.
+- For me, I think my traveling is usually a lot of photographic memories, and I take a lot of photos.
+- I have a Crock-Pot, and I have an All-Clad slow-cooker - I have two different ones. The All-Clad is larger, for maybe a gang of people, and my Crock-Pot's a little smaller if I'm just making something for myself.
+- My first commercial ever was a Dr. Pepper commercial. And then I did a Mountain Dew commercial. A lot of soft drinks.

@@ -1,0 +1,17 @@
++++
+author = "Mark Brand"
+title = "Mark Brand Quotes"
+quotes_len = "11"
+description = "the best 11 Mark Brand Quotes"
++++
+- Synthesis is like telling somebody how you really feel after carrying it around for months: the weight that pours like sand off your shoulders with getting clarity.
+- Criticism is an interesting beast. For some of us, it can be received, regardless of tone, and used to learn more about ourselves and work. For most, it can shut us down, belittling the opposing side's opinion, testing their 'experience' in our field of choice, and ultimately leading to a harder stance, often misplaced.
+- Canadians will usually give charity to those in need overseas but will ignore the people in their own backyards. It's infuriating.
+- I can't sing the praises of the crock pot enough.
+- When I was young, summers stretched so long, as if they'd never end. Days were like marathons of time, riding bikes until my blisters had blisters, endless energy, and not an actual care in the world aside from when 'Paul' could come out and play. Days now feel more like minutes, almost game show like.
+- Vancouver houses one of North America's largest open air drug markets and has a dense and heartbreaking problem with homelessness and mental illness. Those are the neighbourhoods I live and work in.
+- Innovation and its allure can be dangerous. It can draw you away from the user, from the intended outcome, and may be the ultimate demise of otherwise great intentions.
+- Critique, feedback, reaction to one's work or the way they have presented it, regardless of intention, is a gift.
+- I love sushi. A well made roll with just enough vinegar tang has always been a lifesaving post-bourbon remedy for me.
+- Time has ruined a lot of the way we eat and we approach food.
+- Everything I do in business - and in the kitchen, period, I believe - goes from 1940 to 1978. It's the right way. It's the old way.

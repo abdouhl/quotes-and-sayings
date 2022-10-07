@@ -1,0 +1,22 @@
++++
+author = "Mandip Gill"
+title = "Mandip Gill Quotes"
+quotes_len = "16"
+description = "the best 16 Mandip Gill Quotes"
++++
+- I want to be an Actress that is forced to change in order to play certain characters or tell stories. I don't want to just play a version of myself.
+- As I got to about 9/10 years old I started to see roles on television that I wanted to play like a police officer in 'The Bill' or be a part of the 'Goodness Gracious Me Family' which I think further fuelled the desire to do this professionally.
+- No, I went through a process just like I would any other job in which my agent received the breakdown for 'Doctor Who' and I went for my audition. In the original audition, it said you can bring as much to the character, we're looking for what the actor can bring.
+- I used to watch 'Hollyoaks' before I joined the show, and I always loved the McQueens. To be part of that now is just brilliant.
+- We were filming 'Doctors' in Birmingham and they have the highest percentage of homeless people outside of London. You just have to walk down one of their busy streets to see that this issue is massive.
+- Years ago, there was one Asian person in a soap and the entire Asian acting community was going for that role. Now, you can find a few different Asian people, and their character isn't entirely based on their religion or culture: they just happen to be in a soap.
+- When I was younger I didn't feel I was represented in popular culture - you couldn't get a brown doll in the shops and you didn't see many brown people on TV.
+- I do actually like to watch my stuff.
+- I look for a great story. One that I would like to watch, or tell, or that I think needs to be told, because I know that, as an actress, I have a responsibility to tell certain stories and to tell them properly.
+- I watch a lot of British television so people like Olivia Coleman, Sheridan Smith and Jodie Comer continue to inspire me with their versatility and story telling in British television.
+- Since leaving 'Hollyoaks', I've moved down to London and I've been auditioning here quite a lot.
+- But there are still so many other roles that I would love to play, and hopefully I'm in a position after 'Doctor Who' to be a bit choosier about which ones I do. I want to play Wonder Woman.
+- I think everyone has such a negative perception of homeless people - including myself, before I'd researched homelessness for my role in 'Hollyoaks.'
+- I'll never forget how I started off and I'll never talk down about 'Hollyoaks'. Leaving was a business move for me, rather than a personal decision.
+- You can get a job, but you have to actually start doing it before you can be like 'Yeah, I've really got that job.'
+- I just want to play really strong characters that get to do really interesting things. But I would also love to play someone really vulnerable. When I first started my career, I tended to do a lot of things just to get the work.

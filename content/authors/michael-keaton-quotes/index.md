@@ -1,0 +1,135 @@
++++
+author = "Michael Keaton"
+title = "Michael Keaton Quotes"
+quotes_len = "129"
+description = "the best 129 Michael Keaton Quotes"
++++
+- I liked going to Catholic school.
+- Technology, you know. I'm pretty horrible. I use it, but mostly I like to view it from afar. But I'm still fascinated by it.
+- You don't get bored with stuff like 'Birdman.'
+- Unpredictability means what it means. I don't know how you define it. It is what it is.
+- Anesthesia is quite remarkable. It's lost time. And you wake up kind of refreshed.
+- Sometimes I don't feel like an actor. Sometimes I speak about it like it was another job, and then I go, 'Wait a minute - I am one!'
+- I never wanted to play the short game.
+- I read that John Hughes script for 'Mr. Mom,' and I thought, 'This guy is a funny writer.' I went: 'You ought to stick around and direct this thing.' But he didn't; he left, and look what he became. A really legendary comedy director.
+- Historically, I'm not a great patient when it comes to slowing down.
+- I reached a point where I didn't think I was that great. I'm not being humble. I was looking at things and thinking: 'You're not really good in that'. I think I was becoming boring as well as bored. It was nobody's fault except mine - probably - and it might not even be my fault.
+- One thing my mother had a nose for was inauthenticity.
+- There are very few jobs where you're held up to public scrutiny.
+- Sometimes I do movies that aren't any good, or sometimes I might not be any good in them, or sometimes they don't do very well.
+- I was a really involved dad - not because I'm such a wonderful person. I like being a dad.
+- I never knew anyone who was cloned, but I played one in 'Multiplicity.'
+- Over the years, I think, people - actors, writers, whatever - lose their frame of reference. Their frame of reference is based on somebody else who did this or did that. Performances. So it just becomes a reflection of what already works. Like a warm-up. And that's an invitation to be inauthentic.
+- I come from a background where you don't really talk about yourself much.
+- There's this thin line between knowing something is going to be really hard and saying, 'Yeah, you know, but I still gotta see if I can pull it off.'
+- I've changed my diet a few times. Now I'm trying to eat more protein. I eat little meals throughout the day. I love food, so I still give myself great meals. Also, when I'm busy, it's easy to lose weight.
+- I get kinda self-conscious. I don't want to know about my eyebrows. I'm born with them.
+- Chris Nolan is great, but I've never seen any of the 'Batman' movies all the way through. I know they're good. I just have zero interest in those kinds of movies.
+- I worked at a PBS station called WQED in Pittsburgh.
+- I don't know - sometimes I catch myself being dark, and it's annoying. I think, 'Get over it.' I bore myself. But sometimes, like everybody, I'm sure I am obsessive.
+- Leaving a lot of movie sets, I've gone home and said, 'How come my hands are clean?' I should finish something and go home with dirt in my fingernails, because then you really feel that you've done something.
+- I really like to hear actors talk about acting, but I don't really like hearing myself talk.
+- I'm just shocked at how blatantly shallow people are sometimes.
+- I don't want dogs that have had the personality trained out of them. It's a partnership. I want to connect.
+- In high school, I was too shy to perform. It's one thing to get laughs from your family, to be funny at parties and in class. It's another thing to get up on the stage.
+- 'Beetlejuice' was a romp, man. 'Beetlejuice' was fun. I've never had so much fun in my life.
+- Chris Guest movies are funny.
+- I don't know how to not be outside since I was a little kid.
+- If I'm going to meditate, there is a little church up in Montecito, California. It's an old Spanish mission, actually. I find it comforting in there.
+- High energy creates more energy, more energy, more energy. It kicks off synapses, I guess. It opens up your brain and you think of one thing after another thing, after another. You can really open yourself up comedically, which is fun.
+- I think one reason I really like women and like working with women is because of my sisters.
+- I watch 'Morning Joe' occasionally. I used to watch a lot more than I do now, but I watched it, and all of a sudden, there was this love fest, for crying out loud - this inexplicable love fest one morning - for The Donald.
+- I've proven I'm courageous. I'm gutsier than anybody; I've got a better imagination than anybody; I'm essentially more creative than any other actor I know, and I've proven I take risks. I don't think I need to prove anything to myself any more.
+- To make extra money, my parents would sell eggs and chickens. I was very little. I remember a chicken's head being chopped off with the chicken running around. I wasn't sure if my imagination was running away with me or if it really happened. It really happened.
+- From an art perspective, I don't know how you get better than 'Beetlejuice.' In terms of originality and a look, it's 100% unique.
+- My limited theater experience was when I was a kid starting out: two or three plays. I was good in one and mediocre in the other. My problem is that I have other interests.
+- Actors don't get to be well-known if they're horrible.
+- My brothers were tremendous shack builders. My shacks were horrible. My brothers once built a two-story shack from the ground up that was awesome!
+- I was an altar boy, which I loved and am very proud of. It was strict, but also really nice.
+- I'll always stand by the first 'Batman'. Even for its imperfections, people will never know how hard that movie was to do. A lot of that still holds up.
+- If you're a dope like me, you get every sports channel you can get. I'm watching, you know, Netherlands soccer.
+- Weirdly, for someone who wanted to be funny, I didn't like a lot of attention.
+- Colbert makes me crazy: he's so funny. Plus, he seems like an extraordinarily decent dude.
+- No, I don't see many movies. I don't even see my own movies.
+- 'Birdman' is a very risky movie. I knew I wanted to do it just from watching Alejandro's other work. I told a friend, 'I would have done it based on 'Amores Perros' alone.'
+- There is the theory... that you live in two places: You either live in fear, or you live in love.
+- I've got six wonderful brothers and sisters.
+- I went through a lazy period.
+- I have a lot of energy, and I move around a lot in my club act.
+- David Letterman used to say, 'I wasn't the class clown, but I wrote for him,' and that's exactly it. You want to be known to be funny without having it pointed out.
+- Show business is, essentially, a fear-based industry.
+- Have I ever been to a party with a ton of famous people in it? Yes, several times, so I guess that's a Hollywood lifestyle.
+- I've got a statue of St. Francis in my front yard, and I'm not even a practicing Catholic.
+- In our family, my brothers and I shared toys. In other words, just because it was mine didn't mean my brothers and I didn't play with it.
+- There comes a point in your life when you realize how quickly time goes by, and how quickly it has gone. Then it really speeds up exponentially. With that, I think you start to put a lot of things into context; you start to see how huge the world is, and really, the universe.
+- I'd get scripts and think: 'What's the point of this?'
+- I like people-people rather than movie people.
+- I played a lot of sports when I was a kid so I get in that ballgame mindset of being really, really respectful, but at same time saying to yourself, 'Don't back down a single inch, hang with these guys if you can.' If they throw it high and tight you have to stand in there, you can't take yourself out of that moment.
+- There're only a few photographers I've ever felt really comfortable with.
+- I'm in a business that invites narcissism, self-involvement, and egos being blown out of proportion.
+- I liked 'Robocop' because of the director, and it was an intelligent, big-action studio movie.
+- If you look at what I do, there's no consistency. The consistency is that there is no consistency. I do projects that are good and not so good.
+- I saw some Pixar movies like 'The Incredibles' and thought, 'This is extraordinary. These are some of the best movies I've seen.'
+- Westerns were always my favorite things when I was little. And it always bothered me when cowboys were too clean in movies, or when they wore their guns like they had an outfit on. It always worked better when a guy looked sweaty and smelly; I hadda believe, I hadda believe that.
+- I'm the seventh child of George and Leona Douglas, and I don't ever remember a time when my father didn't work two jobs. When my mother was going to the grocery, or going to Mass, or trying to take care of seven kids in a run-down farmhouse.
+- I guess I'm probably a Method actor; I don't know... I just think of it as staying in the zone.
+- I was so gullible as a kid.
+- Actors will say 'yes' to anything.
+- I still really like newspapers. I'm gonna feel really sad when they go. Or not - maybe I'll be dead.
+- I try to not be or associate with elitists.
+- My first day in grade school, I was plain scared. I left the comfort of my run-down house, which I loved, and went to school where it was cold, it smelled, the lighting was bad.
+- The first feature film I did, when I did 'Night Shift,' I improvised quite a bit because I would improvise at the audition, so sometimes I would return to the original lines, and then when I was on set, I would improvise even more.
+- Day to day and doing the work and getting to that honest point - that, for me, is always about - and always will be as long as I do this - refining and refining and refining and refining the truth... constantly being as truthful and honest and raw and real as you can be.
+- There just is not one person in my family who is not funny.
+- From the time I was a kid, I was crazy about anything having to do with the West. I'd look at all of these photos of Montana, and they all seemed so magical and majestic. I just wanted to go west, and I finally did it when I was barely 21. I went off to volunteer at a Navajo reservation in New Mexico.
+- I was never a huge 007 fan, but I sure liked Sean Connery. I'm sure Pierce Brosnan is good and has his moments, but I've not seen him; I've only seen bits and pieces on TV, so I can't really judge. Pierce looks very natural in the role.
+- I always think that I'm not going to be right for a movie or that there's someone else who can do it better.
+- I choose not to be at the whim of others. I want to be at my own whim.
+- I can't sleep the first night in a hotel room.
+- I'm usually pretty good in front of a live audience. I usually like that.
+- I didn't go to church all the time, just 'cause I was an antsy kid.
+- I don't think there's anybody better than Leonardo DiCaprio, and I've been saying that since before anyone knew who he was.
+- It's great to make your own choices, but there's a price to pay. I could've made more money or been more famous. I could be the current groovy guy.
+- I saw 'Wild,' and I thought, 'Wow, this is a lot of things, but one of the things is it's a therapist's dream and a climate-change denier's nightmare.'
+- I grew up in rural Pennsylvania, in a really rundown old house. I'd stay out till 8:30, 9:00 at night. Just blow in. My mom and dad never really cared much. It was okay. We were pretty free to roam. I mean, I had no concept of stopping play. It just didn't occur to anyone.
+- People always make these generalized statements about Hollywood, and there's all kinds of people in Hollywood.
+- My work is distinct and definitive and specific, and hopefully it is so that every single character is different, and they are - but there's probably an underlying element that's me.
+- I took my play very seriously, and I got way, way lost in my play world.
+- To this day, I have the most fond memories of some of my old toys.
+- I'm a very private person.
+- Anyone can be a celebrity now; this is not a big deal anymore.
+- I'm getting more and more bored with professional sports, but I still watch.
+- There are certainly producers I hang with and directors I hang with and actors I hang with.
+- I remember my mom threatening me, half-serious: 'You know what? I should take you to Pittsburgh and put you in dance lessons just to keep you occupied.' Well, that brought everything to a screeching halt. 'Jeeze, dance lessons.' In retrospect, it would have been awesome, but then, 'Ugh, dancing - dancing's for sissies.'
+- I'm just shocked and thankful that I've gotten away with everything - experimenting here, trying at this, failing at that, being good in some things, not so good in others. It's kind of amazing that people are still sticking by me. When they come up to me in the street, I just want to write them all cheques.
+- If you get a good comedy once a year, man, that's pretty good. I may be pickier than some, but still, there aren't that many movies that are really, truly, honestly that funny.
+- I find there are a few places where I like to meditate more than in other places. There's a little Catholic church that I go to, and there's another temple I go to - there are certain places where I just feel more comfortable.
+- Unless you're flat out dead, you have to think of some other questions like: what's on the other side? It brings up issues of God, or no God. How does he play into this? Or he, or she, or it? How does it all play into this?
+- For years, I'd go to the movies and see guys doing Boston accents and think, 'Oh please, God, I hope I never have to do that.'
+- I used to say no to almost everything because I thought, 'I've got enough dough, I know what I want to do, and I know what I'm capable of.'
+- Guys never really get over their toys.
+- 'Birdman' has kinda... changed things. I'm not saying you won't see traditionally made movies any more. But I've had meetings with directors, and they've said it makes them rethink everything. You can hate this movie, but you have to talk about it. It's going to go down as one of the most interesting movies ever made.
+- All actors are my brothers and my sisters. It ain't cool to compare or disparage them. It ain't polite.
+- There are times when I consciously give the character something physical - a walk, the way he sits, how he talks, or his lack of physicality, which is like a physicality.
+- I always thought what made 'Beetlejuice' look so great was because it looked like some genius kid made it in his basement.
+- I always knew the way in was Bruce Wayne. It wasn't Batman. It was never Batman. That was the key.
+- I'm envious of writers and musicians. I think it must be so difficult. Not just the frustration, but the discipline.
+- People, when they talk or write about comedy, they don't really get it.
+- In the household in which I was raised, the themes were pretty simple. 'Work hard. Don't quit. Be appreciative, be thankful, be grateful, be respectful. Also, never whine, never complain. And always, for crying out loud, keep a sense of humor.'
+- I have some tremendous, tremendously loving, generous friends all over the world.
+- When I was in improv workshops or doing stand-up or writing comedy with others, or just doing comedy, I just laughed. Funny was funny; I loved to laugh. I always liked people I found generally funny.
+- In terms of the parallels, I've never related less to a character than Riggan.
+- I used to work on a survey crew, because my dad was an engineer, but he was also a surveyor.
+- I really believed that Batman had the potential to be one of the coolest guys in cinema.
+- The vast majority of Pittsburghers don't come from any kind of serious dough.
+- We had four guys in the family, so somebody was always hitting somebody or chasing somebody or getting mad or fighting or wrestling - that was just what you did. So when you're the youngest, it's good for you. You figure out real early how to get out of headlocks and holds.
+- If I didn't do 'Batman,' 'Birdman' wouldn't have happened.
+- I was raising a child full time, sharing the responsibility with his mom. He lived with me half the time, so I chose not to go away and make certain movies.
+- I had a real strong fantasy life as a kid. But then you grow up and think about real jobs.
+- Filmmaking is the ultimate team sport.
+- Will Ferrell makes me laugh a lot when he gets out there and gets crazy.
+- Guys who go on and on about loving women usually don't.
+- I hope this doesn't sound pretentious, but I very often like the way Europeans make movies. I think sometimes that don't they care about having to clean certain things.
+- To say directing was a long-stewing ambition doesn't cover it. If you cut me open, you'd see it.
+- Generally, I move in the direction of art.
+- My first manager, he had left Germany when he was five, but he would joke about the Nazis. And I'd laugh, but I'd look at him, and he was the first one who told me, 'You know, funny is a powerful thing; it's a wonderful weapon.'

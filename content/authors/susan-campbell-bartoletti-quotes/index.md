@@ -1,0 +1,16 @@
++++
+author = "Susan Campbell Bartoletti"
+title = "Susan Campbell Bartoletti Quotes"
+quotes_len = "10"
+description = "the best 10 Susan Campbell Bartoletti Quotes"
++++
+- When I create a character, it happens in layers. The more I write and revise, the better I understand the characters.
+- For me, a story begins with music: I feel the rhythm, the cadence, the pulse of the characters and their voices and the setting. Because I had just finished writing a book called 'Black Potatoes: The Story of the Great Irish Famine,' I was already filled with the music of the lives and culture of the Irish people, so I thought, why not use it?
+- I never intended to be a teacher, but once I started teaching, I found that junior high kids are easy to get hooked on, and I stayed for nearly twenty years.
+- Born a slave, Harriet Tubman was determined not to remain one. She escaped from her owners in Maryland on the Underground Railroad in 1849 and then fearlessly returned thirteen times to help guide family members and others to freedom as the most famous conductor of the Underground Railroad.
+- 'Between Shades of Gray' is a story of astonishing force. I feel grateful for a writer like Ruta Sepetys who bravely tells the hard story of what happens to the innocent when world leaders and their minions choose hate and oppression. Beautiful and unforgettable.
+- To be a good researcher is to be a good detective, and I enjoy ferreting out tidbits of information. For a diary book like 'A Coal Miner's Bride,' newspapers come in handy for small everyday details such as weather reports.
+- For 'The Journal of Finn Reardon,' I traveled to New York City and walked the streets where Finn and his friends would have lived, worked, and played. I visited the Tenement Museum on Orchard Street and toured an actual flat in which families like Finn's might have lived.
+- Over the years, my students influenced me greatly, and I've learned many lessons from them. I have an immense amount of respect for them, and I think that respect for your audience is the foremost requirement for anyone who wants to write.
+- Only a reader can become a writer. Develop a lively intellect and the ability to become interested in anything, no matter how mundane it might seem at first. Look for the story. Develop an eye for detail. Feed your mind and your brain: learn as much as you can about everything you can.
+- Both types of books - fiction and nonfiction - are a search for story. As a writer and a reader, there's nothing I crave more than a good story!

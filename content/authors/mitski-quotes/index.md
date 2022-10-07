@@ -1,0 +1,102 @@
++++
+author = "Mitski"
+title = "Mitski Quotes"
+quotes_len = "96"
+description = "the best 96 Mitski Quotes"
++++
+- I wanted to take up guitar because playing piano is a little harder. Carrying a keyboard around is harder, and finding a real piano is much harder, and I wanted to play live more, so I figured a guitar would be easier to carry around.
+- You always want what you can't have, and that all-American thing, from the day I was born, I could never enter that dream. That all-American white culture is something that is inherited instead of attained.
+- When you're young is the one time when you get to indulge in being morose and take yourself most seriously.
+- I discovered I was an Asian American when I arrived in the U.S. I didn't identify as that before I came here. People started calling me that, and I started being treated in a specific way.
+- I really like The Cars. They're just so over the top and super pop, but I don't feel guilty. I'm proud of all the music I listen to.
+- I didn't fit in anywhere when I grew up, but I was always American, so to survive, I created this 'ideal America.' Finally I came to the U.S. and realised, 'Oh, I don't belong here, either.'
+- I couldn't wait to get out of school, but once I did, I didn't actually know what I wanted to do with myself. I don't really know how it happened, but I just started writing music and realized that's what I wanted to do.
+- Honestly, in the music business, it's all about being cool or being the newest thing or being the 'It' person, and I've tried really hard to be what is expected of me or what would be advantageous to my career, and I just reached the point where I said, 'No, I'm an emotional loser. I can't pretend to not care.'
+- It's very tempting, when somebody says they like this about you, to want to do that over and over.
+- I don't think I'm alone in this: I'm obsessed with trying to not only be happy but maintain happiness, but my definition of happiness is skewed more towards ecstasy rather than contentment.
+- Growing up, I never really felt like anything was my own. I moved a lot, and I never belonged anywhere.
+- I lived abroad most of my life in insular international communities.
+- When you love someone and care about them, you want what's best for them, and it's always the hardest thing to realize maybe you aren't what's best for them, how hard you try.
+- With solo shows, you have complete control over the set list. If you feel like you want to do something different or do a new song, you can just work it in. You can talk to the audience or not talk to the audience. There's nothing that's set.
+- I understand that, because there are so many musicians, you have to make artists into brands, but I sometimes feel like I have to be some kind of non-human icon in order for people to listen to my music.
+- A lot of musicians talk about how they were into music from the start; they always wanted to be musicians. It wasn't like that for me. I didn't think of it as a job or a career - it was just something that was constant.
+- The whole 'grunge-girl' comparisons certainly are the easiest to pick out, and I appreciate that music journalists are rushed.
+- I tend to kind of try to use what's in my environment to the best of my ability rather than seek out things that I don't already have.
+- Being an outsider makes you a really good writer.
+- Miyazaki movies were what I was raised on. I've watched them since I was very young, and I've been greatly shaped by them.
+- I've been very careful to always make clear that I am a real person. That's why I'm on social media a lot.
+- I've stopped wanting a home, I think, because I've been on tour all my life, basically.
+- It's nice to know there's a big world with many perspectives. I tend to get so stuck in my own small world easily, and going out into the world reminds me that I'm not the center of the world - in a good way.
+- I'd always been fascinated by death, which sounds so morbid. Especially being a woman trying to make music, I think there's a sense that you're never young enough, or your career is going to end soon.
+- I've been asked whether I have a hobby, and have felt strangely offended that anyone would assume I have the time.
+- As a woman of color, I always have to be at 150 percent and better than everybody in the room to be considered competent.
+- I was one of those girls people called 'intense.'
+- When someone is a musician - trying to make a living off being a public figure - it's really easy for people to see me as a face on a screen that doesn't have a personal life.
+- There's this myth that women are supposed to compete with each other or something, or we're supposed to hate each other, and that's totally not productive.
+- I actually love the summer. When I went to Miami on tour, I was actually like, 'I love this place.'
+- What's important to me is that my songs can exist without any material anything. It's very reflective of my ideology.
+- I have this thing about being acknowledged and accepted by institutions.
+- I don't want to be elitist.
+- I was a film major because, for some reason, I thought that that was a creative job that had more job opportunities. I don't know what logic I was following, but that was my impression at the time.
+- When I go onstage and am performing the way I want to... I finally feel like myself.
+- I remember I took a music course in junior year of high school, and some girl brought in 'Teardrops On My Guitar,' and she was like, 'Isn't this song great?' And everyone was like, 'Who's Taylor Swift?' And now, every time I listen to Taylor Swift, I remember that moment.
+- I took a few piano lessons as a kid, but it didn't last; I just learned piano from doing it over and over on my own, because I didn't have many friends, and there was always a keyboard in the house.
+- I don't care about making anything new. I make music to express an emotion, and if the emotion is nostalgic, so be it.
+- Often I've had problems automatically bending to a lover's will, becoming what I know they want me to be. Immediately, I learn all the music they love, listen to it, study it, instead of being like, 'This is what I love!'
+- You can never learn enough about music.
+- I'm not an innovator.
+- I think the pressure gets to me when I play shows and there's more people in the audience than I'm used to.
+- Oftentimes, the most important decisions I make are the ones I don't put much thought into.
+- All I want to do at karaoke is sing Mariah Carey.
+- When you are a minority, it's your job to bend, and when you love someone, you really want to make it work. Then you start to realise, 'Oh, I'm bending a lot,' and they're just standing there existing, and I'm bending around them. But you can't blame them: they don't realise it; that's just how they already existed. It's hard.
+- I'm so smart. I am good at doing math really quickly in my head.
+- I try to be regimented and try to stay healthy and work out and eat properly and go to sleep. And not get too caught up in the industry in my regular life, so I can save all my expression and energy for my art.
+- I always have strong urges to sabotage myself. Whenever someone says they like something about my music, I tend to not want to do that anymore. It's not even that I don't like it anymore: it's that I keep trying to find ways for people to dislike me.
+- It would actually feel forced or unnatural to try to do a different singing style or to try to change my sound completely.
+- If I ever found a place where I belonged, that in itself would be an identity crisis to me.
+- In my first few years of being in New York, I had a major identity crisis because I'd never stayed in one place for so long.
+- I can't read in a car, because I'll get sick. It's almost instant.
+- I'm punk, but I love gold.
+- On tour, I don't drink, because I don't think in any other job you are supposed to get to work and drink whisky.
+- You can be heartbroken about a relationship but also, from it, realize you are you, and you're okay with who you are or where you came from.
+- When you're an adult, things mellow out. I think when you're a teenager and you are sad and the world is ending, everything is about that one sadness.
+- Being an outsider at all times is both unhealthy and useful, because you become much more objective about things.
+- I feel like I've always wanted to live in one place and stay in one place, but I always end up choosing things that make me travel.
+- When you're doing something you're not used to, you kind of realize that you're still a kid: even though the whole world around you sees you as an adult and you're expected to act like an adult, you still haven't actually grown up.
+- Maybe this is a made-up belief to preserve myself, but I do believe that everyone has a purpose, and my purpose is to put out music that means something.
+- Pop artists work really hard, and they might not work for the same things that indie artists do, but they're still musicians, and they're still making art.
+- I'm Japanese, and I'm also white American, and neither camp wants me in their camp.
+- I think music is supposed to be shared.
+- I hate that my opinions are gonna be on record... that my opinions of other artists are going to be on record.
+- Everything is so chaotic and messy in the world, and I have always felt kind of dirty.
+- On tour, people know that if they ever ask me what I want to eat, I will always say Asian food. I'm becoming a stereotype, but it's what I want to eat. I want to eat rice.
+- Sometimes when I perform, and it's obvious the audience is just there to party, or if I feel a wall between me and the audience, I get existential about it.
+- I think people don't realize how little of being an artist is making art.
+- I think growing up the way I did has made me a lot more objective, and that's important in the process of writing and trying to look at subjective matter that way.
+- I think my whole identity is formed around not knowing where I'm from. It might even be that I find comfort in that confusion.
+- I hope to be a writer and musician my whole life, fingers crossed.
+- I think it's very dangerous as an artist to be comfortable.
+- I don't think I have the kind of creativity to write fiction.
+- Music was the one thing that was just mine, and no one could take it from me. I created it, dictated it, and it made me not able to let go of it.
+- I don't set out to write something. I more just write, and later on, I discover what it's about.
+- My personality's very obsessive-compulsive. I tend to fixate a lot.
+- If I have a song where I hit some really high notes, I want to try to bring in equivalently low notes somewhere in there.
+- My father was obsessed with folk music from around the world, and I think the countless artists who performed them are my biggest influences.
+- I guess you can say I 'do the Twist.' I like playful dance moves that aren't too serious.
+- I think your ego gets in the way of making something good because it kind of blinds you from the actual art.
+- Whenever I've tried to ingratiate myself to an existing community, I tend to give too much, to become whatever it is they want me to be. It's something I do automatically - I've learnt to immediately adapt.
+- When I started making music, I was like, 'This is something I can believe I was meant to do.'
+- Tour isn't good for writing, but it's good for inspiration.
+- I have a very conveniently photographic memory of emotions - it's overwhelming, because things don't fade for me.
+- On one hand, I think it's very important to talk about race and talk about gender, because if it's not talked about, then we won't progress. What I have a problem with is when it becomes another form of tokenization, of shrinking me into a symbol instead of a multilayered, female Asian artist.
+- I don't want to be a musician's musician. I want to be an everyone's musician.
+- I don't really listen to pop-country, but I like really, really old country that's closer to folk. Like Johnny Cash, who is considered country.
+- I really just care about making music and how I can make it next.
+- I think my real influences are out of my control, which are the things that entered my brain when I was a kid growing up.
+- I think what's hard for me is not that I don't get downtime to chill, it's that I don't get time to make music.
+- I would love for Rivers Cuomo to listen to my music and see what he thinks.
+- I know for a fact that I'm problematic. I shouldn't be looked to for any kind of guidance.
+- I don't think 'bleak' is a bad thing.
+- I have my privileges, but I do feel like at every turn there is such resistance. Things seem to take so much longer for me to do. I have to say things 10 times instead of once. I have to knock on 10 different doors instead of two. For everything. All the time. I feel like I'm not taken seriously.
+- When I record, it's this very precious and insular thing.
+- I think it's our responsibility as artists to not only fight for our art but fight for the communities that are the reason we're able to continue making art, especially since, in Brooklyn's case, we as artists somehow made it 'cool' enough for the bigger money-making industries to start taking over.

@@ -1,0 +1,63 @@
++++
+author = "Nicholas Hammond"
+title = "Nicholas Hammond Quotes"
+quotes_len = "57"
+description = "the best 57 Nicholas Hammond Quotes"
++++
+- The genius of Rodgers and Hammerstein is that their songs become a part of the DNA of the audience.
+- I had a crush on Liesl - Charmian - she was so beautiful. God, those wonderful, beautiful blue eyes. I was so much younger than her, I was 13, she was 20, a grown up. I adored her.
+- Firstly, I prefer to think of him as Peter Parker. Spiderman is kind of the tool he uses to go undercover as he's trying to help out the police.
+- My entire life's journey has been hugely influenced by seeing Julie Andrews.
+- You can do a show with lots of storylines. You can cram it with issues. People will keep up.
+- I never went through that awkward period of being rejected by girls.
+- Plans for a Spider-Man film had gone on for so long. It was starting to look like there would never be a film. There was always a different actor, or a different director they were talking about.
+- I've always been aware of 'Spiderman' on the newsstands, but I never followed the comics with any great zeal, probably because I've spent most of my conscious life as an actor and just never found the time for comic books.
+- I went through the whole student revolution thing and the last thing you wanted was people to think you were Friedrich von Trapp.
+- Christopher Plummer showed this 14-year-old aspiring actor what acting really was. I idolized him as my film father, he was my role model for the years that followed.
+- It's a strange thing to keep having this image of you at the age of seven, 12 or 14 as the one that everyone not only remembers you by, but wants to think in some way that you still are.
+- When I came to California, the first four parts I did were Stanford students. I think I should get an honorary degree from them.
+- There is something about being able to look at this family on the film where a woman drops out of the sky, magically makes their father happy, makes the children happy, gives them all a purpose. And with great courage, they overcome a tyrannical dictator and go on to a happy, wonderful life.
+- What's amazing is everyone knows who Spider-Man is. We were filming in a Chicano community and standing side by side were a Cal Tech lab technician and a six-year-old boy, and both of them were in awe of the character. In fact, you might say he's an equal opportunity fantasy hero.
+- I'm safer being with someone more famous than me.
+- You wouldn't want to hear me sing now.
+- It never ceases to amaze me. I'll be in a bank and I think the person staring at me is going to say, 'I saw you in 'Flying Doctors,' or whatever. But instead they say, 'You're from 'The Sound of Music.'
+- TV companies always eat, pretty good.
+- I was the very first Spider-Man, and it was cool to be him.
+- My family was in England on the night that she was doing her final performance of 'My Fair Lady' with Rex Harrison. The show was brilliant and Julie was just phenomenal.
+- It's fun, as acting always is. Where else can one indulge one's wildest fantasies as part of the job?
+- There's a myth on the Internet that I'm afraid of heights. I don't know where that came from, but it isn 't true.
+- Ted Danson was wonderful, years before 'Cheers.'
+- When you're very famous, very young, there's that little thing of, 'Are they being nice to me because they think I'm a nice person? Or is it because they want to tell their friends 'Guess who I was with last night?'
+- Now I've been embraced by the real von Trapps. Those eight months I spent on that film set have been a gift for the rest of my life.
+- I started it all, I created the role of Peter Parker.
+- Back in our day, if you wanted someone to go up the side of a building, he had to put a harness and a cable on and really climb the building! For what it was, it had a certain charm.
+- People don't gather for martinis at 5 P. M. any more.
+- When you think about it, a trial is not really about what the truth is, it's about which barrister is better at persuading those 12 people to believe their story.
+- She can be Mary Poppins but she can also be - I would never use the word 'crude' in the same sentence as Julie Andrews because she is so fine and beautiful - but she can be naughty and she doesn't mind a good joke.
+- I don't like to go any longer than two years without appearing on stage.
+- Whenever you're in a show that has a lot of special effects, there is a large margin for error.
+- I've wanted to do a series for a long time, to see what it feels like to carry the whole responsibility of a show like that.
+- We went from being seven kids to being the seven most famous children in the world.
+- If Spider-Man had to appear on the 90th floor of the Empire State Building, the crew would take the elevator up, open the window and say: 'OK, Nicholas, out you go!' There were no tricks or computer effects.
+- What I like most about the series is that the stories deal 75 percent of the time with the problems of Peter Parker, a normal, unremarkable young man when he isn't out fighting crime.
+- I had the honor of doing a two-man show with Julie Andrews around Australia and New Zealand.
+- The first day of the shoot, I had been in my trailer and came out dressed as Peter Parker in his slightly daggy corduroy jacket with his camera around his neck. Almost instantly, 500 or more people just stopped and started to watch us. They were calling out my name, calling out, 'Peter' or 'Spidey'.
+- I got a message that Quentin Tarantino would like to meet me, that he was a Spider-Man fan and wanted to talk about playing Peter Parker. We had a general chat, a nerdy conversation about Hollywood in the 1960s and 1970s.
+- I have done a couple of musicals myself over the years but have never done a Stephen Schwartz show, and I never thought I would be writing one.
+- My agent advised me to quit the business. He told me that if I continued acting I was facing a few bad years and probably wouldn't work very much.
+- I had no intention of becoming an actor.
+- I know the von Trapps well. I've known them for many years and they are very reluctant to let anybody on to their property or to let anybody film them. They are constantly getting requests from all around the world to do shows about them or having news stories done and they're very private people.
+- For the two or three weeks you work on an episode, you totally immerse yourself.
+- What with 'The Brady Bunch,' 'Spider-Man' and 'Sound of Music,' I have three cults going.
+- I'm always fascinated by people when they reach that fork in the road, where they can make a moral choice.
+- Few have had the good fortune I have had. My start in the business was with people like Peter Brooks and Michael Redgrave. Also, growing up as I did with a father in the military taught me to accept discipline and responsibility.
+- They were looking for boys who could speak with an English accent for the movie 'Lord of the Flies.' I had been abroad enough so I knew that accent.
+- It's really hard on the poor Skid Row bums. They are getting the shock of their lives. There they are, lying peacefully in the gutter, not bothering anybody, and they look up and see a man in a red and blue spider suit go by. It's enough to make them goon the wagon.
+- There's a funny kind of family thing that happens with every production.
+- It's very nice when you're checking onto a flight and the person behind the desk suddenly upgrades your seat for you and then hands you back the boarding pass and says, 'It's my favorite movie.'
+- I did have a sense of parental pride in that character. For 20 years now my films and the TV show have been the only version of Peter Parker. So I wanted this new version, for a new generation, to be really good. I still care about it.
+- Austria was the last country in Europe to ever put the stage show of 'The Sound of Music' on.
+- It's a great challenge to me, playing someone who is supposed to be absolutely normal and not remarkable and contemporary and yet at the same time does have a lot of fantastic power. As an actor it's a great challenge to bring reality to that.
+- He can't have any friends and maintain his secret identity as Spider-Man. He can't even have a normal sex life. He's a national hero, yet he's a recluse. He's instantly recognized by the public, but he cant tell anyone who he is.
+- They make about three mini-series a year in Australia and then they put two of them up against each other!
+- I didn't see a difference between Spider-Man and Peter Parker, to be honest with you. Peter Parker is always Peter Parker. When he's Spider-Man, he's still Peter Parker, no matter how he's dressed.

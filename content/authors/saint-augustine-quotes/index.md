@@ -1,0 +1,95 @@
++++
+author = "Saint Augustine"
+title = "Saint Augustine Quotes"
+quotes_len = "89"
+description = "the best 89 Saint Augustine Quotes"
++++
+- Since love grows within you, so beauty grows. For love is the beauty of the soul.
+- What then is time? If no one asks me, I know what it is. If I wish to explain it to him who asks, I do not know.
+- The greatest evil is physical pain.
+- This is the very perfection of a man, to find out his own imperfections.
+- If I am given a formula, and I am ignorant of its meaning, it cannot teach me anything, but if I already know it what does the formula teach me?
+- We cannot pass our guardian angel's bounds, resigned or sullen, he will hear our sighs.
+- Humility is the foundation of all the other virtues hence, in the soul in which this virtue does not exist there cannot be any other virtue except in mere appearance.
+- Find out how much God has given you and from it take what you need; the remainder is needed by others.
+- God had one son on earth without sin, but never one without suffering.
+- The purpose of all wars, is peace.
+- The world is a book, and those who do not travel read only a page.
+- To abstain from sin when one can no longer sin is to be forsaken by sin, not to forsake it.
+- The words printed here are concepts. You must go through the experiences.
+- Passion is the evil in adultery. If a man has no opportunity of living with another man's wife, but if it is obvious for some reason that he would like to do so, and would do so if he could, he is no less guilty than if he was caught in the act.
+- Blessedness consists in the accomplishment of our desires, and in our having only regular desires.
+- In doing what we ought we deserve no praise, because it is our duty.
+- The honors of this world, what are they but puff, and emptiness, and peril of falling?
+- The verdict of the world is conclusive.
+- Love, and do what you like.
+- To many, total abstinence is easier than perfect moderation.
+- Forgiveness is the remission of sins. For it is by this that what has been lost, and was found, is saved from being lost again.
+- No eulogy is due to him who simply does his duty and nothing more.
+- If we live good lives, the times are also good. As we are, such are the times.
+- Complete abstinence is easier than perfect moderation.
+- Love is the beauty of the soul.
+- Repentant tears wash out the stain of guilt.
+- I found thee not, O Lord, without, because I erred in seeking thee without that wert within.
+- He fashioned hell for the inquisitive.
+- Bad company is like a nail driven into a post, which, after the first and second blow, may be drawn out with little difficulty; but being once driven up to the head, the pincers cannot take hold to draw it out, but which can only be done by the destruction of the wood.
+- Faith is to believe what you do not see; the reward of this faith is to see what you believe.
+- We are certainly in a common class with the beasts; every action of animal life is concerned with seeking bodily pleasure and avoiding pain.
+- The confession of evil works is the first beginning of good works.
+- We make a ladder for ourselves of our vices, if we trample those same vices underfoot.
+- It is not the punishment but the cause that makes the martyr.
+- It seems to me that an unjust law is no law at all.
+- God judged it better to bring good out of evil than to suffer no evil to exist.
+- If we did not have rational souls, we would not be able to believe.
+- Men go abroad to wonder at the heights of mountains, at the huge waves of the sea, at the long courses of the rivers, at the vast compass of the ocean, at the circular motions of the stars, and they pass by themselves without wondering.
+- This world's a bubble.
+- Habit, if not resisted, soon becomes necessity.
+- He who labours, prays.
+- Resentment is like drinking poison and waiting for the other person to die.
+- Charity is no substitute for justice withheld.
+- God loves each of us as if there were only one of us.
+- Do you wish to be great? Then begin by being. Do you desire to construct a vast and lofty fabric? Think first about the foundations of humility. The higher your structure is to be, the deeper must be its foundation.
+- Miracles are not contrary to nature, but only contrary to what we know about nature.
+- Thou must be emptied of that wherewith thou art full, that thou mayest be filled with that whereof thou art empty.
+- If two friends ask you to judge a dispute, don't accept, because you will lose one friend; on the other hand, if two strangers come with the same request, accept because you will gain one friend.
+- Grant what thou commandest and then command what thou wilt.
+- Oh Lord, give me chastity, but do not give it yet.
+- The soul, which is spirit, can not dwell in dust; it is carried along to dwell in the blood.
+- O Holy Spirit, descend plentifully into my heart. Enlighten the dark corners of this neglected dwelling and scatter there Thy cheerful beams.
+- Since you cannot do good to all, you are to pay special attention to those who, by the accidents of time, or place, or circumstances, are brought into closer connection with you.
+- By faithfulness we are collected and wound up into unity within ourselves, whereas we had been scattered abroad in multiplicity.
+- Thou hast created us for Thyself, and our heart is not quiet until it rests in Thee.
+- A thing is not necessarily true because badly uttered, nor false because spoken magnificently.
+- Give me chastity and continence, but not yet.
+- He that is jealous is not in love.
+- Hear the other side.
+- Don't you believe that there is in man a deep so profound as to be hidden even to him in whom it is?
+- If you believe what you like in the gospels, and reject what you don't like, it is not the gospel you believe, but yourself.
+- My mind withdrew its thoughts from experience, extracting itself from the contradictory throng of sensuous images, that it might find out what that light was wherein it was bathed... And thus, with the flash of one hurried glance, it attained to the vision of That Which Is.
+- In the absence of justice, what is sovereignty but organized robbery?
+- Pray as though everything depended on God. Work as though everything depended on you.
+- What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me; and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.
+- I have read in Plato and Cicero sayings that are wise and very beautiful; but I have never read in either of them: Come unto me all ye that labor and are heavy laden.
+- Who can map out the various forces at play in one soul? Man is a great depth, O Lord. The hairs of his head are easier by far to count than his feeling, the movements of his heart.
+- Indeed, man wishes to be happy even when he so lives as to make happiness impossible.
+- The spiritual virtue of a sacrament is like light; although it passes among the impure, it is not polluted.
+- Punishment is justice for the unjust.
+- There is something in humility which strangely exalts the heart.
+- God is best known in not knowing him.
+- He who created us without our help will not save us without our consent.
+- Custom is second nature.
+- It was pride that changed angels into devils; it is humility that makes men as angels.
+- O Lord, help me to be pure, but not yet.
+- The desire is thy prayers; and if thy desire is without ceasing, thy prayer will also be without ceasing. The continuance of your longing is the continuance of your prayer.
+- We make ourselves a ladder out of our vices if we trample the vices themselves underfoot.
+- What does love look like? It has the hands to help others. It has the feet to hasten to the poor and needy. It has eyes to see misery and want. It has the ears to hear the sighs and sorrows of men. That is what love looks like.
+- Will is to grace as the horse is to the rider.
+- The same thing which is now called Christian religion existed among the ancients. They have begun to call 'Christian' the true religion which existed before.
+- He that is kind is free, though he is a slave; he that is evil is a slave, though he be a king.
+- Seek not to understand that you may believe, but believe that you may understand.
+- Beauty is indeed a good gift of God; but that the good may not think it a great good, God dispenses it even to the wicked.
+- Do you wish to rise? Begin by descending. You plan a tower that will pierce the clouds? Lay first the foundation of humility.
+- Patience is the companion of wisdom.
+- To seek the highest good is to live well.
+- I want my friend to miss me as long as I miss him.
+- There is no possible source of evil except good.

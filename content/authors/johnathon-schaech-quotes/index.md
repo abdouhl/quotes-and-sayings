@@ -1,0 +1,26 @@
++++
+author = "Johnathon Schaech"
+title = "Johnathon Schaech Quotes"
+quotes_len = "20"
+description = "the best 20 Johnathon Schaech Quotes"
++++
+- I never wanted to be famous. I want to be more famous than I am so I can get the roles. I hate losing the roles. I was famous more for being around people who were famous, and I hate that kind of fame.
+- We look for meaning and purpose; children bring that.
+- It can no longer be an afterthought in a child's development that the analytical side is not of equal to the creative side. That the creative side can be pushed aside and we just push the analytical side. Especially with the development of a child's brain at the elementary levels.
+- Trying to give an individual a voice has always kind of been my mission in my life. As an actor, I've always seen that was something that needed to be done. You need to find that voice inside of you so that you can stand up and be who you really are.
+- The '7500' is with Leslie Bibb. It's a big ensemble with a lot of really good people. I play the pilot of the 747 that something happens on as it crosses the Pacific. It's going to do what 'Jaws' did to the ocean. Not make people want to get on!
+- There have been many times when I've auditioned and I've actually won a different role in the same film.
+- I'm the bad guy on the rest of Jennifer Love Hewitt's 'The Client List,' I'm the bad guy in Renny Harlin's 'Hercules 3D,' and I'm a movie star - finally - on Showtime's new series 'Ray Donovan.' But most importantly, I'm about to be a daddy, so I'm expecting some 'Dark Circles' for real.
+- People recognize me on the street for all kinds of different things that I've done. 'That Thing You Do' remains to be my favorite film in which I played my favorite character. That role is the one that I'm most recognized for.
+- Most Americans take their freedom very seriously, but they don't realize that not everyone is free. The repressed are not free to do what they want. That's what 'Star-Crossed' was all about for me.
+- I have to say I love Dempsey's Brew Pub & Restaurant. It's gorgeous with that Camden Yard brick surrounding it, and it just screams Baltimore. I love the Black and Orange Burger that is topped with fresh orange bell peppers, caramelized onions and sharp cheddar cheese.
+- 'Dark Circles' is a great relationship/character piece and also a horror film. It tinkered with the genre, which I loved. I was sick of seeing the same thing, sick of people just trying to get a movie made.
+- 'Ray Donovan' was all fiction and pure fun, to be working with such greats as Liev Schreiber and Jon Voight. My character was recurring, but my storyline was intricate to the whole thing. With the character that I played, I got to go through all aspects of my instrument. I got to bring it to tears and to laughter.
+- My father would go to work and try to survive every day just to get home to my mother so they could be at each other's side. That's what I want.
+- I'm loving saying 'I'm not a big movie star, but I play one on television.'
+- In my life, I'm just looking for that life of integrity that my father had. I have a good heart; I'm not a heartbreaker.
+- To be a great actor you just need to comprehend, so that's why I became a writer.
+- My parents instilled something greater than myself. They instilled faith in me.
+- I think that all actors find they go down and then they come back up if you work on your craft. They come back up to the top and then they go back down and they come back up and they go back down.
+- 'Phantom' follows some of the best submarine cold-war films made. There's just so much tension, I can't even describe it - you have to see it.
+- I just played one of the bad guys in Hercules 3D, and I had cornrows. People moved away from me in elevators, that's for sure. I wore them for about three months. After a while, they get a little gnarly, and you have to redo them.

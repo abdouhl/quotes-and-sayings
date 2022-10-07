@@ -1,0 +1,13 @@
++++
+author = "Marie Corelli"
+title = "Marie Corelli Quotes"
+quotes_len = "7"
+description = "the best 7 Marie Corelli Quotes"
++++
+- I entirely agree with you about the obscurity of Mrs Browning's line about the stars. It is far-fetched. She wanted to express something which she found beyond expression.
+- Fancy your having no sunshine in London yesterday! Here it was glorious, like full summer, and I sat up with the window wide open, listening to the discourse of two amorous thrushes.
+- You should always be well and bright, for so you do your best work; and you have so much beautiful work to do. The world needs it, and you must give it!
+- I never married because there was no need. I have three pets at home which answer the same purpose as a husband. I have a dog which growls every morning, a parrot which swears all afternoon, and a cat that comes home late at night.
+- Such lovely warmth of thought and delicacy of colour are beyond all praise, and equally beyond all thanks!
+- I must not say what I truly think, or you will tell me I flatter you-but I can only speak what I feel-and very often I cannot even do that when the feeling is very deep.
+- The Browning love story? It is an ideal, all too rare, and yet I hardly think it strange. It would have been far stranger had the fates allowed those two brilliant passionate souls to beat themselves out in silence.

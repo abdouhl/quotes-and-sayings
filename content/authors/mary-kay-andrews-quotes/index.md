@@ -1,0 +1,36 @@
++++
+author = "Mary Kay Andrews"
+title = "Mary Kay Andrews Quotes"
+quotes_len = "30"
+description = "the best 30 Mary Kay Andrews Quotes"
++++
+- My characters are turned upside down and trying to reinvent themselves but don't need a white knight. They can save themselves in a crisis.
+- I want my fiction to seem real.
+- I had never thought about writing a novel. But I had two young kids, and I realized that if I could write a novel, I could work at home.
+- I wanted a garret hideaway to write in like Jo March in 'Little Women.'
+- I wasn't always overweight. I was a skinny little punk of a kid with severe asthma. When I got married at the age of 22, I wore a cut-down size eight wedding gown.
+- I want characters I can live for in a setting that makes me feel like I'm there.
+- For a writer, capturing that elusive Christmas morning magic can be deeply problematic.
+- As soon as I started reading, I found myself drawn to fictional character's homes as much as I was to the characters themselves.
+- We are writing fiction, but we are trying to create a world that's believable.
+- I guess because I'm a washed-up journalist, I always do a lot of research.
+- I try to start drinking water as soon as my feet hit the floor in the morning.
+- The story of my holiday decorating is if Ralph Lauren was trapped in a 1950s Woolworth, this is what it would look like.
+- My protagonists have problems that a new pair of shoes won't solve. Retail therapy is not a bad thing, but it's not going to fix their lives.
+- I was supposed to be working on 'The Weekenders,' but I was blocked. I got this crazy idea that I would make Christmas stockings out of blankets.
+- Although I married a sports-loving jock, I myself am not only not athletic, I am acutely, completely uncoordinated.
+- For years, I swore I couldn't work out because my own sweat gave me a rash.
+- I always wanted to use my newspaper background in a novel.
+- Southern women, especially upper-middle-class women, care deeply about appearances and what other people think.
+- One of the things that attracts me to vintage and antique things is they have stories, and even if I don't know the stories, I make them up.
+- Some of my most enjoyable moments as a writer have come while conjuring a meet cute.
+- As a hopeless romantic, I'm drawn to stories of improbable beginnings.
+- On my first trip to New York in the 1980s, the first place I wanted to visit was the Plaza Hotel, home to Kay Thompson's Eloise.
+- Modern love - in the movies and music - especially country music - is full of tales of women exacting sweet revenge on the men who done them wrong.
+- My ideal beach house has bookshelves full of paperbacks that can tolerate a little sand, a DVD library that includes some Disney classics for the little ones, board games, and jigsaw puzzles. At least one big flatscreen television is a must.
+- Critics will tell you the 'meet cute' is a tired old writing cliche, but the thing is, cliche's work - because they ring true with the reader.
+- The best way to heal a broken heart, it turns out, is to find a way to move past the hurt.
+- I'm house obsessed, a house voyeur. Always have been.
+- My perfect beach town isn't a fancy resort or glitzy planned community. It's a place with a hometown grocery that has decent meat, seafood, and a deli; a couple of ice cream shops; and a handful of good restaurants - where the island-wide dress code is 'no shoes, no shirt, no problem.'
+- Slipcovers are great because they can be laundered after those all-too-frequent sippy cup and red wine incidents.
+- Between planning family vacations and running away for novel-writing retreats, I've spent much of my adult life questing for the perfect beach escape, renting cottages all along the Florida Gulf and up and down the Atlantic Coast - as far north as Nags Head, as far south as Key West.

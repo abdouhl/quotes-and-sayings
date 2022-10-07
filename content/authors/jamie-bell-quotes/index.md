@@ -1,0 +1,52 @@
++++
+author = "Jamie Bell"
+title = "Jamie Bell Quotes"
+quotes_len = "46"
+description = "the best 46 Jamie Bell Quotes"
++++
+- New York is full of crazy people, and I like that.
+- I don't think there's a lot of actors out there right now who really know what they're doing at all.
+- I lost my mind at 15. I'd been shown a world where there were no boundaries, where everyone gave me all the power. And I was like, 'This is great!' Then that was gone. But I was like, 'Yeah, but I still want that.' I'd lost my humble, very quiet, introverted sensibilities which I think I definitely had as a kid.
+- I excelled in English while I was at school.
+- I think documentary filmmaking is a braver way to make films because it's real, and you're really there.
+- Dancing is like riding a bike.
+- It's hard to incorporate dance into movies I think.
+- I never really sympathised with Peter Parker.
+- I'm a hard-mouthed northeastern lad. That's me - the Eminem of Northeast England.
+- My favourite superhero is obviously Batman because he's the sexiest. But I can't imagine myself as Batman.
+- We're kind of in a voyeuristic world. We have TV shows that are all about watching people do weird things in houses. People are obsessed with that. There's live coverage of it.
+- I don't think many people can say they've been the lead in a Spielberg film and still been able to live their normal life that they had before.
+- My characters are often without a significant parental figure.
+- Inner demons? Got none of them.
+- I'll tell you what I hate - bands like My Chemical Romance.
+- I'm very good at meeting people, very outgoing.
+- Everyone is slowly catching on to this one - and I know everyone says this - but we need to make a little more effort with the environment. Everyone says they turn off their lights, but do they really?
+- I don't take any photographs. I travel a lot by myself, and I feel weird taking photos on my own.
+- I think everyone still thinks I'm 13.
+- Tap dancing is all about the feet; you put your head down and don't really engage with anything but the rhythm in your head.
+- I look at my contemporaries, and we're all at different stages and levels, and all choosing different routes, different ways to do things.
+- I tap dance.
+- I love documentaries. It's actually my favorite medium of film.
+- Every interview I do, it's basically 'how did he do it,' and I owe it all to my representation, and my manager is basically like my mother, she's so picky.
+- What's weird is that I work with these directors and then I start channeling them. I kind of turn into them a bit - which is cool when you're working with Clint Eastwood.
+- Well, I am obsessive about my work. I throw myself in all the way.
+- Indiana Jones is very much an old-world kind of hero. He doesn't really have any kind of superpower or rely on any kind of technology to help him out of things.
+- I wanted to be a journalist for a long time.
+- I had teen angst for a while, but I think every teenager has the angst.
+- You just have to surround yourself with people who are going to support and love you before trying to sell you as a product, or push you into something you don't want to do.
+- I'm no good at the one-liner thing. It's just not me.
+- I hate the stereotype of the pitfalls of the child actor. There are so many amazing examples - Natalie Portman, Joseph Gordon-Levitt, Jodie Foster, Drew Barrymore - of people who have made it through.
+- You don't miss what you never had.
+- I never had a father figure so I never missed it.
+- I've just been blessed to work with these really great people.
+- I've got lots of weird illustrations of me from Japanese fans.
+- If you have created an image of yourself at 13 and it is still with you at 17, it needs to be dropped.
+- Surfing isn't really in my blood. It's hard to catch a big wave in Billingham.
+- Music is pretty therapeutic.
+- I actually don't mind rats at all. I kind of think they're quite cute, but that's just me.
+- I often find the smaller, independent films are much more rewarding than the bigger stuff, but you do the bigger stuff because it's a business, and you've got to show your face a bit, get yourself around.
+- I sympathize with every kitchen porter.
+- I go into meetings with some film-makers and they literally have nothing to say, they're almost bored by their own material. I'd rather work with people who are very passionate and very animated about what they want to do. People who just want to tell stories.
+- I'm awkward around girls.
+- I have, I think, eight mentors. It's crazy, but I need them. They are all really important to me. They keep me grounded and advise me.
+- I love the old Fred Astaire and Gene Kelly movies; they're so beautiful to look at. It's such a shame we don't make them anymore. Although, I don't know how you could make tap dancing current and topical.

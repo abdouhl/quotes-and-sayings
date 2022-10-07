@@ -1,0 +1,83 @@
++++
+author = "Jennifer Winget"
+title = "Jennifer Winget Quotes"
+quotes_len = "77"
+description = "the best 77 Jennifer Winget Quotes"
++++
+- When we work for daily soaps, it is very time consuming: like, we work for 12-14 hours. But, doing a show that's interesting makes it worth it.
+- I don't plan life. Love, marriage, or relationships can't be pre-planned. Whenever it has to happen, it will happen.
+- In the past, I have played the roles of subdued, self-sacrificing women. But we need to show our women as bolder individuals. I know this will happen.
+- When you are happy from inside, it will reflect on your face.
+- I don't want people to know everything about me.
+- I want to marry a good person, not his profession. If the person is good, the profession doesn't matter. I hold honesty, simplicity, and genuineness above everything.
+- Basically, I love to act. The medium is not important.
+- TV is nothing without its women.
+- I want to see good-quality comedy shows, not the slapstick ones or where people imitate others.
+- Compassion, loyalty, and respect sum up love for me - it's a mix that's very rare to find and even harder to imbibe.
+- I have been fortunate enough to be offered characters and projects that challenge me and that are different from the characters that I have played.
+- It's great to see so many women grab the world by its lapel, push their limits, and shine through it all.
+- Absolutely, I think every day is a new day, every day is a new opportunity, and every day is a new chance.
+- I believe in second chances in life.
+- I think when a relationship doesn't work in your life, it doesn't mean that your life is over.
+- I feel am a blessed girl, as every time one of my shows ends, there's another one waiting to start. I am God's favourite child.
+- I like to give myself time to deal with an issue. I get to the root of the matter and learn from it. I don't like to repeat mistakes.
+- My past has helped me grow as a person.
+- Love means being kind to each other.
+- A good role is something that will stretch your abilities and make you go beyond your levels.
+- Being part of the TV industry for so long, I have met and learned a lot from some exceptional women, be it actors, writers, or creatives.
+- TV is keeping me very busy.
+- If somebody is good to me, I'll reciprocate. What's the harm? If somebody says 'Hello' to me, I won't turn my back on him.
+- For me, everyone has good and bad qualities. I feel you must not always look at the bad qualities but also focus on the good ones, because we all have flaws.
+- I've virtually grown up in the television industry.
+- I believe in love in all its forms.
+- Marriage is a beautiful institution as long as two people understand each other well and are willing to live their life together till they die.
+- I am not a very private person, but there are certain things that I don't want to share with everyone.
+- I've this karmic connection with London.
+- If life throws a second or a third chance at you I think you should take it because that is life all about.
+- I really enjoy working. It doesn't tire me.
+- Keeping the country clean - that's very important.
+- I don't know why Kunal Kohli thought of me for 'Phir Se.' But he did. I got the role without any effort.
+- I wear whatever makes me feel comfortable and confident.
+- There is no lack of love in my life.
+- TV has given me some amazing opportunities, recognition, love, and fame.
+- TV has always been a very strong and powerful medium for women.
+- I think faith is the very foundation of a relationship.
+- I think I want what every girl wants in a man. I would like him to be funny, honest, trustworthy. These are the basic qualities that we all look for in a man.
+- There are certain things that only me, my friends and family should know. It's not everyone's business.
+- No one is perfect. We all have issues.
+- As actors, you are social figures, and you are setting an example for people to follow, so I feel very blessed that my work has allowed me to influence people in some way.
+- I love social media. It's nice to share a side of me that people don't generally get to see or know about. I want them to know me, beyond my characters.
+- I don't regret a single day of my life.
+- Be comfortable in whatever you are wearing.
+- I believe everything happens in life for a reason, and you just need to have faith and keep doing what you do.
+- I will accept my age gracefully.
+- I have a loving family and awesome friends.
+- Marriage is a beautiful thing if two people work on it and want to be together.
+- I have a room full of shoes: heels and sneakers and everything.
+- I am just crazy about shoes. I just love shoes.
+- I am not a clothes horse.
+- TV has given me everything. Whatever I am today is because of this medium.
+- Love means being happy, and it is that magical feeling which you get around people you love. Be it friends, family. It could mean different to different people, but to me, it is just being kind and happy with each other.
+- I don't blindly follow fashion trends.
+- I am not crazy about bags or watches. For me, anywhere I go for a holiday or for work, the first thing that I go and buy are shoes.
+- I don't care about brands as long as I love what I am wearing.
+- I am who I am. I do what I do.
+- Looking back, I believe that acting was the best that I could do. It just happened. I kept getting good offers, and the going has been good.
+- I don't have the time to think about my past, and I don't think I need to.
+- There's a difference between lust and passionate love. Lust can't just creep in. You'll not find it where true love exists, but it has power enough to shatter the world you've worked so hard to create with love, and sometimes, it suddenly changes how you perceived love to begin with. Love then doesn't live there anymore.
+- I have a great support system.
+- We should never close our doors on love.
+- I would love to do all kinds of roles, but a dream one would be something like what Rani did in 'Black.'
+- Please be nice, be kind to stray animals, dogs, and adopt them.
+- We grow up believing that love is like a fairytale that comes with all things good. What no one points out is how hard it is to live up to love or the tests along the way, small or big.
+- There is nothing in life I would want to control. I love the way nature has given a flow to everything and would love to go with the flow.
+- Marriage is amazing, and I wish every person on this planet to have a blissful marriage.
+- I don't like the terms 'positive' or 'negative,' as I think every person has good and bad in them. It's high time that we explore all these sides on television as humans.
+- I don't watch daily soap. I've never seen my shows as well except for the scenes in which I really want to improve something or correct something.
+- I am a very normal person who likes to meet people, read, watch movies, and listen to music.
+- Though both films and television sell emotions, let's not deny that it's way more challenging for small-screen actors to earn their respect.
+- Responsibility for me is to be myself - which is not perfect.
+- I think finite series gives you more time to write down your journey in any show. When it's a finite series, you know the start and know your end. The writers and actors know what is going to happen, so the interest is not lost.
+- I like watching comedy shows. I only watch comedy or action.
+- While we teach our daughters about self defense, we should teach the sons about being respectful as well. A society cannot function properly if only one gender is rising. It has to be in tandem. It cannot be unequal. There has to be balance for upliftment.
+- I visit Gujarat quite regularly - it feels like a second home.

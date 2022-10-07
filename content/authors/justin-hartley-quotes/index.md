@@ -1,0 +1,82 @@
++++
+author = "Justin Hartley"
+title = "Justin Hartley Quotes"
+quotes_len = "76"
+description = "the best 76 Justin Hartley Quotes"
++++
+- There are people that have watched everything I've done, which is so sweet. Sometimes I'm grateful for that; sometimes I feel like I have to apologize.
+- Every time you turn on the TV, you see some kind of heartbreaking story.
+- This is not just like a job. This is like a dream come true!
+- I'm a firm believer in staying out of the way. When you're on a team and the guy's throwing a no-hitter, you don't talk to them. You let them do their thing.
+- Work begets work. I've always taken the jobs - I've tried to take the jobs where the story is full or the characters are full.
+- I can tell you that good people do bad things.
+- Being an actor, you go through this thing where you want to be the best, and I think, in life in general, you go through this thing where you want to be the best always, constantly.
+- If I bring my work home, it's wonderful.
+- Certainly my time on 'Revenge' was great; it was a different character I'd never played before.
+- I try to look clean, but I like a balance between put-together and comfortable.
+- I'm so pumped about joining 'Y&R' - I watch it all the time and can't wait to get in there and get my hands dirty!
+- I love acting, and so whenever I get the opportunity to act, I'm happy. I'm easy to please when it comes to that kind of stuff. I don't know what I'd do without it.
+- There's death and there's loss, but there's also celebrations, right?
+- I love Dolce & Gabbana. I've always liked them a lot - they seem to fit me well.
+- 'Smallville' was one of those things where we worked a lot of nights, and there were a lot of physical scenes. I was hurt a lot, but I loved it! The 'Revenge' cast was also one of the greatest, most gracious casts I've ever been a part of.
+- I channel a lot of my own personal relationships anytime I prep for something.
+- I don't have a gardener, because I enjoy pulling weeds. It's hard to explain, but there is something fulfilling about pulling out a weed and knowing that you got all the roots.
+- Just because it reads well doesn't mean it's always going to look good on screen. Then, a network or studio has to pick up the show, and then they have to order more episodes, and then people have to watch it. It could be the greatest thing on television that nobody ever watches.
+- I worked all through my 20s, all through my 30s, so I've been lucky to be working.
+- When you see someone at 6 in the morning with a smile on their face, you know they're having fun.
+- God bless Jackie Briskey for hiring me back then when I had no idea what I was doing.
+- Anytime you can get people to watch you on anything, it's very flattering.
+- I think any actor can relate to the feeling of 'Just tag me in, coach, give me a chance.' Athletes go through the same thing. To be quite honest, most people in any job or career probably go though that, when you want a chance to prove what you can do, or somebody is taking away a chance at something you can do.
+- I don't know if I have a specific style icon.
+- It's aggravating to me when you meet people that are just... you know, there's a difference between wanting to be an actor or a writer or something creative, and just wanting to be seen.
+- 'Game of Thrones' is a good one to binge-watch, except you realize at the end of every episode that you've been holding your breath for, like, 30 minutes, which is probably not good for your brain.
+- Anytime you go through a divorce, you're completely lost. Whether you want to admit it or not, or whether you know it or not, you're completely lost.
+- I'm second, and so my brother is first. Being second, sometimes you get left out and all of that. The anecdotal stories about the firstborn, the baby, the middle - all of that is true.
+- I've certainly been to Hollywood parties, and I have friends that are ridiculous - wonderful people - but they're high rollers with tons of money.
+- I think any time you have a show that, after you watch it, it sort of sits with you for a while, and you take pause and you talk about it, yeah, it affects your life.
+- A lot of times, you watch a trailer for something, and then by the time you get to see the actual movie or show, you realize that the best parts were in the trailer.
+- Had more confidence than I probably should have in high school. But I do remember feeling like I wish I could physically mature a little faster, fill out. In college it started to happen a little bit more, and my confidence started to grow - then I got out to L.A., and that got squashed immediately.
+- She calls me Aquaman, which is kind of embarrassing, having your daughter call you the name of a canceled show. When she's being a little smarty-pants, she calls me Justin.
+- It's called 'A Heartbreaking Work of Staggering Genius' by Dave Eggers. It is absolutely everything the title implies. It's the greatest book I've ever.
+- It's all about story and character with me, and I don't care if the job is on daytime or prime time or the web. Hey, give me a good character and someone to listen, and I'll do my acting on a street corner.
+- I became interested in 'Smallville' when 'Aquaman' was not picked up and my mortgage was due. Kidding. The real reason is that it was an easy decision.
+- I have the greatest fans. I have fans that come from soap opera world. I have fans that come from superhero world, which are a whole different section of fans. They're so cool. When people are fanatical about something, it's contagious.
+- I love 'Friends.' I've seen every one probably 37,000 times, but I can watch 'Friends' all night. You just forget how amazing it was!
+- I know, who doesn't want to play a superhero, right? And everyone wants to play Superman or Batman. Everyone wants to play a superhero.
+- I have great respect for daytime drama. I love the branding. I love the style. What can I say? I love good soap!
+- Every job you have, there are days that are more difficult than others. I worked on a daytime soap opera, where the volume at which you're producing this medium is incredible.
+- I haven't ever had so many women come up to me and tell me that I made them cry. And they're smiling about it, which is kind of an odd thing. Usually it's not a good thing.
+- One of the things I wanted to do was direct. There've been a couple of times that a director will walk up and say something to me, and all it does is make me mad. Inside I'll go, 'Well, that wasn't helpful at all.'
+- Whether it be with your parents or your siblings, everyone is dealing with different kinds of things.
+- I always tell people this; when they say, 'What's gonna happen here? What's gonna happen here?' I always tell people, 'You think you want to know, but you really don't. You want to experience the event as it happens on TV.'
+- On my last two days of 'Young and the Restless,' I had 120-something pages of dialogue. My last two days.
+- I'm always going to be looking for something artistically or whatever. I think that's part of being driven, but that doesn't necessarily mean I'm unhappy.
+- There's nothing worse when you have a job, and you read something, and you're like, 'God. How am I possibly going to make this work?'
+- I found a very comfortable style in that if I know everyone's job around me, it's going to make me better at my job.
+- I mean, 15 - that is such a pivotal time in a young man's life.
+- 'Y&R' is the No. 1 show, and the acting company is exceptional.
+- I've taken a lot of risks as far as turning down money to do something I guess I thought was more meaningful. But I don't know if that's the best piece of advice, because I've also struggled with money, when I could have had a little more if I'd just taken the damn job.
+- I'm fortunate enough that I have my father in my life, but I would imagine losing your father at 15, 16, 17 is a lot different than losing your father at 36, 37, 38.
+- I've been lucky. I've never really had a job that I did that I didn't like.
+- On a soap opera, you'll do an episode and a half a day, and in prime time television, you're hustling to get an episode done in eight days. That's a little bit frustrating sometimes. But there's also something exhilarating about it. It's kind of like live theater in a way, where you get one crack at it.
+- I'm no Zac Efron.
+- I have a wonderful wife who loves me, who's fantastic, who's just the thrill of my life - intriguing and mind-blowing.
+- I try to be as calm and as reassuring and a rock to my daughter as I possibly can be. I try to teach her everything that I never knew when I was her age, and I try to give her all the advantages and the things that I didn't have when I was her age.
+- You mess up as a dad, and you have your worst moments.
+- I don't have a twin, but I do have a brother and sisters, and I do know that there is a special bond there that is - I'm going to say - closer. It's different. It's closer than having a best friend. It's easier to forgive them. I think it's also easier to get mad at them. You feel a little piece of yourself in them.
+- I have a little bit of experience going in and playing a character - I played a character on 'Smallville' that had been established for decades and decades before I took it.
+- If you sit and feel sorry for yourself, you're wasting your time. You should be in acting class, instead of feeling sorry for yourself. You should be working.
+- I was the worst actor, but here's the cool thing about it: I had no idea.
+- Unfortunately, I know very little about Indian cinema. I know we have Bollywood... But my knowledge about it is very little.
+- That New York energy, when you've got the benefit of great weather, it really is terrific. You look up at that skyline, and the Empire State Building is literally in your eyesight - there's nothing like that.
+- Your relationship with your sister-in-law is hingeing on your brother's - or your sister-in-law's - ability to keep that relationship together.
+- People will come up and say - and it is insulting - 'Do you ever want to do anything else? Like some real acting? Or a real show?' Here's the thing: You can either get upset about that, or you can realize that that person isn't trying to offend you. They're literally interested, and they're asking you a question.
+- I love me some Martin Sheen.
+- Any father can relate to feeling like a superhero when you put a Band-Aid on your kid.
+- My mother always told me, 'Don't make women cry.'
+- I'm a dog lover. With the holidays, everything gets a little bit hectic. There's a lot on your mind, and maybe you forget that your animals also feel that stress as well. So try to keep them on the same routine; try to keep the chocolate out of their mouth.
+- I don't know - I think guys don't get as much credit as they deserve sometimes for how hard it is to put a great look together. It's so easy to just do a 'suit,' but to make it look a little different, it takes some effort.
+- A TV show besides 'This is Us' that makes me cry? Not a shocker, but 'Game of Thrones.'
+- It's weird. You find a safe place in someone who you feel like maybe they can't judge you because they don't know you.
+- It's interesting because I'll be out, and someone will say, 'I just loved you on 'Passions'! Did you just quit acting after that?'.
+- I think whenever any kind of hardship or tragedy comes along, it usually pulls a family closer together or, at least, hopefully.

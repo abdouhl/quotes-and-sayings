@@ -1,0 +1,90 @@
++++
+author = "Maz Jobrani"
+title = "Maz Jobrani Quotes"
+quotes_len = "84"
+description = "the best 84 Maz Jobrani Quotes"
++++
+- Unlike the U.S., Iran has no problems with low-voter turnout in elections; the last time, the government got the support of 110 per cent of the population.
+- Definitely in the West, we're all cast as the same now. Whether you're Indian, Pakistani, Arab, Iranian, Afghan or whatever, you just get thrown into this category. And nine times out of 10, you're depicted as bad.
+- Humor is always important. There are people who help us deal with difficulty or hardship; from the concentration camps to the court jester, there was a need for humor. As long as these kinds of things exist, with repressive regimes, you need it to deal with the weight of daily life.
+- When I told my parents I wanted to be an actor, my mom was, like, 'I think I heard you say lawyer.'
+- I wish more Americans would travel here. I always encourage my friends: 'Travel. See the Middle East. There's so much to see, so many good people.' And it's vice versa, and it helps stop problems of misunderstanding and stereotypes from happening.
+- Coming from L.A. to D.C., I'm always impressed that in D.C., people are doing the things that the people in L.A. are pretending to do. Whenever I'm in D.C., I ask people what they do, and they say, 'I'm with the agency, or I'm with State.' In L.A., I ran into a guy who said, 'I'm working on an audition for a guy who happens to be with an agency.'
+- Stereotypes exist because there's always some truth to stereotypes. Not always, but often.
+- I have to say that deporting people and calling them 'bad hombres,' then kicking families out with visa violations, upsets me.
+- Iranians and Arabs aren't considered diversity because we still don't have minority status in America. There was a group of Middle Eastern actors trying to get SAG to recognize us as part of the diversity they should look out for, because we do represent a different point of view. When OscarsSoWhite happened, I felt part of that.
+- Don't get me wrong. I don't mind playing bad guys. I want to play a bad guy. I want to rob a bank. I want to rob a bank in a film. I want to rob a bank in a film but do it with a gun - with a gun, not with a bomb strapped around me.
+- As a Middle Eastern male, I know there's certain things I'm not supposed to say on an airplane in the U.S., right? I'm not supposed to be walking down the aisle, and be like, 'Hi, Jack.' That's not cool. Even if I'm there with my friend named Jack, I say, 'Greetings, Jack. Salutations, Jack.' Never 'Hi, Jack.'
+- Trump is good for comedy but bad for the world.
+- I want to show another side of Middle Easterners. My hope is that I would be able to play a variety of parts, and not always be the guy with the accent.
+- The first time I performed at the Comedy Store in Los Angeles, I was in the back of the room doing vocal exercises. 'Me-me-me, my-my-my, mo-mo-mo.' And I'm looking around, and no one else is doing it. I'm like, 'They must have done it before they came to the club.' I came to realize that I was an idiot.
+- I grew up in Northern California - Marin County, Tiburon. And it's interesting. It's a very rich place, but a lot of the affluent people are - they're not as showy. So, like, they might have, like, a Saab or a Volvo. And then here comes my dad from Iran. He buys a Rolls-Royce.
+- I am a standup comedian who has performed comedy in the Middle East in front of thousands of Muslims. And believe it or not, they laughed at plenty, especially when we poked fun at local culture. The Lebanese loved it when you would make fun of their driving and how, in Lebanon, a red light is just a suggestion to stop.
+- You know, funny can be universal.
+- Be kind. It feels good.
+- I'm not saying that I'm on some crusade to change people's minds. I'm just doing what I do. I'm a comedian, I'm trying to be funny... I think when they see a comedy show with an Iranian and an Egyptian and two Palestinians, I think they go, 'Oh wow, these guys are just like us.'
+- Comedy can take you a lot further in getting your point across. People are entertained, and then, by being entertained, they get your point.
+- One thing about D.C. that's funny to me is that you end up running into famous political figures who you've seen on television who you think are not real until you see them.
+- My mother was very wary at first. And now she's come around 180 degrees. She's, like, one of my biggest fans now. Like, she'll come over to my house, and she'll be like, 'OK, listen. I need two T-shirts from the comedy show, and give me three DVDs. The neighbors are asking for them.'
+- Every time I see Trump on TV these days, I'm waiting for him to burst out, 'Live from New York, it's Saturday Night!' That would make sense to me - that this has all been one long 'Saturday Night Live' sketch.
+- Your stereotypical L.A. Persian kids were not working at Sbarro pizza in the mall, but I was.
+- One of the jobs of comedy is to expose hypocrisy. When you look at countries like Iran or North Korea that don't have freedom of speech, we who do should push it as far as we need to.
+- I quickly came to realize that in the Middle East, God is God, and in the West, the sponsor is God - or, as I like to say, Tide detergent is God.
+- As the weeks went on, I realized there was an important role comedy would play in healing the tragedies of September 11. Comedy can help people cope, and many people were coming to the clubs to laugh out the stress.
+- You know the Middle East is going crazy when Lebanon is the most peaceful place in the region.
+- Comedy comes from tragedy, and being Iranian in America from 1979 on had been quite tragic. In stand-up comedy, I was able to take the reality and exaggerate it.
+- I tend not to make fun of religious groups anywhere I play.
+- I've always had a foot in everything. As a kid, I was active in sports and theater. Now, I'm learning I have to focus a bit. I'm trying to get to next projects, like writing a screenplay. Once that comes together, I could put my mind to another book - maybe a fun kids' book.
+- When you're a stand-up comic, you live and die by what you say on stage. There's no director or writer or producer who can tell you what to say and not to say. Once in a while, a club owner will ask a comic to work clean, or not say something, but that's few and far between.
+- I've had people come up to me after the show and say, 'Why did you not make fun of Pakistan?' People are actually upset you didn't talk about them.
+- I really love D.C.; it's one of my favorite places to perform. I always say when I come here, I feel like my IQ increases by 20 points.
+- As a Middle Eastern male, when you're in a Chuck Norris movie of the week, you know you're going to die.
+- I thought, 'Oh, acting is going to be great - I get to play different parts.' And then these auditions started coming up for terrorist, terrorist, terrorist, and I'm going, 'Whoa, what's this about?'
+- I took one acting class as an undergrad, and I loved it. I was in a very avant-garde play at UCLA about a closeted, married homosexual. I played his father.
+- One of the first memories I have, we went to - actually, we stopped in New York for a little bit, and I remember going to Macy's with my mom. And I was a big fan of the color orange, and they had Snoopy orange gloves, hat and scarves. And I bought it, and it was the best thing ever. I loved America right there. That was it.
+- I would say that while most Muslims take offense at the portrayal of the Prophet Muhammad in cartoons, they would never resort to violence. It is a minority of extremist Muslims who take such actions, and they do it for political and tactical reasons far beyond just being offended.
+- I think comedy is a good way to help people change their minds. I think that if you're laughing and getting a message across, it's a lot easier than when somebody is screaming in your face.
+- A lot of times in Hollywood, when casting directors find out you're of Middle Eastern descent, they go, 'Oh, you're Iranian? Great. Can you say, 'I will kill you in the name of Allah?'' I could say that, but what if I were to say, 'Hello, I'm your doctor.'
+- A cultural thing that is funny to me is that every time I go out in D.C. after a show, all the nightclubs and restaurants are owned by Iranians and Afghans. It's funny to me how we lost our countries but we gained the nightlife.
+- The first time I flew after September 11, I honestly was a little paranoid. As I was going to the metal detector, I was looking at my duffel bag, and I'm like, 'Do I have anything that's like a weapon?' I was really paranoid they were gonna find something sharp, and I was gonna get in trouble.
+- People think just because I'm from the Middle East, I'm an expert on the Middle East. So, like, I got a friend, like, any time the gas prices go up, he'll always ask my opinion about it.
+- Part of what's great about America, and Canada as well, is that we can talk about our political leaders in public.
+- I jokingly say that the enemies are children, you know. I always say, if you have young kids, your whole goal from the moment they wake up is to make them tired. It's exhausting. Anybody who's got kids knows what I'm talking about.
+- If you come from a place of love, and you're not saying, 'I'm better than you,' that's one thing that allows you to talk about different ethnicities. It's almost like laughing with each other.
+- I was at UC Berkeley as an undergrad when my father lost a lot of money in real estate investments in Northern California. He wanted a change of pace, so in the early '90s, my family moved to L.A., right in the middle of Tehrangeles. It was a culture shock for me.
+- Anyone who's gotten their passport in America will tell you, when you get it, it still says what country you were born in. So I remember getting my American passport. I was like, 'Woo-hoo! I'm going to travel.' And I opened it up. It said, 'Born in Iran.' I'm like, 'Oh, come on, man!'
+- I played Li'l Abner and Batman in school plays; I wanted to be an actor to play all these different characters.
+- I am a political human being. I have - that's one of my interests. I studied political science in college. I was actually going to get my Ph.D. in poli-sci. And a lot of my material from early on in my career dealt with politics, so I've always considered myself as somebody who enjoys political humor. So I'm not going to stop.
+- Here's my advice to my brown friends: The next time you're on an airplane in the U.S., just speak your mother tongue. That way, no one knows what you're saying. Life goes on.
+- I remembered, like, when 'Not When My Daughter' came out, I'm serious, I think dating for Iranian men became a lot harder. Dude's name, Shahrokh - became Tony. Mehsud became Mike.
+- The fact is, there's good people everywhere. That's what I try and show in my stand-up: good people everywhere. All it takes is one person to mess it up.
+- I don't know why, anytime you see a car filled with people, it's either Middle Easterners or Mexicans. It's one of those two. Even for short trips, my dad would be like, 'Okay, everybody in the car.'
+- I think it's funny that nobody wants to be liked by Washington. All the politicians go, 'I don't like Washington. They don't like me.' I always find it funny that people are trying to distance themselves from Washington as much as they can, even though they're all in Washington.
+- I remember I was in a San Francisco nightclub, and I started talking to some girl, and it was like, 'Hey, what's going on, what's your name?' You know, 'Where are you from?' I go, 'I'm from Iran.' And literally, she just looked at me and walked away.
+- Any standup that you see who you go, 'Oh, wow, that guy's, you know, that guy's making it.' Inevitably, they've been doing it 10, 12 years - 10, 15 years. Because it takes time.
+- My parents come from that immigrant culture that places a lot of emphasis on doing well scholastically. Being a comedian or an actor is such an American thing. The Iranian culture is not about dreaming. It's about taking over your father's business, falling into line.
+- You have to laugh at yourself. I do a lot of humor about all ethnicities that are at the show - Latinos, Asians, Indians... What I say is, 'We're laughing together. I'm laughing with you, not at you.' Never say, 'Oh, I'm better than you.'
+- I've made enough jokes about Iran's leadership that I'm sure if I showed up that I would get a nice escort - to the main prison - and then I could do a show there.
+- Follow your heart. Do what you love. Because I was constantly struggling with that. If it's in your heart, go for it. Don't listen to other people.
+- I've basically grown up in America. Even if Iran were to change, I wouldn't see myself moving there. That feeling exists for my mother and people of her generation. They say, 'Hopefully, one day.'
+- I've sold shows based on my standup twice to CBS, but they've never gone past the script stage. TV is very competitive.
+- I think it's time that we had a dad of Middle Eastern descent on TV. The time is ripe for the Middle Eastern 'Cosby Show.' Or, as I like to call it, 'The Mazby Show.'
+- I was in awe of my father. His generosity was beyond anything I ever could imagine. The reason I say he's like Don Corleone is he was always breaking off hundreds. I'd be like, 'Hey Dad, I'm going to McDonald's with my friends,' and he'd just whip out a hundred: 'Here, go, have fun.'
+- The number one thing I've heard Trump supporters say - number one thing - 'I love him because he says what's on his mind. He just says what's on his mind.' He just says what's on his mind. You go, 'What are your thoughts on his policies?' 'I don't know about his policies. He just says what's on his mind.'
+- Once you start listening to the comics, be they Jewish, Muslim, Italian, Filipino or whatever, the material often springs from the same source - the overbearing mom, the parents who want you to marry from within your community. That's why the 'Ethnic Show' works so well.
+- I meet a lot of people when I do stand-up in the Middle East, and I don't know any terrorists, yet on TV and in the movies, 9 out of 10 are depicted as terrorists.
+- Most comics point out what everyone else is thinking but hadn't thought of verbalizing. I guess, in a way, that makes most comics seers. It just depends in what category - some choose to be the seers of relationships, some are seers of racial issues, and some are seers of political issues.
+- The first acting part I ever got was a guest spot on 'Chicago Hope' playing a security guard. I thought, 'Oh, this is going to be cool.' But a little bit later, I got a vague part on this short-lived show called 'Marshall Law' with Arsenio Hall and Sammo Hung. It was a poor man's 'Rush Hour.'
+- Racism has always existed, and a big part of it is people just not knowing others. I think humans change other human's minds, and it's hard for someone in the middle of America to hate Syrian refugees if they've been able to befriend them.
+- When you have demonization of a group of people, it's easy to clump them all together and not understand them.
+- My mom was like, 'Get your law degree first, become a lawyer, and then you can tell jokes on the weekends. You can be a lawyer and just throw jokes into your presentations.' Now she's like, 'Listen, you need to come up with new material.' All of a sudden, my mom's a critic.
+- It's true that some countries have more volatility, but each also has nuances we don't even know about.
+- I've grown so accustomed to my life in L.A., going to a Coffee Bean or getting breakfast at Kings Road Cafe. I've seen a lot of the world, but the diversity we have here is different. It's a mishmash, which is a nice comfort.
+- The fact is, the Middle East has been going crazy for 50, 60, 70 years. So it's not like, 'Oh, I need an ISIS joke.'
+- I don't consider myself an Iranian comedian; I consider myself a comedian who happens to be of Iranian descent.
+- You know how hard it's been to write material? Because to do stand-up comedy, it takes time for the material to develop. So you'll come up with a joke, you'll tweak it, you'll work it for six months, you really fine tune it, and now you've got a good bit. Well, with Trump, every day there's something new coming out.
+- I started acting in junior high. I was in 'Guys and Dolls.' I was Stanley Kowalski. In my head, before coming to Hollywood, I thought, 'I can play anything.'
+- The way we censor in America is the dollar. That's who censors.
+- Trump doesn't go a day without worrying me. It seems like every day there's something new.
+- I saw the discrimination that was happening towards Middle Easterners, Muslims and other brown people who had nothing to do with 9/11. It suddenly felt like a duty of mine to talk about some of the crazy things that were going on and make fun of how stupid it was.
+- Coming from an immigrant background, where a lot of parents don't want their kids to be comedians, success was just showing my mom that I could make a living. I was like, if I can get my mom off my back, that was my success.

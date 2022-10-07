@@ -1,0 +1,27 @@
++++
+author = "Mark Philippoussis"
+title = "Mark Philippoussis Quotes"
+quotes_len = "21"
+description = "the best 21 Mark Philippoussis Quotes"
++++
+- Tennis is a beautiful sport but it's also a sport where you get thrown out there into the world and it's on an international level. As an athlete and as a human being you're learning. You're a kid.
+- If you told me as a ten-year-old kid, loving tennis as I did, that I'd be plagued by injuries and have to finish early I'd still have chosen this life.
+- When I was on the court, I played. When I trained, I trained hard. But as soon as that thing was over, I switched off and enjoyed my life.
+- Growing up in the public eye isn't easy.
+- Watching someone that you love, you think they have a certain amount of time left to live, changed everything for me. And tennis seemed not so important anymore.
+- When I stepped on the court, I expected to win, no matter who I played against.
+- Money came in left, right and centre; you just thought that's how it was for everyone and that's how it will always be.
+- I haven't played tennis since 2006, and tennis is one of those sports where if you don't play, you don't get paid.
+- Generally, what I miss about tennis now is playing against the guys on the big stadium courts where the crowd are going nuts and roaring like crazy.
+- Some of my closest friends know that when I worry about something or when I'm upset, I close myself off and stay in my room. I watch movies and I don't get out of bed.
+- I always thought that I was going to be up there, whether it's was in the top 20, top 10, and I wasn't training hard, but I thought, you know... my strength, my presence, my talent would just keep me up there, without really training hard and really committing myself to the game.
+- It's a lot for young players to be expected to deal with all the media, and... there is a lot of pressure to be perfect, but at 19, 20, 21, 22, you're still young and learning.
+- I've lived an easy life, the life you dream about. And at that time I thought it was normal, but it's so far from normal.
+- It got to a stage where I realised I didn't care about eating, sleeping, breathing tennis because my first priority in my life was always my family.
+- I've changed my whole life around, I've devoted my life for tennis instead of partying. I'm very happy, you know, I'm 27, I really feel like I have another 5 years left in me, and I still, honestly feel like I have still got the best tennis, best things ahead of me.
+- I'm at the French Open right now and enjoyable as that is, it's only really Wimbledon that I miss from when I played elite tennis. I love that place so much, it's so special. That's when I say, yeah, I wish I was out there again. But then the moment passes.
+- I'm not really good with authority, but you know, when the doctors said that I won't be playing professional tennis again , it was another, sort of another thing in my life where I'm going to prove someone else wrong.
+- I can only speak for myself, but growing up in the spotlight is not easy at all... but at some stage you have to accept that and realise that it comes with the territory.
+- You know I'm 27, but I've been traveling since I was 16, 17 years old. You see a lot of things, you hear a lot of things, and it definitely matures you a lot faster than it would other people. I think in that case it's definitely made me a stronger person.
+- I won 11 titles but yeah, no Slam. Am I proud? Yes. Am I also disappointed? Yes. But a couple of times I was unlucky.
+- When I stepped out there on the court and played, I wasn't intimidated by anyone. I felt like I could go out there and beat anyone in the world on any given day.

@@ -1,0 +1,88 @@
++++
+author = "Mary Lambert"
+title = "Mary Lambert Quotes"
+quotes_len = "82"
+description = "the best 82 Mary Lambert Quotes"
++++
+- I think no matter how you think about your music, you're ultimately in the music 'business.' I think you have to be business-minded in some sense. And for me, the real goal... is positive intention and social change through music. It doesn't mean that can't turn a profit.
+- I'm a sensitive, sensitive person. Overly sensitive. Extremely emotional.
+- After a show over the summer, a girl came up to me who was a pastor at her church, which was not accepting of same-sex relationships. She said that 'Same Love' allowed her to come out regardless of the consequences.
+- It is a little scary to go across the whole country, and basically the world, and be like, 'What's up? I'm gay, and you should let me get married everywhere.' I don't feel like I'm a spokesperson. I just sing what my experience is.
+- I don't have all answers, but as far as viewing my body... I'm in a place where I can look at my stretch marks and say, 'Oh, hey, stretch marks!' and I'm over it.
+- Before I got on full-time medication, I believed that my mental disorder was the reason I could create so much and create well, because it made me crazy. I could go to these dark places and then come out of it and just be human again.
+- It's taken me a long time to enjoy shopping. As a plus-size girl, you walk into a store, and it can sometimes be like a designer doesn't know you exist. It's become a fun treasure hunt.
+- If I can sit down at my keyboard and have a melody that says something that I can't with words, that's a really beautiful thing.
+- I'm one of the writers that would die if I didn't say what I needed to say. For me, it's a matter of survival to write.
+- When you're 17 in the suburbs and know only three gay people, holding hands with your girlfriend is a proclamation.
+- So I want to make money. I think it's an OK goal to have. I always felt like I can't ask for that. But why not?
+- There is so much shame and guilt in our society, and I think it has deprived a lot of people from living fully. We are all facing battles... We've all had someone who has hurt us. So let's talk about it.
+- Treat others as you wish to be treated. Don't just be nice, but be kind to other people. That can be so rewarding.
+- I would sing to my Beanie Babies, and I sort of created this alternate universe where I was famous, and there were thousands of people that I was singing to.
+- I think a lot of us have some form of body dysmorphia... You're looking in the mirror, and you're kind of disassociated in some way. I think a good reminder is to actually, physically touch yourself. 'Ah, okay, this is what my arm feels like. It's not what I'm mutating in my head. I'm not some sort of scary monster.'
+- One of the best parts about my job is that I get to dress for red carpets and appearances, and I often forgo working with a stylist because fashion is half the fun of any event!
+- I've always had a little bit of darkness, and I've always been someone who was grieving. I had kind of had a tumultuous upbringing living in an abusive home, so for me, writing has always been a point of catharsis.
+- There I am, chain-smoking and watching YouTube videos in my bedroom at 6 A.M. when a spoken-word video comes on the screen. I knew I had to do it: that it was another part of me that needed to be explored.
+- Self-care is the number one solution to helping somebody else. If you are being good to yourself and your body and your psyche, that that serves other people better because you will grow strong enough to life someone else up.
+- Growing up, people are like, 'Mary, we'll see you at the Grammys.' You're like, 'I'll be at the Grammys.' Then, you're actually at the Grammys! That actually is happening; it's not just something people are saying because they like your music. It's real!
+- My mom, grandma, great-grandma - we're all named Mary, and we all play piano and sing.
+- I came out when I was 17. I was in the church; I was crying every Sunday for about a year. I came to terms with the fact with this is who I was - I wasn't going to be able to be a different person. At 17, you feel like a freak already, and so to have that fire and brimstone against your attraction is just screwed up!
+- I wrote the chorus specifically for 'Same Love' as a narration of my story. I decided to release 'She Keeps Me Warm' as an extension of the chorus because I felt like there was more that needed to be said.
+- I'm not dieting anymore. I want to eat what my body is asking of me. Just listen to your body in general - it's all self-awareness.
+- I like to think that my music allows people that cathartic cry.
+- Yes, I would loved to have just sustained myself through my art, but less than one in a billion musicians gets that life. So rather than being like, 'I'm an exception!', like a moron, I thought I'd get a real job.
+- Fat bodies are used comically. I respect Rebel Wilson so much, and Melissa McCarthy. I love them both. But so often, I feel like fat female bodies are used as props.
+- That's why fame freaks me out in a lot of ways - because how genuine of a connection can you have when you're a commodity, and a conversation with you means bragging rights? That's terrifying to me.
+- I think, for me as an artist, there are no boundaries. As long as I'm creating in a way that isn't trying to re-traumatize any wounds that I do have.
+- I want to go to Italy and France; those are my two places. And I really want to go to Greece. I've seen so many pictures on Airbnb that make me think I should be living there. I could eat great salads and be on a boat.
+- Music for me is a bit more spiritual. There are moments when I'm sitting at my piano, and I don't realize that I've been playing for two hours - it feels like divine power. I know it's so cheesy.
+- My life is going at the speed of light, so it's a lot of just trying... to be present in each moment... Giving each situation and each part of life that space and making sure that it's sacred in every aspect.
+- I know how I want to operate as an artist. And that is by having an honest, genuine dialogue about this kind of screwed up journey I've had that I'm so thankful for.
+- You don't accomplish a lot by changing people's opinions by shoving facts down their throat. I think you change people's opinions by opening your heart up and showing the parallels between you and another person. That's how people's ideas shift.
+- The thing I really love about my fans is the vulnerability and openness, the crying and the hugs. They are so kind.
+- Gay rights and body acceptance are two things I feel very passionately about.
+- As I got older, I fell in love with Radiohead, and 'OK Computer' is one of my favorite albums of theirs. Sonically, the tone of the guitars on tracks like 'Electioneering' just rips right through me.
+- I was going to be a teacher. I was applying to graduate school when I got the call to do 'Same Love,' actually. I was gonna go to Boston University for my masters in teaching.
+- I have a big thing with eye contact, because I think as soon as you make eye contact with somebody, you see them, and they become valued and worthy.
+- I have gained so much more from my experiences of being open and loving humanity rather than being jaded and being closed-off.
+- I was bartending when I recorded 'Same Love,' and when it was on the radio, too. I remember overhearing people talking about the song while I was making them drinks.
+- For me, writing is just processing.
+- People are constantly not feeling, but numbing themselves, either through medication or playing on their phones. If you start feeling bad, it's like, 'Distract! Distract! Put on Storage Wars!' And I know because I'm guilty of it, too.
+- I look up to Tegan & Sara, obviously, Adele and Natalie Maines from the Dixie Chicks. All these artists are strong in their convictions, and they haven't changed who they are for the music business.
+- In my field, you can't really wear the same dress twice unless you want Isaac Mizrahi to scorn you on TV.
+- Getting snail mail is one of my favorite indulgences, and I think receiving mail is actually a common joy.
+- The bottom line is: You are in control of your reactions to things and how you view things.
+- Sylvia Plath, Rumi, there's a lot of spoken word poets who do a really incredible job putting their spoken work into page poetry - that's what I strive to do.
+- I knew when I shot the 'She Keeps Me Warm' video that the comments were not going to be homophobic... that they would be about fat-shaming. I'm a large girl making out with somebody. I knew just that sheer fact would set people off.
+- Beauty, by way of fashion, has to do with confidence, with flattering silhouettes, with patterns, with proper fit for body type, and with an abundance of self-love!
+- I think I streaked one time when I was 16, which was scary.
+- Adele shattered the image of how the stereotypical singer is supposed to look. She has that whole 'Screw you, I'm awesome for what I do' attitude, which I really look up to and want to be a part of.
+- I feel like I'm like a healer in a pop singer's life.
+- I'm a big emotional mess. I try to talk about things that people don't like to talk about, especially in music. Hopefully it reaches someone and lets them access their vulnerability. That's what I want it to accomplish.
+- If people can find something that they love about themselves after going to one of my shows, then I am so addicted to that feeling. It's the most gratifying thing on earth.
+- Bike lanes are the coolest. My favorite past time is flipping off cars from my bicycle. Just kidding - I'm more of a silent resentment kind of girl.
+- After singing 'Same Love' across the nation, it's given me faith that I've underestimated the straight world.
+- I hope people learn the power of vulnerability through my songs. I think vulnerability can save the world. Empathy helps people connect with each other.
+- I think artists are scared to have same-gendered pronouns in their writing, and I don't think it's because they're scared to be out, because gay artists are visible, but they don't want to alienate an audience.
+- Being in Los Angeles is this brutal awakening, where I feel not good enough as soon as I walk into a room, and I'm wearing the wrong thing, or I don't have enough make up on. It's all about image.
+- At this point, I have 10 pairs of cat earrings because fans bring them to me. The next song I write, I'm going to be like, 'I love Chanel.'
+- I try to harmonize and sing every moment that I can.
+- I was a really, really depressed kid.
+- I'd want it to be really special to both of us, but I'm a huge fan of 'At Last' as a wedding song. But what's also really cool is songs that no one else would have at their wedding, like an obscure Radiohead song.
+- To be honest, I used to hate shopping. I rarely left a store without crying, cursing my body, and swearing under my breath at the fashion industry.
+- I remember when I heard 'Jessie's Girl' for the first time, I was like, 'This is so applicable to lesbians!'
+- There's this idea that when you make a certain amount of money that you should be staying at four-star hotels and taking town cars. And believe me, I will take a town car every day, but there are some things where it's like, 'Is this necessary? Is this important?'
+- I used to be on the kitchen floor, crying, wasted and thinking of lyrics. That was the only way I could create - as a tortured artist. I've learned that you can be stable and taking care of yourself and still create beautiful work.
+- I came out when I was 17 - coming out in middle or high school is one of the most difficult things that anyone could experience. I wouldn't wish it on my enemies.
+- Just because you're not thin does not mean you're ugly. You are beautiful because of the light you carry inside you. You are beautiful because you say you are, and you hold yourself that way.
+- Even when I'm in a really great, steady and stable place... I'm clinically bipolar, so that always exists - a darkness always exists.
+- I'm learning how to keep my identity and personal life sacred. It's a matter of knowing my limits. I don't have to give everything that's asked of me.
+- Body love is more than acceptance of self or the acceptance of the body. Body love is about self-worth in general. It's more than our physical appearance.
+- If you want to help somebody, make sure you're coming from a place of clarity and complete non-judgment; that way, you can begin to understand their journey, too.
+- I'm not saying everybody has a social responsibility of what art they create, but art should be open-ended. I just feel there's a lack of consciousness and understanding of impact and reach. Just maybe, for a second, just think of the effect you could have with a lyric.
+- As soon as I check into a hotel, I get butt naked and I watch super trash TV like 'Storage Wars' and 'The Bachelor.'
+- It's a really skewed part of our culture that happiness is the end-all be-all. The people that force themselves to be happy all the time often end up being the most broken.
+- Going from someone playing 15-people venues to performing at the Grammys, it was this giant leap and sort of showed me it was possible with what I wanted to do and the kind of music I wanted to write and artist I want to be to impact a lot of people.
+- I feel like if I couldn't write, I would explode.
+- I don't think of my songs as sad songs. I think of them as vulnerable and honest. I crack jokes in between songs, so people don't leave feeling too dark.
+- When I came out, I said, 'I'm going to be a proud gay artist.' I'm not going to be Melissa Etheridge. But she's a goddess!
+- It's an interesting thing about being a 'fem.' People automatically assume that I'm straight.

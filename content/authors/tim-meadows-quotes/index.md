@@ -1,0 +1,18 @@
++++
+author = "Tim Meadows"
+title = "Tim Meadows Quotes"
+quotes_len = "12"
+description = "the best 12 Tim Meadows Quotes"
++++
+- I had the afro when I was in high school. I had the flattop during a short period in the early '90s. And I've had different variations of dreadlocks. I'll admit to those!
+- Sometimes I'll go down a path, and I'll just pray that something's going to come to get me out of this path that I'm on.
+- Not everybody agrees on what's funny, obviously.
+- In my experience with women that I've dated and my wife now, is you have to know what they care about. And even if you aren't a huge fan of it, you still have to have interest in it and it has to be genuine because women do it for men all the time.
+- I was not funny growing up.
+- I like doing films and I wish that I could do more but I still have to audition. I don't get offered starring roles in movies even though I've written and starred in a movie.
+- I've never been arrested. I've been stopped, searched and had a gun put to my head by the Chicago cops.
+- Everything that happens to me in my life, be it good or bad, it's all education, and it's important for that to become part of what you do. It all feeds the beast.
+- Learning lines is my biggest challenge.
+- I was really shy as a kid.
+- At a certain point in my personal life, I went through a divorce and lost some people close to me.
+- Out of 30 years of Second City I was probably the third African-American with the main stage cast. I was surprised when I first heard that. I think part of the reason that improvisation has never been popular with African-Americans is that it isn't popular in the inner cities.

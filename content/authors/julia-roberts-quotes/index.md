@@ -1,0 +1,101 @@
++++
+author = "Julia Roberts"
+title = "Julia Roberts Quotes"
+quotes_len = "95"
+description = "the best 95 Julia Roberts Quotes"
++++
+- People don't come up to me very often. Everyone is always in such disbelief that I can go to the market.
+- I don't spend a lot of time in the mirror.
+- I love romantic comedies. I like to watch them and I like to be in them. It's something that's increasingly difficult to find that spark of originality that makes if different than the ones that come before.
+- The body is a great machine, and it knows how to take care of itself. I think more often than not the things we do to our skin or our bodies can hold it back from doing its proper job.
+- My real hair color is kind of a dark blonde. Now I just have mood hair.
+- You can be true to the character all you want but you've got to go home with yourself.
+- Making movies is not rocket science. It's about relationships and communication and strangers coming together to see if they can get along harmoniously, productively, and creatively. That's a challenge. When it works, it's fantastic and will lift you up. When it doesn't work, it's almost just as fascinating.
+- If you love someone, you say it, right then, out loud. Otherwise, the moment just passes you by.
+- People love scandal; people love drama. They love stripping away the layers to see what's really in there, and they'll do anything - as well as make it up - to get it.
+- I love to cook, and I love to have all my family around the dinner table.
+- My mom used to make everything. She had a great garden and composted and made everything from scratch - peanut butter, bread, jelly, everything. I don't know how she did it because all those things take time and love and labour. I only do half the stuff she does - but there's still time.
+- Your face tells a story and it shouldn't be a story about your drive to the doctor's office.
+- They say I can open movies, and that's nice in that it puts into people's minds that women can do it. It's not just Kevin Costner, not just Arnold Schwarzenegger. Not just the guys.
+- During the 80s and 90s, we all became consumed with ourselves. In the 21st century, we've come back to simpler times. People are struggling economically and this has forced them to scale back the material aspects of their lives and realise the beauty of finding the simple joy in being with the people we love.
+- I choose totally by instinct. And the only time I've ever gone against my instincts, I've regretted it.
+- When I was a child I had a crush on Abraham Lincoln. Why I would choose to reveal this, I know not.
+- My boyfriend keeps telling me I've got to own things. So, first I bought this car. And then he told me I oughta get a house. 'Why a house?' 'Well, you gotta have a place to park the car.'
+- When you've got four people to get dressed to get out the door you don't really spend a lot of time on yourself. But that's the way I roll anyway. I was never one to do my hair and make-up just to go to the market, so it's not that much different. If I get a little eye cream on, I feel I'm ahead of myself.
+- My life at home gives me absolute joy. There are some days when, as soon as you've finished cooking breakfast and cleaning up the kitchen, it's time to start lunch, and by the time you've done that, you're doing dinner and thinking, 'There has to be a menu we can order from.'
+- People talk about this Julia Roberts almost like it's a cup of Pepsi. People think Julia Roberts is something they created. The fact is, 26 years ago, there was this scrunched-up little pink baby named Julia Roberts. I am a girl, like anybody else.
+- The older you get, the more fragile you understand life to be. I think that's good motivation for getting out of bed joyfully each day.
+- I cannot absorb living in a world where I have an Oscar for best actress and Denzel doesn't have one for best actor.
+- I can direct breakfast, lunch, and dinner. I take pride in my kitchen, but I'm not going to direct a movie.
+- Magic to me is you make a movie and it's all great and it clicks, and at the end of the day you feel like you're having an experience that is positive and that you're learning from.
+- Whenever you are faced with someone who has made far more errors in judgment and far more mistakes than you, you have a tendency to get on your high horse.
+- I was fortunate to work a lot, and I worked hard, and I was very devoted to that, and then I earned this jewel box of a life that I felt completely entitled to.
+- Republican comes in the dictionary just after reptile and just above repugnant.
+- I like a good old-fashioned fistfight if people are pissed off at each other. I just feel like if you're really mad and want to have a fight, then put your dukes up.
+- Sally Field taught me to do needlepoint on 'Steel Magnolias,' and a standby painter on 'Pelican Brief' taught me to knit. I'm pretty good at it now!
+- I'm definitely a practicing Hindu.
+- The things that are correct for me will come to me at the time that I am interested in them and have the capacity, the understanding, to do them.
+- I don't get angry very often. I lose my temper rarely. And when I do, there's always a legitimate cause. Normally I have a great lightness of being. I take things in a very happy, amused way.
+- I definitely think some of my older female peer group are deeply beautiful women. They have this thing that radiates from them.
+- 'Snow White' is an old fairy tale, so obviously the idea of vanity and obsession with youth is long-standing. With today's science, people have become crazy with trying to move their face around. It's bizarre.
+- True love doesn't come to you it has to be inside you.
+- The movie says, You can lose your job and your way and still rescue yourself. 'Larry Crowne' creates a self-excavated utopia, and I love that idea, that message.
+- That is the great joy: to go to work with people that you love, whether they be people that you are in love with or people that you just love, and be creative and artistic and make things that you want to send out into the world and make people feel good.
+- You know it's love when all you want is that person to be happy, even if you're not part of their happiness.
+- Going to the theater is such a joyous experience. My dad would take my sister and me to plays when we were very young, like six or seven years old.
+- I don't think I realized that the cost of fame is that it's open season on every moment of your life.
+- Something that's such a joy in my life every day - cooking - is this incredible, horrific danger to women around the world.
+- When all this fame first comes, it's like being hit by a giant wave. You panic and think if you can just calm down and see where it's going, you'll be okay. Then you become more relaxed.
+- Love is not love, without a violin playing goat.
+- Show me a mall, and I'm happy.
+- I'm a regular person with an extraordinary job.
+- I'm too tall to be a girl. I'm between a chick and a broad.
+- I'm an utterly average, total geek.
+- I don't wake up with some sense of fabulosity.
+- Actually, I'm not crazed about what I eat.
+- I never really did years of movie-after-movie-after-movie but when you've got three toddlers in the house you're performing all day long, anyway, with puppet shows and stories - I act around the clock.
+- Show me a person who doesn't like to laugh and I'll show you a person with a toe tag.
+- I just have a great life. I know great people. I've had great relationships - all different kinds of relationships.
+- I just want to make a point that it's not just great teachers that sometimes shape your life. Sometimes it's the absence of great teachers that shapes your life and being ignored can be just as good for a person as being lauded.
+- I enjoy hats. And when one has filthy hair, that is a good accessory.
+- I'm just an ordinary person who has an extraordinary job.
+- We all need to take a deep breath and think about being a Bush daughter and having that cross to bear. I'd go out and have a couple of drinks too.
+- Patchouli has always been a part of my fragrance, like a line through my life.
+- If all you have to offer is a look that is supposed to be appealing, the you are going to be paid attention to about a tenth as long as you would be if when you speak you are interesting.
+- Let's get a couple of things straight. It hasn't been years and years since I made a movie. I'm not coming back from the dead - I've just had two kids! I have no intention of retiring, but I do think it's impossible to do movie after movie, because there aren't that many good films made.
+- Seeing Shakespeare in the Park, for me, it's just this side of feeling like you've witnessed some kind of magic. It's this spell that you're under, to be part of that!
+- I've never had to pretend to be having sex with somebody. I'm like the queen of the foreplay dissolve.
+- What changes with fame is the perceptions of the individual rather than the individual.
+- Every actor wants to win an Oscar, full stop. It doesn't mean you try to design things around how to accomplish that because that's impossible.
+- Why is it so weird that somebody didn't recognize me?... The fact is that whenever I meet somebody, I say, 'Nice to meet you. I'm Julia.'
+- I have very smart parents. I feel I learned a lot from both of my parents and life experience.
+- I tried Botox one time and was permanently surprised for a couple of months. It was not a cute look for me. My feeling is, I have three children who should know what emotion I'm feeling at the exact moment I'm feeling it... that is critical.
+- I was lucky that I made a few movies in a row that people really responded to - not me, particularly, but the films as a whole were appreciated.
+- The kind of energy I attract is very calm.
+- You have to be smart enough not to dismiss where you came from. It may not be all we are, but it makes up for a great deal.
+- Two of my three siblings are older, so I suppose I learned from them and became a very avid reader at a young age, which I think enough cannot be said for what you can discover through literature.
+- It's increasingly rare for me to find things that challenge me as an actor because the challenge of my personal life, and how fulfilling I find it, is tough to compete with.
+- Going to the theater is such a joyous experience.
+- I wouldn't do nudity in films. For me, personally... To act with my clothes on is a performance; to act with my clothes off is a documentary.
+- I am completely happy with my life. I love everything about it.
+- I don't have the luxury of sitting around any more. I must have had bags of spare time before I had children, but I don't know what I did with it and I didn't appreciate it. But it's such a terrific trade-off. I don't have time to get a pedicure, but I sure am happy. Who cares if your feet look bad?
+- My life at home gives me absolute joy. Having so much time there with the family has just been incredible. My life has changed and I work less, but I was never really one to work too much.
+- When you've got four people to get dressed to get out the door, you don't really tend to spend a lot of time on yourself. But that's the way I roll anyway. I was never one to do my hair and make-up just to go down to the market, so it's really not that much different. If I get a little eye cream on, I feel like I'm ahead of myself.
+- I did get to keep the wedding dresses from 'Runaway Bride'. They're all boxed up in my garage. I've never opened them. It'll be fun one day when Hazel is taller. She can play dress-up with her friends.
+- It's unfortunate that we live in such a panicked, dysmorphic society where women don't even give themselves a chance to see what they'll look like as older persons. I want to have some idea of what I'll look like before I start cleaning the slates.
+- Light and funny has a more compelling quality when you're younger. But I haven't abandoned the genre: I love falling down; I love Lucille Ball. It's just that a lot of those stories revolve around problems that I can't convincingly portray at this age.
+- In essence, I owe my career to Garry Marshall. There was no known reason for him to hire me for 'Pretty Woman.'
+- A fever is an expression of inner rage.
+- It's my privilege and honor to cook three meals a day for my family, and it's a luxury on a level that I didn't even realize, because it can be relentless for me on some days. You have pride in how you take care of your family.
+- It's funny when people say, 'I don't think Julia likes me.' Honey, if I don't like you, you're going to know about it.
+- I couldn't be an ingenue today, because the business has changed. I remember when you could dress for a premiere just by putting on a cute top. Now you have to be perfect and fabulous in every way, or you're ridiculed.
+- I think enough cannot be said for what you can discover through literature. So I think that was probably my most valued characteristic as a teenager.
+- I think less is more when it comes to kissing in the movies.
+- I think that I am a deeply optimistic person.
+- I'm better for all the things that have happened to me, the good and the bad.
+- Los Angeles is such a town of show business, and I'm a terrible celebrity. I find it difficult - it's the beast that must be fed. There's this big wheel of pictures and articles that goes around, and you get pinned on it.
+- I just have a great life. I know great people. I've had great relationships - all different kinds of relationships. I am so lucky to be on the little golden path that led me to all this.
+- I believe that two people are connected at the heart, and it doesn't matter what you do, or who you are or where you live; there are no boundaries or barriers if two people are destined to be together.
+- Everything I've done has had purpose and has been passionate and has been executed in the best way that I knew how. Maybe that's not the perfect way. Maybe that's not the easiest way. But it's the best way I knew how to do it.
+- Happiness isn't happiness unless there's a violin-playing goat.
+- I could have been a dental hygienist with nothing bad ever appearing in print about me, but that's not how I've chosen to lead my life. I knew that you put yourself under a microscope the more famous you become.

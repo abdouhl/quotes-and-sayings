@@ -1,0 +1,24 @@
++++
+author = "Jack O'Brien"
+title = "Jack O'Brien Quotes"
+quotes_len = "18"
+description = "the best 18 Jack O'Brien Quotes"
++++
+- When I looked at the skeleton of 'Damn Yankees,' I saw an indestructible story, absolutely original characters, one of the freshest, sassiest American scores of the century, and some outmoded equipment.
+- When you realize that the uncut 'Porgy and Bess' started me off, that I'd have the opportunity to do a ton of 'Stoppard,' 'Hairspray,' that I'm able to do 'Il Trittico' at the Met - how do I top that?
+- The single most important thing that I feel responsible for is that the company cherishes the work.
+- For a production that suggests a mysterious dreamscape, I have a particular affection for the Vivian Beaumont Theater. It is the largest dramatic space available in New York City in terms of plays, although musicals have been done there very successfully as well.
+- I've done two 'Hamlets,' two 'Lears,' three 'Midsummer Night's Dreams' - I've done most of these plays more than once, and every time I direct them, I learn things.
+- People are so familiar with the show that I think they're perfectly happy to let it go by without asking any questions. There's a passivity to how we experience 'The Sound of Music.'
+- Shakespeare pulls on us and demands the best of us. You never successfully wrestle one of his plays to the ground and say, 'See? That's It!'
+- I couldn't be more proud to introduce Anne-Marie Duff, a phenomenal actress who is bursting on the world stage, to Broadway audiences as Lady Macbeth.
+- I'm not a director who feels I should be in your face all the time. I really want you to watch the actors and listen to the play.
+- You never get the Shakespeares right. It's not possible.
+- I don't think I should be telling you every 10 minutes what to think. I like to leave the audience alone with the magic. I tend to trust the material, or I don't do it.
+- I weave the company into what we laughingly call 'Jack's novel.' I write this novel for them about who they are and what's going on in their world. When I had 90 people in 'Porgy and Bess,' each had a story, history and family relationship.
+- Meeting Mike Nichols was a sort of lifetime occupation.
+- I was in love when I was in college; we all were. I remember how beautiful everybody was. Even the plain people looked beautiful.
+- I have a company attitude about my work. I don't like to do just one thing; I like to do a lot of things.
+- I did an 'Our Town' in San Diego in the seventies with amateurs that I can tear up just thinking about.
+- Out of nowhere, I became a fairly well-known director with a penchant for opera, which I did for 10 years. Then I realized I was taking myself out the theater channel, and so I re-focused on theater.
+- It just so happens that my oldest and best friend is Bob James, the Grammy-winning great jazz pianist!

@@ -1,0 +1,106 @@
++++
+author = "John Bishop"
+title = "John Bishop Quotes"
+quotes_len = "100"
+description = "the best 100 John Bishop Quotes"
++++
+- The biggest thing that's ever happened in anyone's life is your family, isn't it? They're the most important thing in your life.
+- Some families out there have unimaginably tough lives.
+- When you're 18, you might think that you're interesting. You're not, you're boring.
+- I'm very much looking forward to getting back on the road - there really is nothing like performing stand-up in front of a live audience.
+- I don't think interviewing people is any different than normal communication.
+- To me comedy is like being a magician, once they know the rabbit is coming out of the hat they won't care.
+- I have the same mates I always had, I go to the same pub. I've got the same wife and kids and the same house. Nothing's changed.
+- I do get propositions, but you can't take it serious. I'm in me mid-forties, I've got teenage kids - there's no way I'm going to be caught in a Jacuzzi with some girl out of 'The Only Way Is Essex.'
+- 'Skins' was a fun role and I enjoyed it.
+- I still feel I'm living someone else's life.
+- I normally put on Lycra or Speedos to plead with the British public to put their hands in their pocket for Red Nose Day.
+- I wasn't aware so many kids were lacking basic things like a hot meal at night and somewhere warm and safe to live.
+- As an actor, you have to perform the character in the way that people relate to.
+- I mean Ireland, in all honesty I owe Ireland a lot because I think, and I'm not just saying this flippantly, Ireland is probably the reason that I do the job I do because when I started doing stand-up I came to Ireland and I just sort of gelled with the idea of doing it the way I do - telling stories.
+- As soon as I speak, I think people go, 'Well, he obviously must have grown up on a council estate, gone to a comprehensive school and be working class - so I can relate to him.'
+- There's no slowing down but I've got to be honest, I'm probably not going to learn French.
+- I would never claim to be an actor as I have never had any training and apart from being in a panto, before 'Skins' I had not acted.
+- In fact, most married couples who live together would be quite happy to only see their partner twice a year, and to just worry about the color of their seats!
+- I was going through a divorce so I wasn't having the best time, but I wasn't going to the doctor for Prozac.
+- If Jimmy McGovern knocks and you are offered a part, you don't say, 'can I ease myself into it?'
+- When have you ever sat down with your mates and said, 'Look, tell me about your dad?'
+- As a child I qualified for free school meals, so I know I would have been in one of the families that needed help to gain access to a laptop.
+- I was right in the middle of a story and leading to a punch line and then I just heard 'John John' and I just looked around. I could see someone in the shadows walking forward and he said 'John I can't find me seat lad, d'ya know where me seat is?' I looked at him and it was my uncle Dave.
+- When people have a public profile, for whatever reason, nine times out of 10, it's an interesting journey that they've been on to get there.
+- I've never had a piercing before. I thought I'd be cool.
+- I'm not saying everyone who has a problem in their relationship should be a comedian, but I think if you're to work things out you've to get out of the bunker.
+- I don't regard myself as big time.
+- I don't sit at home and craft a joke.
+- As a father I can't imagine the pain of digging my own child's grave.
+- Often you'd find yourself exhausted backstage during a matinee with glitter on your face, asking a colleague, 'Who's your gas supplier?' At the time, I thought, 'This would make a brilliant TV comedy drama.'
+- I won't do routines at gigs that I've done on television.
+- I'm a big believer that if you touch it, you can believe in it.
+- My generation are the neurotic ones. Therapists' offices all over the world are full of patients blaming their parents for their own failings.
+- By doing the comedy you don't get heckled by your own wife.
+- I was at a pharmaceutical conference in Dallas and bored out of my head. I'd split up from my missus and went downtown and had my kids' initials done, JLD, for Joseph, Luke and Daniel. Then I got back with my wife so I had her initials added during the Edinburgh Fringe Festival - after I'd waited a few years to see if the marriage would work!
+- Imagine growing up never feeling loved by your family - the most basic of human needs.
+- I just don't think it's acceptable that any animal should lose its life in pursuit of entertainment, which is also why I believe all blood sports should be banned.
+- Everybody has layers.
+- There was a deficit between what I was earning and what my family needed to live off. I was resigned to the fact that, while I may do the odd night, I was going to have to get a proper job.
+- An accent like mine defines you regionally, but it also gives you a class identity.
+- I want to do straight, dramatic acting so I do a hit show when you get chased by aliens!
+- When I was 30 we had two kids, a third on he way. I was working for a pharmaceutical company. I had been married four years.
+- The idea of being on a show and having a chat, that's one thing but I wanted to do something where you'd have one person and talk.
+- You can't pretend you're not part of the world that you come from.
+- Being a family man has been the most rewarding and the most disappointing thing I have done in my life.
+- Oh, listen, stand-up is my home.
+- I go out with my mates and after a drink they'll ask, 'How are you a comedian? You're not the funniest among us,' And they're right - I'm not even the funniest in our house.
+- I think there's a thin line between pathos and comedy, and I'm not afraid of putting my heart on my sleeve.
+- My job is trying to make people laugh. A room full of people laughing forget their worries, their issues, that's why I find it so joyful.
+- I'm not from the generation that took chances.
+- It's the people and their stories that make Australia great. The scenery isn't bad either.
+- In my comedy when there's a victim, it's me.
+- When I write something down it doesn't look funny to me. It's about the environment, it's all in the moment.
+- I grew up on a council estate. No one was working in our house.
+- I have fond memories of the Grand National, but in recent years, as I have become more committed to animal welfare, I have grown increasingly uncomfortable about an event that every year results in the deaths of horses.
+- I am in my late 40s now, so I wake up fatter than when I went to bed.
+- I've learned more about having more time as I've got older.
+- I didn't want to do comedic acting because I don't think I am very good at it.
+- I was looking for someone to represent me and an agent sat me down and said, 'I don't think there's anything to work with here.'
+- Everyone at Liverpool is committed to the club and working as hard as possible.
+- You have to spend four hours filming a 30-minute program. That seems mental to me.
+- I haven't met a comedian who is judgemental of other comedians.
+- Everything else outside the world - Brexit, the global economy, global warming, everything - nothing matters as much as what's in your house.
+- Comic Relief funds projects that help lift people out of poverty.
+- I can be a little bit of a control freak.
+- What I found absolutely the best thing about comedy is it's a little club. You find yourself part of this strange needy society of people who want to go on stage and make people happy.
+- When I started doing arenas, because of the screens, I was back to getting the reaction of a very small room. If I say something and raise my eyebrow, everyone sees it. So people were laughing at the subtleties that they weren't getting in the theatres. It was really strange.
+- I 100 percent do not see myself as the new Piers Morgan!
+- If you have three children under the age of four, as I did, you have to make choices, because you cannot hold hands with all of them.
+- Something can only go wrong if you know what you're doing.
+- I think there's more to be happy about than sad about on a daily basis.
+- 'Panto!' is basically my life. It's not a comedy drama; it's a documentary. I was going to write an autobiography, but I thought I'd write this instead.
+- There comes a time in your life when you become comfortable in your own skin.
+- When I go out with my mates I'm never the centre of attention. Most of them, and they're probably right, keep telling me they're funnier than I am and I'm nicking their life.
+- I left the school sixth form after the first day because they wouldn't let me wear jeans and I couldn't go home and ask for money for trousers.
+- As a comedian, you have to say something that people relate to, or nobody laughs.
+- Being on stage, telling jokes and telling stories is where I feel the most at home.
+- When I was young, I only ever wanted a job where, when I went home, I didn't have to get a wash.
+- I know what it's like to have nothing.
+- You know what I mean, I'm not Tom Cruise. I can act as long as the character happens to look and sound a lot like me.
+- When I was 10 I had a bone disease called osteomyelitis; they said if they didn't operate, I had 24 hours to live.
+- It's nice to have the family around, as I have been on tour for a while.
+- In 2006, I left my job in sales and marketing to go full-time as a comedian, and I started off doing panto at the Lowry in Manchester.
+- I have worked hard to be all the things that I thought a family man should be, but I probably could have done better by not trying to run a family like I was picking a five-a-side football team.
+- Brexit - I was sick of it when it was all happening. It's off the news now, but when Covid settles down it will just come back again.
+- Some people are brilliant at being comedy actors and if you're a comedian I think there's a perception that, if you're acting at something that's meant to be funny, it will be funny all the way though and you'll be dropping in gags.
+- Sometimes you just have to throw yourself into it and hope for the best.
+- I feel like a bit of a jinx.
+- My loyalty starts and ends at my front door.
+- We live on a two week cycle in our house so if I go away for two weeks, it's too long. And if I'm home for two weeks, it's too long.
+- My kids get annoyed if you ask them what their GCSE results are.
+- I'm the type of bloke who gets a flatpack cabinet from Ikea, puts it together without reading the instructions, then gets the drill out because the holes are in the wrong place.
+- I started at 34 and I didn't go full time until I was 40. When I say started, I mean the first time I went on stage.
+- I love pure joke-tellers, but if I go to see a comedian for a full show, I want to feel I know them more than when I came through the door.
+- I am not entirely against horse racing. I even had a share in a horse syndicate with a few mates.
+- Comedy is counseling.
+- When I took my kids to see the house that we're buying I took them in the car to the estate I grew up on. I got the kids out of the car and explained that this is where they're from.
+- One of my sons has a tattoo on his ankle that was meant to be Africa but looks like Australia, one of my sons mumbles, and one of my sons is a gay man. I'll be honest, there's been loads of nights when me and my wife have sat up and worried and worried and worried, 'What are we going to do if he doesn't stop mumbling?'
+- It's very gratifying sometimes to make yourself the butt of the joke because it bursts your bubble.
+- What made me a comedian was staying on the stage and starting to talk.

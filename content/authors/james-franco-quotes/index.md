@@ -1,0 +1,62 @@
++++
+author = "James Franco"
+title = "James Franco Quotes"
+quotes_len = "56"
+description = "the best 56 James Franco Quotes"
++++
+- I'm going to try to not let anyone put me in a box, and that certainly applies to the things I do outside of acting.
+- If I'm working on a film, I'll do sit-ups for before I shoot. Like, 100 in the morning or something.
+- I don't like sleeping in a bed.
+- I don't cast somebody that I think is like my younger self.
+- Reviews about film acting are very... tricky, because movies are such a collaborative thing.
+- I don't need a vacation in the traditional sense, like I would if I had a job I hated.
+- I used to read a lot about myself and the projects I was doing. When I was only acting, I wouldn't read any reviews because I didn't find them to be very helpful.
+- When we were doing 'Freaks and Geeks', I didn't quite understand how movies and TV worked, and I would improvise even if the camera wasn't on me. I thought I was helping the other actors by keeping them on their toes, but nobody appreciated it when I would trip them up. So I was improvising a little bit back then, but not in a productive way.
+- When I research a role it does get a little crazy and maybe even a little stupid.
+- I'm a big cardigan sweater guy.
+- When I was a child, I wanted to be an actor, but I had really bad buckteeth. I didn't want to get braces, but my mom said I couldn't be an actor if I didn't get the braces. So, I got the braces.
+- In the end, I do have a group of friends and teachers whose opinions I respect, and so I guess I just have to be content with their feedback.
+- Not having any real direction, one writer would lead me to another.
+- When I sign on for a project, I'm there to give the director all the material he or she might need to tell their story, and that's the number one priority.
+- I was kind of scared of failing at acting.
+- I guess what I enjoy most is directing, because it incorporates all aspects of filmmaking. Directing is in the same line as acting - both are popularity contests, and in both you're trying to tell a story through the film as a medium.
+- When I went to film school about three years ago, the first two years you're required to make a series of short films. I started making films based on short poems.
+- I get like six or so hours of sleep a night.
+- I was an English major at UCLA when I was 18, and then I left after a year to start acting. I was educating myself during that time.
+- The new critique you're gonna start hearing about James Franco, is 'He's spreading himself too thin.'
+- Acting is an art form and you want to take roles that are challenged and it's more of a challenge I think to play dark characters. Not that I want to always play those, but it is a challenge and challenges are rewarding and fun.
+- I'm starting to teach now: I teach in the graduate film program at NYU and next year I'm going to be teaching at Los Angeles at the film program and English program at UCLA.
+- Directing, editing, and everything about filmmaking has definitely changed me as an actor.
+- I am not going to be the guy who's not pulling his weight.
+- Of course there are some actors that are better than others and performances that are better than others, but they're always embedded in the greater film. They are mediated through the work of so many other people: the director directs, the lighter sets the scene, the editors edit, the music gets put to it.
+- Because acting was my only professional outlet, I put a ton of pressure on the roles that I did. I overstepped my bounds, I tried to control things that were out of my purview as an actor and in some cases even tried to direct my scenes because I felt I knew how they should run rather than trust the director.
+- It's hard when you're doing a film based on a true story to really figure out what all those relationships were.
+- I view filmmaking as a director's medium.
+- When I started writing after my career as an actor, I knew that that other life in the film industry would be pulled into my writing life and that people would see me not as an author but as an actor starting to write.
+- A lot of the people in San Francisco think of themselves as healers - not just as people delivering this base service, but giving their clients spiritual help. It's almost like being an actor, playing a different part for each trick.
+- You work really hard to make it, and maybe you get some acclaim, but then you realize there are certain limitations as an actor.
+- I acted professionally for about eight years, and I was writing all that time but never showed anybody any of it. There just came a point after those eight years when I thought, 'There's a lot I can do with acting - there are a lot of things I can express and do creatively, but there are also limitations.'
+- I love to bring humour into my work. Because comedy is not a huge part of the art world. And big-business film takes itself very seriously.
+- When I was starting out, doing guest spots on TV, and even commercials, I would go in with a whole crazy wardrobe and some terrible accent. Obviously, I was doing too much. If you bring too much flavor to it, it's absurd. There's something to just being spontaneous.
+- I worked the drive-through at McDonald's and tried out different accents - Italian, Russian, Irish.
+- I become kind of obsessive about research.
+- I feel like because I've done more gay characters, gay scenes, or gay projects than most straight actors, people see it as some sort of mission. It's more of a case-by-case basis, and just trying to capture figures that I love. I guess that a lot of the figures that I love were gay.
+- If the work is good, what does it matter? I'm doing it because I love it. Why not do as many things I love as I can? As long as the work is good.
+- There's a tendency, when you're directing yourself, not to give the performance as much care, because you feel like there's too much focus on yourself, or that all these people are just standing around setting everything up, waiting for you.
+- My name is James Edward Franco. Ted is a nickname for Edward. That's what my parents called me. I also got 'Teddy Ruxpin' a lot. It just got to a point where I got sick of it, so when a teacher called out 'James Franco' my junior year of high school, I didn't correct her.
+- The general view is that actors start on soaps and then maybe graduate to prime-time television or film; normally you don't see a film actor going to do a soap.
+- I still don't like going to bed alone.
+- I needed an outlet in high school and came across painting. I've actually been painting longer than I've been acting. A movie is a collaborative effort, and with painting you just have yourself.
+- It feels really sad, to me, to go to a dark bedroom. It's like surrendering to the night or something.
+- But I don't want to die! I have so much to do!
+- My job is what I love. I don't need an escape from it.
+- There's a tacit belief that actors shouldn't write books, they're sort of allowed to direct movies but there will be a lot of skepticism, and they shouldn't do artwork or music. There are these invisible roadblocks to gain entree to these areas for actors, and you kind of have to crash through those invisible barriers.
+- My favorite role ever was Alien in 'Spring Breakers'.
+- My style is casual-chic? Casual-messy?
+- One of the things I've learned as a filmmaker is to have some aspect of the movie be something that I admire greatly, whether that's an actor I'm working with, the subject matter, or a book.
+- School allowed me to have outlets so that some of the pressure was taken off the acting. Every role in every movie, I used to live or die by. Once I had these new outlets, I relaxed a lot more.
+- The first piece of art that I ever bought-when I could afford it-was a Warhol sketch from the period when he was just getting out of doing commercial work and more into art. It's a sketch of a young guy's face. I guess the gallery that I bought it from thought I would like it because the young guy kind of looked like James Dean.
+- I might have to stumble a little bit more in public than others, but that's fine, I don't mind, I've developed a thick skin.
+- I'm a huge Cormac McCarthy fan and have read every book of his.
+- I don't even like to sleep - I feel as if there's too much to do.
+- I don't go on vacation. I don't really need vacation.

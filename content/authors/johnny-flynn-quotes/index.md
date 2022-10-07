@@ -1,0 +1,90 @@
++++
+author = "Johnny Flynn"
+title = "Johnny Flynn Quotes"
+quotes_len = "84"
+description = "the best 84 Johnny Flynn Quotes"
++++
+- If you're in a garage band, it's about being better than the band in the next-door garage. But in the folk tradition, it's more a vibe of sharing.
+- The world that I know and the world that I come from is from the arts, and my wife's an artist, and I've been a musician since I left college, and there's tons of musicians I'd love to play.
+- Loads of verses don't make it into the finished song.
+- In my early twenties, the whole experience of going on tour was like losing myself in this slightly wild environment.
+- I'm not a funny person.
+- I'm often the one in my gang of friends who's worried about how we're going to get from A to B. I'm the one running around saying, 'Is somebody going to do something about it?' Everyone else is bit more chilled.
+- My only incentive is to write music that changes me, where the process of making it is a discovery and is true in some way, at that moment.
+- Certain films should only be watched at 40,000 feet. Like, certain comedies and certain, uh, emotionally charged movies.
+- I take them both seriously - I don't particularly want to be an 'actor-musician.' I want to play the great challenging parts, to be right for the part, rather than just, 'Oh, he can play the fiddle.'
+- Weirdly, my dad didn't want me to become an actor, he was always quite resistant to it. He told me as much many times. That just made it more attractive to me.
+- My dad was an actor, and he made it all seem quite magical. It felt like a slightly subversive thing, telling stories, when all of my other friends' parents were builders or bank clerks. It's always seemed quite magical to me.
+- As a jobbing actor or musician, you have to take any work you can get.
+- I don't really write songs. They're just there anyway, chiseling away at the atmosphere, and suddenly they're like, 'Oh, thanks for coming. Thanks for finding me. We'll share each other now.'
+- I had a series of jobs in the small fishing village in West Wales where my family lived when I was a teenager. I worked as a fisherman in the day, and then the skipper and his wife ran a small restaurant - she'd cook the fish he caught.
+- I actually do bits of my writing in sort of incidental spaces - when I'm traveling on the Tube or on a bus. More often than not, it's a reaction to how you feel about something, and if you're sitting down and concentrating on, 'I must write something,' then you can't have a truthful reaction.
+- I've never done anything like 'Brotherhood' before. It was a great challenge to take up a part in a live audience sitcom - it was amazing.
+- I first came across Langhorne Slim when I saw him play live, and he's an incredibly infectious performer. The way he works the crowd is mind-blowing. You can listen to his music without really listening to his lyrics, but it pays off if you do.
+- I'm obsessed with pilgrimages. I love following old routes, imagining the consciousness of those who walked them.
+- There's something amazing about 'Fawlty Towers' and 'The Office' only being two series. I think, when you really nail it, you don't need to do more than two or three.
+- I really love a lot of early Sixties R&B, rock n' roll, and I love performing songs that have that power and soulfulness.
+- Not listening is the reason for so many misunderstandings and conflicts.
+- I imagine that, for most people, acting isn't something they think is a viable option, whereas for me, it was the most viable option. No adults around me knew how to do anything else.
+- I just said, casually, 'You know, I passed up on auditioning for Einstein.' And my friend was like, 'You idiot, you have to do it!' She made me do it. I sent the tapes off assuming that somebody would say, 'Ha ha, very funny.'
+- Folk music - and what people are now perceiving as being folk music - is music that's quite close to the ground. The songs sound quite old, even if they're new. They sound like they've been sung by different people for years.
+- I like getting older. I always looked younger than I was, and I found that people wouldn't give me the room to speak. The older I get, it's like, 'Oh, I'm still talking, and they're still listening.'
+- My guitar is a 1934 National Trojan. They call it a resonator, which is the guitar guys played in the honky-tonks before amplification. It's very loud. It's the type of guitar that Son House and Robert Johnson played.
+- When I was young, I was being pushed, against my will, towards becoming a classical musician. I had music scholarships; I had to play the violin and do orchestra practice and that sort of stuff. That meant I didn't get to do any school plays. I desperately wanted to do that.
+- I can't remember a 'best gig,' and my brain doesn't work in absolute terms like that.
+- I played trumpet for Noah and the Whale a couple of times.
+- In my mind, there's usually a fairly definitive kind of narrative when I write. But I don't want to enforce that on other people. I think that's why I like using metaphor so much.
+- Taking someone else's language and fitting it into your own speech - you learn a lot about other people's brains, doing that.
+- I'm a big Bob Dylan fan. I'm also a blues geek.
+- I fell in love with the legend of Paul Robeson as a kid. My dad would tell me all these amazing stories about his life and, bizarrely, ended up singing to Robeson on his deathbed.
+- I grew up playing classical violin and a lot of Bach and Mozart and the things that Einstein loved.
+- The pop industry is so well-practised at channelling young people's creative energy that I think it gets abused.
+- I've been cast in a lot of comedies. I've done things like multi-cam sitcoms: you know, 'Seinfeld' type... not as good as 'Seinfeld,' but that kind of thing. I love that stuff.
+- We had no money, my dad was out of work a lot, and we never owned a house. It was very hand-to-mouth.
+- My dad was working class.
+- I think everyone in their 30s looks back at their 20s and thinks, 'Oh God, if I'd just done this and this, and not done that.'
+- I have a classical music background. I studied violin and trumpet.
+- I think Bob Odenkirk is phenomenal.
+- It's great being an actor and being part of a play or a film where there's usually quite a big group of people who are collaborating, and your job is really to fit in and share that energy. With music, because I write the songs, it's a broader, more abstract process.
+- It's interesting to marry American musical traditions with the subtlety of English-style storytelling and folk singer-songwriters like Martin Carthy and Bert Jansch - they're two heritages that are distinct but also cross over on so many levels.
+- I feel really lucky that I somehow have blagged my way into loads of different experiences. I find making a film fascinating, I find making a play amazing, and working with my band and scoring things... it's all really cool. I'm just a glutton for experience, really.
+- I sometimes self-edit when it comes to auditions and go, 'They're not going to cast me, so I'm not going to do it.'
+- I always love going to New York.
+- It's not in the mainstream media, but across towns, it is amazing how there are small groups of people getting together and forming artistic collectives - they may not be being overtly political, but I'd say by channelling their energy into community projects, that's a valid political statement.
+- I guess I started writing poetry and stuff and then decided to set it to music.
+- My dad was an actor, and he always said that work was work; you can't turn your nose up at it. We didn't have much money when I was growing up, and he had this real work ethic, which I inherited.
+- The reason I stopped music for a while and concentrated on theatre was that it was more conducive to parenting; having the days free was quite handy. I love them both. I hope I don't have to compromise one for the other.
+- I had to learn how to work in a studio at first because it's a totally different creative environment to the 'bedroom recordings' I'd done before, where I could translate my own ideas without having to explain them to anyone.
+- I think the two are kind of synonymous for me; songwriting is like my form of diary making. It's how I process the world. Without doing that, I feel kind of lost. The characters that I play often come out in the songs and the challenges that they face, albeit in an abstract way.
+- I did a lot of theater as a young actor in my early twenties, and my first few records really came from writing songs through the rehearsal processes.
+- Music always gets bumped until I have some time to get around to it.
+- I think the truest things come from silence, but everything's always so clogged up with noise. If everything falls away, and you can truly listen to someone, giving them yourself and generosity, you can truly lose yourself in what they're saying. Like, not impose your ideas on what they're saying, but really tune into them.
+- I've always identified as an actor. That's what I set out to do.
+- My father was an actor. Both of my older brothers are actors. My younger sister is an actress. For me, that's my job; that's my craft. But then all through school and through drama school, I was gigging and running nights and playing in bands, and I just didn't want to let that go.
+- All the adults in my family were actors, so there wasn't much else in terms of role models. I fell in love with that world, being backstage at the theatre.
+- I'm not a fan of taking too long in the studio. I always do one vocal take and jump out of the control room, and people push me back in... It's a real turn-off to hear things that are too polished. I feel like I've almost fought for the right to be that kind of musician - we used to be on a major label, and now we're on an indie.
+- Westminster politics is very unattractive, and people are channelling political energy into more inward questioning - there are a lot of musicians whose songs are all about feeling, and it's almost like that's the only safe place to express yourself.
+- I try and stay in my right brain as much as I can, but my left takes over.
+- What's quite nice about this whole folk movement is that it's born out of genuine friendship. And nobody's infringing on anybody's space.
+- A lot of the work I've done has involved playing quite sympathetic characters.
+- My thing about demos is that you usually prefer them to the finished thing.
+- The thing I find really special in performance is that there is this slightly mystical thing that takes over when you're responding to a crowd and engaging in people's imaginations collectively in a room. I've always thought that one of the most incredible things about being alive is going to see some kind of performance like that.
+- I like the idea of letting the music do its own work and the stories being more expressionful - if that's a word - in people's imagination. I've just got a thing about people and songs telling you how you should feel.
+- We all have these shades in our nature: it's a spectrum within all of us.
+- I'm a huge David Hockney fan.
+- The truth is there's always a hum of people playing folk music in cities.
+- I'm married to the girl that I first went out with when I was 16. We were on and off for years; now we're married with a kid, so I don't have that many exes.
+- Diane Cluck is part of the anti-folk movement in New York. She's got a really haunting voice, and she usually sings in the pentatonic scale.
+- If you're trying to do something wholly new, it's hard to fully trust it. But if you use forms that have come before, it lends your music weight and authority. It's also a way to acknowledge that it's not just you who's feeling these things. The emotions are coming through you from a whole history.
+- I'm not that politically educated.
+- When I first moved to London, there was talk of a folk revival, with annoying names like nu-folk that made me feel slightly ill.
+- I find it hugely exciting to be dealing with another writer's language.
+- Our job as actors is to invent the things that bridge ourselves with the characters, so you have to build something if it's not there - you try and learn what makes people behave in a certain way.
+- The Band mean a lot to me in terms of what I aspire to achieve with my group, as the music they made went against the fashion of the time.
+- It's great to be able to write songs and draw on life, to write truthfully, and to be able to do that, it's good to be exploring other stuff as well.
+- The moment you have children, it's like your heart gets out of your body, puts on clothes, and walks away.
+- I like really bad puns - proper, red-top, nasty puns - I find them funny.
+- I'm not really interested in myself in my writing. I can't see myself in the songs, even though I know different parts of me are there.
+- Bob Dylan has and Einstein had their own way of perceiving the universe and translating it for us.
+- You might as well acknowledge what came before, because you can never do something wholly new. It's not unoriginal to make your references clear.
+- I definitely asked too many questions of my teachers and was probably a bit facetious at times.

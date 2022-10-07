@@ -1,0 +1,49 @@
++++
+author = "Manny Mua"
+title = "Manny Mua Quotes"
+quotes_len = "43"
+description = "the best 43 Manny Mua Quotes"
++++
+- I was very sheltered growing up, so the only real beauty exposure I had was my mom. And still, to this day, she is my number 1 beauty icon.
+- I did have pushback in the beginning of my career because my parents weren't really sure what I was going to do with my life going in the route of makeup. I was planning on medical school, so when I threw the makeup wrench at them, they were not expecting that.
+- I want to become successful and represent a different form of beauty in my generation.
+- Stay hydrated! Thats the most important thing, in my opinion. Drink plenty of water, and use moisturizer every single day.
+- I'm a YouTuber; I want to share my information. I want to share my tips and tricks and hacks and everything I possibly can with my audience because they've done so much for me.
+- I want to act. That'd be so much fun.
+- Everyone grows at their own pace, and you shouldn't compare yourself to anyone.
+- I've gone through all of it: I've literally heard every single name in the book be told to me. So don't be discouraged by anyone as long as you're confident in yourself, and just keep doing what you're doing.
+- I was so interested in makeup, but I was pressured to follow what my family and friends wanted me to do.
+- I feel like lip balm is something that you need to have. The worst thing ever is having dry lips.
+- Don't be scared of what people will say.
+- I feel like makeup is a part of me, but it's not who I am completely.
+- I would say the hardest part in the Latino world is approval from your parents. It's such an intense thing.
+- I think that the social media space is great because that's where my bread and butter is, but I want to jump into doing traditional media and other fun things.
+- Don't let anyone stop you from doing what you are doing, from your dreams and what you want to do.
+- I'm a beauty person on YouTube, and I'm very, very, very hyper-aware of things, and I like to dive into products and just really go in and hone in on products - whether I think they're worth the money or not.
+- When I was starting off in the beauty world, it wasn't easy. My family wasn't the most forthcoming. My friends didn't understand what I was doing or why I liked doing it.
+- I believe that society needs to be more open and accepting of things that are seen as 'different.'
+- Honestly I believe that men can wear makeup, teach makeup, and vlog about it just as much as girls can, and I am fighting for that equality with my channel.
+- Brands started approaching me once I had 800,000 YouTube subscribers. Some girls were getting offers with only 300,000.
+- You can always use a toilet seat cover from the stall. It will absorb excess oil, and if you add powder on top, your makeup will be completely refreshed - even if you've been wearing makeup for 6 hours. It's a cool trick to get your makeup looking perfect all over again.
+- I always thought makeup was a beautiful thing, the transformation of it. If someone felt insecure about something, they could put on concealer, and it would change their entire day.
+- I didn't start wearing makeup until I was in my early 20s, so I never realized that makeup 'wasn't for boys,' as many social norms say.
+- I want people to see that you don't need to rely on other people to make your dreams happen: you have to grab them yourself.
+- I'm a member of the LGBTQ community, and I feel like we need more representation. In the makeup world, especially, it's always been really, really hard for men in beauty to kind of be seen in a way beyond being a 'fad.'
+- I went to a counselor for years, and it wasn't the kind of counseling to help you - it was the 'Let's make you straight' type - but counsellors can help.
+- It was hard to get my name out there, but luckily, I have an awesome following who would not stay silent and helped me get to where I wanted to be.
+- The time I felt most beautiful was probably when I was in college, and I was starting to accept who I was as a person. I wasn't hiding who I was anymore, and I was like, 'You know what? I'm growing up; I don't have to follow the rules anymore.'
+- I love using blotting paper when people are oily in the T-zone.
+- I decided to start my channel because my followers on Instagram told me that they wanted to learn how I did the looks I was wearing! So I started YouTube for my Mannyacs, and the rest is history!
+- At the end of the day, makeup comes off whether you're a man or a woman; why discriminate against men, when makeup is such an amazing form of artistic expression, just because society says it's not 'normal?'
+- Beauty can grow as a whole, since you shouldn't copy other people.
+- I'm a beauty guru, and it looks fun and crazy, and, like, I have the most fun life ever, but that's not always the case.
+- I feel like men in beauty have to work a lot harder just to get credibility, because it's such a women's world.
+- When my publicist told me I was going to be in 'People''s Ones to Watch as Maybelline's honoree, at first I was in shock. Then I thought, 'Wow. This is really happening.' I just feel so happy and honored that they would choose a boy in beauty.
+- Myy mom is the woman who inspires me the most. She's Latina. She's definitely my Latina inspiration.
+- I'm not really into cool tones personally.
+- Looks aren't everything, obviously, but there really is something to putting on a full face of makeup and really feeling the glam!
+- As a child, I would watch my mom get ready for work and just sit there for hours watching her transform. However, it wasn't until much later on that I really started to dabble in makeup myself.
+- To me, being beautiful is just accepting myself. I feel beautiful when I'm wearing makeup; I feel beautiful when I'm not wearing makeup.
+- When I was a young boy, I would watch my mom apply her makeup, so one day, I took a lipstick she had and put it on my mouth, trying to imitate her. It ended up all over my face.
+- I've always been consumed by things that are out of this world, like space and moons.
+- Sometimes people have to go through hard times just to get to a happy place.

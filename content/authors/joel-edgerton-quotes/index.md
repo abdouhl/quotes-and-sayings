@@ -1,0 +1,170 @@
++++
+author = "Joel Edgerton"
+title = "Joel Edgerton Quotes"
+quotes_len = "164"
+description = "the best 164 Joel Edgerton Quotes"
++++
+- I blame my work for a lot of things. I thank my work for a lot of things, too, but the trouble with being so passionately involved in work is that it becomes like a lover, like your partner, because it nourishes you.
+- Whenever you deal with science fiction you are setting up a world of rules. I think you work hard to establish the rules. And you also have to work even harder to maintain those rules, and within that find excitement and unpredictability and all that stuff.
+- Part of me wonders what it would have been like to have had my first experience of India in a normal way, rather than through the eyes of a film.
+- There's the pressure of being a No. 1 on the call sheet, being a lead actor. There's almost this feeling like being captain of the team. You want to put a bit of energy into actually setting a good example.
+- Getting the call from Ridley Scott made me think that sometimes you just need to go to work.
+- So many people wait around for funding, and if they're unsuccessful, they don't make the film; if you've got a good idea, that seems so pointless. There's always a way of doing it; you've just got to find it.
+- I couldn't do 'Eleanor Rigby' because it was clashing with another project - something I was going to go do - something with Liv Ullmann.
+- It's tricky. I've never been standing at the top of the tree with tons of money thrown at me. I've never really had a profile. So in a way I have this 'nothing to lose' attitude.
+- It's weird: I don't see myself as a tough guy.
+- Some people are really good at playing the movie star - they are really good at cultivating that mystique - but I'm not really into that.
+- I never imagined myself in a movie with magic.
+- I do know one thing: it's best not to read the Internet.
+- I oftentimes find with movies that the heavier the onscreen situation is, the more levity there is off screen. It's almost out of necessity.
+- I had a bit of a martial arts background from when I was a teenager: I did a bit of karate.
+- I don't want to be too power-hungry.
+- I don't appreciate, really, talking to journalists when there's a sense of wanting to kick up dust to sell more papers or get more hits on their Internet site.
+- Actors are excused from a lot of things, and we get away with a lot... I find it equally interesting and exciting as it is disgusting and bizarre.
+- I think the great thing about characters is the ways that they can be surprising. I mean, sometimes you think you've got a lock on a personality, even just in life, and then they'll shock you by their behavior.
+- I'm a bit of a workaholic.
+- What makes a really great fighter is a combination of ingredients: one is everything physical that you can do, and the other is what's mentally there for you. And I think that comes down to how big your heart is and what's driving you.
+- I don't want at the end of my life to look back at just a bunch of fictional movies I was involved in that kept taking me away from the real world.
+- I think the great thing about religion is it's there to teach us the good path and that we're all equal, that we should be treated as such.
+- I often put any project I write in a different decade just to roll the thought around in my head. There's a thriller I've written that I think would be nice to set in the '70s or '80s, just to take cell phones away from the movie. There's nothing like the piercing ring of an old-school telephone to really scare an audience.
+- The nature of human beings is that we're competitive, and the chances are there's someone out there who's going to work harder than you and want it more than you.
+- I came out of high school, where my heroes were, like, Michael Jordan and a lot of local rugby players - and on the movie front, it was Arnold Schwarzenegger and Sylvester Stallone.
+- Whenever you're trying to do your own take on a classic piece of literature, it's almost like you're trying to swim up your own stream or drive down your own path.
+- Every job leaves its residue, a bit of extra knowledge, a new skill-set.
+- It's an incredibly liberating feeling to have a skirt on. In fact, I know you can buy skirts, and you can buy work kilts and all sorts of stuff.
+- I spent a lot of time outdoors as a kid.
+- I think it's great to be able to go and watch a short film before you watch a feature.
+- Gene Hackman was a superstar in the '70s - with that face!
+- I thought I'd be married and a father by 35.
+- The little bit of buzz around 'Warrior' led to a lot of opportunities anyway, before the movie even came out.
+- Where does guilt and punishment lie, and are we not more expressive over remorse or guilt when other people see the badness in us?
+- There's a real sense of fighting and destruction in our DNA that we don't get in touch with.
+- Every now and then, I have a deep thought.
+- I wasted too much time in my twenties. I worked, but I would do theater in the evening, and during the day I would surf and do irascible things. And then, for some reason, as I got closer to my thirties, I thought, 'Okay Joel, you've wasted enough time.'
+- Even to this day, when I think about the fact that I'm in this 'Star Wars' world, that I'm a half-brother to Darth Vader and an uncle to Luke Skywalker, it's too hard to wrap my head around.
+- As an actor, I'm constantly striving to find the darkness in the lighter characters and the lightness in the darker characters.
+- It feels good to be fit and strong.
+- There's a certain relief to just being the guy who puts on the costume and walks onset and gets to prance or stomp around in a Ridley Scott or Baz Luhrmann movie.
+- I did my holy communion, and it was amazing how quickly the stories of the Bible and God and Jesus got under my skin.
+- Having rain on your tuxedo is a pretty good reminder that you're not James Bond.
+- I love the idea of real-life experiences finding their way into fiction. I think that's really cool.
+- You have to stick to what you love and purse that at all costs. Don't choose money first; it won't make you happy.
+- When you're constantly involved in domination, what you're really looking for is constant highs.
+- I think the life of an actor is very glamorous to other people - then, realities set in.
+- I don't necessarily see myself as an experienced filmmaker just because I've been in a few movies.
+- You can road-test relationships.
+- To me, I think I'm just going to keep focused and forward on what I'm doing, work-wise, rather than searching for any kind of meaning in it.
+- Sometimes I just wonder if I'm being led by variety. If one film leads me down one path, sometimes I just want to turn around and head the opposite way for the next project. I hope that's not the case, but sometimes I suspect that.
+- Sometimes Hollywood manages to knock a movie in its teeth so hard that it never manages to get back up.
+- Gavin O'Connor, I'd walk into a fire for that guy. He's a brilliant filmmaker and a passionate man.
+- What an audience decides about where certain characters come from is really up to them.
+- The best jujitsu practitioners are really serene and grounded.
+- I love what I do, but it occurs to me I may have handed over a large portion of my life to fiction.
+- I operate under the theory that all publicity is good publicity, and then, if that theory doesn't work, you just say that any newspaper article ends up on the bottom of the parrot cage. But, of course, you can't line a parrot cage with Internet bloggers, can you?
+- I can't sing or dance.
+- Sometimes, the smaller roles in movies can be the most interesting. If you only take the stance that you'll only play central characters in movies, you'll find yourself not being able to indulge in that morally grey terrain that makes support characters so rich and interesting.
+- I never really think too much about my voice.
+- The Australians are actually the worst of the criminals from the United Kingdom, but not worst as in toughest. They're the ones who did stupid little things and got caught for it. Bad criminals.
+- I love so much what I do that I spend so much time thinking about it, and then I go home, and then I'm thinking about it, so it's nice sometimes when a movie is over, and then the niggling feelings about whether you've did it right or not start to ebb away.
+- Unfortunately, the Egyptians weren't the greatest artists in the world.
+- The narrator of a documentary often comes in at the last minute and takes some of the glory they don't deserve.
+- People talk about the difference between working on stage and working on film. I think you could say that there are as many differences between working on low budget films and working on big budget films. You really are doing the same thing, but at the same time you're doing something vastly different as well.
+- I don't have any kids of my own.
+- I remember being bullied at school, and I remember being cruel to other kids.
+- I'm the great-great-grandson of a sheep stealer.
+- I think I'd be too scared to direct my first movie and put myself in the center.
+- The tricky thing becomes: Do you know yourself well enough to then portray that on screen? And for me, I find that really hard. I'd rather hide behind accents and funny walks.
+- I have this theory that alpha males are actually not alpha males. They're actually very scared - particularly scared of competition from a lot of men.
+- 'The Great Gatsby' ticked so many boxes for me.
+- I have always stuck to my guns about what I want from the work and what interests me. I've never been seduced down the evil path. The path of taking the money.
+- I really believe guilt finds its way out of a person.
+- I just don't want to do crap movies, man, because I just love that I can get up and talk about them and talk to journalists about stuff that I'm really proud of.
+- I'm a great believer in not sitting around waiting for the right part to come around, but jumping in and building it for yourself.
+- There's a stage where you're desperate to get a job, and you're waving your hands in a sea of nothingness, going, 'Please, please, please! I'm over here - give me a job!'
+- I reckon I would be able compare anything to anything else if you gave me enough time.
+- People love boxing, but you've gotta wait two or three years for your favorite boxer to have a fight.
+- Actors want to act; actors want to emote. It's like the emotional equivalent of tearing your shirt off and screaming to the heavens: you want to express, and you want to be seen to be expressing.
+- I had a brother who was bullying me to write something because we wanted to make our own movies. So it was out of necessity in the beginning. Over time, I began to see that I could create the roles I wanted to play rather than just waiting around.
+- I tend to take on a lot of things. And then they all just seem to happen at once. Or maybe I'm not good at saying 'No'. But the juggling's fun.
+- That's one of the great privileges, being an actor, is that someone pays you and sends you off to learn about something that otherwise you'd never know about.
+- I just love good movies. And not every movie you're going to end up in is always going to turn out right, but at least walk into it with the right intention.
+- Particularly when you're making a movie of a book, people are always waiting with their knives - you know?
+- I was a good boy; I was never in trouble for anything.
+- I think the life of an actor is glamorous to other people, but then the reality sets in: you don't know where you will be next year or how long you'll be there for.
+- If I'm going to work for twelve hours a day, I want twelve hours of awesomeness!
+- I grew up being taught, 'Do unto others as they would do unto you.' I would get scolded for not being polite.
+- I'm really great at making terrible analogies.
+- My whole journey and career has been really interesting, but the one element it never really had was any sense of great momentum.
+- There's never been a mathematical equation that says a good experience making a movie equates to a good movie, or a bad experience on a set is going to lead to a bad movie.
+- 'Animal Kingdom' feels like a suburban Melbourne version of 'The Godfather 'to me. It's epic and Shakespearean in its story, and yet you still feel like you can reach out and touch it.
+- I would have happily done 'Bourne Legacy,' but a lot of decisions are made for you.
+- Blue Tongue Films is a very important part of my life.
+- I had a black belt in Shotokan as a kid.
+- All I can say is working with Ridley Scott is a dream come true.
+- One of the great joys of being able to write something you can make, if you get certain actors you want and love, you're kind of buying yourself a front row seat to watch them work.
+- I worked for a big department store, and strangely, on my first day, they put me in charge of Christmas wrapping. I didn't know how to wrap a present and make it not look like it fell off a truck.
+- When I was young, I had a very clear point of view on things in life, on moral questions. There was a black and white viewpoint on my world. As I've gotten older, I see the grey areas appear.
+- I have an issue with the commercial aspect of moviemaking: I don't see why a movie can't make a lot of money and also be good.
+- Everybody's a mix of good and bad choices that they make.
+- This is the world we live in, isn't it? Tons of spin-offs; people reboot things very quickly. I was amazed how quickly they made a Wolverine movie, then, 'Let's do another origins Wolverine movie.'
+- It's easier to play aggression and malevolence onscreen, often, than to hit softer notes.
+- There's definitely a fascination with crime stories and stories of characters acting out against authority.
+- Sometimes I think being an actor is like being a dog for a director; it's like they throw a stick, and you want to fetch it and bring it back to them. You want a pat on the head for it.
+- We are people in circumstances who make choices that we think are right at the time.
+- I wanted to make a movie that was kind of a tribute to the way I feel when I watch a John Hughes movie.
+- I never sing out loud because I'm afraid people will go, 'Shut up!'
+- Sometimes, what's not said is just as important to the writing as what is said. As a writer, we have our voices heard. I think that, at oftentimes, the ability to allow the dialogue to recede properly into the world of the film is also a really valid sort of way to be a writer, I think.
+- Some of us are better at owning the responsibility of our actions than others.
+- You can't really be picky when no one is offering you anything.
+- One of the things I've always enjoyed is moving around and staying fit. Physicality is such a big part of being an actor, but it's also about stillness and silence.
+- I did have someone tell me that I looked like Conan O'Brien. I was like, 'What?'
+- I'm on the list that I thought I'd never be on. I'm not sitting here thinking, 'God, I might get this part' or 'is it too late for me to play Hamlet?' It's really about: who do I get to work with? There's so many people on that list.
+- I've signed four autographs for Sam Worthington in L.A., and I haven't told any of the people that I'm not him.
+- I'm a pacifist.
+- I wanted to make a redemptive thriller that didn't end with some kind of big, crazy shootout and blood spill, but more of a collision of ideas and a discussion of ethics.
+- To me, 'Warrior' was a real turning point - probably one of the greatest experiences I've ever had as an actor on set.
+- A lot of the fighters will say you'll know if a fighter's won or lost just by a fighter's eyes - whether they're scared of the other person.
+- My brother and I are best friends.
+- I'm not saying I'm a family guy, but maybe that's what people see in me: some kind of paternal quality.
+- The sum total of all my stop-starts have made me less concerned about the future. I'm just aware now that I'll always land on my feet somehow.
+- Polo is like playing golf with a saddle, and there are a lot of moving parts.
+- If I knew my schedule a month ahead, I'd be so bored.
+- I learned a great lesson early on, even before I was really an actor, from that movie 'Planes, Trains & Automobiles' that John Hughes made: that you could make a movie that's really, really, really, really funny, and sometimes you can still achieve... making the audience feel very deep emotions as well.
+- Whereas 'Avatar' and other movies get shocks out of their three-dimensionality, 'Gatsby' is going to be about inviting the audience into this larger-than-life drama, letting them almost be inside the room rather than looking at it through the window. I think it will really work.
+- I really like kids.
+- I always kept myself fairly fit.
+- Fighting in the ring or cage is very much different from fighting in the street. Fighting in the street is very much fueled by anger, pride, and male dominance and ego.
+- I remember my brother Nash had just directed me in 'The Square,' and I was sitting in Australia going: 'No one's called me about working for ages. I don't know if I'm ever going to get another job.'
+- Everything is a learning process: any time you fall over, it's just teaching you to stand up the next time.
+- I don't call acting a real job, and writing is a hobby.
+- Pittsburgh felt like the perfect size of a city to me. There's enough to do, but it's not like living in a circus. I also really loved how sports-enthusiastic Pittsburgh people are: how proud of their sports they are.
+- I've never seen a film get away completely unscathed like I have 'Animal Kingdom.' There's not a single bad review that I've read of it yet; all through Sundance, all it got was high praise.
+- I always wonder why people cast me in anything.
+- I'd never really imagined myself as an action star.
+- Part of the privilege of being an actor is the people you get to work with.
+- I was raised Catholic, and I remember in all the pamphlets and pictures we'd look at, Jesus was basically blonde with blue eyes. He kind of looked like Jared Leto.
+- The biggest difference for me is momentum. On a smaller film you get to shoot sometimes four or five scenes a day and you've got to do the tight schedule. I think I really feel the luxuries of a big budget film.
+- To act with a tennis ball and imagine it's a tentacle, or if you're in some kind of wilderness film and you go, 'Okay, we can't have a grizzly bear here, but imagine when you step over the rock there there's a grizzly bear.' I don't know. They're tough moments.
+- I learned so much by being an actor, and part of my sort-of development as a writer is big thanks to the scripts I read in my acting life.
+- Pulled pork jokes never get old.
+- You've got to be really careful that you're not falling into the Hollywood trap, you know?
+- The first video I ever watched was on a Beta system because everyone thought Beta was the way but then it ended up being video so we backed the wrong horse.
+- Cultures render their icons in their own image. Which comes down to vanity, in some sense.
+- I'm not going to allow myself to second-guess projects. I'm just going to do the ones that I fully love and believe in - that's a real privilege.
+- I'm pretty skeptical about Hollywood and its fascination with the sequel and the franchise.
+- In Australia, there aren't a lot of people committed to art, so these communities form that are dedicated to music, theater, cinema, but they're very small. So, they tend to move ahead on the power of collaboration, enthusiasm and creativity.
+- I'm single, footloose and fancy free, I have no responsibilities, no anchors. Work, friendship and self-improvement, that's me.
+- Stunt work offers a diversity of roles and, while I'm used to anonymity, I really like showing off and performing in front of camera, though I know my limitations.
+- Really, no-one is bad except for serial killers and dictators.
+- If, at the end of the day, I can look back and see pictures of all the characters I've played, and there's a smorgasbord of weirdos and interesting, odd, different characters, I'd be so happy.
+- I'm hardly digging trenches for a living. I'm getting to tap into my boyhood fantasies of being a larger-than-life character.
+- Australians and the British are very similar: If you try and stand out in any way, and you try to reach for success, someone is gonna be there to cut you down.
+- I find it strange when people can't relate to kids, because you were a kid once, you know?
+- The downside to making movies at a gallop like we did with 'Wish You Were Here' is that we're shooting four or five scenes in a day, and it's very exhilarating, but you worry at the end of the day that you missed some details because you were moving too quick, and you just gotta trust and be ready straightaway.
+- Making a movie like 'Felony' is hard work because you're really putting your own ideas on the screen. You can't hide behind some other person's script; you're saying, 'This is my brain, and I want you to know what I think'.'
+- I always kind of aim with the action stuff to make it feel like, as an audience member, you're experiencing what the people are experiencing. As soon as you go into slow-mo or repeated edits, shooting it like it's a stunt, it takes it out of that reality. The more real you make that stuff, the more tense it will be.
+- To me, Hollywood seems a little bipolar. Things happen; things don't happen. Someone's in a movie; someone's not in a movie. I've learned not to build my expectations.
+- The only way for you to show what you can do is to actually do.
+- One wrong move, and you destroy your career.
+- I think, often with Australian films, if an Australian film has been given the seal of approval by an offshore festival or an offshore release, then it does mean a lot to a local audience.
+- It's funny how sometimes you learn things off the Internet before they're actually told to you.

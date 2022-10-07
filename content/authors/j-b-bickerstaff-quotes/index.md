@@ -1,0 +1,37 @@
++++
+author = "J. B. Bickerstaff"
+title = "J. B. Bickerstaff Quotes"
+quotes_len = "31"
+description = "the best 31 J. B. Bickerstaff Quotes"
++++
+- You go with what you got. That's the thing about having a system, then you plug guys into your system.
+- You can have old guys who aren't willing to be coached just like you can have young guys who aren't willing to be coached.
+- Grinding is a mindset and a willingness and commitment to work at it.
+- Whenever someone great passes, all of us have a loss.
+- No matter what your job is, you know that you need to have a routine, that you need to be disciplined, you need to work.
+- Through the regular season, if you get really good at what you do, teams will have a hard time adjusting to you.
+- As an assistant coach, the wins and losses don't tally up on your record, so you don't necessarily have that to fall back on, so you have to find smaller games within the bigger picture to play in order to get your victories.
+- It's always fun when you get to go somewhere new and you get to meet new people and get new experiences.
+- Some guys, when they play with other elite players, they end up being too unselfish; or guys who are used to having the ball in their hands all the time, now they're not as aggressive or as instinctive because they're thinking too much out there.
+- If you look at the teams that mix and match their starting lineup a great deal, that sort of inconsistency frequently leads to inconsistency in performance.
+- I'm always for constructive conversation, meaningful conversation, not just words, but conversation.
+- Small ball, spacing, shooting 3s, is something that everybody's trying to do.
+- Every day, you learn something. That's the same as assistant coach and the same as a head coach. You should continue to learn. You watch so much basketball, you should see something somewhere from somebody different all the time.
+- During the regular season, you don't have the sort of time you do in the playoffs to prepare for people, so you've got to go to your strengths.
+- I hope I continue to learn. If I don't, then I know everything.
+- As a coach, the more experience you have, the more you're around players, it helps so you see how guys learn, ways that are effective to reach different people. You see the aftermath of all the things that happened; you don't just see what happens at the game, you see what happens after the game, the followthrough, and those types of things.
+- It's not the way you want to get a job, to see someone you admire and look up to and learned so much from get fired.
+- I watch a ton of movies. Going way back, I like 'The Godfather.' 'The Matrix' was one of my favorites - the first one; they got a little carried away after the first one. Those are two that stand out.
+- My dad always took over teams, except for Washington, that were rebuilding, and you hear the taunting, the jokes, negative, awful things about the person you love. That hardens you at a young age.
+- When you want to win, and you want to go to work every day, you want to work with high character people; you want to work with classy people.
+- Any good defensive team has a strong anchor, because he cleans up mistakes.
+- Let's face it, first-time assistant coaches normally don't walk into jobs with two perennial All-Stars on a team that just got bounced in the Western finals. Normally, they get a job in the middle of a year, playing for lottery balls.
+- It's hard to argue with a coach who says, 'I just want you to work.' What can you say to that without making a fool of yourself?
+- Conflict resolution, all those things, are important. When you're in a group environment, you have to have those. If you don't, things fester. Have the conversation. Resolve it. Move forward.
+- My dad traveled so much for work that, when he was home, we always wanted to spend as much time with him as we could, so going to practices and doing stuff like that with him took precedence over Saturday morning cartoons. We'd go to practice with my dad just so we could be a part of it.
+- You don't win without talent, but your talent has to have purpose.
+- We're all smart enough to figure out Xs and Os - it's basketball, it's not advanced calculus. But the most important thing is can you get your message across to players? Do they believe in you, and do they want to compete for you?
+- My brother and I used to laugh and say, 'Normal kids went to day care, and we went to the gym.'
+- I'm a big believer in communication.
+- A lot of times, people think of selfish, and they think of offense, but you can be selfish on the defensive end of the floor, too. If you don't uphold your end of our schemes and your responsibilities within those schemes, then you're being just as selfish.
+- Nothing is ever perfect in the NBA.

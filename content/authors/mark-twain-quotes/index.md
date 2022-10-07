@@ -1,0 +1,217 @@
++++
+author = "Mark Twain"
+title = "Mark Twain Quotes"
+quotes_len = "211"
+description = "the best 211 Mark Twain Quotes"
++++
+- I don't give a damn for a man that can only spell a word one way.
+- Giving up smoking is the easiest thing in the world. I know because I've done it thousands of times.
+- The Christian's Bible is a drug store. Its contents remain the same, but the medical practice changes.
+- Truth is the most valuable thing we have. Let us economize it.
+- Under certain circumstances, urgent circumstances, desperate circumstances, profanity provides a relief denied even to prayer.
+- He is now rising from affluence to poverty.
+- If you hold a cat by the tail you learn things you cannot learn any other way.
+- When people do not respect us we are sharply offended; yet in his private heart no man much respects himself.
+- Work is a necessary evil to be avoided.
+- Noise proves nothing. Often a hen who has merely laid an egg cackles as if she laid an asteroid.
+- The secret of getting ahead is getting started.
+- To refuse awards is another way of accepting them with more noise than is normal.
+- I am an old man and have known a great many troubles, but most of them never happened.
+- Good breeding consists in concealing how much we think of ourselves and how little we think of the other person.
+- Age is an issue of mind over matter. If you don't mind, it doesn't matter.
+- I never let schooling interfere with my education.
+- Lord save us all from old age and broken health and a hope tree that has lost the faculty of putting out blossoms.
+- The first of April is the day we remember what we are the other 364 days of the year.
+- Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.
+- Loyalty to petrified opinion never yet broke a chain or freed a human soul.
+- Truth is mighty and will prevail. There is nothing wrong with this, except that it ain't so.
+- The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.
+- I must have a prodigious quantity of mind; it takes me as much as a week sometimes to make it up.
+- Humor is mankind's greatest blessing.
+- Patriotism is supporting your country all the time, and your government when it deserves it.
+- We have the best government that money can buy.
+- There is no sadder sight than a young pessimist.
+- The Public is merely a multiplied 'me.'
+- My books are like water; those of the great geniuses are wine. (Fortunately) everybody drinks water.
+- The best way to cheer yourself up is to try to cheer somebody else up.
+- There are several good protections against temptation, but the surest is cowardice.
+- Do not tell fish stories where the people know you; but particularly, don't tell them where they know the fish.
+- Humor must not professedly teach and it must not professedly preach, but it must do both if it would live forever.
+- The human race is a race of cowards; and I am not only marching in that procession but carrying a banner.
+- Better a broken promise than none at all.
+- Substitute 'damn' every time you're inclined to write 'very'; your editor will delete it and the writing will be just as it should be.
+- Familiarity breeds contempt - and children.
+- My mother had a great deal of trouble with me, but I think she enjoyed it.
+- There is no distinctly American criminal class - except Congress.
+- Grief can take care if itself, but to get the full value of a joy you must have somebody to divide it with.
+- When I was younger I could remember anything, whether it happened or not.
+- The educated Southerner has no use for an 'r', except at the beginning of a word.
+- When in doubt tell the truth.
+- Do the thing you fear most and the death of fear is certain.
+- The very ink with which history is written is merely fluid prejudice.
+- All emotion is involuntary when genuine.
+- Civilization is the limitless multiplication of unnecessary necessities.
+- Don't part with your illusions. When they are gone, you may still exist, but you have ceased to live.
+- Let us endeavor so to live so that when we come to die even the undertaker will be sorry.
+- Only one thing is impossible for God: To find any sense in any copyright law on the planet.
+- There are times when one would like to hang the whole human race, and finish the farce.
+- Patriot: the person who can holler the loudest without knowing what he is hollering about.
+- Honesty is the best policy - when there is money in it.
+- What, sir, would the people of the earth be without woman? They would be scarce, sir, almighty scarce.
+- A person with a new idea is a crank until the idea succeeds.
+- The right word may be effective, but no word was ever as effective as a rightly timed pause.
+- The only way to keep your health is to eat what you don't want, drink what you don't like, and do what you'd rather not.
+- It is easier to stay out than get out.
+- Go to Heaven for the climate, Hell for the company.
+- Forgiveness is the fragrance that the violet sheds on the heel that has crushed it.
+- You can't depend on your eyes when your imagination is out of focus.
+- Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven.
+- One of the most striking differences between a cat and a lie is that a cat has only nine lives.
+- Water, taken in moderation, cannot hurt anybody.
+- If man could be crossed with the cat it would improve man, but deteriorate the cat.
+- Why shouldn't truth be stranger than fiction? Fiction, after all, has to make sense.
+- Education consists mainly of what we have unlearned.
+- Let us make a special effort to stop communicating with each other, so we can have some conversation.
+- If the world comes to an end, I want to be in Cincinnati. Everything comes there ten years later.
+- Training is everything. The peach was once a bitter almond; cauliflower is nothing but cabbage with a college education.
+- I never smoke to excess - that is, I smoke in moderation, only one cigar at a time.
+- Prophesy is a good line of business, but it is full of risks.
+- It put our energies to sleep and made visionaries of us - dreamers and indolent... It is good to begin life poor; it is good to begin life rich - these are wholesome; but to begin it prospectively rich! The man who has not experienced it cannot imagine the curse of it.
+- Principles have no real force except when one is well-fed.
+- 'Classic.' A book which people praise and don't read.
+- Climate is what we expect, weather is what we get.
+- I have never taken any exercise, except sleeping and resting, and I never intend to take any.
+- The lack of money is the root of all evil.
+- Whenever you find yourself on the side of the majority, it is time to pause and reflect.
+- All right, then, I'll go to hell.
+- Drag your thoughts away from your troubles... by the ears, by the heels, or any other way you can manage it.
+- Name the greatest of all inventors. Accident.
+- A man cannot be comfortable without his own approval.
+- Thousands of geniuses live and die undiscovered - either by themselves or by others.
+- I didn't attend the funeral, but I sent a nice letter saying I approved of it.
+- It is better to deserve honors and not have them than to have them and not deserve them.
+- The man who does not read good books has no advantage over the man who cannot read them.
+- I was gratified to be able to answer promptly, and I did. I said I didn't know.
+- As an example to others, and not that I care for moderation myself, it has always been my rule never to smoke when asleep, and never to refrain from smoking when awake.
+- Wrinkles should merely indicate where smiles have been.
+- Man was made at the end of the week's work, when God was tired.
+- There are people who can do all fine and heroic things but one - keep from telling their happiness to the unhappy.
+- The difference between the almost right word and the right word is really a large matter - 'tis the difference between the lightning-bug and the lightning.
+- Many a small thing has been made large by the right kind of advertising.
+- It's no wonder that truth is stranger than fiction. Fiction has to make sense.
+- When we remember we are all mad, the mysteries disappear and life stands explained.
+- But who prays for Satan? Who, in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most?
+- Against the assault of laughter, nothing can stand.
+- Let us not be too particular; it is better to have old secondhand diamonds than none at all.
+- Don't let schooling interfere with your education.
+- It is better to take what does not belong to you than to let it lie around neglected.
+- Buy land, they're not making it anymore.
+- It were not best that we should all think alike; it is difference of opinion that makes horse races.
+- No sinner is ever saved after the first twenty minutes of a sermon.
+- I have been complimented many times and they always embarrass me; I always feel that they have not said enough.
+- Thunder is good, thunder is impressive; but it is lightning that does the work.
+- If you tell the truth, you don't have to remember anything.
+- Life would be infinitely happier if we could only be born at the age of eighty and gradually approach eighteen.
+- A man's character may be learned from the adjectives which he habitually uses in conversation.
+- Optimist: day dreamer more elegantly spelled.
+- By trying we can easily learn to endure adversity. Another man's, I mean.
+- There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
+- Action speaks louder than words but not nearly as often.
+- Work consists of whatever a body is obliged to do. Play consists of whatever a body is not obliged to do.
+- I came in with Halley's Comet in 1835. It is coming again next year, and I expect to go out with it. It will be the greatest disappointment of my life if I don't go out with Halley's Comet. The Almighty has said, no doubt: 'Now here are these two unaccountable freaks; they came in together, they must go out together.'
+- Necessity is the mother of taking chances.
+- Nothing so needs reforming as other people's habits.
+- It is curious that physical courage should be so common in the world and moral courage so rare.
+- It's good sportsmanship to not pick up lost golf balls while they are still rolling.
+- When a person cannot deceive himself the chances are against his being able to deceive other people.
+- Courage is resistance to fear, mastery of fear, not absence of fear.
+- The human race has one really effective weapon, and that is laughter.
+- All generalizations are false, including this one.
+- A round man cannot be expected to fit in a square hole right away. He must have time to modify his shape.
+- What is the difference between a taxidermist and a tax collector? The taxidermist takes only your skin.
+- A person who won't read has no advantage over one who can't read.
+- Golf is a good walk spoiled.
+- A man who carries a cat by the tail learns something he can learn in no other way.
+- Be careless in your dress if you must, but keep a tidy soul.
+- Never pick a fight with people who buy ink by the barrel.
+- Truth is stranger than fiction, but it is because Fiction is obliged to stick to possibilities; Truth isn't.
+- The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+- Often it does seem such a pity that Noah and his party did not miss the boat.
+- The man who is a pessimist before 48 knows too much; if he is an optimist after it, he knows too little.
+- Martyrdom covers a multitude of sins.
+- The wit knows that his place is at the tail of a procession.
+- Loyalty to the Nation all the time, loyalty to the Government when it deserves it.
+- I make it a rule never to smoke while I'm sleeping.
+- The main difference between a cat and a lie is that a cat only has nine lives.
+- Do the right thing. It will gratify some people and astonish the rest.
+- The finest clothing made is a person's own skin, but, of course, society demands something more than this.
+- Soap and education are not as sudden as a massacre, but they are more deadly in the long run.
+- Don't go around saying the world owes you a living. The world owes you nothing. It was here first.
+- Be careful about reading health books. You may die of a misprint.
+- In 'Huckleberry Finn,' I have drawn Tom Blankenship exactly as he was. He was ignorant, unwashed, insufficiently fed; but he had as good a heart as ever any boy had.
+- Man is the only animal that blushes - or needs to.
+- Repartee is something we think of twenty-four hours too late.
+- It is just like man's vanity and impertinence to call an animal dumb because it is dumb to his dull perceptions.
+- I don't like to commit myself about heaven and hell - you see, I have friends in both places.
+- Ideally a book would have no order to it, and the reader would have to discover his own.
+- All you need in this life is ignorance and confidence, and then success is sure.
+- The public is the only critic whose opinion is worth anything at all.
+- Man will do many things to get himself loved, he will do all things to get himself envied.
+- When your friends begin to flatter you on how young you look, it's a sure sign you're getting old.
+- George Washington, as a boy, was ignorant of the commonest accomplishments of youth. He could not even lie.
+- When you fish for love, bait with your heart, not your brain.
+- The trouble ain't that there is too many fools, but that the lightning ain't distributed right.
+- Apparently there is nothing that cannot happen today.
+- Wit is the sudden marriage of ideas which, before their union, were not perceived to have any relation.
+- We are all alike, on the inside.
+- The more you explain it, the more I don't understand it.
+- Only kings, presidents, editors, and people with tapeworms have the right to use the editorial 'we.'
+- In the Spring, I have counted 136 different kinds of weather inside of 24 hours.
+- To be good is noble; but to show others how to be good is nobler and no trouble.
+- I can live for two months on a good compliment.
+- Denial ain't just a river in Egypt.
+- It's not the size of the dog in the fight, it's the size of the fight in the dog.
+- Cauliflower is nothing but cabbage with a college education.
+- Travel is fatal to prejudice, bigotry, and narrow-mindedness, and many of our people need it sorely on these accounts.
+- It usually takes me more than three weeks to prepare a good impromptu speech.
+- When red-haired people are above a certain social grade their hair is auburn.
+- When angry, count to four; when very angry, swear.
+- It was wonderful to find America, but it would have been more wonderful to miss it.
+- We Americans... bear the ark of liberties of the world.
+- Good friends, good books and a sleepy conscience: this is the ideal life.
+- Facts are stubborn, but statistics are more pliable.
+- I was seldom able to see an opportunity until it had ceased to be one.
+- The reports of my death have been greatly exaggerated.
+- If it's your job to eat a frog, it's best to do it first thing in the morning. And If it's your job to eat two frogs, it's best to eat the biggest one first.
+- It is my belief that nearly any invented quotation, played with confidence, stands a good chance to deceive.
+- God made the Idiot for practice, and then He made the School Board.
+- India has 2,000,000 gods and worships them all. In religion, all other countries are paupers; India is the only millionaire.
+- Few things are harder to put up with than the annoyance of a good example.
+- There are lies, damned lies and statistics.
+- Clothes make the man. Naked people have little or no influence on society.
+- She was not quite what you would call refined. She was not quite what you would call unrefined. She was the kind of person that keeps a parrot.
+- It ain't those parts of the Bible that I can't understand that bother me, it is the parts that I do understand.
+- Fiction is obliged to stick to possibilities. Truth isn't.
+- In the first place, God made idiots. That was for practice. Then he made school boards.
+- How lucky Adam was. He knew when he said a good thing, nobody had said it before.
+- Prosperity is the best protector of principle.
+- Laws control the lesser man... Right conduct controls the greater one.
+- Never put off till tomorrow what you can do the day after tomorrow.
+- There is a charm about the forbidden that makes it unspeakably desirable.
+- The rule is perfect: in all matters of opinion our adversaries are insane.
+- Get your facts first, then you can distort them as you please.
+- It is better to keep your mouth closed and let people think you are a fool than to open it and remove all doubt.
+- What a wee little part of a person's life are his acts and his words! His real life is led in his head, and is known to none but himself.
+- Why is it that we rejoice at a birth and grieve at a funeral? It is because we are not the person involved.
+- The most interesting information comes from children, for they tell all they know and then stop.
+- The more things are forbidden, the more popular they become.
+- It is by the goodness of God that in our country we have those three unspeakably precious things: freedom of speech, freedom of conscience, and the prudence never to practice either of them.
+- Everything has its limit - iron ore cannot be educated into gold.
+- Few of us can stand prosperity. Another man's, I mean.
+- Sometimes too much to drink is barely enough.
+- Biographies are but the clothes and buttons of the man. The biography of the man himself cannot be written.
+- Don't say the old lady screamed. Bring her on and let her scream.
+- Part of the secret of a success in life is to eat what you like and let the food fight it out inside.
+- Suppose you were an idiot, and suppose you were a member of Congress; but I repeat myself.
+- Words are only painted fire; a look is the fire itself.
+- A man is never more truthful than when he acknowledges himself a liar.

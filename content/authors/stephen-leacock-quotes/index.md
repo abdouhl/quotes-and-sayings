@@ -1,0 +1,36 @@
++++
+author = "Stephen Leacock"
+title = "Stephen Leacock Quotes"
+quotes_len = "30"
+description = "the best 30 Stephen Leacock Quotes"
++++
+- Writing is no trouble: you just jot down ideas as they occur to you. The jotting is simplicity itself - it is the occurring which is difficult.
+- In ancient times they had no statistics so they had to fall back on lies.
+- What we call creative work, ought not to be called work at all, because it isn't. I imagine that Thomas Edison never did a day's work in his last fifty years.
+- The classics are only primitive literature. They belong to the same class as primitive machinery and primitive music and primitive medicine.
+- There are two things in ordinary conversation which ordinary people dislike - information and wit.
+- He flung himself from the room, flung himself upon his horse and rode madly off in all directions.
+- I detest life-insurance agents: they always argue that I shall some day die, which is not so.
+- It's a lie, but Heaven will forgive you for it.
+- We think of the noble object for which the professor appears tonight, we may be assured that the Lord will forgive any one who will laugh at the professor.
+- The Lord said 'let there be wheat' and Saskatchewan was born.
+- Life, we learn too late, is in the living, the tissue of every day and hour.
+- If every day in the life of a school could be the last day but one, there would be little fault to find with it.
+- Electricity is of two kinds, positive and negative. The difference is, I presume, that one comes a little more expensive, but is more durable; the other is a cheaper thing, but the moths get into it.
+- I am a great believer in luck, and I find the harder I work the more I have of it.
+- It may be those who do most, dream most.
+- A half truth, like half a brick, is always more forcible as an argument than a whole one. It carries better.
+- Personally, I would sooner have written Alice in Wonderland than the whole Encyclopedia Britannica.
+- A sportsman is a man who every now and then, simply has to get out and kill something.
+- The landlady of a boarding-house is a parallelogram - that is, an oblong angular figure, which cannot be described, but which is equal to anything.
+- It takes a good deal of physical courage to ride a horse. This, however, I have. I get it at about forty cents a flask, and take it as required.
+- Each section of the British Isles has its own way of laughing, except Wales, which doesn't.
+- Advertising: the science of arresting the human intelligence long enough to get money from it.
+- Now, the essence, the very spirit of Christmas is that we first make believe a thing is so, and lo, it presently turns out to be so.
+- Golf may be played on Sunday, not being a game within the view of the law, but being a form of moral effort.
+- On the same bill and on the same side of it there should not be two charges for the same thing.
+- Men are able to trust one another, knowing the exact degree of dishonesty they are entitled to expect.
+- It is to be observed that 'angling' is the name given to fishing by people who can't fish.
+- Astronomy teaches the correct use of the sun and the planets.
+- It's called political economy because it is has nothing to do with either politics or economy.
+- Many a man in love with a dimple makes the mistake of marrying the whole girl.

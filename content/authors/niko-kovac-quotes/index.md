@@ -1,0 +1,97 @@
++++
+author = "Niko Kovac"
+title = "Niko Kovac Quotes"
+quotes_len = "91"
+description = "the best 91 Niko Kovac Quotes"
++++
+- It's all about togetherness and to pay the other the necessary respect. If you do that, then we all would feel better. It is not always a taking but also a giving in both directions.
+- Morality is very important. We have to be together.
+- Of course, the attacking players get the attention because they score the goals, score nice goals, and those are the moments that remain in memory. But I wish that other players who are not in the foreground, who still perform well for their club or association, get more recognition.
+- What was good yesterday might be bad the next morning, so you have to keep calm.
+- There are a lot of good players all over the world.
+- I am the last person to start celebrating.
+- We want to win all of our matches and focus on ourselves.
+- The players who play have to perform. If they don't, then they will be replaced. That has always been the case.
+- We need to be confident, but do not look back; look at what's coming.
+- I don't believe it helps when internal affairs are made public.
+- You build up the opponent, and you lose confidence.
+- The expectation in Munich is always high, this expectation I have towards myself personally and to my players. I was aware of that when I signed with Bayern.
+- To say a player is past it at 29, 30 isn't right.
+- Everyone wants to score goals - that's the point of football - but you have to look at the whole situation in detail.
+- We're all different, and we have to accept and tolerate each other's characteristics.
+- For me personally, Pep Guardiola is the best coach in the world.
+- Dembele is a great player.
+- We were raised as Christians, and religion plays an important role for us.
+- I never panic.
+- You have seen it: You can put something into the world, and all of a sudden, everybody believes that. Like throwing a fishing rod and the fish bite into.
+- If you stick to what the Bible teaches, then you have everything you need: honesty, openness, friendliness, respect, tolerance, and much more, which is often lost nowadays.
+- I'm a firm believer in science.
+- In the emotion, you say things that you regret the next day.
+- It's not easy to score three goals in 70 minutes.
+- If teams play Bayern, they bring another attitude to the pitch than if they play teams who are not Bayern.
+- Every player at Bayern Munich wants to play and should play - they all have good reasons.
+- It's not easy to play against a team with a man down.
+- We want to chase and seal the championship title. The decisive thing is to be at the top at the end of the season.
+- I can't play with 12 players.
+- In football you have to look forward.
+- Giving up is the first way to fail. It does not exist for me.
+- There will always be cases where one player plays, and another doesn't.
+- We should not always discuss whether or not a player is angry.
+- In Germany, it is normal, when games end, you shake hands with your players.
+- A coach should not stir up headlines after a match.
+- I can't play 50 players.
+- There is only one Messi. No matter what I say, it's too little. You have to shower him with superlatives.
+- There are no guarantees. If you spent money, it's no guarantee you win stuff.
+- Every player brings something from their own culture into the collective.
+- Those who know me know I'm always a fighter.
+- I question everything I do.
+- When you're together, you can do anything, be it in sports or in society.
+- I am an optimist, not a dreamer.
+- I can only pass on what is inside of me, whether it is love or money or the passion for dribbling or tricks with the ball.
+- Football provides the most beautiful stories.
+- We just must make sure we give everything we can to become champions.
+- I know how the game works. If I field one, then the other complains. It's always the same.
+- Empathy is important, openness, honesty, and an understanding for others.
+- I want to play every single player, but I can only play 11 at a time.
+- I have always said that I am a friend of VAR.
+- That's the way people are in general: they see everything negatively at first and then choose to ask questions.
+- I don't underestimate any opponent.
+- My job is to keep my players fit and fresh for the important games.
+- Spending big money does not mean you win all the silverware.
+- Everyone has their own taste, and you can argue about taste.
+- Expectations run immensely high in Croatia. We may only be a small country, but people expect us to be our best at every major tournament.
+- The money's there in England. They try to gather the best players. We do it differently here at Bayern. We have no investors, no owners.
+- For the top stars, it's just more appealing to go to the Premier League than to Bundesliga.
+- You can't manage every footballer the same. Of course you'd love to, but it doesn't work like that. We're not robots.
+- Pulisic is a top player.
+- We cannot play soccer without hands. You need your arms while running.
+- Fitness gives you confidence, and if you're fit, you don't have to wonder whether you'll last the 90 minutes.
+- We have to learn from the past.
+- For the players, these top, top, top games or these top, top, top events - like a World Cup or a European Championship - are not common but, of course, something special.
+- Mentality beats quality.
+- Attacking is the tough part in football; defending is relatively easy.
+- Sometimes I make certain assumptions but find they're not immediately obvious to my players.
+- Just because a coach does not get out the clubs after a match but instead focuses on what he says, that's not an indicator of cluelessness.
+- I'm a realist.
+- Real Madrid without Cristiano Ronaldo are, of course, not what they were with Ronaldo, but they're still a very good team.
+- Playing for the national team is not the same as playing for your club.
+- Mistakes happen, but if you make them in the Bundesliga, you will be punished.
+- Competition means the best player will play.
+- Fortunately, I had some very good coaches.
+- My whole life, I have had to fight.
+- If the family sticks together, things are easy. If not, it will fall apart. There are several examples in history. Take Troy or take Caesar.
+- It is not for nothing that titles are decided at the back.
+- Life writes the best stories.
+- Victories are always important.
+- I prefer the 4-2-3-1 formation and stick to it but have my own interpretations.
+- At Bayern, you always go into a season with the goal to win titles.
+- The words 'give up,' 'raise the white flag' do not exist in my vocabulary.
+- I don't need players who won't track back, and I'm certainly not keen on specialists.
+- If, as Bayern, you lose 2-0 at Hertha, nobody believes you that you can still be satisfied with the performance.
+- When you fall, you always have the opportunity to get up.
+- If research can help us discover cures for diseases, it surely can improve a football team. Whether it's data analysis or biomechanics, it can give you an edge - and I'd be a fool if I didn't want that edge.
+- A lot of players are naturally talented, but you also have to work to improve yourself.
+- A five-year contract is worth no more than a six-month contract these days; it's very concerning.
+- You have to stick to your plan. Throwing everything overboard and inventing something on the spot does not make sense. You will never get that from me.
+- I've always been someone who said that football is a contact sport.
+- The pros stretch their bodies to the limit.

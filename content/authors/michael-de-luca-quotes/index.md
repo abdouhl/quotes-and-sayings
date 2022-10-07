@@ -1,0 +1,22 @@
++++
+author = "Michael De Luca"
+title = "Michael De Luca Quotes"
+quotes_len = "16"
+description = "the best 16 Michael De Luca Quotes"
++++
+- I was a huge 'Sopranos' fan, obviously.
+- I don't sweat the Internet. You know, it's still something I enjoy as a movie geek myself to get on and, like, look at all the websites; however, when it comes to marketing a movie, the Internet is still not the thing that gets people to the theatre.
+- I was a bookish kid, not really athletic.
+- I've never thought intelligence was age-related.
+- I saw all those great '70s films when I was 9, and no one in my Brooklyn neighborhood cared if a kid watched an R movie.
+- Studios are an assembly line. They can be a very good assembly line. As a producer, you concentrate on one project at a time. As an executive, you're in charge of a slate.
+- My mom was very affectionate but also very loud. My whole house was very loud. My father screamed, my mother screamed - everybody screamed.
+- Any time you can be with like-minded people, laughing or crying over the same joke or the same scene... For me, it's therapeutic. You just feel a little less alone on the planet.
+- 'Chronicle' could have been a video-game movie. The original 'RoboCop' and the remake could have come from video games.
+- I learned in a very public setting what works and doesn't work for a healthy lifestyle.
+- I love being on set.
+- Because of my New Line upbringing, half my heart goes to scrappy independents, and half goes to mainstream, down-the-middle pop culture events. And even with those, to try to keep something fresh and original with them and try to do things that the majors miss.
+- I remember going to see those Adrian Lyne films when I was going to see movies in the nineties, and I was jealous he wasn't working at New Line.
+- The movies were so healing for me because I had such an isolated, lonely childhood. Going to the movies and having the lights go down, you disappear. If you have esteem issues, suddenly you're in a void where nobody can see you. You are just by yourself in that darkness, and your loneliness is cured.
+- 'Social Network' is a good story with human experience connective tissue that makes it ageless.
+- Nothing is more exciting than being around new talent when it emerges.

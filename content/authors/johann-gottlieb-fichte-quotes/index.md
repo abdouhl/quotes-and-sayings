@@ -1,0 +1,16 @@
++++
+author = "Johann Gottlieb Fichte"
+title = "Johann Gottlieb Fichte Quotes"
+quotes_len = "10"
+description = "the best 10 Johann Gottlieb Fichte Quotes"
++++
+- Humanity may endure the loss of everything; all its possessions may be turned away without infringing its true dignity - all but the possibility of improvement.
+- By mere burial man arrives not at bliss; and in the future life, throughout its whole infinite range, they will seek for happiness as vainly as they sought it here, who seek it in aught else than that which so closely surrounds them here - the Infinite.
+- What sort of philosophy one chooses depends on what sort of person one is.
+- A man can do what he ought to do; and when he says he cannot, it is because he will not.
+- To those who do not love God, all things must work together immediately for pain and torment, until, by means of the tribulation, they are led to salvation at last.
+- Full surely there is a blessedness beyond the grave for those who have already entered on it here, and in no other form than that wherein they know it here, at any moment.
+- Only one man ever understood me, and he didn't understand me.
+- God is not the mere dead conception to which we have thus given utterance, but he is in himself pure Life.
+- He who is firm in will molds the world to himself.
+- By philosophy the mind of man comes to itself, and from henceforth rests on itself without foreign aid, and is completely master of itself, as the dancer of his feet, or the boxer of his hands.

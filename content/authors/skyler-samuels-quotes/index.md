@@ -1,0 +1,35 @@
++++
+author = "Skyler Samuels"
+title = "Skyler Samuels Quotes"
+quotes_len = "29"
+description = "the best 29 Skyler Samuels Quotes"
++++
+- I want to be on the screen, I want to play dress up every day, I want be different people, I want to have fun, and I want to use my imagination.
+- I think I would love to do a role where I completely transform myself and look completely different, act completely different, and do some crazy, cool, action drama where I was undercover and saving the world.
+- High school is all about hierarchies, labels, cliques - we are labeled and structured. Everyone goes through it, more or less.
+- ABC Family is where the good stuff is at. I'm so excited to be a part of this network because they've really done a great job introducing shows that are heartfelt, exciting, and everything you'd want.
+- I think that the really cool thing about 'The Nine Lives of Chloe King' is that, while it has a lot of supernatural elements and Chloe is a superhero herself, it is not all about the supernatural.
+- Playing someone supernatural is more realistic than I thought it would be.
+- A huge part of my life as an actor has revolved around fashion and beauty - just by default. It's such a big part of the business.
+- I'm a little unusual in that I've always done a lot of things.
+- I was blessed to grow up with parents who weren't enamored of show business.
+- Working with Jamie Lee Curtis has changed my life. I grew up adoring her.
+- 'Freaky Friday' was my favorite movie in middle school.
+- My earliest celebrity crush was/is Nick Jonas.
+- I'm from Los Angeles, and growing up here, I've always been enamored by Hollywood and the industry. It's just something I grew up with, and I loved it.
+- I love that everyone on 'Scream Queens' has a moment where they are the hero, and they are the villain.
+- TV shows always pit girls against each other; there's always a nemesis.
+- Sometimes you can doubt your own abilities to do certain things. We get nervous, we get stuck, or we're not sure if we can live up to what we want to do.
+- I took a semester off to film 'Scream Queens,' which was a great decision because it was an incredibly wild experience that did a lot for me as far as my career.
+- I had a great time working on 'The Gates,' and that was my first real experience doing supernatural television, working with the special effects and everything that goes into making a supernatural show.
+- 'Scream Queens' was a big, sensational show. There's nothing subtle about a Ryan Murphy show, and I love that.
+- All actors are self-critical.
+- I definitely identify as a nerd - love being in a classroom.
+- As I've gotten older, projects are more interesting and dynamic. My thinking and acting has evolved over the years.
+- My dad has been in the military for 35 years. My brother's in the Air Force. I'm familiar with what it's like being in a military family - the unusual traumas you carry around with you.
+- My sorority was filled with amazing, different, accomplished women across all fields. We had athletes, entrepreneurs. We had women who were killing it in the nonprofit world.
+- I've always said the thing that has helped me be the best actor I could be are my real life experiences, which have come in the form of my school experiences: meeting different people, learning different things, immersing myself in different topics and social situations, and sort of challenging myself to grow emotionally, intellectually.
+- I wish I had claws, just because how cool would that be?
+- I'm very pro-military. It's a big part of my life I don't talk about much or get to access much in my work.
+- I'm a workaholic.
+- There's no set like a Ryan Murphy set, mainly because it feels like he's built an entire world. He's so thoughtful and meticulous, and every detail is thought about and cared for.

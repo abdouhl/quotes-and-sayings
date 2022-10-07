@@ -1,0 +1,48 @@
++++
+author = "Marlon Wayans"
+title = "Marlon Wayans Quotes"
+quotes_len = "42"
+description = "the best 42 Marlon Wayans Quotes"
++++
+- If you could cross a lion and a monkey, that's what I'd be, because monkeys are funny and lions are strong.
+- I don't want there to be this separation between the rich and poor. I may be part of the three percent because I've been fortunate and done well for myself, but I will never forget about the 97 percent. That was me growing up. I was so poor I dreamt about being just 'regular poor,' not 'poor, poor.'
+- I got a man cave. I play my music loud. I bought big speakers because I need to hear music loud.
+- I grew up in the projects. You have no choice but to fight. My jokes used to get me in fights.
+- I got caught stealing when I was a kid from the local bodega right across the street from where we lived. I tried to steal a big bag of Red Hot Dollars. And I swear, I was about 7 years old and the bag was bigger'n me.
+- 'Paranormal 1' scared me because I didn't know if it was real or what. 'Blair Witch' was kind of scary for the same reason. It takes the voyeur element away and makes you think, 'Oh crap, this could really happen to me.'
+- Gotta stay in the gym, stay funny, stay sharp. I just love working.
+- I got written out of 'G.I. Joe' and was like, 'Welp, I'm going to go back to what I do: writing and producing comedy.'
+- So, I was sitting there and I watched 'Paranormal Activity' and I was like, 'Boy, white people do dumb stuff in movies.' So I was like, 'Why don't they just leave the house... What if paranormal activity happened to a black couple?'
+- There's a certain level of comfort that comes when you move in together. The mystery is gone. She starts dressing for bed in your pajamas, cream on her face, Uggs, curlers. What happened to the sexy girl that used to come to bed in lingerie? The girl says, 'We don't need to act.'
+- There's an art to comedy.
+- My sister Kim is like Lucille Ball. She's magical in terms of her performance and her writing.
+- If I read something great and I want to go after it, I go after it. You don't wait to see what Hollywood wants to do with you. You decide what you want to do. I don't mind fighting when I really want something.
+- There are so many things to talk about between black people, Hispanic people, white people, gay people, men, women, it's all based on fear. We all have fears, this thing that stops us from embracing as we are one. We are never going to be one. People are messed up, but humor lets us see how ignorant we can be.
+- You learn timing on the road. You learn structure and how to read an audience. You learn so much about the business of laughter that you can't learn on a set, because it's all on you. Sometimes you bomb, and you know not to tell that joke again... You just hope people find the humor in the awkwardness.
+- Comedy is very hard, but you have to learn the art and science of it.
+- I used to watch all my friends play with G.I. Joes. I couldn't afford them.
+- Look, I want to be able to make the stupidest movies ever, because they make people laugh and they make money. But that's not all I want to do. And I think I've proven to some people - the ones paying attention - that I can do more. Everybody else, well, they can wait and see and make up their mind.
+- I've never really lived with somebody. Only for very brief periods. I learned I'm not a good roommate. I'm better off when we visit each other. I like the mystery.
+- Sometimes they try to put you inside a box, but I look at my filmography and I've been able to do a lot.
+- I went to a performing arts high school, we learned Shakespeare, I did 'Fences.' When you train, you can do anything.
+- One of the greatest compliments you can ever get is when you make fun of a certain sect of people and they are laughing the hardest. When we did 'Men on Film' on 'In Living Color,' gay men wrote in how much they loved it.
+- I'm good at coming up with wacky characters and funny dialogue.
+- I'm the most inappropriate dad. I curse in front of my kids and their friends. I let my kids watch R-rated movies. I'll walk by the movie theater and say, 'Let's go see that,' and my kids will say, 'No, it's rated R. It's not appropriate for kids.' I'm like Uncle Dad. We have fun. I don't live with them, but I drive over four days a week.
+- With parody, you're referencing and sending up a particular genre, and mostly your material is going to be taken out of that genre.
+- I've got Democratic skin, but a Republican pocket.
+- Humor helps ease the tension of race and the differences in society. If there wasn't comedy I don't know if Obama could have ever become president.
+- I think family is key, and if you have love for family, then you have love for others - and you have unity as a people.
+- I like All Saints. They make great leathers. I love Hugo Boss, especially the suits. I like James Perse for T-shirts, and Supra and Radii for sneakers. And God Is in the Details.
+- 'G.I. Joe' is a $200 million movie. The makeup trailer was as big as my house! It was a whole other different production. It blows me away. I'm just going, 'Wow, I'm in that.'
+- Confident people, who understand comedy, improvise so much better than people who are scared. You can't be scared to improvise. You have to know your character, and then you have to let go.
+- 'Scary Movie' has lost its way as a franchise. It has turned into 'Disaster Film' and 'Epic Movie' and 'Date Movie' and that isn't what I wanted. I wanted to do a movie that was just grounded in a reality that went to crazy places.
+- I don't think of myself as a comedian, but as an artist, a scientist and chemist who just happens to be funny. I started doing stand-up to add another level to my game. I feel that I'm a young rookie with a veteran's skill.
+- You need to be lucky in life, but it's also what you do with your luck.
+- Let me tell you, Barack Obama is the most down dude in the world, but he's so smart; so articulate, such an amazing speaker; such a passionate man. He's humble.
+- I like to work and there's no movies for actors, period, especially black actors. When white actors are like, 'Man, there's no work out there,' then black actors are like, 'Are you kidding me?'
+- People don't understand how much time and work it takes to make somebody laugh, and how hard it is to write a script, to put together the story, the characters. When everyone laughs simultaneously, there's no greater feeling.
+- I was going to be valedictorian in elementary school, but I got into too many fights, and they made me salutatorian. I was smart back in the day. Now I'm just an idiot.
+- I had to do the full body shave for the first coupla weeks of 'White Chicks,' then I said, 'You know what? I'm just gonna be a hairy white chick 'cause this is too much!
+- I'd like to see a ghost. It would confirm there's an afterlife.
+- Comedy clubs can be brutal. Those people are for real, and if you aren't funny, they aren't laughing. They don't care who you are.
+- Success is not a destination, but the road that you're on. Being successful means that you're working hard and walking your walk every day. You can only live your dream by working hard towards it. That's living your dream.

@@ -1,0 +1,72 @@
++++
+author = "Sheryl Lee"
+title = "Sheryl Lee Quotes"
+quotes_len = "66"
+description = "the best 66 Sheryl Lee Quotes"
++++
+- I love being directed, and I feel so grateful to be able to get to work with some of the directors I've worked with.
+- If something scares me, then I have to do it. My biggest fear in life is fear.
+- I'm fascinated with all kinds of religion, but I'm not committed to any specific one.
+- I had no idea it was going to be like this. People come up to me all the time, but it's never, 'Oh, you're Sheryl Lee.' It's, 'Oh my gosh, you're Laura Palmer.'
+- I had a little house, and I sold that and moved into a condo, then sold the condo... I kept downsizing and downsizing.
+- Twin Peaks' without David Lynch is like a girl without a secret.
+- I want to watch my son grow up. I want to spend time with my family. There's a lot of the world that I want to see and experience.
+- I loved 'Blue Velvet.'
+- David Lynch saw my picture in a casting agent's office in Seattle. I got a call to see him, and the rest is history.
+- Most actors I'm in touch with are struggling financially.
+- It's important for me, when looking at a role, to decide whether or not to take the journey of that character. Will I grow as an actress? And will I grow as a person?
+- I grew up in Colorado - went back there, tried to heal myself and grow and learn, then got a call that David Lynch wanted me to fly back to Seattle so he could meet me for Twin Peaks.
+- I know if somebody played me, I'd want to check her out.
+- In some ways, my naivete saved me.
+- Every actress has a line she'll draw, where she'll say, 'This I will do and this I won't.' For me, everything has to be important to the story and the director has to be able to tell me why.
+- Because Laura Palmer was dead... there was always this strange sense that people were seeing a ghost when they would see me.
+- When I was a kid, we played outside until we couldn't see and had to go in. I rode my bicycle and played tag football, kick the can, and hide-and-go-seek.
+- I just turned 30 so I got really introspective as you do, questioning my life. And when I stopped and sort of looked back at the past decade, I realized I had done more work than I thought I had done.
+- I was the kind of kid, I'd sit in the back row of the class with my head practically under the desk. I was incredibly afraid of people and very shy.
+- Someday I'd love to come back and start a theater company in Boulder. That would be a dream come true.
+- And in the middle of one of those scenes, I suddenly felt my heart just open: it was overwhelming, to the point where I got teary-eyed. Never would I have thought anything like that could happen in a love scene.
+- Apparently I'm the most naked that anyone's been on TNT. My poor mother. I'm ready to run away.
+- If something scares me, then I have to do it.
+- You'll read a script, and it'll grab me, or it won't.
+- I highly recommend tantric sex workshops.
+- I'm starting to understand why certain people in the entertainment business reach a point where they say, 'I'm not going to do any more interviews.' I definitely understand that.
+- I went into dancing but damaged my knees so decided to become an actress instead.
+- Animals weren't put on this earth to entertain us.
+- David Lynch is a very kind and warm-hearted man. I really think he's brilliant.
+- For some weird reason, people have a fascination with Laura Palmer.
+- Those of us who were on 'Twin Peaks' can very easily make fun of it, but we get along really well, and we have a playful energy together.
+- It's still difficult for me to watch my work.
+- I'm grateful for anything that brings me back to Colorado.
+- I was just this kid from Colorado studying theater, and suddenly I was on a hit TV show.
+- I have a thing about angels. I believe in them. I feel like I have a guardian angel. I think everybody has one.
+- There's something about death. It's like trying to understand our own mortality and immortality. That's why society is so into things like vampires, because they don't die. Well, why don't they die?
+- My doctor suggested doing some blood tests and immediately discovered that my white blood cell count was low. So then I went through many more tests including bone marrow biopsies until they figured out that I had neutropenia.
+- Media is a powerful thing, and you see it with so many actors, where one role that brings them a lot of attention is sort of how they get defined.
+- I just found out last week - my sister told me - that my father had some Beatles records. So I must have heard them quite a bit, but it never registered, really. Now I listen to them with new ears.
+- Everybody has secrets.
+- People don't set out being bad. They have deep pain inside.
+- It's awkward: Here you are with most of your clothes off in bed with this person who you've really just met. You're strangers to each other's bodies and you're coming together for the first time in front of all these people.
+- The more we deny that we have a dark side, the more power it has over us.
+- Well, there's two things that happen when people experience something, whether it's a song, a television show, a film, a book or any piece of art. It connects them to a certain part of their life and whatever was going on at that time in their life.
+- I remembered their songs but I had never owned a Beatles album.
+- I've always had a fascination with vampires. It's not that I'm exactly fascinated with the dark side. It's the human struggle with it. How we deal with those two aspects of who we are. We all have those elements.
+- I did a few independent films, but there is no money in them.
+- I don't go to regular music festivals because I tend to run in the opposite direction wherever there's big crowds.
+- People are doing so many incredible, inspiring, interesting things all over this country, and I think that's where the hope is - seeing how innovative and creative people can be.
+- I love directors who aren't going back to the stereotypes, who are helping write and create roles for women that are not in the typical Hollywood box. I'm very, very interested in films that are going outside of stereotypical roles for women.
+- I would love to play a nun. I used to want to be one when I was a kid.
+- I still get terrified if I have to talk in front of a group of people. By having a character to play, it makes it safer.
+- People always assume that, if you're an actor who's been on anything from which you're recognisable, that you're making all this money, and it's just not true.
+- My biggest fear in life is fear.
+- I just wanted to work with David Lynch.
+- Salome's of royal blood. She knows whatever she asks she's going to get.
+- I have to be very aware of how I manage my health. I still have relapses if I push myself too hard and my immune system can't handle it.
+- It doesn't matter whether it's television or films or the theater. I just have to believe in what I'm doing. If I don't believe in it, I won't do it.
+- You always hear actresses talk about how unromantic it is to act a love scene or a sex scene - which it is. You're doing it with all these lights on and cameras flying around and people on the set.
+- Society has a fascination with death.
+- From the age of 40, I went through illness for four and a half years. I tried to keep working through it as much as I could, but I was physically not able to do it as much, and if you look sick, it's hard to get a job.
+- I felt guilty about what happened on 'Twin Peaks.' All of a sudden, to have that kind of payoff for doing so little seemed very strange.
+- But I'm attracted to roles where I get to really go in and explore a character.
+- I don't think death is a negative thing at all. I think it can be very positive.
+- It's almost as if we each have a vampire inside us. Controlling that beast, that dark side, is what fascinates me.
+- I was living in Seattle. I was 21 years old, just going to do theater. And I got a call that David Lynch was in town and wanted to meet with me.

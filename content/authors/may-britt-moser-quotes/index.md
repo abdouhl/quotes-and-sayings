@@ -1,0 +1,17 @@
++++
+author = "May-Britt Moser"
+title = "May-Britt Moser Quotes"
+quotes_len = "11"
+description = "the best 11 May-Britt Moser Quotes"
++++
+- Children need teachers who have stars in their eyes themselves and who treat them with respect.
+- Everyone knows that there are some odors that send you directly back to memories of your childhood - odors from Christmas time and so forth.
+- I was the youngest child. I got to be myself and ask stupid questions because I was the youngest. It is so important to listen to the questions children have and reward them for the wondrous questions they ask.
+- Whenever I have given lectures to a large audience before, I have always looked for an ending that gives a 'wow' feeling.
+- A good designer has a lot in common with a good researcher. Both hunt for excellence and perfection. And you have to really focus on the details, and you don't really know what the final result will be before you have it.
+- I've trained myself to find time to exercise relaxation of the body. I have these programs - I just listen to the instructions, and they're simple. Sometimes you just hold your hand tight and keep your breath - you hold it, hold it, feel all the tension, and then relax.
+- It is so important to allow children to bloom and to be driven by their curiosity.
+- My frontal lobe doesn't function well. When I'm out with friends, I typically have a cup of coffee, and that's not good for my sleep. And yet I'll do it again, night after night - 'Oh why did I have that cup of coffee?' I can't stop it because I love it.
+- We didn't care about salaries and having a nice car. We just cared about science and were really ambitious.
+- I was trained to be very tough. My mom told me I shouldn't cry; I shouldn't be afraid of anything.
+- All children are born with stars in their eyes, and they are curious. It is important for teachers to be careful not to kill this curiosity. A lot can go wrong. Children can be teased, even by teachers.

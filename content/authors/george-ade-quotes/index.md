@@ -1,0 +1,23 @@
++++
+author = "George Ade"
+title = "George Ade Quotes"
+quotes_len = "17"
+description = "the best 17 George Ade Quotes"
++++
+- She was short on intellect, but long on shape.
+- If it were not for the presents, an elopement would be preferable.
+- A man never feels more important than when he receives a telegram containing more than ten words.
+- In the city a funeral is just an interruption of traffic; in the country it is a form of popular entertainment.
+- Nothing is improbable until it moves into past tense.
+- Do unto yourself as your neighbors do unto themselves and look pleasant.
+- To insure peace of mind ignore the rules and regulations.
+- Anybody can win - unless there happens to be a second entry.
+- Early to bed and early to rise is a bad rule for anyone who wishes to become acquainted with our most prominent and influential people.
+- For parlor use, the vague generality is a life saver.
+- Only the more rugged mortals should attempt to keep up with current literature.
+- One man's poison ivy is another man's spinach.
+- After being Turned Down by numerous Publishers, he had decided to write for Posterity.
+- A friend who is near and dear may in time become as useless as a relative.
+- The time to enjoy a European trip is about three weeks after unpacking.
+- It is not time for mirth and laughter, the cold, gray dawn of the morning after.
+- A good jolly is worth what you pay for it.

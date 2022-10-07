@@ -1,0 +1,59 @@
++++
+author = "Michelle Keegan"
+title = "Michelle Keegan Quotes"
+quotes_len = "53"
+description = "the best 53 Michelle Keegan Quotes"
++++
+- A lot of people I've grown up with have got themselves in sticky situations.
+- I always take my makeup off before bed, even after a night out. Cleanse, tone and moisturise. I also like my skin to be able to breathe, so I don't wear thick, heavy makeup on my face.
+- My mum and dad got divorced when I was nine and my brother was seven, and all they strived to do was to make sure we weren't affected.
+- Wear a foundation one shade lighter than your skin tone - you can always make it darker, but not lighter, once it's on.
+- When I go away, I do like to sunbathe and relax in the sun but I use SPF. I use factor 30 on my face and 20 or 30 on my body.
+- I come from really strong women. My mum is really strong, so that's driven that into me, and my grandma was the strongest woman I've known in my life.
+- I'm a normal girl from a normal background, I just happen to be in the public eye. My job is to be on TV and that's it.
+- My mum, she's a really good cook, she was our school cook as well, so in primary school. She was always cooking and in the kitchen so I've always been interested in it through her.
+- I always start a job thinking 'why am I here?', I feel very very lucky, I still pinch myself.
+- I do wear a lot less makeup in the summer, definitely - mainly because you've got a bit of a base tan.
+- The public aren't stupid, they know that celebrities are getting paid to promote. I don't want to influence young women to do or buy something that I don't feel passionate about, just so I get paid for it.
+- I have a feisty side to me and I love playing the strong women.
+- I'd rather be remembered for being kind than for my achievements.
+- When I'm not filming full-time, I work out four times a week doing body weight exercises and weights. I'll do a leg day maybe with some abs, then the next day I'll do my arms.
+- Since finding out my great-great-grandma was connected to the suffragettes, I've learned so much more about them. I feel really proud of her and that it's my heritage.
+- When I was in my 20s, I don't think I knew what happiness was. Now, it's about getting to a place in your life when you're confident in the person you are. It took me a long time to get there.
+- I had that whole banter with the police. My mates used to make up raps about Dad being a policeman, it's hilarious.
+- I've had lots of supernatural experiences, but I always just blame them on my brain playing tricks. About five years ago, I woke up to a little girl lying next to me in my bed and when I reacted to her, she mirrored what I did.
+- When I'm on set, I'm always waiting around for people to move the cameras so I can try to squeeze in press-ups and sit-ups between scenes.
+- I've grown up around that sort of petty crime, getting into trouble and trying to get out of it. What's funny is my dad was an inspector in the police, so I was known as the grass.
+- My mum was my primary school cook which was handy because she used to give me extra portions. After school me and my brother used to go in the kitchen and wait for her there, and she used to give us a bit of cake and things.
+- What's special with 'Corrie' is that they have the comedy element, women are funny as well - they might do the emotional stuff, they might do the drama, but they're really funny too.
+- Always exfoliate and moisturise before you tan. Don't just moisturise the dry bits - you know your elbows and your knees - moisturise everywhere.
+- I'm an actress. You can hide behind your character when you're acting - you're not being yourself.
+- I love a tequila shot. You should try it with brown sugar instead of the salt, and orange instead of the lemon. Amazing.
+- My everyday look is foundaton, bronzer, mattifying powder, a bit of blush, mascara and a lip balm or lip colour - and that's it!
+- No matter how old you are, you always want your parents' approval.
+- I prefer wearing no makeup anyway, because I like the contrast when you go out at night and you look different. I actually feel more confident with less makeup than I do with makeup on.
+- It is, because you've got a nice picture, you want to put it up, and then you're like, 'Do I want this to go out in the press? Do I want them to run it and make a story surrounding that picture?' That's what I have to think of all the time.
+- When you're growing up in the public eye, it's hard to go from a girl into a woman in front of everyone.
+- No one comments if they think a man has lost weight or if they think he needs to eat more.
+- I'd love to be able to sing. I make videos in my car when I'm driving back and forward between Manchester and Essex, and I try my hardest to sing well but it just doesn't work out.
+- I do like my eggs in the morning, if I was trying to be good I'd have a piece of rye bread with a bit of avocado and scrambled egg whites.
+- I know how to use a tourniquet, a bandage, I know how to stitch, how to do CPR and a lot of technical bits too.
+- When I go to the gym I never do cardio, it doesn't really work for me. It makes you fitter and it makes your stamina better, so it's better for your heart, but for me weights and resistance training is what sculpts your body so I do that.
+- I never feel guilty when I eat cheat food because if I've been quite strict all week, I feel like I deserve it.
+- With comedy it's all about timing and presence on screen, as the words are there but you have to say them right and the right timing.
+- I always wear nude lips - I don't feel comfortable with a dark lip.
+- I have combination skin so if I wear too thick foundation, I can feel it sliding off in areas, and then I'm conscious of it all day.
+- Yes, the first time I made flapjacks it was like granola, I forgot to put the sugar in, so I went through hours of mixing it and making it then I went to cut into it, and it fell apart.
+- My dad cooks beef in Guinness, I don't know why he does that, he adds chocolate to his spaghetti Bolognese too, I'm scared about doing that, it would like chocolate Bolognese if I did it, he likes to make it look rich that's why, so yes, my dad experiments but I don't.
+- I love Olivia Coleman! I'm a massive fan of her.
+- When I tell my husband stories of how I've grown up, he can't relate to it. I like it though, yeah, it's a badge of honour. You're from Up North, you've got to be a tiny bit rough round the edges. That's the charm!
+- I probably wish I'd worked harder in school. I loved school but it was more a social thing for me. I did well in school but I could have done better.
+- I always wear Disney pyjamas on Christmas morning.
+- I love a Chinese on a Saturday night.
+- But I would love to have played Angelina Jolie in 'Tomb Raider'. Lara Croft! I've done the training so I'm half-way there. Now I just need to get her face and body! She is so hot.
+- I don't really like feeling like my face is caked in makeup, and it can't breathe.
+- I don't think you should try to look totally different on your wedding day, or take any big risks. Always go for something you feel comfortable in - you'll be wearing it all day.
+- Especially a new role, it takes a long time for me to settle into a role but it's exciting as well.
+- I wanted to feel at home so I've brought Yorkshire Tea Bags in my suitcase, as well as my slippers!
+- I'm always running late - it's my downfall.
+- I drink a pint of water every morning when I wake up.

@@ -1,0 +1,30 @@
++++
+author = "Simon Van Booy"
+title = "Simon Van Booy Quotes"
+quotes_len = "24"
+description = "the best 24 Simon Van Booy Quotes"
++++
+- I think anyone can fall in love, if you're open and you're willing, but the real test is sustaining it after all the excitement has worn off.
+- This is why fashion is such a magical part of our lives, for it inspires our decisions without dictating them; it sets the theme but not the limits of our aesthetic.
+- I think John Coltrane is one of the great American heroes, like Abraham Lincoln and Emily Dickinson.
+- Shoes are a neutral blessing for us because feet generally aren't regarded as a place where the battle for self-esteem is won or lost. Feet don't change size when the body does through the natural ageing process.
+- As a single parent, I had become tyrannical in order to survive, and anything I couldn't control caused me enormous anxiety. As a naturally untidy, disorganised man who never made lists or kept receipts, morphing into someone who could take care of a toddler on his own may have caused me to overcompensate a little.
+- Writers are often alone when they work. Hours pass in silence as one long moment; light fades as day turns back to face the coming night.
+- Everything that we love will, at some point, be taken away from us. If I think about everyone I love eventually being taken away from me by death, or simply by getting lost from each other in the world, it makes me value them much more now.
+- When I'm doing something, I do work hard at it.
+- Both my parents were very supportive of me in whatever I wanted to do.
+- Grief is a room without doors - but somehow, with its tinsel and cliches, Christmas finds a way in.
+- Every parent, no matter how cultured or sophisticated, will one day succumb to a child's pleas to visit Walt Disney World Resort.
+- If you travel too often, you actually come face-to-face with what you're trying to escape. I feel like when I travel alone, sometimes it's like being locked in a hotel room with my own worst enemy.
+- Like surgeons trying to save a life, the conservators and preservers at New York City museums dedicate themselves to ensuring the longevity of works of art for public view.
+- I was living in a large apartment with no furniture, just a typewriter, and because I had nothing else to do with my time, it made me take my writing seriously.
+- Single parenting is sometimes just a case of sitting around by yourself in mild despair, not knowing what to do.
+- I was always a writer, by which I mean I was always scribbling away, doing something with pen and paper.
+- There are times in life when language fails us, when everything that needs to be said can be expressed only by saying nothing at all.
+- In world mythology, there are countless examples of tragic characters whose greatest strength is also the source of their undoing. But the ancient Greeks and Romans also held the view that acceptance is the beginning of wisdom.
+- I find hunger more interesting than accomplishment.
+- The most frustrating part of trying to direct everything is not that it alienates you from people who genuinely want to help, but that it's actually impossible.
+- Libraries are the ultimate restaurants for brain food. I sleep better knowing there are libraries. I would take a bullet for a librarian.
+- When you give something up, you need to fill the space where it used to be, and you understand the landscape in yourself a bit more.
+- The joy of style lies not in how we look to other people, but in how we look to ourselves - and the most memorable and beautiful outfits are simply those that, in some rare moment of joy, we found the courage to share with the world.
+- I once saved someone from drowning.

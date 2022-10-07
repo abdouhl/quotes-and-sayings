@@ -1,0 +1,105 @@
++++
+author = "Sophia Amoruso"
+title = "Sophia Amoruso Quotes"
+quotes_len = "99"
+description = "the best 99 Sophia Amoruso Quotes"
++++
+- You can work for other people and still be a #GIRLBOSS; it's more about a state of mind and knowing yourself well enough to know when you're making decisions for yourself or because the world expects them of you. And guess what? It's okay to do that sometimes, too.
+- I want people to feel the freedom to be themselves.
+- The first thing I ever sold online was stolen.
+- I am still a lover of paper books. One of my first jobs was in a bookstore, and I still like to be able to write in a margin and feel the paper. Once inside of a digital device, I end up losing things.
+- My entire youth has been Nasty Gal. My entire future is Nasty Gal.
+- I'm not going to lie - it's insulting to be praised for being a 'woman' with 'no college degree.'
+- I have this arsenal of high-waisted wide-leg '70s pants and overalls. They are more roller-disco than Alexander Wang overalls.
+- When you owe money to people, you're always going to owe money to people, so you should take care of it as soon as possible. It doesn't go away just because you ignore it.
+- I'm a capitalist, I'm a CEO, I run a big business, I'm an employer.
+- Music is such a big part of my life.
+- A great mantra to have, whether you're breaking up with your boyfriend or you lose your job, or something changes that you didn't anticipate - which is a fact of life, and very much a fact of running a business - is: 'I was OK before this, I will be OK after this.'
+- Creativity is incredibly important, but drive is equally so.
+- Making small talk about what someone is wearing is just another form of unsolicited feedback.
+- My favorite magazine is the 'Harvard Business Review.' If someone sat across from me in a restaurant and didn't know me, that might surprise them.
+- If this is a man's world, who cares? I'm still really glad to be a girl in it.
+- Work hard, no matter how much recognition you get.
+- I often say my naivete early on in my career worked in my favor.
+- It's important that people are open. Some people say, 'I'm going to be a doctor,' and they're a really good doctor. But for the rest of us, it's a big question mark. Just giving yourself a break, letting yourself try new things, and when something doesn't work out, moving along... it's all we can really do.
+- You are not a special snowflake.
+- Nothing will teach you more about perceived value than taking something with literally no value and selling it in the auction format. It teaches you the beauty and power of presentation, and how you can make magic out of nothing.
+- Every other fashion brand out there - including those that I call 'competitors' - are run by mostly old white men, and the customer knows it.
+- You can't convince someone else - whether it's a potential employer, a loan officer at the car dealership, or someone you've been crushing on - that you're amazing and terrific if you don't actually think you are.
+- EBay gave me the framework to discover I was an e-commerce entrepreneur. I touched everything, from shipping to logistics.
+- I have three pieces of advice I want you to remember: Don't ever grow up. Don't become a bore. Don't let The Man get to you.
+- I don't read fashion blogs all that much. I do read magazines, and I trust my friends' opinions, even though we all dress very differently.
+- Sometimes the expectation of being inspired in one specific way may close you off to the actual inspiration.
+- There's no 'Chutes and Ladders' in life.
+- I think I've just gotten really good at accessorizing personally. I've always been good at accessorizing other people, and intellectually, I've known how to accessorize, but I was pretty minimal personally - although I was wearing a ton of rings.
+- I learned the hard way that taking shortcuts and living for free is not really living free.
+- You want to know what four words I probably hate the most? 'That's not my job.'
+- A lot of young people who I employ expect a raise after three months or expect not to have to put in more work than what's in their job description.
+- I don't have a lot of style icons. There are not a lot of people today who I look to.
+- In an ideal world, you'd never have to do things that are below your position, but this isn't an ideal world, and it's never going to be.
+- When I was 22, I wasn't too proud to do anything. I was taking out trash, buying stinky vintage clothes, and pulling gross Kleenex out of the pockets.
+- I want to give other creatives the opportunity to find the entrepreneur inside themselves and teach them how to build their own platform.
+- Don't you dare alter your inner freak.
+- Sometimes in the world, there's such pressure to follow a certain path that we forget the importance of learning as we go.
+- It was my full intent as a teenager to smash capitalism and eat dumpster food.
+- A lot of people in my generation don't seem to get that you have to work your way up. I don't care if filing invoices is beneath you. If you don't do it, who do you think is going to? Your boss? Nope. That's why she hired you.
+- I'm really good at hiring good people.
+- My philosophy is that you sell things for more than you bought them.
+- I can show up at a Goldman Sachs conference wearing a Judas Priest T-shirt - and I have - while everyone else is wearing the same dress.
+- If you knew what you wanted to be when you were 6 years old - great! If you have no idea what you want to be, that's OK!
+- I love mirrors.
+- I've probably spent more time than any other brand reading every last comment. To listen to people the way you're able to online is very powerful.
+- Don't act like you've arrived when you're just receiving the invitation.
+- It's a lot of work to sell one thing on the Internet.
+- Spell check exists for a reason.
+- The best wisdom is earned through experience, particularly mistakes.
+- The time making money should be greater than the time that you are spending money.
+- Failure is your invention.
+- I built a huge profitable business with no debt.
+- As a visual person, I love a creative resume. Putting in a little effort on the design side will show that you care about making things look good.
+- Chaos magic is the idea that a particular set of beliefs serves as an active force in the world. In other words, we choose what and how we believe, and our beliefs are tools that we then use to make things happen... or not.
+- The modern girl is less concerned with everything being a brand name.
+- A typical day for me involves a lot of meetings.
+- Every woman who has a business book has a platform. For the most part, they're either a television personality or someone who had the perfect pedigree and worked their way up the career ladder.
+- There are a lot of parents who've come to me and said about their daughters, 'Oh my God, she's 21, she's totally flailing. Your story gives me hope.' I put my mom through that.
+- I would say I'm a boss who's learning, and I hope people have the patience for the fact that I'm learning along the way because that's a tough thing.
+- If you look at my Instagram, girls are just beating down my door for tips or a job or mentorship. I can't hire every single one of them. My story is one thing that gives them hope. It's an unconventional story with anecdotes, commonsense advice and a big dose of permission to figure things out for yourself.
+- When I go through hundreds of applications from people who all have very similar-sounding experience, cover letters are the only glimpse I have into a person's personality.
+- I was terrified and confused every day of my life until I started Nasty Gal, and for a good while after as well.
+- It was easy for me in my bathrobe to provide really great customer service. As an introvert, it's really much easier to do than when standing in a retail store.
+- I wrote '#GIRLBOSS' while running a $100 million-plus revenue business.
+- I had 60,000 friends on MySpace.
+- Money looks better in the bank than on your feet.
+- I didn't buy the Porsche for status. I hate that, and it's actually kind of goofy now because in L.A., a Porsche is like a Honda. It was just that I could pay that much money for a car and drive it off the lot.
+- You don't get taken seriously by asking someone to take you seriously. You've got to show up and own it.
+- I think it's important that everyone understands that there's no real prescription to having an awesome life.
+- I think there are very few brands with a person's point of view behind them.
+- Getting fired was always a big deal to me. It's a bit like having someone break up with you.
+- Creativity and business acumen don't always go hand in hand.
+- Some of the best things that I ever sold on Ebay, I bought on Ebay - just for way less.
+- I've never worked in a retail store, but I did sell shoes at Gimme Shoes in San Francisco, a job I was fired from.
+- I feel like there's so many places to shop today that just feel like an Excel spreadsheet put between four walls.
+- My parents taught me the value of money and working hard. And I kind of got that in me intuitively.
+- Lots of people are going to sell clothes online. But not a lot of people have built a brand, a living, breathing brand that people feel like they're part of.
+- A big practice in chaos magic is the use of sigils, which are abstract words or symbols you create and embed with your wishes.
+- Everyone is told to go to high school and get good grades and go to college and get good grades and then get a job and then get a better job. There's no one really telling a story about how they totally blew it, and they figured it out.
+- It's the beauty of the Web. You can pretend to be anything you want. But people figure out pretty quick if you don't live up to it.
+- It's amazing how directly you can connect with people via social media.
+- Success is a scary concept because it assumes something kind of final. In the grand scheme of life, I don't think there is some ultimate success.
+- I make money, and I don't need money.
+- I don't want to spend too much time dwelling on what I've already done because there is still so much to do.
+- At the bare minimum, you need to be in your position for a year before you ask for a raise or title change.
+- My first job was as a sandwich artist at Subway.
+- My days of being the tardy employee at the record store gave me a cultural and musical understanding that was more unique than if I'd just listened to garbage-y pop on the radio my entire life.
+- Everyone does a style book, and I wanted to write a business book for people that didn't think they would like a business book.
+- I think many people go to business school and learn ways to play it safe, ensuring that they avoid some of the pain that entrepreneurs endure while taking less calculated risks.
+- Only the paranoid survive.
+- I don't lead with an iron fist. I don't yell at people. I have a way of making my opinion clear.
+- I work in silence.
+- I've been wondering for a while now if the CEO role is one that I want - and the one that I'm best at.
+- I love clothing and still shop a lot of vintage.
+- I can be pretty reactive, and I've learned over time to be less reactive: to stop and think before I make decisions.
+- I've never seen someone work for a salary.
+- 'Have you ever considered changing the name Nasty Gal?' is probably the dumbest question I've ever heard.
+- Selling $500 shoes when you make $12 an hour is just an awkward economic juxtaposition.
+- It takes a lot more than just knowing how to put an outfit together to succeed in the fashion industry, so more power to you if this is where you want to be; just don't expect it to be an extended trip to the mall.

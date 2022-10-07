@@ -1,0 +1,18 @@
++++
+author = "Stephanie Tubbs Jones"
+title = "Stephanie Tubbs Jones Quotes"
+quotes_len = "12"
+description = "the best 12 Stephanie Tubbs Jones Quotes"
++++
+- I am convinced that we as a body must conduct a formal and legitimate debate about election irregularities.
+- My reputation is too important to put it aside for purposes of some friendship. We have a job to do.
+- Everybody expects that their vote's going to count.
+- It's real difficult to save when you don't have any money.
+- I would not say that George Bush doesn't care about people at all. I think that his loyalties are to the upper class.
+- Even six months later, they have not figured out how do we help the people from the area get housing.
+- I'm duty-bound to follow the law and apply to the law to the facts as I find them.
+- I think the federal government really should be supporting Louisiana and ensuring that every person from that area has an opportunity to vote on what will occur in the area.
+- I raise this objection to debate the process, and protect the integrity of the true will of the people.
+- I think recent revelations about who's in what bed speak to the problems with what happened in the Gulf.
+- The current administration has made the decision to cut dollars going for community development block grants, for various incentives to bring cities back.
+- If they're willing to stand at polls for countless hours in the rain, as many did, then I should surely stand up for them here in the halls of Congress.

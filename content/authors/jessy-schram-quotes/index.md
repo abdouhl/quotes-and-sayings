@@ -1,0 +1,18 @@
++++
+author = "Jessy Schram"
+title = "Jessy Schram Quotes"
+quotes_len = "12"
+description = "the best 12 Jessy Schram Quotes"
++++
+- Any show that includes guns or machinery or stuff like that, you need to trust who's around you because blanks are flying.
+- There are so many different styles of yoga.
+- I loved 'Chicago Code;' I watched that a lot. It was great because it really captured the city - I'm from Chicago, too.
+- 'Last Resort,' to me, is very much about finding truth and integrity in an extraordinary situation.
+- My experience with 'Last Resort' is very different from most of the cast. While they are next to a mountain, I'm always within the four walls of my home.
+- When you're on a submarine you're usually underwater for months at a time, and you don't get to Skype or make phone calls. When you get messages, they're maybe two sentences. They're very short.
+- You know that you're part of a Spielberg production when you've got some aliens involved, but you really know when you're sitting there at a table read, and they say, 'Steven really wanted it this way.'
+- I tend to be a jam-band fan, and I love the Rolling Stones.
+- For the spouse of someone in the service, you are your own provider, your own lover, you own best friend while that person's gone - the mother and father if you have kids.
+- 'Terrible' is not a word I would use in shooting romantic scenes with Scott Speedman.
+- At different times in your life, your body needs different things.
+- In 'Falling Skies,' I was playing a soldier and a fighter, and then, when I was taken captive, you're still in this post-apocalyptic world.

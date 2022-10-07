@@ -1,0 +1,22 @@
++++
+author = "Steven Rodney Mcqueen"
+title = "Steven Rodney Mcqueen Quotes"
+quotes_len = "16"
+description = "the best 16 Steven Rodney Mcqueen Quotes"
++++
+- I can't work in an environment where it's a stiff hierarchy; that's not my kind of way.
+- I don't do storyboarding, ever; I'm not interested in that.
+- I'm the kind of person who likes to create the environment and mindset - not because I do it deliberately, but because that's how I like to live - where, from catering to makeup to hair to wardrobe, electricians, camera department lighting, sound, you know, it's our movie; we're together, and we have that camaraderie and that closeness.
+- I just see myself as a guy who's trying to make a film or, make art.
+- I need to have a reason why I'm doing something. Otherwise I'm lost.
+- I love actors. That's my bread and butter, and I got to work with some amazing ones on '12 Years'.
+- Film is important; it can be more than reportage or a novel - it creates images people have never seen before, never imagined they'd see, maybe because they needed someone else to imagine them.
+- I'm not that interesting of a person.
+- I learned that life is a long and difficult road, but you have to keep going, or you'll fall by the wayside.
+- I'm about challenging people. Like, properly challenging them and their assumptions.
+- I love creating images, of course, because I'm an artist.
+- I'm certainly not who people think I am. I always do whatever I want to do, and my films are personal to me.
+- My influences come from real life. I'm not interested in cinema for cinema's sake. I'm interested in life - what one does and how one interacts.
+- Politics will take care of itself. I'm interested in people who are involved in the situations that politicians create. Politics is taken care of by politicians - they're not filmmakers.
+- I'm a filmmaker, so I always think: When is the breaking point? Sometimes you've got to go beyond the breaking point, and then you catch it. When is long enough? It's one of those things you have to look at, walk away, and go home and find out what it is.
+- Audiences make their minds up about people they see on screen, just like they do in real life. That's what fascinates me in film. You see a character and have to think: is this person different to what I assumed he was when I first saw him?

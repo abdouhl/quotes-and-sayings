@@ -1,0 +1,112 @@
++++
+author = "Mads Mikkelsen"
+title = "Mads Mikkelsen Quotes"
+quotes_len = "106"
+description = "the best 106 Mads Mikkelsen Quotes"
++++
+- If you spend a week at a casino you will very easily see that people have a certain way of behaving in a casino.
+- I take my work enormously seriously. When I do something, it has to feel right. Everything has to be right.
+- I've never been specifically attached to westerns, but there are those I like - one of the best westerns I've seen is 'Unforgiven.' I think the genre has something extremely powerful that can allow them to talk about good and evil in a very straight way.
+- Machiavelli had some cold tricks for people who wanted to be demagogues and wanted to take over the world.
+- If people need to be informed by lines, then there's no reason why the actor is saying the line except for information for the audience; I think there's something wrong.
+- I was a very focused kid. I always had this crazy lifestyle... billions of jobs, two hours of gymnastics every day, handball, anything with a ball, really. I must have had ADHD or something. I was very energetic, and very small. I didn't start growing until the last year of high school.
+- I never really planned a career. I've tried to avoid it. I've tried to do this stuff I felt for, the stuff I like. So, I've just been meeting these fantastic directors who've offered me a variation of different parts and different films.
+- I was very energetic and very small. I didn't start growing until the last year of high school.
+- I can never wink at the audience.
+- It was never a plan to be an actor.
+- Being physical and doing my own stunts - it is fun to do these kind of films once in a while, especially before you get too old.
+- There is a tendency to underestimate the power of what we can do without words. Sometimes you can make a scene even more powerful and precise without dialogue.
+- I was a gymnast for many years before I was a dancer, so it comes in pretty handy when we do stunts.
+- 'Clash Of The Titans' is one of the biggest movies I've done; it was certainly the most effects I've worked with.
+- Once you do one bad guy, usually all you get offered is bad guys. But I've been able to do different things.
+- A solid family, as they say. They join me on location if they have a chance, but I can also be home three or four months doing nothing, so I probably see my kids more than people who work constantly all year long. If that changes, we'll have to have a family meeting.
+- I've always been interested in strange foods, coming from all different places.
+- I make an awesome soup with coconut milk and shrimps; it takes me five hours to prepare the whole thing. It does become very spicy, but you can definitely taste all the ingredients.
+- I don't want to be the stupid blond. I want to be an actor.
+- There's no such thing as easy, but it's easier when a script is good.
+- If David Bowie wants, I'll put him in my phone book.
+- I'm one of the actors who really enjoys working with kids and animals, which is always a no go. There's something beautiful about it because you tend to forget yourself as an actor.
+- In a way, we tried to make 'The Salvation' a contemporary film with contemporary emotions. At the same time, in the script, you get a feel that all the small talk is not a part of our universe. It's more precise talk.
+- I like 'The Three Musketeers.' I like those kind of cool things where they were having a robe and a sword.
+- I go to the pub, hang out with my family - that's pretty much it. I also do a lot of sports when I get the chance. I'm actually a pretty mellow guy.
+- I do read some of the scripts from America and, even though the themes or subject of the film is very interesting, and some of the scenes are very interesting, there is a tendency that they have to explain everything. There will be no dilemma.
+- I know a little about Greek mythology. It's not that far away from the Nordic mythology.
+- Sometimes you have a period piece where you have to research around it but, if the writers have done their homework well enough, the information is all in the script.
+- I always try to find something I like about the bad guys and then try to find the mistakes and the flaws in the good guys.
+- I like to stay home with my family.
+- Sometimes you're trying your best and you still can't find a solution, but I try not to waste my life living in a dark place.
+- I come from a culture where you don't divide it up to what you can do on TV and what you can do on film.
+- Before we made films about gangsters, everything was about the royal families. They contain so much drama.
+- I've been watching 'Walking Dead' with my son, and there is absolutely nothing in there I find shocking, but it's cool, and I like it.
+- Danish film is spreading in a fantastic way.
+- I watched westerns when I was a kid, like everybody else, but I wasn't a total nerd or geek about it. I kind of fell in love with westerns heavily when I started watching Sergio Leone's westerns.
+- I was a late bloomer, but I had a career as a contemporary dancer before that, so I had some kind of connection to this world. But I was always a little more in love with the drama of dancing than the aesthetics, so I thought, 'Why don't you give it a chance if you think you can do it a little different?'
+- When I was a kid, I wasn't looking at the small-budget films myself. I was looking at 'James Bond' and all the major films, so I still have that energy. I still love those films.
+- There's been no real reason to move to LA. The stuff I've done for America has been done in Europe anyway. We made a decision early on that we'd find our base and not shake the children's world as much as mine.
+- In Denmark, we're making 20 films a year. If I'm showing up in even two of those, people will get tired of me really fast.
+- I've always been extremely physical.
+- I love working back home, but it is a small country, and we do get tired of watching each other.
+- I'd rather be voted 'the sexiest man in Denmark' than 'the ugliest man in Denmark'.
+- Typically, I work with the script and the director for awhile before, just to make sure we're on the same page.
+- If you're not bruised up, then you're not doing an action film in a real way.
+- Actors are a race.
+- I have an older brother who is an actor as well.
+- I was not into sci-fi, science fiction, at all. I was into some of the old pirate films with Burt Lancaster and stuff. I liked them.
+- The day before I was famous in Denmark, nobody looked my way. The day after, everybody wanted to talk to me.
+- First, I have to read something and find it interesting and like the story. If I don't understand it fully, but there is something in there that is interesting, then it takes a director to convince me. If he can't do that, then I don't go with it. It doesn't matter where the project comes from.
+- I'm not even on Facebook. I've got enough friends I never see. You know how you have a lot of friends you never call? I don't have time for new friends, and I don't want to be friends with someone only online.
+- Once you do one bad guy, usually all you get offered is bad guys.
+- I think I've always had to pick and choose whatever I want to work on. If I'm not happy with what I'm doing, it's probably not going to end up that interesting.
+- I'm not looking for a challenge, necessarily. I'm looking to make a really great film.
+- I can be intense in a lot of ways, but not the way you see the guy in 'The Salvation.'
+- I will never be a fan of any kind of political correctness: I think it's instant death to creativity.
+- I never even thought about being an actor. Somebody asked me if I'd like to learn the craft, and I said, 'Okay.' I was a gymnast in a show at that time, and somebody asked me afterwards one night. I performed as a gymnast for nine years, and then I did acting after that.
+- I did a TV show called 'Unit 1.' It wasn't a bad experience, but yes, the first season I didn't have a good time because I was coming from Nicolas Winding Refn films where the corners were sharp and radical, but now we had round corners.
+- If you're playing the bad guy, you have to find what you like about them.
+- I have an enormous metabolism, so I'm lucky.
+- I haven't watched that much TV, to be honest. To be honest, I don't watch that many films anymore - partly because I don't have time; secondly, because I watch a lot of sports, and I love watching sports.
+- I'm engaged to Hollywood. If there's something I find I have to do, I'll do it. Otherwise, I'll just stay home and have a vacation.
+- I'm not ambitious about my career, but I am ambitious with each job. I can be fairly annoying to work with.
+- I always wanted to play some kind of instrument - piano, saxophone, whatever. I took it up for a while, then forgot about it because I didn't have the time.
+- Denmark is a small place. We all know each other.
+- If I do my very best, then the camera and the audience will follow me, and eventually they will somehow feel like I feel. I don't have to show it to them. I don't have to speak it out loud.
+- I think they tried the 3-D revolution at least five times throughout history, and it never seemed to work. However, finally, 'Avatar' did it.
+- If I was doing 'The Hunt' constantly, I would get very old, very fast.
+- I always work with the tempo of the energy of the character, whether he's fast or slow, or heavy or light.
+- Once in a while, when I'm out on the lawn, I'll jump around and do a couple of things. Here's a secret: The older you get, the more difficult it gets. The smallest little injury stays with you for so long. But that's how it goes, and it doesn't stop me. I'm always ready to do something that hurts a little!
+- I have the strange ability to shut things out.
+- I'm a beer man. I tried to drink whiskey and Scotch, but I don't get it. It smells like a girl who didn't shower and just splashed a lot of perfume on.
+- I fancy myself at being pretty good at understanding a script and finding the weaknesses, and then making them more radical than they are. People tend to listen to me.
+- The script is always the main preparation for me. Sometimes you have a period piece where you have to research around it, but if the writers have done their homework well enough, the information is all in the script.
+- Predominantly I'm an Adidas guy who walks around in sports gear all the time because there's always a ball right next to me somewhere. I do a lot of sports, but I do enjoy wearing a lot of suits.
+- The problem is that you can't really read a script saying, 'Hmmm, I'll just see what this is.' You have to go right into it; you have to get engaged with it, and once you are engaged, you want to do it! It's really difficult to get uninvolved.
+- We are filmmakers, and we are specifically trying to entertain people.
+- I don't wear cologne. I do occasionally, but anytime I take a shower, I just put on deodorant. That's basically what I smell like.
+- The physicality of any character is always split up into fast, slow, high energy, low energy, what kind of personality he has. So that's where the physicality comes in. And flying through the air is just something you have to do if they ask you.
+- The whole Fannibal thing is predominantly something that happens in a world I don't know about, which is the Internet.
+- TV is obviously so different from film: because it's a never-ending process, it keeps going; you keep receiving new pages.
+- Sometimes we misunderstand what films can do. We just throw a whole book in there, with people just talking, talking, and talking. The picture can tell, the frame can tell.
+- I've always been extremely physical. I was a gymnast for 15 years, and then I was a dancer for nine, so I was kind of looking for these parts. But we have a tendency in Denmark not to do many action films.
+- I'm terrified about psychic people who have their little shops. I always walk across the street and go somewhere else. Imagine if one of them came out with their face all pale and said, 'Hurry up and enjoy yourself.' No one wants to know that.
+- I don't necessarily prefer playing villains. I know a lot of people say they are more fun, but if the scriptwriter has done their work well, you can find something realistic in a villain and find the mistakes in a hero - it's all down to the writing.
+- I've never been a big fan of making telepathy to the audience. That would be too much a wink in the eye. That would make people around me fools, right?
+- We can ask ourselves why we invent God, and then, ten minutes later, we invent Satan - why? Because we need him; there's something fascinating about the other side of the coin.
+- We were in love with 'Mean Streets' and 'Taxi Driver.' We had no idea why nothing remotely like that was done in Denmark.
+- I vividly remember Charles Bronson's face in 'Chino.' The western genre is screaming for a face like that.
+- II know a little about Greek mythology. It's not that far away from the Nordic mythology.
+- I'm very proud of 'Valhalla Rising.'
+- I try not to carry any character back home because that would be extremely frustrating for my family.
+- I choose work with the people I like to work with.
+- England and Denmark have a sense of irony and a darker sense of humour that you don't necessarily find in Germany and Sweden.
+- Awards mean absolutely nothing if you don't get it. If you do get it, they're the best thing in the world.
+- I like to stay home with my family. But travel is good in a way. It makes you redefine each other each time you see each other. Also, it helps that I think my wife is the hottest woman in the world.
+- I felt perhaps 'The Girl with the Dragon Tattoo' was a little premature. It was a huge hit around the world - it was still running in the theatres - and the Americans at that time were already shooting the remake, and I was like, 'Whoa! Give it a break of five or six years and get a little inspired, and then do it.'
+- I tend not to have any references to anything. I just jump into the script in front of me. If you reference too much, you have no idea if the performances are right.
+- When I do outdoor scenes, I tend to find a quiet space where I can sit and carve a walking stick that can turn out to be interesting for me.
+- One thing I can say about the French language is that no one in the world loves their language as much as they do. It doesn't matter if you're close - it still sounds terrible to their ears.
+- I did a crazy version of 'Romeo and Juliet' once, and I played Romeo.
+- I'm a big fan of film for one reason: because it is visual.
+- I became a dancer late and an actor late.
+- I was into sports and swimming as a kid and didn't spend a whole lot of time sitting down. I was a gymnast.
+- We have no chance to comprehend what goes on there - it's so dramatic, and people are so poor. We all felt bad about being there. Filming in India felt like we were going to borrow something knowing that we were never going to give it back.
+- If you have to be frightening, you need some actors around you to be really frightened. And if they're not frightened, you're not so frightening anymore. In the same way, people say, 'I think you come in, and you're really sexy'. But how do you play sexy? It depends on the eyes that are looking.

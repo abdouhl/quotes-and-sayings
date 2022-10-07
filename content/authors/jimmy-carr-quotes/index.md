@@ -1,0 +1,36 @@
++++
+author = "Jimmy Carr"
+title = "Jimmy Carr Quotes"
+quotes_len = "30"
+description = "the best 30 Jimmy Carr Quotes"
++++
+- You go, well you can't joke about race. Well if you're from a different race and that's your experience of the world and you want to talk about that, then fine. Or you can't talk about disability, but disabled comics can talk about that.
+- It's so clear cut with a comedian - you have that reflex action, whereby you laugh or you don't. And so you either love us or you simply cannot see why people are laughing.
+- They say the people most affected by the credit crunch are pensioners - well, let go of the handbag then, Nanna.
+- I go around the country and do a simple gag like, 'The property ladder is now a snake' and get a real laugh.
+- Even if you're doing the national insurance awards, there's still that excitement when you wonder who is going to win, er, best premiums.
+- I like to write a joke without any fat on it. The shorter the better. I cater for people with ADD, basically.
+- Staying in luxury hotels still gives me a kick, especially Oulton Hall in Yorkshire. I'd stay in a hotel for the breakfast and room service.
+- I was a Christian. I didn't want to have sex before marriage, I was a bit uptight and not very self-confident. I was a virgin until I was 26.
+- The first few weeks of joining Weight Watchers, you're just finding your feet.
+- Like most of the world's population I'm into coffee, but in a properly big and important way. My perfect weekend would start with a pint of coffee.
+- As soon as I did my first five minutes of stand-up I knew that I would rather be a failure at comedy than a success in marketing.
+- I didn't plan to be the rude middle-class comedian. You write a certain type of joke that you find funny, and mine happen to be often rude. Yes, it's juvenile, but that's me.
+- The bigger the audience, the better with comedy.
+- The tragedy for comedians is there's nothing more they want than to be liked. We desperately seek approval. It's almost like a personality disorder you can do as a job.
+- I was in the South of France. I saw a Brownie on a school trip. She was holding up a book. It said on the front 'rough guide'. I thought: 'Yeah' she's not a looker.
+- You never want to be the grumpy guy, although I do have quite a grumpy face.
+- It is such a social thing, laughing. Two thousand people in a room laughing is such a great buzz and they tend to laugh much more in a group.
+- A surprising amount of my jokes sound very implausible but are true.
+- I don't see myself as offending people.
+- I am trying to release endorphins here. I am not preaching to you - I am trying to make you laugh.
+- I'm obsessed with TV. How wrong our parents were when they said we should only watch an hour a day. Stop wasting your time reading books.
+- I don't think it's any coincidence that I lost my religious faith and 'manned up' in the same year. I was described somewhere as a lapsed Catholic, which is funny because I'm not going back! I want to achieve things rather than live life in an animalistic way.
+- If I'm at home for the weekend - and that is almost never - I tend to get twitchy at about eight o'clock in the evening because my body clock is timed to go on stage. I don't know what to do with myself.
+- There's things that I couldn't joke about but other people could.
+- I think the idea that death is not the end, that your dog's just gone to live on the farm, is limiting. Thoughts like that prevent you from making the most of the time that you have.
+- Women were quite terrifying until I was older. I think that's partly down to confidence.
+- More people are going out to comedy shows than they were before.
+- I was in love with the idea of being in love with a woman way before I was actually in love with one.
+- Yes, I have this crazy honk of a laugh.
+- After a gig I always head back to the hotel, remembering granny's words of wisdom. I cancel the late-night pizza and watch the Jonathan Ross show instead.

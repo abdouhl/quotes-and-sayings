@@ -1,0 +1,18 @@
++++
+author = "Scott M. Gimple"
+title = "Scott M. Gimple Quotes"
+quotes_len = "12"
+description = "the best 12 Scott M. Gimple Quotes"
++++
+- I'm very lucky that I started out as a reader of the comic book and a viewer of the show. And I try to remain that, and make 'The Walking Dead' that I love watching. Luckily, I have the source material that I love, and I want to serve that as well.
+- I think portraying human beings trying to hold on to their humanity against pretty much certain odds that they'll die horribly in some way someday, and that they'll face horrible things along the way, I don't know - I think that's a beautiful thing. It's a wonderful thing.
+- On every show I've been on, it's just managing all the different responsibilities and time management. 'The Walking Dead' is a really well-oiled machine, and I have a great number of people who do a great number of things very well.
+- When 'The Walking Dead' has been its best, all that stuff is happening at once: the emotion, action, horror, scares. I'm very proud that I was able to write an episode where a little zombie girl could walk out of a barn after a horrific zombie execution and have people cry. That's one of the proudest things I've ever done.
+- I don't want there to be a typical episode of 'The Walking Dead.' I want to try to give people different things every week because that's what I dig.
+- A non-frightening zombie is a lame zombie.
+- You can do irrefutably impossible things with the right amount of planning and support from intelligent and hardworking people and pizza.
+- It's gonna be weird how there are going to be new 'Star Wars' movies every year starting in 2015. I don't know what that's going to be like, having one every year. Maybe it'll be perfect. Maybe it'll be just the right amount of time to have something to look forward to. Maybe it'll be too many at once.
+- I'm thrilled to continue the tradition of the spectacular, cinematic, horrifying, exciting and emotional storytelling of 'The Walking Dead.' I'm a huge fan of the comics, and started with the show on the other side of the set, as an avid viewer.
+- The most interesting thing to me is that 'The Walking Dead' is a show that reinvents itself every eight episodes. It's an evolving landscape. There are characters that die. There are characters that stay on. There are characters that go away. I love that.
+- Lots of shows are written completely in the writer's room. And I wouldn't say 'The Walking Dead' is that way. There are three levels to it. There's us in the room. The writers going off by themselves. And me working with the writers on a finished script.
+- I actually come from comics, and I'm big on comics. I was reading 'Walking Dead' from the beginning. Then just being on the show, I was really lucky to work on episodes like 'Pretty Much Dead Already' and 'Clear.' I worked a lot on episodes that I didn't write.

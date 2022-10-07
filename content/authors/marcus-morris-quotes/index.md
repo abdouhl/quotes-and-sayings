@@ -1,0 +1,20 @@
++++
+author = "Marcus Morris"
+title = "Marcus Morris Quotes"
+quotes_len = "14"
+description = "the best 14 Marcus Morris Quotes"
++++
+- We can all go up to each other and be honest with each other. That's the biggest thing, when you can go out and speak to your brother.
+- I wasn't as good as some of these guys coming into high school, going into college. I really had to grind to get my position, even still now. I'm still doing the same thing.
+- I have been in many battles with great players, and not once have I ever tried to do anything dirty as far as taking a player out of a game.
+- When I was in Boston, I averaged 14 a game.
+- I just don't want people to mistake playing basketball, playing hard with trying to hurt somebody.
+- I just feel like I'm made for New York.
+- One thing I am not is a dirty player. And I hang my hat on being a hard worker. I am a respected man in this league, and I hope that people look at that and know me as who I am, and I would never go that far, trying to hurt somebody.
+- At the end of the day, nobody is bigger than the team.
+- I have started my share of games. It's not like I'm new to it.
+- At the end of the day, you go through different paths in the league. I wouldn't change anything about it.
+- I approach this game with the utmost respect for every player.
+- My thing is just cut down the easy baskets. Cut down the easy baskets, and cut down the other guys that are going to score.
+- In the basketball world, guys like me, we tend to make bad decisions.
+- Everywhere I've been I've bet on myself.

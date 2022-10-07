@@ -1,0 +1,37 @@
++++
+author = "Marissa Jaret Winokur"
+title = "Marissa Jaret Winokur Quotes"
+quotes_len = "31"
+description = "the best 31 Marissa Jaret Winokur Quotes"
++++
+- I work out every day, and I eat 1,200 calories. Here's the truth - like I've said to everybody, 'Every diet works if you follow the diet.'
+- I lived in New York my whole life. Like every New Yorker, I have stories about spending summers on the Jersey shore, riding the roller coaster in Seaside that is now famous for that sickening photo of it being washed out to sea.
+- I love my co-hosts and the crew at 'The Talk.'
+- I want my son to never know the mommy who would rather watch him play basketball than play with him.
+- Every producer I have met has asked me to change my hair. I have always said 'No.' I finally change it for me... and now everyone in the business is like, 'You have to go back to having brown hair.'
+- I can gain 20 pounds in a heartbeat.
+- We have to support each other's tired nerves, I know that sounds so Pollyanna, but really... Mommy groups can be amazing, but haven't you ever gone to one and felt like you are back in high school, totally on the outside of the 'cool kids' club? I totally have!
+- Every year, there is a new diet that all the celebs or housewives are trying. We all want the perfect diet or the perfect pill. If we surveyed a million women, and they could choose to learn the truth about God or the foolproof diet, I guarantee more women would pick the miracle diet over the miracle of life.
+- I always have hard-boiled eggs with me to eat egg whites for protein. Even when I travel, I bring eggs with me so I don't eat the plane food. Yes, I'm the person you do not want to sit next to with hard-boiled eggs.
+- I have no regrets. I had an amazing surrogate who carried my son for me. I am so grateful to her. I can even say I am grateful for having cancer. I was always meant to be a mom, but if I didn't have cancer, I never would have had Zev. I would have had a kid, but not Zev, and I want Zev - tantrums and all.
+- I've had the exact same brown hair all my life, and my whole life, people have been telling me to change my hair.
+- I find that the 'moms club' is a very, very exclusive club! It's the club of mothers who wear skinny jeans and white button-down shirts and wash their hair twice a day! I do not, and mothers who do make me feel really bad. You know who I am talking about!
+- Being on set is really hard because there's craft service.
+- I was 27, an unemployed actress living in a really crappy studio apartment. I had just moved to Los Angeles alone, away from my family. I had cervical and uterine cancer and I was told that I would never be able to carry a baby.
+- Nobody likes my hair blonde!
+- I love sleeping in my son's silly racecar bed. I love watching hours of 'Yo Gabba Gabba.' I love long playdates with his best friend Jack and traveling with Zev. Most of all I love coming home from work and seeing Zev run up to me saying, 'My mommy's home! My mommy's home!'
+- You would think with me living in Los Angeles I would go to the beach all the time, but we don't. It's the same as visiting the Statue of Liberty. If you don't live in N.Y.C., it's the first stop on your family vacation, but if you live there, you only go if you have relatives visiting from out of town!
+- I'm showbiz-fat. It's so funny, in all the reviews that I read, no one wants to use the word 'fat' as an adjective. So I have to deal with 'dimpled-kneed,' 'hefty,' 'plus-sized,' the most obscure words you can imagine.
+- I am the youngest of four siblings, and we're all so close. I don't know where I would be without my brothers and sister. I secretly believe that my parents love me the most!
+- The truth is if you can eat just a serving size, you can eat anything. But we all know how those harmless treats can call out your name all night long, and rationalizing in the middle of the night is very easy.
+- I'm a 40-year-old, and I have a 5-year-old kid. I don't want to be unhealthy. I want to be around for as long as I can.
+- My God, what did I do before Facebook? I guess I had to call people and see how they're doing! Now I can just read a post and call when in trouble.
+- Because dancing is way more fun than the treadmill, I downloaded the video of Beyonce's 'Single Ladies' and started to learn her dance. Let me tell you, if I ever did that dance in a club, I would still be a single lady! But what a workout!
+- I grew up in Bedford, N.Y., and it was close enough to Jones Beach on Long Island that every summer my mother would pack the car for the day, and we would drive to the beach!
+- The act of exercising at 6 A.M. really helped me. It made me not dread the workout part of my day all day long. Also, when I went to have a tiny cheat, I would really think back to how hard I worked and thought, 'It is not worth going to boot camp an extra week over one peanut butter cup.'
+- I'm certainly not 10 pounds away from being an ingenue! Of course I would love to lose 10 pounds. I would never lie and say I don't think about it, but I don't think about it on a daily basis. I love my body. I don't like wearing clothes that hide or cover it. I love wearing costumes that show it off.
+- I know many people have said it before, but there is nothing a cup of coffee and a new pair of shoes can't fix!
+- I can honestly say - not proudly, but honestly - before I had a child, I would see things on TV or hear the news, feel sad for the people and move forward with my day. Now I see everything through a mother's eyes.
+- On Dec. 10, 2000, I learned I was free of cancer.
+- I'm sure that blondes have more fun, but I think that as a brunette I might work more.
+- My cholesterol went from 220 to 149. I was crying like a 'Biggest Loser' contestant when my doctor gave me the news.

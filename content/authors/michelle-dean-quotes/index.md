@@ -1,0 +1,93 @@
++++
+author = "Michelle Dean"
+title = "Michelle Dean Quotes"
+quotes_len = "87"
+description = "the best 87 Michelle Dean Quotes"
++++
+- Trump has been fiercely mocked in the media since the 1980s. But Trump learned from someone to let all the mockery roll off his back, that the negative publicity was still publicity.
+- Vacation reading is not a new concept. Ever since the 19th century, when novels were considered relatively sinful indulgences, leisure and fiction-reading have been closely associated.
+- There has long been an argument in New York about what, exactly, the purpose of book awards ought to be. One model sees them as a celebration of the unquestioned best and brightest, a triumphal parade for marquee authors who have published in a given year.
+- Peak TV has resulted in beautiful shows that have nothing in particular to tell us about humanity.
+- Bad criticism recites rote arguments. The shame of rote arguments isn't just that they're cliches, though they are, but that they tend to hide from us why a critic is actually thinking what they're thinking.
+- The podcast revolution has taught us that women's voices aren't just pleasurable to listen to, they are essential.
+- Beauty pageants in general are foreign and noxious to me: I can barely muster the energy to put on lip gloss and mascara.
+- Poems are ideally suited, in some ways, to social media because they pack so much meaning into so little language.
+- It's become a cliche to say that a piece of drama is about 'the nature of truth.' But 'Rectify' so openly plays with the slippery nature of memory that the label directly applies.
+- Dan Brown and the 'Da Vinci Code' have been around well over a decade now, and to be perfectly honest, both he and it have become a joke.
+- Podcast listening carries with it a faint aura of cultural snobbery, a notion that to cue up an episode is to do something highbrow and personally enriching, whether it's a history lecture broadcast from a university or an amateur talk show recorded in someone's garage.
+- A presidential candidate changing churches is hardly unusual. Jeb Bush, Scott Walker, and Rand Paul have all aligned themselves with different faiths throughout their lives.
+- The phenomenon of Instagram poets - who are also, to be fair, Tumblr poets and Pinterest poets - has been one of the more surprising side-effects of the selfie age.
+- When James Frey's 'A Million Little Pieces' turned out to be largely bunk, critics everywhere secretly rejoiced. They knew it, they said.
+- Book awards - in America, at least - are not like the Oscars. Awards are not cumulative, and in the case of something like the Pulitzers, the jurors often have another goal in mind: sales. They know that the Pulitzer stamp can sell a book.
+- The 'beach read' has become such a ubiquitous concept in contemporary literature that we assume it has always been around. In fact, the term only emerged in the 1990s, usually in book trade publications such as 'Booklist' and 'Publisher's Weekly.'
+- Self-publishing has been a dubious challenge to traditional publishers, at best.
+- I could be imagining it, but I believe myself to have exchanged sly, understanding nods with other people I see attending movies alone on Christmas Day.
+- I don't care about the bare fact that anyone liked or didn't like a book or movie; they can only interest me in that bare fact by writing an intelligent review.
+- Hillbilly stereotypes have always made it easier for middle-class whites to presume that racism is the exclusive province of 'that kind' of person.
+- A certain kind of person in America loves to note that they're currently soldiering through the latest Pulitzer winner for history, in particular. It connotes a certain gravitas, a connectedness to the literary and intellectual scene that most upwardly mobile professionals in America still desire.
+- A lot of people produce podcasts in which they simply ramble on for hours about themselves and their lives. There is something very poignant about the volume of human desire to be heard out there in the Wild West of podcasts.
+- Summer is always a tricky time to recommend new literary fiction. The big releases do not hit until fall.
+- Perhaps crisis forces commonality of purpose on one another.
+- Few reporters get to do what Kelly McEvers does in every episode of 'Embedded': go deep into a story and tease out what is really happening.
+- Feminists are disappointed in each other a lot, a natural side effect of being involved in a movement, which naturally implies that progress toward the ultimate goal is the only measure of success and that setbacks are always disasters.
+- When a woman shouts, she isn't usually praised for it. She's condemned as aggressive and coarse.
+- Most academic historians accept that historians' own circumstances demand that they tell the story in a particular way, of course. While people wring their hands about 'revisionist' historians; on some level, the correction and amplification of various parts of the past is not 'revisionism' as it is simply the process of any historical writing.
+- The alienated man lashing out at society is a trope that popular culture loves to explore.
+- Telling a story about someone has enormous power. People forget a headline. They remember a story.
+- The children of the 1980s were the last before a lot of things changed. We were the last generation not to have cell phones, not to have video games, not to have parents who worried if we strayed from the yard.
+- Television became defensible - and, frankly, worshipped - because the shows started to be so carefully structured, so attentive to language, and so visually interesting that they suddenly caught people's eye.
+- While 'Twilight''s popularity was undeniable among both the teenagers they were aimed at and middle-aged women who flocked to the series in droves, Meyer has drawn her share of criticism for her writing. Some feminist critics assailed what they saw as Bella's mooning over her vampire lover.
+- The real discovery of having your consciousness raised was never that you'd be handed tools; it was the discovery that the only real leverage you get in life is yourself.
+- The plot of 'Stranger Things' is so simple that even a brief description risks spoiling it.
+- After living in the United States for over 10 years, here is what I have learned about the Fourth of July: it is more of a barbecuing holiday than anything else.
+- For a long time now, movie characters have generally been articulate, even chatty. Call it the influence of Woody Allen, but we have become used to characters who are well able to explain themselves to others.
+- Literary novelists who have a strong handle on plot are often characterized as good vacation reads because they manage to transport you elsewhere, away from the petty facts of ordinary life.
+- There are, of course, fat characters in books out there, some of them quite enduring and famous. But they tend to be creatures of young-adult or commercial fiction.
+- There is an unfortunate side effect of being a person of few words: Sometimes people will assume you are less intelligent than you are.
+- It is no secret, of course, that people have strong feelings about fat - feelings that seem only to have been inflamed by the sense, in western countries, that there is an obesity crisis afoot. Concerns about health have mutated into a kind of panic attending any mention of fat people at all.
+- The Festival of Books is indeed a well-oiled machine, one which leaves most of the other literary festivals in America, including vaunted Brooklyn's, in the dust.
+- There is nothing wrong with wanting to publish - or read - books that have a wide potential audience. But it does generate a certain plodding sameness of tone and subject matter that plagues a lot of contemporary American fiction.
+- Hollywood versions of watershed moments in American history are generally high-minded shlock. 'JFK,' 'The People vs. Larry Flynt,' even 'Lincoln': all of these boast excellent performances in scripts that are ultimately very conventional, even conservative.
+- My parents and I - I'm an only child - are not particularly religious, but I was christened and raised in that vague and characteristically Canadian form of Protestantism known as the United Church.
+- Prestige podcasts, like prestige television shows, tend to have an audience that believes itself literate, well-informed, and reasonable. Listening to podcasts, in this model, is a form of virtue.
+- 'Millennials' has become a kind of modern swearword, a slur directed at people in their early 20s.
+- Mary Roach's curiosity is notoriously infectious.
+- The desire to abdicate, to give up - for me, that's primal.
+- I have deliberately arranged my life so that I see pictures of cute animals on the Internet every day.
+- Articulateness is not the only way that intelligence manifests itself.
+- I've come, even as a feminist, to dread the phrase 'female friendship,' because it tends to signal overdetermined relationships.
+- Donald Trump is a man who likes to think he has few equals.
+- A good novelist pays attention to his characters. A good biographer pays attention to the documents before her. A good critic pays close attention to the thing she's brought to evaluate.
+- I still think, most of the time, when people called shows like 'The Sopranos' or 'Deadwood' 'art' that they were correct.
+- Great novels are maps of complication, leading nowhere in particular, taking stances only provisionally and obliquely, happy to be tangled and to lack as many answers as the people they seek to depict.
+- Would we even recognize an Oliver Stone production if it didn't kick up the usual fuss?
+- If you care about a subject, there's a podcast for it.
+- For a long time, it seemed as if podcasting was a male realm, but no longer. Sure, there are lots of men doing podcasts, but women are voicing a lot of the form's biggest hits. 'Serial,' the podcast that made podcasts a phenomenon, was narrated by a woman.
+- The 'World Wide Web', as people quaintly called the Internet in 1996, was more or less made up of text. There was no YouTube. There was no Facebook. There was, however, Usenet, a loose and difficult-to-navigate assortment of message boards.
+- There's no good way to be the center of a media maelstrom you did not choose for yourself.
+- Even the best novelists are rarely congratulated on the quality of their observations about contemporary life.
+- In an age where television is viewed as the best medium to 'tell stories,' narrative often stands in for substance on would-be prestige shows.
+- Most people do not pay attention to the publisher's imprint on a given book.
+- When Paul Beatty's 'The Sellout' was first published in America in 2015, it was a small release. It got a rave review in the daily 'New York Times' and one in the weekly 'New York Times Book Review,' too, for good measure. But by and large, it was not a conversation-generating book.
+- Push the envelope too far as a female artist, and you may only earn an ocean of ink expressing concern for your delicate constitution, amounting to a caution against playing on traditionally male wavelengths.
+- Writing a novel about feminism can be a thankless task.
+- There is something a little vulgar about writing a novel that is too close to the present, too concerned with current events, too eager to critique technological advancements.
+- Indeed, there has never been any sort of organised movement of people who take their cats into the outdoors. Of course, the navy often took them on ships, but there they performed a function, mousing for the officers.
+- Research can be a boon to a novelist - there are more things in heaven and Earth than can be dreamt of in a single writer's philosophy - or it can become a hindrance, a thick layer of algae that weighs down the storytelling.
+- Television was not cool among the young people of my era, the last years of the '90s and the early '00s. It was not just old people who'd castigate you for watching anything but public television. We young people scoffed at each other about it.
+- We are reminded repeatedly, often by older men, that western civilization has died on the altar of social media.
+- Saying that you spend Christmas alone is, to most middle-class Americans, akin to confessing a terminal illness.
+- I tend to judge a piece of criticism by how smart I find the argument. This, I know,, is not how everyone does it.
+- Mass market paperback thrillers are a dime a dozen. The trick is to find something that actually sticks to the ribs.
+- Novelists do not swing on the same pendulums as critics.
+- Many people, I've noticed by informally polling friends, are prone to distinguishing a beach read by genre. Some people thought all thrillers are beach reads; others thought all romances are. Some people thought only mass market paperbacks are eligible for beach read standards.
+- We do learn a thing or two from art. It may not be the one-to-one instruction of a moral lesson or the rote learning of a grammatical rule or mathematical concept. But the habits of mind art cultivates are important.
+- The first thing I remember feeling about the 2016 U.S. election was a kind of speechlessness.
+- I like debate and argument, so I'm usually all right with disagreement, and I'm even all right if the critic doesn't come to a clear thumbs up or thumbs down. But I need the disagreement to have some kind of line I can follow on the map. I like following an interesting mind along it.
+- Since the era of 'Sherlock Holmes,' private detectives had long been able to influence cases on their own. But the online detective, who had no sort of professional training or even long practice, is a purely modern phenomenon. The Internet changed everything by letting anyone become a self-appointed 'expert' on a case.
+- The diversity of perspective, the unwillingness to generalise - those are good traits in countries as they are in art.
+- The forward march of American literature is usually chronicled by way of its male novelists. There is little sense, in that version of the story, that women writers of those eras were doing much worth remembering.
+- I read almost no romantic fiction, in part because I barely believe in romance in the age of Tinder.
+- Among journalists, there is a saying: 'If it bleeds, it leads.' This can result in some serious hustling - and some serious sloppiness - whenever a crime occurs. The public's longing to see and hear salacious details is, basically, endless.
+- People spend their entire lives trying to construct something to grab onto: a family, a home, a business. Rarely does anyone seem to manage to get much ground under their feet.
+- There are many things to like about 'Mr. Robot,' the most ephemeral and yet memorable of them being the opening credits.

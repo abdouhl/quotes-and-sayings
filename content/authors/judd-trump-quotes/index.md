@@ -1,0 +1,105 @@
++++
+author = "Judd Trump"
+title = "Judd Trump Quotes"
+quotes_len = "99"
+description = "the best 99 Judd Trump Quotes"
++++
+- Older people like to dress older. I dress in more flamboyant, stylish.
+- It's all about practice and more practice. Travel to tournaments, play in them, watch other players.
+- You don't want to get to 40, 45 and not have won the world title.
+- The crowd should be allowed to chant perhaps, or get some music playing.
+- I love the game.
+- Nobody can really dominate like Stephen Hendry or Steve Davis. The players are just too good for that.
+- I've just got the mindset of really wanting to open the game up to new people. I kind of want to create a massive attention around snooker.
+- My self-belief has always been there but it is about managing it the right way.
+- I don't really think about missing. Whereas a lot of the other players are scared to miss, I think that if I pot it I'll be in with a chance of winning the frame.
+- Before I was going into tournaments and just hoping I would win one match. But now I'll go into tournaments expecting to do well and if I bring my best game I know I can win them and beat all the big players.
+- Goals? I've achieved the main ones of winning the World Championship and being world number one.
+- Being the favourite is a help.
+- People see the way I play and the balls I pot and then sometimes think 'how does he miss?'
+- It is amazing to win an event but to do it with the best standard ever been known in a final is incredible.
+- I am trying to be a lot more careful - and to not miss easy balls.
+- When the frame's safe, I like to let myself go a bit; play a few more entertaining shots rather than just getting the frame over and done with.
+- I am aware of the crowd, the need to get them motivated and involved.
+- I visited a couple of schools where snooker is on the curriculum. They go in everyday and play snooker. In the future, all the top players will be coming from Asia and the Far East.
+- Some shots people won't think are right but I want to give the crowd a good show and get new people into the sport.
+- I think being world number one and world champion, pressure comes with that.
+- I was getting sick of losing and watching other players winning all the titles on TV.
+- Although it's a brilliant achievement, 100 centuries doesn't mean anything to me.
+- I take no positives from losing.
+- I want to be able to play fast and exciting snooker like my hero Ronnie O'Sullivan.
+- The crowd lifts you and spurs you on. And I don't get rattled - that's my strength, I think.
+- I just want to enjoy myself and have fun.
+- Other people try and tweak their techniques and that, but I've just been exactly the same all my life, and I'd never change anything.
+- I got into pool tournaments when I was five, playing every weekend in competitions. Then one day I started playing snooker. I learnt by practising on my own, repeating the same shots again and again, and watching other players and copying what they did.
+- I want to really prove that I'm up there with the best players in the world.
+- I really want the chance to thank my parents for what they have done, because without their support, I wouldn't be where I am today.
+- If there are groupies out there, bring 'em on, the more the merrier.
+- People were saying on social media, 'He's going out too much' - I got judged. That was demoralising.
+- The way I play will change things, there will be a lot more attacking snooker in the future.
+- It might be good to be taught the basics like your stance when you first start playing.
+- It is very important not to try too hard because in the past I think I have done that.
+- It is just nice to be able to tick off all of the events I've won and hopefully one day be able to complete them all.
+- It has sunk into my head that I want to be winning four or five tournaments a season.
+- Obviously I want to win all the big tournaments - I would hate to look back and not have won them. I also think, for me, there's something about reaching a certain level rather than getting a certain number of wins.
+- The only time I won't be playing is when I've got a hangover.
+- I know how much I put in and it does hurt when people say you are not trying.
+- From a young age, people have been touting me as a future world champion and it's nice to get that out of the way.
+- Barry Hearn has said there's no time for playboys, but I'm not a playboy.
+- When you're not sleeping, you're not thinking straight.
+- I've got to be aware of what's going on. I can't drink too much or make a fool of myself.
+- You don't want to let your form slip because it can be hard to get back from that.
+- I play my best stuff when I am a little under the radar.
+- Every tournament I play in I fancy my chances of winning, so hopefully I can get through the first few rounds, find a bit of form and kick on.
+- Everyone's just looking at you. They're expecting you to win every game, and it's just not possible.
+- I really like my cars. The way I see it, if I work then I can treat myself to these presents.
+- Maybe I could be the playboy of snooker.
+- My Twitter account status used to say 'part-time playboy' on it, but I've taken that down now.
+- I'd say I'm quite well behaved! It's just the way I've been brought up, really.
+- I am the sort of player who can rattle off frame after frame when I am on a roll.
+- I should have won more. Definitely. If I practised like Mark Selby I might have done twice as many.
+- I'm always practising because I enjoy it.
+- I don't feel people are that interested in snooker any more and the only thing that will get snooker back into the limelight is more controversy.
+- Snooker's never going to be that. It's never going to be a worldwide game like tennis and golf. It's never going to happen.
+- My aim is to win as many tournaments as I play in but some people absolutely love snooker.
+- I've tried to be more mature and my mindset is a lot different now.
+- When you've practiced hard and know you've really worked for it it's more enjoyable.
+- Now I want to push on, I don't want to be remembered for just winning one world title, I want to go on and win as many big tournaments as possible.
+- Obviously you'd always be happy to have another tour on the side, earning extra money, but for most of the players I think we're all pretty happy.
+- I started playing on a tiny table when I was 3 and then started playing properly when I was 10 or 11.
+- Obviously my parents have been a massive influence on me my whole career, taking me around everywhere and putting me in this position.
+- I do everything right-handed - football, tennis, darts and golf - except for snooker.
+- Joe Perry is always a big hurdle, he's always there in the later stages of a tournament. You have to be playing well to beat him, and if you do that you know you have a chance of winning the title.
+- When you put your all in and people say 'he has given up,' that is hard to take.
+- I feel I work as hard, if not harder, than anyone.
+- Anyone thinking me treating myself affects my snooker doesn't know what they're talking about.
+- When people tip you, a lot put themselves under pressure but I use it as an advantage.
+- There is one nickname that my mate wants me to have... it's The Ace. I'm happy for a campaign for people to start calling me that!
+- I have always wanted to live my life as well as playing snooker.
+- The conditions are always slightly better back in the U.K. There's a lot of distractions when you play away in China and it's very easy to get on a bad run out there, with various things going on when you play.
+- I would love to bring it up-to-date and get some more people interested in snooker.
+- If you hit the table after missing a ball, you get fined. If you swear, you get fined. You can't even tweet what you're thinking without getting fined. Players can't show their personality and therefore fans can't relate to them.
+- Even when I do miss easy balls I feel I can come back.
+- I do like a night out every now and again, I like to let my hair down.
+- You are never going to get snooker on to the front pages because there is not enough money in the game here.
+- I play a lot quicker, in quite an attacking style, play a few little crazy shots sometimes that other players wouldn't take.
+- When there are four or five tables going on it is hard to keep your concentration.
+- Snooker has taken such a step down I am not sure it will recover unless five Ronnie O'Sullivans come along at the same time.
+- When people are sat quietly for 20-25 minutes per frame, they should be allowed to let their hair down at the end of it.
+- You have to forget what has gone before, get on with the game and focus on that. You cannot afford to be affected and let things worry you.
+- If you're at the top of the game, you're earning money. But compared to other sports, like tennis, you're earning peanuts.
+- I always go for centuries at the end of frames because it gives the fans a chance to celebrate.
+- My eyesight had always been good but at school I went swimming one day and the chlorine affected me badly. I was almost blinded for two weeks and from there things deteriorated. Then at the World Championship in 2007 I realised I couldn't see the back of the pocket. It was one big blur. My first two seasons as a pro it was dreadful.
+- It would be nice to say I won seven world titles, yet I want a good life as well while I play.
+- All the tournaments I enter I want to win, but especially in one of the biggest arenas we play in.
+- I think I am a lot more entertaining than most of the other players.
+- Hopefully I get to the point where I get paid to party and can give up snooker.
+- From a very young age people have been touting me as a world champion. So it can be tough, playing in the spotlight and people expecting big things from you all the time.
+- I used to be quite laid back and that. But obviously the more you're in the public eye, the more you've got to... dress to impress.
+- I try and put on a show for the crowd and make sure they enjoy it.
+- If ever I am the underdog I seem to play well and whenever I am the favourite I put too much pressure on myself.
+- I always go to the Masters knowing I'm going to play well.
+- I don't particularly want to be playing in front of five people again. The reason I practised so hard was to get out of that.
+- I've watched the Masters on TV since I was young, I remember watching Jimmy White and a few others, so I can't wait to play there myself.
+- Will I be sensible and pay off the mortgage? Not a chance.
+- People aren't allowed to be themselves in snooker.

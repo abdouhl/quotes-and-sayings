@@ -1,0 +1,106 @@
++++
+author = "Noah Centineo"
+title = "Noah Centineo Quotes"
+quotes_len = "100"
+description = "the best 100 Noah Centineo Quotes"
++++
+- There are so many great messages in 'Good Trouble.' I'm just excited to be a part of it.
+- 'To All The Boys' is one film amongst a couple other romantic comedies through the decades that promotes... I don't know what they're calling it. A modern man? A man that's more emotionally accessible and available and willing to communicate and actually care and nurture.
+- I've always wanted to hit that, like, '13 Going on 30;' 'Failure to Launch,' Matthew McConaughey; 'What Happens in Vegas,' Cameron Diaz, Ashton Kutcher' wave.
+- What I love about 'Save Me Tonight' is that it came to be through friendship. It was a perfect scenario for friends to come together and create.
+- I love 'What Happens in Vegas,' 'You've Got Mail.'
+- I think social media has a lot of negative impact and negative effects. These are fairly extreme and horrifying and really gruesome.
+- When I'm with someone, I give them my time, and I give them my energy because I like making someone feel loved! And making them laugh, and just, like, being there with them.
+- I committed to acting. I believe if you fully commit to something, it'll happen.
+- When I go on a hike, I leave my phone in the car.
+- There's something so great about platonic intimacy.
+- I think, for a lot of people, the point is to get high engagement and likes on their photos, so I think it's just good marketing. But at the same time, if you're posting pictures and you look nothing like your pictures, then it's false advertising.
+- If you love someone - like, truly love someone - I don't think that ever goes away. But what does change is your perspective on the relationship and the dynamic.
+- I'm not really on dating apps. I used to be when I was younger. I'd rather meet people in real life.
+- If I'm eating, I'll leave my phone places and don't touch it for a few hours, daily.
+- It's rare that I read a script, and I immediately go, 'This is perfect. I can see myself in this.'
+- I just like the word 'serendipity.'
+- I personally believe that if you love someone, and you get your heart broken, and you can learn to love someone else just as deeply as the first, then that is the greatest lesson we can learn on this planet.
+- I love being sentimental and remembering things. I literally am a sentimentalist.
+- I act, but I'm not necessarily an actor. Acting is just the first thing people see when they look at me. So I'd like to do more things.
+- I'm super stressed; I'm super overwhelmed.
+- To me, when you're crying, you're aligned with some sort of truth. Some inner truth. That's why you cry. You identify. It's just ultimate honesty.
+- I think when two people are present and engaged and listening to each other, that's what creates the chemistry. And then the ability to react off of what the other person is saying.
+- I think everybody's into love.
+- I'm pretty vain.
+- I have the privilege of having two parents who were capable and willing to support me - emotionally and monetarily.
+- We're so used to getting everything we want now, my generation.
+- It's hard to find a writer that really understands the intricacies of flirting and the development of love, the development of getting to know someone, the development of chemistry in real life.
+- High school is cool, especially that first-love mentality. That's what 'Sierra Burgess' captures is, like, his first moment of love. That's what I love. I like that innocence.
+- When I was turning 21, I was like, 'Damn, I've been partying like crazy since I was 17...' I was like, 'Wow, maybe I should take a break.' So I stopped doing all that, and I found that a lot of problems I was having in my life, slowly, they didn't go away: they just became way more apparent to me.
+- To me, words convey feelings, and feelings are just vibrations that we feel, so words are never as authentic as what feelings are and what intentions are.
+- I would say one of the most romantic things I've done is I've taken a girlfriend back to her hometown when she hadn't been back for years. It was in Puerto Rico, and we stayed there for about a week and a half. She showed me the different places she grew up around.
+- It's always interesting when you throw two people in a room and have them try to biologically, immediately connect, but that's biology's job.
+- I would say I kind of just realized one day that it wasn't worth hiding from my emotions, and that I was unhappy, and that I needed to make a change in my life so that I could be happier.
+- That's the cool thing about relationships. You're relating to someone else. It's another thing to balance who you are off of.
+- If you have your own money, you feel entitled to spending your own money how you'd like to, and that's a slippery slope.
+- I guess people just like Netflix. And they like rom-coms, and I was fortunate enough to book two random ones that got sold to Netflix.
+- I didn't do well in school, and I didn't really care to cater to certain social structures that were in place to be cool.
+- I think we're all dealing with insecurity, and we hide that insecurity from the world, which, in turn, just hides us from the world. And it's only once we actually embrace these insecurities and love them that we can really love ourselves and others, fully.
+- Like, at the gym, I don't touch my phone.
+- Directing was rarely a thought in my head growing up. Especially not when I first began acting or working on my first professional sets.
+- The only thing that will box me in is myself, and I think we can break all that when the time is right, for the right role.
+- I'm working a lot. Keeping my head down and focusing and trying to take advantage of the opportunities that have come my way.
+- I would love to do an action film.
+- Meditation has been very, very helpful. You know, even if it's just 5 minutes a day.
+- I know myself. I'm not gonna be a mathematician or a professor.
+- We've been given the full spectrum of emotions for good reason, and it helps us be happy, in my opinion. I think it's totally normal to be sad or angry or frustrated, hopeless at moments. I don't think we would've been given these things if they were bad.
+- My concept of a perfect date, really, is just as long as conversation is fun, and you can be yourselves and feel comfortable around each other.
+- First love is ravaging - it just guts you in the most wonderful way, if you can see through it.
+- What I found was, when I took care of my body, my mind and my emotions and my heart were way happier.
+- I understand the mentality of a jock.
+- Chemistry is one of those things: it's hard to nail down what it is or how you get it.
+- I wake up sometimes and roll over and sleep until 4 o'clock in the afternoon.
+- I used to have a big issue - one - identifying how I feel and being like, 'I feel this way.' Over the years, I've tried to work on that.
+- I went to New York for work. I was at baggage claim, and I had my headphones on, and I was waiting for my bag to come out. I feel a presence approach me, and without even knowing, I had to side step and take my headphones off, and there's, like, four people looking at me.
+- If I ever feel like I'm messing up, making the worst decisions, or I'm just lesser than - if I'm being self-deprecating - I just think, 'Cheer up, dude, you're a lot worse than you think.' It makes me laugh. It takes me out of it.
+- We are from a swipe-right generation, and that just comes to, 'Oh you're cute, let's hook up,' and that's that. Where is actual, genuine connection that comes from spending quality time with someone?
+- When I was in high school, I wasn't a nerd, I wasn't a jock. I wasn't a bad kid. I just flew under the radar with my homies.
+- I was very into the truancy concept.
+- I think sometimes moments age us more than years can.
+- That boy-next-door, love interest crush has been my niche since 'Austin & Ally.'
+- I would be so happy to be Young Hulk. I cannot even explain to you. That would be so dope. He was my favorite Marvel hero, and the fact that Mark Ruffalo plays him is sick.
+- It's exciting now to be able to look at projects and say, 'Well this is right for me; this isn't right for me.'
+- I'd love to have a career like McConaughey or Shia LaBeouf - I love him in everything he's done. Despite his celebrity status, he's such a human being.
+- I just like climbing things and exploring.
+- I've met someone on Instagram, and I developed this like, ostensibly intimate relationship with them, and then, turns out, they weren't who they were.
+- High school was cool, man. I went to a public school for my first two years, and then I went and did independent study. I was, like, taken out of it. So I didn't have a normal one.
+- If I can inspire one spark of awareness or get a spark of introspection or reflection about someone else's life, that's a beautiful thing, in my opinion.
+- Ever since I've been a kid, I've always been about running around, climbing trees, exploring.
+- I think when you're young, being in love for the first time is like this fantasy.
+- I think I use writing as a catharsis. I feel sometimes that I'd like to share that with people, so Instagram becomes a vehicle.
+- Sleep is very important.
+- Social media, to me, is a way to express. It's not a way for me to glorify my life.
+- I was at the AMC Century City movie theater with my mom, and we were walking through the lobby, and these girls came up to me, and they said, 'Are you Dallas from 'Austin & Ally' - and I was like, - yeah, yeah. And they were like, 'Can we have a picture with you?' and I was like, 'Yeah sure of course.'
+- I was, like, this tiny little kid that was goofy and would always crack jokes or sit in the back of class and not listen to anything that the teacher was saying.
+- I auditioned for the leading role in 'The Kissing Booth' that came out on Netflix, funny enough.
+- I swear to God, like, every day, the majority of my day is sentimental.
+- Sweet Tarts are dank. 10/10.
+- Life kind of forces us to put these filters on, whether it's because someone told you you weren't good enough - excluded you or bullied you. Or maybe your parents screwed up on accident in some way and it changed who you were. There's this pressure to fit into a mold and change who you're supposed to be.
+- I think there's been this whole image of masculinity that's been out in society - of brooding, brutish, egotistical, narcissistic men - like, this patriarchy.
+- I think there's really healthy ways to segue into different roles and different genres. I'm not completely opposed to shaving my head and doing something crazy.
+- You know when you meet someone if you guys are going to get along, usually.
+- When you're someone who is in the attention of the masses, you can't help but become a sort of reality personality.
+- I love love.
+- I got attacked when I was six years old by a Mastiff.
+- I would say that all of my experience on any set over the course of my life has helped me in directing 'Save Me Tonight.'
+- ' is really, really dope. I'm really proud of it, and I really love the role of Hawk. It's arguably one of my favorite roles I've played.
+- I like rom-coms. I think they're adorable and endearing.
+- I like 'Bright.' Some people didn't like 'Bright' - I loved it. I love that film for how blatantly obvious the analogies are.
+- People love love.
+- I moved across the country to become an actor, not an academic type.
+- I think that romantic comedies have a special place in most people's hearts, especially the younger demographic.
+- I love Bon Iver. I would never put a negative connotation on that man's name!
+- Somehow I made it onto a show and then another show, and now I'm doing my thing. So, how did I start? Because my sister wanted to be a model, and I was dragged along to support her!
+- I think Selena Gomez seems like one of the coolest people ever. And she's, like, an activist as well, and clearly she loves love and is a loving person. I don't know if it's clear because I don't know her, but it feels that way.
+- I've always played the love interest. I've trained for it for a while. These roles are just molds I can pour myself into.
+- I just want to keep being involved in great projects that push positive messages to people.
+- I definitely have that bug; I'd really like to do some auteur, existential pieces, darker films, something that's really reflective of life. But I also love the genre of rom-coms, and I don't see myself completely detaching from that.
+- Oh, man. I love '13 Going on 30,' 'I love Failure to Launch,' I love 'How to Lose a Guy in 10 Days.'
+- We all want love. We all want to be taken care of and supported and cherished.
+- I don't smoke. I don't drink.

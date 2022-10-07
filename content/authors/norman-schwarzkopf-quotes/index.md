@@ -1,0 +1,80 @@
++++
+author = "Norman Schwarzkopf"
+title = "Norman Schwarzkopf Quotes"
+quotes_len = "74"
+description = "the best 74 Norman Schwarzkopf Quotes"
++++
+- The fun of fishing is catching 'em, not killing 'em.
+- War is a profane thing.
+- To be an effective leader, you have to have a manipulative streak - you have to figure out the people working for you and give each tasks that will take advantage of his strength.
+- Moving into an unoccupied village when there's no opposition, I don't call that a military victory.
+- All you have to do is hold your first soldier who is dying in your arms, and have that terribly futile feeling that I can't do anything about it... Then you understand the horror of war.
+- I prided myself on being unflappable even in the most chaotic of circumstances.
+- I've got to tell you what, the soldier doesn't fight very hard for a leader who is going to shoot him, okay, on his own whim. That's not what military leadership is all about.
+- I'm not proud of killing, of being responsible for the death of a single person. I never will be.
+- As young West Point cadets, our motto was 'duty, honor, country.' But it was in the field, from the rice paddies of Southeast Asia to the sands of the Middle East, that I learned that motto's fullest meaning. There I saw gallant young Americans of every race, creed and background fight, and sometimes die, for 'duty, honor, and their country.'
+- If it had been our intention to take Iraq, if it had been our intention to destroy the country, if it had been our intention to overrun the country, we could have done it unopposed.
+- I like to say I'm not a hero.
+- I saw Kuwait many times before the war. I remember it as a beautiful place, full of very nice people, and it's a tragedy to see that somebody could set out to deliberately destroy a country the way the Iraqis have.
+- Particularly when you're dealing with very high ranking people, you know, you have to get their attention, they are used to, by their rank, of having their own way and doing their own thing and when it's necessary to all work together on something, sometimes you have to hit the mule between the eyes with a two by four to get its attention.
+- Carpet bombing tends to portray something that's totally indiscriminate, you know, en masse without regard to the target.
+- When I fish, I stop thinking about anything else. But truth be told, if you want to declare victories, I can tell you the fish have won a lot more than I have. It's interesting that something with a brain the size of a fish's can outsmart us humans, who think we are el supremo.
+- If Saddam were to be replaced tomorrow he would probably be replaced with someone who's just as bad or worse than he is.
+- An awful lot has been written about my temper.
+- Nobody can ever pin you down when you speculate.
+- When placed in command, take charge.
+- I do hunt, and I do fish, and I don't apologize to anybody for hunting and fishing.
+- Unfortunately, if you've ever been in southern Georgia on the beaches in a lightning storm, if you're out there, you're in great, great danger, and you can be killed very, very quickly.
+- It takes a hero to be one of those men who goes into battle.
+- I'm not a politician. I'd make a lousy politician.
+- Going to war without France is like going hunting without an accordion.
+- I think any student of military strategy would tell you that in order to attack a position, you should have a ratio of approximately 3 to 1 in favor of the attacker.
+- This gulf war syndrome thing is truly unfortunate, and I've met some of the vets who have this. These are my guys, and I feel terrible about it.
+- With a chemical alarm, you're going to build one that is oversensitive because you would rather the alarm go off and give you a false alarm than to err on the other side.
+- War's a profanity because, let's face it, you've got two opposing sides trying to settle their differences by killing as many of each other as they can.
+- I am an environmentalist, but I'm not a wacko environmentalist. I believe that mankind and nature can live side-by-side for the mutual benefit of both.
+- They say the good Lord doesn't charge you for the days you hunt and fish, and I believe that.
+- I hate war. Absolutely, I hate war.
+- The truth of the matter is that you always know the right thing to do. The hard part is doing it.
+- Hey, I'm not a politician. I'm a ham. I love to give speeches.
+- True courage is being afraid, and going ahead and doing your job anyhow, that's what courage is.
+- I can't even begin to visualize myself as a five-star general... When I think of the people who are five-star generals, I can't even see myself standing in their shadow.
+- Well, unfortunately, I have always regretted the fact that I have a temper, but I also have, you know, have great love and respect for all of the people that have worked for me. I think like everything else, this is one of those things that has been blown out of proportion.
+- It doesn't take a hero to order men into battle. It takes a hero to be one of those men who goes into battle.
+- I may have made my reputation as a general in the Army, and I'm very proud of that. But I've always felt that I was more than one-dimensional. I'd like to think I'm a caring human being.
+- For the entire first part of my career, I prided myself on being unflappable even in the most chaotic of circumstances.
+- The more you sweat in peace, the less you bleed in war.
+- Leadership is a potent combination of strategy and character. But if you must be without one, be without the strategy.
+- But I would defy anyone to go back over the years and tell me anyone whose career I've ruined, anyone whom I've driven out of the service, anyone I've fired from a job.
+- I can stand in a crystal stream without another human around me and cast all day long, and if I never catch a single fish, I can come home and still feel like I had a wonderful time. It's the being there that's important.
+- You can't help but... with 20/20 hindsight, go back and say, 'Look, had we done something different, we probably wouldn't be facing what we are facing today.'
+- Fish are a renewable resource, and one of the problems we've had is people feel obliged to catch the limit, then throw 'em in the garbage can.
+- What is postwar Iraq going to look like, with the Kurds and the Sunnis and the Shiites? That's a huge question, to my mind.
+- I'm not a type-B personality who knows I have a cancer growing inside of me and can live with the knowledge. I go into a kung-fu attack position when I go through the door of a hospital.
+- I'd like to think I'm a caring human being.
+- I was lucky enough to lead a very successful war.
+- A professional soldier understands that war means killing people, war means maiming people, war means families left without fathers and mothers.
+- Good generalship is the realisation that you've got to figure out how to accomplish your mission with the minimum loss of human life.
+- Tanks being deployed far forward is an indication of offensive action; tanks in depth is an indication of defensive action.
+- You learn far more from negative leadership than from positive leadership. Because you learn how not to do it. And, therefore, you learn how to do it.
+- I've managed to convince my wife that somewhere in the Bible it says, 'Man cannot have too many shotguns and fishing poles.'
+- I am not one of these guys who is just going to waste American lives by throwing people needlessly in frontal attacks up against the enemy if I can avoid doing that.
+- Any soldier worth his salt should be antiwar. And still there are things worth fighting for.
+- I may have made my reputation as a general in the Army and I'm very proud of that. But I've always felt that I was more than one-dimensional.
+- As far as Saddam Hussein being a great military strategist, he is neither a strategist, nor is he schooled in the operational arts, nor is he a tactician, nor is he a general, nor is he a soldier. Other than that, he's a great military man, I want you to know that.
+- First of all, Saddam did not win the war, even though he says he did, I mean, you know, that's a joke and everybody in the world knows it.
+- Someone once asked, 'What is the difference between me and Saddam Hussein?' The answer is, 'I have a conscience and he doesn't.'
+- When the Normandy Invasion was planned, a very specific strategic objective was given, and that strategic objective was the basis upon which the plan for the Normandy Invasion was derived.
+- It's nice to feel that you have a purpose.
+- Generals aren't in the business of commenting on the correctness or incorrectness of the President's decisions. Anybody who thinks he should be able to do that ought to be fired on the spot.
+- I am living proof that if you catch prostate cancer early, it can be reduced to a temporary inconvenience, and you can go back to a normal life.
+- What people don't understand is this is something that we only have in America. There is no other country in the world where the ordinary citizen can go out and enjoy hunting and fishing. There's no other nation in the world where that happens. And it's very much a part of our heritage.
+- Had we taken all of Iraq, we would have been like a dinosaur in the tar pit - we would still be there, and we, not the United Nations, would be bearing the costs of that occupation.
+- He is neither a strategist nor is he schooled in the operational arts, nor is he a tactician, nor is he a general. Other than that he's a great military man.
+- A great deal of the capability of an army is its dedication to its cause and its will to fight. You can have the best equipment in the world, you can have the largest numbers in the world, but, if you're not dedicated to your cause, if you don't have the will to fight, then, you are not going to have a very good army.
+- I get angry at a principle, not a person.
+- The Patriot missile is a point defence missile. Point defence means that you put the missile at a location to defend a very specific target such as an airfield, a supply dump or a headquarters.
+- There's no doubt in my mind that whichever commander ordered the blowing up of Kamisiyah did so in following the instructions that he had received.
+- Good generalship is a realization that... you've got to try and figure out how to accomplish your mission with a minimum loss of human life.
+- Had the United States and the United Kingdom gone on alone to capture Baghdad, under the provisions of the Geneva and Hague conventions we would have been considered occupying powers and therefore would have been responsible for all the costs of maintaining or restoring government, education and other services for the people of Iraq.
+- I do not want to be a pawn in a political campaign.

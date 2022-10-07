@@ -1,0 +1,31 @@
++++
+author = "Joseph Pulitzer"
+title = "Joseph Pulitzer Quotes"
+quotes_len = "25"
+description = "the best 25 Joseph Pulitzer Quotes"
++++
+- Don't be sensitive if I should, in future, seem brusque, harsh, or even unjust in my criticism. I sincerely hope I never shall be; but if I should, remember that fault-finding is perhaps both my privilege and my weakness, that correction is the only road to improvement, and that my quick temper and illness are entitled to some consideration.
+- It is to such men as Abraham Lincoln and Jefferson and Jackson and Franklin, all most lowly born, that we owe most of our greatness as a nation.
+- I am deeply interested in the progress and elevation of journalism, having spent my life in that profession, regarding it as a noble profession and one of unequaled importance for its influence upon the minds and morals of the people.
+- What I say is that there are not half a dozen papers in the United States which tamper with the news, which publish what they know to be false. But if I thought I had done no better than that, I would be ashamed to own a paper. You have to make everyone connected with the paper believe that accuracy is to a newspaper what virtue is to a woman.
+- If you will give the matter a moment's thought, you'll see that memory is the highest faculty of the human mind.
+- Publicity, publicity, publicity is the greatest moral factor and force in our public life.
+- I really think one of the most extraordinary things in the world is the amount of noise a child can make.
+- If a newspaper is to be of real service to the public, it must have a big circulation: first, because its news and its comments must reach the largest possible number of people; second, because circulation means advertising, and advertising means money, and money means independence.
+- Put it before them briefly so they will read it, clearly so they will appreciate it, picturesquely so they will remember it and, above all, accurately so they will be guided by its light.
+- Principles, convictions and motives are neither sold nor bargained for!
+- Performance is better than promise. Exuberant assurances are cheap.
+- What a newspaper needs in its news, in its headlines, and on its editorial page is terseness, humor, descriptive power, satire, originality, good literary style, clever condensation, and accuracy, accuracy, accuracy!
+- An able, disinterested, public-spirited press, with trained intelligence to know the right and courage to do it, can preserve that public virtue without which popular government is a sham and a mockery.
+- Our Republic and its press will rise or fall together.
+- I would rather have one article a day of this sort; and these ten or twenty lines might readily represent a whole day's hard work in the way of concentrated, intense thinking and revision, polish of style, weighing of words.
+- The American people want something terse, forcible, picturesque, striking - something that will arrest their attention, enlist their sympathy, arouse their indignation, stimulate their imagination, convince their reason, awaken their conscience.
+- It only serves to show what sort of person a man must be who can't even get testimonials. No, no; if a man brings references, it proves nothing; but if he can't, it proves a great deal.
+- I desire to assist in attracting to this profession young men of character and ability, also to help those already engaged in the profession to acquire the highest moral and intellectual training.
+- We are a democracy, and there is only one way to get a democracy on its feet in the matter of its individual, its social, its municipal, its State, its national conduct, and that is by keeping the public informed about what is going on.
+- I can do much, I can do everything for a man who will be my friend. I can give him power; I can give him wealth. I can give him reputation - the power, the wealth, the reputation which come to a man who speaks to a million people a day in the columns of a great paper.
+- The power to mould the future of the Republic will be in the hands of the journalists of future generations.
+- A cynical, mercenary, demagogic press will in time produce a people as base as itself.
+- We all want prosperity, but not at the expense of liberty. Poverty is not as great a danger to liberty as is wealth, with its corrupting, demoralizing influences. Let us never have a Government at Washington owing its retention to the power of the millionaires rather than to the will of millions.
+- I breakfast when I get up, lunch when I get the chance. If I never get it, I forget it. Sometimes I dine at seven, sometimes at midnight, sometimes not at all; and I never get to bed until four or five in the morning. Everything depends on the news; the hours make no difference to me.
+- Whatever my trouble had been at first, it developed into separation of the retina in both eyes. From the day on which I first consulted the oculist up to the present time, about twenty-four years, I have only been three times in 'The World' building. Most people think I'm dead or living in Europe in complete retirement.

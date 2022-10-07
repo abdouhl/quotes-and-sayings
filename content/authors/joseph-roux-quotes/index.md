@@ -1,0 +1,22 @@
++++
+author = "Joseph Roux"
+title = "Joseph Roux Quotes"
+quotes_len = "16"
+description = "the best 16 Joseph Roux Quotes"
++++
+- Solitude vivifies; isolation kills.
+- When unhappy, one doubts everything; when happy, one doubts nothing.
+- Science is for those who learn, poetry is for those who know.
+- There is a slowness in affairs which ripens them, and a slowness which rots them.
+- Say nothing good of yourself, you will be distrusted; say nothing bad of yourself, you will be taken at your word.
+- There are people who laugh to show their fine teeth; and there are those who cry to show their good hearts.
+- We call that person who has lost his father, an orphan; and a widower that man who has lost his wife. But that man who has known the immense unhappiness of losing a friend, by what name do we call him? Here every language is silent and holds its peace in impotence.
+- Poetry is the exquisite expression of exquisite expressions.
+- Nothing vivifies, and nothing kills, like the emotions.
+- Our experience is composed rather of illusions lost than of wisdom acquired.
+- Reason guides but a small part of man, and the rest obeys feeling, true or false, and passion, good or bad.
+- The folly which we might have ourselves committed is the one which we are least ready to pardon in another.
+- It is a very rare thing for a man of talent to succeed by his talent.
+- Poetry is truth in its Sunday clothes.
+- The happiness which is lacking makes one think even the happiness one has unbearable.
+- A fine quotation is a diamond in the hand of a man of wit and a pebble in the hand of a fool.

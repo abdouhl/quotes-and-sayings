@@ -1,0 +1,17 @@
++++
+author = "John Masefield"
+title = "John Masefield Quotes"
+quotes_len = "11"
+description = "the best 11 John Masefield Quotes"
++++
+- The luck will alter and the star will rise.
+- Coming in solemn beauty like slow old tunes of Spain.
+- There are few earthly things more beautiful than a university a place where those who hate ignorance may strive to know, where those who perceive truth may strive to make others see.
+- It is too maddening. I've got to fly off, right now, to some devilish navy yard, three hours in a seasick steamer, and after being heartily sick, I'll have to speak three times, and then I'll be sick coming home. Still, who would not be sick for England?
+- It's a warm wind, the west wind, full of birds' cries.
+- In this life he laughs longest who laughs last.
+- I must go down to the sea again, to the lonely sea and the sky; and all I ask is a tall ship and a star to steer her by.
+- Since the printing press came into being, poetry has ceased to be the delight of the whole community of man; it has become the amusement and delight of the few.
+- Poetry is a mixture of common sense, which not all have, with an uncommon sense, which very few have.
+- Once in a century a man may be ruined or made insufferable by praise. But surely once in a minute something generous dies for want of it.
+- Commonplace people dislike tragedy because they dare not suffer and cannot exult.

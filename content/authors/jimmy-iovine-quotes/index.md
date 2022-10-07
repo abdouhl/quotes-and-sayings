@@ -1,0 +1,155 @@
++++
+author = "Jimmy Iovine"
+title = "Jimmy Iovine Quotes"
+quotes_len = "149"
+description = "the best 149 Jimmy Iovine Quotes"
++++
+- I follow cool. When I went up to see Steve Jobs, I said, 'The party's at this guy's house.'
+- Most technology companies are culturally inept. They're never going to get curation right.
+- I never say someone is powerful.
+- Diversifying, to me, is the product of having an idea and knowing to say, 'Let's do it.'
+- It was frustrating that young people, through no fault of their own, were listening to terrible $2 ear buds. You can't get good sound out of those.
+- Music industry's a fragmented mess.
+- I consider the recording studio where I was born.
+- I can't learn in school, but I can learn from somebody who I think is cool and great.
+- Just because you did something once doesn't mean anything. You have to be willing in your heart to begin again every day. The minute I'm not willing to do that, I will retire.
+- Everything Dre and I do is completely on feel. We don't prepare for anything... we only work on instinct.
+- I really think that education is ground zero for fixing anything.
+- There are geniuses, savants; I'm not one of them. I work hard, I see where popular culture's going to move, but I've gotta keep having information pumped into me. I look under every rock.
+- What we feel, especially in the streaming area, especially in the services area, is that you need curation.
+- Too often, the music business allowed third-party companies to innovate for us - and that simply does not work anymore.
+- Elvis Presley was the big bang. He was the most influential single figure in the history of American pop culture. He changed the way we looked, thought, dressed, held a guitar. He didn't invent rock & roll, but he defined it in a way that everyone who followed him owes him a debt.
+- I couldn't make a headphone look like a piece of medical equipment or a toy, as most headphones do.
+- I learned everything about business and about music and stuff from being a second engineer.
+- I am blessed with the energy of a chimpanzee. There is nothing I can't get up for and give it a hundred percent.
+- The good news is in the record business, they only count your successes.
+- There are thousands of Eminems. Just listen to a song. There are thousands of them. It's just that he had the talent. It's like someone with a talent to hit a baseball. He had the talent to write lyrics.
+- Dre's from Compton, I'm from Brooklyn, and we both wanted to make a better life for ourselves, right? And we both - somehow, we're both recording engineers, that's how we got our break.
+- I'm interested in listening to the people who walk in the door. If your ego and your accomplishments stop you from listening, then they've taught you nothing.
+- Record companies are not unique. Artists are. Period!
+- Girls are sitting around talking about boys, right? Or complaining about boys, when they have their heart broken or whatever, and they need music for that, right? And they need music for that. So it's hard to find the right music. Not everyone has the right list or knows a DJ.
+- If you're looking for a quick hit, that means you're looking for something disposable.
+- When you're making music, you don't look at what's going on in the studio next to you.
+- What I saw in the record industry is it's just getting more restricted, more restricted, more restricted to where everyone's trying to figure out what kind of song to make to get on the radio: that's researched and where advertisers are telling you what to play.
+- In the entertainment business, everybody is desperately insecure, and the guys in Silicon Valley seem to be slightly overconfident.
+- All I ever really work for is to be a really good engineer, a good producer, a good executive, good in the world of Beats. That's power to me.
+- Artists have to be represented properly and paid properly.
+- The fact is that 'free' in music streaming is so technically good and ubiquitous that it's stunting the growth of paid streaming.
+- Apple, of all the global tech companies, was the one that understood why artists make things.
+- My father was incredible: a longshoreman; my mother was a secretary. Very 'go to work' people. That's how I saw things.
+- When I was a label head, I didn't think I was greedy. I've always run my own race.
+- I always try to go where the excitement is, where the best music is. I don't care what kind of music it is. I go with the best artist we can find.
+- The record industry needs a company like HTC to bring music to the phone.
+- We have a problem in the industry, I believe. This whole 'free' issue. The television industry doesn't have it, the movie industry doesn't have it, but the record industry has it.
+- A music service needs to be more than a bunch of songs and a few playlists.
+- We created Apple Music to make finding the right music easier for everyone - men and women, young and old.
+- Curation is everything.
+- Bob Dylan enabled rock & roll to grow up and survive. He injected the power of language and ideas into the music.
+- 'Magic' is a word that's too often misused in the record industry.
+- The next Prince might just get really good at something else.
+- Those athletes are not going to wear my headphones because I asked them.
+- I enjoy Tupac's music. I enjoy Tupac.
+- Apple Music is a big idea, and it's going to take some time to fulfill its overall dream.
+- Tupac was a glorious person, and he had all the right intentions.
+- I'm really interested in the record industry and the artists and the problems they're having.
+- Ground zero for me is audio.
+- To go on the road and listen to people sing a cappella - thousands of them - I couldn't do that.
+- Every system I have in my house or my car, they're all tuned exactly the same.
+- If you get 100 million streams on a song and you're only being paid on 20 percent, the check's not going to look good. The money's not going to look fair.
+- The sound of my voice is more famous than me.
+- If you're great, that means you're freaked out that the next day you're not going to be great. You keep trying.
+- I didn't feel comfortable as an executive. I felt comfortable around artists and record producers... and then I found my niche: I gotta find great producers, and I produce them.
+- Over four or five years, I did six albums with three people: John Lennon, Bruce Springsteen, and Patti Smith. I felt that if I could care as much about their music as they did, I could be useful to them. I really cared about their music and their lives.
+- Dylan captured what was on a million minds and turned it into poetry. With 'Blowin' in the Wind' or 'The Times They Are A-Changin',' he set a whole new standard.
+- You go into any recording studio in the world, and you see candles, lights, and that Apple light from a Mac.
+- Interscope is run more like a rock band than a record company. It's run in a very spontaneous, heartfelt way.
+- I don't look at Spotify or Rdio or any of these guys as a direct competitor: I look at other forms of entertainment as the competitor.
+- There was a time when, for anybody between the ages of 15 and 25, music was one, two and three.
+- I always knew that women, some women, at times find it very difficult to find music.
+- I feel the pressure of getting something right.
+- That's how I grew up - it wasn't cool to not have a good system.
+- If I were going to teach a course, it would be called Don't Breathe Your Own Exhaust.
+- I learned how to do absolutely nothing - I didn't learn one thing in high school. If I had to get a job at the A&P, they had to teach me how to sweep.
+- I'm happy with studio infiltration, but I'm thrilled when I see 12- to 20-year olds walking down the street with Beats and not two-dollar earbuds.
+- If you're an artist, and you put out a record - most artists only have one or two hit records - that has 100 million streams, on certain services you only get paid on 75% of those streams. How's an artist going to live like that?
+- If you tell a kid, 'You've got to pick music or Instagram,' they're not picking music.
+- I'm most proud that I thought of Beats at 55.
+- The lousy guitar player in any band is the bass player.
+- Bruce Springsteen gave people faith in rock & roll and in themselves again.
+- I don't know why records are treated different than books. I don't know why an Eminem record is different than a Stephen King movie.
+- To get people to pay for something that you built, it has to be of service. It has to make somebody's life better.
+- We're trying to make the music service a cultural point of reference, and that's why we're making video. We're making video for our Apple Music customers and our future customers.
+- What's happened to the music industry, from my perspective, is a lot of great music is behind the wall that can't get through, and therefore, a lot of artists are getting discouraged.
+- Every artist and every song has an idea, and the producer's job is to capture it.
+- It's one thing for the industry to lose half its revenue to piracy; it's another to destroy it emotionally.
+- Apple Music is trying to create an entire pop culture experience that includes audio and video. If South Park walks into my office, I'm not going to say, 'You're not musicians.' We're going to do whatever hits pop culture smack on the nose.
+- If you follow the lead of the artists, they will take you places that you could never go on your own.
+- When we did Beats, we had to begin again. Nobody at Best Buy knew who we were.
+- I came from Brooklyn. My nickname was Moochie.
+- I've always known in my heart that Beats belonged with Apple.
+- Digital sound is damaging music; it's damaging the artists. It's so degrading.
+- I know what labels and artists need, along with the consumer.
+- Having a hit is nice, having some success, but when you move popular culture, that's a high.
+- You shouldn't take a customer who's buying an album, who's happy buying an album, and try to tell them that what they're doing is wrong.
+- I always say, 'I love chocolate, but I'm not Willy Wonka.'
+- We at Interscope put projects out with anyone we believe has a great idea and is a true talent, whether it's a musician, photographer, software developer, or technology innovator.
+- When there's something I need to focus on, I'm like a dog with a bone.
+- Interscope Records has always been a heat-seeking missile when it comes to shifts in popular culture, whether inciting them or reacting to them swiftly.
+- I knew in my heart that I wasn't cool, but I figured I could at least be cool by association.
+- Just because you like something, that doesn't mean that you have a feel for it.
+- My life changed because Bruce Springsteen got on a mic in front of me.
+- I'm not a pioneer of hip-hop; I just saw it and said, 'This thing is incredible, and these people are incredible. They should be exposed all over the world.'
+- The whole thing about playlists is what song comes next.
+- I couldn't do a show; I have about as much talent to do television as, you know... it's not what I do. I wouldn't know where to begin.
+- I'm good at snap decisions. But if you let me, I will chew something to death.
+- I just kept making social mistakes in my career.
+- Nobody wanted to be in business with Death Row because, unfortunately, they felt there was an element there that could be dangerous. But I just knew they had great music and that they were a bunch of guys who wanted to make it out of the ghetto. That's something I can understand.
+- My relationships are helped because of all the success I've had, but I'm only as useful as the idea I have today or tomorrow. Otherwise, I'm just a trophy.
+- The media people need to have real tech people, and the tech people need media people. Otherwise, you have the 'Star Wars' bar on Tatooine with everyone fighting.
+- You try to do the best with what you've got and ignore everything else. That's why horses get blinders in horse racing: You look at the horse next to you, and you lose a step.
+- It's time you stop thinking that because you did something, it's... amazing. All you've got to do is say, 'OK. If I'm great, what do they call Steve Jobs?'
+- Labels need to work with artists to help them achieve their best work, not to jam records out that are half-baked or three-quarters baked.
+- Apple is a company that understands music.
+- You have gigantic companies feeding off musicians and artists because the artists need the exposure.
+- Talent is talent.
+- It's hard to say if something is worth the wait, because how the hell do any of us know?
+- I like 'The Voice.'
+- No one repeats a word I say without imitating my voice; it drives me out of my... mind.
+- When I feel fear, I train myself to move forward.
+- I'm trying to help Apple Music be an overall movement in popular culture, everything from unsigned bands to video.
+- There's just no way to stop a movement in popular culture. It's going to happen, with or without you. There's absolutely no way to stop that train.
+- I love doing third albums. A group makes its first album, and then the record company rushes them into the studio to make their second album. After that, they go, 'Whoa, wait a second.' They get a little more confident. They step back and say, 'Okay, now we're gonna do it.'
+- I don't have a rear-view mirror.
+- There's a sea of music out there, but there's no curation for it.
+- If you are not frightened, you are not original.
+- I make my world chaotic. It's like a whirlpool.
+- You're only as good as your weakest link in the ecosystem of sound, of audio.
+- Apple was selling $400 iPods with $1 earbuds. They're making a beautiful white object with all the music in the world in it... I'm going to make a beautiful black object that will play it back.
+- Algorithms are great, but they're very limited in what they can do as far as playing songs and playing a mood.
+- I feel open to anything.
+- Those folks at Death Row were the Rolling Stones of their time.
+- You gotta remember: the record industry, in order for it to really thrive, has got to attract great people.
+- Seeing young people caring about sound again and realizing that it's not cool to not have good sound, that means a lot.
+- I said if a woman sings an aggressive guy's lyric, it can't miss.
+- I wanted a label that reflects the times... a center for artists who want to express themselves. That's what makes Interscope unique. It's about freedom.
+- I have a gift: I'm very lucky to be able to spot when a person is special.
+- The great artists of music have always innovated and boldly changed the game, but the industry itself has not.
+- People need service - great service where music is concerned.
+- Life is a balance of fear and overcoming it.
+- Apple Music is about getting things early and pushing them out.
+- You can't just stick someone's name on a headphone that doesn't know anything about sound.
+- Just because you go to Burning Man doesn't make you Hunter Thompson.
+- All I've ever wanted to do is move the needle on popular culture.
+- You have to think, 'What can I do to help my team develop, grow, and become better performers?' rather than, 'What's in it for me?'
+- I'm not going to be the guy who sold the last CD.
+- My proudest thing in my career is that I was able to change it three times. And I'm happy about that. I couldn't have done the same thing my whole life; I would've gone nuts. I couldn't do it, because I do things based on impulsive excitement, and I'm just not that guy that can do something for 50 years and be excited about the same thing.
+- Beats succeeded because, as music lovers, we knew oscilloscopes don't buy headphones - people do.
+- The world is evolving.
+- I always wanted to be where the cool was because I didn't think I was cool. But music was cool.
+- I was very insecure. I figured the only thing I can do is just work harder than everybody else and be useful. So I would anticipate when a client would need a cup of tea. I would anticipate when they wanted to rewind the tape. I would anticipate when they were going to do a vocal.
+- You should try and fail and not be afraid. Get up again.
+- Everyone's frightened. It's how you deal with that fear. It's very, very powerful. And what you've got to do is get it as a tailwind instead of a headwind. And that's a little bit of a judo trick in your mind. And once you learn that, fear starts to excite you. Because you know that you are going to enter into something and try it and risk.
+- A chart that weighs some ad-supported streams the same as a pay stream... encourages artists to promote free tiers to have a No. 1 record. That's great for the tech companies, but not for artists.
+- We want PC makers to have better audio because these things are used as home stereos by a lot of people, and that makes it suck.
+- I didn't have any sophistication. I didn't really have any great taste or anything like that. I was just a kid from Brooklyn. But what I learnt is the why, the how. The work ethic.
+- Genres are just names.

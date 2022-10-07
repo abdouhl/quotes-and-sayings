@@ -1,0 +1,89 @@
++++
+author = "Jim Lee"
+title = "Jim Lee Quotes"
+quotes_len = "83"
+description = "the best 83 Jim Lee Quotes"
++++
+- I try to do a lot of asymmetrical, triangular compositions - I find those work really well for comic book covers in that portrait mode, and I don't always see that in other artists.
+- At DC Comics, it has been a top priority that DC forges a meaningful, forward-looking digital strategy.
+- Not everyone reads comics, although most people know the major superheroes, but the majority of people play video games.
+- One of the key characteristics of the comic book medium is that it is not brought to life by just one voice.
+- What I love about WonderCon is that, while the focus is on the comics, it's also a celebration of games and movies and all the ancillary media.
+- I love the fact that I get something new to do almost every day and have new challenges.
+- I certainly wouldn't buy a DVD series of a hit show and start at Season 7. I would want to go back and start from the beginning.
+- Whether it be in comics, games or film, you can trace the art direction and influences back to some earlier, real-life historic period or artistic movement.
+- Gene Colan was like no other artist of his generation. His ability to create dramatic, multi-valued tonal illustrations using straight India ink and board was unparalleled.
+- As lifelong fans of comic books, Dan Didio and myself, we definitely have our own takes on what make for successful comics and the kind of comics that we want to publish.
+- I think the very simplest way to show Superman's power is to have him punch someone that's powerful.
+- I like a lot of modern art. I like Chuck Close a lot. It doesn't necessarily directly influence the work I draw on the page.
+- Prior to 'Action' and 'Justice League 1,' there was no label 'superhero' for a superpowered being. It's really the emergence of Superman and the Justice League that gets the public comfortable with the idea of people amongst us who have extraordinary power and that they've agreed to be our champions.
+- One of DC's strengths is our archive of storylines ranging from 'Watchmen' to 'Arkham Asylum' to 'Sandman.'
+- The video game market is huge, and the ability to tell stories, and tell different kinds of stories in the gaming space is quickly evolving and changing for the better.
+- Superman tends to stand very upright, and he's very symmetrical, and those are actually the most difficult poses for me to draw.
+- The way you challenge Superman is by having things happen very, very quickly in different places and then asking, 'Who does he save first? What powers must he use to save each person or stop each disaster?' That's one of the ways you make him interesting beyond the thematic and moral issues that make Superman.
+- Creating and producing creative work, to me, those are all happy accidents.
+- From an artist's point of view, I always want to work with the writers I admire.
+- Jerry Robinson illustrated some of the defining images of pop culture's greatest icons. As an artist myself, it's impossible not to feel humbled by his body of work. Everyone who loves comics owes Jerry a debt of gratitude for the rich legacy that he leaves behind.
+- I like having pairs of characters to play off each other. I love drawing Batman, but he's more fun with Robin. Batman charges ahead, Robin jumps off the walls. It's fun showing that contrast.
+- More often than not, the fans really gravitate towards who's on the cover as opposed to how it's drawn or how it's composed, and so, a lot of the time, what an artist likes will be very different from what a fan likes.
+- Costumes are all about identifying which force in a conflict you're on. That's where banners and flags came from - so people rushing into battle knew who to follow and who was on their side.
+- I think there's a responsibility of the publisher, of the company, to make sure the staple books that have been around for decades come out in a timely manner.
+- Superman is the hardest character to draw. There are a couple of things that make him difficult. He's got a very simple costume and doesn't have the long cape like Batman. He's not a character that is necessarily always in shadow, and he doesn't have a mask.
+- If you look at the great superheroes in any universe, you will always find that they have the very best super villains opposing them. It's because they are foils; they are people that the heroes play off of.
+- When I was a kid, I never felt that what I was drawing really represented me; it was just something I enjoyed.
+- The thing that weighs the most on how your final artwork turns out is the amount of time you have and the speed at which you can move.
+- As a kid, I loved the whimsical Superman and Batman stuff, and as a teenager, Marvel was more angsty, and that appealed to me. Marvel dealt with more stuff I could relate to as a teenager.
+- When you have a Green Lantern mixing with a foil like Batman, you get scenes that are comic-book history. There's the epicness of it all.
+- Any time you change something classic or iconic, you're going to have some part of the fan base up in arms.
+- Wonder Woman is a lot of fun to draw.
+- Al Plastino helped redefine Superman in the 1950s. His work on 'Superman's Girlfriend,' 'Lois Lane,' 'Adventure Comics' and pretty much any title in the Superman family will be fondly remembered for years to come. He will be missed.
+- As a gamer, I like to go up and look at people's faces and see how good of a job they did.
+- Once I started down the path of co-founding Image Comics, and even co-publisher, it just seems a lot more like a career path that isn't that atypical for someone with a college degree. Whereas, someone who draws comic books as a freelancer and lives from job to job is a more unusual story.
+- 'Watchmen' is a cornerstone of both DC Comics' publishing history and its future.
+- One of the most difficult things for any artist to do is create a world that looks both completely alien yet real and possible.
+- Superheroes are modern mythological characters, so you're going to make them look impossible. Even my Krypto The Superdog is the idealisation of the canine form.
+- From 'The Sandman' and 'Black Orchid' to 'Whatever Happened to the Caped Crusader?,' Neil Gaiman has provided some of the most memorable stories of the comic book industry.
+- There was something special and unique about the love triangle that existed between Clark Kent, Superman and Lois Lane.
+- There's an obvious marketing component to doing something digitally where you're reaching out to new readers that you can't do in the existing print marketplace, or that it's difficult to do in the existing print marketplace.
+- The first time I drew a Superman story was 'For Tomorrow' with Brian Azzarello in 2004. It didn't really hit me how important it was until I drew a scene early-on in the book that featured Superman crossing paths with a giant, intergalactic space armada.
+- People who liked the 'Arkham Asylum' video game can Google comics to download.
+- I played a little bit of 'City of Heroes' - they have a really great character generation system. I was pretty impressed with that. I played 'World of Warcraft' with my kids. That's a lot of fun.
+- I don't think you can be a comic book fan and not hate change.
+- One of the strengths of the DC Universe has been the strength of the rogues' gallery. Often times they're as famous - if not more infamous - than our heroes.
+- 'The Dark Knight,' 'The Rocketeer' and definitely the first 'Superman' movie by Richard Donner are the best. I tend to be softer in my judgment about what's a bad movie - I don't think anyone intends to make a bad movie, and sometimes it just doesn't click for some reason.
+- Outside of my work as a comic book creator and co-publisher, I'm an avid gamer.
+- I paint in acrylic and sometimes in oil. Sometimes I'll paint my kids. And I'll occasionally do some photography.
+- Back in the '30s, '40s and '50s, you had clear-cut heroes, clear-cut supervillains. Today, you have more of a blend, more of a gray area between the two. You have the rise of the sympathetic villain and the rise of the antihero.
+- A-list stars go to Comic-Con to woo the nerd demographic.
+- You can see how he changed on the surface. But at the core of it all, I think Superman has remained the same - a character with incredible powers but almost superhuman humility and restraint.
+- I have to say, self-servingly, I downloaded my own comics. I downloaded 'Batman: Hush.'
+- I want all my stuff to be converted into digital format so I can have my reference library to carry with me wherever I go.
+- As an artist, as I design and lay out a page, the less-important things, things I want you to spend less time looking at, I draw them very small, maybe even silhouette them. The more-important pivotal scenes, I draw them larger, maybe even a double-page spread.
+- Wonder Woman isn't even American; she's an Amazon princess.
+- I tend not to look at my work after I've done it. In fact, the only time I typically get to review it is when the fans bring up comics at shows, and I kind of flip through it and be like, 'Oh, I remember doing this!'
+- Bob Harras' personal and creative integrity is respected and renowned throughout the comic book industry. As an editor, he provides invaluable insight into storytelling and character.
+- When a character has as wide an audience and as rich a history as Batman, it's truly exciting to see him introduced into an all-new storytelling medium. BATMAN LIVE will bring a completely new experience to fans of the character - it's great to be able to give them something they haven't seen before.
+- No true fan wants to go to Comic-Con and get assaulted with a marketing blitz about just any old show.
+- The great thing about having digital comics is that it is like having a comic-book shop on your digital device. It has turned comics from a destination buy to an impulse buy.
+- I always figured Metropolis was north of New York, actually. Between New York and Boston, in my mind.
+- It's interesting - a lot of what you accomplish in your lifetime either as an individual or as a company is determined by other people. I mean, you can do interview after interview and defend a point of view, but more often than not, the collective kind of opinion will be the one viewed historically and taken as gospel.
+- When you try to do something bigger and more grandiose, a lot of times it's more apt to fall apart. It's a lot easier to lay down a bunch of singles than it is to get a home run.
+- I've been trying to make this argument that digital comics and print comics are both art, but there are subtle differences.
+- So much of comics are dictated by characters talking to one another - or in focused spaces where 'the camera' has to stay in pretty close on what's going on.
+- The downside to becoming a doctor, I think, is it's a very long process; four years of medical school, three years of internship, two years of residency, umpteen years of specialization, and then finally you get to be what you have trained almost all your life for.
+- I don't think you can measure your love or your passion for whatever you're working on.
+- I think sometimes with new characters, you can kind of hit a creative valley, and it's important to recognize when you're in that valley so you can get back out and get back to that peak.
+- I rarely draw myself, in general, and if I do, I tend to do little cute manga-esque, almost bite-sized drawings of myself.
+- There is the intent of the writer and the interpretation by the artist. What the writer intended and what the artist interprets is not a 1-to-1 translation. It's a crossing of ideas that generates the stories that you see in print.
+- One of the reasons I never had a problem handing over my characters to other creators is that I knew that they would add their own influences and takes on the characters and make them better for it.
+- Nick Cardy's work helped define some of the things we see in comics today and take for granted. He broke out of the mold in terms of covers and layout and created a truly interactive experience for the reader that directly points back to his time with the Eisner studio.
+- Part of running DC Comics is that it's much larger than Image Comics is, or was. There's a challenge to being one of the industry leaders in that everything you do is scrutinized and watched.
+- Most video games, you build up toward the big, bad boss. And it's just a bigger, more powerful version of what you've been fighting all along in the game.
+- People ask me, 'What happened in your life that might have pushed you as an artist to get to where you are today?' I always felt a little on the outside. And as such, you're always observing things. So, I'd be kind of re-creating these things in my mind, and I think drawing it was a way to deal with that.
+- 'The Authority,' by Warren Ellis and Bryan Hitch, really pioneered the widescreen, action-packed style of storytelling.
+- I don't buy comics anymore, for the most part. I eat my lunch off of them.
+- I think when you're knee-deep in coming up with editorial plans, the desire to sit down and pencil something is pretty strong.
+- There are a lot of global decisions that you can make as a co-publisher, and only publishers can make those kind of decisions. At the same time, there are some things you can do only as a penciler or creator. I want to keep my hands in both pots, so to speak.
+- In the '50s, a lot of stories were built around radiation and the proliferation of new technology. In the '70s, there were a lot of stories that dealt with the Vietnam War. So comic books have always been a reflection of the times we live in.
+- Many in the creative professions were nerds in their pasts because they spent so long reading comics and using their imaginations when they were growing up.
+- Even today, a lot of the CGI you see in movies is so clean and crisp that it just looks fake. It's weird: the more advanced they get, the faker it looks.

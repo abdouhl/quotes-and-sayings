@@ -1,0 +1,15 @@
++++
+author = "James Arness"
+title = "James Arness Quotes"
+quotes_len = "9"
+description = "the best 9 James Arness Quotes"
++++
+- I had the privilege of working with so many great actors over the years.
+- What made us different from other westerns was the fact that 'Gunsmoke' wasn't just action and a lot of shooting; they were character-study shows.
+- The kids don't really have any part of my television life. Fortunately, there aren't many times when show business intrudes on our family existence.
+- I was the tallest guy in the school, and I was very conscious of being larger than anybody - classmates and teachers.
+- I watch television all the time, mostly PBS and old movies like 'The Quiet Man,' my favorite Wayne movie. It's marvelous. I just loved the man and still do.
+- I've got a little arthritis that I have to deal with. I was 6 feet 7 when I started, and I've shrunk up a little bit. I'm probably 6-5 or so now. But up here at 82, I feel pretty good. I'm sticking in there.
+- I had a wonderful life and was blessed with so many loving people and great friends.
+- I had the pleasure of knowing Ronald Reagan before he became Governor of California. He was a truly great human being and we usually spent our time together reminiscing about mutual friends.
+- I was honored to have served in the Army for my country. I was at Anzio during WWII, and it makes you realize how very precious life is.

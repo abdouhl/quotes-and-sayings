@@ -1,0 +1,28 @@
++++
+author = "James Anthony Froude"
+title = "James Anthony Froude Quotes"
+quotes_len = "22"
+description = "the best 22 James Anthony Froude Quotes"
++++
+- The secret of a person's nature lies in their religion and what they really believes about the world and their place in it.
+- The endurance of the inequalities of life by the poor is the marvel of human society.
+- The essence of greatness is neglect of the self.
+- No person is ever good for much, that hasn't been swept off their feet by enthusiasm between ages twenty and thirty.
+- We enter the world alone, we leave the world alone.
+- You cannot dream yourself into a character; you must hammer and forge yourself one.
+- Fear is the parent of cruelty.
+- A person possessed with an idea cannot be reasoned with.
+- Human improvement is from within outward.
+- Age does not make us childish, as some say; it finds us true children.
+- Science rests on reason and experiment, and can meet an opponent with calmness; but a belief is always sensitive.
+- As we advance in life, we learn the limits of our abilities.
+- The better one is morally the less aware they are of their virtue.
+- The first duty of an historian is to be on guard against his own sympathies.
+- In everyday things the law of sacrifice takes the form of positive duty.
+- Experience teaches slowly, and at the cost of mistakes.
+- Instruction does not prevent wasted time or mistakes; and mistakes themselves are often the best teachers of all.
+- The practical effect of a belief is the real test of its soundness.
+- Philosophy goes no further than probabilities, and in every assertion keeps a doubt in reserve.
+- Wild animals never kill for sport. Man is the only one to whom the torture and death of his fellow creatures is amusing in itself.
+- Superior strength is found in the long run to lie with those who had right on their side.
+- To deny the freedom of the will is to make morality impossible.

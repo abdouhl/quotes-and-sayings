@@ -1,0 +1,15 @@
++++
+author = "Neal Mcdonough"
+title = "Neal Mcdonough Quotes"
+quotes_len = "9"
+description = "the best 9 Neal Mcdonough Quotes"
++++
+- Graham Yost is a genius, and I know that very well because we worked together on 'Band of Brothers' and 'Boomtown.'
+- For Michael Wright and Frank Darabont to cast me as the ultimate good guy and Eddie Burns as the ultimate bad guy, and really switching roles from what we usually play, is pretty awesome. That generally doesn't happen, but TNT is a horse of a different color.
+- Ted Griffin, who created 'Terriers,' is one of my dearest friends.
+- Mini-series are my favorite medium to act in because it's the right amount of pages you shoot a day, it's the right amount of time that you're with a character, and they really advertise it a lot so that people get excited for this epic event.
+- Acting is probably the number one team sport in America as far as I'm concerned.
+- With four kids, it's hard to watch anything other than 'Sesame Street.'
+- If you don't care for the villain, if you don't love him and hate him at the same time, then he's just boring.
+- 'Justified' is one of the greatest teams I've ever played for. It's just awesome.
+- The great thing about 'Justified' is that the writers will craft a scene, but if the actors come up with a great idea, they're 100% for it.

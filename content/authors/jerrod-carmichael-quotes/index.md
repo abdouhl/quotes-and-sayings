@@ -1,0 +1,40 @@
++++
+author = "Jerrod Carmichael"
+title = "Jerrod Carmichael Quotes"
+quotes_len = "34"
+description = "the best 34 Jerrod Carmichael Quotes"
++++
+- I look at Seinfeld - he looks like he's having fun. He's just enjoying being Jerry Seinfeld, you know, on 'Seinfeld.'
+- Eddie Murphy did '48 Hrs.' because that was the only movie offered to him. And he killed it. Bill Cosby did 'I Spy' because that was the TV show he was offered. But now, there are networks dedicated to comedy, and the Internet... it's so easy for comedians to not do things that aren't true to them.
+- Being very, very honest, I've watched more Bill Clinton speeches than stand-up specials. Steve Jobs commencements. They're just great orators. I love people who boldly share their point of view.
+- I don't think all comedy should be mindless. Have something that's thoughtful. Maybe some things are tongue-in-cheek; maybe some things are very direct. I like that people have to think about things. That excites me. Because if you say certain things, it starts a dialogue. Even if you disagree, it's still a dialogue.
+- I don't like the idea of being a human being, existing, talking to my friends, and having these real human conversations, and then getting to work on a sitcom and turning that part of my brain off.
+- I have this theory that I hold on to, the theory that everything great in art and in life in general is jazz. It's just like all these things that just kind of seem to fall into place. You know, like mistakes that somehow turn into something beautiful.
+- L.A.'s pretty great, man. But I'll be very honest - I prefer New York. It's more my speed.
+- As a standup performer, I'm onstage, and it's important how the audience is looking at me. I'm looking at whether they're leaning forward or not, those types of things. You read an energy. And it's the same thing in a scene with other actors.
+- I didn't choose to like Chik-Fil-A - I was born this way.
+- I think people respond to truth. 'Straight Outta Compton' made $60 million over the weekend, right? That's not just a black audience. 'Empire' grew every single week. That's not just a black audience. Black culture is American culture, you know what I mean? They're becoming more and more one in the same.
+- I never really set out to be a comedian, but as a kid, I loved doing sketches and playing characters. And then a great friend kept telling me I should be a comedian, so I followed her advice and gave it a shot.
+- I want everything to be an honest extension of me. What better way than me talking? It's a direct connection with everyone. With film and television, you make great projects, but stand-up is the thing that is completely yours.
+- I'm inspired by people who are unapologetically themselves, from Bill Cosby to Fahim Anwar. Just funny people.
+- If you've ever liked an artist or someone who then does something or is accused of something extremely corrupt, and your moral conscience won't allow you to accept that artist, the truth is then that creates a void in your life. Because then something you loved was taken from you.
+- I want that Sinatra type of fame. It's not the 'Whoever's the hot pop star at the moment' fame. It's the 'Walk into a room and everybody just kind of politely nods their heads' fame. Sinatra fame.
+- I think there's a responsibility more as an artist to try and push in the direction you think comedy should go... The biggest thing I could do for the art that I love was keeping it art: keeping it special, keeping it honest, keeping it truthful.
+- I grew up in what my mom will always dispute as 'the hood.' She just doesn't like the name. But it had its similarities to any neighborhood like that. The all-black neighbors and the all-black problems and the all-black happiness. And I really loved it.
+- I work by instinct. You never hear anything new; when you hear advice that makes sense, it's something you already know.
+- When you're onstage in theater, if you mess up a line, there's no 'Cut! We'll get it again.' It's full steam ahead.
+- I've laughed hysterically, just trying to hold it in, at every funeral I've been to, because everyone's so serious. And there are a lot of people speaking publicly, which makes you understand why it's people's number one fear - because everyone shouldn't do it.
+- Performing for Dick Van Dyke once was fun.
+- To say it very honestly, removed from ego, standup is just a thing that I understood, a God-given ability.
+- As an artist, the most important thing and the most special thing is when your intention shines through on the work.
+- When you see U2 or the Rolling Stones, after years of knowing each other, they don't have to look at each other to connect.
+- Broadcast television is designed to reach as many people as possible, right? There's an obligation that we as creators have to advertisers, and it is an advertising medium.
+- I use a note-taking system I learned in history class in eleventh grade.
+- You know, 'Cheers,' you didn't have to leave the bar because what they were saying in the bar was important. 'All In The Family' is the same rule. On 'The Golden Girls' they didn't have to leave the table. And 'Friends' - the coffee shop. You can contain it if it's interesting.
+- Comedians could do mindless things - and by mindless, I mean the easy jokes and things that you already agree with - but I find it more interesting, more of a reward, for people to feel something. I like to make a human connection, and that involves speaking emotionally, a bit more intellectually, or with a bit more moral complexity.
+- If a thing is going to represent you, your vision, you should be involved in every aspect of that thing. I like my role as executive producer on anything probably as much as performer.
+- A lot of times, us within the industry, we can put this bubble around ourselves and create what a show is supposed to look like and sound like, and we're seeing so much content. The best compliment is, 'I finally found something to watch with my family,' or, 'This is how I really feel, and I can't believe they're showing this on television.'
+- I knew I wanted to do a show on NBC - it's rooted in its history; it's part rooted in nostalgia and part rooted in the potential of it. For me, there was no other choice.
+- I just like to explore honest thoughts or feelings. How I'm feeling at the time. I want to explore it and talk about it and have a conversation with the audience. I want to throw something out there, see how they feel about it, and tell them how I feel about it. I know that's really relaxed, but that's the most fun.
+- On a pure entertainment level, if I'm going to choose to listen to a presidential candidate speak on a Saturday night, it's going to be Donald Trump over Bernie Sanders by a landslide!
+- The biggest thing that I get most excited about is, my family and I would watch television together, and we weren't just passive viewers. Something would happen, and then we would talk about it. When Will Smith was shot on 'Fresh Prince,' that sparked a conversation about safety.

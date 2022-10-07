@@ -1,0 +1,25 @@
++++
+author = "Jim Woodring"
+title = "Jim Woodring Quotes"
+quotes_len = "19"
+description = "the best 19 Jim Woodring Quotes"
++++
+- It takes more drawing to tell a story in pantomime.
+- I used to publish these stories in 32-page comics, and I would either do short stories or break the long ones up into chunks so there would be some variety inside the comic. But since then, people have been doing more and more long, standalone works, and the term 'graphic novel' has sort of become the codified term now.
+- I'm not a freak. I'm not really crazy or anything. I don't think I'm really abnormal. It's just, like anybody else, I have interests I cultivate, and one of my interests is not getting too used to things. I've sacrificed a lot of things in my life in order to keep that sense of things being unfamiliar.
+- Comics could use more creators with something worthwhile to say.
+- A tree is an incomprehensible mystery.
+- Like a lot of freelance cartoonists, when any opportunity like that comes along, I have a hard time saying no, whether it makes sense or not.
+- People aren't interested in seeing themselves as they really are.
+- It's funny, in some of the interviews I've seen that were done for the film, some people say things like, 'Oh, I was never a very big Jim Woodring fan. I've never thought his work was that great.'
+- Alternative cartoonists have to rely on comic book stores to get their stuff in the hands of readers.
+- Real shapes and real patterns are things you would observe in nature, like the marks on the back of a cobra's hood or the markings on a fish or a lizard. Imaginary shapes are just that, symbols that come to a person in dreams or reveries and are charged with meaning.
+- I've heard that Alfred Hitchcock said that by the time he was ready to shoot a film, he didn't even want to do it any more because he'd already had all of the fun of working it out. It's the same thing with these Frank comics.
+- In a long story like 'Weathercraft,' it becomes kind of convoluted. It can become perhaps difficult to remember what led up to whatever point you're at. I worried a little bit about people being able to keep the shape of the story in their heads while they were reading it, and not wonder how they got wherever they were.
+- When I was a kid, I used to see apparitions and have hallucinations, and my entire perception of the world was badly disoriented. And I had kind of a chaotic childhood because of that. I've really hung onto it, though. Because I actually like those feelings.
+- Everything I do tries to do the same thing, which is to express things that are hard to express, hidden things.
+- When I started formulating the first Frank comic, I knew I wanted it to be something that was beyond time and specific place. I felt that having the characters speak would tie it to 20th-century America, because that would be the idiom of the language they would use, the language I use.
+- I guess if I had to put it into a single phrase, the moral of the Frank stories is that the hammer never really falls.
+- That Moorish architecture is all over the place, of course. It affects me everywhere I see it, as it does so many people. But Brand Library was a special place to me, and I know I've paid homage to it many times in my drawings.
+- Doing a story about my mundane, waking life, how much I don't like my job, or breaking up with someone, I don't think so. Those stories don't interest me that much as a general thing.
+- Every time I write something down I check it to see if it has that telltale glow, the glow that tells me there's something there. If it glows, it stays. Everything is either on or off.

@@ -1,0 +1,92 @@
++++
+author = "Guy Martin"
+title = "Guy Martin Quotes"
+quotes_len = "86"
+description = "the best 86 Guy Martin Quotes"
++++
+- The only thing I keep from the races I've won are the handle bar grips from the bike, the rubber bits.
+- I like being in control of my own destiny, really.
+- I'm not into these mollycoddled sorts of things; I like a bit of danger. I haven't got a death wish, but it makes things exciting, doesn't it?
+- I race pushbikes more than I race motorbikes, but it's not the same.
+- I'm not an ungrateful person.
+- I've got my own TV stuff on the go, and it's all a bit oddball - it's one-offs, and I can do what, when, and how I want it, really. I don't have any scripts or people telling me to do stuff twice.
+- I'm a bit embarrassed about how little I know about the First World War. I didn't even know that tanks were used in it.
+- I've always had a proper job. I don't know anything else.
+- I can sleep on a bloody washing line if I want to.
+- A few people have said my granddad looks like me, but I reckon he's far better looking.
+- I get home from work at six or seven. When I'm busy, I set my alarm for three, get out of bed at quarter past three. I have a cup of tea and read a magazine and take the dogs for a walk up the lane. Go through my text messages and reply to anything that needs it, then get my biking gear on ready to cycle to work.
+- I remember, my first season was 1999, and I must have crashed about 13 times in that first year. But then, in the second season, you crash about half as much and then, in the third year, even less again.
+- I like the Mid Antrim circuit, and if anyone were to ask me to show them a typical Irish road surface, I would take them to the Mid Antrim. It is awesome.
+- There's no more expensive sport than racing bloody motorbikes.
+- Going back because it's what I did and I was sort of all right at it is not a good reason to race the TT.
+- When you dead, you dead.
+- I don't go out. I work, go racing, then go to my shed and make things.
+- As far as I am concerned, the Ulster Grand Prix is my favourite race.
+- I've been put under 8.5G in a stunt aeroplane. I felt all right. Well, I lost my vision, but I was still conscious.
+- I've never lived like a bloody rock star or anything.
+- We all buy our meat wrapped in plastic because we don't like to think about the animal that died.
+- I like talking but on my terms. I don't like people talking to me, but I like talking to people.
+- The idea for the 'Speed' series was to break the record for the fastest push bike.
+- The most common way to crash coming out of a corner is to highside - which is where you accelerate out of the corner, and the rear loses grip, then suddenly finds grip and chucks you off the bike.
+- I'm not an idiot. Everything is calculated that I do.
+- I have a night job driving tractors on biomass farms.
+- I'd never be disrespectful to road racing. The sport was good to me.
+- I like pushing myself.
+- Speed and danger don't always go together, but it's proper fun when they do.
+- I'm the luckiest man alive.
+- What I really took in in India was that people - even in the slums - were happy with what they'd got. That's something we're not good at in the Western world.
+- If you were to be put off by every little problem life throws at you, you'd get nowt done.
+- There's a line you have when you're racing, and you can ride up to that line. If you push beyond it, you might crash. But first is first, second is forgotten. That's what we say.
+- I can't stop biting off more than I can chew.
+- I enjoy working on anything mechanical.
+- Racing's been good to me, but I'm bored of it.
+- They don't call it the Wall of Death for nothing. The biggest risk is crashing off the top. That's when it gets really messy.
+- You can't argue with physics, mate.
+- I love Scarborough. I think I have more wins there than anyone else.
+- I was born in Grimsby and always lived around there, but it's died a death because of the loss of the fishing industry.
+- Television opens up some bloody great doors. That's the plus. The minus is the attention it brings.
+- When I was little, I would open up lawnmowers and try to make them go faster. I wasn't strong enough to do some things, so I'd wait for my dad to get home from work to help me. He was great, but he never really encouraged me, and I'll be the same if I have kids: I'll leave them to do their own thing.
+- I should be paid to be a spokesman for Ford Transit.
+- I was working for Martin Finnegan. He was my best mate in racing. I went to his wedding in November 2007. No-one else from the racing world was invited apart from me and my girlfriend. The funeral was the following May.
+- It's bred in me that I only see real work as getting stuck in and getting your hands dirty.
+- I'm not much of a chef, so people keep buying me cookery books to broaden my culinary horizons, but I've not got far past shepherd's pie yet.
+- I fit a lot into my days.
+- Building the machine for 'Speed' was fun, as was working on the 'Spitfire' programme. They are programmes I enjoyed being on, but they are not my job.
+- Speed on its own isn't always so exciting. On a racing motorbike, I can do over 180 mph, which is fast, but not as fast as the airliners that we all climb aboard to fly off on holiday. Modern passenger jets can cruise at between 500 and 600 mph, but sitting in an aeroplane like that for hours on end isn't very exciting, is it?
+- I broke five vertebrae, and they had to rod my spine because I broke my sternum, too.
+- Road racing has given me a good life, and I'm not being cocky, but I've brought something to racing, too.
+- Life is all about setting yourself goals and then achieving them.
+- I don't go to racers' funerals.
+- My idea of splashing out would be buying a new spanner. I've got about 300 - you can't have too many in my opinion.
+- I don't want to be famous.
+- When TV companies stop coming up with ideas, and I've got to go and do 'Celebrity Big Brother,' I don't want that to happen.
+- If you get beaten, and you know that you tried your hardest and kept your focus, then that's all you can do.
+- My back is full of metal; so are my hands and legs. I'll have to decide who will get all that in my will. It's probably worth a fortune in scrap metal. But it doesn't affect my movement.
+- For my first race, when I was 19, I'd bought a 600cc bike. And that was far too big for me, really. I shouldn't have really had something like that. But anyway, I went and raced, and I crashed. In my very first race! But I never gave in. I kept going back and back and back.
+- I feel that I'm in good company behind the wheel of the Williams FW08C. It was the first F1 car to be driven by the great Ayrton Senna, and it won the 1983 Monaco Grand Prix.
+- Not everybody would choose to be a firefighter or an ambulance driver. Not everyone wants to see the nasty bits of life.
+- When I crash during a race and injure myself, what's the point in whinging? Because I put myself in that position. No one's making me race motorbikes - I want to go and race motorbikes. The most annoying thing for me is lying in hospital and not being able to get to work. I get beside myself.
+- Short-circuit racing is full of health and safety, but the reason I ride a motorbike is because of the danger, and there is no place more dangerous than the TT.
+- Dentists, doctors, surveyors from Latvia wanted to come to England, do anything to get away from the Soviet regime.
+- I've had my eyes opened to so many things. But still, all I really want to do is my truck job. It's like an ingrained, default setting.
+- In my normal life, I am a private person doing a proper job.
+- I've had sideburns since I was 16, but back then, a gust of wind would have blown them off.
+- I don't see coming down to London and talking to people and making TV shows as real work. The only reason I do it is because they keep coming up with decent ideas.
+- Pike's Peak was the single best thing I've ever done in motorbiking.
+- People who race bikes don't talk about crashes. They keep going.
+- TV's not really a job, is it?
+- If I'd done 'Top Gear,' I would have had to have left my job, and I've got the best job in the world. To do 'Top Gear' and do it properly would mean leaving work, and I can't. I don't want to leave work.
+- I like films, but I can't sit still for very long.
+- I'm a great believer in setting myself goals, and I like to think that, once I've a goal to aim for, I'll do whatever it takes to achieve it.
+- I do all that TV stuff, and it's not real work.
+- I'll always give it my all, and to be with a quality manufacturer like BMW is mega.
+- I'm big into the Stone Roses.
+- TV people are great folks, but if I said, 'Come and film a beetroot-jar-opening competition,' they would.
+- I'm fascinated by the whole communist thing. No one has a lot, but everyone is the same. I like that way of living.
+- People deal with the concentration needed to do well in a two-hour race in different ways.
+- The TT taxes your mind.
+- I work nights on a farm in the summer when harvest starts. I work on a civil engineering site down the Humber Docks where all the refineries are. So that's my day job from seven to four. And then I build engines at night.
+- I want to win, whatever it takes.
+- Some riders believe in all the hype at the TT; have a successful week, give up work then go and buy motorhomes and cars. I like to get back to normal afterwards and go to work.
+- I'm not a materialistic person at all, but I always want the next thing; I've got a nice toolbox, but I still want another set of spanners.
+- I know what a pound is, and I earn my £12 an hour, and that's great.

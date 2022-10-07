@@ -1,0 +1,19 @@
++++
+author = "Mandy Bujold"
+title = "Mandy Bujold Quotes"
+quotes_len = "13"
+description = "the best 13 Mandy Bujold Quotes"
++++
+- The last Pan Am Games in 2011 was one of the best experiences in my career. It was the first time women's boxing was in the Pan Am Games and any major games, and I had the opportunity to box in the first women's boxing fight and then went on to win gold.
+- I, for one, refuse to box without headgear as an amateur. With the rising awareness of concussions and head injury, it is becoming more evident that we need to protect our brains as much as possible. There hasn't been enough research to conclude that it is safer to box without the use of headgear.
+- There's always that stigma of, 'Women shouldn't box,' or stereotypes of what a female boxer should look like. I don't think the men really have to deal with that - to tell people they're a boxer.
+- A guy like Manny Pacquiao or Floyd Mayweather is used to fighting 12-rounders. Put them into the ring for three rounds against a top amateur boxer at a much faster pace, and they'll lose a fight, and how bad is that going to make them look?
+- Qualifying for the Olympics is probably harder than winning a medal at the Olympics.
+- No one likes getting hit. It's a normal thing... I used to make up excuses when the coach would ask me to get in the ring. I'd say I forgot my mouthpiece, or I'd say I had a headache or something.
+- Boxing gave me a path in life. Because of boxing, I learned what I'm capable of achieving if I put my mind to it and how hard work can and will pay off in the end. It gave me confidence and taught me to face fear straight on and dig down deep when times get tough.
+- I always joke that I want to be able to retire from boxing and still be able to look into the mirror without seeing scars all over my face. I love my sport, but I would rather not have to spend hours doing my makeup to cover up the memories once I retire.
+- Before, boxing was something that I did. Now, boxing is who I am.
+- One of my brothers, Eric, who is one year older than me, was actually the first one to start boxing, and being the youngest sibling, I wanted to do what he did, so I pushed my parents to let me join.
+- I remember the first time I stepped into the ring at age 16. I loved hitting things... but who likes getting hit?!
+- I say things as if they've already happened, so as I'm getting ready I can think about it and feel it, how it's going to feel to win, and I see myself getting on the podium.
+- Canada definitely has a strong program in women's boxing, and we're showing that women are capable, not just men.

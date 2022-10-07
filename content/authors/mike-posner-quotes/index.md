@@ -1,0 +1,105 @@
++++
+author = "Mike Posner"
+title = "Mike Posner Quotes"
+quotes_len = "99"
+description = "the best 99 Mike Posner Quotes"
++++
+- I did rap when I was a teenager - started rapping when I was nine, and started singing when I was 20. I kinda sing like a rapper would sing.
+- I was trying to maintain a facade of infallibility, which is exhausting. Like, I used to wear tons of makeup because I had bad skin. I couldn't go out in public without makeup on.
+- A lot of my friends who I wrote or produced songs for came back and helped me make 'Pages.' It's better than I ever could have imagined.
+- When I was a kid, my parents were always like, 'Money doesn't buy happiness.' I thought, 'You just didn't make enough money.' I had to go find it out for myself.
+- I'm kind of like a rapper trapped in a singer's body.
+- I feel super, super grateful that I get to make music.
+- It's important to me that my songs actually make sense. So often, I turn on the radio, and I have no idea what the people are singing about. It may sound good, but when you listen, they're just saying words that rhyme. It's another song about nothing.
+- Just be yourself and be upfront about your expectations and desires. Don't be ambiguous and play hard to get. It doesn't work. You'll end up in the friend zone.
+- I take a lot of pride in my songs.
+- I'm scared to give gratitude to the people that, if I hadn't heard their stuff, I wouldn't be able to make music.
+- I love the fact that I don't have a real job!
+- When I recorded 'Cooler Than Me', I had been singing for like, three months at the most. I was just a producer experimenting with my voice on tracks, and now I'm, like, a really good singer in a legit way.
+- I like regular girls.
+- There was a time when being loaded and loved and popular really mattered a lot to me. I'd say that when I was less popular, I learned to be happy without those things.
+- I had an initial wave of popularity that, in time, crashed, and I slowly became less popular and less successful, and I had to figure out who I was without those things.
+- I looked at myself and realized I had a lot of boundaries up about what I would talk about, what was private for me and what wasn't. I decided to just get rid of them. It was quite liberating.
+- A lot of people considered my career as an artist largely over. Two albums got shelved. But I've made music since I was a little kid, and for the majority of that time, I wasn't paid for it. So I will always be making it.
+- When you're a writer, your song has to resonate with the person you're writing for in order for them to want to sing it. But if you're an artist, you can sing whatever you want.
+- I struggled with depression when I was in high school, and I remember thinking that if I got a record deal and got a hit song, that it would solve all those problems for me.
+- My favorite color is jungle green. At least, that's what it said on the side of my favorite crayon in first grade. I don't know if it's an official color.
+- I remember being 24 in Los Angeles. And up until that moment, when my mom would call my cell phone and it would ring, I would be flushed with some sort of excitement that we all have - a little dopamine rush, when my phone rings - and I'd look down, and it would say, 'Mom.' It used to feel like a job to pick that up.
+- Avicii's been a supporter of my music for years, and we've been writing songs together for a long time.
+- I wanted to be the most famous. And it wasn't until I hung out with Justin Bieber that the whole thing got demystified. The mystique of it was gone.
+- I want to headline Bonnaroo. I just want to do it more than anything in the world.
+- I think - for a period of time, I did think art was there to serve me, but it took me a minute to reset.
+- If they want to party and do all the things I say brought me sadness in my song, with my song as the soundtrack... so be it.
+- I'm a big fan of country music.
+- When you know it's a game, you can have more fun playing it. When things seem serious, you tend to take less risk and have less fun.
+- It's just about being honest. I listen to a lot of stuff that's out there, some of which I wrote, and I'm like, 'Where is that? Where's the honesty?' So that's what I want to get to in my music now.
+- I realized I could do music for the sake of music, not the other things that come with it. That was a major shift.
+- I cared too much about people liking me because I didn't like myself enough.
+- My earliest musical memory is of my older sister playing me Nirvana's 'Nevermind' on headphones in the back of the car on a road trip.
+- I really look up to Louis C.K. I think he's great. And obviously he's very popular, more popular than me. Years ago, I was thinking, naively, it would be great to be that popular. And then I thought about it and then I realized that, with his money and his level of notoriety, he has all of the same emotions that I do.
+- I wanted to break into producing, so I would peddle my tracks and beats to labels. I always heard the same thing: They liked the music, but it didn't fit any of the artists on their roster.
+- If my career was a basketball season, I'm in the pre-season still. I'm not blowing everybody out by 40 - there's so much work to be done, and there's no time to really sit and look back and be proud of what I've done yet, because it's the pre-season still.
+- I thought, 'Oh that's what happens. You put a song out and everyone likes it.' Well, then a funny thing happened: I started putting more songs out, and none of them did the same thing.
+- Honestly, I don't go to clubs very often.
+- I just sing over hip-hop beats, you know. That's what I've been doing. That's what I started in '09 in my dorm room.
+- I think I was blessed with this talent for a reason. No one told me how to write a song, but I'm just good at it, you know. There are a lot of other things in my life that I'm not so good at, but writing a song is not one of them.
+- I'll read on Twitter, 'Do you still do music?' Music is all I do, all day.
+- Some of my early musical memories are attached to grunge.
+- I didn't really experience any hardship like people tend to think of when they hear the words 'Detroit, Michigan.' I think Big Sean is a much better ambassador for the city.
+- I know it sounds corny, but I look for a girl that has a beautiful personality on the inside.
+- How can a song all about struggling with the afterglow of fame thrust someone into fame? How can a lyric like, 'I'm just a singer who already blew his shot,' give a singer another shot? I don't know... but it's funny.
+- I was a paperboy first, then I worked at a movie theater. But I was a caddie at a golf club, which I didn't like. The people were so bougie and racist at times.
+- I believe in the ethos of the remix, like Andy Warhol making a painting of a Campbell's soup label.
+- My favorite television show is 'It's Always Sunny in Philadelphia.'
+- I remember I wanted to be an athlete. I wanted to be in the NFL or NBA or something, and I don't think I dreamed of being a benchwarmer. I'm sure I wanted to be the best. But I didn't really ever think I was going to be a famous musician.
+- I always wanted everyone to love me, probably because I didn't love myself enough. But now I realize that when you're an artist, you're making the music that's in your head and in your heart, and not for any other reason.
+- I came to realize that if I was going to succeed in the music industry, I was going to have to learn how to perform my songs myself.
+- I feel like my best music is still ahead of me, and I can't wait for everyone to hear it.
+- I think it should be socially acceptable for men to like 'You're Beautiful' by James Blunt.
+- I grew up a hip-hop kid doing mix-tapes.
+- I didn't give myself enough love, so I was searching for it in other places, and it was a never ending struggle.
+- My songs are all personal.
+- I've remixed lots of other people's songs, from Adele to Electric Light Orchestra to Beyonce, so when my record label said, 'Why don't you give 'Ibiza' to someone to remix?' I said, 'Sure,' because I like the idea of people reimagining art and making something new out of it.
+- I grew up making music in my mum's basement, and I used to tell her I was going down there to work, and she'd say, 'That's not work. Go get a real job!' It took me signing a record deal to change her opinion!
+- From what I understand about Shakespeare - which isn't a lot - there was no copyright law when he was writing. He sampled at will, and it wasn't seen as a bad thing.
+- It's not the job of the art to accommodate me and make me more money, make me more famous and get me more girls.
+- A lot of people have trouble putting into words what my music is, and it's because of where I grew up.
+- I've only had success when I'm not trying to. It's that weird thing where if you're trying to impress a girl, you're not going to impress her. But if you aren't trying to impress a girl, you'll probably impress her because you're not trying.
+- I co-produced 'Boyfriend' by Justin Bieber and worked on Labrinth's album, so I've been keeping busy.
+- I think of the pop music that I've made in the past and hear on the radio as candy bars. And I was really good at making candy bars.
+- People like me for my songwriting and production, not my singing.
+- I try to listen to as much different music as possible - I've always got music blasting in my ears!
+- All my music is autobiographical, and that's the reason why people like my music. They know when I'm saying something on a song, I mean it. It comes from a real place and captures the realness in my life.
+- I realized that a lot of people in my family had sacrificed for me to have the opportunity to go to a place like Duke. I owed it to them to finish. I graduated with a 3.6.
+- Detroit is in my music consciously and subconsciously.
+- That's why I make mixtapes. That's why I work with Don Cannon; that's why i work with Big Sean. Even though I don't rap, I got love and acceptance in that community, and that's something that I really take seriously and hold close to my heart.
+- I think that's what makes my music different from other artists in my lane is that I write every word that's on my album, and every word comes from a real experience or a real feeling that I've either experienced or felt. And I'm very particular about that, and I take a lot of pride in it, so you know if I say something on a song, I mean it.
+- I've always had an eclectic taste in music. But what I try to do is combine these things in ways that others would never think of, like putting Bun B on an Elton John song.
+- It's like, we all grow up thinking it would be so nice to have hundreds of people falling over themselves trying to grab us, telling us we're great, that they love us.
+- Tons of people inspire my music, and now when I do an interview, I'm scared to say who they are.
+- I try to tell the truth in my lyrics; write good melodies and make hard beats. So, basically, I just combine hip-hop with melody. That's how I classify myself.
+- I grew up in a city called Southfield, and it's one of the most diverse cities in the country. Just from the different socio-economic statuses and racial and ethnic groups I was around, I was around all different types of music from the beginning.
+- I made a CD in my dorm room and put it on the Internet, and my friends blew it up. Within a few months, I was doing shows across the country without a record deal, without a single, without anything.
+- When I went to college, I made my first mixtape, and Sean gave me three verses for it. That was a big reason anyone ever listened to my music. I definitely wouldn't be talking to you now if it wasn't for Big Sean.
+- I have a very wide spectrum of stuff that I grew up listening to.
+- It took me a long time to stumble upon a sound, and I figured out I wanted to kinda sing rapper's lyrics.
+- You need to stop looking outside and look inside - and it's such a good feeling. A feeling of love and that everything is going to be OK, and all you have to do is nothing.
+- I consider myself a lyrics guy.
+- I wanted to see if I could be happy without a lot of stuff. And what I found out was, yeah, I really could.
+- Nothing means more to me than making the best music and me getting better as a writer and producer... I want you to know I work really hard. The bar is really high.
+- I stay up too late pretty much every night working on music.
+- I remember with my first album, I was so scared of messing it up, of blowing the opportunity, that I blew it.
+- It's always hard for an artist from the U.K. to break into the United States. It's especially harder for a rapper because hip-hop is such an American art form.
+- I was really lucky to grow up in an extremely diverse neighborhood.
+- When I started picking out music for myself, I was a hip-hop kid. DMX, The Roots, Outkast, people like that.
+- If anyone has listened to my stuff over the years, they know I tend not to do the same thing twice.
+- I have my dream job. I get paid to make music.
+- It's easier to make art for a society at a certain point in time with an understanding of what's going on.
+- I was constantly looking for things outside of myself to make me feel good, and I think now that feeling can come from the inside, and that's why I meditate now twice a day.
+- What I'm trying to do is maintain some mindfulness about being popular - I wasn't so great at that last time around.
+- I hated the thought of being just a songwriter.
+- If a song about blowing your shot becomes popular, that's really funny.
+- In my short career, I tend not to repeat myself. I have no interest in redoing something. Sometimes that makes people angry, and maybe it's not the best thing for me commercially. But it's the best thing for me artistically, and it's the best thing for my heart.
+- I enjoyed a cartoon show called 'Recess' throughout my high school career. The target audience for that show was 8-11 years old.
+- My favorite Duke player ever is Steve Wojciechowski. He called me one day congratulating me on my success thus far, and I was like,'I appreciate it, but man, please don't congratulate me. I know when you guys start the season, you're not just trying to be 10-10 or ACC champions, you're trying to win it all.'
+- My focus is to try to appreciate the present moment more and more and more.

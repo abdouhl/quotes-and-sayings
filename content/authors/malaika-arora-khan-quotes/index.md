@@ -1,0 +1,36 @@
++++
+author = "Malaika Arora Khan"
+title = "Malaika Arora Khan Quotes"
+quotes_len = "30"
+description = "the best 30 Malaika Arora Khan Quotes"
++++
+- I got married quite early. And then I had a son. I had a family. And this may be hard to believe, but I am a complete family kinda girl.
+- For me, the spirit of Christmas means being happy and giving freely. It's a tradition for all the kids in the family to help mom decorate the tree. Christmas is all about family, eating, drinking and making merry.
+- As a rule, all relationships go through their ups and downs. It's really about how much you want it.
+- Mom still has a huge, beautifully decorated Christmas tree. The whole family comes together after midnight mass and has the traditional plum cake and wine. We spend the night at mom's home, and in the morning we wake up and open the presents. In the afternoon, we sit down to have a traditional Christmas lunch.
+- I connect with kids easily. They bring out the maternal side in me.
+- Everybody goes through a phase of fatigue, and I am no different. Re-inventing yourself in your profession is the key to deal with fatigue.
+- At the end of the day, TV is my first love. I started off my career from the small screen.
+- I'm one of the lucky few who never had to face the whole 'Oh, you've had a baby, and now work will have to suffer' bit. It just wasn't a big deal when I got married and had a baby.
+- I love the homely atmosphere of Indore and Bhopal. People here are very warm and affectionate.
+- I have always been clear that cinema is not my priority and that my family is.
+- Every year, like a good Catholic, I wait for Christmas. Putting up the lights, decorating the tree, making sweets and then unwrapping gifts on Christmas morning... it's a tradition my family has followed since I was very little.
+- Over the years, I've learnt how to strike a balance between both my lives and give quality time to my passion as well as to my family. Yes, it is tiring at times, and every working woman goes through the phase.
+- Dance and I are synonymous, and nobody can take away dance from my life. Also, I cannot look at dance in an inert way; it's my passion, and I get keen on being part of any show or film that has dance!
+- No matter where I am in the world, I will always be back home for Christmas.
+- I know basic things about belly dancing, but not the technicalities; I want to learn it. I want to learn belly dancing.
+- I have a simple mantra: eat right and work out; you'll never have a weight issue. I never starve or binge.
+- I think glamour is synonymous with me.
+- I am the way I am. If you like me because I'm glamorous, so be it. If you like me, because I speak well or I have a brain and opinion, so be it.
+- Yes, I love the glamour industry. I love the work that I've done so far. But it's not as if I have this biting ambition to be at the top.
+- I'm truly blessed with great genes. I've never done anything drastic in my life, and I can proudly say I haven't tried any of those crazy fad diets, either. I believe in eating right and living healthy. Plus, I love going to the gym, and I enjoy yoga because it streamlines your body.
+- I try and work out as much as I can. When I'm working or travelling, it's tough, but when I'm at home, that time and space is sacred. I do yoga every day.
+- I guess I'm a good manager now. Moreover, I'm loving the concept of donning the producer's hat. It's all very exciting as well as a great learning experience. You're a part of a film right from its conception to its execution, and that's an amazing feeling.
+- Charity is a very personal equation, like we say charity begins at home. It starts with your immediate help in the house: the people who work for you.
+- Even when I was modelling, I never had a mom sitting on my head and a bunch of people waiting on me. I've always been independent. I'll do my thing and go.
+- Everyone says romance goes flying out the window when you've been together for an X amount of time. I think it's all up to you.
+- It's a lot of work to make a marriage work. Just because you have been married for a while doesn't mean you can sit back and relax. You still have to be on your toes. A marriage needs constant attention.
+- Everybody has a role or part to play; if somebody fits the bill, that is what matters.
+- I would say that, of course, it is wrong to objectify women. But at the same time, entertainment should not be inter-mingled with commodification.
+- I would love to learn popping, locking and robotics, gymnastics and acrobatics; it is amazing to learn these things.
+- Acting has never excited me.

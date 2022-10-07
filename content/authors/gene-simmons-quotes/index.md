@@ -1,0 +1,84 @@
++++
+author = "Gene Simmons"
+title = "Gene Simmons Quotes"
+quotes_len = "78"
+description = "the best 78 Gene Simmons Quotes"
++++
+- I fail all of the time. It means nothing.
+- Never negotiate with kids. They don't have life experience, and they don't have repercussions for bad decisions; they still get fed and housed.
+- Never underestimate the power of being popular in pop culture. You have to be able to do something. You can have a good seat at the restaurant, but you still have to pay for the meal. Fame is important, but to be rich is more important.
+- I know that you like to see a man in the kitchen, but I'm skeptical of men who cook. A man should be focusing his attention on the woman, and not what's on the stove.
+- Everybody hates critics.
+- My skin is more beautiful than yours. I would be quite more popular in jail if I so chose.
+- Live and think like a poor man and you'll always be OK.
+- Fiscally, I'm very conservative. I don't believe in welfare states. I believe in giving people jobs.
+- If you're building a house, or doing anything, time is what you've got. Well, there's effort, but you need time. The more time you put into something, the better stuff you can make.
+- I worship scones and danishes. If I never had another meal, I wouldn't care as long as I could eat pastries and jelly doughnuts.
+- I think it's pathetic that women and men treat each other worse than we treat our pets. It's love or hate.
+- I'm fascinated with myself and love hearing the sound of my own voice. I'd like to hear what I have to say. A lot of people don't like being alone because they truly don't like themselves, but I love me.
+- Marriage is an institution, and you must be fully committed to it.
+- The root of all evil isn't money; rather, it's not having enough money.
+- I don't wanna go on vacation. There's nothing about it that appeals to me. People look forward to doing that; I look forward to getting up every day and doing something.
+- I'm from Israel, so America has no limits. I started a record label, and then I started managing other artists, like Liza Minelli.
+- There is nothing that I would do ever to break my mother's heart.
+- No. Better research needed. Fire your research person. No fishnet stockings. Never. Not in this band.
+- I'm in a weird band. We've done very well. The American Dream is alive and well.
+- England is a profoundly bizarre place that has produced thousands of bands the world has worshipped.
+- Sugar-free ice pops are an invention of God. They hardly have any calories since they're mostly water. I eat about 15 pops every two days.
+- The only jobs kids have are to do well in school, to be charming and polite, and be thankful. That's it. I'll house you, protect you, I'll even give my life for you, and in return, you will behave.
+- If you look at the CEOs of some the most successful companies in the world like IKEA, they never fly first class. They always go economy.
+- Everyone in Kiss is replaceable. My ego will tell you that I am not, but that's not so.
+- Television and comic books are, and continue to be, probably the biggest influence in my life. It's the biggest influence on everybody's life.
+- The makeup is simply an extension of the personality and colors, clothing, makeup all express something.
+- I don't sleep all that much, but when I do, it's sound.
+- If someone likes you, they'll buy what you're selling, whether or not they need it.
+- I also learned that I love making money. Anyone who is not afraid of work will be happy with the money they make.
+- I've always been anti-marriage for men until they become mature. As a species we don't mature until we're in our 60s.
+- I'm forbidden fruit. Once you go to certain households, mommy doesn't want you to see that dirty man who sticks his tongue out and spits out blood and all that stuff.
+- I wanted to be in a band that gave bang for the buck. I wanted to be in the band who didn't look like a bunch of guys who, you know, should be in a library studying for their finals.
+- To be in a band on the road is to have anything and everything you want just by picking up the phone.
+- My mother is probably the wisest person I've ever known. She's not schooled, she's not well read. But she has a philosophy of life that makes well-read people seem like morons.
+- When you look at Clark Kent when he's working at the Daily Planet, he's a reporter. He doesn't fly through the air in his glasses and his suit.
+- Kiss is a Fourth of July fireworks show with a backbeat.
+- I'd like to think that the boring lady who's talking to me now is a lot sexier and more interesting than the one who's doing NPR. You know, studious and reserved, and - I bet you're a lot of fun at a party.
+- Don't believe bands who say it's all about the fans and they want to give their music away for free. The result is they will continue to live in their mother's basement.
+- I voted for President Bush, I voted for President Clinton, and, although I do want my vote back, I voted for President Obama.
+- You know why I'm pulling your leg? Because I can't touch it from where I am.
+- I fly economy. I do often fly first class, but I don't travel with a posse, or bodyguard, or an assistant.
+- I would urge all bands that say they only care about credibility and don't care about money to send Gene Simmons every dollar that they don't want. I'd be happy to take it off them.
+- First, when I was 12, I saw a Spanish girl jumping rope. I never saw her face, but it was still the most beautiful sight I'd ever seen.
+- In theater, you're playing characters. You believe you're somebody else, and you're acting.
+- When you are a rock star in front of 20,000 people, you receive instant gratification. A rock star on tour is a king in his domain.
+- I crave ideas, and when an idea hits me, it grips me and it tortures me until I master it.
+- I think I know it all, relatively speaking.
+- James Bond has a license to kill, rockstars have a license to be outrageous. Rock is about grabbing people's attention.
+- The best you can do is set your kids on the right track; staying on it without falling is up to the kids.
+- Before a show, you might have aches or pains, or it's a bad rainy day, or it's too humid. We all complain about stuff. But... how do I put this poetically? Once it's the roar of the crowd and the smell of the greasepaint, forget it. Once the adrenaline kicks in and your chest expands, you forget about all that.
+- When you really think about it, I'm not delusional enough to think that what I do is important to life as we know it on this planet. No. But neither is what you do.
+- Life is too short to have anything but delusional notions about yourself.
+- The biggest financial pitfall in life is divorce. And the biggest reason for divorce is marriage.
+- I refuse to stand up in front of a rabbi and my friends and the woman I love - who I will tell you I can love with all my heart - and promise she will be the only one I will ever have until the day I die. That's a lie.
+- If you're the greatest, it's okay to say you're the greatest. My suggestion to everybody is to be their own greatest fan. Weaker personas and personalities define that as egotistical or arrogant, but what it means is their self-esteem isn't that strong.
+- People who are the salt of the earth get up and go to a job that they hate.
+- Music is feeling. You can try to verbalize it. It really just hits you or it doesn't.
+- Rock is about finding who you are. You don't necessarily have to play your instrument very well at all. You can just barely get by and you can be in a rock band.
+- It's in the history books, the Holocaust. It's just a phrase. And the truth is it happened yesterday. It happened to my mother. I never met my grandmothers or my grandfathers. They were all wiped up in the gas chambers of Nazi Germany.
+- I work for everything I've got. I started off as a very poor kid. I want to get paid.
+- I like to approach every day like it's the only day I will ever have.
+- I have to have an emotional connection to what I am ultimately selling because it is emotion, whether you are selling religion, politics, even a breath mint.
+- I was never interested in being a rock star. I always wanted to be Boris Karloff.
+- My mother had a horrific life. At fourteen, she was in the Nazi concentration camps. Her sense about life now is, every day above ground is a good day.
+- Well, I'm like most Americans, we don't vote by party, we both by the person because a person is bigger than the party, which is why sometimes the Democrats get in and sometimes the Republicans get in.
+- The Beatles weren't like any other band. Everybody in the band sang, which is why you knew everybody in the band.
+- If you win a race, you don't ask how you did it, as long as you do it.
+- When you walk through a bad neighborhood, you don't want a poodle by your side. You want a Rottweiler.
+- If you think about it, critics are an unnecessary life-form on the planet Earth, and here's why: because it's a job without credentials. You don't have to go to school.
+- Nobody does just one thing. But the real difference between being an entrepreneur and everyone else in the world is the ability to monetize. I am an entrepreneur in the classic mold.
+- I want to do everything. I want to be the president, I want to learn Tae Kwan Do, I want to climb mountains. I'm always bugged by the notion that I can't do everything.
+- I do often fly first class, but I don't travel with a posse, or bodyguard, or an assistant.
+- I am an entrepreneur in the classic mold. No matter what I do - outside of sticking my tongue out - I tend to make money, and quite a bit in non-KISS stuff.
+- The sad thing is most people have to check with someone before they do the things that make them happy. We're all passing through; the least we can do is be happy, and the only way to do that is by being selfish.
+- Personally I support 14,000 kids in Zambia - I feed and clothe them - but I don't hold press conferences about it. I don't do it so you'll think what a nice person I am; it's private.
+- You can't go through life and leave things the way they are. We can all make a difference, and if I die today, I know I made a difference.
+- Kiss is not a charity. Never, ever mix commerce and charity.
+- I don't wait for the calendar to figure out when I should live life.

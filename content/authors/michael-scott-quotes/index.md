@@ -1,0 +1,15 @@
++++
+author = "Michael Scott"
+title = "Michael Scott Quotes"
+quotes_len = "9"
+description = "the best 9 Michael Scott Quotes"
++++
+- I am going to marry Fantasia. She just doesn't know it yet.
+- Here, you can walk into a bookstore and pick up a Bible or Christian literature and learn. Over there, they are lucky if they have one Bible for a whole village.
+- When they were in Papua New Guinea, God just totally grabbed a hold of Will's heart and totally changed him. And within three months he was saved and he's never looked back since.
+- Our covering ministry is Challenge for Christ ministries, and Travel the Road was solely our mission arm, designed to expose people to what missions are, then connect them with agencies that send people out.
+- People are dying who haven't had that opportunity to say yes to the Lord.
+- What the guys have learned is that whether you're preaching to one or 10,000, it really doesn't matter. That one person you touch may change the nation - could be the Billy Graham of Ethiopia.
+- People get caught up in asking whether Americans should be going here or there. What it boils down to is the call of the Lord. If the Lord has called you to a specific area, that's where you are going to see the fruit.
+- Typically, in the cities there can be resistance to the gospel or just to Americans, or anybody that's Western. When you get back into the villages, the people are very welcoming. Then when you get into Muslim areas, it definitely gets a little more difficult.
+- We set out to capture what was happening, and then we cut that into the series.

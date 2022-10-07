@@ -1,0 +1,35 @@
++++
+author = "Sam Palladio"
+title = "Sam Palladio Quotes"
+quotes_len = "29"
+description = "the best 29 Sam Palladio Quotes"
++++
+- If you break up with a girlfriend or a boyfriend, you're in this vulnerable state where you're still kind of half in the relationship with them, but you're single, and it takes a while to feel solid in yourself again.
+- As a musician myself, it annoys the hell out of me to watch an actor trying to play a guitar out of time with the music.
+- In real life, if you really enjoy somebody's company, and you have a great time with them, and then you're supposed to - becoming two lovers who are having a great time in their own fictional world, I think it bleeds into reality and vice versa.
+- The entertainment industry, in particular, is all about communication and being aware of what's going on, which can take over an actor's life.
+- I'm 6'2 - but 6'3 with a little heel on, like the cowboy boots.
+- I feel people can relate to the struggling artist a little more sometimes than the big million-dollar country stars.
+- I love working with Chris Carmack - he's a really, really good friend of mine.
+- For me, I guess music has always been the through-line. You know, I played guitar from a really young age, and my dad played, and my cousin gave me a drum kit when I was 13, and I played bass guitar, so, you know, it was definitely always in the house.
+- I think great art comes from being open and creative with somebody, and of course, if feelings start getting involved in that, it can either make things fantastic or really messy.
+- My dad is a sculptor and a painter, and mum runs an art gallery, which sells beautiful jewelry and ceramics and paintings - local and international.
+- I could easily make Nashville a permanent home.
+- I've always tried to stray towards characters who are way more faceted than your standard leading man role, and I've been fortunate to play some parts who have this awkward tension to them.
+- My dad played guitar, and so there were always guitars kicking around the house that I was never allowed to touch. My cousin gave me a twin-neck electric guitar for one of my birthdays. It was amazing. Even though it was mine, I was never allowed to pick it up.
+- I hear stories of kids trying to swipe left or right on books - we have to rein that back a bit and not become drones ourselves. The more we embrace it, the more machine-like we risk becoming.
+- The Hollywood actor business can be a little shallow and can be a little more of a facade, and Nashville and the South, people are genuine and real, so if I can be based out there and go off to Hollywood to do a film or do another TV show and then fly back to Nashville, I'd be set.
+- I love goofing off and being awkward. I have always enjoyed improv.
+- There's nothing better than live music, I think.
+- Cornwall has lots of folk and Celtic music and has that kind of surfer vibe as well. That was my kind of upbringing.
+- My grandpa has always been the tech-savvy one of the family.
+- I trained as a classical actor in London for three years. We did Tennessee Williams and dialect and accent classes; they were one of my favorite things to do each week. And we'd strip it down to the phonetics and listen to the sound. It was a really interesting way to look at it all.
+- I like to sit and listen to conversations here in Nashville. Not in a weird, stalker-ish way. I wander around Tennessee and find myself in little bars just zoning in.
+- What I'm trying to do is tell good stories through music. I think some of the best songs, the best country songs, are stories.
+- I am a self-taught guitarist. I just try to piece together passages that have some melodic value!
+- My family runs a little art gallery back in Cornwall, so flashy cars and things like that have never really been particularly interesting to me.
+- I grew up in the Southwest of the U.K., on the coast in Cornwall. I used to keep a marine fish tank outside the house, where we would go down to the tide pools and catch fish and crabs. I think I caught a cuttlefish once.
+- I'd love to do a collaboration with an Ellie Goulding or a female English artist - Laura Marling or something. Somebody cool that I could have a good vibe with and maybe sing a duet with.
+- You do get used to the ups and downs, the rejection of auditions and not getting parts, and so when you do get a job, it feels really special, and you try to hold onto it for as long as you can.
+- My taste is very '70s, like Garfunkel and James Taylor, so not too far from country, but not really the mainstream country that's on the radio.
+- My love of music has been ever-growing, and to live in Music City - I don't want to live anywhere else.

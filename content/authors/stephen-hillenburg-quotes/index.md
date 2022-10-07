@@ -1,0 +1,72 @@
++++
+author = "Stephen Hillenburg"
+title = "Stephen Hillenburg Quotes"
+quotes_len = "66"
+description = "the best 66 Stephen Hillenburg Quotes"
++++
+- SpongeBob is an innocent, and people respond to an innocent. I don't think it matters if you're young or old.
+- Obviously, we're never going to say what the Krabby Patty secret formula is.
+- You don't want to work on a job where you're looking at your watch.
+- It's always great to hear adults say they can stand to watch our show.
+- SpongeBob is a complete innocent - not an idiot. SpongeBob never fully realizes how stupid Patrick is. They're whipping themselves up into situations - that's always where the humor comes from.
+- Generally, we try not to write down to kids. We really just try to write a visual, character-driven cartoon that has a lot of slapstick and really appeals to us. I guess we are just lucky that other adults find that amusing, too.
+- I wanted to do a show about a character that was an innocent, and so I focused on a sea sponge because it's a funny animal, a strange one.
+- SpongeBob represents idiocy. He is dumb. Patrick is dumb. Mr. Krabs is greedy. Squidward is a snob and vain.
+- I see SpongeBob on ice-cream trucks a lot, and I've got bootleg SpongeBob merchandise from Mexico.
+- In the '70s, as a kid, someone took me to a Tournee of Animation festival at the L.A. County Museum of Art.
+- I do think that the attitude of the show is about tolerance. Everybody is different, and the show embraces that. The character SpongeBob is an oddball. He's kind of weird, but he's kind of special.
+- I think it's amusing to watch a naive, well-meaning character kind of undo more cynical characters - kind of like watching Laurel and Hardy or Charlie Chaplin.
+- I'm hoping that fans will enjoy finally having a 'SpongeBob' comic book from me. All the stories will be original and always true to the humor, characters, and universe of the 'SpongeBob SquarePants' series.
+- I studied natural resources planning and thought I could get a job at some marine park. But I was great at art and so-so at marine biology. It's funny how the two eventually came together.
+- I never really imagined a show about a sponge going past our first season. I thought maybe we'd have a cult following, and we'd be gone after one season.
+- SpongeBob is a kid living an adult life. He has a job. Kids think being a fry cook is a great job.
+- I always pushed back on doing long-form. I imagined SpongeBob as being simple, and I wanted to concentrate on character humor.
+- I was always interested in the ocean and also in art. I had to figure out how to put the two together, but painting fish sounded boring.
+- One night, I was really beat; we worked really late and went to get food at some takeout place. And I leaned over against this gumball machine, just exhausted, and there was a SpongeBob looking back at me. And it's just, like, 'Oh, brother.'
+- I never imagined that I'd end up in animation, but marine biology and art collided, and here we are!
+- I was into Jacques Cousteau as a kid and started scuba-diving around 14, which blew my mind. It was all colour, another world.
+- A lot of things came out of my interest in marine biology, like the fact that there are scallops that fly in the air, and in SpongeBob's world, scallops swim the same way in the ocean.
+- Twentysomethings thank me for their childhood... SpongeBob lives at the bottom of the sea, but he brings a lot of great stuff to the surface.
+- When I pitched the show, I made this special seashell. You could pick it up and hear me singing, 'Spongeboy, Spongeboy!' I also made an aquarium with Patrick planted on the side, SpongeBob sitting on a barrel, and Squidward inside. I wore a Hawaiian shirt. I don't know what they thought of it.
+- You have to imagine you write a show about a sponge and you think that maybe a few people will think it is funny, some college students, but it takes off. It is truly shocking - to the point where it is bizarre.
+- I am an ocean lover and fish watcher and had studied marine biology and even taught marine sciences before I got into animation.
+- I pitched the idea that SpongeBob and Patrick learn a swearword. Everyone said no. I couldn't even use a bleep. So I used a dolphin sound instead.
+- I was planning on being a starving artist.
+- A natural sponge is not as funny. A square sponge also fit that squeaky-clean idea I was going for.
+- I drew these natural sponges for a while and gave them googly eyes, and it didn't come together until I drew a sink sponge one day. I thought, 'This is the guy.' He's the square peg, literally, in this world of animals.
+- SpongeBob is just made of cellulose, but he has parents who are natural sponges - he got the square gene.
+- I eventually thought of SpongeBob, but he needed a last name - SquarePants came to mind.
+- I think the source of SpongeBob's humour is classic, and that's always appealing.
+- To be honest, there is a special gift for doing voice-overs, and the people who did the voices in the 'SpongeBob' cast are excellent at cartoon voice-overs, and they bring something extra to the reads.
+- We're always aiming for storytelling that feels a bit surreal.
+- It's not like the computer magically does it for you. Animation just takes forever.
+- I just kind of figured that the marine biology would be a career, and the art would be something I did for my own self-expression.
+- I thought, well, what about a show that stars undersea creatures, and some of the ones you rarely see animated. So, from there, I just started drawing different animals in a kind of a setting that was this nautical world. It's not realistic but sort of a fantastic environment.
+- I wanted to create a small town underwater where the characters were more like us than like fish. They have fire. They take walks. They drive. They have pets and holidays.
+- The characters are likable. Even the villainous Plankton - he's still flawed, and you still root for him, in a way, and the style of humor is simple, and it's about human behavior, and everybody can identify with that.
+- The essence of the show is that SpongeBob is an innocent in a world of jaded characters. The rest is absurd packaging.
+- Our characters act silly, even totally ridiculous at times, and most of our jokes don't come out of pop cultural references. It seems like we're aiming at a child audience, but everyone can laugh at the basic human traits that are funny. It's playful, the humor is playful, the world is playful. You can kind of let go.
+- In the show, the whole point of the fast food - the fact that SpongeBob loves being part of the fast-food chain and that being a manager is his ultimate dream - it's ironic. It's something that most people don't think is a great thing to try to achieve.
+- I studied marine biology, even taught marine science before I got into animation, so I had an interest in that field and those animals.
+- We wanted the humor to come from the characters and their world - you go down there to escape the world up here for a while. So when the crew would write jokes that would refer to American TV or culture, I'd just eliminate them because it just seemed odd that SpongeBob would know about it.
+- On TV, it is more efficient to use voice-over people because it is really hard to get celebrity voices to recur in a series.
+- For me personally, snorkeling in a cove in Hawaii, floating along, and looking at all the animals and the colors - I mean, that's pretty peaceful.
+- The morality we all grew up with and are accustomed to is what feels right.
+- I was thinking about what would it be, what would the characters be like, and it just suddenly dawned on me that, hey, nobody is doing an underseas show. So I started drawing these weird invertebrate animals, various characters like crawfish and starfish and squids and sponge.
+- Anyone who knows me knows that I will continue to work on 'SpongeBob SquarePants' and my other passions for as long as I am able.
+- To do a 75-minute movie about SpongeBob wanting to make some jellyfish jelly would be a mistake, I think.
+- I wanted people to hear directly from me that I have been diagnosed with ALS.
+- The main thing about SpongeBob is that he celebrates innocence. His outlook on life is very optimistic and earnest, and I think kids relate to that. He has a creative spark in the same way children are very creative from an open and naive perspective.
+- Laurel and Hardy are among my strongest influences, and I think they're perfect examples of two naive, kid-like characters that are still funny today. In fact, they're a lot like SpongeBob and Patrick, walking around in their own little world and causing a fine mess.
+- I've always been interested in art and making things, but I chose not to go to art school because I thought I needed to do something else. Art was a tough way to make a living.
+- For some reason, not many women go into cartooning.
+- Most sponges in the ocean are sedentary: They attach themselves to a rock and sit and filter-feed the rest of their lives and reproduce, and that's about it. Not that they are not interesting, but they are not that kinetic. They are not mobile. They don't cook Krabbie Patties!
+- I knew I wanted to create a character who was nerdy and kind of square, so when I drew a square sponge, everything came together. And originally his name was SpongeBoy, but there we couldn't use that for trademark reasons.
+- A sponge is a funny animal to center a show on. At first, I drew a few natural sponges - amorphous shapes, blobs - which was the correct thing to do biologically as a marine science teacher. Then I drew a square sponge, and it looked so funny.
+- I don't want to be the Pied Piper of fast food.
+- When SpongeBob's perseverance shines through, and you root for him - that's when the show is working.
+- 'The Simpsons' is a tough act to follow, so I thought it was best not to do what they do.
+- I was just looking at a packet that had SpongeBob thong underwear, so it goes farther than I would imagine.
+- In the spring of 1996, I was working for Nickelodeon on a show called 'Rocko's Modern Life,' and I was interested at the time in doing a show about the ocean, an undersea show.
+- When you set out to do a show about a sponge, you can't anticipate this kind of craze. We just try to make ourselves laugh, then ask ourselves if it's appropriate for children.
+- Everybody's got some fascination with undersea life, don't you think?

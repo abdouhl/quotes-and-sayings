@@ -1,0 +1,62 @@
++++
+author = "Morten Harket"
+title = "Morten Harket Quotes"
+quotes_len = "56"
+description = "the best 56 Morten Harket Quotes"
++++
+- We've never been very good at servicing fans. I'm here to concentrate on music, not to be a pen pal to people who write to me.
+- The pin-up thing took us completely by surprise. I found it hard because I got singled out, and I didn't like it. There was a lot of disillusionment.
+- I grew up in a small mountain town in Norway, and I remember miming to the Beatles on the couch when I was about six, singing into a broomstick, but this was a country that only had one radio station. There was no music around, really.
+- People have a wild response to something, and they want it. Sometimes people lose themselves.
+- The hardest thing to have is success, because it seems to tell people what you are. But it doesn't.
+- We knew we would make it and become very big.
+- I am naturally prone to fun or to be funny, but when I talk about myself in interviews, then it's an intellectual exercise.
+- I don't abuse my body - I don't drink much alcohol, don't smoke and never have - but that's the same of many people. I don't think I've ever stopped ageing myself.
+- If I didn't travel so much, maybe my perfect Sunday would be skin diving on a coral reef - not scuba diving, as skin diving is more physical, and I prefer the lightness of it. Skin diving means wearing just goggles. Oh, I could wear some trunks, maybe.
+- My brother was an avid Stoke City fan and a good footballer. We shared a room, growing up, and the walls were covered with 1970s Stoke players, like Peter Shilton, Gordon Banks, and Jimmy Greenhoff.
+- We got sick of interviews and performances - for a long time, it came back to doing 'Take on Me.' It became a circus number instead of music.
+- I didn't feel like I fitted in. I felt like I was a hindrance to A-ha.
+- I feel very strong about 'Brother.' This is me. I've been writing with a much more free sky, open and free.
+- We had a large spell in 1985-86, but we would have had to move to the States and be available all the time, so we chose to remain a European act.
+- The video was of paramount importance, because 'Take on Me' was not an instant hit.
+- For a lot of fans from the early days, they probably had issues they were A-ha fans, because it probably wasn't 'cool.'
+- I never liked the term 'fans.'
+- You have to remember, videos were on the rise back when we did 'Take On Me.'
+- If you respond to pop music as an older person, then it's your game. But this business has a tremendously visual focus.
+- A-ha is not me, Paul, or Magne: it is its own individual that has its own identity and characteristics. It is a result of a particular meeting point between the three of us.
+- When you're at war with yourself, you will go under.
+- You can love someone and not like them.
+- I had always wanted to make music on a big scale but never knew how it was going happen - until I saw a band in Oslo called Bridges. I was stunned. They had everything. The only thing they didn't have was me. I knew I needed to join, not for my own sake but for the band's. I knew I was a necessary ingredient.
+- I'm attracted to people who are older rather than younger, and all ages have their potential and limitations.
+- Since I travel so much, my perfect Sunday would start by waking up at home with my partner Inez. We'd have breakfast with our little girl Karmen, maybe in our garden.
+- We became such darlings of a certain type of media. We became a package; we became easy to sell: these three golden nuggets that could pour out all the goods. It was all exposure in an almost violent way.
+- We wanted the freedom to be playful, to experiment and do what we felt like doing, but we were heavily affected by the success that the first record gave us.
+- When we were kids, Stoke was massive in Norway.
+- We wanted to come to London because it's the hardest place to make it.
+- I'd known since I was 17 that I was going to be a star. It was a strange feeling but a very real one.
+- We ceased to be a band the moment we made it. It left us with nothing. We felt like a failure although we had commercial success.
+- We were totally confident that we would make it internationally. We had no money or instruments. We used cake tins or bottles with water in them - anything to make sounds.
+- One of the good things about being away is to digest things and maybe learn from things and see if there are better ways to get to where you want to be.
+- I do love beauty. I love beautiful tilings. I grow orchids and collect butterflies. But when it comes to relationships, you have to find the person inside.
+- I'm not an entertainer; I'm an engager. I never sell myself, in a sense.
+- What you look like doesn't matter as much as what you feel like. If you feel you look good, you look good. And I never felt that.
+- Just to be spontaneous and free is life's biggest luxury and privilege when life is so busy.
+- We didn't feel we fitted into the '80s.
+- We were never a boy band. We always had much more to offer than that, I thought.
+- I can choose to be a serious musician, but the sex symbol part is not up to me.
+- I do respond to the ideas behind the Eurovision and 'The X Factor,' but they're both so limiting and very, very shallow.
+- Although I would like to describe the perfect day, I can't. Because a perfect day is one where there is no plan.
+- The record company didn't know what we looked like at first. They were all excited about our tapes.
+- I actually do sing sometimes.
+- People think the chorus is the hard part in 'Take on Me,' but they're wrong. The hard part was making the verses bounce.
+- We sent a guy called Terry Slater a couple of demos, using the last of our money. And then things turned. He landed us a deal with Warners and said just keep coming up with songs, because when success hits you, you won't even know your name.
+- I love just being in the sphere of nothingness looking inwards.
+- My younger brother was a big Stoke fan, and I was sucked into it. I was kind of waking up every morning and looking at Gordon Banks' face! We had all these small football cards - literally hundreds of them - and swapping them was the currency back then.
+- We had to leave Norway and go where it was all happening, which was London. We loved it there, but it was hard. We had no money - we were literally starving. It started to get ugly.
+- Mind you, the limelight exists anywhere in the world. When you're not in the U.K., it can be as active somewhere else in the world, and for me, that's more or less been the case, so I never dropped out of the limelight in that sense.
+- We make music that we believe in. That's all it is.
+- Fun is only possible if you have a mindset that allows it.
+- I've never been uncomfortable being a frontman.
+- It's great to play live. I love it and appreciate it more than I did in the early days. It's a central part of being in A-ha.
+- Anything can be interesting as long as you access it from the right angle.
+- If looks help, that's great, but we don't want it to be the featured thing. It's totally superficial.

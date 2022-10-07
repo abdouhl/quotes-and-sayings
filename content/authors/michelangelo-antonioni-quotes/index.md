@@ -1,0 +1,24 @@
++++
+author = "Michelangelo Antonioni"
+title = "Michelangelo Antonioni Quotes"
+quotes_len = "18"
+description = "the best 18 Michelangelo Antonioni Quotes"
++++
+- All the characters in my films are fighting these problems, needing freedom, trying to find a way to cut themselves loose, but failing to rid themselves of conscience, a sense of sin, the whole bag of tricks.
+- Scientific man is already on the moon, and yet we are still living with the moral concepts of Homer.
+- Normally, however, I try to avoid repetitions of any shot.
+- I mean simply to say that I want my characters to suggest the background in themselves, even when it is not visible. I want them to be so powerfully realized that we cannot imagine them apart from their physical and social context even when we see them in empty space.
+- Hollywood is like being nowhere and talking to nobody about nothing.
+- I don't want what I am saying to sound like a prophecy or anything like an analysis of modern society... these are only feelings I have, and I am the least speculative man on earth.
+- When man becomes reconciled to nature, when space becomes his true background, these words and concepts will have lost their meaning, and we will no longer have to use them.
+- But, you know, Cronaca isn't more innovative than what comes after.
+- A scene has to have a rhythm of its own, a structure of its own.
+- You know what I would like to do: make a film with actors standing in empty space so that the spectator would have to imagine the background of the characters.
+- I began taking liberties a long time ago; now it is standard practice for most directors to ignore the rules.
+- In Blow-up I used my head instinctively!
+- I meant exactly what I said: that we are saddled with a culture that hasn't advanced as far as science.
+- Till now I have never shot a scene without taking account of what stands behind the actors because the relationship between people and their surroundings is of prime importance.
+- We live in a society that compels us to go on using these concepts, and we no longer know what they mean.
+- When a scene is being shot, it is very difficult to know what one wants it to say, and even if one does know, there is always a difference between what one has in mind and the result on film.
+- I am neither a sociologist nor a politician. All I can do is imagine for myself what the future will be like.
+- When I am shooting a film I never think of how I want to shoot something; I simply shoot it.

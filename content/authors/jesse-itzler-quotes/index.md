@@ -1,0 +1,76 @@
++++
+author = "Jesse Itzler"
+title = "Jesse Itzler Quotes"
+quotes_len = "70"
+description = "the best 70 Jesse Itzler Quotes"
++++
+- So many of us live our lives on autopilot. We wake up, go to work, have dinner, go to sleep... repeat.
+- I ran a 100-mile marathon, and I was powered by coconut water.
+- The concept of getting out of my routine, mixing it up, and pushing myself to live the grittiest life is something I try to incorporate every day.
+- You have to learn to get comfortable being uncomfortable. You have to be willing to get out of your comfort zone and push your limits.
+- I used to delay doing stuff that I just didn't want to deal with - things like putting the garden hose away properly or doing the dishes right after dinner. Now I have this little voice in my head that says, 'I know you don't want to do this, but just do it anyway.' In other words, there's far less stuff that I put off until tomorrow.
+- You know what I learned? Everything has a price.
+- My life is ready, fire, aim, and it is one of adventure.
+- I'm creature of habit.
+- I want to live with a monk... and the Rolling Stones.
+- I love diving into the unknown. That's been my M.O. ever since I was a kid.
+- One thing I thought of, I call it By Sea, By Land, By Foot. It'd be a 100-mile paddle, a 100-mile run, and a 100-mile bike, back-to-back-to-back. But I don't want to end up in the hospital.
+- Failure has never been a signal for me to quit; it's always been a sign for me to go down another path.
+- The answer is that I do want to climb Everest, but I don't want to go to Everest. I don't want to be cold. I can't take the time. It's just not practical.
+- I guess you could say I'm a little crazy.
+- I like the concept of 'have your cake and eat it, too.'
+- I've run 350 days a year for 20-plus years, and never once have I listened to music. It's a time for me to think, listen to natural sounds, be outside.
+- If you make your bed every morning, you will have accomplished the first task of the day. It will give you a small sense of pride, and it will encourage you to do another task and another and another. By the end of the day, that one task completed will have turned into many tasks completed.
+- Routines can be a rut.
+- No experience is necessary to push yourself past what you think you can do.
+- I don't remember anything from college.
+- P Street in D.C. is one of the worst areas in the city. Some of the things I saw, the things I experienced, the things we came through, really gave me a whole new perspective on life.
+- In the late 1990s, I was a guest on a private plane. By the time my partners and I got off the flight, we knew we had to figure out how to fly privately more often.
+- I realized that so much of our precious time is taken up by obligations that we don't even really need.
+- I continue to look for opportunities to learn on a daily basis. I try not to settle into a routine, and I attempt things that challenge me.
+- If I had done 'Go, New York, Go' for the Spurs, it might not have worked. It really taught me a lot about demographics and tastes and styles. I never went to business school, so that whole experience was my crash course in marketing, contracts, negotiations, and product launches.
+- When we first started Marquis Jet back in 2001, one of our first goals was to try to break into the Hollywood marketplace. We thought it was a good way to help build brand credibility and attract new customers by word of mouth.
+- To me, the thing is, through good or bad, if you're a Knicks fan, you're down with the Knicks, and that's the bottom line.
+- Before I left for American University, my mother told me to sign up for everything I could: to take advantage of everything from on-campus lectures to sports and social events to the amazing D.C. culture.
+- I am a big believer in PR.
+- I'm an extremist. If I go to a sneaker store, I buy 20 pairs of sneakers, not one.
+- I got a lot of great life lessons from the entertainment industry. The first was being able to feel comfortable taking risks.
+- When your brain tells you are done, you are only 40% done.
+- Anytime you take someone's money, that puts enormous pressure. But I think if you want the most reward, you have to take the most risk.
+- When I graduated college, I remember all I really wanted was to make enough money to have a swimming pool, because I love to swim, to grow my own fruit. I wanted to have a little plot where I could grow my own oranges and make enough money where I could to take two weeks off a year. I figured if I had that, it was game over.
+- I was a kiddie pool attendant, and I was a white rapper. That's not going to get you a job on Wall Street.
+- I've found that eliminating not-so-important choices really frees up my mental capacity to think about the important ones.
+- I was networking every day from 21 to 28 years old. I sent 10 letters a day, which means I reached out to 3,000 people in a year.
+- Do everyday things in a new way to get the brain thinking in new ways.
+- I take a freezing cold shower to start every day, and when I can't take it any more, I count 20 Mississippi's. Then I literally walk out of the shower and say, 'Let's go.'
+- At a young age, I realized that getting letters is exciting.
+- Time is the most precious resource there is - you have to protect it.
+- I've run the U.S.A. Ultra Championships.
+- You can learn a lot when you're around people that are completely different than yourself.
+- If you haven't done something yet, and you want to do it, start now!
+- It is so cool to live with inspiration.
+- As an entrepreneur, you are constantly playing in uncharted territory, and sometimes things don't work out. That doesn't mean you failed; it just means you may be off course.
+- When I was 24, I realized I could never be one of the best rappers, but I knew I had some of the best ideas.
+- We don't aim high enough with our goals. We all have more in us, and we are all capable of aiming higher.
+- Any time I meet someone or learn about someone that's really interesting or inspiring to me or has a story that really resonates with me, I just cold call them, and I try to meet him or her.
+- It's better to set a big goal to try and then fail than to never set a goal in the first place.
+- I'll be the first to admit that I'm not a good flier.
+- Running is my meditation.
+- I don't look at anything in my life as achievements. I look at them as experiences.
+- If I'm ordering power bars online, I'll order 480. Everything is times-10 in my life.
+- I do a workout every morning in which I purposefully try to make myself uncomfortable. It sets me up for the rest of the day by reminding me that I can choose to be OK in the midst of tough challenges.
+- Running has become so therapeutic for me because I block out all thoughts or get really crystal clear business ideas.
+- Later on in my life, it became a big theme: just being okay and comfortable to take the risk and to have really thick skin and realize not everybody is going to love your product. Get over it, and if you believe in it, keep going forward.
+- If you can't do the little things right, you will never do the big things right.
+- A lot people who hear that 'Go New York Go' assume that I must be black.
+- It's easy to let yourself down - it's tough to let other people down.
+- Everyone likes to go to weddings.
+- I'm not crazy in my head. Maybe in everybody else's.
+- I have always lived my life outside of the box. I find it to be way more fun there.
+- Almost all of my business flights are commercial, not private.
+- Everything ends; you just have to figure out a way to push to the finish line.
+- I'm a New Yorker, man. I'm a Knicks fan.
+- The best gift you can give yourself is getting over the fear of embarrassment because then you're completely free to try anything.
+- In a bar, you never know what to expect. A place could be packed, but there might only be five girls there.
+- I feel like I'd invested so much in the physical side of my life: running marathons - I brought a SEAL into my house - I have a trainer. But I've invested very little on the inner work, and in a world of distractions, I felt like to have the whole picture, I really had to spend a little time alone and work on being present.
+- I have a crazy background in music, both as a performer and writer.

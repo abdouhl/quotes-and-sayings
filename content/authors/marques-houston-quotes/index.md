@@ -1,0 +1,13 @@
++++
+author = "Marques Houston"
+title = "Marques Houston Quotes"
+quotes_len = "7"
+description = "the best 7 Marques Houston Quotes"
++++
+- I started collecting baseball cards and basketball cards when I was younger. I have a CD collection that turned into a DVD collection, and I have a Jordan shoe collection. And I don't drink, but I have a wine collection. I just started a sweatshirt collection. Every city that I'm in, I buy a sweatshirt. It's just something that I do.
+- I'm nice. I love people. I love kids; I want kids of my own.
+- I didn't grow up on dance class. I was always natural. I've been in the industry since I was eight and I've always had a choreographer since then. But I never really took ballet or anything like that.
+- I was the ladies' man in school. I always had friends; people looked up to me.
+- God has been my number one inspiration. I also look up to Will Smith and Jamie Fox who are also personal friends of mine. They give me great career advice. I would also include Chris Stokes, as a filmmaker and music producer. I've been working with him since I was eight.
+- The closest person in the industry to me who is like a big brother is Tyrese. He gives me a lot of good advice. We both do the same things. We're both from the same background.
+- You know Marques Houston, you know I'm a dancer, I'm a singer, but I wouldn't want to do a movie that I'm a dancer and a singer in. I want to do movies that people can take me more seriously in as an actor, because when you're making that transition, it is tough.

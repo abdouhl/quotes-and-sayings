@@ -1,0 +1,36 @@
++++
+author = "Georg Buchner"
+title = "Georg Buchner Quotes"
+quotes_len = "30"
+description = "the best 30 Georg Buchner Quotes"
++++
+- The strides of humanity are slow, they can only be counted in centuries.
+- The weapon of the Republic is terror, and virtue is its strength.
+- There are only Epicureans, either crude or refined; Christ was the most refined.
+- Love is a peculiar thing.
+- We are always on stage, even when we are stabbed in earnest at the end.
+- One must love humanity in order to reach out into the unique essence of each individual: no one can be too low or too ugly.
+- The life of the wealthy is one long Sunday.
+- Dying people often become childish.
+- Government must be a transparent garment which tightly clings to the people's body.
+- Peace to the shacks! War on the palaces!
+- We have not made the Revolution, the Revolution has made us.
+- I'll know how to die with courage; that is easier than living.
+- The death clock is ticking slowly in our breast, and each drop of blood measures its time, and our life is a lingering fever.
+- The power of the people and the power of reason are one.
+- The world is chaos. Nothingness is the yet-to-be-born god of the world.
+- How many women does one need to sing the scale of love all the way up and down?
+- Revolution is like Saturn, it devours its own children.
+- Raise your eyes and count the small gang of your oppressors who are only strong through the blood they suck from you and through your arms which you lend them unwillingly.
+- The breath of an aristocrat is the death rattle of freedom.
+- Your words smell of corpses.
+- You women could make someone fall in love even with a lie.
+- That is a long word: forever!
+- Whoever finishes a revolution only halfway, digs his own grave.
+- The revolutionary government is the despotism of liberty against tyranny.
+- The stars are scattered all over the sky like shimmering tears, there must be great pain in the eye from which they trickled.
+- They say in the grave there is peace, and peace and the grave are one and the same.
+- A good man with a good conscience doesn't walk so fast.
+- Death is the most blessed dream.
+- We are only puppets, our strings are being pulled by unknown forces.
+- The statue of Freedom has not been cast yet, the furnace is hot, we can all still burn our fingers.

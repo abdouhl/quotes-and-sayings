@@ -1,0 +1,28 @@
++++
+author = "Mark Shand"
+title = "Mark Shand Quotes"
+quotes_len = "22"
+description = "the best 22 Mark Shand Quotes"
++++
+- There is no need for use of torture instruments such as ankush for controlling the elephants. We can do it with the help of verbal commands.
+- I've always found people to be by far the biggest problem-causers in life.
+- People are so difficult. Give me an elephant any day.
+- The combination of a brand like Cartier and the immense heritage that India holds can go places.
+- My flat is a bit like an oriental bazaar. It's filled with the oddest objects from all my travels, and you can't really move in it. I love collecting antiques and often spend weekends driving around bric-a-brac markets.
+- The elephant can survive only if forests survive.
+- I was probably spoilt, if I'm being totally honest.
+- In the central Indian state of Orissa, mining has scarred the landscape, and it is already too late to secure most of the traditional elephant corridors.
+- Richard Burton is one of my heroes.
+- Elephant populations in India and also in the whole of Asia are under severe stress. The captive ones are rendered jobless due to changes in the mode of transport and lifestyle of people. The ones in the wild are also no better off, as the forests are shrinking.
+- I'd always thought hurricanes were romantic, with pretty feminine names like Celestine.
+- Surrounded by a burgeoning human population, Asian elephants have to contend with the spread of settlements and farming, and the demands of rapidly developing nations: plantations, mines, railways, and irrigation canals have carved up former wilderness.
+- Elephants love to play around. They are very intelligent animals. They have a strong bond, at times stretching to several decades, with their mahouts.
+- If you cut down the forest, you know what happens: The whole of Asia turns into a desert. Without water, you're talking civil unrest, war, mud slides - the whole bloody lot.
+- If I was a businessman, I could have made a huge amount of money. But none of that really crossed my mind while I was young and traveling.
+- When you look at elephant herds that are nonstressed, the males are never around. They mate, they go; they're loners.
+- If you look back at history, the various Maharajas of the Indian empire actually helped support a whole British industry. The royalty in those days ordered exotic cars in huge numbers.
+- Elephants seek food elsewhere if their route is blocked, and raiding crops and grain stores brings them into conflict with people, often resulting in deaths on both sides.
+- There are 13 Asian countries that still have elephants, and Elephant Family is looking to invest in further projects that will be the most critical for saving elephants while there is still time.
+- You can cut a tree down, and it grows back. Once a species goes, it's gone forever.
+- Save the elephants, and then you save the forest - and then you save yourself.
+- I've known elephants with broken hearts, others with depression.

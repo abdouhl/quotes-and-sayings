@@ -1,0 +1,23 @@
++++
+author = "Maggie Haberman"
+title = "Maggie Haberman Quotes"
+quotes_len = "17"
+description = "the best 17 Maggie Haberman Quotes"
++++
+- I think that Twitter is a useful reporting tool sometimes, but an utterly toxic swamp that nonetheless I engage in more than I probably should.
+- Usually I go to bed around midnight and wake up around 6, unless I have to do TV, in which case I get up at 5. I grab my phone, check my email, check Twitter. I have push alerts for the president and some other reporters.
+- I met people through Twitter whom I wouldn't have otherwise. Readers sent me story tips over direct message. Many pointed out errors, but most did it respectfully, and I was appreciative.
+- If you listen to Donald Trump speak on almost any given issue, you will hear him take both sides of that issue - in the same sentence, sometimes. It's very, very hard to pin him down in any specific way.
+- I mean, Trump's Oval Office is like Grand Central Station. People try briefing him and someone comes in and interrupts him. People just sort of walk in without being previously announced in any meaningful way.
+- I wasn't always a Twitter devotee. During the 2012 campaign, the first during which Twitter was widely used by journalists and campaign aides, I became something of a scold to younger reporters who I thought misused the medium.
+- Twitter has stopped being a place where I could learn things I didn't know, glean information that was free from errors about a breaking news story or engage in a discussion and be reasonably confident that people's criticisms were in good faith.
+- I have gotten anti-Semitic mail pieces to my home that I have had to try to keep out of my children's eyes. I've gotten a lot. But whatever - this is what happens in the Internet age.
+- Twitter is now an anger video game for many users. It is the only platform on which people feel free to say things they'd never say to someone's face.
+- I have a running conversation with a couple of colleagues. Mike Schmidt's one of them; some on my White House team are others; Alex Burns on the politics team is another. That just helps me not lose my place, right? We're just constantly talking about what we're hearing and where things are.
+- I have listened to tapes of myself interviewing people and mostly I try to be better at directing the conversation.
+- I never wanted to be a reporter. I took a job at the New York Post as a clerk because I couldn't get a job in magazines, which is what I really wanted to do.
+- When somebody is describing their job as fixing problems for someone, that usually does not suggest that they're dealing with their tax returns.
+- I use my computer to take notes more and more because my handwriting is so bad. I'm a lefty and it's getting worse and worse.
+- I don't have an editor on Twitter. I have an editor in the paper, and so I tend to be less precise in 140 characters and sometimes I leave people confused as to my meaning. And then I make the mistake of engaging and trying to explain it, which just leads you down a rabbit hole.
+- I don't want to get into specifics of how I communicate with people, but I will say that people are concerned about being monitored.
+- I was a bartender for four years, and that was the best training that I had for learning how to approach people.

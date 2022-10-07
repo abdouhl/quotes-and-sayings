@@ -1,0 +1,105 @@
++++
+author = "Giannis Antetokounmpo"
+title = "Giannis Antetokounmpo Quotes"
+quotes_len = "99"
+description = "the best 99 Giannis Antetokounmpo Quotes"
++++
+- I love Milwaukee! I'm going to be in Milwaukee 20 years! I'll be here so long, they'll be sick of me!
+- A lot of people know who I am now. They want a little bit of me, a little bit of my time. But at the end of the day, I still have to remember who I am.
+- Losing someone you love is tough.
+- Sometimes I'm wide open, I've just got to shoot it.
+- To be one of the best to ever play the game? I think I have the ability to do that. But I've got to work hard. If I just keep talking and don't put some work in, it's not going to happen.
+- When I was young and I could dream a bit, I could see myself participating in the slam dunk contest. I've always wanted to experience that.
+- It's such a long season, and there's so many games, so many trips, you've got to build habits and be consistent with what you do.
+- I just stay home all the time. But the things I have learned outside of basketball is you got to take care of your body.
+- You can never come back fresher after the all-star break. I always try to do what I do, try to take care of my body, get some weights in, feel a little bit stronger and ready to push through 25 games.
+- I see myself as a student. Trying to learn everything.
+- If I can't score, I do whatever I can to support my teammates.
+- We loved our dad. My mom loved her husband. But at the end of the day, I think, he did what he was supposed to do in this world. He had five kids and raised us right. That's the most important thing.
+- My goal is to win in Milwaukee, bring a championship in the city, and make the team a lot better. So I would never leave for L.A.
+- It's my nature to be fearless.
+- I want to be an all-around basketball player.
+- I think my rookie, I was just having fun. I was 18, and I was living the American dream.
+- I just try to stay grounded.
+- Whatever I try to do, I always try to give it my best and try to be a killer because, at the end of the day, if you don't work hard, you are not going to get food on your table.
+- I watched a lot of Scottie Pippen, Magic Johnson, Kevin Durant, and a lot of Paul Pierce. I used to watch Tracy McGrady as well along with Kevin Garnett.
+- I am honored to be the first international player featured on the cover of 'NBA 2K19.'
+- The things that Dirk has done for this league and for the Dallas Mavericks, it's unbelievable. And Coach Kidd was a teammate of Dirk, so for Jason Kidd to compare me with Dirk Nowitzki, it feels nice. It's a nice compliment.
+- It starts with my family. That drives me every day, just seeing them smiling.
+- I can't take my mind off basketball.
+- I never went to college.
+- My dad was a soccer player. He didn't know anything about basketball - nothing.
+- The first time I played basketball was with my dad and my older brother Thanasis.
+- I usually feel that I prefer to hide from people.
+- I've just got to keep working hard, try to get my team better. That's a goal of mine.
+- I like to score when I can, but if I can't do that, I like to do the other things - defense, blocking, rebounding.
+- Just growing up and going through life and how tough life was for me and my family, I'm always going to stay humble.
+- When you're young, it's hard to lead people that are older than you.
+- You have so many games to play, and you can do well in one game but bad in the other ones. The thing you've got to be is consistent.
+- Leading your family is a lot tougher than basketball.
+- Because my parents were illegal, they couldn't trust anybody. They were always nervous. A neighbor could be like, 'These people are making too much noise, their children are making too much noise,' and the cops could knock at our door and ask for our papers, and that's it. It's that simple. So you're always a little closed.
+- I'm going to do whatever it takes for me and my team to be successful.
+- I cannot take 30 jumpers a game. Got to have a balance. You've got to get your teammates involved.
+- I'm really scared of failing.
+- Just every day try to be a leader, try to get better and to help my team win. I just want to be more vocal, like talk more so my teammates can know I got their back.
+- I can see the love from people in Milwaukee. I can see that the city wants me to be there for a long time.
+- Of course, I know by growing older, I'm going to become stronger, smarter, and know the game better.
+- It's good to know that your coach cares about you.
+- I'm loyal to the people I work with.
+- I think my jump shot could get a lot, lot better. I could become a really big threat out there.
+- Obviously, Kobe is one of the greatest players to ever play the game.
+- I get up in the morning, I take a shower, and I go to practice. When I'm finished, the only thing that's on my mind is to go back home and spend time with my family.
+- I try to come in, try to defend, help on defense, play as hard as possible and do whatever my coach and my teammates tell me and try to listen and get better.
+- There's a lot of big guys who can play-make. We put labels like, 'Oh, he's a point guard, he's a center.' But sometimes your center can play-make for you and not just be the center, boxing out for rebounds and playing in the post.
+- That's the style of basketball I love, playing on the open court.
+- Gregg Popovich is among the greatest coaches ever.
+- I'm a humble kid. I grew up with Filathlitikos. There were some people in Filathlitikos that taught to me how to stay humble. It was coach Tzivas that never allowed me to get carried away. That's who I am.
+- Even if I'll be an All Star or Rookie of The Year, I will always be humble Giannis.
+- Dirk Nowitzki is the best European player, for me, that's ever played the game. He's an unbelievable talent.
+- A lot of players will tell you, 'When I was a kid, I watched Kobe Bryant, Michael Jordan, LeBron, Magic, and I wanted to be just like them.' For me, it wasn't like that at all.
+- Persistent in life? I think, yes, I am. I'm going to do something until I get it right.
+- I know that guys can't guard me one-on-one.
+- I'm gonna have some nights when it's not gonna come. But if you keep playing natural, it's just gonna come. I'm gonna keep getting better, keep getting better, and one day, everything's gonna pay off.
+- I have worked hard to earn recognition in the NBA, and being on the cover of 'NBA 2K19' is a dream come true.
+- I wanted to be a soccer player.
+- It's hard when the season ends and you're not waking up no more for practices, games. You're not in your routine no more.
+- I'm a low-profile guy.
+- I like living in a smaller place, but I like being in big cities, too, like Athens.
+- I like Rice Krispie treats. I like Skittles and Snickers.
+- Before I leave this earth, I'm going to help people have a better future.
+- I hope to play in the NBA for many seasons, establish my position, and win titles.
+- I've got to perfect my game. Keep working.
+- I don't like all these flashy cities like L.A. or Miami. I don't know if I could be the same player if I played in those cities.
+- I want to become one of the best players, so if you want to be one the best, you have to elevate all aspects of your game.
+- I'm serious about it, and I want to spend my money wise. I'm not going to throw away any money.
+- I'm a really competitive guy. I'm a really stubborn guy. That's what makes me want to take Milwaukee to the top, make Milwaukee a big market team. That's a goal I've set for myself. Hopefully, one day I can achieve it.
+- If you are going to do something, you have to do it for yourself, and that's what I try to do. I try to be authentic and try to be original, so that's what I try to be. A lot of people try to build big brands but have received bad advice, and they don't try to be authentic and real with themselves.
+- I am a boring guy, I think.
+- I love how quiet and calm Milwaukee is.
+- You always fight with your brothers.
+- You can just never forget where you came from.
+- I'm a guy who doesn't really care about glamour and big markets; I like to be home all day.
+- Me and my mother, we both love Eddie Murphy.
+- I know I can get to the basket whenever I want, but I've got to be able to create some plays, like easy plays.
+- I'm just trying to be the best basketball player I can be, you know, move the ball.
+- When LeBron came into the league, I was 9 years old. So I grew up watching him play.
+- I always had to be there for my family. I think that helped me a lot to adjust to the NBA.
+- What's the reason I'm playing basketball? I do it because I love it, I do it because of my family, and that's it. I don't do it because of the money. I don't do it because of the fame. I just do it because I love it, and I do it for my family because my family enjoys it.
+- Every coach has a different style and approach.
+- Music is a huge part of my life when I am on the road, working out, or preparing for a game. It is something I always go back to, and it is something that motivates me. It gets me hype before a game.
+- Tim Duncan did it. Dirk Nowitzki did it. I just want to be one of those guys... that stays for the city, play for the city for 20 years.
+- Milwaukee is a small-market team, but I love it.
+- At first, when my agent told me, 'They want you to do an interview, a piece for '60 Minutes,' I was like, 'What is '60 Minutes?''
+- I was selling stuff probably since I could remember, like 6 or 7 years old. I was always out there helping my mom and dad sell watches, glasses, CDs, DVDs, stuff like that. Whatever we could put our hands on. I did it until I was around 17. But I was just doing it because I had to. There was no other option.
+- I think for a guy like me, low-profile guy, it's better being in Milwaukee.
+- My favorite movie is 'Coming to America' by Eddie Murphy.
+- LeBron James is one of the best players in the league - and one of the best players to ever play the game.
+- You never know how life turns out.
+- It doesn't matter how you're playing: you've got to be vocal - you've got to be aggressive - if you really want to be one of the best in this league.
+- Milwaukee is really quiet. The people here are really respectful. They can see me in the street, walking on the road. I can go to anyplace in Milwaukee without people being all over me. I appreciate that.
+- I like hip-hop and rock music.
+- The night before games, I try to get some shots up. Early on the game day, I come early in the morning to try to get some shots up. I just try to do the same things: go through the scouting, watch some clips before the game, just try to get my body ready.
+- The Bucks and John Hammond chose me in the draft, got me in the NBA, kept me in the team with a role from my very first season, and they are my basketball family.
+- With back-to-backs, a lot of games, sometimes you think, 'I've got to take a day off today.' But you have to push through it. The greats did.
+- I'm one of the best players in the league.
+- I can be a little cocky.

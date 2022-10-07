@@ -1,0 +1,71 @@
++++
+author = "Neil Peart"
+title = "Neil Peart Quotes"
+quotes_len = "65"
+description = "the best 65 Neil Peart Quotes"
++++
+- I expect if you're a professional public speaker, you probably wouldn't want to go onstage and sing and play drums.
+- I am the audience. I want to observe people. Even when I'm playing drums onstage, I'm watching people. I'm looking at them and their faces and their T-shirts and their signs. And travelling by motorcycle, especially, the world is just coming at me.
+- I sang the hymns, and I read the Bible stories, but I was always perplexed, like, 'Really? Jesus wants you for a sunbeam? For a what?'
+- I always thought if I could just put something in words perfectly enough, people would get the idea, and it would change things. That's a harmless conceit. With people, too, you constantly think, 'If I'm nice to people and treat them well, they'll appreciate it and behave better.' They won't, but it's still not a bad way to live.
+- Our songs were not written to be listened to in headphones or on the radio. They were written to be played. All of the little infinite detail that went into the arrangements and giving ourselves lots of breathing room in terms of playing what we wanted to play and using up any ideas that we had - all of those were conceived to be performed.
+- I'm learning all the time. I'm evolving all the time as a human being. I'm getting better, I hope, in all of the important ways.
+- People don't realize the limitations of 200 words, and the way they get chiselled down into a song that has to be sung.
+- There is no blood in jazz drumming, and there are no bullies in jazz drumming.
+- I'd be very honored to be the ambassador to drum solos.
+- There's still a lot I'm angry about, a lot of human behaviour that's appalling and despicable, but you choose what you can fight against. I always thought if I could just put something in words perfectly enough, people would get the idea and it would change things.
+- I want to be an improviser, and I've worked very hard at that. It's an art. You don't just play whatever comes into your head; you have to be very deliberate about what you do.
+- If I have to travel, I'm going to travel my way and travel in the real world. And I'm going to have conversations every day with people in rest stops and people in gas stations and people in hotels and diners. That nourishes me.
+- What is a master but a master student? And if that's true, then there's a responsibility on you to keep getting better and to explore avenues of your profession.
+- If drummers are 'anti-solo,' that's up to them. They're musicians, and they can play whatever they want. But my inspirations early on were people like Buddy Rich, seeing him on 'The Tonight Show', or Gene Krupa.
+- It astonished me in the early Nineties to suddenly have musicians admit that they had been inspired and influenced by us. That meant a lot at that time. But of course, being human, the... disrespect isn't even strong enough a word, is it? The opprobrium was painful. Being popular and hated is not satisfying.
+- For me to call myself a musician, it's necessary to play live, and it rewards so much - not just in the pay cheque sense but what it does for my playing. I feel it through a tour - I feel it at the end of a tour - all that I've gathered, and especially now that I am improvising so much.
+- Stamina is the force that drives the drumming; it's not really a sprint.
+- When Mr. Ludwig invented the bass-drum pedal, that's what made the drum set possible.
+- The thing for me about Ayn Rand is that her philosophy is the only one applicable to the world today - in every sense. If you take her ideas, then take them farther in your own mind, you can find answers to pretty well everything on an individual basis.
+- Pure libertarianism believes that people will be generous and help each other. Well, they won't. I wish it were so, and I live that way. I help panhandlers, but other people are, 'Oh look at that - why doesn't he get a job?' While I believe in all that freedom, I also believe that no one should suffer needlessly.
+- What I've learned over the years is that the craft of songwriting is trying to take the personal and make it universal - or in the case of telling a story, taking the universal and making it personal.
+- Rudimental snare work is something I've always loved.
+- Extroverts never understand introverts, and it was like that in school days. I read recently that all of us can be defined in adult life by the way others perceived us in high school.
+- I try not to repeat myself in fills in all the Rush songs unless it is something simple or something I feel is my own characteristic thing.
+- Even as a kid, I never wanted to be famous; I wanted to be good.
+- Live shows were always religion for us. We never played a show - whether it was in front of 15 people or 15,000 - where it wasn't everything we had that night.
+- When I started playing, I played in R&B bands. I played James Brown, Wilson Pickett, Otis Redding and all that.
+- Drumming completely eclipsed my life from age 13, when I started drum lessons. Everything disappeared. I'd done well in school up until that time. I was fairly adjusted socially up until that time. And I became completely monomania, obsessed all through my teens. Nothing else existed anymore.
+- Racetracks are designed to make it as difficult as possible to get around that corner fast. And some ramps, by necessity, are that way, too.
+- If you choose not to decide, you still have made a choice.
+- People say to me, 'Are you still excited when you go on tour?' Should I be excited about leaving my family? No, and no one should. It's as simple as that. If you put aside the fantasy of it, it is what it is and has to be done. And that's fine, and I pour my entire energy and enthusiasm into it, but of course, I'm of two minds about the whole idea.
+- For me, drum elements are like hieroglyphics - I think of a certain physical figure, and a little three-dimensional glyph will appear in my mind as I'm playing.
+- It's interesting. I've known quite a few good athletes that can't begin to play a beat on the drum set. Most team sport is about the smooth fluidity of hand-eye coordination and physical grace, where drumming is much more about splitting all those things up.
+- It's not the music you hear in your head that other people are going to hear. You have to be able to make it true enough to the image in your head, and that's where technique and technology come in, for sure, and knowledge. It's not true and will never be true that someone who knows nothing can sit in a basement and make great music.
+- The government's only functions are to protect the rights of the individual; therefore, you need a police force and an army.
+- Ever since I was a kid, I always wanted to play music that I liked, and even when I was in cover bands when I was a teenager we only played cover tunes that we liked. That was the simple morality that I grew up with.
+- Now I call myself a bleeding heart libertarian. Because I do believe in the principles of Libertarianism as an ideal - because I'm an idealist.
+- It seems to me that's the only way you can have a truly creative aggregate of people is if they're all contributing in different ways.
+- To get nostalgic about other people's music, or even about your own, makes a terrible statement about the condition of your life and your prospects for the future. I have no patience with that kind of attitude, whether it's on radio or among friends.
+- The real test of a musician is live performance. It's one thing to spend a long time learning how to play well in the studio, but to do it in front of people is what keeps me coming back to touring.
+- I believe in taxation and health care that is outside the usual libertarian mandate, because I don't want people to have to suffer. It's as simple as that.
+- Too much attention and hoopla doesn't agree with my temperament.
+- In 2007, I studied with Peter Erskine because I was doing a Buddy Rich tribute concert, and I wanted to take my big-band drumming up a level. I went over to Peter's house with my sticks, feeling like a 13-year-old again.
+- If you've got a problem, take it out on a drum.
+- We don't want to be Mick Jagger and the Rolling Stones. That type of thing wasn't what we were after. It was most important for each of us to be equal in input and output - each of us has to pull the same amount, musically, in composition and in every sense of being in the band.
+- You have to know when you're at the top of your particular mountain, I guess. Maybe not the summit, but as high as you can go.
+- If it's cross-country ski season, I'll be out doing that, or snowshoeing up in Quebec. In my California home, I go to the local Y and I like doing yoga. It's been hugely beneficial to me in injury avoidance.
+- For a person of my sensibility, you're only left with the Democratic party.
+- I don't like lyrics that are just thrown together, that were obviously written as you went along, or the song was already written and the guy made up the lyrics in five minutes.
+- I think, in music, you're always hoping that you'll have a like-minded audience and that the music you like making will appeal to them, too.
+- The reality is that my style of drumming is largely an athletic undertaking, and it does not pain me to realize that, like all athletes, there comes a time to... take yourself out of the game.
+- To me, the highest expression of life is art with jokes. It's very rarified, very difficult to accomplish if you want to be more than just funny and more than just jokes about human gaseousness.
+- The Seven Cities of Gold always fascinated me. Southwestern U.S. history especially fascinates me. The whole spur of the Spanish exploration of the Southwestern U.S. was the search for these mythical Seven Cities of Gold.
+- If I go play golf with the guys, it's intended to be a joke.
+- Anytime I have an idea, I'll make sure that I put it down so that when we do sit down to write an album, I don't have to dream it all out of thin air. I don't have to be creative on the spur of the moment, or spontaneously artistic. I just take advantage of whenever creativity strikes.
+- I've heard the stories. Like, Eric Clapton said he wanted to burn his guitar when he heard Jimi Hendrix play. I never understood that because, when I went and saw a great drummer or heard one, all I wanted to do was practice.
+- Do yourself a favor. Don't ever say to me, 'Everything happens for a reason.'
+- When I was young, my ambitions were very modest. I thought, 'If only I could play at the battle of the bands at the Y, that would be the culmination of existence!' And then the roller rink, and you work your way up branch by branch.
+- Playing a three-hour Rush show is like running a marathon while solving equations.
+- It was actually drumming that gave me the stamina to get into sports later. I started playing drums at 13, and when I got to the international touring level... I got interested in cross-country skiing, long-distance swimming, bicycling... things that require stamina, not finesse.
+- To me, drum soloing is like doing a marathon and solving equations at the same time.
+- Performing live in front of an audience is such a matter of will - all of those things you can do just fine in your basement, suddenly you have to do them in front of hundreds or thousands of people, and it becomes a different matter entirely.
+- I had spindly little ankles, and growing up in Canada, I couldn't skate. I was no good at any sports so was very much a pariah through those adolescent years.
+- I'm still no good at ball-and-stick games. If I go play golf with the guys, it's intended to be a joke.
+- Once, I went speeding past an old couple and smiled as I imagined their conversation: him grumbling about me and her telling him not to be such an old grouch. Then, suddenly I was in tears, thinking, 'I'll never get to be a grumpy old grandpa!'

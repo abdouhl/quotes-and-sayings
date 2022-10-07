@@ -1,0 +1,57 @@
++++
+author = "John Ralston Saul"
+title = "John Ralston Saul Quotes"
+quotes_len = "51"
+description = "the best 51 John Ralston Saul Quotes"
++++
+- I don't use the word 'renaissance'. It's flawed because in Latin, it's tied to the rebirth of Christ... It's a word that's tied to a European concept.
+- Democracy is extremely complex; it is extremely concrete. It's about constantly choosing, finding, developing practical options within the common good. Constantly searching for how to express in a practical way the common good, not in some grand way, some grand and absolute way, but in a very comfortable way.
+- I've been up in the Arctic Circle where they have hockey rinks that don't have any heating. So it's - 40 C outside, it's - 55 inside. Or there's a social centre but no budget for anybody to run any programs. Stuff we wouldn't accept in Winnipeg, but we let it go on and on and on.
+- Marx was fortunate to have been born eighty years before Walt Disney. Disney also promised a child's paradise and unlike Marx, delivered on his promise.
+- One of the things non-aboriginal Canadians learned from aboriginal people over the last 400 years is you don't have to be one thing. That's a European idea. There's multiple personalities, multiple loyalties. You can be a Winnipegger, a Manitoban, a Westerner.
+- You look around the world in 2013, and you say, 'How many prime ministers or presidents are in prison?' One or two. 'How many generals or bankers?' Two or three. 'But how many writers?' 850 or so.
+- You can always tell you're in deep trouble when people start thinking money's real.
+- Some people don't like the 'comeback' because that suggests they went somewhere, which they didn't. That isn't what I mean. In my mind, people were doing well, and then they went right down, and they made a comeback. It's not that they went anywhere. It's that their fortunes went way down, and then they came back.
+- Democracy, of course, requires strong demands from the public.
+- How can we possibly say the root of the Canadian approach to citizenship and immigration comes from Europe or the United States? I mean, we just don't do the same things. What I've said, very simply, is that unlike other colonies, for the first 250 years approximately, indigenous people were either the dominant force or an equal force.
+- Only when God was said to have died did various leaders, professions and sectors risk pushing themselves forward as successors.
+- What nobody wants to discuss is whether or not the black-and-white argument about trade - you're either a free trader or you're a protectionist - is the right one. It's the old 19th century argument.
+- In Canada, there's a surprising worship of managerialism versus ownership and wealth creation. There's a real problem in this country with believing that management is the answer to our problems.
+- In the European tradition, rivers are seen as divisions between peoples. But in the Aboriginal tradition, rivers are seen as the glue, the highway, the linkage between people, not the separation. And that's the history of Canada: our rivers and lakes were our highways.
+- There's nothing wrong with paying taxes; they should be paid in proportion to how rich you are. This idea that you're going to get better growth by cutting taxes at the top has no historical justification. And it's certainly not an argument in favor of capitalism.
+- Languages and cultures are disappearing at an enormously fast rate, and many of them are in Canada. These are extreme examples of removal of freedom of expression - to actually lose a language and the ability to express that culture.
+- If allowed to run free of the social system, capitalism will attempt to corrupt and undermine democracy, which is after all not a natural state.
+- In the early 1980s, the government of New Zealand fell into the hands of true believers, globalist believers, and they embraced the theory of inevitability perhaps more completely than anybody else. And it solved in the very short term some of their debt problems, but in the medium- and long-term, it left them in real economic trouble.
+- The wild open-market theory that died in 1929 had a run of just over thirty years. Communism, a complete melding of religious, economic, and global theories, stretched to seventy years in Russia and forty-five years in central Europe, thanks precisely to the intensive use of military and police force.
+- Canada is the only country in the West that hasn't given in to the rhetoric of fear. The dominant rhetoric is a line of inclusion.
+- Armaments; extremely useful for fighting wars, a deadweight in any civil economy.
+- Traditionally in capitalism, when you have more cash, you can fund more activity, which produces more jobs and creates more wealth. That's basic economic theory.
+- The citizen's job is to be rude - to pierce the comfort of professional intercourse by boorish expressions of doubt.
+- Unregulated competition is a naive metaphor for anarchy.
+- A Big Mac - the communion wafer of consumption.
+- Anglo Saxons: To blame for everything.
+- Freedom - an occupied space which must be reoccupied every day.
+- For about 125 years, give or take, the Canadian government has acted extremely badly - even in a way which should be called evil - breaking treaties, breaking agreements.
+- There's two ways of dealing with fears of mortality. One of them is to hide, so every day you wear the same suit and go to the same job... and the other is to reinvent yourself. I think I reinvent myself all the time. The idea that I would have to be one thing for the rest of my life would just be a soul-destroying idea.
+- When I dig around in the roots of how we imagine ourselves, how we govern, how we live together in communities - how we treat one another when we are not being stupid - what I find is deeply Aboriginal.
+- It's quite humbling when you see the list of writers who have been president of PEN and you know some of the things they've done.
+- Grand economic theories rarely last more than a few decades. Some, if they are particularly in tune with technological or political events, may make it to half a century. Beyond that, little short of military force can keep them in place.
+- Either God is alive, in which case he'll deal with us as he sees fit. Or he is dead, in which case he was never alive, it being unlikely that he died of old age.
+- Democracy is the only system capable of reflecting the humanist premise of equilibrium or balance. The key to its secret is the involvement of the citizen.
+- Keynesianism, if you add its flexible, muscular form during the Depression to its more rigid postwar version, lasted forty-five years. Our own Globalization, with its technocratic and technological determinism and market idolatry, had thirty years. And now it, too, is dead.
+- Bankers - pillars of society who are going to hell if there is a God and He has been accurately quoted.
+- People who believe in freedom of expression have spent several centuries fighting against censorship, in whatever form. We have to be certain the 'Net' doesn't become the site for technological book burning.
+- In my mind, there's not a great difference between what people call fiction and non-fiction. So in that sense, I'm like an early-18th-century person. I actually believe there's one way of writing.
+- In the Arctic, the Inuit are saying water and land are the same; they're an unbroken unity. In the winter, you travel on the ice because it's the linkage and the easiest way, and in the summer, you move around on the water.
+- Dictionary - opinion expressed as truth in alphabetical order.
+- The merger mania which goes on and on and on is the sign of the disappearance of competition. As we deregulate, the mergers increase, which means there's less and less competition. At the national level, at the regional level, but also at the international level.
+- Humanism: an exaltation of freedom, but one limited by our need to exercise it as an integral part of nature and society.
+- If you live in a democracy, it's very tiring to be always surrounded by great and high abstract generalisations which are, in fact, the most banal and naive cliches dug out of second-rate movements of the late 19th century.
+- Money is not real. It is a conscious agreement on measuring value.
+- Nothing is absolute, with the debatable exceptions of this statement and death.
+- The fighting back by indigenous people started in 1900: OK, they've cornered us. Our population is almost gone; they've defeated us. From there, the modern Indian rights movement started, and it was a very hard fight, with a lot of stuff going against them.
+- When you go back and look at what people say about my essays, they're always going, 'What is this?' Because they're not exactly like other people's essays... The approach is not at all the recognized approach of a non-fiction writer. It's not linear. It isn't pyramidally based on fact.
+- Certain governments are suggesting that bloggers and tweeters aren't 'real' writers and, so, don't merit protection. A writer is anyone from a Nobel laureate to a debut blogger. They all get PEN's attention.
+- The 19th-century pure capitalist model of society was a pyramid, concentrations of enormous wealth in a small group at the top, a not very big middle-class in the middle, and an enormous percentage of the population in the bottom part of the pyramid.
+- People are always saying it's the end of the Gutenberg era. More to the point, it's a return to an oral era. The Gutenberg galaxy was about the written word. At its best, the digital era is part of the rediscovery of the oral. At its worst, it's a Kafkaesque victory of the bureaucratic over the imagination.
+- Everyone has an equal right to inequality.

@@ -1,0 +1,77 @@
++++
+author = "Gustave Flaubert"
+title = "Gustave Flaubert Quotes"
+quotes_len = "71"
+description = "the best 71 Gustave Flaubert Quotes"
++++
+- Woman is a vulgar animal from whom man has created an excessively beautiful ideal.
+- The future is the worst thing about the present.
+- What an elder sees sitting; the young can't see standing.
+- Of all possible debauches, traveling is the greatest that I know; that's the one they invented when they got tired of all the others.
+- One must always hope when one is desperate, and doubt when one hopes.
+- Nothing is more humiliating than to see idiots succeed in enterprises we have failed in.
+- Art requires neither complaisance nor politeness; nothing but faith, faith and freedom.
+- Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution.
+- Reality does not conform to the ideal, but confirms it.
+- One arrives at style only with atrocious effort, with fanatical and devoted stubbornness.
+- The true poet for me is a priest. As soon as he dons the cassock, he must leave his family.
+- One mustn't always believe that feeling is everything. In the arts, it is nothing without form.
+- Stupidity is something unshakable; nothing attacks it without breaking itself against it; it is of the nature of granite, hard and resistant.
+- The deplorable mania of doubt exhausts me. I doubt about everything, even my doubts.
+- Life must be a constant education; one must learn everything, from speaking to dying.
+- One can be the master of what one does, but never of what one feels.
+- Everything one invents is true, you may be perfectly sure of that. Poetry is as precise as geometry.
+- Here is true immorality: ignorance and stupidity; the devil is nothing but this. His name is Legion.
+- Writing is a dog's life, but the only life worth living.
+- There are neither good nor bad subjects. From the point of view of pure Art, you could almost establish it as an axiom that the subject is irrelevant, style itself being an absolute manner of seeing things.
+- Caught up in life, you see it badly. You suffer from it or enjoy it too much. The artist, in my opinion, is a monstrosity, something outside of nature.
+- Success is a consequence and must not be a goal.
+- One mustn't ask apple trees for oranges, France for sun, women for love, life for happiness.
+- As a rule we disbelieve all the facts and theories for which we have no use.
+- A memory is a beautiful thing, it's almost a desire that you miss.
+- Language is a cracked kettle on which we beat out tunes for bears to dance to, while all the time we long to move the stars to pity.
+- The faster the word sticks to the thought, the more beautiful is the effect.
+- Anything becomes interesting if you look at it long enough.
+- One mustn't look at the abyss, because there is at the bottom an inexpressible charm which attracts us.
+- Our ignorance of history causes us to slander our own times.
+- Poetry is as precise a thing as geometry.
+- It seems to me that I have always existed and that I possess memories that date back to the Pharaohs.
+- The cult of art gives pride; one never has too much of it.
+- You can calculate the worth of a man by the number of his enemies, and the importance of a work of art by the harm that is spoken of it.
+- A friend who dies, it's something of you who dies.
+- Human speech is like a cracked kettle on which we tap crude rhythms for bears to dance to, while we long to make music that will melt the stars.
+- Artists who seek perfection in everything are those who cannot attain it in anything.
+- But the disparaging of those we love always alienates us from them to some extent. We must not touch our idols; the gilt comes off in our hands.
+- All one's inventions are true, you can be sure of that. Poetry is as exact a science as geometry.
+- I love good sense above all, perhaps because I have none.
+- Of all lies, art is the least untrue.
+- Do not read, as children do, to amuse yourself, or like the ambitious, for the purpose of instruction. No, read in order to live.
+- The whole dream of democracy is to raise the proletarian to the level of stupidity attained by the bourgeois.
+- Exuberance is better than taste.
+- Read much, but not many books.
+- I love my work with a frenetic and perverse love, as an ascetic loves the hair shirt which scratches his belly.
+- I have come to have the firm conviction that vanity is the basis of everything, and finally that what one calls conscience is only inner vanity.
+- Love is a springtime plant that perfumes everything with its hope, even the ruins to which it clings.
+- The art of writing is the art of discovering what you believe.
+- To be stupid, selfish, and have good health are three requirements for happiness, though if stupidity is lacking, all is lost.
+- Judge the goodness of a book by the energy of the punches it has given you. I believe the greatest characteristic of genius, is, above all, force.
+- Read in order to live.
+- Happiness is a monstrosity! Punished are those who seek it.
+- The most glorious moments in your life are not the so-called days of success, but rather those days when out of dejection and despair you feel rise in you a challenge to life, and the promise of future accomplishments.
+- The artist must be in his work as God is in creation, invisible and all-powerful; one must sense him everywhere but never see him.
+- Madame Bovary is myself.
+- A superhuman will is needed in order to write, and I am only a man.
+- Be regular and orderly in your life, so that you may be violent and original in your work.
+- There is no truth. There is only perception.
+- The author, in his work, must be like God in the Universe, present everywhere and visible nowhere.
+- One never tires of what is well written, style is life! It is the very blood of thought!
+- I am a man-pen. I feel through the pen, because of the pen.
+- I have the handicap of being born with a special language to which I alone have the key.
+- The better a work is, the more it attracts criticism; it is like the fleas who rush to jump on white linens.
+- The only way to avoid being unhappy is to close yourself up in Art and to count for nothing all the rest.
+- What is the beautiful, if not the impossible.
+- The heart, like the stomach, wants a varied diet.
+- The more humanity advances, the more it is degraded.
+- I believe that if one always looked at the skies, one would end up with wings.
+- I hate that which we have decided to call realism, even though I have been made one of its high priests.
+- Style is as much under the words as in the words. It is as much the soul as it is the flesh of a work.

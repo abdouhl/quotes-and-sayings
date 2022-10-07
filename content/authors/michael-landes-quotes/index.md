@@ -1,0 +1,17 @@
++++
+author = "Michael Landes"
+title = "Michael Landes Quotes"
+quotes_len = "11"
+description = "the best 11 Michael Landes Quotes"
++++
+- I was so shocked by how many people watched 'Lois and Clark.'
+- I'm a keen traveller, and I'm a nerd with planes and airports.
+- There's something to be taken from every job, whether it's crap or good. Sometimes, on the awful ones, I get more of an education about other areas of my business.
+- You date people to practice and to learn and to grow. But for me, everything was always a hang-up, or there was something there that I felt was a bit off.
+- I loved Cambodia; watching the sun rise at Angkor Wat was really beautiful.
+- Namibia took my breath away - we were at the border with South Africa, and it was where they filmed 'Mad Max.'
+- When you go to the jungle in South Africa, it's tropical versus the dry heat of Cape Town - it's hard to believe it's the same country.
+- One thing I've learned is that when you shoot something in the U.K., there's always going to be somebody called Trevor on your set. And maybe a Nigel. Occasionally a Colin.
+- The BBC is very prestigious from an American's perspective, so I'm a big fan of it.
+- I have a DVD of 'Lois & Clark,' and I don't know how the special effects hold up, because all the technology's gotten so much better. But the writer - the woman that wrote 'Lois & Clark' - I think those stories were good.
+- I was in the superhero game at the wrong time.

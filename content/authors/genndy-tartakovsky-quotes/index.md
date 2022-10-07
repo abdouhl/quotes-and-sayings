@@ -1,0 +1,106 @@
++++
+author = "Genndy Tartakovsky"
+title = "Genndy Tartakovsky Quotes"
+quotes_len = "100"
+description = "the best 100 Genndy Tartakovsky Quotes"
++++
+- For me, I rarely go and see 3D movies because I feel like, when you're wearing glasses, you're aware that you're in the theatre. And the whole thing for me with the movie experience is to be lost in the movie.
+- Trying to be a leader, you've got to be really sure of what you're doing and you've got to guide people the right way.
+- I love the way the long scenes feel - one of the characteristics of '70s filmmaking is that you don't cut around a lot; you let things play out. I did that on 'Samurai Jack,' and it carried over into 'Clone Wars.'
+- I grew up in the 1970s and early 1980s, loving comic books, and they were much cartoonier. And then everything became super dark and muscular and airbrushed, and I stopped collecting comics.
+- My love of visual sequences stems from live-action films like Sergio Leone westerns, Kurosawa, some '70s action films, Tex Avery, and my general love of animated movement.
+- My goal is to always try to make you feel something, whether that's humor or sadness or excitement, and to try to manipulate screen space.
+- I was an immigrant when I came, and one of my biggest things was I really wanted to fit in. I didn't want to be, 'Oh, look at that guy;' I wanted to be part of the crowd. Which is a weird thing, because the more successful I got, the more out of the crowd I became.
+- I feel like animation's stagnant. There's not much that's trying to push the artform, and so, for me, I'm way too critical about it.
+- There was a show I loved as a kid: 'The Blue Falcon & Dynomutt.'
+- I grew up in the '70s, early '80s as a kid, and when we first immigrated to this country I went to a 7-Eleven and for the first time in my life I saw... back in the day they had this little spinning comic book rack, and there were comic books and I was basically drawn to them.
+- There are so many sitcoms, especially in animation, that we've almost forgotten what animation was about - movement and visuals.
+- A good cartoon is always good on two or three levels: surface physical comedy, some intellectual stuff - like Warner Brothers cartoons' pop-culture jokes, gas-rationing jokes during the war - and then the overall character appeal.
+- The funny thing is, I was not a fan of horror when I was a kid. I was scared to watch scary movies. And then along came 'Abbott and Costello Meet Frankenstein,' and 'Abbott and Costello Meet the Mummy.' And I like those films because they made scary funny, and it was kind of ironic that I ended up doing the 'Hotel' movies.
+- TV is great, and I love it, but to watch somebody's hand-crafted drawings on the big screen is an experience that we've forgotten as an audience, how much fun 2D can be.
+- Besides kind of like the Wes Anderson, or, of course, a lot of the European movies, most everybody in the States, the big studios, make pretty much the same film. And we're kind of held to Pixar standards, or Disney standards, as it's kind of always been in the animation industry.
+- In feature animation, it's kind of taboo to make a movie that's more cartoony. But I never really believed that.
+- For me, I'm not a great wordsmith, and so maybe from lack of great dialogue writing, I thought it's easier and better to express a story through visuals.
+- Jim Gaffigan is someone I've always been a fan of.
+- There's nothing like watching hand-drawn animation on the big screen.
+- I've always been in love with samurais, that kind of classic idea about a hero who has a sword with an intense skill and is very stoic and doesn't talk much.
+- The magic of 'Jack' is that it's unique, there's not a lot of stuff like it.
+- I've always felt that kids are a lot smarter than we've given them credit for, but we've never given them a chance to figure things out as they're watching television.
+- Humor is the hardest thing to do. Action is so much easier, because you're just trying to establish the mood, and a pacing, and a rhythm, and an energy. Where, in humor, comedy is so subjective.
+- We use music, cinematic storytelling and very stylized backgrounds to create mood and atmosphere as 'Samurai Jack' travels an exotic landscape. The environment is a major character in each show.
+- I remember seeing my first Disney film when I was 13 or 14. It was 'Jungle Book,' and I remember really falling in love with it.
+- I'm not as articulate as I'd wanna be.
+- Storytelling has changed. Shows like 'Adventure Time' have taken storytelling in a different direction.
+- I can't tell you how satisfying it is to have something that is your own idea get produced and then become successful.
+- Akira Kurosawa, David Lean and Alfred Hitchcock were the main inspirations for 'Samurai Jack,' along with a lot of '70s cinema.
+- I'm super comfortable with TV, especially in my situation where I pretty much have 100% freedom. That's the ideal, and I've been fortunate in TV to have pretty much everything I've done be at least somewhat successful.
+- To me, storytelling is a mystery. Especially when you're directing.
+- Jack' came from... I had the same dream since I was 10, about the world being destroyed and run by mutants. I'd find a samurai sword, pick up the girl I had a crush on, and we'd go through the land, surviving. That was the initial spark to 'Samurai Jack.'
+- I mean, for sure, from my history, I have an extreme fondness for 2D. I think it feels very hand-crafted, and you see the artist's personal touch. I think something about CG makes it a bit more sterile.
+- For whatever reason, I think we have one type of animated movie and it's so wrong. I want to do a drama, I want to do an action, a comedy. In live-action, there are all sorts of movies. There's independent movies, big movies, action movies, funny movies, and for us we have one movie.
+- You know, I loved 'Toy Story.' It's a great movie, but it has some pretty serious drama.
+- I really loved that old UPA stuff, like 'Gerald McBoing-Boing' and 'Mr. Magoo.' They were simple yet effective 'toons that talked to everyone, not just kids.
+- The one amazing thing about 'Jack' is that I did it in 2001, you know, and it still survived. There's something about it that's connected with people.
+- I was really fortunate in my career where I always had executives who were very like-minded.
+- I have been very fortunate for the most part of my career when it comes to support and trust.
+- I don't like darkness in everything. I like my superheroes in primary colors, and fun.
+- Well I grew up following most of the major titles like 'Fantastic Four,' 'Spider-Man,' 'Avengers,' etc. But I had also a lot of love for the smaller titles like 'Master of Kung Fu,' 'Black Panther,' 'The Defenders,' 'Inhumans,' and of course Power-Man and Iron Fist.'
+- I didn't want 'Hotel Transylvania' to be the nail in the coffin for cartoony animation. Because if the movie failed, I could see people blaming that aspect of it. I was really nervous about that.
+- I always refer to 'Blazing Saddles' or 'Young Frankenstein' as very much the kind of humor that I like to do.
+- The computer tends to equalize everything, all the movies are slowly blending together, the way they look.
+- The last thing you want to do is blend in. You want to stand out, and hopefully in a good way.
+- I read comics because of the art.
+- In feature animation, cartoony or exaggerated animation is almost taboo. There is this precedent that if you do that kind of stuff people won't like it or it will be too zany.
+- I always felt like as the director, I gotta be the best at everything.
+- Animation is my love, but I think there's definitely room in live-action. I mean, 'Iron Man 2' was fun, and I got to see that world.
+- I love 'Jack' as one of my creations and would never want to change it from what it was supposed to be. There was no reason to reinvent.
+- Going from 'Dexter' to 'Powerpuff,' there was a lot of dialogue, there was a lot of... you know, we did action, of course, but I was getting burned out on the words, and both shows had this big, thick black outline.
+- Stories are important, but I'm really into characters, and if you can give birth to a good one, that's true success.
+- For me, animation is the caricature of life. It's something that we create, from the ground up.
+- I'm a true fan of animation, and it's my livelihood.
+- Making a feature like 'Hotel 3' or 'Hotel 2' is kind of fun and jokey. It doesn't take itself too seriously. You could do whatever you want, basically.
+- I'm not sure comics sustain mortgage, and the house, and three kids.
+- I watching this Disney documentary, and I'm not Disney, but I was thinking about Mickey Mouse and he became an icon. Walt moved onto other things but he made him exist. I was thinking, 'Wow, is 'Samurai Jack' my 'Mickey Mouse?' Am I stupid to stop working on it?'
+- I've always thought that maybe I need to do a live-action movie, have it make a lot of money, and then come back and have a bigger budget for animation and do more with that.
+- You can never guess what a kid's going to find funny - besides, you know, an obvious fart joke here and there.
+- 'Samurai' is not an animated show like you would normally watch on TV. We tell the stories from a different perspective - backward, very nonlinear. It treats it more seriously as an art form.
+- Through the years, I've developed a style or a language that I like, even when it applies to action. All my action principles are very similar to my cartoony principles, because all the poses want to be really strong.
+- I was thirty when I did 'Jack.'
+- Definitely that was a big part of my childhood: wanting to fit. As an immigrant, you talk funny, you look funny, you smell funny. I wanted to do nothing but fit in and talk English and sit with everybody else.
+- I used to work until two in the morning every night, then still get up at six. Now, I have to help my daughter with her homework, spend time with my wife.
+- I'm not a violent person at all, and I don't want to show violence for violent's sake.
+- The whole style of 'Hotel Transylvania' isn't really goofy. Their castle, it's not super tall; it's almost normal sized.
+- I don't want to do animation to mimic reality. I want to push reality.
+- Being funny is very complex.
+- You can't have a beauty scene for beauty's sake.
+- Going as far back as 'Dexter's Lab,' we've always had these sequences with no dialogue. The interesting thing is those sequences got the biggest reactions.
+- I'm very in the now; I don't like to look back a lot.
+- I think the fate of 'Star Wars' is everlasting, which is great.
+- Luckily, as a director I can just tell people what I need and I don't need to tell them how to get it.
+- To me, the best of 'Jack' is when we have a very good, but small idea, executed to the nines.
+- Boarding for me, like in the days of 'Dexter,' was really hard, because I couldn't draw as well, and I had people around me who drew really well, so it was hard.
+- Being a hardcore old-school comic book lover, it took me a while to accept the need for comic book movies.
+- And there is no finer moment, when I sit in a screening, and the parents and the kids are all laughing at the same gag.
+- I try not to be in my head too much, I just try to do what feels right.
+- Doing simple flip books, I used to get such a kick out of it, just drawings and nothing else.
+- For me, doing all the TV stuff and having the experience directing, knowing what you want to make is 90% of it. The rest of it is just guiding everybody on that one path. But, figuring out the path is the difficult part.
+- I remember arguing with my dad to let me dress up to go to a Halloween party in seventh grade, but I never in my childhood went trick-or-treating.
+- TV is all about schedule and budget, and you're always fighting that.
+- With features, you're spending hundreds of millions of dollars on production and marketing, so everybody's panicked because you literally have an opening weekend to succeed.
+- I've done a lot of dance sequences because I like them; I like to animate dancing because it's fun and visual.
+- If you look back at Disney's 'The Hunchback of Notre Dame' or 'Pocahontas,' animated films were trying to get more and more real before CG really arrived.
+- If you have a character who wins all the time - well, if you have a character that loses and wins, it makes him more alive. Bugs Bunny, for example, didn't always win.
+- I had done it all in my career. I always felt, as a kid, that that's what a director needed to be. Hitchcock could do anything in my mind. He's the director. That person has to be the best actor, the best designer, the best cinematographer. Then I came to realize that isn't the case. You just need to surround yourself with the best.
+- There were so many amazing comic books. Like I was around for the original Frank Miller/Chris Claremont 'Wolverine' miniseries.
+- There's a lot of comic book inspiration and stuff I do that people probably won't recognize. I grew up in the '70s, so there's a lot of little things, like 'Three's Company' and 'Gilligan's Island.' Those shows were the foundation of my comedy in a way.
+- For me, CG tends to feel watered down and it becomes cold because it's so perfect.
+- I'm a very happy, optimistic person.
+- One night I was sick and I watched the old black and white 'Invasion of the Body Snatchers.' And it freaked me out.
+- One of the things I hate about TV for kids is that it conescends to them.
+- It makes things very easy when the people you are working for have trust and believe in you and actually really like and respect your work.
+- In 2-D, the way you draw defines you, but in CG the computer takes away your identity.
+- Everything that I've ever made in my life is from my instinct.
+- As soon as you think, 'Pirates are really popular right now with kids so I'm going to write a pirate movie'... that's when you're dead.
+- Jazz flute's funny. And I'm a big Latin music fan, Tito Puente, Tina Cruz, all that stuff.
+- I don't like to be part of the cattle. I like to just do my own thing.
+- I love to have contrast.

@@ -1,0 +1,42 @@
++++
+author = "Mick Jagger"
+title = "Mick Jagger Quotes"
+quotes_len = "36"
+description = "the best 36 Mick Jagger Quotes"
++++
+- I don't really count myself as a very sophisticated businessperson. I'm a creative artist. All I know from business I've picked up along the way.
+- I believe we should encourage children to sing and play instruments from an early age.
+- I haven't had the time to plan returning to the scene because I haven't left it.
+- I never really studied business in school. I kind of wish I had, but how boring is that?
+- We have a lot of secondary market problems in the U.K.; it's really bad there. And lots of artists are starting to participate in it, because they put the tickets up at a certain price, then the tickets get marked up by the secondary sellers, and someone else gets twice as much as you.
+- People get very thoughtful when they are in cars. I no longer care for cars. I don't collect them.
+- The elusive nature of love... it can be such a fleeting thing. You see it there and it's just fluttering and it's gone.
+- My mother has always been unhappy with what I do. She would rather I do something nicer, like be a bricklayer.
+- I can't get no satisfaction.
+- A lot of times songs are very much of a moment, that you just encapsulate. They come to you, you write them, you feel good that day, or bad that day.
+- As long as my face is on page one, I don't care what they say about me on page seventeen.
+- My secrets must be poetic to be believable.
+- People think they know you. They know the things about you that you have forgotten.
+- I must be careful not to get trapped in the past. That's why I tend to forget my songs.
+- Patriotism is an instant reaction that fades away when the war starts.
+- It's all right letting yourself go, as long as you can get yourself back.
+- Anarchy is the only slight glimmer of hope.
+- I am not a librarian of my own work. It's a good thing not to be too involved with what you have done.
+- I've managed to avoid tattoos so far.
+- I'd rather be dead than singing 'Satisfaction' when I'm forty-five.
+- The past is a great place and I don't want to erase it or to regret it, but I don't want to be its prisoner either.
+- The new fashion is to talk about the most private parts of your life; other fashion is to repent of your excesses and to criticize the drugs that made you happy in the other times.
+- I came into music just because I wanted the bread. It's true. I looked around and this seemed like the only way I was going to get the kind of bread I wanted.
+- You wake up in the morning and you look at your old spoon, and you say to yourself, 'Mick, it's time to get yourself a new spoon.' And you do.
+- Lose your dreams and you might lose your mind.
+- A good thing never ends.
+- The Spice Girl Victoria Beckham has just published the story of her life. I confess that it is not in my reading table.
+- Thank you for leaving us alone but giving us enough attention to boost our egos.
+- I'm very much against the secondary ticket market. I don't know anyone who isn't.
+- Anything worth doing is worth overdoing.
+- People have this obsession. They want you to be like you were in 1969. They want you to, because otherwise their youth goes with you. It's very selfish, but it's understandable.
+- I have a lot of songs, and I'd love to do some more recording with the band.
+- I got nasty habits; I take tea at three.
+- People love talking about when they were young and heard Honky Tonk Women for the first time. It's quite a heavy load to carry on your shoulders, the memories of so many people.
+- I am conservative with a small 'c.' It's possible to be conservative in fiscal policy, and tolerant on moral issues or questions of freedom of expression.
+- I have never wanted to give up performing on stage, but one day the tours will be over.

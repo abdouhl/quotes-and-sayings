@@ -1,0 +1,59 @@
++++
+author = "Griz"
+title = "Griz Quotes"
+quotes_len = "53"
+description = "the best 53 Griz Quotes"
++++
+- I love hip-hop, and I like the beats the most.
+- My parents took a fairly liberal approach at raising me, always encouraging me to be creative and free-thinking.
+- I'm obsessed with the sound of today, but I was raised on the Motown sound.
+- Computers are really patient. They can sit there all day. It's a totally different situation dealing with humans. They can be tired or overly excited.
+- I also think something that makes the whole live performance fun for me is that I love my music.
+- Zelda is the best solo game; Mario Cart is the best group game.
+- Being in the high-school band was some of the funnest years of my life.
+- I feel like music is sort of therapy for myself.
+- We just love Denver. The love and support from people here is amazing.
+- When I was a kid, I was a really bad collaborator. I was pretty introverted.
+- Stay in school and band, kids! It had its nerdy moments, and I always felt like I wanted to do something more with it.
+- I was surprised how supportive my family and friends were in my coming out, and it gave and still gives me hope.
+- It's all about the music. Everything else is just extra.
+- Most of the people that work for me are my friends, and I'd like to keep it that way.
+- There is so much energy when you work with other people. I'm working with friends and having a blast.
+- I haven't written my favorite song yet, and I hope I never do.
+- I have always been very interested in thinking deeply about things. I do this a lot.
+- When you first start photographing a show or being into photography, you might think it's cool to see people with their phones, like, 'It's so novel; everyone cares about this moment so much,' but then it becomes... trite, y'know, and shallow. I think the best moments of my life have been spent without phones.
+- I wanna take a step forward, and I also wanna make sure that step forward is the step that I want and that I'm not being pressured by life. You try and get better at doing something, and a lot of the time, it's because somebody told you that you needed to be better.
+- My life is my music, so how can I stop? I put 100 percent into my career. I keep this flow going, and that's important.
+- I think we're finally in a culture now where being gay is normalized.
+- My roots in electronic music go from weird glitch music to now what's seen as pop music. Electronic music is pop music now.
+- There was so much pressure to fit in, I tried to force myself to be like everyone else. The last thing any teen wants is to be 'uncool.'
+- In this day and age, I really just don't want to sell people on something. I don't want to have to sell you sound. I don't like selling emotions. Or ideas. I just want to give you these ideas and inspire people.
+- I think it would be super, hella cool to hop into a cab & hear my song on the radio - like, 'Yeah!' - and also be like, 'Who is this Griz guy? He's horrible.' That'd be really cool.
+- My vision is a blend of the old school and the new school, but with zero rules.
+- My one experience with Lollapalooza was in 2009 - it was actually the first music festival I've ever been to.
+- Everyone wants to grow, but I'm not trying to reinvent myself anytime soon.
+- It is totally cool to be gay.
+- There are always safe spaces. You can be a beacon for other people who are struggling. It's hard to put your heart out there and put it in other peoples' hands. But the receiving end is gentle.
+- For 'The Anthem,' a lot of my fans were like 'Oh, man, he's getting lazy making just, like, a pop format tune that everyone's doing these days.' But on this album, I wanted to write songs with vocals that would get stuck in my head, not just movements of instrumentals.
+- I just really liked those trumpets and horns - Miles Davis, Dizzy Gillespie - and I honed in on that. I always looked for those big horn lines.
+- There's no such thing as a bad Miyazaki film.
+- 'Say It Loud' came from many, many small battles. From, 'I hate myself, and I hate this,' to, 'I love this, and it's my favorite thing...' to, 'This is the best thing in existence.'
+- I don't need more money. I don't need that to be happy.
+- No matter what happens with EDM, I would like to go to New Orleans and just play with one of those small funk bands in an intimate venue. How cool would it be to work with a band with those huge horn lines and produce all of that great funk that makes you just want to party?
+- I never really had the chance to play the kind of music I wanted to play. It was always just classical. It had its limits. I play piano now and again in the new forms of music that I actually want to play, but at the time, it was something that I just kind of moved past.
+- The most important thing, to me is the intention of where things come from, like, why did you use it? What were the intentions of what you did? And if the intention is good, the intention is pure, then everything will turn out good.
+- I love what I do, and I do it 24/7, and it hurts my relationships very often, but it's worth it.
+- My whole thing, to keep myself interested - and, you know, I'm a huge hip-hop head - I have tons and tons of a cappellas. So I do these live remix mash-ups with my tracks and just throw them in there.
+- I love playing live and creating these records that people are so into.
+- I love looking out at a sea of people. It's mind-blowing. But I also like playing clubs.
+- I like mixing things up. That makes it more interesting. I love mixing in slower funk with what I do. I'll add drum and bass and put my foot to the gas pedal and press it to the floor.
+- I loved playing the saxophone.
+- Fear comes from personal self-acceptance and not the self.
+- Piano was my first instrument, but it wasn't the instrument that I showed the most proficiency on.
+- You need to be able to communicate your feelings. We need to be able to do that to feel empowered.
+- My brother has been, and will always be, my closest friend.
+- I have a top 10 list of my favorite movies of all time, and just for the sake of not having my top 5 be entirely Miyazaki films, I had to pick one. So, right now, my favorite Miyazaki film is probably 'Princess Mononoke.'
+- Always focus on the music first. That's the big thing. Staying true to making good music and not sacrificing that for anything.
+- The environment of San Francisco has so much history to it that I really appreciate. Musically, socially, and culturally. There's this new culture of people; it's a crazy place to be.
+- If you make music with business in your head, it'll show. I make it from the heart. There's a difference.
+- I was a huge fan of '90s hip-hop, and a lot of what they got their music from was funk and soul records. They just, like, take a clip of that and rap over it because, you know, that was just kind of what was up.

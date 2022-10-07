@@ -1,0 +1,53 @@
++++
+author = "Shane Smith"
+title = "Shane Smith Quotes"
+quotes_len = "47"
+description = "the best 47 Shane Smith Quotes"
++++
+- The best piece of advice I ever got from anyone was when Spike Jonze said, 'Take money out of the equation.' And that's actually when Vice started making lots of money. That's when I stopped worrying about money and started worrying about what I wanted to do.
+- The whole sort of debate of classic objective journalism versus a new immersion journalism - that can go on forever... I made no bones about my position: I don't think you can be objective.
+- When you're a younger company, you struggle, struggle, struggle with, 'How are we going to pay the bills, and how are we going to hire people, and how are we going to get a bigger office?' Just managing the company is so hard.
+- If you're coming from America to Iraq, then how are you supposed to be objective? I mean, you could pay lip service to being objective, but how are you going to objective when you're embedded with the Marines? The Marines are saving your life every day and they're protecting you.
+- I think the biggest issue for legacy media - both TV and film - is that it just costs too much money to develop a TV series or movie. And most of them don't work. Then the one that works has to pay for the rest.
+- If you look at film, distribution is pre-bought. If you've paid for the distribution, you say, 'I have to make sure it's a film that gets enough butts in the seats.' I think that's the problem: It becomes prohibitively expensive, and you can't develop films for a smaller amount of money.
+- Most of the time, when the mainstream media reports on something, it never tells the whole story.
+- I came to America from Canada because Canada is stultifyingly boring and incredibly hypocritical.
+- I think that Twitter and YT and blogs are keeping media more honest. Everyone can be a journalist now. Everyone is a fact checker.
+- A lot of what happens in the world is full-on crazy and doesn't get reported on.
+- I want to go to the Maldives before they sink, but just because it's the most beautiful place on earth.
+- Are my politics Democrat or Republican? I think both are horrific. And it doesn't matter anyway. Money runs America; money runs everywhere.
+- Online is a revolution. The Internet is a revolution. And we should be revolutionary in the content that we put on it rather than derivative.
+- I have the greatest life in the world because I created it.
+- TV never takes any chances; they never do anything different.
+- American media has just become talk radio, incredibly partisan name-calling and op-eds. I think the wars in Iraq and Afghanistan proved it has completely failed to act as an effective fourth estate. And young people didn't sleep through that, as is widely believed; they learned instead not to trust what they were being told.
+- It's our job to get into the hardest-to-see places and bring back the best footage - we have the best footage of North Korea ever shot. If that's a stunt, then I'll keep on doing stunts until I die.
+- I think if you look at the failure of journalism in the modern age, then I don't want to be called a journalist.
+- Gen Y consume most of their media online and mobile. Gen Y, as the Baby Boomers drop off, are the largest cohort with the largest amount of money - despite the fact that half of them are unemployed.
+- American media has just become talk radio, incredibly partisan name-calling and op-eds.
+- There are only two companies in the world that can help me. That's Facebook and Google, because they are going to make me the largest digital network in the world, which is my goal.
+- My last passport, I had North Korea, Afghanistan, Iran, Iraq, Sudan, Liberia, Guinea... I had, like, every war-torn country in there.
+- I have a place in Costa Rica that is in the middle of the jungle. There's no Internet. There's no TV. Do I work there? Hell no.
+- I never thought we had a chance of impacting anything. I am just starting to realize that we can change things - not just VICE, but all of us. In fact, we have to.
+- Do whatever interests you the most. Passion breeds success.
+- When you're 18, 19, you want to live fast and leave a beautiful corpse behind.
+- If not doing VICE, I probably would be selling Cokes on the beach in Vietnam. I like the sea.
+- Advertisers realize that Gen Y is the largest purchasing cohort. Also, that you're going to have to accept some different modes of thinking if you're going to get to them.
+- One of the shocking things when I go back to Canada is they cut off the tall trees - it's sort of like everyone's the same. Everyone's going to be the same, we're all okay. Just the, sort of, cultural, 'We're all okay.'
+- I thought I was a pretty good writer, but I didn't have anything to write about. I wanted to go out in the world, have some adventures and then write about them.
+- Everyone is trying to say, 'This is Gen Y; we're not an old company. We're not doing old content.'
+- The problem that we've had is four media companies run media, globally. And some say they're on the Right and some say they're on the Left; look, they're all afraid of losing Ford as a client. So they're all, by definition, huge companies that are going to be inherently conservative.
+- You have a lot of companies developing stuff that's just derivative. If 'The Voice' is the No. 1 show on TV, they say, 'Let's do 100 different versions of 'The Voice.' The problem is, by the time you get to market, it's already saturated, and everybody hates the format.
+- If you look not just at the Arab Spring, but at what I call the 'Youth Spring' that has started in Europe, young people are starting to find a voice, and they are not looking to the traditional media to reflect that.
+- People think because 'Vice' is irreverent and because we're crazy, we're stunt journalists. You know what? I don't actually care.
+- The greatest propaganda coup of the American Right has been to convince its citizens that we are in the grip of a liberal conspiracy. As a result, Obama is to the right of Richard Nixon on most issues. And there is we believe, certainly some space to exploit there. And we, VICE, aim to exploit it.
+- If you're big in Montreal, you're big in Quebec. If you're big in Toronto, you're big in Canada. But if you're big in New York, you're big in the rest of the world.
+- The human race is facing all kinds of problems, and all we are doing is pointing fingers and saying, 'Your interpretation of the problem is different from my interpretations of the problem.'
+- I don't care if I die - look, I'm old - but you want your kids to have good times and a good life.
+- I don't know about you, but there is nothing that's scarier than young people who have no future. If you take away someone's future, they have nothing to lose.
+- Whenever I view success, I'm dressed as Mozart on an island.
+- Once you have a certain amount of money, it ceases to be an issue. I'd rather put my cultural imprint on the fabric of life. After money, all you want is immortality.
+- I want to be like Tom Freston. Tom just flies around everywhere, gets to make movies, gets to start TV shows, hang out with cool people and do whatever he wants.
+- All I know is that when I go somewhere, I'm not an autobot. I am a human being. I am not an actor.
+- I think there are so many problems in the world today, we have to figure out how to fix them rather than point fingers at each other.
+- I want to build the next CNN with 'VICE' - it's within my grasp.
+- The greatest propaganda coup of the American Right has been to convince its citizens that we are in the grip of a liberal conspiracy.

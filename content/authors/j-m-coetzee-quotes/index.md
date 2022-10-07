@@ -1,0 +1,34 @@
++++
+author = "J. M. Coetzee"
+title = "J. M. Coetzee Quotes"
+quotes_len = "28"
+description = "the best 28 J. M. Coetzee Quotes"
++++
+- We are not by nature cruel.
+- If there were a better, clearer, shorter way of saying what the fiction says, then why not scrap the fiction?
+- As for September 11, let us not too easily grant the Americans possession of that date on the calendar. Like May 1 or July 14 or December 25, September 11 may seem full of significance to some people, while to other people it is just another day.
+- Everyone seems to see bleakness and despair in my books. I don't read them that way. I see myself as writing comic books, books about ordinary people trying to live ordinary, dull, happy lives while the world is falling to pieces around them.
+- Islamic fundamentalism in its activist manifestation is bad news. Religious fundamentalism in general is bad news. We know about religious fundamentalism in South Africa. Calvinist fundamentalism has been an unmitigated force of benightedness in our history.
+- There are works of literature whose influence is strong but indirect because it is mediated through the whole of the culture rather than immediately through imitation. Wordsworth is the case that comes to mind.
+- The end of confession is to tell the truth to and for oneself.
+- The writers who have the deepest influence on one are those one reads in ones more impressionable, early life, and often it is the more youthful works of those writers that leave the deepest imprint.
+- As you see, I do not treat the creation of fiction, that to say the invention and development of fantasies, as a form of abstract thought. I don't wish to deny the uses of the intellect, but sometimes one has the intuition that the intellect by itself will lead one nowhere.
+- I read a great deal as a child. A lot of children go through a phase of reading in a literally voracious way. It is their primary imaginative activity. Maybe that's an experience which is not so common any more with the presence of television in every home.
+- I see no marks of Wordsworths style of writing or style of thinking in my own work, yet Wordsworth is a constant presence when I write about human beings and their relations to the natural world.
+- I say that I represent this movement because my intellectual allegiances are clearly European, not African.
+- My response, a dubious and hesitant one, is that it has been and may continue to be, in the time that is left to me, more productive to live out the question than to try to answer it in abstract terms.
+- All autobiography is storytelling; all writing is autobiography.
+- The mode of consciousness of nonhuman species is quite different from human consciousness.
+- In order to be cruel we have to close our hearts to the suffering of the other.
+- There is nothing more inimical to writing than the spirit of fundamentalism. Fundamentalism abhors the play of signs, the endlessness of writing. Fundamentalism means nothing more or less than going back to an origin and staying there. It stands for one founding book and, thereafter, no more books.
+- If it is indeed impossible - or at least very difficult - to inhabit the consciousness of an animal, then in writing about animals there is a temptation to project upon them feelings and thoughts that may belong only to our own human mind and heart.
+- Lebanon, Israel, Ireland, South Africa - wherever there is a bleeding sore on the body of the world, the same hard-eyed narrow-minded fanatics are busy, indifferent to life, in love with death.
+- That has always seemed to me one of the stranger aspects of literary fame: you prove your competence as a writer and an inventor of stories, and then people clamour for you to make speeches and tell them what you think about the world.
+- In its conception the literature prize belongs to days when a writer could still be thought of as, by virtue of his or her occupation, a sage, someone with no institutional affiliations who could offer an authoritative word on our times as well as on our moral life.
+- The most important of all rights is the right to life, and I cannot foresee a day when domesticated animals will be granted that right in law.
+- Elizabeth, Lady C, claims to be writing at the limits of language. Would it not be insulting to her if I were diligently to follow after her, explaining what she means but is not smart enough to say?
+- In becoming a citizen, one undertakes certain duties and responsibilities. One of the more intangible of those duties and responsibilities is no matter what one's birth and background, to accept the historical past of the new country as one's own.
+- South African literature is a literature in bondage. It is a less-than-fully-human literature. It is exactly the kind of literature you would expect people to write from prison.
+- The idea of writer as sage is pretty much dead today. I would certainly feel very uncomfortable in the role.
+- Strictly speaking, my interest is not in legal rights for animals but in a change of heart towards animals.
+- I tend to resist invitations to interpret my own fiction.

@@ -1,0 +1,22 @@
++++
+author = "Greta Van Susteren"
+title = "Greta Van Susteren Quotes"
+quotes_len = "16"
+description = "the best 16 Greta Van Susteren Quotes"
++++
+- People often ask why I left CNN - I didn't like management. I liked my colleagues in the news gathering but the corporate culture that seized management when AOL came in (Steve Case and Gerry Levin) was disgusting.
+- A lot of people in this business are born with money or family connections.
+- Of course, every time someone does a story on plastic surgery, my name will be dragged up. I've made it safe for other people to have plastic surgery. It's no longer a bad word.
+- I've been a workaholic since I was 18.
+- My close proximity to many of the newsmakers can give me a different perspective about people in politics and what they might say than others who don't know them.
+- What person here illegally (and in his right mind), will go to the government, announce being here illegally (e.g. plead guilty), provide all sorts of information as to where that person lives etc. to get a work permit only to be a target for deportation in two years?
+- I really enjoy what I'm doing.
+- In an interview with a journalist, you look petty taking the pot shot but in a slick ad you can really do damage - including unfair damage - from afar. It is not that much different than waging a war by a drone than by hand-to-hand combat.
+- When Mrs. Bush was First Lady, she went all over the Mideast talking about breast cancer awareness and the need for early screening. She did this in places where the cultures prohibit such discussion or even detection efforts.
+- Unfortunately, this is a free society, and we're gonna have people with trucks, and people with bombs.
+- As we begin to leave Afghanistan, are we fooling ourselves about what we are leaving behind or what we have promised the people of Afghanistan? Especially the women and girls?
+- It is harder to lie in an interview. A good interview - and it can be polite - is not a one way street like a candidate controlled ad. An interview is not programmed by the candidate and so the candidate can't be exactly sure what will be asked.
+- I'm an independent type. No one tells me what to do.
+- I like really stupid comedies.
+- Let's not kid ourselves. You pick up 'The Washington Post' and find O.J. Simpson on the front page; 'serious journalists' covered Anna Nicole Smith.
+- No candidate dares to look for a new campaign model that could really enhance the democratic process. Instead we are left with the current one which makes our candidates look like hucksters.

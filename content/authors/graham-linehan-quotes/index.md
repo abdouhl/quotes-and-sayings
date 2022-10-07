@@ -1,0 +1,46 @@
++++
+author = "Graham Linehan"
+title = "Graham Linehan Quotes"
+quotes_len = "40"
+description = "the best 40 Graham Linehan Quotes"
++++
+- Of course, I'm not saying that news interviews can't be adversarial. Sometimes, you have to be nasty Columbo or we'd never get to the truth.
+- Writing 'Father Ted' with Arthur Mathews was like being hooked up to a drip full of endorphins.
+- There is no 'magic water' that you can rub on a script to make the jokes funnier.
+- I love Larry David's take on things in 'Seinfeld', which is that you shouldn't try to help people because it'll always put you into new situations which are unpleasant.
+- I'm often asked for advice on how to go about making comedy shows like the begrudgingly accepted 'IT Crowd'.
+- With piracy, people think it's about getting stuff for free. It's not - it's about getting rid of the middleman that stands between you and your enjoyment of the film or music.
+- I go up to my office and sit down in front of my computer and turn on the internet and then I don't work - that's the end of work for the day.
+- Part of the job involves thinking about things and eliminating them. You spend a lot of time coming up with ideas that are terrible and hating them and hating yourself.
+- Facebook was just John the Baptist. Twitter is the real deal.
+- The thing that changed everything for me was the Firefox browser. I was pretty bad when it came to computers - I didn't know how powerful the internet could be until I discovered tabbed browsing.
+- The writing of 'The Ladykillers' was fun. But once it goes out of your hands it's not fun, 'especially for someone who is used to being hands-on like me.
+- If you're a good writer, you don't have everybody shouting in every scene.
+- If people can spot talent rather than the talent having to come to us, then I think you might find that the quality of stuff goes up.
+- We're no good at holidays, the wife and I. We just don't have the knack. We had one good one, early on, but that was a fluke. Everything since then has been a nightmare.
+- I've always been an enormous fan of comic books and anything that captures the real in a surreal environment.
+- I used to be a film and music journalist, and wrote for different magazines in the 1990s. I still love music, but the experience destroyed my enthusiasm for film.
+- I like shows where the female characters are as funny as the male characters, not just commenting on how funny the male characters are.
+- People are very confused about how to do things on a computer, but generally, if you hover your cursor over things, it will tell you what it is.
+- Basically if you're trying to write films in England you might as well decide to hide for two years. It's just meetings with people who don't really have any money but pretend they do.
+- I have to use all these programs that cut off the internet, force me to be bored, because being bored is an essential part of writing, and the internet has made it very hard to be bored.
+- You need to tune into a different way of being funny for kids. They're learning the rhythm of a joke.
+- There are producers, like the late Geoffrey Perkins, who have truly great ideas that will fire up your synapses and show you that handing in your first draft is not the end of a horrible process, but the beginning of a beautiful one.
+- I think there is something to be said for churning things out. Motown churned out hits and there is nothing wrong with that.
+- I like working with people who respect the intelligence of their audience.
+- Audience laughter, when it's deserved, acts as a sort of fairy dust that makes funny moments not just funny, but joyous.
+- I feel that shows like 'Ted' and 'The IT Crowd' are very much more enjoyable watching with friends around a telly.
+- I'm a luddite in comparison with some of the people I follow on Twitter, but a nerd in comparison with many people. But I was always a nerd in other terms - always a big Dungeons & Dragons fan, stuff like that.
+- Father Ted' would be impossible to remake it in America. The whole situation of being Irish and being a priest in Ireland is so different than anything else in America.
+- I'm not very good in the mornings and often stay up late writing, so I get up at about 10am if I'm not on set for the day. I take our dog, Milo, for a walk before having a light breakfast and settling down to write.
+- I get contacted daily by people in America saying is there any legal way to download 'The IT Crowd', but the whole mechanism is too rigid to allow for things like that.
+- So I don't think that the default mode of aggressive interviewing is useful, because politicians just build a defence against it. In fact, they thrive on 'Today' because they know what's going to happen.
+- Whenever I write for television, I plan the story on whiteboard wallpaper in my office, using a system created by the American writer Dan Harmon. It's remarkably simple: a character wants something; they enter a new world and adapt to it; they get what they want, re-enter the old world and change.
+- Conflict is entertaining and it's the stuff of drama - or comedy - but too much conflict, or conflict that's at too high a pitch can get annoying.
+- There are some actors who come alive in front of a crowd, and if you've cast it right, there's an energy between cast and audience that can be exhilarating for both parties, then enjoyed by the audience at home.
+- The net is a very precious thing. I hate it when people discuss measures to limit it.
+- The creative process requires a period of boredom, of being stuck. That's actually a very uncomfortable period that a lot of people mistake for writer's block, but it's actually just part one of a long process.
+- Twitter is like - it's like I blinked into existence.
+- People tend to group together their favourite sitcoms and feel that they all took place in one spot named 'the past', but in fact all these sitcoms are spread over a long period of time, and all the terrible sitcoms that were on have been justifiably forgotten.
+- I think all technology should be plug and play. I would say it's easier to set up a blog than it is to change channels on your telly.
+- I'm not really good at character or plot development. I'm just interested in big comedic moments.

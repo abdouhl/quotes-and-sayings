@@ -1,0 +1,24 @@
++++
+author = "Joe Green"
+title = "Joe Green Quotes"
+quotes_len = "18"
+description = "the best 18 Joe Green Quotes"
++++
+- Causes was founded with the mission of empowering anyone to change the world. Our model is based upon the belief that everyone has the power to have an outsized impact on the world by banding together with other like-minded individuals, taking direct action, and inspiring their friends and their friends' friends to join in.
+- Without social networks, you're not the coolest thing on the Christmas list, and you're not getting any bite.
+- The way to get people civically engaged, not just during the election but throughout the year, is to tap into Facebook and let them do it with their friends.
+- The original dream of Facebook Platform was to enable developers to build experiences that were social at their core, like Facebook Photos, without having to build their own standalone social network.
+- Grassroots organizing tends to be most available to big campaigns, but it's actually most useful to small ones. You can't win a presidential campaign without going on TV, but you can win a local election simply by organizing your community. NationBuilder levels the playing field.
+- Causes brings over 140 million people together to form the world's largest giving community. The belief that everyone has something to give is at the core of what we do; people just need a little inspiration, and to know that whoever they are, there is something meaningful they can do.
+- Remember all of the 'me too' social networks built just to have a social feature Facebook and MySpace didn't have? I built one for political discussion called Essembly. It enabled unique and potentially transformative social interactions, but only 20,000 people ever used it.
+- The Internet has brought democracy to so many other things. It's about time the Internet brought democracy to democracy.
+- When all is said and done and the e-book is written about politics and the Internet, it is not going to be about the presidential election. It will be about the smaller elections in aggregate that have a huge effect on people's lives.
+- Everyone knows the presidential candidates and has an opinion about them. But as you get to smaller races, that evaporates and you can win through sheer elbow grease.
+- We could not have launched Causes without Facebook Platform, providing real identity and real friends. Facebook Platform was created so that experiences that are inherently social in our off-line lives could be brought online as an authentic expression of who we are; Facebook did this best in revolutionizing photo sharing.
+- Altruism is one of the most fundamentally social impulses, and doing things for others without expecting anything in return is core to what makes us human. This is why, from the day Facebook Platform launched in 2007, Causes has been honored to be one of the most popular applications, with over 140 million users.
+- Whatever you think of Facebook, you cannot fault it for lack of ambition.
+- People can care about changing the world. But what gets them to act is pressure and social reward.
+- I was one of the first people to join Facebook in February of 2004, and launched one of the inaugural applications on the platform in May 2007.
+- From the day Facebook launched in 2004, the profile was the most critical page on the site.
+- Facebook is developing, and so are we. Timeline is a big step in the evolution of how we manage our identity online - and it's going to make a huge difference to Causes. You are building a monument to yourself and the things that are important to you.
+- If you had told me when I was at high school that one day I would be working for a for-profit company, let alone running one, I would have said you were crazy. But I am interested in how you can empower individuals to make change, and Causes is doing just that.

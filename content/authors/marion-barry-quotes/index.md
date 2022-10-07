@@ -1,0 +1,31 @@
++++
+author = "Marion Barry"
+title = "Marion Barry Quotes"
+quotes_len = "25"
+description = "the best 25 Marion Barry Quotes"
++++
+- I like boxing.
+- White folks may let you in their country clubs to play golf, invite you out to dinner, take you out to play tennis, but when it comes to dividing up the money, that's a whole 'nother story.
+- First, it was not a strip bar, it was an erotic club. And second, what can I say? I'm a night owl.
+- What dragged me down was not being mayor - it was insecurity, the need to be accepted by everyone, the pleasure syndrome. That's what brought me down.
+- I promise you a police car on every sidewalk.
+- The laws in this city are clearly racist. All laws are racist. The law of gravity is racist.
+- What right does Congress have to go around making laws just because they deem it necessary?
+- My greatest work comes in the community.
+- This is not a sham, not a game. This is the real stuff.
+- I am making this trip to Africa because Washington is an international city, just like Tokyo, Nigeria or Israel. As mayor, I am an international symbol. Can you deny that to Africa?
+- The brave men who died in Vietnam, more than 100% of which were black, were the ultimate sacrifice.
+- Washington, D.C., had never seen my style of politics.
+- In Washington, I have worked hard for the people, and I've been loved by the people.
+- I have to admit I didn't do as much as I should have back when I was mayor, but now we're getting it done. It's not where you've been but where you're going.
+- Who can better help our city recover than someone who himself has gone through recovery?
+- I read a funny story about how the Republicans freed the slaves. The Republicans are the ones who created slavery by law in the 1600's. Abraham Lincoln freed the slaves and he was not a Republican.
+- I am clearly more popular than Reagan. I am in my third term. Where's Reagan? Gone after two! Defeated by George Bush and Michael Dukakis no less.
+- People have criticised me because my security detail is larger than the president's. But you must ask yourself: are there more people who want to kill me than who want to kill the president? I can assure you there are.
+- If you take out the killings, Washington actually has a very very low crime rate.
+- I love serving people. I love helping people empower themselves.
+- People blame me because these water mains break, but I ask you, if the water mains didn't break, would it be my responsibility to fix them then?
+- Everybody in life has something that they get knocked down on. The object lesson here is not that you get knocked down - it is that you get up.
+- Why should blacks feel elated about seeing men walk on the moon when millions of poor blacks and whites don't have enough money to buy food to eat on earth?
+- When you know more, you can do more.
+- Love is very fleeting with me. I don't know why.

@@ -1,0 +1,34 @@
++++
+author = "Nastassja Kinski"
+title = "Nastassja Kinski Quotes"
+quotes_len = "28"
+description = "the best 28 Nastassja Kinski Quotes"
++++
+- Water is always a support or a healing thing apart from, you know, love or peace of mind.
+- I want to do movies but not talk about them.
+- I want to feel good, I want to feel proud, I want to feel that I give someone enough and that I get enough.
+- And you must dare to do as many things as you dream of.
+- I wish I had had a great disappointment, a real one.
+- It's so great to love somebody and, out of that, to make a child. So that's my goal.
+- It should be only a part of my life, but it isn't. I have only one thing: my work.
+- I'd also like to do a play. I've never done theater, and constantly changing and refining a performance is something I'd like to do, even though it may sound like work to some people - and it probably is work.
+- I always have the feeling in these low states that something good is about to happen. That's when I feel the fullest, the rawest, the closest to myself.
+- I have these visions of myself being thirty, thirty-five, forty having a family.
+- You can learn so much from children, and you can give them so much.
+- Even though things happen by accident, you also unconsciously choose things that help you.
+- But when it really happens I'm very fascinated, I'm waiting for the moment, because the moment where life abandons you and death steps in, that moment must be fantastic, no?
+- I wish I played an instrument, but I could never decide which one, and I ended up playing nothing.
+- I live for being with the people I love and to live as happily as possible.
+- To be successful for a moment because of one movie doesn't mean anything.
+- I love men who make me laugh.
+- It's pleasant and bothersome and embarrassing all at once. Especially when you haven't done much and are a celebrity.
+- Water for me is so essential, like swimming.
+- I love oldies just kind of sweet, slinky, Fifties music. The slow stuff. And Billie Holiday.
+- Having children is what a woman is born for, really.
+- Actors, after all, dream.
+- It's true what people say - that actors are the closest thing there is to children. They play.
+- Not that I want everything right now; but I do want everything.
+- The years go so fast. I mean, I just realized that at the end of the year I will be twenty-two, and I just turned twenty-one.
+- You play a part, and as soon as a movie is over and the camera stops, you go home and you're not really responsible for what you've done.
+- I used to dance when I was younger - ballet and modern dance.
+- My parents found what I was interested in and encouraged me. They didn't put me in front of a television and buy lots of toys, the way some American parents do.

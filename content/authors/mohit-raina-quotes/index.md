@@ -1,0 +1,106 @@
++++
+author = "Mohit Raina"
+title = "Mohit Raina Quotes"
+quotes_len = "100"
+description = "the best 100 Mohit Raina Quotes"
++++
+- After Jama Masjid, I always stop at India Gate as exploring Delhi is never complete without visiting that place where I spent so many evenings as a child.
+- I am happy to see that it is not just me, but even my friends and family now believe in green Diwali and we celebrate together eating lots of good food and sweets.
+- Till the last breath of mine I can't really dig away Mahadev' from me. But as an actor I have to play other roles and move on.
+- I am sure the audience that looks on me as a Mahadev knows that at the end of the day, I am an actor playing a God. But that doesn't exonerate me from a social responsibility.
+- 'Kaafir' is an eight-episode series; but while shooting, you really don't know which part is for which episode.
+- I have done scenes where I've had to hold the hand of a girl and tell her that I love her. And frankly I did not enjoy that much.
+- For Ishar Singh, the only thing that mattered was his duty, service. The utmost priority was to serve the nation at any cost and be true to his people.
+- Initially when I was working on TV, people would ask why I'm not trying for films. My reply was that I was enjoying TV and had no reason to shift.
+- I think we should all try and do our bit to celebrate an eco-friendly Diwali to bring about an environmental change.
+- I used to plan a lot. I have stopped planning after 'Mahadev.'
+- Many people think that dieting is starving yourself. But that is never a right way to control your diet.
+- I believe doing projects that offer content-backed performances.
+- Had it not been for the emergence of OTT platforms, Kaafir' would still be a story on papers.
+- Being in front of the camera was very liberating for me.
+- I'm fortunate to be loved by all age groups.
+- A person should have positive attitude in his life and it will thus reflect on a healthy lifestyle.
+- Once I was in Varanasi, a man in his mid 40s came to meet me from Jalandhar. He touched my feet and asked for blessings. I was stunned. I picked him and hugged him. He said he is blessed now. I think that was the most memorable moment in my life.
+- My initial years on TV have been fulfilling with the kind of shows that I have done and the characters I have played.
+- What you eat is important and what is eating you is equally important.
+- I always wanted to be part of Mumbai's entertainment world.
+- I am from Jammu and Kashmir.
+- TV's demands are different from those of films.
+- Period dramas have their own challenges. One must work hard to ensure that you don't just embrace the character you are playing, you also have to understand the smaller nuances of the period to deliver an authentic experience.
+- 'Uri' has been made on a big scale and it's technically sound as well.
+- I expect filmmakers to look at talent and realize that the medium should open up more for TV actors too.
+- As a kid, since I was born in Kashmir, I have been to the Amarnath caves.
+- In Uri,' I got discipline; in Battle of Saragarhi,' I understood what leadership is.
+- I am happy in my own space.
+- For 'Shiddat,' I knew I had to look, feel and sound like a seasoned resident of Paris.
+- I do a 15-minute meditation and breathing exercise every day after shooting. That helps me to come out of character.
+- I don't party or socialize.
+- The problem is, Mahadev is the Supreme Being, the Ultimate God. I've already played the Supreme Power. After one climbs the Himalayan peak, one can only go down from there. Any thing I do, any God I play would be a climb-down.
+- I want to constantly do better and better as an actor in Mahadev' and hope audiences will go on showering their love on the show.
+- My marriage will happen when Almighty sends a message.
+- He is Lord Shiva and Lord Shiva is a sexy god. The plan was to show him as being sexy. And that worked for us. I don't take the credit for the character at all.
+- I have made peace with the fact that Mahadev is going to be with me forever. The character had a universal appeal.
+- Considering that I am playing Mahadev, I need to look fit all the time. To achieve this, I workout six days a week.
+- I have a very strange connect with Lucknow. Though I have never got an opportunity to come to Lucknow, I have been hearing about the city from my mom for the past 30 years!
+- I need to show my toned muscles because I will be always in Lord Shiva's look and people will get to see my bare body.
+- I have always maintained that my personal and professional life is completely apart.
+- It is very exciting to be in a period drama like 21 Sarfarosh: Saragarhi 1897.'
+- When Lakshya' released, people wanted to join the army. It's been quite some gap since then, but Uri' will bring out those emotions in you.
+- I'm not holding on to Mahadev. The audience is.
+- I was in the hospital for 15 days. This was the first time I was in a hospital for such long period, and that too, in a COVID ward where you don't get to interact with anyone.
+- I'm a very boring person.
+- Once, Mr. Bachchan had come to inaugurate a restaurant and I barged in to shake hands with him.
+- I was more than happy making my own path.
+- I'm not at all shy.
+- I was in the NDA (National Defence Academy) when the Kargil war happened, and I was all set to join the Indian Army. But my family was not keen. In addition to that, I got rejected because of my poor eyesight.
+- I work for creative satisfaction. It's my hunger for good work that motivates me to explore.
+- I go to the gym at least five days a week and also go for a run whenever possible.
+- I never entered the industry with hopes of making it big instantly.
+- I am a complete foodie.
+- I don't feel an image can really bind an actor.
+- I was also a fat kid, trying to go to college and just study and grow up with friends. At that time, fitness was not at its boom.
+- I plan my meals according to my body weight.
+- For me fitness is not only having a good physique but it is the overall lifestyle which I follow in my life.
+- Since Mahadev' ended, I was waiting to play more larger than life characters.
+- I start my day with a glass of warm water.
+- Any character that has a reference or baggage or emotional trauma, I personally feel, leaves an impact.
+- As an adult, I have got few chances to visit Delhi's places such as Chandni Chowk or Janakpuri, but my connection to these places is still strong, as I would go there as a child.
+- Being someone who has always been fascinated by the forces, it is a great honor to play Havildar Ishar Singh, who sacrificed everything for his country. To live his life for seven months while shooting will always be a special experience for me.
+- If there is a good story, I will take it up.
+- Dharma Productions' films are mounted on a grand scale; a TV show cannot match it.
+- Is there a God superior to Mahadev? I don't think so. If there was, I would have done it.
+- I respect my privacy and don't believe in posting everything that goes in my life.
+- For me, playing Mahadev has been the biggest challenge, honor and satisfaction.
+- I didn't want to miss the chance of working in a film like Uri.'
+- I have not spoken about my personal life earlier and I choose to maintain that.
+- Lucknow University looks amazing all lit up during night time.
+- Wherever I go people start calling me lord Shiva. It feels awesome.
+- The kind of attention I get is way beyond my comprehension.
+- When it rains, I do a lot of indoor exercises; when its pleasant, I play a lot of tennis and do swimming, and opt for outdoor sports and running.
+- I remember when we used to come to Delhi, my cousins and I would binge on possibly everything that we craved for back home.
+- The writer of Kaafir,' Bhavani Iyer had to keep the story with her for 13 years, the producer, Siddharth Malhotra, could only provide justice to the story after struggling for eight years.
+- There was a lot of unlearning to be done when I moved from TV to films.
+- Maintaining a beard is serious business.
+- I have always been fascinated by the uniform and the army.
+- When I was in college, the Kargil War had just happened, and I remember going with my friends on a bike to collect empty shells.
+- I used to go with my father to buy phooljharis and chakris and there used to be Sabu' crackers in the market back then. Since Sabu was my favorite superhero, I would buy Sabu crackers just to collect the wrappers.
+- I don't make any plans, as life never happens according to plans.
+- I search for thrill in my characters because I am a boring person.'
+- Yes, my mom has studied at Lucknow University. She used to tell me various things about this place. She used to live in Indira Nagar and her extended family still lives here.
+- Maybe after Kaafir,' big producers will trust me with solo projects. They would be able to believe that I can shoulder a film.
+- Every character gives you something or the other, and you can't calculate it unless you are living the character. You learn something about the character that stays with you.
+- Fitness is easy to achieve but very difficult to maintain. Therefore, it becomes a life-long process which you have to live with and need to be extremely disciplined.
+- Both mythology and history interest me.
+- I have always been an animal lover and I had pet dogs at home. On the day of Diwali, they would be so disturbed and scared that they would hide in a corner and would not come out. I had decided then that I would stop buying crackers on Diwali.
+- Nobody wants to marry a God. Once I become a human being, there will definitely be marriage proposals.
+- Rajma chawal is my all-time favorite dish.
+- I participated in Grasim's Mr. India contest in 2006. That's how it all started for me.
+- I hardly eat sweets and I've cut down on carbs.
+- You have to be flexible according to patterns and needs of director.
+- One can't let success go to the head or failure pull you down.
+- Since I grew up in Jammu, all my school and college friends are from there and the area's language, Dogri, is slightly similar to Punjabi, so I understand a bit of Punjabi.
+- All I do is shoot and go to the gym.
+- India is known to be a peace-loving country, we try to keep our peace treaties intact with other countries.
+- People have gotten to know I visit the gym every day. They are there to meet me every day.
+- At a time when mythologicals were considered obsolete, Devon Ke Dev Mahadev' revived the genre.
+- It just clicks when you meet the right person.

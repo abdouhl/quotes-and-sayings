@@ -1,0 +1,118 @@
++++
+author = "James E. Faust"
+title = "James E. Faust Quotes"
+quotes_len = "112"
+description = "the best 112 James E. Faust Quotes"
++++
+- Being bridled, or yielding obediently to restraint, is necessary for our personal growth and progression.
+- In the pain, the agony, and the heroic endeavors of life, we pass through a refiner's fire, and the insignificant and the unimportant in our lives can melt away like dross and make our faith bright, intact, and strong.
+- I testify that inspiration can be the spring for every person's hope, guidance, and strength. It is one of the magnified treasures of life. It involves coming to the infinite knowledge of God.
+- I solemnly declare that this spiritual kingdom of faith will move forward with or without each of us individually. No unhallowed hand can stay the growth of the Church nor prevent fulfillment of its mission. Any of us can be left behind, drawn away by the seductive voices of secularism and materialism.
+- Why does the Church grow and flourish? It does so because of divine direction to the leaders and members.
+- Some of our important choices have a time line. If we delay a decision, the opportunity is gone forever. Sometimes our doubts keep us from making a choice that involves change. Thus an opportunity may be missed.
+- All of us suffer some injuries from experiences that seem to have no rhyme or reason. We cannot understand or explain them. We may never know why some things happen in this life. The reason for some of our suffering is known only to the Lord.
+- We make no greater voluntary choice in this life than the selection of a marriage partner. This decision can bring eternal happiness and joy. To find sublime fulfillment in marriage, both partners need to be fully committed to the marriage.
+- A leader must be a good listener. He must be willing to take counsel. He must show a genuine concern and love for those under his stewardship.
+- All parents hope and pray that their children will make wise decisions. Children who are obedient and responsible bring to their parents unending pride and satisfaction.
+- I believe there is a strong familial pull as the influence of beloved ancestors continues with us from the other side of the veil.
+- I believe that every person's individual testimony of Jesus as the Christ comes as a spiritual gift. No one can successfully dispute or challenge it because it is so personal a gift to the one to whom it has been given.
+- The transcendent gift of the Holy Ghost, along with membership in The Church of Jesus Christ of Latter-day Saints, is bestowed by confirmation, by the laying on of hands by those having priesthood authority.
+- Cheating in school is a form of self-deception. We go to school to learn. We cheat ourselves when we coast on the efforts and scholarship of someone else.
+- Searching for our kindred dead isn't just a hobby. It is a fundamental responsibility for all members of the Church. We believe that life continues after death and that all will be resurrected.
+- To turn our hearts to our fathers is to search out the names of our deceased ancestors and to perform the saving ordinances in the temple for them. This will forge a continuous chain between us and our forefathers eventually all the way back to Father Adam and Mother Eve.
+- Just as the earth is a planet in its own right, so each of us is an individual in our own sphere of habitation. We are individuals, but we live in families and communities where order provides a system of harmony that hinges on obedience to principles.
+- When I was a deacon, my father took me and my older brother to general priesthood meeting in the Tabernacle. I remember how thrilled I was to be in the presence, for the first time, of the prophet of God, President Heber J. Grant, and the other prophets and apostles.
+- As the Only Begotten Son of the Father in the flesh, Jesus inherited divine attributes. He was the only person ever born into mortality who could perform this most significant and supernal act.
+- If children are expected to be honest, parents must be honest. If children are expected to be virtuous, parents must be virtuous. If you expect your children to be honorable, you must be honorable.
+- The holy scriptures as well as the local and General Authorities of the Church provide a safety net of counsel and guidance for the people of the Church.
+- I am profoundly grateful that all of my life I have had a simple faith that Jesus is the Christ. That witness has been confirmed to me hundreds of times. It is the crowning knowledge of my soul. It is the spiritual light of my being. It is the cornerstone of my life.
+- The great vicarious work for our kindred dead in our temples demonstrates both the justice and the fairness of the gospel of Jesus Christ.
+- I feel deeply my responsibility to teach sacred things. I am so aware that the world is changing and will be vastly different from the one I have known. Values have shifted. Basic decency and respect for good things are eroding.
+- Obedience brings peace in decision making. If we have firmly made up our minds to follow the commandments, we will not have to redecide which path to take when temptation comes our way.
+- A rebirth out of spiritual adversity causes us to become new creatures.
+- What is discipleship? It is primarily obedience to the Savior. Discipleship includes many things. It is chastity. It is tithing. It is family home evening. It is keeping all the commandments. It is forsaking anything that is not good for us.
+- For those whose faith has faded, the reasons may be real to them, but these reasons do not change the reality of what Joseph Smith restored.
+- Each woman brings her own separate, unique strengths to the family and the Church. Being a daughter of God means that if you seek it, you can find your true identity.
+- Without moral progress, stimulated by faith in God, immorality in all its forms will proliferate and strangle goodness and human decency. Mankind will not be able to fully express the potential nobility of the human soul unless faith in God is strengthened.
+- What is worthy or unworthy on the Sabbath day will have to be judged by each of us by trying to be honest with the Lord. On the Sabbath day, we should do what we have to do and what we ought to do in an attitude of worshipfulness and then limit our other activities.
+- Many think that the price of discipleship is too costly and too burdensome. For some, it involves giving up too much. But the cross is not as heavy as it appears to be. Through obedience, we acquire much greater strength to carry it.
+- When holiness is achieved by conforming to God's will, one knows intuitively that which is wrong and that which is right before the Lord. Holiness speaks when there is silence, encouraging that which is good or reproving that which is wrong.
+- I acknowledge with great gratitude the peace and contentment we can find for ourselves in the spiritual cocoons of our homes, our sacrament meetings, and our holy temples.
+- We are bombarded on all sides by a vast number of messages we don't want or need. More information is generated in a single day than we can absorb in a lifetime. To fully enjoy life, all of us must find our own breathing space and peace of mind.
+- I have sometimes questioned the advice and direction I received from my parents and grandparents, but I never questioned the fact that they loved me. I learned that they were in a better position to know more about right and wrong than I did from my limited understanding and from my limited experience.
+- It is a mistake for women to think that life begins only with marriage. A woman can and must have an identity and feel useful, valued, and needed whether she is single or married. She must feel that she can do something for someone else that no one else ever born can do.
+- The overwhelming message of the Atonement is the perfect love the Savior has for each and all of us. It is a love which is full of mercy, patience, grace, equity, long-suffering, and, above all, forgiving.
+- To those who believe but wish their belief to be strengthened, I urge you to walk in faith and trust in God. Spiritual knowledge always requires an exercise of faith.
+- I believe that the appearance of God the Father and His Son, the Lord Jesus Christ, in 1820 to Joseph Smith unlocked the heavens not only to the great spiritual knowledge revealed in this dispensation but also to secular knowledge.
+- Although science and technology open up boundless opportunities, they also present great perils because Satan employs these marvelous discoveries to his great advantage.
+- I have been grateful for the influence of my grandmother and my grandfather in my life. I remember my grandmother as a queenly woman. My father could be stern, and my grandparents would remind him that we were just boys.
+- No one ever had a better father than I did. Father was a disciplinarian, and Mother was a very loving woman who taught us out of the scriptures. The Book of Mormon was her favorite.
+- Honesty is more than not lying. It is truth telling, truth speaking, truth living, and truth loving.
+- Discipleship does not come from positions of prominence, wealth, or advanced learning. The disciples of Jesus came from all walks of life.
+- I personally claim no special insight into Satan's methods, but I have at times been able to identify his influence and his actions in my life and in the lives of others. When I was on my first mission, Satan sought to divert me from my future path and, if possible, to destroy my usefulness in the Lord's work.
+- As you seek to know the will of our Heavenly Father in your life and become more spiritual, you will be far more attractive, even irresistible. You can use your smiling loveliness to bless those you love and all you meet, and spread great joy.
+- I know with all my heart and soul that God lives. I believe He will enlighten our lives with His love for each of us if we strive to be worthy of that love, in the holy name of Jesus Christ, amen.
+- Let us not become so intense in our zeal to do good by winning arguments or by our pure intention in disputing doctrine that we go beyond good sense and manners, thereby promoting contention, or say and do imprudent things, invoke cynicism, or ridicule with flippancy.
+- Unfortunately, some of our greatest tribulations are the result of our own foolishness and weakness and occur because of our own carelessness or transgression.
+- Femininity is not just lipstick, stylish hairdos, and trendy clothes. It is the divine adornment of humanity. It finds expression in your qualities of your capacity to love, your spirituality, delicacy, radiance, sensitivity, creativity, charm, graciousness, gentleness, dignity, and quiet strength.
+- Our Redeemer took upon Himself all the sins, pains, infirmities, and sicknesses of all who have ever lived and will ever live.
+- In many ways, each of us is the sum total of what our ancestors were. The virtues they had may be our virtues, their strengths our strengths, and, in a way, their challenges could be our challenges.
+- As a young man, I lived through the Great Depression, when banks failed and so many lost their jobs and homes and went hungry. I was fortunate to have a job at a canning factory that paid 25 cents an hour.
+- We unavoidably stand in so many unholy places and are subjected to so much that is vulgar, profane, and destructive of the Spirit of the Lord that I encourage our Saints all over the world, wherever possible, to strive to stand more often in holy places.
+- Being a father or a mother is not only a great challenge, it is a divine calling. It is an effort requiring consecration.
+- Keeping the Sabbath day holy is much more than just physical rest. It involves spiritual renewal and worship.
+- The President of the Church will not lead the people of the Church astray. It will never happen.
+- Homemaking is whatever you make of it. Every day brings satisfaction along with some work which may be frustrating, routine, and unchallenging. But it is the same in the law office, the dispensary, the laboratory, or the store. There is, however, no more important job than homemaking.
+- Now, a leader must cause things to happen and lives to be affected. Something should move and change. He must see that those under him do not fail. But it should be done in the Lord's way.
+- Most of us need time to work through pain and loss. We can find all manner of reasons for postponing forgiveness. One of these reasons is waiting for the wrongdoers to repent before we forgive them. Yet such a delay causes us to forfeit the peace and happiness that could be ours.
+- For women, the important ingredients for happiness are to forge an identity, serve the Lord, get an education, develop your talents, serve your family, and, if possible, to have a family of your own.
+- The priesthood of God is a shield. It is a shield against the evils of the world. That shield needs to be kept clean; otherwise, our vision of our purpose and the dangers around us will be limited.
+- God and His Son are glorified personages. God the Father is our living Creator, and His Son, Jesus Christ, is our Savior and Redeemer. We have been created in God's image.
+- The full benefit of forgiveness of sin through the Savior's Atonement begins with repentance and baptism and then expands upon receiving the Holy Ghost.
+- One of the most difficult parental challenges is to appropriately discipline children. Child rearing is so individualistic. Every child is different and unique. What works with one may not work with another.
+- We hear many persuasive voices demanding freedom from restrictions, particularly from moral restraints. However, we learn from the history of the earth that any successful society has had boundaries.
+- The evil influence of Satan would destroy any hope we have in overcoming our mistakes. He would have us feel that we are lost and that there is no hope. In contrast, Jesus reaches down to us to lift us up.
+- I have the greatest respect for single parents who struggle and sacrifice, trying against almost superhuman odds to hold the family together. They should be honored and helped in their heroic efforts. But any mother's or father's task is much easier where there are two functioning parents in the home.
+- All women have appealing features. I do not refer to model-type appeal, but rather that which comes from your personality, your attitude, and your expressions. I urge you to enhance the natural, God-given, feminine gifts with which you have been so richly blessed.
+- If we can find forgiveness in our hearts for those who have caused us hurt and injury, we will rise to a higher level of self-esteem and well-being.
+- A grateful heart is a beginning of greatness. It is an expression of humility. It is a foundation for the development of such virtues as prayer, faith, courage, contentment, happiness, love, and well-being.
+- When we tell little white lies, we become progressively color-blind. It is better to remain silent than to mislead.
+- If we look upon fulfilling of assignments as building the kingdom of God and as being an opportunity as well as a privilege and an honor, then assignments and challenges should certainly be given to every member of the quorum.
+- As with all commandments, gratitude is a description of a successful mode of living. The thankful heart opens our eyes to a multitude of blessings that continually surround us.
+- The Holy Ghost bears witness to us of the truth and impresses upon our souls the reality of God the Father and His Son, Jesus Christ, so surely that no earthly power or authority can separate us from that knowledge.
+- Femininity is part of the God-given divinity within each of you. It is your incomparable power and influence to do good. You can, through your supernal gifts, bless the lives of children, women, and men. Be proud of your womanhood. Enhance it. Use it to serve others.
+- The depth of the love of parents for their children cannot be measured. It is like no other relationship. It exceeds concern for life itself. The love of a parent for a child is continuous and transcends heartbreak and disappointment.
+- When someone died in the wilderness of frontier America, that person's physical remains were buried and the handcarts continued west, but the mourning survivors had hope for their loved one's eternal soul. However, when someone dies spiritually in the wilderness of sin, hope may be replaced by dread and fear for the loved one's eternal welfare.
+- Without question, we need to be informed of the happenings in the world. But modern communication brings into our homes a drowning cascade of the violence and misery of the worldwide human race. There comes a time when we need to find some peaceful spiritual renewal.
+- For many, living a Christlike life every day may be even more difficult than laying down one's life.
+- While few human challenges are greater than that of being good parents, few opportunities offer greater potential for joy. Surely, no more important work is to be done in this world than preparing our children to be God-fearing, happy, honorable, and productive.
+- To receive all of the promised blessings, we must accept the gospel in faith and in full. However, this certain faith does not usually come all at once. We learn spiritually line upon line and precept upon precept.
+- Unfortunately, some of our poor choices are irreversible, but many are not. Often, we can change course and get back on the right track.
+- It is not good practice to become intrigued by Satan and his mysteries. No good can come from getting close to evil.
+- Holiness is the strength of the soul. It comes by faith and through obedience to God's laws and ordinances. God then purifies the heart by faith, and the heart becomes purged from that which is profane and unworthy.
+- A conviction that you are a daughter of God gives you a feeling of comfort in your self-worth. It means that you can find strength in the balm of Christ. It will help you meet the heartaches and challenges with faith and serenity.
+- Peace in this life is based upon faith and testimony. We can all find hope from our personal prayers and gain comfort from the scriptures. Priesthood blessings lift us and sustain us. Hope also comes from direct personal revelation, to which we are entitled if we are worthy.
+- Among the other values children should be taught are respect for others, beginning with the child's own parents and family; respect for the symbols of faith and the patriotic beliefs of others; respect for law and order; respect for the property of others; respect for authority.
+- If there were no night, we would not appreciate the day, nor could we see the stars and the vastness of the heavens. We must partake of the bitter with the sweet. There is a divine purpose in the adversities we encounter every day. They prepare, they purge, they purify, and thus they bless.
+- Hope is the anchor of our souls. I know of no one who is not in need of hope - young or old, strong or weak, rich or poor.
+- Women have full equality with men before the Lord. By nature, the roles of women differ from those of men. This knowledge has come to us with the Restoration of the gospel in the fullness of times, with an acknowledgment that women are endowed with the great responsibilities of motherhood and nurturing.
+- Boys and girls, have confidence in the direction and counsel and advice of your parents and grandparents who love you more than anybody else in the world does.
+- Others can challenge and motivate us, but we must reach down deep into our souls and call forth our God-given intelligence and capabilities. We cannot do this when we depend on the efforts of someone else.
+- To be a good father and mother requires that the parents defer many of their own needs and desires in favor of the needs of their children. As a consequence of this sacrifice, conscientious parents develop a nobility of character and learn to put into practice the selfless truths taught by the Savior Himself.
+- As a child, when I lost things such as my precious pocketknife, I learned that if I prayed hard enough, I could usually find it. I was always able to find the lost cows I was entrusted with. Sometimes I had to pray more than once, but my prayers always seemed to be answered.
+- I confess that as a young boy, Sunday was not my favorite day. Grandfather shut down the action. We didn't have any transportation. We couldn't drive the car. He wouldn't even let us start the motor. We couldn't ride the horses, or the steers, or the sheep.
+- Our greatest hope comes from the knowledge that the Savior broke the bands of death. His victory came through His excruciating pain, suffering, and agony. He atoned for our sins if we repent.
+- Secularism does not accept many things as absolutes. Its principal objectives are pleasure and self-interest. Often, those who embrace secularism have a different look about them.
+- Young women should realize that young men they date will not honor and respect them if they have been involved in moral transgression.
+- In my long life I have found peace, joy, and happiness beyond my fondest hopes and dreams. One of the supreme benedictions of my life has been my marriage to an elect daughter of God. I love her with all my heart and soul.
+- Latter-day Saints, having received the gift of the Holy Ghost by the laying on of hands, are entitled to personal inspiration in the small events of life as well as when they are confronted with the giant Goliaths of life.
+- Ever since Adam's day, the divine law of the Sabbath has been emphasized repeatedly over the centuries more than any other commandment. This long emphasis alone is an indication of its importance.
+- An essential part of teaching children to be disciplined and responsible is to have them learn to work.
+- Free agency, given us through the plan of our Father, is the great alternative to Satan's plan of force. With this sublime gift, we can grow, improve, progress, and seek perfection.
+- In this life, we have to make many choices. Some are very important choices. Some are not. Many of our choices are between good and evil. The choices we make, however, determine to a large extent our happiness or our unhappiness, because we have to live with the consequences of our choices.
+- Leaders receive and give assignments. This is an important part of the necessary principle of delegating. No one appreciates a willing volunteer more than I, but the total work cannot be done as the Lord wants it done merely by those doing the work who may be present at meetings.
+- We learn much of parenting from our own parents. My love for my father deepened profoundly when he was kind, patient, and understanding.
+- Modern conveniences grant us more free time to focus on spiritual needs and devote more time to personal service. But the basic element which should never change in the lives of righteous young women is giving service to others.
+- Hope is trust in God's promises, faith that if we act now, the desired blessings will be fulfilled in the future.
+- We were called, male and female, to do great works with separate approaches and separate assignments.
+- I remember the day of my baptism very vividly. I was baptized in the baptismal font in the Tabernacle on Temple Square. Those who were being baptized put on white coveralls, and one by one were gently taken down the steps into the water.

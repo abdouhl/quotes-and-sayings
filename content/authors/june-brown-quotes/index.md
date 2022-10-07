@@ -1,0 +1,106 @@
++++
+author = "June Brown"
+title = "June Brown Quotes"
+quotes_len = "100"
+description = "the best 100 June Brown Quotes"
++++
+- I find when I get on set that my energy comes.
+- I've known great happiness.
+- I don't like spending money.
+- I get lots of letters, and I reply to them all personally.
+- I can play CDs and I can use an ordinary mobile.
+- I got a grant for the Old Vic Theatre School in London, which had just started. It was only five terms; they used to break you down and never quite put you together again but it was an excellent training.
+- I've had two pensions each that have gone down by 50%.
+- I used to take the children to work with me.
+- When I was 17-and-a-half I volunteered for the Wrens. I auditioned for a play and we took it round the Southern Command area and I really enjoyed it. I got laughs and that was when the bug got me.
+- Turmeric is good for the brain.
+- In 1930, when I was three and my sister was four, my father sent us to Miss Tracy's, a little 'dame's school' in Ipswich. I do remember playing with an abacus. He took us away after a term because he thought we weren't learning anything.
+- I am never going to be made a Dame doing Dot.
+- I don't believe anything is going to happen until it does, until you see your name on a paper or it actually happens and you have something in your hand.
+- I felt an intense loneliness after my sister died. I was seven at the time, she was eight, and I realised after her death that she accepted me for who I was.
+- You've always got to have something to say, haven't you? For an interview. Something to talk about.
+- I trust that I will die well.
+- All the women in 'Coronation Street' and 'Brookside,' they are all so funny. A lot of women bore me, but I love the strong women in soaps.
+- I say sorry for everything.
+- I'm absolutely pedantic about language; it must go back to my schools.
+- I want to wear colours that cheer people. Forget all this navy and beige and black.
+- I don't want a retainer for 'EastEnders,' I've left. I've left for good.
+- I usually have about 16 pills a day of various descriptions - I also have minerals from Salt Lake City and amino acids that get sent to me from Australia.
+- I never touch fast food.
+- I always felt Dot was one of those characters who should stay the same. She's a simple creature.
+- I've never entertained the idea of retiring because I've never regarded myself as having a proper job. Anyway, retirement can be the death of you.
+- I don't want to be a burden to anyone.
+- I didn't know much about the East End and I didn't go trudging round to research it - couldn't be bothered with all that - but my grandmother was a cockney so I used her voice for Dot. I don't think it sounded very real at the beginning.
+- I was quite a clever child, I don't know what happened later on.
+- Many gays have a good sense of humour and they like the wit I hopefully put into my performances.
+- You've got to laugh in the face of disappointment.
+- It's much easier for me to cry and do all those things on the stage than in real life.
+- The elderly in Britain aren't really given enough respect.
+- My thirties were ruined by being pregnant. I loved my babies but I had been quite successful before I had them, playing Lady Macbeth and Hedda Gabler, one of my favourite roles.
+- I don't bother with computers, although I have an electronic reader.
+- I would be happy if I were Jesus. I'd like to fix everyone else's problems more than my own.
+- I'm not a star, darling.
+- I'm technology illiterate.
+- I was having the worst year of my life before the offer from 'EastEnders' came through. I was 58, my kids were grown up, and I had no money and few offers.
+- When you're acting you are in love with someone, it's very hard not to think you are.
+- I love my children but it was a lot of work.
+- Sometimes I'll feel down and realise it's because of a depressing plot.
+- I never had the money to start a pension - I didn't start to make any real money until I was 58 - and now it's not worth much.
+- I was taught at my drama school that it's not what you feel, it's what you make the audience feel.
+- I'm not bragging but I used to be rather beautiful, with lovely legs, and people would always ask me to dance. But suddenly people didn't take any notice of me any more. I was at a party in my 50s and was forced to dance with a chair because nobody wanted to dance with me.
+- My life is just - logistics - fitting everything in.
+- No, I wouldn't vote Labour, dear, if you paid me. I vote Conservative.
+- I wish it were September 1948 and I wish I were 21 again.
+- Just pray for your health and strength, hearing and eyesight, and an active mind.
+- Acting is a very strange thing. It isn't about trying to feel, for me, it is about thinking.
+- I think I can do things better than other people, which is dreadful.
+- It is dangerous to have a favourite word.
+- I do pray about my sight - maybe it will return.
+- I'm always doing that, going off at a tangent.
+- It's a dreadful thing to be strapped for cash when you are elderly. It's awful when you're young, too, but you always have hope.
+- I've got very poor sight.
+- I like silence.
+- I could have played Dot as a very dreary woman with a list of illnesses, but I played her with an edge, so it was funny.
+- An actor needs his voice.
+- My sister happened to look at The Times, and there was advertised the Old Vic theatre school. I wrote, I suppose, and got an audition. They said I was in, so I burst into tears, because in those days I cried when I was happy and I cried when I was sad.
+- I can't say my life has been dominated by tragedy. I refuse to accept that. I've had less than some, more than others.
+- I've got extra lenses inside my eyes to try to help me read better. They help with peripheral vision, but I've got no central vision.
+- I'm a perfectionist - but as someone once said, 'What else is there to be?'
+- I can't go out socially. I never go to soap awards now. I don't recognize people I know and they would think that I was snubbing them.
+- I was a procrastinator and a bookworm but I passed all my School Certificate exams, the equivalent of O-levels; I got three distinctions, three honours and three good passes.
+- My views are politically incorrect. Such as why we allow children to say what they think. It's not how to bring up children. And now people give their children choices, like what they want to eat. Kids can't deal with choices.
+- If your sight is poor, there's very little you can do.
+- I would not like to go into a care home. That's my worst fear. I like my own home and would like to die here.
+- If I'd stayed at home I'd have married as a virgin. But, in the heady post-war years, I fell in love all the time.
+- I've had tragedy in my life, but I think that gives me a depth that I can bring to my work. I'd like to see more older women on TV because they can bring that life experience and emotion to a performance.
+- Don't like makeup. I don't use it much unless I go out - I think it makes you look older.
+- I can see where everything is around the house but nothing's clear.
+- Sometimes I wonder if I loved anybody, and yet I think of all the tears I shed and the heartache. It was all such a waste of time.
+- I wasn't a natural mother.
+- I didn't want my book to be soapy - maybe it's my vanity but I think I can write better than that.
+- I don't want to live to be 100.
+- I would not want to be unable to talk. Imagine not being able to talk when you're a talkative person.
+- I can talk through anything. I even talked while I was having my tonsils removed in Ardentinny when I was in the ATS.
+- I am very bossy.
+- I think when you are older, you should be slowing down, but I wouldn't like not to work as I would get rather miserable.
+- My handwriting was so good I won a prize, a cardboard cut-out of a farmyard; my mother threw it away when we moved.
+- Personally my mind needs occupying. If it isn't, it goes all over the place.
+- The Old Vic is special to me because that's where I began. I lived in New Bond Street in London in a flat that cost 4.20 a week. I split the rent with friends. We used to go to concerts, theatres, we went to the Proms.
+- I've played two people simultaneously for 35 years.
+- I never wanted to be an actress. I wanted to go into the medical professional. Acting was not important enough. That was a hobby - nothing to do with what you did in life.
+- Characters can get under your skin when you play them for a long time.
+- There are some people who the same things happen to them again and again. They never learn.
+- I've always been afraid of being poor when I'm old.
+- I was always taught to say thank you for everything, good or bad.
+- A little girl once wrote to me saying she was coming to live with me - because Dot always stuck up for her son.
+- At 16 I was very interested in palmistry. The fate line on my right palm broke into two parts that ran for a quarter of an inch on parallel tracks. I used to look at it and wonder, 'What will happen?'
+- I was not a witty girl.
+- I think that's why a lot of people are very lonely and get ill when they're older, because I think loneliness and having no motivation, nothing to work towards... I think it kills you.
+- As long as I am capable of working, and can learn lines and move around, I will carry on. I'd be utterly bored if I stopped.
+- I like the golf and the snooker, too.
+- I was always in love, constantly.
+- I miss Bob, but I don't want another marriage.
+- I watch 'News At Ten' and 'Loose Women' and that gives me all I need to know.
+- Old people are considered worthless fuddy-duddies and often overlooked, which makes them sink into loneliness. I noticed it as soon as I started to age.
+- I can't afford to retire.
+- In fact I became so punctual I used to be in an hour before I should be.

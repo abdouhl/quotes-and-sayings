@@ -1,0 +1,29 @@
++++
+author = "Sunny Deol"
+title = "Sunny Deol Quotes"
+quotes_len = "23"
+description = "the best 23 Sunny Deol Quotes"
++++
+- I don't want to be known for bad things in life, ever. I should be known for my work. People should love me for my work.
+- I have had my share of brawls, for I am someone who takes a stand.
+- My audiences who love me don't mind me dancing with two left feet.
+- I am an entertainer. Cinema is entertainment. It is nothing more than that.
+- While I always thought of making sequels to movies like 'Ghayal,' the filmmakers would almost always veto the idea.
+- I am happy with my family and my colleagues and want to continue making my own kind of cinema. I have never belonged to any camp and have no friends in the industry. Most of them will pay lip service, but when it comes to doing, they tend to shy away.
+- I would say one must just keep working hard and not lose faith. You don't know when destiny is going to come your way, what opportunity comes your way.
+- I have seen quite a lot of things in life. I would not like to change anything. Because every moment of my life has taught me something.
+- I should be known for my work and not how I promote myself and what I do.
+- Age is just a number for me! A person is as young as he feels.
+- My production company wasn't doing well, so we were not producing films. Over a period of time, we have realized that we are going to produce our own films and make cinema that we like. We've got so much in-house talent, and my kids are going to be coming, so we all decided that we are going to be in films and cinema.
+- Without romance, films will be boring. I doubt if people now understand romance, though they may claim it otherwise. I am very romantic in real life.
+- Bollywood directors are like cricketers where in one match you score a century, and in the next match, you are out for a duck! Moreover, very few directors are consistent in Bollywood.
+- I still don't understand why the tag of 'action hero' follows me. My films have all these elements - romance, action and comedy. None of the fight sequences of my character is an act of randomness. There's a reason to action in my films.
+- Usually, family films have characters speaking with each other with much dignity and respect.
+- I want to do action which is larger than life but has a touch of reality.
+- Today films are made to cater to commercial markets created by multiplexes, not for those who enjoy good cinema.
+- At one time, late Yash-ji, too, wanted to do two to three films, but somehow, I am not the kind to do too many things at the same time. I like to take it slow and steady.
+- To me, the box-office is basically the cost of film. If your film costs so much and your box-office is so much and a bit more, you are okay.
+- My films have always been considered the benchmark in action. I have a big responsibility to shoulder.
+- I was both loved and hated for being upfront. But I was just being myself.
+- I have always been running away from dance numbers. That's been my problem.
+- 'Yamla Pagla Deewana' is not slapstick but a situation based comedy.

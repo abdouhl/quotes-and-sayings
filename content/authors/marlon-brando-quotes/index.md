@@ -1,0 +1,32 @@
++++
+author = "Marlon Brando"
+title = "Marlon Brando Quotes"
+quotes_len = "26"
+description = "the best 26 Marlon Brando Quotes"
++++
+- Acting is the expression of a neurotic impulse. It's a bum's life. Quitting acting, that's the sign of maturity.
+- If there's anything unsettling to the stomach, it's watching actors on television talk about their personal lives.
+- The caste system may be more highly developed in countries like India or England, but every tier of society in almost every culture tries to dominate a group it perceives as beneath it.
+- At Libertyville High, I was a bad student, chronic truant, and all-round incorrigible. I was forever being sent to the principal's office to be disciplined.
+- We'd all like to be certain of what we know, but I think the most important question is to ask yourself do you really know what you know?
+- Our family always had animals, but they became more important to me as the years passed because they helped me deal with the absence of love.
+- Never confuse the size of your paycheck with the size of your talent.
+- Most of my childhood memories of my father are of being ignored. I was his namesake, but nothing I did ever pleased or even interested him. He enjoyed telling me I couldn't do anything right.
+- If we are not our brother's keeper, at least let us not be his executioner.
+- I don't think that people generally realize what the motion picture industry has done to the American Indian, as a matter of fact, all ethnic groups. All minorities. All non-whites. People just simply don't realize. They take it for granted that that's the way people are going to be presented and that these cliches are just going to be perpetuated.
+- With women, I've got a long bamboo pole with a leather loop on the end. I slip the loop around their necks so they can't get away or come too close. Like catching snakes.
+- An actor is at most a poet and at least an entertainer.
+- There's a line in the picture where he snarls, 'Nobody tells me what to do.' That's exactly how I've felt all my life.
+- I have eyes like those of a dead pig.
+- The only reason I'm in Hollywood is that I don't have the moral courage to refuse the money.
+- To grasp the full significance of life is the actor's duty, to interpret it is his problem, and to express it his dedication.
+- An actor's a guy who, if you ain't talking about him, ain't listening.
+- I have never been able to remember the number of my driver's license, and there have been times when I couldn't even remember my own telephone number, but when I hear a song, sometimes only once, I never forget the melody or the lyric.
+- At fourteen or fifteen, I decided to earn my living when I grew up playing drums made from wooden beer kegs and leading a group called Keg Brando and His Kegliners. We organized a little band, but it didn't last long and didn't make any money.
+- There isn't anything that pays you as much money as acting while you are deciding what the hell you're going to do with yourself.
+- I don't mind that I'm fat. You still get the same money.
+- I think to regret is useless in life. It belongs to the past.
+- If you want something from an audience, you give blood to their fantasies. It's the ultimate hustle.
+- That's the principal guiding feature of all interviews today is money.
+- Privacy is not something that I'm merely entitled to, it's an absolute prerequisite.
+- The only thing an actor owes his public is not to bore them.

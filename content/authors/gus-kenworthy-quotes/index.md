@@ -1,0 +1,84 @@
++++
+author = "Gus Kenworthy"
+title = "Gus Kenworthy Quotes"
+quotes_len = "78"
+description = "the best 78 Gus Kenworthy Quotes"
++++
+- I look at photos of the Sochi Olympics - even though it sometimes seems like it was just yesterday - that photo doesn't even look like me. It looks like a child. I don't even recognize myself.
+- The chance of messing up and falling significantly increases when you're flipping through the air three times while spinning and trying to grab your skis.
+- My mom has been there for me in moments where I definitely needed her the most, and she has this inherent way of knowing exactly what to say and exactly how to talk to me, whatever the situation.
+- One of the most exciting and unique parts of slopestyle is that every course is unique. You don't really know what to expect when you show up at an event, and it's always fun trying to put a run together.
+- I didn't even ski halfpipe until I was 14 because the resort where I lived didn't have one. So it wasn't always my favorite event, but I grew into it.
+- All I can really say is to encourage anybody who's in the closet to come out, and congratulate anyone who has.
+- I don't really have a specific Olympic crush. There were a couple of guys during the Olympics in Sochi that were super fit. And during the summer games, any of the sports where people have their shirts off if they're diving or swimming or whatever, it's like eye candy.
+- Dating in the closet is torture. It's one of the most difficult things, especially if you are completely closeted.
+- If everyone could see everyone else the way their mom saw them, it would be a much better place for all of us.
+- The only way to really change perceptions, to break down barriers, break down homophobia, is through representation. That's definitely not something I had as a kid. I never saw a gay athlete kissing their boyfriend at the Olympics. I think if I had, it would've made it easier for me.
+- Figure skating, especially the longer performances, are such a feat. It requires so much stamina and is so beautiful.
+- Miley Cyrus followed me, tweeted at me. We started messaging; we traded numbers. She's become like a friend. She's super supportive of me being gay.
+- I don't think that one thing defines me, but I know that by coming out the way that I did, sort of almost pioneering it in action sports - to take that stand - that it's always going to be a label that is stuck with me, and I know that I'll always be the 'gay skier,' and it actually doesn't bother me.
+- When you're able to love and appreciate and take pride with yourself, that makes everything easier. It makes it easier to train, it makes it easier to be in the gym, and it makes it easier for everyone else to accept and love you.
+- I realize how fortunate I am to have been able to make a life and career out of skiing.
+- It shows more courage to leave the house as a trans person than Trump has ever had to show.
+- I was insecure and ashamed. Unless you're gay, being gay has never been looked at as being cool. And I wanted to be cool.
+- I've gotten a lot of messages from kids struggling with their identity and sexuality, whether it's because they're in a religious family or a small town or a sport that's not very accepting. I've had a ton of outreach, and I've tried to get back to kids as best I could.
+- I want to be the guy that's taking names, on the podium, and winning events.
+- I love that our country is one where you have the freedom to protest and to stand up for what you believe in and speak on it.
+- The world that I would want to get into would be acting. In the beginning, I would do stuff as myself if I had the opportunity to host events - host, like, a talk show. Something like that, I think, would be super amazing.
+- Having an Olympic medal validates that you can be a successful freeskier... It's like a credential that sticks with you the rest of your life.
+- There are so many animals in shelters that need homes. Rather than going to a breeder and buying a dog, or a puppy mill or anything like that, I've always been a big fan of adoption.
+- If people are hiding their sexuality, they don't really get their full selves, so you can sometimes feel like you're presenting sort of like a fogged version of yourself.
+- I don't think you necessarily have to be crazy-fit for freeskiing. So much of the sport has to do with agility and nimbleness and flexibility and other things. It's a lot of muscle memory - it's more like dance, in a way - it's technique more than strength or endurance.
+- I always have at least one book with me. I try and read a book a month.
+- The Olympics is all about inclusion, coming together for sport. That's the footprint I want to leave.
+- I'm not one of those people who can eat whatever I want and never go to the gym. I have to work hard for any results I see.
+- I spend so much of my time on the road and traveling.
+- Someone coming out as gay shouldn't be newsworthy; it shouldn't be warranting a magazine cover or anything like that, which I had as my story for coming out.
+- Hopefully, it gets to a point where, down the line, people don't have to come out.
+- I'm so proud that now you can exist as a gay man and be an Olympian, and it can be beneficial rather than negative. So it's amazing. And I just think I feel so liberated now that I've been out of the closet for a while, and so I'm free in that I just get to be myself, speak freely, act freely, and I think that I am competing confidently.
+- I always felt like I had something to prove, like I had to work twice as hard to make sure I got it. I knew I didn't want to be a good skier. I wanted to be the best.
+- Getting to be authentic is so liberating.
+- More than I've wanted anything, I've wanted to do well at the X Games.
+- Even if you're 'the gay guy,' if you're winning events, you're still winning events.
+- I think that being in the closet is really hard. It takes a toll on your mind. It takes a toll on you. I think it just makes every aspect of your life more difficult.
+- I've been through stretches of my life where I've been super focused on what I'm eating, and then you're on the road, and you end up eating a lot of carbs and tacos.
+- For anyone who says 'Who cares if you're gay? It's 2018,' well, a lot of people care because a lot of people had the opportunity to be out, and there's been a lot of fear surrounding it. This is the first time we're seeing representation, and because of that, it is a big deal.
+- I'm putting in the time to make sure that my body is ready to compete at the top level.
+- Since I came out of the closet, I've gotten to just really be myself and feel authentic and honest and genuine. It's just been a huge relief for me competitively.
+- I would honestly say the biggest thing for cold weather is a good face moisturizer with SPF. Winters are harsh, wind chill's real, and, a lot of the time, it's a really dry climate, and so your lips will crack, your face will start to get dry, your nose will peel; it's easy to get sunburnt, windburnt.
+- As a kid, I just felt like I didn't really have anyone to look up to that I felt like I could really relate to, someone that was out and gay and also competing in sports and finding success.
+- The thought of being the first openly gay male ever to compete in the Winter Olympics - I totally embrace that.
+- My family's dog, when I was growing up, was an adopted dog that I got in a shelter for my birthday. I've always felt really strongly about adopting animals and trying to save animals' lives.
+- When you're able to be honest with yourself about who you are and finally can present your authentic true self to the world, you feel so much better about yourself, and it makes it easier for everyone else to feel better about you.
+- I have the LGBT audience behind me, and there's all these people that I want to make proud, and I want to do well aside from just myself.
+- I don't ever train half-pipe except for the short training sessions during events, and because of that, I have a really hard time consistently putting my runs down smoothly.
+- I'm proud to be from a country where I can speak up.
+- I hope that any gay kids see me as beacon of light, not just in sport but in general.
+- You can be gay and be proud of that and not have to worry about being unsuccessful or unaccepted.
+- Jet lag is tough, to be honest. For me, it's much easier to force yourself to stay awake.
+- I'm representing the LGBT community, and I want to do well for them.
+- You don't want to be defined by one thing. But at the same point... When you are the first in something, that's gonna kinda be the title that sticks. And after Sochi, I was, like, the dog guy. Now I'm the gay guy, and it's fine by me.
+- My diet doesn't change regardless of whether or not I'm competing. It's not that strict, either. I try not to eat too much dessert or too many sugary things, like bread or pasta. But I'm not crazy, and I'll eat pasta if that's what someone if making. It's all about trying to find a balance and eat healthy.
+- I spent 24 years in the closet wanting to talk so desperately about who I was and what I am but too afraid to.
+- I think it's so important to have visibility and to break down stereotypes and stigmas and everything that people are so attached to.
+- It's a life I would have never been able to foresee for myself, but I'm so grateful for it, and I really just loved skiing as a kid, and it's crazy how far it's taken me.
+- I wound up adopting two dogs from Sochi. It wasn't really me who brought them home as much as it was one of my best friends, Robin Macdonald, who was out there with me.
+- Competitors, even friends that would say things that were so homophobic, and - I don't think that they realized necessarily the impact that it was having on me, because I was in the closet, and I think that that's what made me really scared to come out.
+- I don't listen to music when I ski - I find it distracting - but I will sing to myself before I go to just get my mind out of what I'm doing and relax a little bit.
+- I would probably say Breckenridge has the best park out of any resort. They build the best jumps, they have fun rails, and the pipe is well kept, too.
+- I've had knee trouble, and I worry about my shoulder, but I think my weakest link is my head. A helmet can only do so much, and I have seen the effects of brain injuries. That is a big fear. I think everyone's weakest link is their brain because it's their most fragile link.
+- I've always been someone who's had to compartmentalize my life because I was in the closet, and I was in fear of outing myself. I always had so much going on in my mind and couldn't share it with anyone, so I actually feel like, now that I'm out, I have less to compartmentalize.
+- For me, as a kid, I always felt like being gay was something that was going make people turn on me.
+- I have felt so insecure about my body at times. I've been on every end of the spectrum. I felt like I was too skinny and wished I could be muscular. I've felt like I was chubby and wanted to be skinny. I think everybody suffers from body image issues. I might exude confidence sometimes, but I'm pretty insecure.
+- When we have people elected into office that believe in conversion therapy and are trying to strip trans rights in the military and do these things that are directly attacking the LGBT community, I have no patience.
+- The Olympics is a cool opportunity to represent our country, which is amazing. But I have another community I am competing for, and that is the LGBT community.
+- I definitely carry a little bit of a burden with me, being a gay athlete going to the Olympics. I think that there's pressure on me... It presents an amazing opportunity, and I think that it kind of gives us a chance to shed people's misconceptions and just kind of, like, break down barriers.
+- Growing up, I always wanted kids, and that was one of the things that made it hard for me to accept being gay, but now I know it's totally an option to have kids.
+- I think the Olympics are a time for the world to come together and put aside differences, but we're also coming to represent ourselves, our communities, and our countries, so I think it's important to stand up and be a voice.
+- When I was in the closet, I had so much pressure on my shoulders. When I came out, that was actually the first moment I felt relieved of those stresses. It really showed in my skiing.
+- I was so stressed in the closet. In an interview, I was scared they were going to ask me about a crush, or the type of girl I liked, or whatever it was. And I was going to have to lie by omission. It was always in the back of my mind.
+- I love Kim Chi the drag queen from 'RuPaul's Drag Race,' but I'm not sure about the food.
+- I'm not super superstitious, but if I listen to a song and then I do well, then that becomes my song for however long it works for.
+- I chose a public platform to come out. I wanted to have an impact with it.
+- I don't think there's a direct correlation between my sexuality and my skiing ability. But I think because I was so concerned about it being found out, it was a distraction.
+- I'm actually sort of shocked that I was able to get a medal in 2014 and really have any of the success I had before because as soon as I came out, it was like a whole new world for me, and I felt so free, so confident, that it's actually shocking that I was able to compete any other way.

@@ -1,0 +1,106 @@
++++
+author = "Grigor Dimitrov"
+title = "Grigor Dimitrov Quotes"
+quotes_len = "100"
+description = "the best 100 Grigor Dimitrov Quotes"
++++
+- In order to be the best, you have to be around the best.
+- Sometimes confidence is everything.
+- I have always been the kind of guy to adjust to anything. I never cared where I was going to sleep or what court I was going to practise on.
+- I'm a very good sleeper, especially during a tournament; I usually get eight hours a night, even before a big match.
+- It's very hard to look at the man in the mirror. Because you can't hide anything.
+- My favourite designer was Alexander McQueen. His lines were different every time.
+- To be able to represent Nike as a brand is one thing, but to also represent the great players that came before me means a lot.
+- You have to forget you are playing against your idol, because the guy on the other side also wants to play better than you and beat you. I don't think you should allow yourself to think like this when you go against any player.
+- I love design; to create stuff from ground zero is the best for me. I'm always so intense when I talk about that.
+- I can take five showers in one day.
+- I like to stay away from that red carpet world unless I absolutely have to do it. I'd rather put on my Tom Ford suit and take a few pictures at home.
+- I come from a very sporty family.
+- There's a lot of distractions in New York.
+- For me, I like that, how do you say, bohemian sort of look. Baggy sweaters to really fitted pants - I love Rick Owens's stuff, for example. I am really into that kind of grungy style.
+- Tennis is great, but it doesn't necessarily define me.
+- The first time I heard 'Baby Federer,' I was maybe 16. After that, it sort of took off.
+- Let's forget the cliche on girlfriends, from Serena to Sharapova. I say it's easy to get lost in beauty, but is it a mistake then?
+- There is always a dream, for me, in the locker room before matches as well during the day. If you have a strong mind, a strong tendency to keep you strong, I think your dream is coming.
+- I believe that if you feel good and if you look good when you're playing, it can give you the extra edge that you might need.
+- Who wouldn't want to practice with the No. 1 player in the world?
+- I think 2014 was, like, throughout the whole year, I had this fantastic year.
+- My dad taught me how to play tennis, and I owe that to him. But the better you get, the higher you climb, and the more lonely you get. I've had to sacrifice a lot of personal relationships, but that's the choice I made.
+- I have always been an admirer of Feli, Feli Lopez. He's just - I mean, every time - he's, like, fit and good and his long hair and the beard.
+- Obviously, it's tough when you lose a match, but that's how it goes.
+- I'm the kind of guy that I cannot just lock myself in the room and just think tennis for 24 hours.
+- I think the first step is definitely Top 5. From there, you can sort of see the end, and that's the top. In order to do that, you need to win Slams and big tournaments. That's just proven. There is no other way.
+- I even remember the first contract I ever signed. I was 13 or 14... my dad said, 'It's your choice. It's your life.'
+- I'm bad at going on vacation.
+- As long as I don't overindulge, it's OK for me to eat burgers and ice cream occasionally. As for alcohol? I've never tried it.
+- At some point in your life, you need to sit down and say, 'What do I want to do? How do I want to be remembered? What's my legacy? And what's important to me?'
+- You may not be playing your best tennis or having your best match; sometimes it's just not your day. The important thing is to believe in yourself, which starts with being confident in your abilities.
+- At the end of the day, health above all.
+- I don't want to say 'gullible,' but when I saw someone, I always thought that person is the way they present themselves.
+- Tennis is very tough.
+- I like clothes a lot.
+- I am always focusing on what I can do better for years down the line.
+- I think tennis was just in my genes.
+- I especially like Lanvin.
+- I think, losses, I think they teach you the most, but it's tough. I'm not gonna lie. It sucks. It's terrible. You can't sleep for two days.
+- Wimbledon is a very special tournament, and for me, it's one of the best events.
+- I have so many different interests in so many areas that sometimes I just need to chill, step back, and let it be.
+- I've always been a fighter. I can get pretty feisty sometimes.
+- Of course there is a lot of things you can work on and change and all that, but first I think you should look at yourself before you actually start trying to find excuse in the other people, whether it's going to be coach, physio, family, or whoever else is on your side.
+- You're going to play a lot of tournaments during the year, a lot of traveling. If you have a good set of mind, you're committed to the work, you want to do that work, and you definitely got to do it. Doesn't matter if you have four, five, six losses in a row, that doesn't have to discourage you to stop all of a sudden.
+- I know what I have to do in order to do good.
+- I think people enjoy seeing my kind of game.
+- I think when I was younger, I was struggling to kind of differentiating love from a personal love or a tennis love or whatever else. There was time that I wasn't sure how to deal with both things in the same time. But you learn. I guess we grow. I mean, I don't want to say I've learned from my mistakes, but I've learned myself a little bit better.
+- I've always felt that's something I'm capable of doing - setting up a trend.
+- I like camouflage a lot.
+- It's always tricky to play against a player who you've never played against.
+- One tournament can change everything for you. You never know when that tournament might be.
+- I am always wearing a bracelet, necklace, and watch. I don't even care if they don't match.
+- It would be difficult to pick out one shot as my main strength, as I like all my shots, and I can do anything on any surface.
+- At some point, you have worked so hard in your life and your tennis that you don't want to be too much up and down. You want to do what you have done and eventually get better.
+- You never know how many times you're going to be able to come out on Rod Laver Arena and just play.
+- There is no shortcuts. Play your best tennis, give your heart out, and anything can happen.
+- After Wimbledon is one of the only times you can take time for yourself.
+- Tennis is one of those sports: whatever you put in, you get out.
+- I'd love to have a line of tennis clothes, something unique and different.
+- I really believe that I can be the No 1, but for that to happen, I probably need to win a couple of grand slams, and they are not going to fall from the sky.
+- If you look good, it brings confidence.
+- You've just got to take things the way they are and accept them and strive.
+- I believe in my abilities, as when I get things right, things happen for me.
+- One of the scariest things for any athlete, I think, is pretty much the off season.
+- I appreciate where I come from. I never forget.
+- I can play on grass - when I won Junior Wimbledon, that was an unbelievable feeling, I could not believe that I had won the tournament, as Wimbledon is like the holy place of tennis.
+- All I'm focused on is playing my game. Everything else will take care of itself.
+- Once the opportunities knock on your door, you've got to try and go get them. If it doesn't happen, it doesn't happen. But at the same time, you've got to keep going.
+- Tennis is my dream. It is what I love. And it is what I want to be best at.
+- My father loved the single-handed backhand, so to him, that was the main goal; we were always fascinated by that shot. He taught me all the technique and how to structure my game. I was really privileged to have a father like that.
+- My mom is a former volleyball player.
+- I don't like taking showers in the locker room after a match.
+- I would love to have a beautiful family one day, to win Slams. I'd love my kids to see me play before I retire.
+- Everything is customised, from my watches to my phone. I like my things to be different.
+- The biggest pressure is what I put on myself.
+- I'm terrible at relaxing and holidays. For me, a day off is going to the gym. I could never just lie on the beach and read a book.
+- I know tennis is just a game, but it's something that it can actually unite us even more.
+- In the beginning, I thought the Federer comparisons were cool, but after a while, I wasn't happy with it. It's not the best thing you can hear as you're trying to develop, as it puts extra pressure on a young kid.
+- I've always been a very easy-going person.
+- Sometimes, I have to beat myself first in order to beat the other guy. And that sucks. I'm not gonna lie. But that's me.
+- I think mental preparation is really important. Every day, you've got to imagine your goal.
+- I try and do whatever I want with my free time. I think having control of what you do is really important.
+- Tennis is such a fun game. One of the things that I really like is that everything depends on you. Before certain matches, you might have those butterflies, but that's the excitement. There's a ton of emotion that you're going through.
+- I get that I can come across as a show-off, but that is part of who I am.
+- Tennis players have the ugliest feet.
+- The negative talk, everything that has been coming my way, I don't care about it.
+- It's good to have a good teacher, but you always need a pretty good student.
+- I'm just going to have to keep working on what I have to and keep chasing my goals.
+- Sure, I can afford a nice car and a nice place, but this is not what brings me happiness. Now you're on a high, and people know you and things like that, but how many people will remember your name once it all stops and the money isn't raining from the sky?
+- Trust me: it's no fun where we're on the fourth set, or you've got to serve second serve on a break point down.
+- I want to create my own legend, my own trademarks.
+- I get manicures and pedicures because I don't want to be one of those guys with messed-up hands and feet.
+- When you step out on the grounds of Wimbledon, you feel that respect, you feel that heritage, feel the history.
+- We all know how to play tennis. We all know how to hit the ball. It's more just about those details - managing all those early rounds and just managing yourself to make sure you're ready for whatever is coming up next.
+- I love tennis. But even if I become the greatest of all time, I still don't only want to be defined by tennis. I'm my own person. And I want to be remembered as I really am.
+- With the right set of mind, with the right people, with the right support, things happen.
+- Tennis is a great platform for me to do well, and for sure, I want to be No 1, to win Slams, but there are more things that I want to do.
+- I'm a very creative person in general. I like to create stuff in my downtime off the court.
+- The majority of decisions, I've always taken by myself.
+- I never thought I was going to make a career out of tennis, to be honest, until I was 10 or 11 years old. One of my earliest memories is when I was seven, and I was competing against players that were three, four years older than me. I didn't take it too seriously at the time. I was having a lot of fun.

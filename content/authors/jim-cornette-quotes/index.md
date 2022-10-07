@@ -1,0 +1,101 @@
++++
+author = "Jim Cornette"
+title = "Jim Cornette Quotes"
+quotes_len = "95"
+description = "the best 95 Jim Cornette Quotes"
++++
+- Johnny Valentine's the one who said, 'I can't make them believe that wrestling is real, but I can make them believe I'm real.' It would take him forever because he was just stinkingly boring for 30 minutes of the 40-minute match, but he would let people hit him as hard as they could, and he would hit people as hard as he could.
+- Modern day wrestlers are fans of the performance of wrestling instead of the concept of wrestling.
+- When you are as big and strong as Strowman, WWE notices you and basically pays you to go to school. He was paid to train, has a guaranteed contract, and gets paid whether he wrestles or not. He couldn't survive in the actual wrestling business. He never had to pay his dues.
+- I would never commit acts of domestic or family violence, stalking or sex offenses against Vince Russo or his household members or any other kind of member that he might have hanging around. Never would I do such a thing. I swear to that.
+- I think people are realizing that whereas now the 'Ultimate Fighting Championship' has taken over what people used to like about pro wrestling in the '70s and '80s. We just want to see who's going to fight for the title.
+- Maybe Rock and Elizabeth Warren could team up and shore up each other's weaknesses. Elizabeth Warren has a plan for everything and all the experience, and The Rock could sell it to the people, 'cause the people could smell what Rock is cooking.
+- The Rock 'n' Roll Express and the '80s NWA crew; Ric Flair and the Four Horsemen, Magnum TA, Dusty Rhodes - that was a great crew of talent and they were all so great to work with.
+- Eddie Marlin was a big deal for a long time to a lot of people.
+- But wrestling used to be the same as boxing or mixed martial arts. It used to be about conflict, having a fight, who's going to win.
+- Two things I have never done and never plan to do are catch Coronavirus or meet Jelly Nutella in person.
+- Lio Rush, this little guy is a perfect heel manager, updated for modern times.
+- People that lie to me generally get banished or vanished to the planet Pluto in my mind.
+- We all prosper when folks are more appraised of how great those matches were and how great those talents were from all of the guys who populated the NWA in the '80s.
+- I feel like there's no reason to put myself through what I put myself through for 20-something years on airplanes, especially these days. You don't know whether your pilot is going to drop dead over the ocean; you don't know when you try to land whether the wheels are going to come down; you can be searched and seized and detained and quarantined.
+- Probably the biggest-kept secret about 'Ring of Honor' is that when you go to see a live show - I've had people in their 60s from down in North Carolina that have seen a lot of wrestling tell me that it was the greatest live wrestling show they've ever been to. The atmosphere is off the charts.
+- People naturally want to see two interesting people - one that they're predisposed possibly to like and one that they're predisposed to dislike - have a fight and see who wins.
+- I eliminated stress by eliminating people that I don't enjoy working with.
+- I went on a diet and went from 248 pounds to 211.
+- I had to spend eleven months in the same room with Vince Russo and Vince McMahon, that's where I really got to hate life in general.
+- I've always been a fan of Bobby Roode's.
+- Tracy Smothers was the epitome of the perfect Smoky Mountain hero. He was legitimate.
+- As far as the NWA tag-team wrestling of the '80s - and I know you're talking some heavy hitters there - the first thing people will always say is The Midnight and Rock 'N' Roll Express. We invented things as we went along that people had never seen. It was always different. And it was always good.
+- I had always in the past thought The Ultimate Warrior was the epitome of a guy making money with no talent.
+- I was a big fan of The Revival when they were in NXT. I thought they were as good as Tully Blanchard and Arn Anderson.
+- The Midnight Express and the Rock 'n' Roll Express were the greatest tag team rivalry of all time and drew more money than any other tag team rivalry probably in history, and I did manage the WWF champion and WWF Tag Team champion at different points in time but my phone hasn't rung and I haven't lost sleep over it.
+- In 1986, wrestling was so huge in Charlotte that we did four events at the Coliseum with the Rock 'N' Roll and the Midnights in a 10-week period - and sold almost 45,000 tickets and drew almost $400,000 at the gate.
+- There's no casual wrestling fan anymore.
+- I'm impressed with what the NWA has done, what Billy Corgan and Dave Lagana and those guys have done, establishing the NWA title to mean more and have more interest again.
+- You can make a really good one minute trailer out of a really stinky two hour movie.
+- I met Rick Rubin through Cat Collins, a DJ friend of mine that had worked for Rubin at American Recordings.
+- I came along the decade after the generation where a lot of heels were still getting stabbed, so I was always looking for it. I had a bullet-proof vest in a couple places.
+- I spent the majority of my adult life in a business where the object is to make people believe that you believe what you say. I was good at that, right?
+- I had been a wrestling fan since I was nine years old.
+- I think tag team wrestling is every bit as exciting, if not more exciting than singles competition.
+- Even if people that I was in love with - even if Bobby Fulton inherited a billion dollars and opened All Elite Wrestling, I was never going to be the manager of The Revival on a weekly television basis ever because that would require me being on the road on a weekly basis.
+- Old school fans are going to be shocked at just how much of the pro wrestling they grew up watching was, indeed, contrived, manipulated or, as it's called in the business, 'worked.'
+- There's probably as many rules of thumb to wrestling as anything in the world, and then there's just as many exceptions to every one of those rules because somebody doesn't fit that thumb.
+- Since I left the wrestling business and got in the Jim Cornette business, my blood pressure is down considerably.
+- Wrestling has gotten so show-biz, it's to the point where people scoff at it.
+- Amateur wrestling was never considered a big box office draw because they're really competing but they're not getting a chance to call each other 16 kinds of names before the fight to get you interested.
+- Without talent, I don't care how funny the writers are or how many comedy lines they come up, without wrestlers you can't have a wrestling program.
+- I'm kind of off modern wrestling. I want somebody to step up and impress me.
+- When MLW first called me, they said, 'Take a look at the product, see what you think, and see if you can make it even more edgy and more dangerous,' and give me a live microphone and I'm going to do that.
+- MMA and the UFC have taken all of the pro wrestling fans because it's pro wrestling from 30 years ago, just in an Octagon and the fights happen to be real. But they're marketed exactly the same way.
+- Cowboy James Storm and Eli Drake, those guys can talk and rile the people up.
+- For the people who are offended about the fact that we have a bunch of criminals and criminal enablers and buffoons and scheisters and con men and frauds and real estate frauds running our country and our government, they like to hear that they're not the only ones that feel that way.
+- I've had experience in management and TV and hope to be able to lend some of that to TNA and maybe persuade some wrestlers to come in this direction because of the influence I've had on their careers in the past.
+- I've been a fan of one particular guy since I first saw him in 'Ring of Honor' eight years ago. He was Tyler Black then, but he's Seth Rollins now. And I think he's just the whole package.
+- It's said that the definition of insanity is doing the same thing over and over again and expecting a different result. In that case, the WWE 'creative' team must be as crazy as a rainbow trout in a car wash.
+- I expected women to get mad at me because I was knocking pregnancy any way shape or form even though I wasn't against the act, just the timing. And also they said, 'Well he's mad because Becky Lynch is pregnant.' No I'm not mad, once again, I'm astonished! At the timing!
+- Vince McMahon has the worst inferiority complex of anybody in history.
+- If the Midnight Express were getting honored, I would be right there with it. I don't care if Satan or Saddam Hussein is going to honor the Midnight Express, they deserve it and I'll be up there with them.
+- The fans in Lake Charles, La., were crazy. The Freebirds would get their tires cut, so they started driving to the police station and having the police bring them to the show. The fans then cut the tires on the police car that brought The Freebirds.
+- John Cena's success was the least surprising.
+- I know Vince made the call for Roman Reigns to win the Royal Rumble and be the guy. We know that much. I don't know what knucklehead didn't say to Vince that maybe we shouldn't put Daniel Bryan in the Royal Rumble.
+- I loved Jimmy Snuka as a fan.
+- Every wrestling show is now designed to be the greatest show ever. In contrast, the NWA show is different. It didn't tire people out to watch, something was allowed to register. It is the exact antithesis of planned, big budget, choreographed, scripted sports entertainment, and that is what makes the show so different.
+- Andy Kaufman and Jerry Lawler's match was the one thing people believed most about wrestling in the last 35 years.
+- They way new stars were made in WCW and WWE was by beating the established guys and getting in that mix. When you only have one established guy, that's gonna be hard.
+- I've seen inside fans' houses, and they would have pictures of Jesus on the wall, and next to it would be a picture of The Rock 'n' Roll Express. That's no lie.
+- People always say, 'You can't go home again,' but every time I go to the Mid-Atlantic Wrestling Legends Fanfest in Charlotte, it feels like I have.
+- Life is too short to have anybody named McMahon in mine.
+- I didn't get a chance to see Bruno Sammartino regularly because I didn't grow up in the northeast, but he came into Indianapolis in his in-between time of being the champion between '71 and '73 when he worked for Dick The Bruiser because he liked The Bruiser. I got to see him and the The Bruiser against the Valiant Brothers.
+- The reason why the tag teams are not main event level attractions in the WWE is because Vince McMahon doesn't like it and doesn't present it that way. He'd rather make individual stars.
+- I can stay under 215 pounds, which is pretty good for me, if I stay off the road. If I go on the road, I invariably eat garbage and start to lose my girlish figure.
+- In the old days, talent owned their costumes, their intellectual property, their gimmicks. They were not employees and could wrestle anywhere they wanted to, and that just is not case in today's WWE.
+- Dana Brooke's entire face looks like it was remodeled after somebody set fire to it and put it out with an axe.
+- The biggest thing I want to do is not travel as much as possible. I enjoy not traveling very much.
+- 'Bullet' Bob was one of the most important parts of Smoky Mountain from the start. He was a retired wrestling legend and talked better than anyone on the roster.
+- One of the greatest matches I ever saw was Jerry Lawler against Terry Funk in the Memphis Midsouth Coliseum, but there was Flair vs. Steamboat in Nashville back in '89.
+- When you think that in the '50s there was wrestling and boxing - that was it. There wasn't mixed martial arts at all; there wasn't even karate in the United States.
+- I'm the only person in wrestling that realizes I'm too old to do this anymore, and that's why I'm not a performer and I'm not going to be on 'ROH.'
+- You have to look like an athlete and you have to look like you could whip somebody. And let's face it, unfortunately Shawn Michaels couldn't whip anybody in a real fight as proven with every single fight he's ever gotten into with everybody in the business.
+- The way that you teach wrestling is by finding good talent that you think can learn and putting them in the ring with a variety of other good talents who have experience and giving them the opportunity to pick things up.
+- We would get VHS tapes from wrestlers who wanted to come to Smoky Mountain. I got this tape from a guy called Lance Storm who I saw leaping from the top rope and cutting these great dropkicks. And the kid Chris Jericho he was with wasn't too bad either.
+- I thought the Rousey match was the best major league debut in the history of wrestling. They did the right thing at the right time at the right pace and took people on a roller coaster ride. That, to me, was a pro wrestling match. I couldn't find fault with it, except I wish that Ronda had come out with her game face on when she did her entrance.
+- I know a lot of people may not really believe this, but I'm kind of outspoken and I like to tell people what I think.
+- There's a lot of crossover between comic fans, wrestling fans and pop culture fans.
+- Even though wrestling is getting more popular - wrestling being more popular than it was five years ago is like being the nicest guy in prison, it's not a huge compliment, but it's still taking place.
+- Nick Aldis is a great champion. He looks like a professional athlete. He dresses like one. He carries it well.
+- Nobody ever went and saw The Midnight Express and thought their match was bad.
+- Well, I don't want to say mad, but there was 'heated' exchanges back in the closing days of OVW when I said that I was running our own business there in OVW and they said, no, we are running their storage closet. They didn't actually say that, but that was how they treated it.
+- You can make kids and fans happy without calling them on the court in the last three minutes of the NBA Finals.
+- The thing is, wrestling is the oldest form of combat known. The cavemen wrestled. And everyone in the American public can understand that.
+- The NWA has money, it could have enough talent, and it has the resources of TBS. It just needs someone to give the company direction.
+- Between the '80s with The Midnight Express and the '90s with The Heavenly Bodies, and then in the 2000s on the reunions with The Midnights, I think only Bobo Brazil and The Sheik had a longer-running rivalry.
+- I'm not looking to be a superstar. That's why I'm positioned as the face of TNA.
+- Trevor Murdoch is mad, bad and dangerous. He's the only man I know that can strap a bucket of fried chicken on his back and ride a motor scooter across Ethiopia.
+- From the time I was 5 years old, I collected comic books.
+- It's a tossup on whether WWE is going to insult your intelligence, religion or sexual preference. It's become a joke and a farce.
+- The WWE is fine. They can afford to not only sign anybody they really want, but they can also afford to sign people just to keep them out of the talent pool that everybody else has.
+- I loved Houston. Those fans would go ballistic.
+- A lot of people say now, 'John Cena doesn't work.' Well, John Cena does the things that people go to see John Cena do, and he doesn't take a lot of risks.
+- I would love to see TNA get a developmental program.
+- We got shorted when it comes to recognition for the '80s war. Everybody talks about the 'Monday Night Wars' and the 'Attitude Era,' but it was neck and neck in the '80s.

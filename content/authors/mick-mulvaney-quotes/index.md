@@ -1,0 +1,35 @@
++++
+author = "Mick Mulvaney"
+title = "Mick Mulvaney Quotes"
+quotes_len = "29"
+description = "the best 29 Mick Mulvaney Quotes"
++++
+- When you grew up in a household where mom would keep the extra ketchup packets from McDonald's and keep them in a drawer just in case there came a day when you couldn't afford to buy ketchup anymore, that gets ingrained in you.
+- I think the government, if you measure it in terms of the dollars out the door, about 83 percent of the government stays open in a government shutdown. Social Security checks go out; military still exists. The FBI still chases bad guys. I think the consequences have been blown out of proportion.
+- I really do feel like I'm doing what the people that elected me in the first place wanted me to do. I'm not doing it in the same fashion they thought, or that I thought, when I ran for office in 2010. But I will be doing what they wanted me to do, and that is to try to fix Washington.
+- My dad told me something long before I was in politics, and when your dad gives you advice every single day, eventually one or two of the things stick in your mind. And he said, don't believe what people say, believe what they do.
+- We can't spend money on programs just because they sound good... Meals on Wheels sounds great.
+- Bad spending, to me, in terms of its economic benefit, would be wealth transfer payments. It's a misallocation of resources.
+- The O.M.B. director puts together the budget. It handles every executive order. It is the clearing house for every single federal regulation. It has input into all the management of all of the federal agencies... It is involved with everything. And I thought, 'That's where I want to be.'
+- You can provide better services for less if you get the federal government out of the way.
+- We have to get the tax revenues up. That means we have to get back to a healthy American economy, grow the economy so that you make more money. I make more money, ordinary Americans make more money, and so does the government. That helps lessen the deficit.
+- The White House would love to see Obamacare taken apart all at once, bit by bit, however we can do it.
+- We have to end Medicare as we know it. We have to fix it.
+- Let's talk about after-school programs generally. They're supposed to be educational programs, right? And that's what they're supposed to do; they're supposed to help kids who can't - who don't get fed at home, get fed so that they do better at school. Guess what? There's no demonstrable evidence they're actually doing that.
+- Too often in Washington, we only look at the recipient side: How does the budget affect either those who receive or don't receive benefits.
+- Do you really think that Social Security disability insurance is part of what people think of when they think of Social Security? I don't think so. It's the fastest-growing program. It grew tremendously under President Obama. It's a very wasteful program, and we want to try and fix that.
+- Remember what Obamacare gave you. Obamacare gave you insurance but not health care. A lot of folks who were technically insured either couldn't afford the premiums or couldn't afford the copay.
+- We need people to go to work. If you're on food stamps, and you're able-bodied, we need you to go to work. If you're on disability insurance and you're not supposed to be, you're not truly disabled; we need you to go back to work.
+- It doesn't cost money to let people keep more of their own money. It costs money to spend money you don't have, but that's another issue.
+- We cannot have another experience like we've had in my freshman class, of people saying one thing and doing another.
+- I believe, as a matter of principle, that the debt is a problem that must be addressed sooner rather than later. I also know that fundamental changes are needed in the way Washington spends and taxes if we truly want a healthy economy. This must include changing our government's long-term fiscal path, which is unsustainable.
+- There are jobs that American citizens will not do. We can talk about why that is. We can talk about how our welfare state is broken, how we encourage people not to work, but that doesn't help the farmer pick his peaches this summer.
+- I don't like the fact that C.F.P.B. exists, I will be perfectly honest with you.
+- I would be embarrassed to tell you how many folks ran saying that they weren't going to spend a bunch of money, they weren't going to raise the debt ceiling, and then they went to Washington, D.C., and did exactly that.
+- My reputation is as a fiscal hawk. At least, I hope that it is.
+- There is absolutely no way that the U.S. will ever default on its debt. We are not going to do that.
+- I've never understood the allure of putting your name on a building that was built with taxpayers' money.
+- To a certain extent, I have to be the president's bad cop from time to time. I have to look people in the eye and tell them, 'No, we don't have enough money for that.' That is not a very popular thing to do in Washington.
+- Every penny we spend comes from the taxpayer. We thus owe it to the taxpayer to work as hard managing that money wisely as the taxpayer must do to earn it in the first place.
+- Infrastructure is sort of that good spending in the middle, where even if you do misallocate resources a little bit, you still have something to show for it. It's tangible; it may help economic growth and so forth.
+- We don't spend money properly in Washington, D.C. We jump these massive bills to massive bills.

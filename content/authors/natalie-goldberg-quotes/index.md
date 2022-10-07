@@ -1,0 +1,28 @@
++++
+author = "Natalie Goldberg"
+title = "Natalie Goldberg Quotes"
+quotes_len = "22"
+description = "the best 22 Natalie Goldberg Quotes"
++++
+- Life is not orderly. No matter how we try to make life so, right in the middle of it we die, lose a leg, fall in love, drop a jar of applesauce.
+- Trust in what you love, continue to do it, and it will take you where you need to go.
+- Our job as writers is to listen, to come home to the four corners of the earth.
+- That's very nice if they want to publish you, but don't pay too much attention to it. It will toss you away. Just continue to write.
+- Whether you're keeping a journal or writing as a meditation, it's the same thing. What's important is you're having a relationship with your mind.
+- I feel that 'The Great Failure' is really a book written out of great love and a willingness to face all of who a human being is.
+- A writer's job is to give the reader a larger vision of the world.
+- Never underestimate people. They do desire the cut of truth.
+- Sometimes when you think you are done, it is just the edge of beginning. Probably that's why we decide we're done. It's getting too scary. We are touching down onto something real. It is beyond the point when you think you are done that often something strong comes out.
+- If you feel bored or uncomfortable as you're writing, ask yourself what's bothering you and write about that. Sometimes your creative energy is like water in a kinked hose, and before thoughts can flow on the topic at hand, you have to straighten the hose by attending to whatever is preoccupying you.
+- There's no such thing as a writer's block. If you're having trouble writing, well, pick up the pen and write. No matter what, keep that hand moving. Writing is really a physical activity.
+- When you write what you know, you stay in control. One of the first things I encourage my writing students to do is to lose control - say what they want to say, break structure.
+- Women need space and silence. We too quickly give away our energy. There's something about holding that richness.
+- Failure is what we're all running from, we're always running toward success with failure at our back.
+- Women are wonderful, but they get so caught up about their body. We need to unhook from worrying so much. When I don't feel good, I look in the mirror and think I look fat and miserable. But when I feel good and whole, I'm not worried about my body because I'm living in it. It doesn't become an object.
+- Stress is basically a disconnection from the earth, a forgetting of the breath. Stress is an ignorant state. It believes that everything is an emergency. Nothing is that important. Just lie down.
+- The correctness and quality of what you write do not matter; the act of writing does.
+- I consider writing practice a true Zen practice because it all comes back at you. You can't fool anyone because it's on the page.
+- Talk when you talk, walk when you walk, and die when you die.
+- Read books. They are good for us.
+- When you bring the darkness to the table, it doesn't rule you or hurt other people, but when we keep it secret, it's dangerous.
+- When you are present, the world is truly alive.

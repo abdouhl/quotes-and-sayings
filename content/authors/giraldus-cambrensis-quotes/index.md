@@ -1,0 +1,18 @@
++++
+author = "Giraldus Cambrensis"
+title = "Giraldus Cambrensis Quotes"
+quotes_len = "12"
+description = "the best 12 Giraldus Cambrensis Quotes"
++++
+- From these inconsiderable attempts, some idea may be formed with what success, should Fortune afford an opportunity, I am likely to treat matters of greater importance.
+- Not addicted to gluttony or drunkenness, this people who incur no expense in food or dress, and whose minds are always bent upon the defence of their country, and on the means of plunder, are wholly employed in the care of their horses and furniture.
+- Nature hath given not only to the highest, but also to the inferior, classes of the people of this nation, a boldness and confidence in speaking and answering, even in the presence of their princes and chieftains.
+- Since, therefore, no man is born without faults, and he is esteemed the best whose errors are the least, let the wise man consider everything human as connected with himself; for in worldly affairs there is no perfect happiness under heaven.
+- No one of this nation ever begs, for the houses of all are common to all; and they consider liberality and hospitality amongst the first virtues.
+- Wales was in ancient times divided into three parts nearly equal, consideration having been paid, in this division, more to the value than to the just quantity or proportion of territory.
+- Happy and fortunate indeed would this nation be, nay, completely blessed, if it had good prelates and pastors, and but one prince, and that prince a good one.
+- These people being of a sharp and acute intellect, and gifted with a rich and powerful understanding, excel in whatever studies they pursue, and are more quick and cunning than the other inhabitants of a western clime.
+- It is remarkable that this people, though unarmed, dares attack an armed foe; the infantry defy the cavalry, and by their activity and courage generally prove victors.
+- The men and women cut their hair close round to the ears and eyes. The women, after the manner of the Parthians, cover their heads with a large white veil, folded together in the form of a crown.
+- Nor do I think that any other nation than this of Wales, nor any other language, whatever may hereafter come to pass, shall on the day of severe examination before the Supreme Judge, answer for this corner of the earth.
+- Evil borders upon good, and vices are confounded with virtues; as the report of good qualities is delightful to a well-disposed mind, so the relation of the contrary should not be offensive.

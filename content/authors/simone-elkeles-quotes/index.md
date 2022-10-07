@@ -1,0 +1,19 @@
++++
+author = "Simone Elkeles"
+title = "Simone Elkeles Quotes"
+quotes_len = "13"
+description = "the best 13 Simone Elkeles Quotes"
++++
+- When I write, it's like watching a movie in my head.
+- Fans always say they laughed and they cried while reading my books. And I tell them that I laughed and cried while writing them.
+- I lost my dad when I was younger, and I know what it's like to lose a beloved parent.
+- For my 'Perfect Chemistry' series, I did movie-style book trailers, and my fans went crazy for them.
+- I get a lot of mail from boys in detention centers, including one from a center where they only had a few copies of my novel. They had a deal with each other that they'd read a couple of chapters and then slide it under the door to the next guy. I think that's very cool.
+- I tried writing adult romances, but it just didn't fit my voice.
+- Romance novels are my favorite books to read. I write young adult romances, and am so happy to be promoting this wonderful genre.
+- Everyone who has ever met me for at least five minutes knows I'm a really funny person. I love to laugh and to make people laugh, so writing comedy comes naturally to me.
+- I write edgy, sexy teen romances, and that's what I'll continue to do.
+- Two dads have sent me letters that said my books changed their daughters' lives. I send them packages with T-shirts and posters because, come on... that's the coolest.
+- I was definitely meant to be a young adult author, and I love it - I'm here to stay!
+- I like to write books that touch my heart. I want to entertain, and I love to entertain myself.
+- Football players are misunderstood. They aren't the dumb jocks people think they are.

@@ -1,0 +1,52 @@
++++
+author = "Sophie Hannah"
+title = "Sophie Hannah Quotes"
+quotes_len = "46"
+description = "the best 46 Sophie Hannah Quotes"
++++
+- The crimes in my books are committed by people who can't keep it together any more. They do something to express their own pain, and that has a terrible effect on somebody else.
+- I'm not cut out to lug babies around!
+- Cambridge is heaven, I am convinced it is the nicest place in the world to live. As you walk round, most people look incredibly bright, as if they are probably off to win a Nobel prize.
+- All through childhood, I wrote verses and mysteries. There is, for me, one connection: structure. My poetry is metrical, rhyming.
+- I know a lot of crime writers feel very underrated, like they're not taken seriously, and they want to be just thought of as writers rather than ghettoised as crime writers, but I love being thought of firmly as a crime writer.
+- My favourite Friday treat is to drive out of the centre of Cambridge, where we live, and go for a swim at the health club I've just joined out in the countryside at Quy. It's a lovely pool, inside a converted barn. Usually it's just me and a couple of other swimmers there.
+- No one has been buried at Mill Road Cemetery in Cambridge, England, for many years, and so the place has a shady, overgrown magic about it.
+- I've got lots of favourite authors, but I would say Nicci French because I look more forward to reading her next new book than any other author.
+- For me, a big part of writing psychological thrillers is choosing crimes committed for motives which would only apply to a particular person in a particular situation; a unique, one-off motive that is born out of someone's particular range of psychological afflictions.
+- My crime novels are highly structured. I never start out with a dead body. I start with an impossible scenario. Opening questions should be mysterious, weird, intriguing, and contain the seeds of the solution. The structure has to be meticulous - I'm a structure freak.
+- Agatha Christie never wrote books that just started with a dead body, and a 'Let's find out who the murderer is', which is kind of mysterious but not that mysterious. She always started with, 'How can this thing be happening; isn't it strange?'
+- With me, even if my life depended on it, I wouldn't be able to cry. Not with somebody there. Because even if I'm talking about bad and upsetting things, if there is somebody else in the room, I am trying to entertain them. If there is somebody there, I am in performance mode. I can only cry if I am on my own.
+- There are very few well-adjusted people in my books. But I do think that's normal. Because everyone does have their issues and hang-ups.
+- In a crime novel, if you are going to have a big revelation in chapter 30, you have to plant the information in chapters three and 11.
+- I am trying to write novels for properly clever people, but I also want them to be proper novels that also stick in a person's mind and have an atmosphere about them.
+- My father, whose hobby was collecting secondhand cricket books, came back from a book fair one day with a copy of 'The Body In The Library.'
+- What surprised me most while writing 'The Monogram Murders' was that everything I needed seemed to arrive in my head exactly when I needed it.
+- I always notice the dysfunctional dynamic of human relationships because most places where you encounter it, people are trying to pretend it isn't happening.
+- If we knew more about psychology, we would be better equipped to deal with other people's psychological damage which they might project onto us.
+- I want my books to explore motives which make people think, 'Wow! Imagine the psychological state you'd have to be in for that to be your motive!' Whereas things like blackmail, jealousy - they're rational reasons for committing murder.
+- The brilliant thing about swimming is that, while you're doing it, there's nothing else you could be getting on with, like the ironing or sorting out the children. My mind goes into free-float mode; some of the best ideas for plots come into my head while I'm ploughing up and down the pool.
+- A lot of women feel like they should be enjoying motherhood, they should be fulfilled and shouldn't be thinking, 'I wish I didn't have to do this.'
+- Agatha Christie's writing is incredibly skillful because her books are incredibly intellectually puzzling and challenging.
+- I was working as a secretary in Manchester and thought I would always do that. Then I got this letter offering me a two-year fellowship where I could write; they would pay me a salary and give me a flat to live in. It was heaven.
+- I am actually incredibly contented and jolly. But, and I have no idea why this is, I have a really strong empathy with all kinds of warped and destructive modes of thinking. I don't know why, but those things co-exist.
+- I am a fellow commoner at Lucy Cavendish College. My husband used to be a lecturer at Leeds University, and we lived in Yorkshire for 11 years. When he gave up his job, we realised we could live wherever we liked.
+- I'm snobby about books that aren't crime fiction: if I start reading a literary novel and there's no mystery emerging in the first few pages, I'm like, 'Gah, this obviously isn't a proper book. Why would I want to carry on reading it?'
+- Crime fiction is a way of satisfying that nosy need to know.
+- No highbrow literary type would ever say 'Moby Dick' is good but it's just about a whale, or a Jane Austen would be important if she wasn't just writing about romantic relationships.
+- If you ask people if they enjoy crime novels, they'll say, 'Oh, my guilty pleasure is...' then name a really brilliant crime writer.
+- When a writer tries to copy another writer, it's doomed to fail.
+- I love the house we're in, but at the same time, I'm hooked on the romance of house-hunting.
+- In West Yorkshire, I'd have to drive three quarters of an hour to go shopping.
+- I never write about CIA conspiracies or the FBI or mafia or anything like that because I just don't understand that world. But I think I do understand individual human harmfulness.
+- Most crime fiction plots are not ambitious enough for me. I want something really labyrinthine with clues and puzzles that will reward careful attention.
+- Some writers, I'm told, look for their characters' surnames in telephone directories. I don't - it seems too obvious. Or too deliberate: if you go looking for names, you're bound to find them, of course, but I've always had a superstitious hunch that the names you find by accident are always going to be better and more satisfying somehow.
+- Poirot is a classic character from fiction, not a MacBook Air; he would not benefit from updates.
+- Only Agatha Christie can write like Agatha Christie.
+- When my children were very young, I was slated to go on a business trip. When it was nearly canceled, I decided I wouldn't tell anyone and go off for a week's vacation anyway. In the end, the trip went off as planned. But I was intrigued by the idea of an illicit holiday.
+- Everything is personal - the poems and the crime novels. I have never been involved in any murders, but there are strong autobiographical elements in each.
+- Nobody has ever written as many enjoyable, fun-to-read crime novels as Agatha Christie. It's all about the storytelling and the pleasure of the reader. She doesn't want to be deep or highbrow.
+- Reading is the only area of my life in which I prefer to be non-autonomous.
+- Try as I might, Agatha Christie is unique. The actual writing style can't be exactly the same, so instead of trying to replicate it exactly, the way I got around it was by inventing a new narrator.
+- My characters all have issues, but I don't see that as weird or abnormal because I think in real life there are very few bland, normal people.
+- Just because someone has stylistic limitations doesn't necessarily make them a worse writer.
+- When I set out to write crime fiction, I didn't think to myself, 'I'm going to model myself on Agatha Christie' or 'I am going to be a crime writer in the Christie tradition'.

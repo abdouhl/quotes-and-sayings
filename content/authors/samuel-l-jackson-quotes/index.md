@@ -1,0 +1,39 @@
++++
+author = "Samuel L. Jackson"
+title = "Samuel L. Jackson Quotes"
+quotes_len = "33"
+description = "the best 33 Samuel L. Jackson Quotes"
++++
+- All movies aren't fun; some are hard work. You try to do something and convey a set of emotions that have to do with some real life kind of stuff.
+- I guess the worst day I have had was when I had to stand up in rehab in front of my wife and daughter and say 'Hi, my name is Sam and I am an addict.'
+- If you have an opportunity to use your voice you should use it.
+- When I'm not working, I like to play golf.
+- I never had one beer. If I bought a six-pack of beer, I kept drinking till all six beers were gone. You have to have that kind of understanding about yourself. I haven't had a drink now in 12 years.
+- I grew up watching those blaxploitation movies. Ron O'Neal, Richard Roundtree, Jim Brown, Pam Grier. For the first time, I saw 'The Negro' get one over on 'The Man.'
+- Because of where I come from, I never thought I'd see in my life a black candidate running for President.
+- It wasn't until I let go of the idea of the brass ring that it showed up, and fortunately for me, it coincided with getting clean.
+- I've never been to jail. I've never been arrested. I've never been locked up.
+- I look at myself as an audience member. I still love movies, and I still go and sit in the back of the big dark room with everybody else, and I want the same thrill.
+- I understood, through rehab, things about creating characters. I understood that creating whole people means knowing where we come from, how we can make a mistake and how we overcome things to make ourselves stronger.
+- I'm a good son, a good father, a good husband - I've been married to the same woman for 30 years. I'm a good friend. I finished college, I have my education, I donate money anonymously. So when people criticize the kind of characters that I play on screen, I go, 'You know, that's part of history.'
+- The only thing I've kind of missed is finding a really good western that I want to do, because I watched westerns a lot.
+- I kind of realize that I have a tendency to choose the kind of films I watched when I was a kid and would go home and pretend with my friends that we were in those movies after we saw them.
+- The best advice that was given to me was that I had to be 10 times smarter, braver and more polite to be equal. So I did.
+- I love comic books and I love anime.
+- I get paid all day, every day, which is almost too much for a sensitive artist.
+- I walk the streets, take the train, it's real simple. Some actors create their own mythology: 'Oh, I'm so famous I can't go places, because I created this mythology that I'm so famous I can't go places.'
+- I'm not as angry as I used to be. But I can get in touch with that anger pretty quickly if I feel my space is being invaded or somebody is not treating me with the respect that I think I want.
+- I voted for Barack because he was black. 'Cuz that's why other folks vote for other people - because they look like them... That's American politics, pure and simple.
+- People know about the Klan and the overt racism, but the killing of one's soul little by little, day after day, is a lot worse than someone coming in your house and lynching you.
+- My dad was an absentee dad, so it was always important to me that I was part of my daughter's life, and she deserved two parents, which is part of the rationale behind us staying married for 30 years.
+- People go to movies on Saturday to get away from the war in Iraq and taxes and election news and pedophiles online and just go and have some fun. I like doing movies that are fun.
+- We've come a long way in our thinking, but also in our moral decay. I can't imagine Dr. King watching the 'Real Housewives' or 'Jersey Shore.'
+- Long Kiss Goodnight has a huge cult following. They could make another version of that movie right now and make a lot of money.
+- I just always knew that I lived in two worlds. There was the world of my house and community, but to make my way in that white world I had to modify the way I spoke and acted. I had to sometimes not make direct eye contact.
+- I've been fortunate to be in films that are classic, that are going to be around.
+- Not everybody goes to movies to get their life changed.
+- I hope Obama gets scary in the next four years, 'cuz he ain't gotta worry about getting re-elected.
+- I did 'Formula 51' because I got to run around Liverpool in a kilt, with golf clubs.
+- We need to change America's image round the world. America has lost some lustre in terms of how folks aspire to be like us.
+- I actually think I have an audience member's sensibility about going to the movies.
+- I tend to play characters that I can infuse with certain kinds of humour. Even the baddest guy can be funny in his own particular way. I want the audience to engage with the character on some deeper level so that they leave the cinema still thinking about him.

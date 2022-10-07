@@ -1,0 +1,118 @@
++++
+author = "John Mcafee"
+title = "John Mcafee Quotes"
+quotes_len = "112"
+description = "the best 112 John Mcafee Quotes"
++++
+- Our mobile phones have become the greatest spy on the planet.
+- There is no hope for my life if I am ever returned to Belize.
+- Success, for me, is being able to wake up in the morning and feel like a 12 year old.
+- I am always interested in helping and growing new tech start-ups and ideas.
+- I would be very happy to go to America. America is where I was raised and that's exactly what I want.
+- I have the best habits in the world, and I cannot keep my phone secure.
+- Marketing is the obverse of programming.
+- The gig economy is empowerment. This new business paradigm empowers individuals to better shape their own destiny and leverage their existing assets to their benefit.
+- One who understands the relationships between the human heart and the human mind will always out-hack those who chase after an ever-changing technology.
+- In this age of communications that span both distance and time, the only tool we have that approximates a 'whisper' is encryption. When I cannot whisper in my wife's ear or the ears of my business partners, and have to communicate electronically, then encryption is our tool to keep our secrets secret.
+- We are at war - undeclared and of such a subtle nature that few have noticed - but war nevertheless. It is a cyberwar on many fronts, in which it is difficult to identify who is friend and who is foe. I will predict now, as unintelligible as it may seem, that Anonymous will turn out to be more friend than foe.
+- We as Americans have ripped off the world. We get to throw food away. It's insane.
+- We are losing privacy at an alarming rate - we have none left.
+- I think the thing that our government lacks - just about more than anything else - is technological competence. We have some of the greatest white-hat hackers in the world here in the U.S., but the government seems to be technologically illiterate.
+- I simply refuse to play by the rules.
+- Belize is so raw and so clear and so in-your-face. There's an opportunity to see something about human nature that you can't really see in a politer society, because the purpose of society is to mask ourselves from each other.
+- Private communication systems have been around since the beginning of human culture.
+- The Deep Web contains shockingly valuable information. Can you imagine how cancer research would blossom if every researcher had instant access to every research paper done by every single university and research lab in the world?
+- An angry people cannot create anything that is not imbued with anger.
+- Liability is being assessed against companies who inadvertently have shipped a virus to another company. Rather than risk the incredibly bad PR, these companies fork over.
+- As the economy goes south, petty theft begins. And then grand theft. And then muggings.
+- I've been called 'paranoid,' 'schizophrenic,' 'the wild child of Silicon Valley.'
+- I am not in any way a conspiracy theorist and have no time for such nonsense.
+- I think that it's when we step out of the road, step outside the box, become our own person, and we walk fearlessly down paths other people wouldn't look at, that true progress comes. And sometimes true beauty as well.
+- When you're standing in line at the airport, and your shoes are off, your belt is off, and your personal belongings are being closely scrutinized, and you're standing with your hands in the air, waiting to be patted down, do you feel protected? I don't. I feel like I'm the enemy.
+- There's not a single flashlight app that's not spying on you right now.
+- Politicon should be applauded for recognizing the increasing impact of technology, not only on American social and economic systems but on the very structure of our system of politics.
+- Donald Trump is proud of the fact that he's never written an e-mail.
+- Corporations understand the value of security because the leakage of their competitive information could be the end of the corporation.
+- To say what your disguise is would be foolish.
+- I will not stop my blog.
+- My relationship has never been good with the government.
+- The FBI and our entire government has become a bureaucracy. Sick, tired, and old as far as technology is concerned. This has to change.
+- I trust and use RakEM for my private messages and calls. Other messengers collected metadata about who I messaged, when and where - RakEM does not collect metadata, encrypts local files, and uses the strongest end-to-end encryption around.
+- Jealousy, greed, fear. We're all full of these things. But also love and compassion. If you saw a drowning baby, it wouldn't matter if you were wearing a tuxedo on the way to your own wedding. You'd jump in to save him.
+- I cannot conceive of how more than 1% of us could possibly survive a cyberwar.
+- Limit use of shareware and public domain software to systems without fixed disks. If you do use them on fixed disks, allocate separate subdirectories... Public domain or shareware software should never be placed in the root directory.
+- There will be an electronic currency, and it will be universal, and we must accept that fact.
+- We don't even know our friends' phone numbers anymore.
+- You'll see a movie about someone you hate or someone you love. Will you see a movie about grandma making apple pies? No, you won't. Only if grandma has poisoned the neighbor or is suspected of poisoning the neighbor through her apple pies.
+- It's very hard to keep an uncrackable encryption if you share it with the government.
+- I have started many companies now worth more than $100 million. So I know a little about business.
+- When a hacker gains access to any corporate data, the value of that data depends on which server, or sometimes a single person's computer, that the hacker gains access to.
+- I think that the world has largely ignored Belize and the political situation and the plight of its people because it's one of the smallest countries and, in terms of the world economy, one of the least significant.
+- The most astonishing subset of the Deep Web is a collection of dark alleys called the Dark Web. The Dark Web is generally thought of as a collection of criminal elements intent on subverting the law, stealing our money, and possibly kidnapping our daughters.
+- There is dissatisfaction in all of us. Some of us take out that dissatisfaction by attempting to ruin whatever you are attempting to do. This is a fact of life.
+- Making money is easy. It is. The difficult thing in life is not making it, it's keeping it.
+- Let me tell you what the truth is... I have learned one thing in life: there is no such thing as bad press. There is not. That's a fundamental truth. The more bad things said about you, the more power they give to you.
+- My well-discussed 'paranoia' urges me to believe that some tiny segment of the NSA's parsing algorithm is finely tuned to my voice.
+- I do not donate to any political party.
+- My most heartfelt thank you goes to Impact Future Media and Cartoon Monkey Studio. Their dedication to the truth is very uncommon in the world we live in today. I am now, and will always be, grateful to their organizations.
+- We live in a very insecure world with a very insecure communications platform.
+- I gravitate to the world's outcasts.
+- I had disagreements with all my neighbors about my dogs. I had a disagreement with myself about my dogs. They were noisy.
+- Social engineering has become about 75% of an average hacker's toolkit, and for the most successful hackers, it reaches 90% or more.
+- The world chooses to think what the world thinks.
+- Governments are composed of human beings, and all of the frailties that humans possess are absorbed into these governments and become active within these governments. Hatred, anger, jealousy, fear, greed, distrust and the whole host of afflictions that humans must bear, lurk just beneath the surface of civility displayed by 'government.'
+- I simply would like to live comfortably day by day, fish, swim, enjoy my declining years.
+- I feel as much British as I do American. There's not much difference between our countries.
+- I don't know much about technology anymore.
+- There are no secrets.
+- Steve Jobs would have wanted his words to change not just technology but politics itself.
+- Is Snowden a good man or a bad man? I have no clue and even less interest.
+- Belize is still a pirate haven and is run more or less along the lines established centuries ago by the likes of Captain Morgan, Blackbeard, and Captain Barrow.
+- Every corporation worth its salt is throwing money at Deep Web research, not least Google. The company that unlocks the mysteries of the Deep Web will obtain power of an enormous magnitude.
+- I don't do things I can't win.
+- America is in a state of somnolence. It's an avoidance of paranoia through ignoring reality.
+- Libertarian principles are very simple, but you can't violate any of them and still call yourself Libertarian.
+- When individuals become angry with one another, an injury of some sort will likely occur. When governments become angry, entire civilisations are wiped out.
+- The government generally is just too top-heavy.
+- Hackers rarely have full knowledge of the technology stack of a target.
+- Do you think the Chinese think twice about hiring a hacker with a mohawk or a tattooed face? No.
+- Everyone knows that a federal job is a lifetime job, and for many in Congress, it seems they have a lifetime job, too.
+- I am just a thorn in everybody's side.
+- A simple social engineering hack might involve leaving a thumb drive on the pavement close to the driver's door of a car.
+- The government can spy on people using their mobile phones while they're with their wives and husbands.
+- Hillary Clinton was asked if she wiped the disc she was using for her email; she said, 'Do you mean with a damp cloth?' This, to me, is frightening.
+- I had more money than I could spend in million lifetimes.
+- My fragile connection with the world of polite society has, without a doubt, been severed.
+- I am looking at opening a school of social engineering. The McAfee School of Social Engineering has a nice ring to it. Beyond that, it is hard to say what life will bring my way.
+- I would like to point to the extraordinary lengths the mainstream media will go to maintain a sensationalist story.
+- I was an altar boy. I could probably quote the Bible from beginning to end.
+- If operating in a network environment, do not place public domain or shareware programs in a common file-server directory that could be accessible to any other PC on the network.
+- I have dual citizenship; I would be happy to go to England. I would be very happy to go to America.
+- I was one of the first practitioners of social engineering as a hacking technique, and today it is my only tool of use, aside from a smartphone - in a purely white hat sort of way. But if you don't trust me, then ask any reasonably competent social engineer.
+- I'm an entrepreneur. I always have been. I am curious, and I enjoy solving problems.
+- History told me that you just keep working, and it is easy to make more money.
+- Governments sometimes turn paranoid. And they fear things. And sometimes the thing they fear the most is the populace.
+- I have a huge underground following on the web.
+- Every newspaper on earth has called me a liar.
+- I know many people within Anonymous; I was the keynote speaker at Defcon in Las Vegas and got a standing ovation.
+- Dwight Eisenhower warned American citizens at the end of his presidency about the implications of the military-industrial complex and its influence over government. We have now gone well beyond any of the wildest imaginations that could have entered Eisenhower's mind.
+- Any idiot can make money. Keeping money, very few can do.
+- Steve Jobs was a friend and mentor whom I miss more than I can say.
+- I would describe myself as quite sane and lucid, which is why I'm still alive.
+- Corporate competition is fierce, viewed by many as economic warfare where all is fair. But politics... now, this is something unique.
+- These 'free' applications ask for permission to read your emails, your text messages, listen to your phone calls, record video from your phone. Why else would someone spend millions developing an application which they then give away? Kind-hearted, maybe? Get real.
+- There are always losers when society evolves. In the free market, these losers are expected and encouraged to retrain and find new ways to survive and thrive.
+- When we do not understand something, a common reaction is to fear it. In government, this is the usual, and encouraged, reaction. The reaction to the gig economy has been no different, and this growing fear has unfortunately turned into a legislative bloodbath.
+- The ones who are crazy enough to think that they can change the world are the ones who do.
+- Living with one woman is horrific.
+- I don't need friends.
+- I, perhaps wrongly, assume that people actually read articles that interest them rather than just headlines.
+- Security is a human problem.
+- The most promising privacy thing is stupid phones. I'm dumping all my smart phones.
+- I'm a paranoid person. I really am.
+- The beauty of knowing yourself is nobody else has to.
+- Belize is not ready for self-government.
+- In America, we have bible-reading applications: every single one of those applications asks permission to turn on your microphone, your camera; it wants permission to read your e-mails and the right to send e-mails wherever it chooses.
+- People are afraid of their own lives. Shouldn't your goal be to have a meaningful life? Unknown, mysterious, thrilling?
+- A hacker is someone who uses a combination of high-tech cybertools and social engineering to gain illicit access to someone else's data.
+- Really, what the government is asking Apple to do is to make every individual who uses an iPhone susceptible to hacking by bad people, foreign governments, and anyone who wants.

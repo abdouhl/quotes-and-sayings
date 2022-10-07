@@ -1,0 +1,32 @@
++++
+author = "Michael Ondaatje"
+title = "Michael Ondaatje Quotes"
+quotes_len = "26"
+description = "the best 26 Michael Ondaatje Quotes"
++++
+- I don't see novels ending with any real sense of closure.
+- The last three books are much more a case of a moment of history, what happened almost by accident or coincidence, like being in the same elevator or lifeboat.
+- That's Anil's path. She grows up in Sri Lanka, goes and gets educated abroad, and through fate or chance gets brought back by the Human Rights Commission to investigate war crimes.
+- I don't have a plan for a story when I sit down to write. I would get quite bored carrying it out.
+- Right now, I have no idea what I will write or if I will write again.
+- As a writer, one is busy with archaeology.
+- You don't want to write your own opinion, you don't want to just represent yourself, but represent yourself through someone else.
+- When you're writing, it's as if you're within a kind of closed world.
+- You're getting everyone's point of view at the same time, which, for me, is the perfect state for a novel: a cubist state, the cubist novel.
+- To write about someone like myself would be very limiting.
+- I'm a Canadian citizen. But I always want to feel at home in Sri Lanka. I'm a member of both countries.
+- Research can be a big clunker. It's difficult to know how you can make the historical light.
+- It's an odd state to be in, blowing the whistle on your home country.
+- The first sentence of every novel should be: Trust me, this will take time but there is order here, very faint, very human. Meander if you want to get to town.
+- Once I've discovered the story, I might restructure it, maybe move things around, set up a clue that something is going to happen later, but that happens much later in an editorial capacity.
+- Truth, at the wrong time, can be dangerous.
+- A writer uses a pen instead of a scalpel or blow torch.
+- It's a responsibility of the writer to get the reader out of the story somehow.
+- It's why you create characters: so you can argue with yourself.
+- The past is still, for us, a place that is not safely settled.
+- It doubles your perception, to write from the point of view of someone you're not.
+- I tend not to know what the plot is or the story is or even the theme. Those things come later, for me.
+- You want to suggest something new, but at the same time, resolve the drama of the action in the novel.
+- I see the poem or the novel ending with an open door.
+- In the book the relationship with Katharine and Almasy is sort of only in the patient's mind.
+- It's a discovery of a story when I write a book, a case of inching ahead on each page and discovering what's beyond in the darkness, beyond where you're writing.

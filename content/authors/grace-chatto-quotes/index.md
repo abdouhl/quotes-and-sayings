@@ -1,0 +1,76 @@
++++
+author = "Grace Chatto"
+title = "Grace Chatto Quotes"
+quotes_len = "70"
+description = "the best 70 Grace Chatto Quotes"
++++
+- Me wanting to play in Israel is not me making a statement about what's going on there.
+- The Tories will do everything they can to squash anything threatening to them and I think the involvement of young people in politics is threatening to them and we just don't really care.
+- There's a certain kind of humour in Miley Cyrus' writing, and also a depth.
+- I do wish we recorded the early stuff we did, because we basically had an album.
+- Gigs in Scotland are always so much fun.
+- We don't really think about it in a formulaic way, we just use the different styles as and when it feels right.
+- I'm just so honored to be able to travel around the world and play songs.
+- The videos are definitely as important as the music.
+- Well, the band name is just a stupid thing. We used to live in Russia and our friend there, a Russian lady just kind of described my sister as a clean bandit.
+- I don't know a lot of Kasabian's music. I am into rock music but I don't know their stuff.
+- We get so many kids telling us that they've taken up the violin or cello. It's really special, and it wasn't really our intention in the beginning.
+- We find it very interesting to call upon different voices as though they were different instruments.
+- Well, Sean Paul we've always wanted to work with.
+- Jeremy Corbyn became the leader of the Labour party, and suddenly there was a reason to get involved.
+- Often we make songs with people for us and one for them.
+- I wouldn't call myself a singer.
+- Shooting videos is the most intense, full-body experience.
+- We watch the MOBOs every year and it has always been a dream to be involved.
+- If it's a heartbreak-related stress, I like to listen to Lauryn Hill's 'Forgive Them Father' the most, especially the harmonies.
+- Breaking apart from someone you love very much can be unbearably painful, but finding yourself again can be a beautiful thing if you do your solitude right.
+- I never identified as a woman too much, because women aren't too different from men. But with all the #MeToo and Time's Up stuff, I thought about it differently.
+- We have a lot of people onstage. We have a live violin, live cello, live drums played on this kind of massive electronic kit with some acoustic elements built in.
+- It's so different in the different states, it is sometimes like being in a different country.
+- I think fame is really dangerous and... I don't really like to get too involved in it all.
+- We were introduced to a lot of dance music that we were blown over by. Kidnap Kid we love, WOZ, and Rudimental.
+- We really want Harry Styles to sing one of the songs that we've got.
+- I'd do another Cortana advert, I don't see why not.
+- Yeah it would be great to do something with Stormzy.
+- I tried to join the RAF cadets at school so I could fly a plane but then I realised you had to do all the other cadet stuff like training before they let you in a plane. Then you're roped in for life.
+- Being in adverts, it's a tricky thing, I suppose.
+- We're kind of influenced by all the different people we meet.
+- I hope our sound has introduced pop fans to classic and vice versa.
+- Keeping your lives as varied as possible is a good thing.
+- We always like working with really powerful female voices.
+- We built a bit of an audience at our university in Cambridge, playing Beethoven and Mozart quartets.
+- We actually make all of our own music videos. Often we come up with the visual concepts at the same time as writing the music.
+- For me, I'm not that interested in reading newspapers, for example, so the Labour Live event is a really good way for me to engage in party politics and hear speeches and have discussions.
+- I find the production in 'A&E' very beautiful, it reminds me of Ace Of Base, the way the bass has that space and the reggae.
+- I'm certainly treated differently to the boys in the band. People make assumptions about what I do and don't do within our projects. We produce our music together and I direct and edit the music videos.
+- I often find myself listening to the 'Shipping Forecast' on Radio 4. At first, I am usually wondering what time it is, but then, because often I'm on the other side of the bed and I can't be bothered to turn it off, I just listen and it becomes very relaxing.
+- When something sounds good, I don't think any of the connotations matter.
+- Looking back fondly, I think the first gig we did with the electronic stuff was really exciting because it was in this tiny club, like an Elizabethan building with beams.
+- A 'Clean Bandit' is a total bastard!
+- To work with different singers gives us creative freedom because we can experiment with different sounds on every song.
+- 'A&E' is one of my favourite songs we've made in terms of the production.
+- We have always played classical music and always loved dance and pop music.
+- I've always been interested in alternative family structures.
+- We wanted to be like Radiohead. When they started experimenting with electronic music, it gave us the idea that it might be a cool idea to do.
+- We'd love to collaborate with Sam Smith. I've told him. Many times. We've got loads of songs we've written that we can literally just hear his voice on.
+- We like to party.
+- Working in Italy can be quite hard because they don't have schedules - we arrive at TV shows and they're like, 'We're not sure when you're on, could be a minute, could be an hour.' We were on their equivalent of 'The Voice' and the timing was determined by whenever the judge decided the time was right. We waited five hours!
+- I think I like attention, but because of the way we are - because we don't have a lead singer and all the videos have so many different people in them - I think people aren't really that sure about who's in the band.
+- We do write our own music.
+- Italy is best for holidays.
+- I didn't know we'd been tagged as posh. I went to a state school in London, so maybe people think I have a posh voice and that's where it comes from?
+- Playing an instrument is such a wonderful pleasure.
+- I'm of the opinion that gender is a social construct.
+- Neil Amin-Smith and I met playing in classical orchestras when we were children. We are from the same area of London. We met Jack Patterson when we were studying at Cambridge University, and decided to start the band together.
+- When we started the band, it was a classical group.
+- It was an honor to work with Julia Michaels.
+- Yeah, we're definitely not opposed to working with famous vocalists, but we really want to make sure that it's all about the sound of the voice and how appropriate it is for the song, and not kind of 'getting together with people just for the sake of it' kind of thing.
+- This way of working on individual songs in isolation from other songs is actually how we've always kind of done it.
+- Mozart's House' had been on our Myspace page for a while and had about 50 views.
+- I think since our style is different, while jamming we want to let it flow without having any preconceived notions of each other's style. That is the fun of collaboration, I guess.
+- If it's a Clean Bandit-related stress, there are smooth things they play on Classical FM that can help, such as Barber's 'Adagio for Strings,' or there is a choral version of it too that is very relaxing.
+- I sometimes never really realize what lyrics are saying.
+- Glasgow with its art and music scene has so much going on, it's attractive to people and there seems to be a good vibe up there.
+- This is such a perfect kind of career for me because I love making videos and being in the studio and being on tour.
+- Drake, the way he uses that Auto-Tune has always been attractive, hasn't it?
+- I've spent some time in Edinburgh before. I used to go up there to busk and actually went to the Fringe a few times as a teenager with my cello.

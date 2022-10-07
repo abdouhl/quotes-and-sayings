@@ -1,0 +1,102 @@
++++
+author = "Maeve Binchy"
+title = "Maeve Binchy Quotes"
+quotes_len = "96"
+description = "the best 96 Maeve Binchy Quotes"
++++
+- Most people, once the money started getting bigger, thought we would buy a millionaire's house looking out at the sea - but what would two middle-aged people do that for? We were sensible enough when we got it.
+- I believed that old people never laughed. I thought they sighed a lot and groaned. They walked with sticks, and they didn't like children on bicycles or roller skates... or with big dogs.
+- On the first day of school, my father told me I'd be the most popular girl and everyone would love me and want to be my friend. It wasn't so, but it gave me an enormous amount of confidence.
+- I have been luckier than anyone I know or even heard of. I had a very happy childhood, a good education, I enjoyed working as a teacher, journalist and author. I have loved a wonderful man for over 33 years, and I believe he loves me, too.
+- I'm a great will maker. I've made my will every year since I was 21.
+- I didn't get excited by weight loss, and since I was already happy being fat, I couldn't see the point of it all. I'm 6 ft. and weigh about 18 st. or 19 st., but weighing myself is not something I do with much pleasure.
+- I wore miniskirts in the days when no fat girls should have, and with total delight.
+- I once tried to write a novel about revenge. It's the only book I didn't finish. I couldn't get into the mind of the person who was plotting vengeance.
+- If I see Marian Keyes' books or Patricia Scanlan's books given more prominence than mine in the bookstore, I'll move mine to the front. I've told them I do this, and they've confessed to doing the same thing to me.
+- I once got a huge, expensive flower arrangement from a person I didn't like, who sent it out of pure guilt. It had a hideous bird-of-paradise in the middle, and I thought it would never fade and die. I hated it.
+- I've had a good life, full of more success and happiness than I ever expected.
+- I think I was dealt a good hand. I have happy genes.
+- Always write as if you are talking to someone. It works. Don't put on any fancy phrases or accents or things you wouldn't say in real life.
+- Never mind money; the gifts of time and skill call into being the richest marketplace in the world.
+- We are all the heroes and heroines of our own lives. Our love stories are amazingly romantic; our losses and betrayals and disappointments are gigantic in our own minds.
+- Modern surgery has been like a miracle to those who thought the pain was going to go on forever.
+- I thought it must be desperate to be old. To wake up in the morning and remember that you were ancient - and so behave that way. I thought old people were full of aches and pains and horrible illnesses.
+- As a memorial, I'd like a statue. Not of me, but a little modern statue, in marble or bronze, maybe of a bird, in a park where children could play and people going by could see it. On it, I'd just like it to say: 'Maeve Binchy, storyteller' and people could look at the name and remember that they'd seen it somewhere else.
+- I never wanted to write. I just wrote letters home from a kibbutz in Israel to reassure my parents that I was still alive and well fed and having a great time. They thought these letters were brilliant and sent them to a newspaper. So I became a writer by accident.
+- My mother was a trained nurse, and she'd tell me that patients would fight as they were administered anaesthetic, grappling to get the gas mask off their face.
+- I'm an escapist kind of writer.
+- Because I saw my parents relaxing in armchairs and reading and liking it, I thought it was a peaceful grown-up thing to do, and I still think that.
+- I'm pleased to have outsold great writers. But I'm not insane - I realize I am a writer people buy to take on vacation.
+- Of course, I should have done what doctors said and walked for miles every day and not eaten great amounts of butter. But then, life is life, and if we all did what they said we should do, it would be a different world.
+- Growing up in Ireland, there never seemed to be the notion that children should be seen and not heard. We all looked forward to mealtimes when we'd sit around the table and talk about our days. Storytelling and long, rambling conversations were considered good things.
+- You say to yourself: 'What could people, in all these countries, find in my books?' and yet I think we're all the same, anywhere. Everybody is a hero or a dramatic person in their own story if you just know where to look.
+- If you're going on a plane journey, you're more likely to take one of my stories than 'Finnegan's Wake.'
+- I have an irregular heartbeat, so that means a fair amount of medication - and I have blood pressure pills, too, but no vitamins or supplements.
+- Of course I wanted children. Bright, gorgeous, loving children. I could almost see them.
+- Happiness is in our own hearts. I have no regrets of anything in the past. I'm totally cheerful and happy, and I think that a lot of your attitude is not in the circumstances you find yourself in, but in the circumstances you make for yourself.
+- I discovered that men were just like everyone else, really. They liked you if you were good-tempered and easy to talk to. And being a big girl meant other females trusted you more and confided in you.
+- I was lucky enough to be fairly quick at understanding what was taught, but unlucky enough not to be really interested in it, so I always got my exams but never had the scholar's love of learning for its own sake.
+- If you woke up each morning, and immediately dwelt on your ills, what sort of a day could you look forward to?
+- That's the kind of motif I bring to the books - that people take charge of their own lives.
+- Nobody ever wins by the cavalry coming to rescue you. It isn't a question of you're happy if you get married, or you get thin, or you get rich, because I've known lots of thin, rich, married people who are absolutely miserable.
+- If I had my life to live all over again, I really think I would have been a fit person. Looking around me, I realise that the men and women who walked and ran and swam and played sport look better and feel better than the rest of us.
+- I am not a member of Fat Liberation, nor do I think that obesity is healthy. But I do believe that in many ways my life has been a more charmed and happy one because I was always large.
+- An English journalist called Michael Viney told me when I was 25, that I would write well if I cared a lot what I was writing about. That worked. I went home that day and wrote about parents not understanding their children as well as we teachers did, and it was published the very next week.
+- The most important thing to realise is that everyone is capable of telling a story. It doesn't matter where we were born or how we grew up.
+- I've seen a lot of people buy my books and then fall asleep on the plane soon afterwards.
+- Nobody is ordinary if you know where to look.
+- Everybody is a hero in their own story if you just look.
+- My memory of my home was that it was very happy, and that there was more fun and life there than there was anywhere else.
+- I think I'm brave because I've made decisions based - I hope not entirely selfishly - on what I think is right for me to do next.
+- I was just lucky I lived in this time of mass-market paperbacks.
+- The great thing about getting older is that you become more mellow. Things aren't as black and white, and you become much more tolerant. You can see the good in things much more easily rather than getting enraged as you used to do when you were young.
+- We have to make our own happiness, and we have to make our own decisions and play the hand that is dealt to us.
+- I'm mainly an airport author, and if you're trying to take your mind off the journey, you're not going to read 'King Lear.'
+- My father went to work by train every day. It was half an hour's journey each way, and he would read a paperback in four journeys. After supper, we all sat down to read - it was long before TV, remember!
+- I am much more understanding of people than I used to be when I was young - people were either villainous or wonderful. They were painted in very bright colours. The bad side of it - and there is a corollary to everything - is that when we get older, we fuss more. I used to despise people who fussed.
+- After my hip operation, I had to cut out butter, which I loved, and salt. I no longer eat desserts with lots of cream, and I've cut right back on alcohol.
+- Happiness is knowing and appreciating what you've got. I am very, very, very grateful for what, to me, is dead easy.
+- When I was younger, I avoided exercise or anything strenuous. I didn't even enjoy walking. As I got older, I spent so much time marking books or sitting at a desk writing that there was no room for exercise - not that I would have bothered anyway.
+- All I ever wanted to do is to write stories that people will enjoy and feel at home with.
+- I don't have ugly ducklings turning into swans in my stories. I have ugly ducklings turn into confident ducks.
+- I'm getting better, happier, and nicer as I grow older, so I would be terrific in a couple of hundred years time.
+- I was very pleased, obviously, to have outsold great writers. But I'm not insane - I do realise that I am a popular writer who people buy to take on vacation.
+- I grew up thinking it was wonderful to be big and strong and to be able to knock down other children in the playground if I needed to. But I never felt the need.
+- We asked our friends and relations to lend us their children, and, because we lived in London, children loved to come and stay for their half-term holidays.
+- I am a big, confident, happy woman who had a loving childhood, a pleasant career, and a wonderful marriage. I feel very lucky.
+- I was fat, and that was awful because when you're young and sensitive, you think the world is over because you're fat.
+- When I was being brought up, we weren't allowed to wallow in self-pity, which was a thoroughly good thing. We were all fine and healthy because that was what we were told to be.
+- Success is not like a cake that needs to be divided. It's more like a heap of stones - a cairn. If someone is successful, they add a stone to the cairn. It gets very high and can be seen from all over the world. That's how I see it.
+- In my books, there is no 'ugly duckling turning into a beautiful swan' syndrome because if you look at the Hansel and Gretel syndrome, it was a mistake. It wasn't a duckling, it was a cygnet, and that's why it turned into a swan. The duckling should with any luck turn into a nice clucking duck and get on with its life. Cluck! Cluck! Cluck!
+- You don't wear all your jewellery at once. You're much more believable if you talk in your own voice.
+- I was the big, bossy older sister, full of enthusiasms, mad fantasies, desperate urges to be famous, and anxious to be a saint - a settled sort of saint, not one who might have to suffer or die for her faith.
+- I don't say I was 'proceeding down a thoroughfare;' I say I 'walked down the road'. I don't say I 'passed a hallowed institute of learning;' I say I 'passed a school'.
+- I used to dream of some kind of way that you could carry a phone with you - but I never thought I would see it in my lifetime. It doesn't matter nowadays if you are caught in traffic or got lost on the way somewhere. You can just send a text and the recipient will know that you haven't fallen under a bus.
+- I have been blessed with friends who do things rather than buy things: friends who will change books at the library, take a bag of your old clothes to a thrift store, bring you cuttings and plant them in a window box, fill the bird feeder in your garden when you can't get out.
+- I'm particularly fond of boned chicken breasts with a little garlic under the flesh and cooked in a casserole for 40 minutes with a jar of olives, some cherry tomatoes and a spoonful of olive oil.
+- I have great family and good friends; the stories I told became popular, and people all over the world bought them.
+- I've been very lucky and I have a happy old age with good family and friends still around.
+- I had a very happy childhood, which is unsuitable if you're going to be an Irish writer.
+- I realized that you didn't have to make self-deprecating remarks or turn yourself into the butt of some unspoken joke. I also discovered that being big didn't deter possible suitors.
+- I do realize that I am a popular writer who people buy to take on vacation. I'm an escapist kind of writer.
+- I have been lucky enough to travel a lot, meet great people in many lands. I have liked almost everyone I met along the way.
+- I live in Ireland near the sea, only one mile from where I grew up - that's good, since I've known many of my neighbours for between 50-60 years. Gordon and I play chess every day, and we are both equally bad. We play chatty, over-talkative bad bridge with friends every week.
+- I couldn't have children, so that's the bad side. But compared to everything else I have, it's not all that terribly bad. I count my winners rather than my losers.
+- When I was teaching Latin in girls' schools before I became a writer, I didn't much like it if parents would come in and say, 'We'll have less of the Ovid and Virgil and more of the grammar, please.' After all, I was the one in charge. That's how I feel about doctors. You should trust them to do their job properly.
+- I have always believed that life is too short for rows and disagreements. Even if I think I'm right, I would prefer to apologize and remain friends rather than win and be an enemy.
+- The biggest influence on my books was the fact that I had worked in a newspaper for so long. In a daily paper, you learn to write very quickly; there is no time to sit and brood about what you are going to say.
+- In my stories, whenever there's somebody wonderful and charming and bright and intelligent, that's me!
+- I was very pleased, obviously, to have outsold such great writers. But I'm not insane - I do realize that I am a popular writer who people buy to take on vacation.
+- I didn't have a sweet tooth, but I liked butter, and I liked sauces, and I liked wine... and curry... and cheeses.
+- I think you've got to play the hand that you're dealt and stop wishing for another hand.
+- I love thriller writers. My favourites are Harlan Coban, Lee Child, Ian Rankin, Kathy Reichs and Ed McBain.
+- I suppose, to be fair, I don't miss the energy of youth very much - because I was never fit. So it doesn't matter not being able to walk miles, striding the countryside, taking deep breaths and enjoying the scenery. That was never on my agenda.
+- My brother married young, and his is the best marriage I know.
+- If you don't go to a dance, you can never be rejected, but you'll never get to dance, either.
+- My mother hoped I would meet a nice doctor or barrister or accountant who would marry me and take me to live in what is now called Fashionable Dublin Four. But she felt that this was a vain hope. I was a bit loud to make a nice professional wife, and anyway, I was too keen on spending my holidays in far flung places to meet any of these people.
+- We're nothing if we're not loved. When you meet somebody who is more important to you than yourself, that has to be the most important thing.
+- My family life reads a bit like 'Little House on the Prairie.' I was big sister to Joan, Renee, and brother William, and we grew up in Dalkey, a little town 10 miles outside of Dublin. It was a secure, safe and happy childhood, which was meant to be a disadvantage when it comes to writing stories about family dramas.
+- There are no makeovers in my books. The ugly duckling does not become a beautiful swan. She becomes a confident duck able to take charge of her own life and problems.
+- I remember watching myself on video and being so disappointed with myself because I was constantly moving around the place and laughing. I thought, 'I must be so much louder than I think I am. From inside it feels fine.'
+- Women who start out as ugly ducklings don't become beautiful swans. What they mainly become is confident ducks. They take charge of their lives.
+- When my sister Joan arrived, I asked if I could swap her for a rabbit. When I think what a marvellous friend she's been, I'm so glad my parents didn't take me at my word.

@@ -1,0 +1,37 @@
++++
+author = "J. Robert Oppenheimer"
+title = "J. Robert Oppenheimer Quotes"
+quotes_len = "31"
+description = "the best 31 J. Robert Oppenheimer Quotes"
++++
+- When you see something that is technically sweet, you go ahead and do it and you argue about what to do about it only after you have had your technical success. That is the way it was with the atomic bomb.
+- I saw what the Depression was doing to my students. Often they could get no jobs, or jobs which were wholly inadequate. And through them, I began to understand how deeply political and economic events could affect men's lives. I began to feel the need to participate more fully in the life of the community.
+- Any man whose errors take ten years to correct is quite a man.
+- The peoples of this world must unite or they will perish.
+- The optimist thinks this is the best of all possible worlds. The pessimist fears it is true.
+- Science is not everything, but science is very beautiful.
+- There are children playing in the streets who could solve some of my top problems in physics, because they have modes of sensory perception that I lost long ago.
+- No man should escape our universities without knowing how little he knows.
+- Access to the Vedas is the greatest privilege this century may claim over all previous centuries.
+- In the material sciences these are and have been, and are most surely likely to continue to be heroic days.
+- If atomic bombs are to be added as new weapons to the arsenals of a warring world, or to the arsenals of nations preparing for war, then the time will come when mankind will curse the names of Los Alamos and of Hiroshima.
+- Scientists are not delinquents. Our work has changed the conditions in which men live, but the use made of these changes is the problem of governments, not of scientists.
+- My mother was born in Baltimore, and before her marriage, she was an artist and teacher of art.
+- To try to become happy is to try to build a machine with no other specifications than it shall run noiselessly.
+- It is a profound and necessary truth that the deep things in science are not found because they are useful: they are found because it was possible to find them.
+- Both the man of science and the man of action live always at the edge of mystery, surrounded by it.
+- It is a profound and necessary truth that the deep things in science are not found because they are useful; they were found because it was possible to find them.
+- In the spring of 1936, I was introduced by friends to Jean Tatlock. In the autumn, I began to court her. We were at least twice close enough to marriage to think of ourselves as engaged.
+- I was born in New York in 1904.
+- I never accepted Communist dogma or theory.
+- I had had a continuing smoldering fury about the treatment of Jews in Germany.
+- There must be no barriers to freedom of inquiry. There is no place for dogma in science. The scientist is free, and must be free to ask any question, to doubt any assertion, to seek for any evidence, to correct any errors.
+- My life as a child did not prepare me for the fact that the world is full of cruel and bitter things.
+- The atomic bomb made the prospect of future war unendurable. It has led us up those last few steps to the mountain pass; and beyond there is a different country.
+- In the spring of 1929, I returned to the United States. I was homesick for this country. I had learned in my student days a great deal about the new physics. I wanted to pursue this myself, to explain it, and to foster its cultivation.
+- My childhood did not prepare me for the fact that the world is full of cruel and bitter things.
+- In some sort of crude sense, which no vulgarity, no humor, no overstatement can quite extinguish, the physicists have known sin; and this is a knowledge which they cannot lose.
+- I am become death, the destroyer of worlds.
+- I need physics more than friends.
+- The history of science is rich in example of the fruitfulness of bringing two sets of techniques, two sets of ideas, developed in separate contexts for the pursuit of new truth, into touch with one another.
+- To recruit staff, I traveled all over the country talking with people who had been working on one or another aspect of the atomic-energy enterprise and people in radar work, for example, and underwater sound, telling them about the job, the place that we are going to, and enlisting their enthusiasm.

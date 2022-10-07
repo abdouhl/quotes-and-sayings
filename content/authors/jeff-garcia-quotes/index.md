@@ -1,0 +1,18 @@
++++
+author = "Jeff Garcia"
+title = "Jeff Garcia Quotes"
+quotes_len = "12"
+description = "the best 12 Jeff Garcia Quotes"
++++
+- Part of my growing up was always trying to make my parents proud and always trying to keep them happy. I think part of what held them together was my involvement in sports.
+- When you think about your heritage, you think about toughness and hard work.
+- I really want to make this the last stop of my career. I don't want to be a vagabond, so to speak, and be traveling from team to team, year in and year out. I'm not that type of guy. I like to be settled.
+- There are times when I'm watching an NFL quarterback struggling to get through the game, and I get bitter to some extent.
+- When I graduated from college I didn't want to play in the AFL.
+- I'll take as much work as I can get. You can always need more work.
+- I don't know if it's how I speak or what it is about me that presents that sort of label, but I don't know how many times I have to be out in public with a girlfriend to stop that from being said.
+- I think I'm very conscientious of how precious life is and how quickly life can be taken away from you, especially at times when it can be least expected.
+- I've been fortunate and blessed to further my career in the Arena Football League, and I've had a good time doing it.
+- I'll be ready. I'm ready right now.
+- Just because an individual in his 30s hasn't found true love and, yes, there are opportunities to date but it also forces you to be more particular. In so many ways, you become more adamant about finding that right person and not allowing yourself to open up to just anybody.
+- If I had it my way, I never would have left San Francisco, but things change and that's the nature of this business. We have to move on. We hopefully get opportunities down the road that we take advantage of.

@@ -1,0 +1,62 @@
++++
+author = "Sylvia Day"
+title = "Sylvia Day Quotes"
+quotes_len = "56"
+description = "the best 56 Sylvia Day Quotes"
++++
+- The '50 Shades' series is a Cinderella story, where the characters seemingly have no flaws. The 'Crossfire' series is very different in that these two characters are almost mirror images of each other.
+- I have things I watch in my downtime - I love 'Scandal.' I don't write political romance, so there's not a direct relation there. But it's something I do just to turn off the brain for a little bit, and just to relax and recharge.
+- I know of a few writers who are husband and wife teams.
+- I was 12 and read my first romance novel; it was a sweeping desert saga, and I got to the end of it and was like, 'I want to go back and start all over again!' That emotional response to the book and getting to the end of a story you love is what inspires me to write the next book.
+- Writers are not celebrities, so you don't expect to walk down the street and hear, 'Oh my God, there's Sylvia Day.' You prefer to be anonymous.
+- I can't live without my smartphone, but I really geek on coding. It's not so much technology that I like, but puzzle solving.
+- Living is a constant source of inspiration.
+- Take your time, however long the book needs. I've seen a lot of promising careers go into decline because writers succumbed to the pressure to write faster than was comfortable for them or the story.
+- Some days, you will sit down, and you write tens of thousands of words. Others, you have to force yourself to write a single sentence.
+- I'm a multimillionaire.
+- Publishers should use the paperback side to leverage the ebook side.
+- When it comes to your hero, what the readers really fall in love with are his flaws. No one ever falls in love with a perfect hero.
+- 'One With You' was the hardest book I have ever written. I rewrote it three times.
+- Every writer follows a theme, and mine is survival. If you can't figure out what a writer's theme is, look at the books you are attracted to.
+- I've found that writers who don't read really can't write.
+- As for discipline and rules, I confess, I've never been good with either.
+- The 'Blacklist' duology is a project I am very passionate about, and when the St. Martin's Press team approached me, I was captivated with their presentation.
+- I think we love the fantasy of being the one person who can really touch the person who has been untouchable for everybody else. There's something that makes us feel very special about that; that we could be the one out of everyone who's tried and everybody who's wanted to reach that person - you're the only one who could do it.
+- Some writers may hate interacting on social media. And if you do, don't do it, because it shows. If you are uncomfortable being out in public, that shows, too, and makes the reader uncomfortable. So find the best way for you to connect with your readers and a way that you enjoy.
+- Reading is No. 1 - I have to read, or I can't write.
+- I love connecting with readers!
+- There are millions of people who think that romance isn't real writing. But the only person who can make you real, make your books real, is you.
+- I had a very realistic expectation of the level of success that it was possible to attain writing romance novels.
+- I believe that if you work hard at a relationship, devoting time and energy to it, being willing to grow and experiment, and never take it for granted, that you can continue to feel the initial attraction and excitement indefinitely.
+- It's fun to try and picture what exactly is in your head and translate it onto the screen. How you can take something that lives in my mind and bring it to life - but that part is fun.
+- The damaged wealthy hero is actually a hugely common trope in romance, and alpha heroes are very common in romance.
+- My heroines, more often than not, are the ones who are troubled and resistant.
+- I spend a lot of time on social media, I'm on Facebook every day; I'm on Twitter every day.
+- Gratitude goes a long way.
+- My mom handed me my first romance novel.
+- When a story captures me, it comes quickly and easily.
+- I've been told by readers that they love how my heroes fall in love fast, first, and with conviction.
+- I just have to let the story go the way it needs to go and let them take the detours they want to take, and I'll get to the end.
+- Readers want a good book; it's a writer's job to give it to them.
+- For the most part, romance is written in third person, and it's written in multiple points of view, so you're in the hero's head, and you're in the heroine's head. I've always said that I'm more of a narrator than a creator.
+- The publishing industry provides a viable channel which enables a wide distribution of books that we're not seeing in any other way. Unfortunately, self-publishing doesn't have that.
+- There were points in my career where I thought, 'Maybe I'm done. Maybe I've written everything there is to write.' Now I've learned that it's just working itself out. You have to let it do it.
+- Especially in writing love stories, there's always the assumption that once you've said 'I do,' once you get to the point where you're married, well, the hard part is over.
+- I want to write a story for people where they finish it, and it sticks with them.
+- Writing the 'Crossfire' series is deeply personal for me, and I love the whole process of it.
+- I love digital books. And I actually started digital-first publishing back in 2005.
+- Obviously, there are those in the industry who don't give romance novels the level of respect the sales would warrant. They'll talk about a book that sells maybe 100,000 copies, that happens to be very literary, whereas something like 'Crossfire' will sell 13 million copies in a single language and hardly get any mentions at all.
+- I go to a lot of conferences and conventions to meet with readers directly.
+- The world would be a very sad place if readers could only love one story.
+- Nalini Singh, J.D. Robb, Patricia Briggs, Shelby Reed - these are my pre-order, must-have authors.
+- The 'Crossfire' demographic is all-encompassing. Age, gender, religion, culture... it doesn't matter.
+- It's not uncommon for men to show up at my book signings or to send me emails with their thoughts about my books. I've also heard from a number of female readers who were introduced to my works by men in their lives.
+- I have had unattractive heroes - broken noses, scars, crooked teeth. You want to give them something that is human. My heroines struggle with being too short or fat or old. Some are older than the heroes. You try to cover all spectrums.
+- I've learned to allow myself the room to fall in love with what I'm writing.
+- You really couldn't do a PG version of 'Crossfire!' It just wouldn't work.
+- I urge aspiring writers to write three full-length novels before contemplating publication.
+- I'm a big fan of IMAX/3-D films; I love that whole experience.
+- Other genres are plot-driven, but the entire focus of a romance novel is on the characters and their arcs.
+- As a writer, it's disheartening to write books that you pour your soul into and not have them distributed widely enough to find their audience.
+- The No. 1 thing is to write the book that you love and then hope that it finds an audience with the same taste as you. I think I've done that, and that's lucky.
+- 'Scandal' is great because it's intriguing and sexy, and it has a lot of play with secondary characters in situations, lots of drama.

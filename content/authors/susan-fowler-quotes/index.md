@@ -1,0 +1,18 @@
++++
+author = "Susan Fowler"
+title = "Susan Fowler Quotes"
+quotes_len = "12"
+description = "the best 12 Susan Fowler Quotes"
++++
+- When I was harassed and discriminated against, I fought as hard as I could - because I hadn't gone through all of that, I hadn't worked so hard my entire life, just to have someone take it away from me.
+- What I keep going back to, and what keeps me going, is trying to do good in whatever little spot of the world we can influence, no matter how small.
+- The second Trump won, I felt super-powerless and I thought, 'Oh my God, no one's looking out for us.'
+- I never had a single thing handed to me. I had to fight for everything I wanted, like my education.
+- I had this really intense resolve. I would call universities and community colleges and say, 'I really want to go to college. How do I get to college? What do I do?' And they would say, 'You have to get an application. You have to get letters of recommendation.' It was terrifying. I had no idea what I was doing.
+- You're no longer the engineer or the physicist or the writer - you're the whistleblower.
+- When I joined Uber, the organization I was part of was over 25% women. By the time I was trying to transfer to another Eng. organization, this number had dropped down to less than 6%. Women were transferring out of the organization, and those who couldn't transfer were quitting or preparing to quit.
+- The decision to join Stripe and run 'Increment' was a pretty easy one for me: It was an opportunity to be impactful, to collect and share best practices from the most effective engineering teams in the world. 'Increment' is a step toward flattening the distance between the Silicon Valley elite and developers everywhere.
+- A lot of women have been whistle-blowers in the past, and a lot of them have just gotten torn down and treated terribly. One of the things that kept popping up was this idea that if you do whistle-blow about sexual harassment, then that is what will define the rest of your life.
+- When I was younger, I used to think that my unconventional upbringing was a weakness, but over the past few years, I've learnt to see it as one of my greatest strengths.
+- Stepping back, just being in my little Stoicism Susan bubble, if what people know you for is bringing light to an issue about bad behavior, about bad stuff going on and laws not being followed and people being treated inappropriately, why wouldn't I want that? That's a badge of honor.
+- I would call universities and community colleges and say, 'I really want to go to college. How do I get to college? What do I do?' And they would say, 'You have to get an application. You have to get letters of recommendation.' It was terrifying. I had no idea what I was doing.

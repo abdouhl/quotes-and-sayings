@@ -1,0 +1,32 @@
++++
+author = "Martti Ahtisaari"
+title = "Martti Ahtisaari Quotes"
+quotes_len = "26"
+description = "the best 26 Martti Ahtisaari Quotes"
++++
+- There are always interests that are furthered by war. Therefore, those who have power and influence can also stop them... we should not accept any excuses from those in power.
+- With my mother, I moved from one household to another before settling in the eastern part of Finland, in the city of Kuopio.
+- Perhaps it's a curse, but when you are a Lutheran, you have a sense of responsibility.
+- If one has problems with immigrant communities in Europe, that should not be used against Turkey.
+- I have no superhuman powers. If people don't want to make peace, there is nothing I can do.
+- Normally, I like to eat at home. We don't go out much. The food at home is so good.
+- The mere fact that I'm former head of state and former under-secretary in the U.N. system, it means that I can get in touch with anybody in the world, in theory.
+- I saw an advertisement to work for a Swedish institute in Karachi in Pakistan. I had just been offered a permanent assignment, teaching in Oulu. But I felt, 'My God, I am not going to stay here forever.' You know why? Because I was following international events.
+- It is clear a Palestinian state is needed.
+- The only people that can make peace are the parties to the conflict, and just as they are responsible for the conflict and its consequences, so should they be given responsibility and recognition for the peace.
+- Mediators do not choose the conflicts they became involved in, but the parties to the conflict choose the mediator. Their participation as intermediaries is based on the trust of all the conflicting parties.
+- Peace is a question of will. All conflicts can be settled, and there are no excuses for allowing them to become eternal.
+- I'm concerned when certain movements or countries have been isolated from the international dialogue because then you have no way of influencing them.
+- We are convinced that Turkey would be a useful member of the European Union.
+- Luck has a lot to do with how your life develops.
+- I know what it's like when you are a refugee, living on the mercy of others and having to adjust.
+- The task of the mediator is to help the parties to open difficult issues and nudge them forward in the peace process. The mediator's role combines those of a ship's pilot, consulting medical doctor, midwife and teacher.
+- Like several hundred thousand fellow Karelians, we became refugees in our own country as great power politics caused the borders of Finland to be redrawn and left my home town as part of the Soviet Union.
+- Wars and conflicts are not inevitable. They are caused by human beings.
+- No country's policies are eternal; they do vary. People are growing old, and a new generation is coming to power. In a year's time, a government can look different. You can't influence them if you don't talk to them.
+- You need to carry out very careful pre-feasibility and feasibility studies before you enter any crisis situation.
+- The origins of my career as a peace mediator can be found from my childhood years. I was born in the city of Viipuri, then still part of Finland. We lost Viipuri when the Soviet Union attacked my country. Along with 400,000 fellow Karelians, I became an eternally displaced person in the rest of Finland.
+- If the political will is there, we can solve anything.
+- In the last year of my presidency, I travelled 200 days out of 365. You have to lead a very disciplined life. To be able to do that, I need a lot of sleep. But I have no problems sleeping. On long days, I can easily take a nap for 20 minutes in the afternoon.
+- Religions themselves are... peace-loving. They can also be a constructive force in peace-building, and this also applies to the Middle East.
+- I'm one of those people who, as long as I am still healthy and my thoughts are more or less clear, I don't think I can retire entirely.

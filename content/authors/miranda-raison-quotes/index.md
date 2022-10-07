@@ -1,0 +1,17 @@
++++
+author = "Miranda Raison"
+title = "Miranda Raison Quotes"
+quotes_len = "11"
+description = "the best 11 Miranda Raison Quotes"
++++
+- Filming 'Doctor Who' is so incredibly different to 'Spooks.' Near to the surface, there's quite a silly atmosphere. A lot of the times, you're on the verge of giggles because it's so over the top.
+- I've had more fan mail from 'Doctor Who' than anything. People love the show so passionately.
+- I haven't done as much proper travelling as I'd like to have done. However, I know how important the weather is for my mood and spirits.
+- My favourite programme of all time is 'Weeds'; the first three or four series are perfection.
+- I'm really into beaches, but I also enjoy a bit of culture. An ideal holiday would have a nice balance of the two, but I'm definitely not into adrenalin sports, nor would I enjoy spending a month solid on a beach.
+- My mum lives near Holkham Bay in Norfolk, and with my dad by the coast in Suffolk, I spend quite a bit of time by the sea.
+- Most shows find themselves descending into sentimentality or earnestness at some point but, with 'Community,' the joke is always on.
+- A lot of shows peak after a series and never get it back, but 'Breaking Bad' keeps the tension up all the time.
+- I'm a bad traveller because I suffer from travel sickness.
+- I was genuinely frightened when I saw the Daleks. These ridiculous-looking things absolutely get to the core of you when you're standing in front of one.
+- I do read on holiday, but it tends to be very lowbrow. I'm into really camp biographies, and I'm a shameless fan of Jilly Cooper.

@@ -1,0 +1,78 @@
++++
+author = "Jesse Lingard"
+title = "Jesse Lingard Quotes"
+quotes_len = "72"
+description = "the best 72 Jesse Lingard Quotes"
++++
+- I try to enjoy it as much as I can every time I play and get the fans off their feet and try to score some goals.
+- Sometimes I can switch into clever mode.
+- You have to get your rest and have your recovery time.
+- The mentality of wanting to win has come into my game more.
+- If you want to be the best team in the world, you've got to beat the best teams.
+- When you actually get on the field, you've got to work. You've got to train. You've got to learn. You've got to put 100 per cent into it.
+- We know Manchester United's history and the fact the club is known for winning trophies.
+- I moved when I was about 12 years old: different school, had to live in digs. It was harder for my family, but eventually, they understood it was a path that Manchester United had made for me. I had to stick to it, and it has paid off.
+- Man United is one of the biggest clubs in the world, and we're going to attract the best players.
+- You learn a lot, and you want to keep training hard, and like I said, you will get your chance; it's all about taking it.
+- I like to put a smile on people's faces.
+- You're always disappointed not to start for your country, but that's the gaffer's decision.
+- Consistency, goals, and assists - that gets you confidence and puts the thought in the manager's head that he can't drop you.
+- I had a little ladybird ball in the back garden; I think I was about one. I started off early.
+- Obviously, there will be different character traits in the dressing room, but I'm there to bring happiness and a smile.
+- You train hard all week, and in your downtime, you can relax with your friends and have fun.
+- It's always in the back of your mind that you want to stay at United, and you want to play for United.
+- Once you play, you've got to show the manager what you can do.
+- I have always wanted to play for United, and when I got my chance, I knew I had to take it no matter what, so you go out with no pressure.
+- We enjoy playing matches; that's why we play football.
+- I listen to both, but more grime before matches to get you kind of pumped up. But then I might switch to the U.S. hip hop to just vibe out.
+- Sometimes games may not go the way you plan it, and sometimes you have to do the dirty, gritty stuff well - you have to tackle; you have to run. I learned that when I was young, and it is a good feeling to work hard for the team, to get the ball back.
+- It definitely gives us a lot of confidence to be playing for Manchester United as a youngster, and, as long as you keep working, you are always going to get your chance.
+- I'm not really a book person, to be honest.
+- I'm the type of guy that's always having a joke, messing around, but when it comes to the serious stuff, you know, your head's on the game.
+- Pressure is good.
+- When you get older, you realise it's all about winning games and winning trophies.
+- There's always pressure on people's shoulders when it comes to Man United, and it's how you deal with the pressure.
+- It's always good for us to score as attacking players and to help the team get the three points.
+- I've won a lot of trophies - like the FA Youth Cup and the reserves league a couple of times - but it would top it off to win the Premier League with the first team.
+- You've got to be a role model to the younger generation who look up to you, but it's always good to have fun. That's what the goal celebrations are about, really.
+- Every game, you've got to play with no fear.
+- When you score a goal, it boosts yourself and the team as well.
+- I think if you score, you've got to have fun; otherwise, what's the point?
+- It was a great experience under Van Gaal. He gave you the confidence to go and play.
+- We can't let the fans influence how we play.
+- I first realised I was good at football when I started getting scouted by United, Liverpool, Everton; clubs like that had a lot of interest at an early age, and you kind of know then you're on the right path. I was about six years old and had to sign a contract at nine.
+- It's always going to be hard when you see the other team lifting a trophy. When you have to walk up those stairs and collect the runners-up medal, it's hard.
+- At a big club, sometimes you are going to be in, and sometimes you are going to be out, but it's how you deal with that.
+- As long as you are putting 100 per cent in week in, week out, no one can say anything.
+- Ryan Giggs pretty much won everything there is to win in the game. He made over 900 appearances for the club and always stayed loyal to Manchester United, which is really impressive.
+- I just want to assist and score goals to help the team.
+- I used to like playing No. 10 when I was younger, so I enjoy that role. But as I developed, I had to stay on the wing.
+- Man United is a club where we always want to win and be first. If second is the spot we have to take, then we'll take it as long as we're up there and winning games. But our main priority is to be first all the time.
+- To come through the ranks and play for your boyhood club is a dream come true.
+- You've got to do the job on the pitch. First and foremost, I put in 100 percent, and I don't think anyone can really complain after that.
+- For Birmingham, I scored four on my debut. It's not bad. First one was a tap-in; it set me up nice for the day, and I think I got a hat-trick in 13 minutes. So obviously I was cruising, then got one in the second half and came off!
+- Winning trophies is the main thing: that's why you play for Man United.
+- There's no better feeling than winning a trophy in front of your fans when they're celebrating.
+- Once you're on the pitch and you've put the shirt on, it's then down to you to perform and play well.
+- Always positive vibes in the Lingard camp.
+- I was at a local club, Penketh United, and Mike Glennie, a Manchester United scout, came to watch me. He spoke to my grandad and offered me trials, but there was also interest from Liverpool, and I had to pick - I was only young, but obviously my heart was with United at the time.
+- I've always liked the No.10 position. You can get on the ball a lot more and attempt to dictate the play a lot more.
+- I think fun plays a massive part in anyone's life.
+- It's good to keep working hard, pushing yourself, and, by scoring goals, you get the reward.
+- I am comfortable in myself and my surroundings, so that makes me play stress-free and enjoy being on the ball.
+- I think United always had a plan for me. They nurtured me.
+- Healthy competition is always good for us. It helps the squad as well with the depth.
+- The first few seasons, I was just getting used to the Premier League.
+- I think confidence plays a massive part. If you go into a game confident, you will try things, and they will come off.
+- I have had to work hard to get in the starting XI for England.
+- It's always good to have great players around you. You have to battle for your place, and it makes you more hungry on the training pitch, and you know, when you get your chance, you have to take it.
+- I'm always up to no good, messing about.
+- I actually feel more comfortable when I play for England than United.
+- It's always good to have a happy camp.
+- I enjoy playing for Man United, and my heart is at Man United.
+- Paul Scholes was the main figure for me growing up. His attitude, he's humble off the pitch - you didn't hear much about him - but on the pitch, he was loud, aggressive, liked to tackle, and I learned off him.
+- I like to body pop.
+- I want to play every game, obviously.
+- I think, when I was younger and I was on loan, I used to get nervous before games, but as you get older, you adapt to it, and it becomes second nature to walk out onto the pitch and perform.
+- I think people can be quick to judge. The people that know me, they know what I am like.
+- It's very physical in the midfield, but I've come into my own now, and I can handle it in there.

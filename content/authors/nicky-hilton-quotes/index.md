@@ -1,0 +1,21 @@
++++
+author = "Nicky Hilton"
+title = "Nicky Hilton Quotes"
+quotes_len = "15"
+description = "the best 15 Nicky Hilton Quotes"
++++
+- My fashion philosophy is that if I like it, I wear it.
+- I interned at 'Hamptons' magazine. I was 12. I walked around with a pad and was like, 'What do you guys want for lunch?' to all the people who worked there.
+- When I was a kid I had this funny blonde hair and everyone called me 'Chick' because I looked like Tweety Bird.
+- I'm following my dreams and doing what I love as a designer. I did not want to be one of those kids with a famous last name that doesn't do anything. That is very unfulfilling to me and I'm very happy.
+- These are clothes my friends and I could wear. This ain't Prada. I don't want to be one of those celebrities that slaps their name on a label and collects royalty checks. Everything on that runway reflects me.
+- When I signed the license, I thought the media wasn't going to pick up on it if I used my real name, Nicholai Hilton.
+- I'm not a snob about which looks are 'this season' and which are 'last season.'
+- My fashion philosophy is that if I like it, I wear it. I'm not a snob about which looks are 'this season' and which are 'last season.'
+- I could have just received royalty checks every month by lending my name to a collection, but I didn't want to do that. My name is a reflection of me.
+- I love online gambling.
+- Ever since I was a little girl, I wanted Valentino to design my wedding dress. Valentino is the definition of timeless elegance. I don't think there's another couture house like it.
+- I always wanted to be a teacher.
+- I love Grace Kelly. She can do no wrong.
+- I got in trouble in Catholic school for rolling the waist of my skirt down.
+- At night when I can't sleep, I play blackjack online until I get tired or I lose my money.

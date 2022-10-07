@@ -1,0 +1,106 @@
++++
+author = "J. D. Martinez"
+title = "J. D. Martinez Quotes"
+quotes_len = "100"
+description = "the best 100 J. D. Martinez Quotes"
++++
+- I'm a very analytical guy, I like to study my swing, I like to study what my back foot is doing, my elbow, whatever it might be, and there's a lot of guys nowadays that are like that. That's the trend of the game, that's the way the game has gone.
+- You play 162 games so let's say 100 of them come down to the end where you see the game is out of reach one way or the other. I feel like the other 62 are close games so you're going to be into those at-bats. If you do that, that's 100 at-bats. That's almost a month worth of at-bats where you're not as focused as you might be in those 62.
+- I really judge me on me.
+- You can say baseball's fun, you're in the big leagues, you get to come to a Major League field every day - and, yeah, that's great. I love it.
+- I busted my butt in '15. Then in '16, I broke my arm running into a wall, so then I got scared of running into walls because I didn't want to get hurt again.
+- That's why, to me, Spring Training is so hard, because every time you go up there, there's a new pitcher, and you have to come up with a new plan.
+- I've always loved hitting, and even as a kid, I always hit.
+- I always talk about it like I'm a hitter first and if I'm doing things right and my body's in the right place, I drive the baseball.
+- Obviously, I'm sad to leave Houston. I love the fans and players and everyone here.
+- I think my failures in Houston is what made me who I am. I think it's given me that drive, that drive to keep working, because you never know what can happen type deal.
+- You have to go up there, and it's you vs. the pitcher. No one's there to help you. That's how I go about it.
+- I'll never say a bad word about the Astros.
+- Losing is incentivized now. You have 80 percent of the teams trying to lose.
+- I love my story. I wouldn't change it. It gives it character. It's never been on a silver spoon.
+- People are always asking if I was mad at Houston. Honestly, I'm not. The truth of the matter is that when I was there, I didn't perform and they actually did me a favor by cutting me loose. They could have really held me there, not let me leave, bury me in Triple-A, put me behind some prospects and I would never even play.
+- Everyone's path is their own.
+- All through Miami, the guys who grew up with me hitting at the place I hit, they all call me Flaco. Nobody calls me J.D. It's like, 'Hey, Flaco.'
+- I had to lower my hands, I had to work my hips a different way. I also had to stride to get the power. I'd always been a standstill hitter and had to generate power from my upper body. Basically, I had to change everything I was doing. It was really difficult.
+- You know, this league is all about adjustments, and the one thing you kinda notice when you're playing every day is how teams make adjustments. Once you start having a little bit of success, they are going to make their adjustment.
+- I love the game and I love to play. You have to admire fans who are the same way.
+- I love my country. I love this country.
+- That's the hardest play in baseball, is a line drive right at you.
+- I just want to go deep in the playoffs and be put in that situation where I'm locked in and the game and the season is on the line.
+- Obviously, I love Boston. I love the passion. It kind of matches my personality. The fans, I almost feel like they're just as passionate as me.
+- I've always been hungry, but when people ask what drives you - 'How do you stay so driven throughout this whole thing?' - you just don't stop. It's every single day. The people that know me and the people that love me and are in my life see it.
+- I believe that you're a hitter first and you're a slugger second type deal.
+- Learning how to slow the game down is the biggest thing.
+- Just kind of finding it, that's what Spring Training is for, to work on stuff and get ready.
+- I'm usually rough during Spring Training. My Spring Training numbers aren't very good, but I never expect them to be.
+- I've been on a bunch of teams in my career.
+- It's easy to sit there in the dugout when the game's going on and talk, chitchat about this and that. But I think paying attention, watching the pitcher, watching the game develop, putting yourself in situations you're not even in yet, anticipating the game, stuff like that, I think that really helps you take that extra step.
+- I preach about getting the ball in the air.
+- There aren't too many Mookie Betts, Mike Trouts or Bryce Harpers out there to be grabbed. Those players only come around once every 10 years.
+- My parents taught me that in life, you get out what you put in.
+- I found a place in Boston, a home in Boston, and I'm pretty happy here.
+- I don't go up there and try to hit home runs.
+- I'd say the challenge of DHing is going to be learning the routine and to stay loose and stay warm and kind of be ready for it.
+- Whenever you see me and I'm hitting ground ball after ground ball, you know I'm not feeling right.
+- Sometimes what we see, what's going on in front of us, isn't really what's happening.
+- It's fun coming to the ballpark when you're winning.
+- My whole life, I've felt like I've always had to prove myself. It's never been easy, as easy as others who are in my position have had it.
+- When I'm at my best, I'm ready to hit from pitch one. When I go up there and I'm passive, I'm not as successful.
+- To me, I just play baseball, whether I have the contract or not.
+- Kids want to see relevant teams.
+- I was able to play alongside, in my opinion, the best hitter with Miguel Cabrera and kind of watch the way he goes about it and the way he looks at situations, when to try to drive a ball versus when to shoot a ball.
+- Obviously, this is a job, it's a grind, but it's what you love to do. It's your passion.
+- Obviously, I have to do what's best for me and my family; I've got to put that first. But I definitely want to be on a team that's in contention.
+- It's so hard to win a World Series.
+- Rodney Linares really stuck his neck out in Greenville to play me, because they had their prospects, guys who they had invested money in.
+- We want the fans to be in it, because when they're in it, it makes you kind of live up to it.
+- I had to make baseball work. I threw myself into it.
+- When you're up there and everything feels good and you're competing against the pitcher and the pitcher strikes you out, you're like, 'OK, yeah, I struck out, but that's OK.'
+- Any time you go into the playoff game everyone's adrenaline is high and tensions are going, stuff like that.
+- I mean, I learned a lot from Houston. And you know what? It made me who I am and there's really no animosity there. In a sense, they did me a favor by allowing me to leave and going to play on another team.
+- I want to be on a team that's got a chance. That's what's fun. That's what you play the game for.
+- I told Pedro this story: I used to wear a freakin' Pedro Martinez jersey because it had 'Martinez' on the back.
+- I played street basketball for a while and wanted to play competitively, but I was so used to the street-style of game that I would have fouled out by the end of the first quarter.
+- I started playing ball when I was 4 years old.
+- I'm going to tell you right now, no one is harder on me than me. The fact that fans sit there and boo me, I'm booing myself when I'm walking in.
+- Control what I can control. Study the pitchers, work hard, put the work in. That's all I can control.
+- I wish I could go up every single time and have guys on base.
+- If I'm ready to hit early, if I get fooled, then whatever. I've still got two more strikes.
+- Everyone here has a right to their own political beliefs and everybody has the right to stand by what they believe in. That's what makes us American.
+- Starting in middle school, I would play on two or three baseball teams at the same time, because that's just how things worked in south Florida. I would practice six or seven days each week. I honestly don't know how my parents did it, but my dad always found a way to make it to each and every game.
+- I have so many memories of going fishing and camping as a kid, and my dad had season tickets to watch the Marlins - and that's where I fell in love with the game.
+- My teammate Torii Hunter taught me how to lead and provide encouragement to the locker room.
+- I'm always just grinding and figuring out what adjustment I need to make and how to tweak my swing to where I want it to be for that game and that pitcher.
+- Contrary to everyone's belief of 'J.D. is a launch-angle guy. He wants to get the ball in the air and this and that.' This is true, but you're not trying to force situations, trying to force things.
+- I grew up in Miami watching baseball down there, so you could see it from one extreme to the next. It was like, 'Well, this is what baseball is about.'
+- I want to win championships.
+- Everything happens for a reason.
+- Let's say I have a new respect for guys who come off the bench every day. That's not easy to do.
+- To me grinding out a good at-bat is pretty much fighting. And it's not trying to do too much with pitches, just finding a way to spoil a good pitcher's pitches, really.
+- When I fall behind, my swing changes.
+- I think about my journey sometimes.
+- Man, it literally starts from after the game. I get every at-bat sent to me from the game. I'll go home, I'll watch every at-bat, kind of break down the game, kind of see, OK, what did I do? Why'd I miss this pitch? Why'd I hit that pitch?
+- Whoever's hitting in front of you or behind you is going to determine how you get pitched, but there's nothing you can do.
+- To me, you can always get better.
+- I never pressure anyone to believe what I believe. It's their choice. But when guys ask me, I'm always open, and I share.
+- You can ask every coach from Ron Gardenhire to Dave Clark, anyone who has seen me play, they don't know why they say I'm a bad defender.
+- I've lost a lot. I'm tired of it. It's not fun.
+- My preparation and my routine are the foundations to my success.
+- I think I've grown over the years and learned about who I am and what I can do and what I can't do.
+- It sucks when you can't play the game you love.
+- I love to talk about hitting. It's a passion of mine.
+- I think that's one of the things you start learning from being hot and playing every day at the beginning, you know. The league, they made their adjustments and their change to you, the way they pitch you, the way they attack you, and just learning and learning from that and making the adjustments the very next at bat or the very next pitch.
+- I think I'm a funny guy.
+- I stand by the Constitution and I stand by the Second Amendment and it's something that I take pride in. It's something that I'll back up.
+- Paul Goldschmidt, who gave me the confidence to lead as one of the game's greatest players, acknowledged that what I had to say was valuable to my teammates and crucial to winning.
+- That's one thing I learned from watching great hitters hit. A lot of hitters, they're ready to hit from pitch one.
+- You want to see the team that is in the playoffs.
+- If a pitcher goes up there and he's throwing a ball and it's a breaking ball down and away or a fastball up and in, a perfect pitcher's pitch, and you're able to just foul it off and stay alive in the at-bat, just keep grinding, keep working through the at-bat and hoping for that mistake that he's going to make. And if he doesn't, then you walk.
+- We're all not going to agree on the same things, but that's what makes this country so great.
+- Sometimes you just need a spark, and then boom, boom, boom, now the bats come alive.
+- Detroit will always have a special place in my heart.
+- The last thing I wanted to do was get buried in Triple-A behind prospects.
+- You can't say it's good when guys out there are signing minor league deals and they would be big league players on 80 percent of the teams, but why would a team sign a player when you can pay dirt, and they're not going to win anyway?
+- I think the one thing I have learned the most from all the veteran guys is kinda like not to dwell on a loss or a bad day.
+- I get to play what I dreamed about since I was a kid. So, on that end, I love it. But I also take pride in it.
+- I never go a day without talking to either my mom or dad, and my sister is one of the smartest people I know.

@@ -1,0 +1,76 @@
++++
+author = "Jim Rash"
+title = "Jim Rash Quotes"
+quotes_len = "70"
+description = "the best 70 Jim Rash Quotes"
++++
+- If someone said, 'Sit down and write a 'Community' episode,' I would be panicked.
+- I can't wait to meet Steven Spielberg or Al Pacino again so I can say, 'I have to tell you how you know me. You know me because I am the worst actor in the world.'
+- In a weird way, the drama behind the stage was sort of keeping 'Community' on people's minds.
+- I think most co-directors and co-writers just hold hands.
+- For young boys, just to know you exist in any capacity is a strong feeling.
+- I loved 'Lost,' from beginning to end.
+- I think what makes a good show is obviously a rabid fan base.
+- I watch too much TV.
+- I was raised, I feel like, on television, definitely a child of TV, and was always fascinated by storytelling.
+- I think that... I would say that sometimes people get afraid of when you're balancing comedy and drama.
+- With writing, I love doing it, but there's that love-hate relationship: You're not having a good run, you've hit a wall; it's frustrating.
+- I loved 'Dungeons & Dragons'. That was actually a good cartoon to me.
+- You'd just die if you put your head to the grindstone.
+- On the personal level, the people that follow you on Twitter are always nice to hear from.
+- If you're a writer, the insight of other writers - if there's some kind of Holy Grail message on how to deal with writer's block or how to deal with any problem that can come up - whether you're writing about yourself or a group of people, I find that very interesting.
+- Can you imagine watching 'All in the Family' and having an outlet like Twitter? Where you could discuss it while it's happening? I think that would be a really interesting thing.
+- Some people like to purge out a draft and just let it go and then go back and fix it, but I'm a writer-rewriter. I can't move on until I feel like it's presentable.
+- I love discussing the ins and outs of the collaborative nature of writing.
+- There are a lot of shows that have been saved because the fans weighed in.
+- There's always something exciting about small change.
+- When I teach sketch writing, there's still a beginning, middle and end.
+- In truth, I have always been amazed by a group of people who all work toward putting one person's vision forward - that's an interesting story for me.
+- I think fans have an outlet. Through social media, you can hear them.
+- My acting has always been in the world of comedy, but in my writing, other than writing sketches, I really am drawn to the balance between comedy and drama. I like things that sort of toe that line of one minute you're in this emotional space and then all of the sudden something happens.
+- On the movie side of things, the difficulties come with so few movies being made, and when they are, it seems that it's a marketing game. Story sometimes takes a backseat to that one grand marketing idea.
+- 'Game of Thrones' is taking dense novels and trying to shrink it all down to a slightly manageable series in the sense that there are so many characters and so many locations.
+- As far as working with actors, I feel very comfortable working in that aspect of directing.
+- Look at people that influenced me - but I didn't know if I had that sort of 'I'm going to take you under my wing' person.
+- Old beach houses sometimes don't have TVs, or you don't get cellphone reception.
+- I like to believe we're always looking to evolve as writers.
+- Even with the fact that I grew up in North Carolina, 'Jim Rash' just screams 'Southern boy.'
+- Some people will ruin a movie for you if they enthuse too much.
+- I think there's a fear of disconnect sometimes; communication is a huge issue for all of us, from adults to kids, as far as our face-to-face time and our ability to interact with each other without isolating itself to a phone. I think that has to be something that's very challenging.
+- I am always up to steal secrets from smart people.
+- I will say you could always look at 'Looney Tunes' and learn about writing. I think you can learn a lot about the beats of comedy. I think you can find out about awkward pauses, because I think they did those well.
+- When you're talking about people like Shonda Rhimes, Vince Gilligan or Beau Willimon, you're talking to people who are notable and celebrities in their own right. People want to know how their brains work.
+- When you stop thinking about something, the idea comes to you. It seems to work.
+- Wherever a writer grew up, they're obviously influenced by that area, and I'm sure their characters are pulled from those experiences.
+- As long as a teaser saves some things, that's good.
+- The passion to explore and not be afraid to fail - that's something I will always attribute to the Groundlings.
+- For there to be a 'Community' movie just seems like an appropriate way for the show to go out. That would be my perfect end.
+- I think that getting responsibility and structure are huge parts of growing up.
+- People are vocal, so you hear the pros and cons of your shows.
+- I think the community that's created within a writers' room is a very interesting topic.
+- Technology has changed, and we need to figure out how to improve the archaic way of what makes a hit, or how to determine how many viewers are watching beyond some people with Nielsen boxes in a small percentage of homes in random areas.
+- I think what's cool about a body-switching movie is, 'The grass is always greener:' the idea that someone else has a better life than I do.
+- To me, if people really want to improvise, get into classes and learn.
+- 'Dexter,' while the pilot shares moments with the novel that created the character of Dexter, they completely abandoned the book from that moment on.
+- I was very much a latchkey kid. My parents would feel the back of the television to make sure I hadn't been watching it when they were gone, which inevitably I was.
+- The idea of just improvising and riffing can sometimes be at the expense of story.
+- A sketch is just a mini movie.
+- I think what's wonderful is that 'Community' has always had its voice, has always had it's vision, and that started from the very beginning.
+- My family was perfect.
+- We all know that technology has advanced to the point of watching TV online.
+- Improv has been immensely beneficial to me as both an actor and a writer.
+- Working out has always been a stress reliever for me. I don't know if it's so much vanity as it more just keeps my mind from going crazy.
+- Honestly, it's terrible, but I don't know if I've ever really read a Stephen King novel.
+- The director in TV and the writer and the creator are working very much hand in hand.
+- I feel like my experience on 'Community' was that I saw just how important that first year is for a series. That is where you work all the pieces out, and that means honing the characters' voices, setting that tone, finding your angle.
+- Writing sketches, you're also learning about a journey and characters, and you translate that to bigger things.
+- I remember lying on the floor of my room, staring at a black-and-white television for most of the '80s - watching 'Diff'rent Strokes,' 'Facts of Life,' 'Silver Spoons,' Saturday morning cartoons, and 'Murder, She Wrote' while eating an insane amount of Stouffer's French bread pizza. I was sucked into it all.
+- I've certainly been someone who has loved to mine the trials and tribulations of growing up in general, and the people who are in our lives, and I don't mind pulling from them and writing things down on my phone that my family says.
+- There are writers' rooms that will write episodes all together, who will break into little groups and write certain scenes. Everyone's process can be a little bit malleable. Everyone tries to get into a groove or find what works for their room.
+- When you get onstage, you can see everyone in the audience's face, down to the detail. You can see who may or may not be yawning.
+- I think the networks, in general, have to evaluate what's happening around them. I'm sure they're scared about a lot of things: Amazon, Netflix, Hulu, and all these places that allow people to watch shows in chunks.
+- In television, the writer-creator-showrunner is embraced as the creative mind.
+- If there's ever going to be a challenge for an actor, it's that character who's often evolving - which is not often the case in television.
+- Nobody is completely perfect.
+- One summer, when I was a kid, I was in the car with my stepfather, and he was asking me where I thought I ranked, on a scale of 1 to 10. I said, '6,' and he said, '3.' I think it was his way of telling me that I needed to get out and really attack life.
+- With Saturday morning cartoons, you've got to start at 6 A.M., right?

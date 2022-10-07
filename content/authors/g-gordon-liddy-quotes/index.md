@@ -1,0 +1,22 @@
++++
+author = "G. Gordon Liddy"
+title = "G. Gordon Liddy Quotes"
+quotes_len = "16"
+description = "the best 16 G. Gordon Liddy Quotes"
++++
+- You get rid of the fear of death by understanding that it is an integral fact of our existence. You do that through will and reason.
+- Yes, I believe the will is very important. It's how I have succeeded in life.
+- If I can go from burglar for the government to talk show host, you can go from entertainer to congressman.
+- I was afraid of just about everything in this world, with the possible exception of my mother and I wasn't too sure about her.
+- Why is it there are so many more horses' asses than there are horses?
+- I became what I wanted to be.
+- Take, for example, the African jungle, the home of the cheetah. On whom does the cheetah prey? The old, the sick, the wounded, the weak, the very young, but never the strong. Lesson: If you would not be prey, you had better be strong.
+- Defeat the fear of death and you welcome the death of fear.
+- Environmentalism is a form of pagan fundamentalism. These green wackos are fanatics like al-Quaida. Just like them.
+- They were afraid, never having learned what I taught myself: Defeat the fear of death and welcome the death of fear.
+- Obviously crime pays, or there'd be no crime.
+- The official version of Watergate is as wrong as a Flat Earth Society pamphlet.
+- Once you start a war, you have to win.
+- I don't fear anything now.
+- I'm virile, vigorous, and potent!
+- The press is like the peculiar uncle you keep in the attic - just one of those unfortunate things.

@@ -1,0 +1,26 @@
++++
+author = "Norm Dicks"
+title = "Norm Dicks Quotes"
+quotes_len = "20"
+description = "the best 20 Norm Dicks Quotes"
++++
+- I remember those great days when we were at $176 million before the Reagan Revolution came to town.
+- So when people go to the park this summer, they are not going to have the same quality of a visit. There is not going to be a ranger out on the trail to tell them about the important cultural and historic areas within the Olympic National Park.
+- During the past 30 years, European governments have provided more than $15 billion in the form of low- and no-cost loans to Airbus for the specific purpose of developing new aircraft lines.
+- Overtime, hatchery fish tend to show signs of domestication and these traits adapted to the hatchery environment can make it more difficult to survive in the wild.
+- More than 60,000 jobs have been lost in the commercial aviation industry in the United States since 1999.
+- In my own area, Hood Canal, we are working with the USGS on dealing with this oxygenation problem.
+- For all of us who have been involved in the recovery efforts to bring back and strengthen wild salmon runs, we fear that this change in policy could lead to further declines in these wild stocks.
+- What I did was sit down with the Washington State officials, with the historic preservation people, with the tribe, the local community, the port of Port Angeles, and we worked this thing out, and we protected the tribe's interest.
+- Over 30 years ago, Airbus was founded by a European consortium of French, German, and later Spanish and British companies to compete in the large commercial aircraft industry with U.S. companies.
+- The American people are going to judge the majority party here today. If they go out here and vote for this rule that allows this provision to be stricken, they are voting against the men and women in the military of our country.
+- These subsidies from four European governments, which include aircraft launch assistance, capital injections, debt forgiveness, have enabled Airbus to develop and range market airliners well below cost.
+- The Smithsonian Institute is one of the most popular agencies of government in the United States.
+- The time has come for the American government to recognize the damage that has occurred to our economy, and to take firm action to curtail what I believe is both unfair and illegal foreign competition.
+- Mr. Chairman, obviously a $60 million cut in the National Endowment for the Arts would be a disaster.
+- The Endangered Species Act is the strongest and most effective tool we have to repair the environmental harm that is causing a species to decline.
+- In fact, at Olympic National Park in my district, they 3 years ago had 130 summer employees they brought in for temporary work. This summer they have 25 because they cannot afford more.
+- We are also working on the restoration of salmon runs, and we are doing a new process of mass marking with these fish so we can tell the wild fish from the hatchery fish.
+- In 2003, the value of Airbus's orders was more than twice as much as Boeing's.
+- This funding from the National Endowment for the Arts has been like the Good Housekeeping seal of approval.
+- Last year, Congress gave the Department of Defense the authority to design a new civilian personnel system for its employees as part of the defense authorization bill.

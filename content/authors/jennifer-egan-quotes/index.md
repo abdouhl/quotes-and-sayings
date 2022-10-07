@@ -1,0 +1,143 @@
++++
+author = "Jennifer Egan"
+title = "Jennifer Egan Quotes"
+quotes_len = "137"
+description = "the best 137 Jennifer Egan Quotes"
++++
+- I haven't had trouble with writer's block. I think it's because my process involves writing very badly. My first drafts are filled with lurching, cliched writing, outright flailing around. Writing that doesn't have a good voice or any voice. But then there will be good moments.
+- For me, New York is about anonymity; that's the draw. It's not at all about other people in my business being nearby. It's that I can get on the subway and eavesdrop on conversations that I would never have access to otherwise. That's why I stay. That's why I could never leave.
+- There's something very strange about associating me with that prize. I had hoped for it in a more directed way as a journalist. Somehow as a journalist you know there are Pulitzers out there and you can work hard and get one. To win it for Fiction seems unbelievable.
+- I love working with genre. And to me, the Victorian novel is the flourishing ancestor I'm always trying to access when I write.
+- I don't really know where my ideas come from. I start with a time and a place. That's what I need to get started, and an intellectual question.
+- I can't even imagine writing nonfiction by hand. I think if I didn't have a computer, I just couldn't do it. Maybe it's a brain-section issue.
+- I had this idea that I could hire myself out as a person to go on archeological digs and dig, without any training! I actually wrote to a number of archeology departments and offered up my services.
+- 'Goon Squad' took about three years to write and that's the short end. My second novel, 'Look at Me,' took six years.
+- I did go on safari in Kenya when I was 17, with my mother, stepfather and little brother, and I kept a careful journal of the experience that was very helpful in terms of my sensory impressions of Africa. I have traveled quite a bit at distinct times in my life, though now that I have kids I've settled down.
+- With 'The Keep,' I began with a theory about pitting the isolated disconnection of the gothic realm against present-day hyperconnectedness. I emerged feeling that the gothic genre is all about hyperconnectedness - the possibility of disembodied communication - and that we now live in a kind of permanently gothic state.
+- I always feel very afraid as I work on books. It's just so hard to write a decent book!
+- Time is always a component of place; you can't really talk about where without talking about when.
+- As a journalist, I have wanted very much to find a way to write about the music industry, and it's been frustrating to me that that's never worked out.
+- Nowadays I'm more interested in what you'd call 'alternative.' Lately we've been listening to a lot of Mumford & Sons, and Jenny Owen Youngs. I'm also pretty crazy about the Kings of Convenience, a Norwegian band that's been compared to Simon and Garfunkel.
+- I think the big lesson I've learned is that it's very hard to write satire in America because almost immediately, whatever you've thought of turns out to come true, or sometimes it already was true.
+- When I first had a child, I really had a hard time trying to figure out how it was all going to fit together. Because I felt like, when I was with him, I wanted to be writing and I should be writing. And when I was writing, I felt like I should be with him, and wanted to be with him. So I was unhappy a lot.
+- The music industry is an interesting lens through which to look at change, because it has had such a difficult time adjusting to the digital age.
+- I number my drafts, and by the time a book is done, I'll have 75 or 80 drafts of some sections.
+- The sheer sensory experience of San Francisco is unlike anywhere else. Not just the physical beauty, but the textures, the feel, the wind, the ocean. It's a monumental feeling unrivaled by anywhere else. Its a world class, gorgeous city. And the coffee is great.
+- I guess my comfort zone as a writer is diametrically opposed to my comfort zone as a human being.
+- Comparison is painful. Don't be cowed by other people's pretty pictures. When you feel unimpressive, or irrelevant, that has nothing to do with what you're actually capable of.
+- But I always need to identify with a character to write about him or her - and by 'identify,' I mean see the world through that person's eyes and have a strong sense of the inner logic of their acts and decisions, wacky or wrongheaded though they might be. In that sense, I think there's some of me in all of them.
+- I have this dream again and again: I find extra rooms in the place where I live. You could say it's a very New York dream, but I think it's about writing - the feeling that there is something behind a wall or a door.
+- I think, for one thing, all of us remember those teenage years and those songs that we fell in love with and the music scene that we were part of. So, in a certain way, music cuts through time like almost nothing else. You know, it makes us feel like we're back in an earlier moment.
+- I should say, I don't write about myself or my life. So for me, in fiction, it's always been about what I can dream up, that feels far away from me.
+- I have a tendency to coddle my sons because I want to keep them safe, but I also want them to be strong and independent and curious and bold, and I worry that my coddling is going to have exactly the opposite effect.
+- Technology makes everyone feel old. A laptop is old after two years. Someone always has something newer. Everyone seems to feel obsolete now, even the young.
+- 'Look at Me' started with Rockford, Illinois and New York and the question of how much image culture was changing our inner lives. That's an abstract idea; you don't think that's going to be a rocking work of fiction, but it seemed to fuse in a way that was interesting.
+- That adage about 'Write what you know' is basically the opposite of the way I function. I write about what I'm curious to find out.
+- Music makes time fall away like almost nothing else. You hear a song from another moment of your life, and it really is like you're still there.
+- I've never been that confident. I don't tend to think, swaggeringly, 'I'm going to ace this.' It's just not who I am.
+- I think literary theory satisfied a deep love I have for big, encompassing narratives about the world and how it works - which are usually, in the end, more creative visions unto themselves than illuminating explanations.
+- I love the infinite variety of New York, how it's the epicenter of so many worlds.
+- When I'm not writing, I feel an awareness that something's missing. If I go a long time, it becomes worse. I become depressed. There's something vital that's not happening.
+- If you don't have people that the reader cares about and stories that are gripping, you've got nothing.
+- After 9/11, the U.S. seemed vulnerable for the first time in a long time. We were no longer the superpower that no other country could touch. I thought, 'When and how did that dominance begin?'
+- I find myself thinking more about the past as I get older... maybe because there's just more of it to think about. At the same time, I'm less haunted by it than I was as a younger person. I guess that's probably the ideal: to reach a point where you have access to all of your memories, but you don't feel victimized by them.
+- Life itself is so surprising, a predictable story is unsatisfying.
+- I grew up in the 1970s, and my friends and I felt very keenly that we had missed the '60s. We were bummed out about it.
+- To some degree, we're all thinking about the same things. It's the zeitgeist. The trick, in a way, as a writer, is to hope that your interests in some sense link up with the culture around you.
+- Remaining a pop phenomenon for 20 years without dying or lapsing into self-parody is quite a feat.
+- If I'm doing something I know I can pull off, then that's not the book I should be writing.
+- I felt more doubtful than usual with 'Goon Squad,' because I knew that the book's genre wasn't easily named - Novel? Stories? Novel-in-stories? - and I worried that its lack of a clear category would count against it. My hopes for it were pretty modest.
+- I blurb a lot of books by women, and I'm eager to provide encouragement and support for young women.
+- I would go so far as to say that I mostly write terrible things. I mean, my first drafts are so appalling.
+- I felt unbelievably lucky to have the success I did with 'Goon Squad,' and I also felt the pressure of how fleeting that success can be.
+- The bottom line is that I like my first drafts to be blind, unconscious, messy efforts; that's what gets me the best material.
+- My first attempt at writing a novel was horrible. I had to throw it away. But I stuck with the idea, which is what became 'The Invisible Circus.'
+- I loved every minute of my childhood - sunbathing on the fire escape, digging for buried treasure in the back yard, pulling alewives out of the sand... Then it was all taken away from me. I came back every summer to visit my father until I was 18, but I was always the outsider.
+- If you read novels of the 19th century, they're pretty experimental. They take lots of chances; they seem to break a lot of rules. You've got omniscient narrators lecturing at times to the reader in first person. If you go back to the earliest novels, this is happening to a wild extent, like 'Tristram Shandy' or 'Don Quixote'.
+- I grew up in the '70s, when people talked on the phone - and just talked more. I remember the phone was the epicenter of our house. I spent hours every evening as a teenager waiting for the phone to ring and talking to my friends.
+- I'm partial to epic poetry, which might be surprising given that I don't write poetry at all. The combination of rollicking storytelling with musical language seems to me the highest achievement.
+- I spend so long writing each of my novels that by the time I'm done with one, I'm ready to discover a totally different world.
+- I grew up as a step-kid, always a little outside, always trying hard to follow and fit in. But over time, I've come to feel that my tendency toward self-erasure is a deep and real part of me. I think I'd be this way no matter how I grew up.
+- You can research until you're falling asleep, but that still doesn't mean you're really fluent in the material.
+- In the case of 'Goon Squad,' which sold slowly for a long time despite the good reviews, those 'best of 2010' lists were pivotal, and made the book really sell.
+- That American confidence is more alive and well than it should be, to this day. But it's such a problem. There's a blindness to that confidence, a presumption that what's good for me is good for you. No! That's what teenagers think: the world revolves around them. As a nation, we've got to stop thinking that way. We're getting too old for that.
+- I'm not a technophobe, but I'm pretty old fashioned.
+- Sometimes I'll watch teenagers and find myself not quite believing I'm older than they are - even wondering, delusionally, if they can see any difference between us.
+- Americans are less selfish than some of our politicians believe and will respond with reason and resilience to passionate clarity.
+- I'm just interested in serialization in fiction. I'm fascinated by it. I love the 19th-century novels. I'm interested in ways to bring that back to fiction.
+- I write totally spontaneously. I actually write fiction by hand - that always seems to startle people. I think the reason I do that is to bypass the thinking part of me and get to the more unconscious part, which is where all the good ideas seem to be.
+- I hope to keep writing journalism as long as I write fiction; it's afforded me such amazing adventures and opportunities. It does take a lot of time, so it's hard to do both at once, but I try to do a big journalism piece every couple of years, and I'll hopefully continue with that.
+- As a reader and a writer, I'm happiest when apparently mutually exclusive states can somehow coexist.
+- The way that Dickens structured his books has a form that we most readily recognize now from, say, the great T.V. series, like 'The Wire' or 'The Sopranos.' There's one central plot line, but then from that spin off all kinds of subplots.
+- I'm embarrassed to say this, but I shy away from memoirs. My feeling is always that I'm saving them for later, so I guess that means I'll reach a point when I read nothing else.
+- I think playing the glamour card is a disastrous error as a literary writer.
+- I learned you have to move fast, writing futuristic satire in America: Before you know it, you're a realist!
+- When I pick up a book that's, you know, wreathed in laurels, I expect a lot, and that doesn't give the book its best chance to shine.
+- It's our job as fiction writers to provide a delight that nothing else can - to such a degree that people have no choice but to read our work. Now that's a very tall order, if not impossible. But why not try?
+- I have a hatred of familiarity. If I feel like I am doing something I've done before, it feels old and done. I feel I have no choice but to strike out in directions that feel new - anything less just doesn't seem worth it.
+- I listened to classic rock and roll, and punk rock. 'Goon Squad' provides a pretty accurate playlist of my teenage years, though it leaves out 'The Who,' which was my absolute favorite band.
+- Like many people of my generation, I feel like I survived my adolescent mischief only by a miracle, and it seems too much to hope for that the same miracle would befall my children - therefore, I want to make sure they take fewer chances than I did.
+- I teach intermittently, and while I enjoy it, I don't find that it's a calling for me.
+- Between books, I have to throw out everything I did before, because the tools I've used to write the previous book will not only not work for the next project, they will ruin it.
+- You can start imagining all kinds of things characters would feel, but you have to have a sense of whether those imaginings might be right.
+- One of my strengths as a writer is that I'm a good problem-solver. I write these unthinking, ungoverned first drafts. The project for me always is to turn that instinctive stuff into pages that work.
+- I was obsessed with The Who. I would have accepted a marriage proposal from Roger Daltrey on the spot. I went to all of their shows in San Francisco and some in L.A. That was as close as I got to being a groupie.
+- The book that is the closest genetically to 'Goon Squad' is 'Look at Me.' It has the futuristic element - although, freakishly, almost every aspect I invented has come to pass in some way, including the terrorist who fantasies about blowing up the World Trade Centre. That was extremely uncomfortable. The book came out on the week of 9/11.
+- If you can write any way and it's working out, just bow down in gratitude.
+- I've been interested in terrorism from the very beginning. My first novel is about that, too, and I think one reason I've been so interested in terrorism is because I have a deep interest - one of my deepest interests - in image culture and how it works. And terrorism is an epiphenomenon of image culture.
+- I'm not sure if the passage of time affects our core identities so much as reveals them to us.
+- One area I have a huge amount of trouble in is writing about myself. I get a heavy, almost depressed feeling.
+- It seemed impossible that a scrappy book like 'Goon Squad' could win an award like that. It's such an iconic honor. I think what the Pulitzer means to me is that I'll need to work very, very hard to try to live up to it.
+- We live in a moment and a culture when reading is really endangered. There's simply no way to write well, though, if you're not reading well.
+- I was a stepchild in two different families. The hardest thing about being a stepchild is you know that in some way everything would be easier if you didn't exist.
+- My mom used to say that if someone woke her up in the middle of the night and asked how old she was, she'd answer 27. Hearing her, I'd think, 'That's ridiculous; your job as my mom is to be old.'
+- Because you can't write habitually and well all the time, you have to be willing to write badly. That's how you get the regularity that enables you to be present for the good stuff.
+- My last novel, 'The Keep,' was very explicitly technological, about the quality of living in a state constantly surrounded by disembodied presences, and I was thinking very much about the online experience.
+- I just think that, for my particular personality, feeling slightly invisible is always a help.
+- I've tried writing on a computer thinking it would make me more efficient, but if you're writing crummy stuff, being efficient is no help.
+- It's the feeling of being lifted out of my life into another world that is the thrill of writing fiction.
+- I grew up thinking you're either a winner in the world, or you're not. I presumed I was not. I had no reason to think I would be, and my inclination is towards self-deprecation. I wish I'd known no one was judging my every move, but I'm still like this!
+- I was on a very bumpy plane ride, an overnight flight. I was so miserable, and I pulled out 'David Copperfield,' and I forgot how scared and tired I was, and I thought, 'This is what reading should be.' I'm utterly transported out of my current situation.
+- There are a lot of writers who find a groove and spend a career mining that vein. I seem to be exactly the opposite.
+- I think a playful critique is good for all of us, and that's basically how I see satire functioning. But I'm not interested in a kind of contemptuous satirical vision; I try always, even when I'm knowingly being satirical, to also be humane, but I mean, let's face it: there's plenty in American life to make fun of, and we all participate in it.
+- Reading is a lot like eating for me: If I try to read a book I'm not hungry for, I won't enjoy it, but if I wait until I have a real appetite for something, I'll devour it.
+- I love how close New York is to Europe; I love the seasons, and I don't think I could live without them. They're the way I track the passage of time.
+- I'm a dogged person. I respond to adversity with a steely resistance.
+- When I was little, I wanted to be a doctor. I was really interested in gore. My grandfather was an orthopedic surgeon and he had a lot of books in his library that I would just pore over. A lot of them had really horrible pictures of deformities.
+- I write with pen and paper, my first draft, on legal pads.
+- I knew as far back as 2001 that I would write a book called 'A Visit From the Goon Squad,' though I had no idea what kind of book it would be.
+- I am at my worst trying to write about things that overlap with my life.
+- I wasn't a kid who wanted to be a writer. I wanted to be a doctor. I was kind of morbid. I was really into the body and how it could go wrong. I wanted to dig up bodies from the graveyard.
+- Fiction is my deepest love, but I love journalism, too. It keeps me thinking vigorously, and it reminds me that there is a world out there.
+- I was not a punk rocker, absolutely not, but I certainly knew quite a lot of them, and I definitely went to the Mab - it was raw, interesting intense scene, so I was very drawn to it, but I was a total outsider.
+- What lists and awards don't measure - and I feel this strongly - is the lasting value of any work of art. They're a snapshot of a moment, and one should always consider their judgments in that context.
+- One futuristic novel that had a huge impact on me was Mary Shelley's 'Frankenstein,' which is kind of science fiction plus Gothic.
+- The part of the process that's exciting to me is feeling like I'm in a place I've never been before, in every way. Without that, I don't know if I'd be a writer.
+- Not to brag, but I do think I've gotten pretty adept on PowerPoint... except that I can't figure out how to use Excel!
+- Invention and memory are so close together in the place they occupy in my brain.
+- If you've been around as long as I have, watching the literary scene, then you know that who's in and who's out changes by the year. It's really a very fluid situation that requires that the person who is having the good luck now isn't having it a year or two from now.
+- I think the one thing that's changed over time is that I've come to realise, as a fiction writer, the fact that I don't think it will work out, doesn't mean that it actually won't.
+- I think there are ways in which we censor ourselves; that's the most dangerous kind of censorship - that's how hegemony works.
+- I'm obsessed with the Victorian novel. I can't help it. I feel like the novel then was so powerful and agile in ways I'm not sure it is now.
+- I love the thriller genre generally. I like murder mysteries and those kinds of adventure stories.
+- I often felt like that Mr. Magoo figure in the cartoon, who just wanders through traffic, and somehow it never hits him. I kind of feel that way about my whole childhood: Why do I have a normal life?
+- Proust, my big inspiration for 'Goon Squad,' uses music a lot in his novel, both in terms of plot and structure. I liked the idea of doing the same thing, which is one reason I structured 'Goon Squad' as a record album, with an A side and a B side, that's built around the contrasting sounds of the individual numbers in it.
+- In a way, I started 'Goon Squad' not even realizing I was writing a book. I thought I was just writing a few stories to stall before starting this other book that I wanted to write - or thought I wanted to write: I still haven't written it.
+- When I had my first child, I didn't write for a year, and I felt when I tried to start again I might actually not be able to do it anymore. I really could not do it well, and I felt out of sorts with it.
+- In terms of rock and roll, I'm often drawn to louder, rougher stuff; maybe that's my history as a punk rock wannabee showing itself! Honestly, though, I'm not one of those people who listens to music constantly. I really love silence.
+- I write to escape from my life. Writing about men separates 'me' from my work in a way that I find comforting.
+- I never did anything original my whole childhood. I was invisible.
+- I don't really begin with ideas about genre. I certainly wrote a gothic novel, 'The Keep,' that conformed to and, in some ways, played with every convention I knew of to work with in the gothic, but the way I came to it was very instinctive and visceral.
+- Criticism is fine and conversation is fine, but the person who's criticizing should know what they're saying and whom they're criticizing.
+- It's not that I sit down and write great stuff without thinking, not at all. Most of it is terrible. But the stuff that feels fun and fresh to me tends to happen fairly unthinkingly.
+- Training readers to expect a voice or subject matter from me would interfere with the reinvention I crave. At the same time, I feel almost too able to disappear at times.
+- In a way, I'm always trying to do something I'm not qualified to do. So I feel that lack of qualification. And I'm scared. And I have a tendency to think things may not/probably won't work out. That's my basic mindset.
+- When I think about a book like 'A Clockwork Orange,' which I really loved, the weird hybrid language is what I remember most.
+- If having a story that's compelling - you want to know what will happen - is traditional, then ultimately I am a traditionalist. That is what readers care about. It's what I care about as a reader. Now if I can have that along with a strong girding of ideas and some kind of exciting technical forays - then that is just the jackpot.
+- I'm not reading what I write when I wrote. It's an unconscious outpouring that's a mess, and it's many, many steps away from anything anyone would want to read. Creating that way seems to generate the most interesting material for me to work with, though.
+- I haven't read a lot of science fiction, and I never intend to write it; it seems to happen a little bit inadvertently for me, in that I'm trying to follow people into points in their lives that demand that I investigate the future.
+- People define themselves to some degree by the music that they listened to as teens. My mom had Elvis. Me, I had 'The Who' and later punk rock. Kids who came up in the '80s had other songs and bands. It's a way of placing ourselves culturally and temporally.
+- I try consciously to keep myself entertained and challenged to not repeat myself at all. Like, when I start a new book, my goal is to pretty much throw out what I've done and try something completely different that I think initially I cannot do.
+- Sometimes I forget I have children, which is very strange. I feel guilty about it, as if my inattention will cause something to happen to them, even when I'm not responsible for them - that God will punish me.
+- I'm not a wildly gifted person; I don't play an instrument or speak another language or have great accomplishments in another field, as many writers do. But writing feels natural to me; the act of it seems to free up my unconscious, so that sometimes I feel that I have access to more ideas and information than my conscious mind could think up.
+- Both my own process and that of the publishing industry are just too slow to do anything other than play catch-up when it comes to anticipating change.

@@ -1,0 +1,74 @@
++++
+author = "Maya Wiley"
+title = "Maya Wiley Quotes"
+quotes_len = "68"
+description = "the best 68 Maya Wiley Quotes"
++++
+- I mean, we all carry some form of that bias, right? I mean, it might be based on age, it might be based on gender, it might be based on sexuality, and it's certainly based on race.
+- And what do we love about New York City? We love that everyone's here. We are one of the most diverse cities in the world. And that diversity is racial. It's ethnic, it's linguistic, it's class.
+- I think women are particularly open-minded, partly because we're cultivated to be and also because we're collaborative.
+- I am not a conventional candidate.
+- There is no off-roading to solve income inequality for people of color. They must have broadband.
+- Too often we forget our principles in order to hold onto power; I will always put principles first, not my own power.
+- Red Hook is cut off from the rest of the borough by the Brooklyn Queens Expressway and has no subway access, forcing residents to rely on the bus, their feet or, for those lucky enough to afford it, a car.
+- I will work with the governor no matter who the governor is. And I will always be Maya Wiley when I do it. That means I will call it as I see it.
+- We all need to be able to see a Doctor when we're sick.
+- We know that one out of three New York City workers is a gig worker, or self-employed, independent contractor. We have all kinds of languages and words for it. I'm very proud to have been co endorsed by the Freelancers Union because of our policy positions on this incredibly important part of our economy.
+- Lifting the veil of secrecy that shrouds police misconduct allegations would seem like an obvious democratic value. After all, if police work for the people, should they not be answerable to the people, as well? This is a basic tenet of good government.
+- Attacking the ability of black people to govern through specious claims that we are a danger to white people is nothing short of disgraceful.
+- My mother used to read me from Bank Street schools, that book, you know, Bank Street school had these early reader books. And my mother would read to my brother and I and we had all those advantages that everyone says you need to be successful in school and I was successful in school.
+- My mother was this White woman from Texas, from a racist town raised to believe in the inferiority of others by her community, not necessarily by her parents, but certainly by the community around her. And she fled it.
+- Look, the Black community is diverse. We have generational divides. We have class divides. We have parts of the Black community that are fairly centrist, parts that are extremely activist.
+- So, the real question isn't, in my view, whether someone can beat Trump in 2020. The question is can the Democrats start articulating a very clear message that articulates how people's lives will be better, as a result of Democrats in power.
+- Whether a resident needs to get online to access homework or supplemental educational tools, to search for a job or start a business, broadband is a necessity.
+- It's not just organizing that demands affordable and fast mobile internet access. Small business owners depend on equal and fair online access for their livelihoods.
+- Do you know how many women in a survey reported experiences of sexual harassment on the job? Eighty percent. It is so common. It's normalized. And it's an abuse of power.
+- Part of the challenge always with issues of public safety is, you know, fear is real and it has to be recognized as real. I mean, people are fearful for reasons that are not totally irrational, right?
+- As mayor, my New Deal for New York will be a massive infrastructure, stimulus, and jobs program consisting of a $10 billion investment.
+- When people are scared and traumatized, it's important to listen to them.
+- And if you want partnerships that focus on hard problems and real solutions, then pick a Black woman. Because that's what we do every single day and in every single way.
+- Big telecommunications monopolies - many of whom now seek to be content providers as well - shouldn't be able to price others out of the market simply because they can't pay as much as the giants.
+- Allowing the big dogs to create a toll lane for public education, public interest and government programming, and to make it more costly to sell products online, will be bad for Black women and our communities.
+- New York is such an amazing place. It's a city that I've wanted to live in since I was a little girl, my brother and I both. We both live here now and we've lived here for decades. My kids were born here.
+- Citizen journalism and even our ethnic press could be harmed by big companies deciding where we can get our news.
+- There are areas of tension and uncertainty the Constitution doesn't address, and presidents of both parties have fought with Congress over their respective roles.
+- I lived in a low-income Black community, grew up with kids on welfare and with Black folks driving Cadillacs, going to private schools and everything in between. My literal biological aunties are deeply religious. I got it all.
+- Red Hook, Brooklyn, is a spit of land jutting out over the New York Harbor and looking across to the gleaming high rises of the financial district in Manhattan. Its views are amazing, its poverty stark.
+- At the end of the day, we all share the mission of strengthened police and community relationships.
+- I remember being a child eagerly looking out the Amtrak window, waiting for the New York City skyline to emerge.
+- My father, because he was an academic, he did not shy away from meeting with academics who focused on political science, sociology, he actively embrace that and he didn't shy away from meeting with lawyers.
+- I look forward to demonstrating the greatest integrity of fairness and independence that any arm of the city should have and does have.
+- Having grown up in a Black neighborhood, gone to a segregated Black public school that was overcrowded and underfunded, watched my neighbors be displaced when rents went up and they couldn't afford to pay them - all this shaped my career.
+- Let's be clear about one thing everyone should know: Affirmative action is constitutional.
+- Lots of people can manage. That's not the question. It's this: Can we reimagine? Knowing how government works is not the same as getting it to work transformationally.
+- High-speed Internet access won't stop future superstorms and it won't solve all the unfairness that low-income New Yorkers face. But with strong alliances between community members, local nonprofits, businesses and technology experts, it will bring affordable, local innovation that helps us build stronger, fairer and more resilient communities.
+- So, I was in a segregated, all black, public elementary school until fourth grade, until my father died. And that's when my mother transferred me to a private, predominantly white school and I saw both sides of the world at a very young age.
+- When the opportunity came up to do social justice work for the New School in an academic setting, and still be able to support the mayor and be part of the de Blasio family, it was kind of a no-brainer for me.
+- When Superstorm Sandy churned up fourteen-foot walls of water that slammed New York's coastal communities in October 2012, they also washed away any false notions we had that we care sufficiently for poor people.
+- Legal arguments, particularly when they reach the highest court in the land, can be detached from daily life.
+- The Affordable Care Act's contribution to longer and healthier lives is being overshadowed by the individual mandate question.
+- I was going to college. But to be, like, a psychologist, wanting to help people but also just kind of not being my parents.
+- Like every New Yorker, I know this place is magic. I know this place is amazing. I know that we have come back time and time again from a great recession, from high crime rates, from 9/11, from crisis after crisis.
+- We have many big problems we need to address in this nation - saving our homes, finding jobs that support our families, plugging into new sources of energy. The way we solve them is to think, talk, debate and work to advance solutions.
+- I, like many of the other women who made history and dared to step up to lead since the 2018 midterms, know we must all play a role in the battle for who we are and who we must be.
+- You know, 88% of New Yorkers who have died from Covid are people of color. We are not 80% of the New York City population.
+- Police discipline certainly does occur; it just does not often lead to change.
+- The innovations we need at our systems level require an understanding of business, psychology, and policy, but doing it with a deep, deep understanding of how our decisions create barriers for fairness and opportunity for some people.
+- In New York, our greatest pride and asset is our diversity. We live in a city that recognizes and celebrates the fact that its residents were born all over this country and globe.
+- Some will say I don't sound like past mayors or look like them or think like them, and I say yes, I don't - that is the point.
+- One of the things it's so important for any city government is to have the trust of the public.
+- It's absolutely true we have to pay attention to whether low-income people of any race are able to access quality, higher education.
+- We are committed to keeping the Internet open and free, and we are now advocating for the federal government to make subsidies for low-income household telephone service available for broadband too, so that our residents can pay for service more easily.
+- If you tap people's racial anxieties, you're not going to get them to be able to hear any of your facts.
+- I think every leader has to be willing to examine their own biases.
+- My daughter had a Howard Dean Beanie Baby and that didn't help him. T-shirts don't win elections.
+- We don't have to agree on solutions to our problems or who is best positioned to lead us to them.
+- My father was at the forefront of the economic justice movement - fighting for and with Black women who were on welfare for dignity and for enough support to feed their families, shelter their kids.
+- In fact, black students with college degrees are twice as likely to be unemployed as white students with college degrees. So, to say there there is not an issue for black Americans and Latinos in terms of the opportunity that college is supposed to create would be wrong.
+- We used to watch my father, who was a civil-rights activist, get arrested on TV sometimes, and we never knew if he was going to be home for dinner.
+- I am a Black woman raised by parents who were active in the civil-rights movement.
+- Far too many people, many of them white men, are losing healthcare insurance as they lose their manufacturing jobs. This is commerce by most real world definitions.
+- For so many people in New York City, childcare and eldercare is a top-three cost of living.
+- Considering that police have life and death power over the public they are sworn to protect and serve, we have the right to expect public accountability to ensure that we can protect ourselves, as well.
+- Democrats and Republicans agree that police misconduct should be better tracked. But agreement appears to end there.
+- When I'm in charge, you will never have to question whether anyone is listening, whether the mayor even wants the job. You will never have to ask yourself whether you matter. You will never have to wonder whether I'm in Iowa.

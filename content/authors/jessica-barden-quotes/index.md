@@ -1,0 +1,48 @@
++++
+author = "Jessica Barden"
+title = "Jessica Barden Quotes"
+quotes_len = "42"
+description = "the best 42 Jessica Barden Quotes"
++++
+- I think I worked way harder for the female directors than the male ones. There's nothing like women challenging each other to really make you do your best.
+- I have a fear of people... Some days you just don't really want the attention of everybody looking at you. And it makes you feel insecure.
+- Creating boundaries for yourself is healthy. A lot of panic attacks, in my experience, can be stopped by actually saying to somebody, 'Sorry I can't actually do this because I feel uncomfortable.'
+- I definitely wanted to be a woman and be treated as an adult, I wasn't interested in being young at all.
+- I was always a show-off with my friends; we used to have interpretive dance nights to Christina Milian and Sean Paul where we'd film it.
+- I'm one of those people when I see a homeless person on the street, I want to know their story. There's a reason they got there.
+- Acting was definitely a comfortable place. It didn't force me into adulthood because I was ready to be independent.
+- There isn't a right or wrong way to be depressed, anxious, or struggle with PTSD. Mental health challenges manifest differently for different people, and it's important that people see that on-screen.
+- As much as it's really important, obviously, as a woman in the industry to be choosing the stories which represent women, you also have to keep an eye on the male side.
+- We all went for roles as extras at my school because a lot of children's shows were filmed in Leeds near where I grew up. My Parents are Aliens was a big one we all did.
+- I'm really grateful for the opportunities I get. But I do spend a lot of time thinking about how lucky I am so I don't become complacent about it.
+- But as a kid you take it very personally when your parents divorce.
+- And if I have kids one day, I can tell them that I was famous on Instagram, which is really funny, and they will think that I'm really lame. Everything is temporary.
+- I don't want to have a big wedding. I don't crave that ritual of dress fittings, party planning and all eyes being on you.
+- If you discover that a role isn't complex, you can speak to somebody about it and they'll help you push it when you're on set.
+- So I would like my wedding day to be low-key. And maybe I would not wear a wedding dress but something chic and simple, like vintage Chanel.
+- There's a tendency to still show women as being one way or the other - you're either soft and shy or you're really ballsy and funny, but I think that we're everything.
+- Independence was something I really wanted from a young age and I think it really helped me make sense of myself, more so than perhaps say going to university would have done.
+- I was the last person to experience everything. I didn't really waste time worrying about fitting in or going to parties, because I looked very young for my age and wouldn't have fit in even if I tried.
+- Every single job is fun, but I like it to be a mix of knowing what you're going to do every day, with learning something every day.
+- I've played a lot of teenagers and I think sometimes they tend to make them a bit too mushy, because you're not actually connected to yourself at all really when you're a teenager.
+- Part of my job is getting dressed up and having my picture taken and the best way of dealing with that is finding a way of enjoying it.
+- I know lots of friends who grew up without fathers and it actually makes you stronger. You have more to prove, you have to protect yourself.
+- I can't lie - I have one of those faces where you can tell. It's expressive and lends itself to being cheeky. I always tell the truth even when I should probably tell a white lie.
+- Being an actress, I want to play people that are not like me or the characters I've previously played. It's easier to get roles if you play a certain type of character but I don't want to do that.
+- I'm obsessed with my career. I'm 25 - it shouldn't really be any other way. I've had boyfriends in the past who haven't understood that, but I didn't lose any sleep over it. If a man has a problem with the fact I work 20 hours a day, I don't have to explain myself.
+- I stayed at home and loved my own company because I was just petrified of everybody else my own age, which I think a lot of people are.
+- I'm a quite dramatic person.
+- I just used to go to the same auditions with all these other kids I went to school with. I didn't feel like I was really good at acting. I didn't feel like I was a really talented person that needed to be doing this.
+- You've got to support male stories and healthy male relationships and things. You can't just be a woman that is only want to support female stories or a guy that's only wanting to support guy stories. It needs to all mix again.
+- Working-class actors have no identity. Our identity is playing every single poor person on 'Game Of Thrones.'
+- I feel really happy like with 'Derry Girls,' I feel happy to be part of something that young people are like, that is dysfunctional and you feel awkward in relationships and you try to find someone that makes you feel comfortable.
+- I have stage fright really badly.
+- I like taking risks with things.
+- I'm 25, but I look like I'm 16 so I don't really don't consider age personally.
+- I like doing stuff that is sad or angry. It's a challenge, because you're doing a mix of scenes and you're making a person.
+- So many people's parents separate and for my generation it is very normal. But I remember feeling as though nobody ever spoke about it.
+- I mainly feel excited but also grateful to be recognised by Bafta. It makes me feel like a legit actress.
+- It is so important for young people to see characters with different mental health challenges on-screen.
+- I'm friends with people that are in their 70s. I'm friends with people who are 17. So I don't consciously do anything different because of an age.
+- I started working at a really young age, so I didn't even go to traditional high school.
+- Like everything, if you're born in the center of something it's super easy, but it's hard to do anything different with your life if you come from somewhere that isn't London.

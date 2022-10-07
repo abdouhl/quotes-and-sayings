@@ -1,0 +1,34 @@
++++
+author = "Madame De Stael"
+title = "Madame De Stael Quotes"
+quotes_len = "28"
+description = "the best 28 Madame De Stael Quotes"
++++
+- The sense of this word among the Greeks affords the noblest definition of it; enthusiasm signifies God in us.
+- Wit lies in recognizing the resemblance among things which differ and the difference between things which are alike.
+- A man must know how to fly in the face of opinion; a woman to submit to it.
+- The voice of conscience is so delicate that it is easy to stifle it; but it is also so clear that it is impossible to mistake it.
+- That past which is so presumptuously brought forward as a precedent for the present, was itself founded on some past that went before it.
+- The mystery of existence is the connection between our faults and our misfortunes.
+- Prayer is more than meditation. In meditation, the source of strength is one's self. When one prays, he goes to a source of strength greater than his own.
+- Innocence in genius, and candor in power, are both noble qualities.
+- The desire of the man is for the woman, but the desire of the woman is for the desire of the man.
+- Search for the truth is the noblest occupation of man; its publication is a duty.
+- Genius is essentially creative; it bears the stamp of the individual who possesses it.
+- Love is a symbol of eternity. It wipes out all sense of time, destroying all memory of a beginning and all fear of an end.
+- Men err from selfishness; women because they are weak.
+- The more I see of men the more I like dogs.
+- Scientific progress makes moral progress a necessity; for if man's power is increased, the checks that restrain him from abusing it must be strengthened.
+- Politeness is the art of choosing among your thoughts.
+- We cease loving ourselves if no one loves us.
+- The greatest happiness is to transform one's feelings into action.
+- Wit consists in knowing the resemblance of things that differ, and the difference of things that are alike.
+- The human mind always makes progress, but it is a progress in spirals.
+- A religious life is a struggle and not a hymn.
+- Speech happens to not be his language.
+- When a noble life has prepared for old age, it is not decline that it reveals, but the first days of immortality.
+- Sow good services: sweet remembrances will grow from them.
+- To be totally understanding makes one very indulgent.
+- In matters of the heart, nothing is true except the improbable.
+- One must choose in life between boredom and suffering.
+- Love is the whole history of a woman's life, it is but an episode in a man's.

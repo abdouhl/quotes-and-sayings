@@ -1,0 +1,95 @@
++++
+author = "Jen Sincero"
+title = "Jen Sincero Quotes"
+quotes_len = "89"
+description = "the best 89 Jen Sincero Quotes"
++++
+- When you understand that making, saving, and spending money is all based on the thoughts you're thinking and the actions that these thoughts lead to, you can completely transform your reality - and your bank account.
+- Perfectionism and procrastination have such a fine line. You say, 'Well, I want it to be good. I want it to be perfect.' But what you're really doing is not doing your work. You're putting off showing up and being visible because then you're going to be judged, and it might suck.
+- Write down everything you feel about money - 'I love you;' 'I wish I had more of you;' 'I don't trust you;' - Then, look at the ones that aren't quite so pretty and figure out how you can shift them to be in a more positive, grateful space.
+- The key to growth is acknowledging your fear of the unknown and jumping in anyway.
+- Technology gets a bad rap for keeping us glued to our screens instead of being present with whomever is around us, and while this can be true, it also allows us to connect with billions of people all over the world. For free.
+- I'm in trouble with some activist women because I refuse to say I'm bisexual.
+- A sense of urgency is motivating.
+- Yes, there will be challenges, and things will blow up in your face, but learning experiences are different from wasting your life pushing a boulder up a hill.
+- At times, I find a degree of inflexibility in the more traditional homosexual community that seems to me to be every bit as 'straight' as straight.
+- When I meditate, I can feel an energy that is much bigger than me but is also part of me, and it's a very powerful energy.
+- People tend to create drama and make things far worse than they are in reality.
+- I have a theory that people tell you everything you need to know the first week you meet them. And often even on the first date.
+- For me, I feel like God is intuition and an inner knowing. I think it's difficult to be successful without that because that's where you have to come from if you're really going to knock it out of the park. For me, it's more a sort of a universal energy.
+- Awareness is the first key step in breaking the spell of your not-so-awesome financial 'reality.'
+- Scare yourself every day, and do something that makes you feel totally excited and totally terrified.
+- Basically, I chose not to identify with being broke any longer. I realized I deserved a beautiful life, and abundance was something that I needed to welcome into my life.
+- Sexuality has become much more fluid, and you no longer have to be locked up into a convenient compartment.
+- Our 'realities' are make-believe - whatever we make ourselves believe, we experience.
+- I was broke into my forties.
+- If you are a human being in modern society on planet Earth, you need money to do pretty much everything, especially to grow into a more expansive version of yourself.
+- Bravely going out into the world and trying, yet still deep down believing you're ruled by your past circumstances, is like forgiving someone but still hoping they sit in something wet.
+- The good news about being full of crap is that once you're willing to admit that you're full of crap, you can de-crap yourself.
+- My big journey was around money. I was a successful writer, I was a musician, but I was just always broke.
+- Make an effort to do the things that you enjoy instead of being lazy about it. Life is worth the hassle.
+- Nobody gets to the top without failing.
+- I've been broke and sad, rich and sad, broke and happy, rich and happy, and I'll take the rich version over the broke version all day long.
+- I've read, like, 10,000 self-help books.
+- If you're taking a risk and you are not scared in some way, you're doing something wrong.
+- If you'd rather spend the holidays with your friends or your dog or digging wells in Kenya than with your family, do it.
+- I grew up in suburban New York, and my family wasn't much on traveling, so when I arrived at my alma mater, The Colorado College, I'd never been out West before, seen a 14,000-foot mountain, experienced snow in 70-degree weather, or come into contact with something called a 'dude.'
+- See failures as learning experiences, not character faults.
+- Back in the day, I was always broke and was living in a converted garage at the age of 40, and then I decided I was unavailable to live my life with that reality, so I decided to change it.
+- A healthy desire for wealth is not greed. It's a desire for life.
+- We love to commiserate and troubleshoot and prepare for the worst, and gratitude yanks us out of that and reminds us of the ridiculous amount of infinite blessings that are around us at all times.
+- I got my first real job, one that didn't involve wearing a hairnet or bending over the hood of a wet car with a towel in my hand, in the early '90s working for CBS Records. While there, I started my first of several rock bands and eventually wrote my first book, the semi-autobiographical novel, 'Don't Sleep With Your Drummer.'
+- If something bothers you, focus on the solution or the desired outcome, not the part that has you spinning out in the middle of the night.
+- You get to choose how you perceive your reality. So why, when it comes to perceiving yourself, would you choose to see anything other than a super-huge rock star of a creature?
+- For the vast majority of my adult life, I was a freelance writer, forever scrambling for work that paid an insulting non-amount.
+- Maybe, if you put your disbelief aside, roll up your sleeves, take some risks, and totally go for it, you'll wake up one day and realise you're living the kind of life you used to be jealous of.
+- If you hang out with a bunch of sad sacks who think the world sucks and there's no possibility, you'll start to believe that. But if you hang out with people who think everything is possible and actually do the impossible on a regular basis, you will believe that, and you will be able to achieve that.
+- When my plans to become a world-famous rockstar didn't pan out, I decided to try being a lesbian instead, didn't pull that off either, and wrote my second book, the national bestseller, 'The Straight Girl's Guide To Sleeping With Chicks.'
+- Gratitude is one of the strongest and most transformative states of being. It shifts your perspective from lack to abundance and allows you to focus on the good in your life, which in turn pulls more goodness into your reality.
+- We often don't value what comes naturally to us because we think that everyone must have those abilities.
+- One of the biggest obstacles to making lots of money is not a lack of good ideas or opportunities or time, or that we're too slovenly or stupid: it's that we refuse to give ourselves permission to become rich.
+- Treat everyone on Earth like you're staying in their home. Because you are.
+- If you want something badly enough, and decide that you will get it, you will.
+- Get practiced at taking deep breaths before you speak. This will give you the space to stop, notice what was about to come out of your mouth, and course correct if needed.
+- When we push against who we naturally are, we feel stress, things don't progress easily, we beat ourselves up for getting crappy results, and everything is an effort.
+- If you're confident, then you don't feel weird about showing your vulnerability and opening yourself up to learning from somebody else. Insecure people stay where they are because they're afraid of admitting their weaknesses.
+- You must go after the things you desire like your life depends on it, because guess what? Your life does depend on it. The life you truly want to live does.
+- Even though most of us love, love, love it when we're flush with cash, and we fantasize about what we'd do with more of it, we'd feel gross saying 'I love money' out loud.
+- If you're serious about changing your life, you'll find a way. If you're not, you'll find an excuse.
+- I find that in my own life and with the people I've been coaching, when people make the decision to get rich, they're available to do things that are outside of their comfort zones and stretch themselves.
+- I do recall one moment when I went to India by myself. I was paralyzed with fear to travel alone, but I had this intuitive hint that I had to do it. It was transformative and beautiful.
+- If you want to change your life, you have to do things you've never done before.
+- Take lots of walks. It's the best way to discover your world, both inner and outer.
+- Getting a compliment, even if you need a cooty shot afterwards, is still a compliment.
+- We humans can get used to anything. It really is remarkable. The problem is that we often use this glorious ability of ours to stay stuck in mediocrity. Oh, the years we waste adapting to lousy marriages, soul-sucking jobs, being friends with people who are rude to waitresses.
+- If you're in a ditch, and you're looking down, you can see where you're going but you can't see the way out.
+- Pick the one thing that you've really been putting off, that seems too big or too scary or too whatever, and do it this week. You might be very pleasantly surprised.
+- People who truly love their lives are the most inspiring people of all.
+- I have more experience than I care to have on what it feels like to be broke, confused, and frustrated when it comes to money.
+- We notice in others only those things that relate to ourselves. For example, you could find someone hilarious and brilliant, and I could find the same person idiotic and annoying. It's the same person doing the same thing, but because we are viewing them from our own unique perspectives, they mirror back to us something different.
+- Sometimes, if the people in your life really drag you down, you need to stop spending time with them.
+- If the point of an activity is to be relaxing, changing that point to money isn't a great idea. Then you have to show up for it differently, and that can take the fun out of it, absolutely. I'm a big fan of turning your hobbies into businesses, but not if it's the hobby you do to relax and unplug.
+- Safety is an illusion, and trying to protect ourselves does nothing more than protect us from experiencing a full, evolved, and juicy life.
+- Talk to strangers. They're never who you think they are at first.
+- We are on this planet but once, and to spend it holding back our gushing appreciation of the things that light us up is a shameful waste.
+- Pay attention to how you think and speak, and if it turns out that you're sounding snide or crappy or doubtful, make the conscious decision to change.
+- If your entire relationship with money is devoid of fun, money becomes something you fear and loathe rather than something to celebrate and enjoy.
+- Acknowledging that there's something you desire, not going after it, and deciding that, 'You know what, it's fine; I'll just focus on what I do have, make myself a ham sandwich, and call it a day,' isn't happiness. It's denial.
+- If you want to be a powerful woman, you need money. It gives you options and freedom so you don't have to think about money all the time.
+- We don't even realize how loaded of a topic money is. We've got really serious judgments on it.
+- The good news is that you have everything you need to lift yourself off the couch to start kicking butt. You just have to decide that you're going to do it, not that you're too lazy to.
+- So many people live lives of silent mediocrity, convinced that what really matters to them is out of their reach. So they settle.
+- You have to get outside of your comfort zone if you're going to make significant changes in your life, and since few things scare people like the unknown, feeling fear is an excellent sign that you're on the right track.
+- It actually is a lot easier to get rich than one would think.
+- Try new things, step out of your comfort zone, take risks, do things in ways you've never done them before, ask for help, surround yourself with self-actualized people, become obsessed with the fact that you have one go-round on this planet as the you that is you, and realize how precious and important it is not to squander that.
+- All living things come hardwired with certain traits and characteristics that are part of our nature, meaning that these things come naturally to us: they're what we're meant to do, and they're how universal intelligence flows though us best. Birds gotta fly, fish gotta swim, etc.
+- People love to tell you what you should and shouldn't want, regardless of what you have to say about it.
+- As far as self-confidence goes, so much of social media is about approval, getting likes, comparing our lives to others' - meanwhile, confidence is an inside job: it's about how you feel about yourself regardless of what anyone else does or thinks. It's a knowing that you're human, you're flawed, and you're awesome in your own way.
+- Will you lose everything you've got if you open your own restaurant? Who knows. Will unleashing your secret desire to teach tap dancing ruin your reputation as a professional wrestler? Who knows. And who cares? Unless your unknown puts you at risk of death, prison, or bodily harm, you have nothing to lose except living a dull, uninspired life.
+- We're all born with the capacity to be our best selves - to be who we really are. Then we hear the messages that exist in our fear-based society, and we get beaten down. Being confident means peeling away the doubt, fear, and worry and getting back to our core. Confident people have learned how to get back to their pure selves.
+- Overwhelm is, most often, a mindset. If you think about all the things you have to do, you'll be face down on the floor. It really helps to break it down into smaller pieces.
+- Being cool was always very important to me, but I decided to get rich, so I went for it.
+- Wanting money has been made so taboo. We're not allowed to talk about it or admit we want it, and yet we use it every single minute of our lives.
+- We live in a fearful society that has perfected the art of doubting, weaned us on worry, and trained us to focus on everything that can or has gone wrong.
+- So many people subconsciously shy away from getting rich because they believe they'll be judged, they'll lose the people they love, they believe that desiring money is a bad thing, money is the root of all evil, etc.
+- This is part of what makes me, ahem, an excellent houseguest: I'm game. I'm flexible. I'll make you feel okay about eating an entire chocolate cake in one sitting because I'm right there by your side with my own fork.

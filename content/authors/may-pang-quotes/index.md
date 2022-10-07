@@ -1,0 +1,41 @@
++++
+author = "May Pang"
+title = "May Pang Quotes"
+quotes_len = "35"
+description = "the best 35 May Pang Quotes"
++++
+- I wanted to be cleared up about that Lost Weekend. I've heard enough of the myth. It was frustrating, but I let it go.
+- The likelihood of John having an affair with Brian Epstein is absurd, and actually impossible. Even when Phil Spector once tied up and threatened male sex against him, John was terrified.
+- People say, 'Oh God, you're name-dropping.' Well who else comes to your house when you're John Lennon? These were normal friends to him. McCartney, Jagger, they'd stop in and I'd order pizza or Mick's favorite beef curry from the local Chinese restaurant. We did normal things.
+- I was born to Chinese immigrant parents, who came from Taiyuan.
+- I'm a big gadget queen.
+- I had access to John like very few people had had.
+- Goldfish in Chinese restaurants are there to draw in the gold, the money.
+- One day, we were going to the studio for John's recording session, and as we were leaving to get to the studio, in the elevator, all of a sudden, John leaned over and gave me a kiss. He said, 'I've been waiting to do this all day.' I said, 'What are you talking about?' What happened was, he'd liked me.
+- John loved celebrity. We attended an American Film Institute dinner honoring James Cagney, and the room was filled with famous actors like Mae West, Kirk Douglas, John Wayne and Steve McQueen. John was like a kid in a candy store.
+- To think the first boyfriend that you lived with is John Lennon, it's hard to make that realization to someone.
+- Many of what are now considered historic events, such as John and Paul McCartney's only jam session after The Beatles split up, weren't photographed. I'm surprised I captured as many moments as I did.
+- When I was with John it took me awhile to say, 'I'm in love with him.' I loved him as a person because I'd known him for three years. But as the person I'm living with who became my lover, it was really a slow move.
+- If anybody had told me I was going to live outside of New York City, I would have thought they were out of their minds.
+- John smoked his French Gauloises and drank lots of strong coffee.
+- John would drink, too, but he would stop. After a while, John would say, 'I've had enough, I don't want to be in the papers.'
+- John just didn't understand his being the focus of all this attention.
+- Most people have come to know the time that John Lennon and I spent together as The Lost Weekend. I am always surprised by how many people are under the impression that our time together lasted only a single weekend.
+- When John and I were together, and this is about a week or two before our relationship ended, I remember him saying, 'Do you think I should write with Paul again?' I said, 'Absolutely. You should because you want to. The two of you as solo performers are good, but together you can't be beaten.'
+- I know what I saw. And the rational explanation is... it was a UFO. There's UFOs over New York, as the song goes. And I saw another one in the early '80s, and I know other did people did too.
+- A friend of ours said, 'You think you're really going to have that much hair at 65?' I mean, John got insulted by that.
+- Sometimes it would feel permanent, but he could be jerked back into Yoko's mind games very easily. Also, as our relationship began so strangely I suppose it would have had to end just as strange.
+- A friend of mine kept saying, 'You tell all these stories about John, and when you do, you say, 'Wait a minute, I have a photo to go along with that!' How come we never see these photos in a book?' So, I thought maybe it's time to put them out. It would let people see John in that world, through my eyes.
+- I think I have a right to write about John.
+- Everybody changes. With John things changed on a daily basis.
+- I just get tired of the same rehashing of lies and myths.
+- I've been airbrushed out, as it were. You can imagine my frustration at being erased from history deliberately. I really don't know how Yoko can sleep at night knowing what she's done. But I can tell you I sleep very peacefully.
+- I understand it when the fans are looking at me. The Beatles, and John in particular, are their musical idols. You can't touch John, but you want to know more about him, and you want to know from a person who was close to him.
+- History is one thing that nobody can take away. No matter what anybody says or whose side you're on.
+- As unconventional as John was, he was also old-fashioned. Because of the nature of our relationship, John felt uneasy and never met my mum, which he later regretted. He would hide behind the door until she left.
+- I don't have a relationship with Yoko. I've tried contacting her many times after John had died. She wouldn't return any of my phone calls.
+- I haven't spoken to Yoko since the mid-'70s.
+- John was a very talented person who gave the world a lot of happiness through his music.
+- Although some people are under the impression that John and I spent our entire year-and-a-half together in L.A., we spent only about seven months there, from September 1973, with many long breaks back in New York.
+- I grew up with feng shui, but I never saw any jewelry that would give me the energy I needed and also looked good.
+- When you hear something that's not correct, it really starts to irk someone.

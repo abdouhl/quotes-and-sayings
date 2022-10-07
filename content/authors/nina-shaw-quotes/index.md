@@ -1,0 +1,14 @@
++++
+author = "Nina Shaw"
+title = "Nina Shaw Quotes"
+quotes_len = "8"
+description = "the best 8 Nina Shaw Quotes"
++++
+- Often, when we support the 'right' causes and candidates, we fail to recognize that with progress comes sacrifice. That sacrifice might mean that you are no longer the obvious choice for the job. Your job security may no longer be a given.
+- So many people don't have control over their destiny in a way that I do, don't own their own businesses, don't have their own clients. I owe it to them to speak freely.
+- 'Black girl magic' means, to me, just getting out there and doing it every day and not letting anything get you down.
+- I'm incredibly tenacious, but I also try so hard in my work to really listen to people and address their point of view. In the end, I always remember who I'm an advocate for.
+- If you want to be a woman in power, then empower other women.
+- You are a much more forceful advocate against gender bias and wage inequality if you actually hire women. If you are a white man who advocates for change, then hire someone other than a white man as an example of that change.
+- I think it's important to live as much of your life as possible in the real world. If you live a life that's limited to the Westside of Los Angeles, you're only going to see people like you.
+- Essence has been home for so many of us for so many years. I always say that Essence was the first place that I felt I was a pretty black girl.

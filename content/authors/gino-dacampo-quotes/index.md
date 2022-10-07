@@ -1,0 +1,106 @@
++++
+author = "Gino D'Acampo"
+title = "Gino D'Acampo Quotes"
+quotes_len = "100"
+description = "the best 100 Gino D'Acampo Quotes"
++++
+- I like women. I enjoy the company of women. What's wrong with that?
+- I tell everybody that you haven't lived a good life if you haven't made a mistake.
+- The personality of a restaurant is very important.
+- I always go back to Italy for holidays because I live half my life on the island of Sardinia.
+- I can cook in front of millions of people on TV, I don't care. But cooking for my own family really freaked me out. If they don't like it, they tell you.
+- Since I turned 40, my ambition is to spend more time with my family.
+- For many, the gastronomic heart of Italy is the Emilia-Romagna region. Its capital is Bologna, which is often overlooked by tourists but has a beautiful historic centre and a lively yet chilled-out atmosphere.
+- Rome is the capital of Europe; it's as simple as that. You need to see what the Romans did 2,000 years ago. They were so advanced compared to the rest of the world. They showed us how to make roads, toilet seats, how to do irrigation, and more. When you see the Colosseum you won't believe it was built so long ago.
+- But my wife doesn't often allow me to cook in our kitchen at home. She says that I'm messy and I don't clean up after myself!
+- My worst buy has always been cars and boats. I used to own two Ferraris, but as much as they're beautiful, they're a waste of money.
+- My house is very normal - only I have three dishwashers, two fridges and hobs everywhere.
+- There is a huge misconception that you need to spend hours in the kitchen to produce something special.
+- I think every lady wishes their husband would cook.
+- Hearing other celebrities moaning about the bad things about being famous - there is no worst thing. If you don't want to be famous, just stop it and go and be a doctor or a teacher.
+- I am still around too many Italian people to start speaking like a guy from London. I live in Italy for six months of the year, all the people in my restaurants are Italian and it means that when I speak, it is always with an Italian accent in my head.
+- Get on with your life and learn to become a better man and that's the way I live my life.
+- Everybody in Italy cooks. They have a better knowledge of the kitchen - that's the place around which the whole of Italian society revolves.
+- Venice is incredible. Although you may have seen it in pictures, you can't grasp how beautiful it is until you visit.
+- Food should be simple, colorful and accessible to everybody.
+- I never tried to convince my wife to move to Italy. She wouldn't have liked that.
+- A lot of people believe Italian food is tasty because there are a lot of ingredients. But they don't understand that the reason why it's tasty is because there are less ingredients than in any other cuisine.
+- Very few Italian restaurants in Britain do a good job. They're too scared to show you what real Italian food is like because they think you can't handle it, so they dilute it.
+- My wife often goes out with male friends for dinner and I go out with female friends. We have different holidays. We're together six months of the year and when we're together, we're together.
+- My grandfather used to be a chef and I remember going to his restaurant to peel potatoes and clean his floor. He used to go out and kiss all the girls in the restaurant and I thought 'oh this is good... one day I want to be like him.'
+- Generally, Italians just eat better. They're not doing that thing where they're eating two or three hundred grams of pasta. They're never eating a carbonara sauce with a tub of cream in it.
+- Only the French people say French food is the finest cuisine in the world. If you ask anyone else, they will tell you the best food in the world is Italian.
+- Always buy dry pasta, not fresh. 90 percent of Italians use dried pasta as it keeps its al dente shape more perfectly when cooked.
+- It was totally insane doing goat yoga in San Francisco.
+- I have a nap every afternoon like a little boy. Or an old man. Depending on how you look at it.
+- My kids are not allowed to be fussy eaters. The problem with fussy children is their stupid parents. I run a family kitchen and in my house we don't have options. I never had options, why should they?
+- My father always encouraged me to do whatever I wanted, providing I was happy. He wanted me to go to school, but because I never wanted to, it was the only thing we argued about.
+- Nowadays, everyone writes a cookbook. Models, singers, whatever, everybody thinks that they can do it and cook on TV. What they don't understand is that if you want to do it well, you need to put in the hours.
+- My grandfather was a chef and would make everything himself, including the wine, and had his own huge pizza oven. All the neighbors used to come over and use it to bake their bread.
+- Everything changed for me when my first son Luciano was born. That moment makes you realize you are not here by yourself any more and it is an experience that changes you.
+- I'm the kind of guy who can't stay still.
+- I always travel with my iPod and I've never read a book in my life. It makes me tired; my brain is not set up for reading.
+- In the D'Acampo family we have pancakes with banana and chocolate sauce for breakfast every Sunday, no matter what.
+- I don't do cookery shows to show off, I do it to encourage people. What's the point in going on TV and doing a recipe that no one can replicate?
+- If you want to go for a romantic break, or a quick break in Italy, it has to be Venice.
+- People should always have a good bottle of extra virgin olive oil, a packet of pasta, tinned tomatoes and a good cheese somewhere in their fridge.
+- My mother would never say anything I cooked for her was great. She was always a 'Yeah, but' person. When she tasted my food, I used to say to her 'Don't tell me too straight, lie to me!' She couldn't even understand why I was on television.
+- French food is too poncy.
+- When I decide something, I have to do something to make it happen.
+- Naples is famous for its handmade ties so I always buy them there.
+- There's no point spending every day with the kids and not talking to each other. I'd rather spend one very intense day together.
+- The secret of making a mistake is not to regret it, or regret it until a certain point, but to learn from it.
+- You'll never see an Italian go on a diet.
+- One thing we don't have in Italy is the culture of Chinese, Indian, French and Thai food.
+- The best place to go in Italy for a summer holiday is the island of Sardinia.
+- A lot of food shows are people wanting to become celebrities, rather than encouraging people to cook.
+- If you've ever wondered what it's like to be with me in the pub or a club, just watch 'Celebrity Juice.'
+- The problem that people have is that they eat too large portion sizes. Italians have been eating pasta for hundreds and hundreds of years, and we've never been an obese nation. We do the pasta, the pizza, all the cheeses, but it all has to do with how much you eat.
+- There is no way on Earth I'm going to get a call from 'Bake Off!' It is a British institution. People sit down to watch it with a cup of tea. The last thing they want is Gino D'Acampo!
+- If I'm feeling nostalgic, the first thing I do is open a packet of spaghetti, olive oil in a pan, garlic, a little bit of chili, a sprinkle of fresh parsley, and that's it. It reminds me of my mum.
+- My favorite pizza is the real Neapolitan - Italian sausage, friarielli, mozzarella and chilli.
+- I get asked for cooking tips all the time.
+- I had never seen an avocado until I came to London in 1994. They just weren't a feature of southern Italian cuisine.
+- I don't care about flowers or chocolates or anything like that, that's not me.
+- I came from a very lower-working-class family in Torre del Greco.
+- I do what I want, I say what I want and I do it when I want. I live my life the way I want to live it, which I think people appreciate it.
+- I'm very lucky because I can say to my wife, 'Is there any chance we can have shepherd's pie or this or that tonight,' and she does it very well - especially as I don't always want to cook!
+- I'm the type of person who doesn't do television just for the sake of it.
+- As far as Italian ingredients, I always have one of those plants of fresh basil in the house, and some mozzarella in the fridge.
+- I usually have a driver, or take a taxi. But I'm down to earth. I like to clean the kitchen, I iron and wash my wife's car! I just don't usually take trains.
+- My wife is a very clever woman. She knows when to say something and when to bite her tongue.
+- I always remember my mum and dad arguing a lot and one main reason was lack of money. I realized very young that I always wanted to make money so I'd never have the same arguments like my mum and dad.
+- Italy is a hot country. Wherever you feel heat, your excitement and passion come out. We're hot-blooded, and where there's passion there's love, but also anger, hunger, excitement.
+- People panic in the kitchen and they don't need to. The first thing to do is to open a nice bottle of wine and relax.
+- Between my brain and my mouth there should be a filter where common sense kicks in before I deliver a word, but I think when God made me he forgot the filter.
+- I have wonderful memories of growing up on a farm with chickens running all around in the small southern Italian town of Torre del Greco.
+- I thought, 'This is not going to drag me down, this is going to make me a better man.' So I came out of prison a man with a plan, determined to set up a business importing Italian ingredients.
+- We Italians respect food and ingredients more than anyone else.
+- I had wanted to be a dentist, but ended up being a chef. I think I've always had a fascination for jobs that have white jackets.
+- I think if you're a good person and you show that you learned from all the mistakes that you made you move on with your life. Everybody will accept that. Only an idiot will not accept that or keep reminding you of it and keep pointing that finger.
+- I think it's a good thing that I eat well. Don't get me wrong, I go for fish and chips sometimes or the odd kebab, but you need more healthy food than bad.
+- The problem many people have with Italian food is they over-complicate it. Italian food is extremely simple.
+- I'm a great believer in telling my children about turning my life around and I work a lot with younger teenagers when they are in trouble.
+- I'm the king of napping. I can nap and I snore. Then I wake up, go to the toilet, wash my face, have a coffee and it's like a brand new day.
+- I was a boy, so I decided to get married and then I will be a man.
+- We have a big garden; there's a swimming pool, and we keep chickens. I love them. I love getting up in the morning and collecting the eggs.
+- I love Manchester. It's a super-cool city and its famous rain is part of the charm.
+- I don't like lakes generally. It's a glorified pond, isn't it? I live by the sea, so for me I need to taste salt. I prefer the mystery, the majesty of the sea.
+- Italian wines don't have to be expensive to be good. It is absolutely ridiculous that people feel that have to spend a fortune.
+- Every summer I sail to a small island called Cavallo, which lies between Sardinia and Corsica.
+- I like Chinese and Indian food, but only every couple of weeks.
+- We don't do spaghetti and Bolognese sauce together in Italy. That is technically wrong because when you lift up the spaghetti the sauce will just run down. The way to do it is to use pasta like fettuccine or tagliatelle so the sauce sticks to it.
+- A key rule for every cook should be not to buy food when it's out of season because it's expensive and tastes awful.
+- The only way you could replicate the way I grew up, with no access to supermarkets or petrol stations, would be to live on a farm in the middle of Wales.
+- Rushing around my restaurants and doing a lot of walking when I film in Italy and a bit of swimming and running keeps me thin.
+- I spent a week of my honeymoon on a cruise ship and it was a nightmare. Never again.
+- I'd love everyone to try authentic Italian food.
+- I understood food from a very early age. I understood the combination of ingredients very early.
+- With me and my family, we have nothing to hide.
+- My only ambition was to have a restaurant and bring real Italian food to this country. Television was never even part of my idea, so I can say without hesitation that I am living someone else's dream.
+- My favorite breakfast that is nutritious and very quick to do is eggs. Of course not everyday because that's not good for you, but I like to have eggs in the morning at least three times a week as it gives me a lot of energy.
+- When I was eight years old, my mum and dad took me skiing in Valle d'Aosta in northern Italy. I'm not usually a huge fan of snow or cold places, but I loved the fact that we were together as a family.
+- I'd much prefer to be at home with my family than go out.
+- Italian people are so proud to show off. A little bit too much, I have to say. Wherever you go, they prepare a buffet and they get offended if you don't try things.
+- I get lots of female attention on social media and some of it is disgusting. But my wife doesn't really care.
+- My mum and dad weren't wealthy people. We used to have pasta every day, meat once a week, fish was once every two weeks, presents only at Christmas and birthday.

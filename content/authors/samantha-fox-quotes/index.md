@@ -1,0 +1,28 @@
++++
+author = "Samantha Fox"
+title = "Samantha Fox Quotes"
+quotes_len = "22"
+description = "the best 22 Samantha Fox Quotes"
++++
+- It's different cultures that make the world go 'round at the end of the day.
+- You can't be taught to be brainy. You've either got it or you don't.
+- It wouldn't be fair to drag a child round the world, touring.
+- When I was a model, everybody was scrutinising me and I felt I had to go to the gym because my figure had to be fantastic. Now that I'm a singer, I've got a different kind of body - it's more athletic.
+- As a kid, I dreamed of being a pop star, a glamorous woman and traveling the world. And I've done that all my life.
+- At 20, I didn't know what suited me. I had terrible fashion sense and awful make-up.
+- All my life, it's been the same with men. Being a woman who is famous and adored by men is very hard for any boyfriend to handle. All my boyfriends end up insecure.
+- I kept thinking I was always going to meet the right man, but I never did. Kept waiting for this knight in shining armour. 'When's he coming? He's taking a long time, isn't he?'
+- I've got ten pairs of trainers. That's one for every day of the week.
+- I can't beleive I'm here to tell the tale, this was my first brush with death, and God must have been looking after us and obviously, it wasn't our time.
+- I am very domesticated. I find I really enjoy it.
+- I consider myself sexy. But the sexy image doesn't bother me, and I don't think it detracts from my singing.
+- I still keep my accent.
+- I'm an outgoing girl, and I can't help the way I look.
+- I don't have a problem with my image; it's other people who do.
+- Listen, it's very easy not to be ripped off, you know. Get yourself a lawyer.
+- I still consider myself a working-class girl and would send my kids to public school.
+- The simple things in life make me very happy.
+- When somebody wants me to sign an old picture, it's like looking at another person.
+- Gay guys love women who are tough, who are survivors. They always call me a diva. And I am a survivor; I've pulled through everything and I've not become bitter about it.
+- I always wanted it, the fame. When it come, I didn't want to let it go.
+- I wanted to get a taste of what it would feel like to be a mum. I've always had a strong maternal instinct and ideally I would love one of my own.

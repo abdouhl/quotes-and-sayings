@@ -1,0 +1,68 @@
++++
+author = "Goldust"
+title = "Goldust Quotes"
+quotes_len = "62"
+description = "the best 62 Goldust Quotes"
++++
+- There would be no Goldust without the fans. They've made my career.
+- I've wrestled just about everybody there is to wrestle, done just about every character reincarnation that I can come up with.
+- The past is history. I can't change any of that.
+- Pay-per-views and television are so fast-paced. It's very hectic.
+- Before Dad passed, we talked so much about the Goldust character, what it grew into, and how much he was proud of it.
+- If anything, I was the definite edge of the spear into The Attitude Era, I believe, so it was way before its time, the stuff I was doing, and it kind of set the tone for what was to come.
+- My dad is to professional wrestling what Babe Ruth was to baseball - he's an icon. Working with him and having him around as I try to get this new character over with the fans has been a major help.
+- Eventually, and thanks to my dad, I started working for Total Nonstop Action for $1,000 a show. He was the boss, right under Dixie Carter. TNA wasn't doing too well at that point, but I had a job making okay money.
+- The business changes, and we don't all have to like the change, but it's, ultimately, the business is changed. But, that being said, I don't like it, and I'll tell you why. Because without the new school that we have right now, or without old school, there would be none of this new school, so it started somewhere, right?
+- I've had stuff pulled for me on big shows and stuff like that. You can get frustrated all you want, but the show must go on, and there are reasons for it.
+- I've kept evolving the character. At first, you hated Goldust with a passion, then you laughed with him.
+- I try not to forecast the future and look down the road as far as my wrestling, because it's there. All I have to do is walk in a ring and light up the crowd.
+- My sister, Kristin Ditto, was a part of the Cowboys organization from 1998 to 2000 as a Dallas Cowboys Cheerleader.
+- I go to the gym twice a day. I take no days off. I do three days of DDP Yoga, and I do Pilates twice a week. Every day, I've got some kind of program.
+- You can have a bad opponent out there and still get the job done. You just have to work around certain things.
+- The backstage stuff is not for everybody. I'm very hands on; I like to train and teach young guys now because there's so many of them. There are certain ways to do things, to get crowd reactions and sell your emotions and sell stories.
+- I've had a WrestleMania moment.
+- You can't live in someone else's shoes; you've got to branch out and fill your own shoes.
+- You wouldn't catch me dead in a fanny pack.
+- You talk to the boss about your ideas and things like that, and all he can say is yes or no. I mean, you don't open your mouth, you don't give him your ideas, you're not really trying.
+- If you want to shake a hand, if you want a story, I'll be more than happy to sit down with you and talk with you. It's what I love to do.
+- I'm not going to retire until I win the NWA World Heavyweight Title, the same belt my dad had. I'm going to win that title before I hang it up.
+- As far as children out there that hate their moms and dads, just get over it, because you get one dad and one mom. You know, suck it up. Learn something.
+- I had been hired and fired so many times and been so very blessed and lucky.
+- In the '70s and the '80s, what wrestlers were doing back then, yes, they're taking bumps, and they're busting up their bodies and things like that, but now, we got these cages: they're falling off.
+- Tell a story. You don't have to do a thousand things in two minutes when you can do one just as good and still tell that story with your face or how you land or your reaction. That's a lost art. Storytelling is a big part of our industry, and if given time, you can do it properly.
+- I just take it a day at a time, and that's how I get through each day.
+- If I'm studying in NXT and trying to make it to the main roster, I would be watching Randy Orton.
+- At the beginning of me getting out of rehab and thinking about going back to work, I was scared because I didn't know if I could do this clean and sober.
+- Goldust is a singular character. I don't need to be put with anybody.
+- I wish I could have wrestled back in that era of the NWA with my dad. Real old-school style.
+- I'm kind of a lone-wolf type of person.
+- Six-Man Tag Matches are good to have on the show because they're very exciting.
+- I am Dusty's son, but I learned the hard way I was never going to be 'The American Dream.' That was difficult for me, and I made some molehills into mountains.
+- There are times when I wish I would have gotten a degree, but the past is history, and tomorrow's a mystery.
+- A dual-sport champion, man. That's unheard of and pretty impressive, man.
+- I never could have imagined or dreamed where my career would be taking me the way it has with the Goldust character. It's awesome.
+- I love the wrestling business. The wrestling business will never die. It will be around forever.
+- It's no easy job being a World Heavyweight Champion; these guys like Cena, Sheamus, these guys are modeled around that and are champs for a reason.
+- Working heel works different for me, being Dustin Rhodes for so many years and then a giant switch of a character and everything.
+- I want to be World Heavyweight Champion, but unfortunately, that didn't happen.
+- You might be sitting at NXT for six years. But, if you're sitting there at NXT for six years, and they haven't called you to the main roster, then you're not doing something right. That's just my opinion.
+- I came out of my mother's womb wanting to be a professional wrestler. But then notoriety and stardom happened, and I started getting cocky.
+- I've had my day in the sunshine with wrestling.
+- Everyone makes mistakes along the way, but we learn from our mistakes.
+- People have come up and told me they were WCW fans from the early '90s, or they were watching my work in FCW when I first started in the late '80s, and they'll spit out a match of mine that they still remember. I stand there in awe, shocked that someone still remembers.
+- That's how I live my life now, just day-by-day.
+- I chose to go down a very dark place, and I can't change that, but those moments have served as an education for me.
+- Here are the five guys I learned the business from: Barry Windham, Ricky Steamboat, Arn Anderson, Larry Zbyszko, and Bobby Eaton. Those guys taught me how to do everything in the ring. I learned so much from each of them.
+- I've done everything that there is to do in this business.
+- It took me a long time to get my life screwed up, and it's going to take a long time to get it back.
+- Chicago, to me, is the best wrestling crowd on the planet. They are the best. They are loud, they are ruthless, and they will tear you down if you let them.
+- You have Superstars, and then you have mega Superstars. Brock Lesnar is a mega Superstar.
+- Savio Vega kept pushing me, pushing me, as he was teaching me, too, how to be a heel and things. And how to... 'Let's just try this tonight: just, we'll lock up, you'll go behind me, rub up and down my chest.'
+- At first, when we had the Golden Truth, it was fun - but it was always in the back of my head that I'm destined for so much more. I can be so much better than this, than the old comedy act that they want me to be.
+- Push yourself to the limits, and you'll be John Cena, you'll be C.M. Punk, instead of complaining about other people that have done so, so much in the business.
+- My favorite opponent is probably Randy Orton.
+- It's important to give back.
+- We got tables they're going through constantly, chair shots, all this, very dangerous maneuvers where you can possibly break your neck or something like that.
+- Dad lived such a hectic, hard life on the road, and I didn't get to spend as much time with him as I would have liked.
+- The fans really have never concerned me.
+- The wrestling community loves the Rhodes Family - not only loves them, but we know what we're doing.

@@ -1,0 +1,69 @@
++++
+author = "John Sununu"
+title = "John Sununu Quotes"
+quotes_len = "63"
+description = "the best 63 John Sununu Quotes"
++++
+- I'm an old man of 73, and I've been around a long time. If I don't know something by now, I probably never will.
+- Bureaucrats behave very differently than a private-sector manager because their motivations are different. Permanent bureaucrats, no matter how senior, worry about their next job.
+- I do not support raising the minimum wage, and the reason is as follows. When the minimum wage is raised, workers are priced out of the market. That is the economic reality that seems, at least so far, to be missing from this discussion.
+- Households and businesses cut expenses every day. Passing a financial down payment alongside the debt limit sends the right message to the public, and gives members of Congress greater comfort, or cover, depending on your perspective.
+- The Internet will win because it is relentless. Like a cannibal, it even turns on it own. Though early portals like Prodigy and AOL once benefited from their first-mover status, competitors surpassed them as technology and consumer preferences changed.
+- Politics thrives on simple, clean messages, something that played to Obama's advantage in 2008. Stagnant unemployment and the loss of America's AAA rating are as simple and tough as they come. This is the economy on Obama's watch, and there's no one left to blame.
+- It's counterintuitive, but the most divisive arrangement is when the same party controls both Congress and the presidency, a situation encountered in eight of the past 10 years. With government unified under a single party, the minority has the least possible incentive to cooperate with the majority.
+- After everyone has had a chance to bluster, posture, and pontificate, we are left with one basic question: under any foreseeable circumstance, would it be in our national interest to default on our debt? The answer is unequivocally no.
+- It doesn't take Warren Buffett to realize that when companies don't know what new rules will look like, it affects their ability to commit capital and create new jobs.
+- The voters are going to decide in November who is going to fix their personal family dismay over not having jobs in America. They are going to pick Mitt Romney.
+- I believe our foreign assistance should be scrutinized, should be debated, and that we should strike the right balance, but in all cases the foreign assistance that we provide around the world should be used to further our national security interests.
+- Simply put, broadband voice is an interstate matter that must be dealt with through clear national standards.
+- Politicians are usually the first to forget that if you assume someone else is acting in bad faith, they will do the same to you. Questioning motives poisons the well.
+- The public should begin to understand that there's nothing that comes out of this campaign, or this Obama White House, that they can believe. It truly is all misrepresentation and deception.
+- Not since the steam engine has any invention disrupted business models like the Internet. Whole industries including music distribution, yellow-pages directories, landline telephones, and fax machines have been radically reordered by the digital revolution.
+- If you wait until those weapons pose a direct, clear, present danger to the United States, you've probably waited too long.
+- A candidate who tries to steer a path down the middle in an effort to 'win independents' runs the risk of convincing everyone that they have no core values. As much as - or more than - any other voters, independents want to see conviction and authenticity.
+- Politicians also have a love affair with the 'small business exemption.' Too much paperwork? Too heavy a burden? Not enough time? Just exempt small businesses from the rule. It sounds so pro-growth. Instead it's an admission that the costs of a regulation just can't be justified.
+- Mitt Romney has made it clear that he believes that President Obama was born in the U.S.
+- It worries me about our unwillingness to really address reforms and modernization in Medicare. This thing was designed 37 years ago. It has not evolved to keep pace with current medical technology.
+- Defining marriage is a power that should be left to the states. Moreover, no state should be forced to recognize a marriage that is not within its own laws, Constitution, and legal precedents.
+- Having a Congress with a more diverse educational and professional background would serve the country well. And given the budget challenges facing America today, we might benefit from a few more cold, calculating problem solvers, and fewer courtroom impresarios.
+- Political pandering comes in all shapes and sizes, but every four years the presidential primary bring us in contact with its purest form - praising ethanol subsidies amid the corn fields of Iowa.
+- The debt-ceiling vote isn't about what will be done in the future; it is about the integrity of America's commitment to support the bonds we issue. Elected officials have an obligation to maintain that integrity, regardless of whether they voted for the programs that required the borrowing in the first place.
+- The media love coarse debate because coarse debate drives ratings and ratings generate profits. Unless the TV producer happens to be William Shakespeare, an argument is more interesting than a soliloquy - and there will never be a shortage of people willing to argue on TV.
+- Office holders are a self-selected group; you don't get elected if you don't put your name on the ballot. There are many people who would do a great job, but who would never think to run. Find them. Badger them. Get them elected. They might not thank you for it, but a lot of other people will.
+- You don't want to get so distracted, focusing on what the opposition is putting forth that you forget to remind America that the real issue is 8.3 percent unemployment, virtually no growth at all in an economy that has been in shambles for the last four years under Obama.
+- For my children, it makes sense to talk about modernizing Social Security, letting them create stronger personal accounts, letting them get a higher rate of return over the long run.
+- I'm running for senator because it's time for a change.
+- I loved my time in Congress, but people who spend all of their time planning to run for office have very few useful skills to deploy when they finally get there.
+- Critics might contend that putting former private-sector CEOs in the president's Cabinet places the fox in the henhouse. But it's unlikely such executives would expose themselves to the headaches if they weren't genuinely motivated by the call to service.
+- Don't let that weapon technology proliferate. Don't let Saddam Hussein get capability for nuclear or chemical weapons, because he's already shown a willingness to use any weapon at his disposal.
+- As a boy, when I was bad, my mother would chew me out in Spanish. And since I was bad a lot, I learned a lot of Spanish!
+- I understand the process of politics and the game of television.
+- Energy and environmental regulation, transportation, and broadband policy all benefit when legislators have a basic grounding in the technical concepts behind business models, products, and innovation.
+- Candidates and their consultants keep making the same mistake. They assume that all independents are bundled neatly together ideologically between Republicans and Democrats.
+- Barack Obama's life was so much simpler in 2009. Back then, he had refined the cold act of blaming others for the bad economy into an art form. Deficits? Blame Bush's tax cuts. Spending? Blame the wars in Iraq and Afghanistan. No business investment? Blame Wall Street.
+- Perspective gives us the ability to accurately contrast the large with the small, and the important with the less important. Without it we are lost in a world where all ideas, news, and information look the same. We cannot differentiate, we cannot prioritize, and we cannot make good choices.
+- Nothing panics politicians like $4 a gallon gas.
+- When Obama gutted Medicare by taking $717 billion out of it, the Romney plan does not do that. The Ryan plan mimicked part of the Obama package there, the Romney plan does not. That's a big difference.
+- Politicians wishing to set a better tone should have the discipline to avoid televised cage matches.
+- The American formula for creating business is not to have the government create business.
+- This is technology that will not go away. And to risk it moving into the hands of a terrorist group like al Qaeda or to other focused enemies of the United States, would have tragic consequences.
+- We'll always have bureaucracies, but bureaucracies led by bureaucrats might be too much of a bad thing.
+- The Internet creates as well as destroys. Social networks, search advertising, and cloud computing are multibillion dollar industries that didn't exist 10 years ago. They are products of the same force that has rendered the Postal Service's core business obsolete.
+- The precise point at which a tax deduction becomes a 'loophole' or a tax incentive becomes a 'subsidy for special interests' is one of the great mysteries of politics.
+- The principal role of the President of the United States is the security of the country and participating in trying to stabilize the world.
+- Let individuals create real wealth, empower them, create something that they can leave for their children.
+- Obama's view of the tax code is inherently political: Whom can we hit next? Energy companies, jet owners, bankers? Instead, the question should be how to promote economic efficiency by raising revenue without trying to manipulate corporate or personal behavior.
+- Growing up, I was encouraged to get a good education, get a real job doing something I enjoyed, and, should the opportunity present itself, consider public service as just that: a chance to serve, not an end in itself.
+- People in New Hampshire know that I'll talk thoughtfully, substantively about any issue.
+- I think you can be tough and aggressive with facts in a way that you cannot be tough and aggressive with emotional retorts. Most of the people that try to be tough on TV are really just being emotional and not factual.
+- You walk into any supermarket or any shopping mall and ask the public what they are worried about. Not one of them will tell you they are worried about 12 years of Mitt Romney's tax returns.
+- We will have to continue to improve our human intelligence system-something that was, unfortunately, lacking in the years which led up to September 11. This is going to be a continuing process of change.
+- When we're talking about technology that involves weapons of mass destruction, nuclear, chemical or biological weapons, there has to be an element of preemption.
+- President Obama has outsourced a major portion of the U.S. space program to the Russians. That's national policy. Taxpayer money. So let's stop playing games with this outsourcing distortion and talk about the fact that when we need is a president that knows how to manage big enterprise and create jobs.
+- The nominee is Mitt Romney. Paul Ryan joins Mitt Romney. The budget plan, the approach on Medicare and all of that is going to be the Romney plan. What he has is a man as his number two who understands the details of budgets, who has demonstrated a willingness to take on tough issues.
+- The constant need for special waivers is symptomatic of poorly written public policy. It's a signal that the cost of compliance is unreasonably high; the benefits are hard to measure; and either legislators or regulators have failed to do their homework.
+- For most Americans, Friday afternoons are filled with positive anticipation of the weekend. In Washington, it's where government officials dump stories they want to bury. Good news gets dropped on Monday so bureaucrats can talk about it all week.
+- The campaigns of Steve Forbes, Pat Buchanan, Ross Perot, and John McCain all outperformed expectations on their support from independent voters. They made no effort to shy away from ideology, but conveyed to voters that their policies were driven by principle, not party talking points.
+- Shakespeare would never have gone far in today's politically correct world.
+- It's good to give seniors more choices and more options, let them choose a plan that's best for them and target assistance to the lowest income people.
+- Obama hasn't passed a budget in four years, he's a wuss. Obama has rejected the recommendation of his own Simpson-Bowles, on a budget package, he's a wuss. He wants to lead from behind, he's a wuss!

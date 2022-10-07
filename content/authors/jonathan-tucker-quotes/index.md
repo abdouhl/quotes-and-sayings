@@ -1,0 +1,14 @@
++++
+author = "Jonathan Tucker"
+title = "Jonathan Tucker Quotes"
+quotes_len = "8"
+description = "the best 8 Jonathan Tucker Quotes"
++++
+- You can be drinking the wine today, but picking the grapes tomorrow.
+- I can tell you the actor who I admire the most. Billy Crudup. Do you know who he is? He's awesome.
+- I'm not a horror guy, it's not my thing, but I respect it a lot. I know how hard it is to make, especially to make good.
+- I grew up, as I joke around, in the 'People's Republic of Charlestown' in the city of Boston. And I was blessed to be raised right there on Monument Square in Charlestown, and every morning I'd hop on the bus and go on a 45-minute ride out to the suburbs in Brooklyn for elementary school. And I got to have my seat, really, in both worlds.
+- Whether you're doing Shakespeare or Disney, good work is good work.
+- I have been blessed to have been working since I was 11. I think horror is an underrated genre. When done really well like in 'The Ruins', it pays homage to some of the stuff I really love in the '70s and incurs some of that energy the fanbase really wants to see.
+- I'm not looking to be famous, but I want a body of work and a moral character that is deserving of fame.
+- I've always used music for my acting, and I do have a kind of a very personal play list that I create.

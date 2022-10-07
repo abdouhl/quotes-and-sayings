@@ -1,0 +1,39 @@
++++
+author = "George S. Patton"
+title = "George S. Patton Quotes"
+quotes_len = "33"
+description = "the best 33 George S. Patton Quotes"
++++
+- Accept the challenges so that you can feel the exhilaration of victory.
+- We herd sheep, we drive cattle, we lead people. Lead me, follow me, or get out of my way.
+- Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+- Success is how high you bounce when you hit bottom.
+- Always do everything you ask of those you command.
+- Americans play to win at all times. I wouldn't give a hoot and hell for a man who lost and laughed. That's why Americans have never lost nor ever lose a war.
+- Prepare for the unknown by studying how others in the past have coped with the unforeseeable and the unpredictable.
+- The time to take counsel of your fears is before you make an important battle decision. That's the time to listen to every fear you can imagine! When you have collected all the facts and fears and made your decision, turn off all your fears and go ahead!
+- Don't tell people how to do things, tell them what to do and let them surprise you with their results.
+- Nobody ever defended anything successfully, there is only attack and attack and attack some more.
+- A pint of sweat, saves a gallon of blood.
+- If a man does his best, what else is there?
+- Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best; it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood.
+- Take calculated risks. That is quite different from being rash.
+- Do your damnedest in an ostentatious manner all the time.
+- All very successful commanders are prima donnas and must be so treated.
+- There is a time to take counsel of your fears, and there is a time to never listen to any fear.
+- Wars may be fought with weapons, but they are won by men. It is the spirit of men who follow and of the man who leads that gains the victory.
+- Americans love to fight. All real Americans love the sting of battle.
+- A piece of spaghetti or a military unit can only be led from the front end.
+- Battle is an orgy of disorder.
+- There is only one sort of discipline, perfect discipline.
+- Untutored courage is useless in the face of educated bullets.
+- A good plan violently executed now is better than a perfect plan executed next week.
+- It is foolish and wrong to mourn the men who died. Rather we should thank God that such men lived.
+- If we take the generally accepted definition of bravery as a quality which knows no fear, I have never seen a brave man. All men are frightened. The more intelligent they are, the more they are frightened.
+- You need to overcome the tug of people against you as you reach for high goals.
+- If everyone is thinking alike, then somebody isn't thinking.
+- Watch what people are cynical about, and one can often discover what they lack.
+- Better to fight for something than live for nothing.
+- Courage is fear holding on a minute longer.
+- The object of war is not to die for your country but to make the other bastard die for his.
+- If you tell people where to go, but not how to get there, you'll be amazed at the results.

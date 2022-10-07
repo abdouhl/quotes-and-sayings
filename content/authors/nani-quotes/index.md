@@ -1,0 +1,106 @@
++++
+author = "Nani"
+title = "Nani Quotes"
+quotes_len = "100"
+description = "the best 100 Nani Quotes"
++++
+- Keerthy Suresh knows how to improvise and reworks her expression on the spot.
+- I still belong to a middle class family; middle class is a mindset than your financial status.
+- There will always be some people who won't like you, and there's nothing one can do about it.
+- All these years, when someone praised my work, I would feel lucky.
+- I miss a lot of things; that's the price one pays for stardom. I miss standing in queues, buying tickets, and watching films first day first show. It isn't the same going to preview theatres or multiplexes and trying to stay incognito.
+- Usually, I don't revisit a scene once shot. However, in 'Gentleman,' every morning on the sets, I had to revisit the last four scenes and then shoot for the next set of scenes.
+- I am not against it if someone does homework or workshops, but I came to the industry without any proper training. So I go according to what the director narrates to me.
+- It was a wonderful experience working with Nagarjuna sir. I mean, I never expected this to happen. For me, who watched his films standing in a queue at theatres, and now sharing the screen with him is a huge thing.
+- When I worked as an assistant director in 2007, Indraganti Mohan Krishna offered me a lead role. Now, the same director has made me a villain in 'Gentleman.'
+- With one film after another becoming a hit, nervousness only grows.
+- 'Jolly LLB' is one of my favorite movies. Courtroom films are rare to come by in Telugu.
+- I wish that 'Yama Pasham' will be a bigger hit than 'Krishnagaadi Veera Prema Gaadha.'
+- I come from a large family, with 16 cousins. My cousins studied well and moved to the U.S. When we all gathered together for special occasions, they would be well groomed and confident. I was the odd, useless one out. All I wanted was to be able to earn without my dad's help and be self-sufficient enough to own a house and a vehicle.
+- I took up Tamil films because I'm a big fan of Mani Ratnam. I thought maybe he'll notice me if I act in a Tamil film.
+- My journey with Krishna Vamsi had started with revenge and ended with love. When I went to Krishna Vamsi's office to work as an assistant director, I was sent out. Then I had thought they might one day need me.
+- Anjana knew me inside out even before we got hitched, and now married life is blissful. We are very happy.
+- I have always loved cricket since childhood.
+- Even in the wildest of my dreams, I didn't expect this love and affection as an actor.
+- Since I still think of myself as a middle class guy, people get to see that side of me in films like 'Middle Class Abbayi.'
+- 'KAY' is the kind of film you can watch with your family and enjoy for 2.5 hours.
+- A real blockbuster is one where everyone, from a small technician to a distributor, gets profits. The true success of a film is when every person involved is happy.
+- Trash my acting and my films. But don't gossip about my personal life.
+- I usually surface on social media only when there's a film.
+- I have realised that I am not cut out for the regular, commercial potboilers. I know I don't have it in me to do such films.
+- After 'Dhayyam' and 'Conjuring,' a film that really scared me is 'Gruham.'
+- When we did 'Ashta Chamma,' I never thought people will pay money to watch me on screen. I never took myself seriously back then.
+- Whenever I bump into Rajamouli sir, I jokingly ask him about 'Eega 2.' As a fan of 'Eega,' I want the sequel.
+- Sometimes we postpone releases because of another big film or some other reasons. In the end, the big film, too, postpones, and the impact is on the small films. So once you decide on a release date, you have to go ahead with it.
+- I wish that I will get to work with Gopi Sundar again and again.
+- It's easy to play a character who is suffering with a disease or has a psychological problem. 'Gentleman' is completely opposite. There are both positives and negatives in the role, and it is the most challenging role I have done so far.
+- 'Pilla Zamindar' is a fun film. I enjoyed working in it.
+- When the characters are believable and endearing, action scenes, for example, make an impact. Otherwise, the audience gets no kick out of action. The biggest strength of 'MCA' is that its characters are real.
+- I personally like melodies. And Mani Sharma garu is the Melody Brahma.
+- Take me to any other film industry, and they will be wondering why Telugu audiences love me so much.
+- 'Bigg Boss' changed my view of the world. Before I joined the show as its host, I was living in a bubble. I believed the real world is a happy place. 'Bigg Boss' made me realise that the world is made of all kinds of people, including some judgmental ones. It has introduced me to the real world.
+- People say I pick good films. Rather, good filmmakers choose me. The directors come to me, and I thank them for their trust in me.
+- I always think of myself as an audience first. If I like something, my assumption is that others, too, will like it.
+- When things get heated, you are pulled in different directions, and you've to stand firm.
+- Producing a film is not an easy job at all.
+- A director is a director. We shouldn't categorize one into a this or that director.
+- My biggest fear is that I might end up doing a film which I might regret at a later point of time.
+- I don't consider myself an image-driven actor. I believe audiences come to watch my films because they are entertaining and not because of my image.
+- Since childhood, I've never been a morning person. I need something exciting, out of my comfort zone, to get out of bed.
+- I'm glad that so many directors are keen to work with me.
+- I used to play cricket every day till Class X but lost touch with it ever since.
+- There was a notion that I could do only niche films like 'Yevade Subramanyam' or 'Krishna Gaadi'... I wanted to break that and draw in a larger audience so that next time I do a so-called niche film, more people might come out to watch it.
+- I have not seen the Hindi version or the first season of 'Big Boss Telugu.' I will bring my own style to the show, using my understanding of how the format works.
+- When films fail, we definitely feel bad because, as a team, we put in so much effort.
+- B.A. Raju garu is very knowledgeable when it comes to cinema. He has sound analysis.
+- I believe the audience likes to see well-defined characters on screen than just larger-than-life heroes.
+- I love Krishna Vamsi very much as a director, and after working with him, I also started to like him personally.
+- I feel bad to keep someone hanging. So if I'm not inclined to do a film, I am forthright about my decision.
+- It's not sinking in, as I still believe I am a kid! And now I am going to have a kid. I'm slowly digesting it.
+- With the success of 'Yevade Subramanyam' and 'Bhale Magadivoy,' the audience's faith in me has increased, which is a good sign.
+- My career wasn't planned, never had any targets. I just go by my instincts, and I think I am doing good work.
+- It's a happy thing if a film does good business.
+- Even when I was doing three films a year, I would somehow find two weeks to spend time with my family apart from the regular weekend breaks. But 'Bigg Boss' took up more time than I had expected. On top of it, I also had to shoot for 'Devadas.'
+- I have made all my monies through cinema.
+- If you don't like a film or do a film out of obligation in a comfortable zone, it would be very painful, but when you do something with passion, interest, and belief in it, it excites you.
+- If you do something mechanically for years to come, you tend to think that is life, but put yourself in a totally bizarre location, and you tend to discover so many aspects of yourself and life in general.
+- I and Dil Raju guru have always wanted to work with each other. He had sent to me stories, 4-5 over the years, but somehow, something was not perfect with them. But when I listened to 'Nenu Local,' I felt the time had arrived.
+- Gossips are fine if they are within limits. But they shouldn't be obnoxious.
+- 'Manu' is one of the best albums. The climax song will be a trump card for all break-up songs. Everybody will talk about the language of the lyrics.
+- I got a lot of exposure because of 'Eega,' as the film was released in Tamil, Hindi, and Malayalam.
+- I thought I could handle 'Nenu Local' well and make the romance seem cute than annoying, and going by some of the feedback, I think I managed it.
+- I have been to Tirupathi more than I have ever been to my grandpa's place. Every Telugu is a Tirupathi guy!
+- Acting is my world. Acting is my life.
+- When people are successful, they usually become lazy.
+- Nobody has tried anything like this in Telugu cinema. 'Eega' is a landmark film.
+- I do films that amuse me and I can enjoy watching.
+- When someone tells me I would be perfect for a certain role, I know that it's within my comfort zone. And there's hardly any fun there.
+- When I truly like a film or my part, it shows on screen.
+- I usually don't let any kind of pressure bother me.
+- Script wise, the story of 'Eega' is universal. It's a simple story which everyone can understand.
+- I respect Srikanth garu, I worked as an assistant director for his film 'Radha Gopalam.'
+- Since I am an outsider, I never knew how it feels to have a superstar in one's family.
+- I am not in a position to play in action films bashing hundreds of goons with one hand. I feel I am not really fit for high-voltage action films.
+- Everyone has a 'Majnu' in them. It's not about the sad or happy climax. It's a term we use to define someone who falls in love and faces problems.
+- I'd rather fail doing what I believe in and feel satisfied that I tried.
+- If someone comes with an interesting script where the negative role suits me, I will definitely take it up.
+- After the release of 'Ashta Chemm,' several producers and directors came with similar roles in their films. But I doesn't want to do stereo type roles and do something different for each film, and refused them.
+- 'Ninnu Kori' urges us to take a broader view of life, look past stumbling blocks, and rise above self sympathy.
+- I'd dream of assisting Gautham Menon after watching 'Kaakha Kaakha.'
+- Once the scene is over, I come out of it. I don't carry the character with me for long as many actors do.
+- My personal opinion is that an actor shouldn't bother himself about expanding his market. He or she should just do good films.
+- When I entered the industry, I wanted to work with good directors like Mani Ratnam and Gautam Menon; that's why I did Tamil films. I realised later that I was not adding anything to the Tamil scripts and that it was a waste of time for me.
+- I am a big fan of A.R. Rahman and Mani Sharma, and I went to a shop to buy these music directors' CD. But I had only Rs 100, and Rahman's CD cost more, so I couldn't buy both. So I bought Rahman's CD and stole Mani Sharma's CD.
+- 'Bigg Boss' is the biggest show in the world, and I'm sure anyone would want to host it, but not me.
+- I did get to work as a technician with Bapu in 'Radha Gopalam.'
+- Sometimes, you have to take a stand; you cannot make everyone happy.
+- Usually, I get the jitters before a release, and my whole system crashes. I can barely eat or sleep.
+- I never saw myself as an actor. I neither had the looks nor the backing required to be an actor.
+- When it comes to 'Ala Modalaindi,' I was impressed with the storyline narrated by Nandini, the director of the film.
+- In the real world, most criminals and powerful persons look lean and use only their mind. Only in films we see villains with a six-pack.
+- With good content, a solid director can make a film without a superstar.
+- The title 'Vaisakham' sounds so good because it's a pure Telugu title. When I watched the trailer, it became clear to me that it's a pucca commercial movie.
+- I don't want to regret doing something that I don't believe in.
+- Many Tamil heroes have a good market in Telugu.
+- I was a huge Kamal Haasan fan, but not really a die-hard wackadoo.
+- There are two categories of actresses: performance-oriented ones and glamourous ones.

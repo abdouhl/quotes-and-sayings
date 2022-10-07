@@ -1,0 +1,20 @@
++++
+author = "Shari Redstone"
+title = "Shari Redstone Quotes"
+quotes_len = "14"
+description = "the best 14 Shari Redstone Quotes"
++++
+- There will always be a place for social movie-going. Nothing can compete with that.
+- I always say, complacency is the kiss of death.
+- I'm known for my desserts.
+- I don't like to follow in the footsteps. I like to learn from the footsteps that came before me, forge a new path.
+- I say to my father quite frequently that my success professionally is very much due to the guidance he gave me and to watching him in the business world. He really taught me to fight for what is right. He taught me to persevere and never give up.
+- I saw the legal system close up, and I understood that it was built by lawyers for lawyers, and unless you have an attorney to navigate it, you're not going to be successful.
+- I surround myself with great people. I listen to what they have to say. But at the end of the day, I rely on my gut.
+- I walk in hotel halls late at night while listening to audiobooks if I haven't yet achieved a minimum of 12,000 steps that day.
+- I need to figure out how to sleep better. Most of my binge watching is after midnight. Most of my baking is after ten. I'm really working on trying to sleep more. No devices in my bed, get into a routine. I've started doing yoga every night.
+- I used to practice criminal law, and it was so sexist.
+- The entire legal system was built upon the assumption that people would have adequate representation. When they don't, the system fails, and the laws don't matter.
+- It is really hard when your life is scrutinized by people who don't know you and who don't really know what the situation is. So I avoid the good and the bad and just try to live in a world where I can insulate myself from whatever is out there.
+- In building a management team, I look for integrity, loyalty, vision, and a willingness to think outside of the box, and challenge the status quo. I also look for people who have a good sense of humor and who value and empower their team.
+- Netflix, like life, has its pros and cons.

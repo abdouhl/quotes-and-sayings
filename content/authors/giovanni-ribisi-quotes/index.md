@@ -1,0 +1,34 @@
++++
+author = "Giovanni Ribisi"
+title = "Giovanni Ribisi Quotes"
+quotes_len = "28"
+description = "the best 28 Giovanni Ribisi Quotes"
++++
+- I'm old fashioned with my cell phone. I like that human contact and I think it's important.
+- I'm definitely not the same actor that I was when I was 9 years old, and that's because my intentions, my goals, aspirations, or whatever were different.
+- I used to shy away from publicity so as not to let it get in the way of the work. But it's part of the job. The tabloids are a whole other arena. If fame happens, it happens. I just want to maintain focus.
+- My mother told me I was begging her to be an actor when I was four. My father and my grandfather saw at least one or two movies a week; they were film buffs, so I guess it just rubbed off on me.
+- I'm so critical of myself. I'm actually really, really proud of the film. It's really cool to see a movie at Sundance because everybody is so supportive.
+- What's sad is that there is an addictive quality to that, to believing your own hype; to allowing yourself to become validated by others and no longer by yourself. That's the danger of celebrity.
+- If I had to choose criteria, for me, it's about first the director. I want to be a part of something that's good and intellectually challenging. After the director it's the character and the story. That's the deal for me.
+- Nicolas Cage is such a phenomenal actor. I've been a fan of his forever. I can't tell you how many times I've seen 'Moonstruck' and 'Wild At Heart.'
+- I was on 'Junior Star Search' when I was 10 years old, in the acting category. The adult version of 'Star Search' didn't have an acting category, but for the kids, they had an acting category. It was the strangest thing. It was full blown 1980s, with big hair, mullets, and the whole deal.
+- I just consider myself a committed actor. If a movie is a success, that's great; I'm happy for that. But I've learned just to concentrate on my job and do the best that I can.
+- Those people are unabashedly ruthless as far as money is concerned.
+- I love talking about Scientology.
+- We went to - I guess it was a legitimate boiler room, and I sat in front of this guy who literally was on the phone with two people at once. They call it double fisting.
+- I'm really happy with where I am, the movies in my life. Not satisfied, necessarily. But I won't put it on somebody else, blame anybody else for my position in the business. It's the choices I have made.
+- My mother told me I was begging her to be an actor when I was four. My father and my grandfather saw at least one or two movies a week; they were film buffs, so I guess it just rubbed off on me. And now it's kind of become a way of life for me.
+- I grew up with Scientology - my parents at one point were clerical. It's a pragmatic philosophy, not merely a belief system. Yeah, it's had media exposure because certain luminaries do Scientology, but millions of people do it who are not celebrities. It's not a threat or some cult.
+- I always wanted to go to Cuba growing up. It was this fascinating, forbidden country that seemed to have a lot of politics and folklore and history behind it.
+- It was extremely useful to grow up in front of the camera. It gives the camera no significance. I think it helped me have perspective on things. The attraction that Hollywood can have, I feel like I'm over that. Instead I just concentrate on acting.
+- Dostoevski was on to something. You are the path you choose. You are what your vocation is.
+- For me, acting is all about the aesthetic. I just want to keep honing my craft. Not that I'm taking myself too seriously, but every artist should consider himself Picasso. Otherwise, you're doing yourself an injustice.
+- I want to be a part of something that's good and intellectually challenging.
+- It's an interesting thing to come to New York and do a television show. You're doing 10 hours of content in four and a half months. Eighty-hour weeks are par for the course.
+- I could almost say it is my religion. I guess that sounds pretentious, but I want to live and breathe cinema.
+- I grew up in the '70s and in Los Angeles during the new blockbuster era. 'Star Wars' was the first film that I saw in the movie theater. I wanted to be an actor; then it turned out to be this 'Wizard of Oz' story: I was 10 or 11 years old, and it turned into something that I didn't think it was.
+- There's the concept that if I do this big budget project, then that will help me do the things I really want to do and bring more money to those films.
+- James Cameron has always been one of my favorite filmmakers. The first 'Terminator' is such a phenomenal film. It's not just that, though - he's also a very interesting person, James Cameron. It's fascinating to talk to him about science and engineering.
+- I've been allowed to grow over the past twenty years. I've managed to avoid being trapped in one moment of my career and for that, I'm very thankful.
+- You have to take into account it was the cell phone that became what the modern-day concept of a phone call is, and this is a device that's attached to your hip 24/7. Before that there was 'leave a message' and before that there was 'hopefully you're home.'

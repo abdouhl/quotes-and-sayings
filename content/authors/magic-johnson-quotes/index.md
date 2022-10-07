@@ -1,0 +1,101 @@
++++
+author = "Magic Johnson"
+title = "Magic Johnson Quotes"
+quotes_len = "95"
+description = "the best 95 Magic Johnson Quotes"
++++
+- Ask not what your teammates can do for you. Ask what you can do for your teammates.
+- I try to hire people I don't have to motivate. But I do motivate the people working with and for me.
+- Sometimes friends move apart from each other for whatever reason.
+- The audience likes their emotions to be touched. They want to laugh and cry and feel good.
+- I'm from there. You know, when you grow up with these people and see them every day and then you look at the numbers it was easy; it was a no-brainer. And when Sony took a look, it was a no-brainer to them, too.
+- My father is my idol, so I always did everything like him. He used to work two jobs and still come home happy every night.
+- People see me high-fivin' and smiling on the court, and they don't think that's me. But it is. I just want to go out and be myself.
+- I'll hear people say every so often that having HIV must not be so bad - 'Just look at Magic and how well he's doing.'
+- ObamaCare is working. I talk to a lot of CEOs of hospitals. It is working.
+- All kids need is a little help, a little hope and somebody who believes in them.
+- I'm a businessman, and what I know is numbers and business.
+- My first and only experience in baseball, the coach signed me up; he didn't tell me there's a thing called the curveball. I didn't know that. So the ball's coming at me and I start backing out, and then it broke inside. And the umpire says, 'Strike one!' And I'm saying, 'How is that a strike? It almost hit me!'
+- As an athlete, I understood the value of my health insurance. I knew that in my profession, injuries were common and could happen at any time.
+- Magic is crazy. He is that crazy wild guy on the basketball court that is very intense and very serious. He is the guy who lives and eats and breathes basketball.
+- I get up 5:30-6 every morning. I'm in the gym. I run a couple miles.
+- My father was a great example of a strong and good man and Christian man, and my mother taught all my six sisters how to be young ladies and mothers and how to take care of your family. And so I think they were - they still are - great examples for all of us to their kids and to the world, too.
+- My dad was my hero. And I got my personality from my mother.
+- I'm building shopping centers and movie theaters in the inner cities. So that means supplying jobs and letting blacks understand that we have to build our communities back, not looking to anybody else.
+- For a long time, I'd work until 10 or 11. When I work, I'm on. I'm 'Magic.' I love it, but it takes a lot out of me.
+- My family is a praying family, a Christian family.
+- I tell people to look at me and understand that everybody first told me that I couldn't be a 6-foot, 9-inch point guard, and I proved them wrong. Then they told me I couldn't be a businessman and make money in urban America, and I proved them wrong. And they thought I couldn't win all these championships, and I proved them wrong there as well.
+- Research your idea. See if there's a demand. A lot of people have great ideas, but they don't know if there's a need for it. You also have to research your competition.
+- When you think about the NASCAR brand, it resonates everywhere. They have the No. 1 sports brand.
+- I do not have bad days. I don't wake up in the morning and think that I'm going to get AIDS. I don't dream bad dreams about it. If I did, I'd be giving in to the negativity.
+- It's a burden trying to keep a secret. It's hard. It probably takes more out of you trying to hold it and keep it than it does for you to really let it out.
+- I motivate others by making sure that they understand to go after their dreams and don't let anyone tell you you can't. If you are motivated enough and put the work in that you can achieve anything in life that you set your mind to.
+- I'm gonna love my son until the end.
+- Just celebrate the life you had, not the life you could've had.
+- If you're a competitive person, that stays with you. You don't stop. You always look over your shoulder.
+- People don't stop eating, and they don't stop drinking coffee.
+- Everyone thought I was going to die like a year later, they didn't know. So I helped educate sports, and then the world, that a man living with HIV can play basketball. He's not going to give it to anybody by playing basketball.
+- When a woman is frustrated, and it's your wife, you as the husband get that frustration.
+- Manhood is taking care of your family and being able to bless other people. Not yourself - but whether you can bless other people.
+- I am a businessman. This is what I do each and every day. I love it. I love coming to work. I never have a bad day.
+- A lot of black guys always ask me, 'Did Larry Bird really play that good?' I said, 'Larry Bird is so good it's frightening.'
+- I wanted to do two things when I was growing up, about your age. I wanted to play in the NBA, and I wanted to be a businessman after my basketball career was over, and that is what I am doing now.
+- The real story is that I had unprotected sex. That's that. That's easy.
+- I'm the one who will take chances, not worry about the backlash.
+- I love putting people to work of color.
+- The important thing is this Just because I'm doing well doesn't mean that they're going to do well if they get HIV. A lot of people have died since I have announced. This disease is not going anywhere.
+- My dad worked two jobs his whole life, and so I told him he's the reason I have 20 jobs.
+- All students should have the opportunity to receive their high school diplomas and be fully prepared for college or the workplace.
+- Everyone should have the opportunity to get affordable, quality health coverage.
+- My having HIV has no bearing on my business.
+- I thank Him every chance I get - on my knees praying.
+- I'm the one who started redevelopment in South Los Angeles, not Jan Perry. I did it. I love Jan. She's a good person, and she did a wonderful job with what she did downtown, but in L.A., South L.A., I'm the one.
+- I grew up a Detroit Tigers fan, and now to be an owner of the Dodgers is amazing.
+- I have to tell you, I'm proudest of my life off the court. There will always be great basketball players who bounce that little round ball, but my proudest moments are affecting people's lives, effecting change, being a role model in the community.
+- I enjoy being the messenger for God in terms of letting people know about HIV and AIDS.
+- I often tell people when you make a mistake, you not only hurt yourself, but you hurt the ones that love you.
+- I met wonderful people playing in the NBA. Whether it is the officials, the scorekeepers, all the people who work for the NBA, not just for the Lakers, but I'm talking about just for the league itself.
+- My diet is mostly chicken and fish. I make sure I get a lot of vegetables, a lot of fruit. I am a big fruit man, I am a vegetable man anyway. And I also get a lot of rest. That's the key I may be up early, but I'm in bed early too.
+- I respect women to the utmost.
+- I'm glad that Gov. Scott down in Florida accepted ObamaCare, because it will work.
+- I like to take walks in the park by myself, where no one can bother me and I can think.
+- A woman always remembers. Remember that.
+- Athletes don't like to get up early, but it never bothered me.
+- Young people want you to be real with them.
+- No one plans to get sick or hurt - I certainly didn't - but most people will need medical care at some point in their lives.
+- I want to be here for a long time, so I am going to do everything I have to do to be here. And I want to walk my daughter down the aisle and give her away to somebody some day. I want to make sure I am still here to make sure my two young sons become men.
+- I love to be in the ballpark. I love to just go in and enjoy a great baseball game, a great pitchers' duel.
+- To me, everything is wonderful. Life is wonderful.
+- Every kid, every minority kid can be so successful if they focus on their education.
+- You can't get AIDS from a hug or a handshake or a meal with a friend.
+- When you are a successful business person, you are only as good as your team. No one can do every deal alone.
+- The best doctors and medicine in the world can't save you if you don't do what you're supposed to do.
+- When I grew up, my family, we sat down, all of us to watch 'Good Times,' 'Sanford and Son,' all those shows that were out at that time.
+- I am and will always be a Laker for life.
+- You know I was a shy guy and people didn't know that and still don't know it today. I'm sure basketball brought my shyness out because of the fact that you have to do interviews, and that people are always talking to you in terms of the fans and everything.
+- The first year was hard for me to deal with. The second year was a little bit easier, but still difficult. It took me five years to get it out of me. It was a difficult moment, a difficult time.
+- I'm not cured, but the HIV is asleep deep in my body.
+- I look three to five years ahead, not 10 years behind.
+- I'm the biggest music lover in the world. I mean, I have seen everybody. I went on tour with Michael Jackson and the Jacksons four or five times.
+- I have a fond place in my heart for Seattle, so I hope that an NBA team comes back to this great city, this great sports city.
+- I like things going on in my life. I don't want to be on a beach somewhere just relaxing.
+- If somebody says no to you, or if you get cut, Michael Jordan was cut his first year, but he came back and he was the best ever. That is what you have to have. The attitude that I'm going to show everybody, I'm going to work hard to get better and better.
+- I don't care who is attacking my son. I still support him; I still love him.
+- I got blessed from my mom. She's the personality; she's the one who smiled, so I took on part of her, and who also wanted to help and save the world. Then I took on part of my dad, who is tough.
+- Magic is who I am on the basketball court. Earvin is who I am.
+- My work ethic is from sports.
+- I'm at peace with myself. The main thing is not letting people dictate what I do or what I am.
+- I make sure I get a lot of vegetables, a lot of fruit. I am a big fruit man; I am a vegetable man, anyway.
+- I think that there are always goals for me to try to achieve, and I'm going to work toward those goals.
+- Magic is crazy. He is that crazy wild guy on the basketball court that is very intense and very serious. He is the guy who lives and eats and breathes basketball. Magic is a guy who would stand for nothing but winning and really prepared himself as well as he prepared his team. Earvin is the complete opposite.
+- Urban America is like a foreign country in a sense.
+- Life doesn't stop because something happens to you.
+- I've always been a leader my whole life. I've always led. I didn't know how to do anything else.
+- When I first found out I had HIV, I had to find somebody who was living with it, who could help me understand my journey and what I was going to have to deal with day-to-day. I found out that a person named Elizabeth Frazier was living with AIDS at the time, and so I called her up, and she took a meeting with me.
+- I'm far from being a homosexual.
+- God blessed me with two unbelievable parents, and I am just like both of them. I have the smile and charisma of my mother and the big heart of my mom, because she wants to save the world and help the world, so I am just like her.
+- I tell you, it's funny because the only time I think about HIV is when I have to take my medicine twice a day.
+- I guess when people ask what is the biggest transition to the NBA from college, it is definitely defense and the mental part.
+- The gay community has taken care of their issues and problems in terms of HIV/AIDS. They have done an incredible job. We as heterosexuals need to learn from the gay community because they have rallied together. They have sent a lot of information out there. They go get tested.
+- When you are honest and open with young people, they let you in.
+- When you face a crisis, you know who your true friends are.
